@@ -6,7 +6,7 @@
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22491.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22491.jpgsave_picture_22491.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Microtopia (2025) [Ru/Multi] (1.0.8bb) Repack Other s
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22492.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22492.jpgsave_picture_22492.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ VA - Music News For Forum vol.072 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22493.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22493.jpgsave_picture_22493.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:99871E75336803A578F1FA6522D4F1C6747FD93A
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22494.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22494.jpgsave_picture_22494.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ magnet:?xt=urn:btih:14966750B124CEBCA6136C698F91BE3693C6B76F
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22495.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22495.jpgsave_picture_22495.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ FanControl V219 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22496.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22496.jpgsave_picture_22496.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ Forever 89 - Topos 1.0.0 VST 3 (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22497.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22497.jpgsave_picture_22497.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ Calibre 8.2.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22498.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22498.jpgsave_picture_22498.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ Paleo Pines (2023) [Ru/Multi] (1.5.22/dlc) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22499.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22499.jpgsave_picture_22499.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ FreeCommander XE 2025 donor v927 x64 + portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22500.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22500.jpgsave_picture_22500.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:26B844E83B2ED5B84A9868D49B7E7ADC0633C14E
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22501.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22501.jpgsave_picture_22501.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ South of Midnight (2025) [Ru/Multi] (1.1.0 184977) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22502.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22502.jpgsave_picture_22502.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ magnet:?xt=urn:btih:15AF6F85989579535D2AD63C14F002C3EEFA627E
 >>Разное (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22503.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22503.jpgsave_picture_22503.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ VA - 80s Best Disco (2025) [FLAC|Lossless|WEB-DL|tracks] <Disco, Funk, R&B, Soul
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22504.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22504.jpgsave_picture_22504.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Psiphon 3 build 185 RePack (& Portable) by elchupacabra (DC 31.03.2025) [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22505.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22505.jpgsave_picture_22505.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ magnet:?xt=urn:btih:19766B7EAFE7CA193E7C1044FF4607C3E0731A11
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22506.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22506.jpgsave_picture_22506.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ magnet:?xt=urn:btih:09D4C8798B36DA85E079FA6522CDB027A2AC21A0
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22507.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22507.jpgsave_picture_22507.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ magnet:?xt=urn:btih:09D4C8798B36DA85E079FA6522CDB027A2AC21A0
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22508.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22508.jpgsave_picture_22508.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ South of Midnight (2025) [Ru/Multi] (1.1.0 184977) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22509.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22509.jpgsave_picture_22509.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ magnet:?xt=urn:btih:813AFBFC49DCC3FD6AA076B9D3AB5761154E9903
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22510.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22510.jpgsave_picture_22510.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ magnet:?xt=urn:btih:B626C6642F4C66F0A693CA81AD1FD581D4AAC172
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22511.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22511.jpgsave_picture_22511.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ magnet:?xt=urn:btih:D8DADB724EE63698658E1D5A7257A300667B47AB
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22512.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22512.jpgsave_picture_22512.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ My Friend Pedro (2019) [Ru/Multi] (1.03) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22513.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22513.jpgsave_picture_22513.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Orcs Must Die! Deathtrap (2025) [Ru/Multi] (1.1.2/dlc) Scene Rune
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22514.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22514.jpgsave_picture_22514.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ magnet:?xt=urn:btih:53D1EF0507BB7EBA4FB6B358D534648BF5A8CD56
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22515.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22515.jpgsave_picture_22515.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ magnet:?xt=urn:btih:E67B53077E021304540A9B3084CED788C09C9417
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22516.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22516.jpgsave_picture_22516.jpg" />
 </div>
 
 

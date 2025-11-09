@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_193335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193335.jpgsave_picture_193335.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:0F3D89E1218B48568343B1E54AF834ABC86AB379
 >>Разное (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193336.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193336.jpgsave_picture_193336.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:E438BF4E3079386277BFA6076678772331A5D11A
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193338.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193338.jpgsave_picture_193338.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:92EF4255F2D704B91F142EF6A9EFDDC36983FFAF
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193339.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193339.jpgsave_picture_193339.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ magnet:?xt=urn:btih:D3F53EBC30C135D17BDAEFF646FA5FE01E6E2907
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193340.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193340.jpgsave_picture_193340.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ LibreWolf 144.0-1 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193341.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193341.jpgsave_picture_193341.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ Ui Kits - UI8 - Camero - CRM Dashboard UI Kit [FIG]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193342.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193342.jpgsave_picture_193342.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ Corey Congilio - A Good Place To Start (2025) [FLAC 24/48|Lossless|WEB-DL|tracks
 >>Blues, Soul (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193343.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193343.jpgsave_picture_193343.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ magnet:?xt=urn:btih:8DCCDB2251CFB8DB374A692660CBC875A4B3CAA2
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193344.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193344.jpgsave_picture_193344.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ Big Chief Monk Boudreaux & Spyboy Jwan Boudreaux - Slip Don't Fall (2025) [FLAC 
 >>Blues, Soul (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193345.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193345.jpgsave_picture_193345.jpg" />
 </div>
 
 
@@ -262,7 +262,7 @@ Bye Sweet Carole (2025) [Ru] (1.0.1/dlc) Repack seleZen
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193346.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193346.jpgsave_picture_193346.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ Absolum (2025) [Ru/Multi] (02 r34045) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193347.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193347.jpgsave_picture_193347.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ Dispatch (2025) [Ru/Multi] (1.0.14864/dlc) Repack Let'sРlay [Digital Deluxe Edi
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193348.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193348.jpgsave_picture_193348.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ MediaHuman YouTube Downloader 3.9.17 (2110) RePack (& Portable) by elchupacabra 
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193349.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193349.jpgsave_picture_193349.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ IObit Smart Defrag Pro 11.1.0.466 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193350.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193350.jpgsave_picture_193350.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Ant Download Manager Pro 2.16.1  Build 91717 RePack (& Portable) by elchupacabra
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193351.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193351.jpgsave_picture_193351.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ IObit Uninstaller Pro 15.1.0.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193352.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193352.jpgsave_picture_193352.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ VA - Acid Jazz Funk (Vol.4) (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz, 
 >>Jazz (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193353.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193353.jpgsave_picture_193353.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ magnet:?xt=urn:btih:AF91334B0F0E4E27F57AEAACC47D6474F402C372
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193354.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193354.jpgsave_picture_193354.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ OrcaSlicer 2.3.1 + Portable [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193355.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193355.jpgsave_picture_193355.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Double Dragon Revive (2025) [Ru/Multi] (1.1.0.0/dlc) Repack Let'sРlay [Deluxe E
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193356.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193356.jpgsave_picture_193356.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ magnet:?xt=urn:btih:8FEDFA0CFA2799E757880D5B8066EE4D2F632649
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193357.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193357.jpgsave_picture_193357.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Timmy Stax - Bay Area Jazz and Soul Lake Merritt Jazz and Soul Revue (2025) [FLA
 >>Jazz (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193358.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193358.jpgsave_picture_193358.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ magnet:?xt=urn:btih:89F78D6093E06B1D5A84ECA68B29A50E65D9C158
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193359.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193359.jpgsave_picture_193359.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Dispatch (2025) [Ru/Multi] (1.0.14753/dlc) Scene Rune [Digital Deluxe Edition]
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193360.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193360.jpgsave_picture_193360.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ Dispatch (2025) [Ru/Multi] (1.0.14753/dlc) Repack seleZen [Digital Deluxe Editio
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193361.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193361.jpgsave_picture_193361.jpg" />
 </div>
 
 

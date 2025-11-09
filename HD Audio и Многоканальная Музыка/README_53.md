@@ -6,7 +6,7 @@
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65104.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65104.jpgsave_picture_65104.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Robert Rice Jr - Breathe (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz, Smoot
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65105.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65105.jpgsave_picture_65105.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Reed Turchi - World On Fire (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65106.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65106.jpgsave_picture_65106.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Nefarious - Addicted to Power (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Thrash
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65107.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65107.jpgsave_picture_65107.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ The Doobie Brothers - Walk This Road (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65126.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65126.jpgsave_picture_65126.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Forth Wanderers - The Longer This Goes On (2025) [FLAC 24/44.1|Lossless|WEB-DL|t
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65147.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65147.jpgsave_picture_65147.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Charlie Hunter & Ella Feingold - Different Strokes for Different Folks (2025) [F
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65148.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65148.jpgsave_picture_65148.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Chyco Simeon - Future (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz Fusion & 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65149.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65149.jpgsave_picture_65149.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Recorruptor - Sorrow Will Drown Us All (2025) [FLAC 24/48|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65150.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65150.jpgsave_picture_65150.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Bush - I Beat Loneliness (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternati
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65153.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65153.jpgsave_picture_65153.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Odd Berries - Dark Waters (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Ro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65162.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65162.jpgsave_picture_65162.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Lone - We Came a Long Way (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternativ
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65164.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65164.jpgsave_picture_65164.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Maggie Lowe - Comin' in Hott (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65165.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65165.jpgsave_picture_65165.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Abigail Williams - A Void Within Existence (2025) [FLAC 24/48|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65169.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65169.jpgsave_picture_65169.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Humble Rebel & the Guesthouse - Sweet Morning (2025) [FLAC 24/48|Lossless|WEB-DL
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65170.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65170.jpgsave_picture_65170.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Annisokay - Studio Albums (9 releases) (2010-2025) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65272.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65272.jpgsave_picture_65272.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ magnet:?xt=urn:btih:EA331C6AA37AFF91FC4BE0DE2FADBADDC509C7DF
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65280.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65280.jpgsave_picture_65280.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Boneshakers - Live To Be This (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blue
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65284.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65284.jpgsave_picture_65284.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Motorjesus - Streets of Fire (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard 'n
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65289.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65289.jpgsave_picture_65289.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Catapulta Airlines - Бирбоинг (2025) [FLAC 24/48|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65293.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65293.jpgsave_picture_65293.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Yelawolf & Michael Phillips - Whiskey & Roses (2025) [FLAC 24/48|Lossless|WEB-DL
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65294.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65294.jpgsave_picture_65294.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Alice Cooper - Up All Night (2025) EP [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard-
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65296.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65296.jpgsave_picture_65296.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ Slaughter to Prevail - Grizzly (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Dea
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65299.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65299.jpgsave_picture_65299.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ Super Grup Electrecord - Slagare, Slagare, Slagare (1977) [FLAC 2.0|192/24|image
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65302.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65302.jpgsave_picture_65302.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ Ramonda - The Walls Are Crumbling Down (2025) [FLAC 24/44.1|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65304.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65304.jpgsave_picture_65304.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ Scardust - Souls (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Progressive Symphon
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65307.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65307.jpgsave_picture_65307.jpg" />
 </div>
 
 

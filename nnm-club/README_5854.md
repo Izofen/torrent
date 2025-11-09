@@ -6,7 +6,7 @@ Complete Internet Repair 9.1.3.6322 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183769.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183769.jpgsave_picture_183769.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:939B5472EB4C35206C6C8FF4C1D3E9C675AE234C
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_183770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183770.jpgsave_picture_183770.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ Auslogics Duplicate File Finder 10.0.0.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183771.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183771.jpgsave_picture_183771.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:608143B3FCC8D200987643CA54C86341B78FDA89
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_183773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183773.jpgsave_picture_183773.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ The Antichrist Imperium - Volume III: Satan in His Original Glory (2022) [FLAC|L
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183774.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183774.jpgsave_picture_183774.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ Fusspils 11 - Halbwegs Verpeilt (2022) [MP3|320 Kbps] <EBM, Dark Electro, Future
 >>Industrial, EBM, Dark Electro
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183776.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183776.jpgsave_picture_183776.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ magnet:?xt=urn:btih:9FFBC82D31983CB8C10B30C10979CEA3476BDA1A
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_183777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183777.jpgsave_picture_183777.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ magnet:?xt=urn:btih:58ABB51DF6C29EA56C810C11C46A5940E6B7E4AB
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183779.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183779.jpgsave_picture_183779.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ magnet:?xt=urn:btih:F87EAE71E75E2D0B1D4A36BBF3686909D647F01A
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_183780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183780.jpgsave_picture_183780.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ magnet:?xt=urn:btih:2D6788B1298342D8346A4ADE00FC172DCC1D8AF8
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183782.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183782.jpgsave_picture_183782.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ magnet:?xt=urn:btih:573E2449B59F3E686388DB67F66F77E45D514BF6
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_183783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183783.jpgsave_picture_183783.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ Birdie Wing: Golf Girls Story | История гольфисток [ТВ-1] [20
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183785.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183785.jpgsave_picture_183785.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ magnet:?xt=urn:btih:33DF08FA4687B28385D5C44625096591A40AD6DB
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_183786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183786.jpgsave_picture_183786.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ magnet:?xt=urn:btih:86FFFADF848DF5975EEF5445B291EE51455D349A
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183788.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183788.jpgsave_picture_183788.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ magnet:?xt=urn:btih:4F2AFFBB61A9F820DB5BBA5F62CFA330DA37FC62
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183791.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183791.jpgsave_picture_183791.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ TAL Software - TAL-Reverb-4 4.0.2 VST, VST 3 (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183793.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183793.jpgsave_picture_183793.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Creature Art Teacher, Aaron Blaise | Как рисовать хищных пти
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_183794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183794.jpgsave_picture_183794.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ CGcircuit, Ciobanu Razvan | Advanced Particles 1: Geometry Based Simulations (20
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_183796.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_183796.jpgsave_picture_183796.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ Fort Firewall 3.9.12 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183799.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183799.jpgsave_picture_183799.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ New Masters Academy, Steve Huston | Художественная анатоми�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_183800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183800.jpgsave_picture_183800.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ magnet:?xt=urn:btih:DACED13699628EF87719F4F65A93F3D0A0134B91
 >>История
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183803.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183803.jpgsave_picture_183803.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ magnet:?xt=urn:btih:EB275EF0FDC214D471511F73EEC87CBC14C79E56
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_183804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183804.jpgsave_picture_183804.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ magnet:?xt=urn:btih:876D025C9AED17137AFFBF3F6DA2A50D5324688F
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_183806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183806.jpgsave_picture_183806.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ AnyBurn 5.9 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183808.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183808.jpgsave_picture_183808.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ magnet:?xt=urn:btih:00A5D4A2C03FE23C588502BCD0C1EC80458734DF
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_183811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183811.jpgsave_picture_183811.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Martin Simson’s Destroyer of Death - Eternal Reign (2023) [FLAC|Lossless|WEB-D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183812.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183812.jpgsave_picture_183812.jpg" />
 </div>
 
 

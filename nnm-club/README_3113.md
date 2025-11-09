@@ -6,7 +6,7 @@ VA - Максимальный Отрыв (2012) [MP3|256 кб/с]<Pop. Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100481.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100481.jpgsave_picture_100481.jpg" />
 </div>
 
 
@@ -39,7 +39,7 @@ VA - Западный Еврохит Топ-Чарт (2012) [MP3|256 кб/с]<Po
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100483.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100483.jpgsave_picture_100483.jpg" />
 </div>
 
 
@@ -72,7 +72,7 @@ Alpha Kawu - Cryogenic time (2011) [MP3|320 кб/с]<Ambient / Easy listening / 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100485.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100485.jpgsave_picture_100485.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Before The Dawn - Rise Of The Phoenix (2012) [MP3|256 кб/с]<Melodic Death Met
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100490.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100490.jpgsave_picture_100490.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ magnet:?xt=urn:btih:582F7C1D171283879AB3554AE71F1E7E54A3D674
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100491.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100491.jpgsave_picture_100491.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ magnet:?xt=urn:btih:D124AA99347E7C399293416FD06C53A2F324B831
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100492.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100492.jpgsave_picture_100492.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Brendan Benson - What Kind Of World (2012) [MP3|320 кб/с]<Rock>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100493.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100493.jpgsave_picture_100493.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ magnet:?xt=urn:btih:009EA992CAA0B83C201FDFB0C46820C77CA0D982
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100494.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100494.jpgsave_picture_100494.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:633AA5D8BAE77DAAEAF681E325FB82E6DDF45E31
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100495.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100495.jpgsave_picture_100495.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ magnet:?xt=urn:btih:8E3C0BA23716F1C9289E3D211959E83F15A0B9B1
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100497.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100497.jpgsave_picture_100497.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ magnet:?xt=urn:btih:7AAA00A1F484367FCE4B5D0C7B9EB0B9B0B125C9
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100499.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100499.jpgsave_picture_100499.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ magnet:?xt=urn:btih:C64A9F79D8F91E5D42DC5613DE0AA1B085F5B299
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100500.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100500.jpgsave_picture_100500.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ magnet:?xt=urn:btih:DBC90FF10411BE118DD7453D51784C369B54D716
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100501.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100501.jpgsave_picture_100501.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ magnet:?xt=urn:btih:BAFB8C7A30DA1E864E6A3A031F65455D45891D1F
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100502.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100502.jpgsave_picture_100502.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ magnet:?xt=urn:btih:406EEE17D9888DE0E256AFC4BC527528991DC5B9
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100503.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100503.jpgsave_picture_100503.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ Phil Keaggy - Instrumental Anthology (1996 - 2008) [MP3|320 кб/с]<Instrumenta
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100504.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100504.jpgsave_picture_100504.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ magnet:?xt=urn:btih:68B37BBBA59558DB465053C2A9009AD1DAAFB456
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100505.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100505.jpgsave_picture_100505.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ VA - Клубные Новинки Vol.64 from AGR (2012) [MP3|320 кб/с]<Club
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100506.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100506.jpgsave_picture_100506.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ magnet:?xt=urn:btih:3D66211B7FEC963573CCFEEE451FFB6524E621B6
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100507.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100507.jpgsave_picture_100507.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ magnet:?xt=urn:btih:42CE714BE502B03CB33A73FA30E3B0CB8C5AF529
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100510.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100510.jpgsave_picture_100510.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ magnet:?xt=urn:btih:EAF6957DB845CA2B8030214E9C5185EF31502F24
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100511.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100511.jpgsave_picture_100511.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ VA - Club Charts (2012) [MP3|256 кб/с]<Dance, Club>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100513.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100513.jpgsave_picture_100513.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ VA - Клубные Новинки Vol.63 from AGR (2012) [MP3|320 кб/с]<Club
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100515.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100515.jpgsave_picture_100515.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ magnet:?xt=urn:btih:5EC1CF05B349F116C763D8A7AF22D5270998315E
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100517.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100517.jpgsave_picture_100517.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ magnet:?xt=urn:btih:320B1990F70671CA5DCF579EEA343684F3059A1D
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100521.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100521.jpgsave_picture_100521.jpg" />
 </div>
 
 
@@ -707,7 +707,7 @@ magnet:?xt=urn:btih:7B9BB69DAF355A2EEE965DFF80C05077AA4422B9
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100522.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100522.jpgsave_picture_100522.jpg" />
 </div>
 
 

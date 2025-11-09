@@ -6,7 +6,7 @@
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_230496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230496.jpgsave_picture_230496.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:A093C7806640E9EAC9BB7CCF9874F8A9844BC0E7
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230497.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230497.jpgsave_picture_230497.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:DC8781776B52A1D40CDA865D9DD194466A764B98
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_230498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230498.jpgsave_picture_230498.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:81F917BECCDC8F4B72C6EBE61279A6794BC20740
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230500.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230500.jpgsave_picture_230500.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Revo Uninstaller Free 2.4.5 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_230501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230501.jpgsave_picture_230501.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ MyFitnessPal: Счетчик калорий 23.13.0 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230502.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230502.jpgsave_picture_230502.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Greg Lake - The Anthology - A Musical Journey (2020) 2xCD [FLAC|Lossless|image +
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230503.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230503.jpgsave_picture_230503.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ Vivaldi 6.1.3035.44 include standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_230505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230505.jpgsave_picture_230505.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ PDF Reader Pro Edition 2.9.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230508.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230508.jpgsave_picture_230508.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ Clay LeBlanc - Salvation (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_230509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230509.jpgsave_picture_230509.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ Joanna Connor - Best Of Me (2023) [FLAC|Lossless|image + .cue] <Electric Blues, 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230510.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230510.jpgsave_picture_230510.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ AutoHideDesktopIcons 6.01 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_230511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230511.jpgsave_picture_230511.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ magnet:?xt=urn:btih:35DCD3919A513E0855424C899934FE08EB66DF17
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230512.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230512.jpgsave_picture_230512.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ VueScan Pro 9.8.12 (24.07.2023) RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230514.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230514.jpgsave_picture_230514.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Skype 8.100.0.203 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230516.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230516.jpgsave_picture_230516.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ magnet:?xt=urn:btih:619C1C7B6C4D9003833C99892668B3BECDE6DE48
 >>History Channel
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_230517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230517.jpgsave_picture_230517.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ magnet:?xt=urn:btih:10BE0C5440175546621CC93A4AFBE4AB7EF06B90
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230518.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230518.jpgsave_picture_230518.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ magnet:?xt=urn:btih:55B202938CDE16F8C74E0A3B38D4A38F13185A50
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230521.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230521.jpgsave_picture_230521.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Reg Organizer 9.20 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_230522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230522.jpgsave_picture_230522.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ CG Forge, Tyler Bay | Pyro II - Flames & Sparse Pyro (2020) WEB-DL [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230523.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230523.jpgsave_picture_230523.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Always on Edge 8.0.1 Mod by AppModz [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230524.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230524.jpgsave_picture_230524.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Waterfox Current G5.1.8 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_230526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230526.jpgsave_picture_230526.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ magnet:?xt=urn:btih:2D01F3927DB0760797E0E9CF8C5B2AD615C5DB45
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230527.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230527.jpgsave_picture_230527.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ magnet:?xt=urn:btih:A5EBA2C605D6A69C0192E3D656662D7FD8593881
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_230529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230529.jpgsave_picture_230529.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ magnet:?xt=urn:btih:97919B03CBC152F02C2A0B339F00C7C78AB945AD
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230530.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230530.jpgsave_picture_230530.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ Slime Rancher 2 (2025) [Ru/Multi] (1.0.3) Repack Necros
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230531.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230531.jpgsave_picture_230531.jpg" />
 </div>
 
 

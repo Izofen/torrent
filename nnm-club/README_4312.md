@@ -6,7 +6,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133928.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133928.jpgsave_picture_133928.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:F5FA43781052422643167DD9584302817B064590
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133929.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133929.jpgsave_picture_133929.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Fate - V (2006) Remastered, 2023, Frontiers Records [FLAC 24/44.1|Lossless|WEB-D
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133930.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133930.jpgsave_picture_133930.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ Automize13 Enterprise for Mac 13.07 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133931.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133931.jpgsave_picture_133931.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ Manjaro Linux 0.8.3 [x86-64] (Arch с несколькими рабочими с
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133933.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133933.jpgsave_picture_133933.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Manjaro Linux 0.8.3 [x86-64] (Arch с несколькими рабочими с
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133934.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133934.jpgsave_picture_133934.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:8678BFCFDEF45654403F18D4E0A6128A8DEC7FE5
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133935.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133935.jpgsave_picture_133935.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Dr. John - In The Right Place (1973) [FLAC 24/192|Lossless|WEB-DL|tracks] <New O
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133936.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133936.jpgsave_picture_133936.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:273AF63CBE0B01AAC5D492CB050903767CB4D158
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133937.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133937.jpgsave_picture_133937.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ Sacrifire - The Art of Decay (2023) [MP3|320 Kbps] <Gothic, Melodic, Doom Death 
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133938.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133938.jpgsave_picture_133938.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ Opeth - Deliverance & Damnation Remixed (2015) Compilation [FLAC|24/192|image + 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133939.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133939.jpgsave_picture_133939.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ magnet:?xt=urn:btih:0FF47024966D3DD594781D5F0B0D3FB616721E37
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133940.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133940.jpgsave_picture_133940.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ magnet:?xt=urn:btih:417D327C2C9A3F89DD80D85967507C69EA07E6A4
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133941.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133941.jpgsave_picture_133941.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ SILKYPIX Developer Studio Pro 11 v.11.0.13.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133942.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133942.jpgsave_picture_133942.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ magnet:?xt=urn:btih:0CC83C479998B05AB8275AFD408E5C8C10E8147C
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133943.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133943.jpgsave_picture_133943.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ magnet:?xt=urn:btih:A379465DDF5CA461CDF1EEEA9234B1FE5752A756
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133945.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133945.jpgsave_picture_133945.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ Moto Armonico - Wondering Land (2023) [FLAC|Lossless|WEB-DL|tracks] <Power Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133946.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133946.jpgsave_picture_133946.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ magnet:?xt=urn:btih:40552D85A7B1B593BF4F9D327326D25811377A64
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133948.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133948.jpgsave_picture_133948.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ SILKYPIX Developer Studio Pro 11 for FUJIFILM 11.4.13.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133949.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133949.jpgsave_picture_133949.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ Nitro PDF Professional 8.1.1.3 Final [Multi/Eng]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133950.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133950.jpgsave_picture_133950.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ Lucia Altieri - Lucia Altieri (1974) [FLAC 2.0|24/192|image + .cue|Vinyl-Rip] <P
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133951.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133951.jpgsave_picture_133951.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Weeping Silence - Isles of Lore (2023) [FLAC|Lossless|WEB-DL|tracks] <Gothic, Do
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133953.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133953.jpgsave_picture_133953.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ iCompta 6 v.6.1.10 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133955.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133955.jpgsave_picture_133955.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ magnet:?xt=urn:btih:D959B9615B1F02C48A4252A6527106CE7CC4D06E
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133957.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133957.jpgsave_picture_133957.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ magnet:?xt=urn:btih:34C46E06FE237C30743853EA86538D3E27761BE1
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133959.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133959.jpgsave_picture_133959.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ magnet:?xt=urn:btih:3598BFA10C6310A4DF417163CE778E66425285A0
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133962.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133962.jpgsave_picture_133962.jpg" />
 </div>
 
 

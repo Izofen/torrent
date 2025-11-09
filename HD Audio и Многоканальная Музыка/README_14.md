@@ -6,7 +6,7 @@ Giorgio Moroder - Extended Versions 2025 (2025) [FLAC 24/44.1|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10457.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10457.jpgsave_picture_10457.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Ozzy Osbourne - Mama I'm Coming Home (1991) (EP) [WavPack|32/192|image + .cue|Vi
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10463.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10463.jpgsave_picture_10463.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Black Sabbath - The Eternal Idol (2025 Remaster) (1987) [FLAC 24/44.1|Lossless|W
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10492.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10492.jpgsave_picture_10492.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Alice Cooper - The Revenge of Alice Cooper (2025) [FLAC 24/48|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10591.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10591.jpgsave_picture_10591.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Dave Stewart - Dave Does Dylan (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop r
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10762.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10762.jpgsave_picture_10762.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ italo Brutalo - Second Horizon (2025) Radio Version [FLAC 24/48|Lossless|WEB-DL|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10772.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10772.jpgsave_picture_10772.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Jean Mare - A Sunset Chill Lounge Voyage (2025) [FLAC 24/44.1|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11075.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11075.jpgsave_picture_11075.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Five Finger Death Punch - Best Off (Volume 1) (2025) [FLAC 24/48|Lossless|WEB-DL
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11173.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11173.jpgsave_picture_11173.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Joe Bonamassa - Breakthrough (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11175.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11175.jpgsave_picture_11175.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Styx - Circling From Above (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Progressi
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11191.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11191.jpgsave_picture_11191.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Big Boy Bloater - Dirty Disco Blues (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11275.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11275.jpgsave_picture_11275.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Art Nation - Re-Revolution (Deluxe Edition) (2025) [FLAC 24/48|Lossless|WEB-DL|t
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11277.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11277.jpgsave_picture_11277.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Don Felder - The Vault 1975-2025 Fifty Years Of Music (2025) [FLAC 24/96|Lossles
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11278.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11278.jpgsave_picture_11278.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Nathan James - Hollywood Mortician (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11279.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11279.jpgsave_picture_11279.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Nad Sylvan - Monumentata (2025) Bonus Track Edition [FLAC 24/96|Lossless|WEB-DL|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11281.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11281.jpgsave_picture_11281.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ David Starr - Must Be Blue (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11282.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11282.jpgsave_picture_11282.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Tokimonsta - Eternal Reverie Remixes (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11283.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11283.jpgsave_picture_11283.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Devilskin - Re-Evolution (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Heavy Metal
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11284.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11284.jpgsave_picture_11284.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Blind Alice - Nothing Changes (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard R
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11285.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11285.jpgsave_picture_11285.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ BigBlack Rhino - Supralove (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11287.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11287.jpgsave_picture_11287.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Eight In The Room - Eight In The Room (2025) [FLAC 24/48|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11288.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11288.jpgsave_picture_11288.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Black Logos - The Devil's Kiss (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Roc
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11289.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11289.jpgsave_picture_11289.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Big Dave & The Dutchmen - Big Dave & The Dutchmen (2025) [FLAC 24/96|Lossless|WE
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11290.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11290.jpgsave_picture_11290.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Chantel McGregor - The Healing (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Roc
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11291.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11291.jpgsave_picture_11291.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Deraps - Viva Rock N' Roll (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Hard Rock
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11292.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11292.jpgsave_picture_11292.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Demolition Hammer - Epidemic of Violence (1992) Released, 2023, Century Media [F
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11293.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11293.jpgsave_picture_11293.jpg" />
 </div>
 
 

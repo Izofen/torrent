@@ -6,7 +6,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49237.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49237.jpgsave_picture_49237.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:96C360F1BFFD02FC04D6233DFD738FED26D9AA15
 >>Во все тяжкие / Breaking Bad; Лучше звоните Солу / Better Call Saul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49238.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49238.jpgsave_picture_49238.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:B8549CB23E62ACD7DC68199653B2B8D892FB4A31
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49239.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49239.jpgsave_picture_49239.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:F75D30D6EFE9A41A8205F42BA943F775EA93207C
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49240.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49240.jpgsave_picture_49240.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:F75D30D6EFE9A41A8205F42BA943F775EA93207C
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49241.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49241.jpgsave_picture_49241.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ magnet:?xt=urn:btih:8DFF06259CB43DF6C1C5CE0EDE9F9EBB80E03C33
 >>Сериалы DC Comics
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49242.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49242.jpgsave_picture_49242.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ magnet:?xt=urn:btih:4B0132797906D63F96146E9F5AE5239673B06F06
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49243.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49243.jpgsave_picture_49243.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ magnet:?xt=urn:btih:C224A7863902BC5134A34C02F1A546E0483EC0D8
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49244.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49244.jpgsave_picture_49244.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ magnet:?xt=urn:btih:901809A2C684FDA0482D1DF473043CB3937FC6C9
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49245.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49245.jpgsave_picture_49245.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ Janis Joplin / The Kozmic Blues (2007) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49246.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49246.jpgsave_picture_49246.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ magnet:?xt=urn:btih:F7AC5BE149D04BF34E101A6E5F3203ADBF8C7A6E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49247.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49247.jpgsave_picture_49247.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ magnet:?xt=urn:btih:D5E987C9ED6819B84E57252E609A3623EB6FAD97
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49248.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49248.jpgsave_picture_49248.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ magnet:?xt=urn:btih:167D4468AABB0890E1FF71A104746A300F7AB888
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49249.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49249.jpgsave_picture_49249.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ magnet:?xt=urn:btih:DD9D271D5FAE417808D9AF25775B398BA6E1C057
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49250.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49250.jpgsave_picture_49250.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ magnet:?xt=urn:btih:DD9D271D5FAE417808D9AF25775B398BA6E1C057
 >>Нормативная документация
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49251.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49251.jpgsave_picture_49251.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Wireshark 4.2.6 + Portable (x64) [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49252.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49252.jpgsave_picture_49252.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ Crow Country (2024) [Multi] (20240525) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49253.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49253.jpgsave_picture_49253.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ magnet:?xt=urn:btih:928290767C53543F650D5A1C306A6C0747D767C3
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49254.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49254.jpgsave_picture_49254.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ magnet:?xt=urn:btih:D06984D4C9A9F786481EB05120926F41F9854087
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49255.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49255.jpgsave_picture_49255.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ magnet:?xt=urn:btih:513CF1B70D25A047A954600685694C64A3CFC549
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49256.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49256.jpgsave_picture_49256.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ magnet:?xt=urn:btih:E1F4D5F0917845B088121FF6B45C58B3CAAF4B96
 >>Звездные войны / Star Wars (сериалы по франшизе)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49257.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49257.jpgsave_picture_49257.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Microsoft Windows 10 [10.0.19045.4651], Version 22H2 (Updated July 2024) - Ор�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49258.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49258.jpgsave_picture_49258.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ magnet:?xt=urn:btih:93BB52C414A67FF92FC62D08E7D06CB7F0972F1E
 >>Звездные войны / Star Wars (сериалы по франшизе)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49259.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49259.jpgsave_picture_49259.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ MInstAll v.21.07.2024 By Andreyonohov (ISO) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49260.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49260.jpgsave_picture_49260.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ magnet:?xt=urn:btih:9A7D26761A6DCD3674A7834A7AC79EEDE5953C5B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49261.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49261.jpgsave_picture_49261.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ magnet:?xt=urn:btih:E6F580359CA2FEB05D7C1BD106C4C8B7FD1034AB
 >>Доктор Хаус / House M.D.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49262.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49262.jpgsave_picture_49262.jpg" />
 </div>
 
 

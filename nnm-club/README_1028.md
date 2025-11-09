@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27078.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27078.jpgsave_picture_27078.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Lost Records Bloom & Rage (2025) [Ru/Multi] (build 17370633) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27079.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27079.jpgsave_picture_27079.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:28DBBEE1CDC28CE65A67CCCE6723ECEEBBC7A595
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27080.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27080.jpgsave_picture_27080.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ TechSmith Camtasia  25.0.0 Build 7062 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27081.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27081.jpgsave_picture_27081.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:3B61538904EE7431944E52212EFA1F2F9F2EDE73
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27082.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27082.jpgsave_picture_27082.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:39BCFBA0223795C938ECB12C1EE8BC5CD185C014
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27083.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27083.jpgsave_picture_27083.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:38B70EBFB396EB54DDFC22B6E3E6C00FB91B5EBF
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27084.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27084.jpgsave_picture_27084.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ Ant Download Manager Pro 2.15.0 Build 89132 RePack (& Portable) by elchupacabra 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27085.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27085.jpgsave_picture_27085.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ Google Chrome 133.0.6943.127 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27086.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27086.jpgsave_picture_27086.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ magnet:?xt=urn:btih:013D407E2BE32B7BA537B7BD9FC539E27C72AE28
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27087.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27087.jpgsave_picture_27087.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:3025B17553AD6AA64757BE5EE6A527AE19E6A241
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27088.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27088.jpgsave_picture_27088.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Dragon Quest X Offline v1.0.0 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27089.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27089.jpgsave_picture_27089.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Ranch Simulator - Build, Farm, Hunt (2023) [Ru/Multi] (1.152s/dlc) Repack FitGir
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27090.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27090.jpgsave_picture_27090.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ magnet:?xt=urn:btih:938C1104DBDFF51DBB05D7C7C0AFEBDE95B02CDD
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27091.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27091.jpgsave_picture_27091.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ magnet:?xt=urn:btih:557A0F540EC4CE6027E642E9802F7CAD5A99840C
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27092.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27092.jpgsave_picture_27092.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ magnet:?xt=urn:btih:22AA79A794118AEBF3D905D5F1DA1EDE3302DA4A
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27093.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27093.jpgsave_picture_27093.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ magnet:?xt=urn:btih:8D18F4AF8AF471CD96A5592DD7FC7C1E218818E7
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27094.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27094.jpgsave_picture_27094.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Dungeons of Dreadrock 2 v1.0.4 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27095.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27095.jpgsave_picture_27095.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ StartAllBack 3.9.4 build 5250 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27096.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27096.jpgsave_picture_27096.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ magnet:?xt=urn:btih:3B6B9FA1188426D965E4BD024A2BDB9ECF5E3E5A
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27097.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27097.jpgsave_picture_27097.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ Axel Rudi Pell - The Ballads VI (2023) [FLAC|Lossless|tracks + .cue] <Hard Rock,
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27098.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27098.jpgsave_picture_27098.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ Dynazty - Studio Albums (9 releases) (2009-2025) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27099.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27099.jpgsave_picture_27099.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ KiCad 8.0.9 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27100.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27100.jpgsave_picture_27100.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ magnet:?xt=urn:btih:DDBD18FC44FB545D3DD676086AA47C4950A32A36
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27101.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27101.jpgsave_picture_27101.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ magnet:?xt=urn:btih:D83B65899841984AB96B1E3E68A87FFD70BCB609
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27102.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27102.jpgsave_picture_27102.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ Deworker Pro, Дмитрий Елисеев | Идеи разделения на
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27103.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27103.jpgsave_picture_27103.jpg" />
 </div>
 
 

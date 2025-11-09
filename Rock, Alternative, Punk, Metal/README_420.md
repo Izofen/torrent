@@ -6,7 +6,7 @@ Acer Negundo - Pryanichnye dozhdi (2023) [MP3|320 Kbps] <Psychedellic Rock, Expe
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235734.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235734.jpgsave_picture_235734.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Maktkamp - Caps Lock Woke Rock (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235738.jpgsave_picture_235738.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Electric Crown - Prophecy of Doom (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Me
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235744.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235744.jpgsave_picture_235744.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Pretty School - 2 Albums (2023) [MP3|320 Kbps] <Punk Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235746.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235746.jpgsave_picture_235746.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Jared Curtis - COLLIDE (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235747.jpgsave_picture_235747.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Black Spiders - Black Spiders (2021) [MP3|320 Kbps] <Hard Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235751.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235751.jpgsave_picture_235751.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ French, Frith, Kaiser, Thompson - Live, Love, Larf & Loaf  (1987) [FLAC|Lossless
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235752.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235752.jpgsave_picture_235752.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Haissem - Philosofiend (2021) [MP3|320 Kbps] <Melodic Black, Dark Metal>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235760.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235760.jpgsave_picture_235760.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Numeron - Road to Valhalla (2023) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Bla
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235768.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235768.jpgsave_picture_235768.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Hillward - Alternate Timelines (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235769.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235769.jpgsave_picture_235769.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Woe Unto Me - Spiral-Shaped Hopewreck (2021) [MP3|320 Kbps] <Melodic Metal, Doom
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235784.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235784.jpgsave_picture_235784.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Sunborn - Imperishable (2021) [MP3|320 Kbps] <Melodic Death, Groove Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235796.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235796.jpgsave_picture_235796.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ KAUAN - Lumikuuro Live (2022) [FLAC|Lossless|Web-DL|tracks] <Dark Folk, Atmosphe
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235799.jpgsave_picture_235799.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Immortal - War Against All (2023) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235800.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235800.jpgsave_picture_235800.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Eric Baule - Reflecting Circles (2021) [MP3|320 Kbps] <Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235803.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235803.jpgsave_picture_235803.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Tritop - Rise of Kassandra (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235805.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235805.jpgsave_picture_235805.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Code Orange - What is Really Underneath (2023) [FLAC|Lossless|WEB-DL|tracks] <Ha
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235810.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235810.jpgsave_picture_235810.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Draken - Draken (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235815.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235815.jpgsave_picture_235815.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Psilocybe Larvae - Agony (2003) [FLAC|Lossless|image + .cue] <Dark Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235816.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235816.jpgsave_picture_235816.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Roxanne - Stereo Typical (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235818.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235818.jpgsave_picture_235818.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Tokyo - Seven (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock, New Wave>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235819.jpgsave_picture_235819.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Otu - Moonic Of A Down (2022) [MP3|320 kbps] <Sludge, Drone, Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235827.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235827.jpgsave_picture_235827.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Deathspell Omega - The Synarchy of Molten Bones (2016) [FLAC|Lossless|image + .c
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235832.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235832.jpgsave_picture_235832.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Hypno5e - Sheol (2023) [FLAC 2.0|44,1/24|WEB-DL|tracks] <Avantgarde-Metal, Progr
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235833.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235833.jpgsave_picture_235833.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Veiled Alpha - Beyond the Mask (2023) EP [FLAC|Lossless|WEB-DL|tracks] <Alternat
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235840.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235840.jpgsave_picture_235840.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Psilocybe Larvae - Non-Existence (2008) [FLAC|Lossless|image + .cue] <Dark Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235843.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235843.jpgsave_picture_235843.jpg" />
 </div>
 
 

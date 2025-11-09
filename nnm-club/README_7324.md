@@ -6,7 +6,7 @@
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250461.jpgsave_picture_250461.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:F59923DBF8057F904AF2D4AFCC8817C7B71FACEF
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250462.jpgsave_picture_250462.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:78E6E3B8CACD8BB2F42E16A8DE6813CC4B9AD7BA
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250463.jpgsave_picture_250463.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:BD061AA0A2BD120142BDA4D5B189FEC998545B27
 >>Отечественные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250464.jpgsave_picture_250464.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Vellum (2025) [En] (1.2.0) Repack Necros
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250465.jpgsave_picture_250465.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Microtopia (2025) [Ru/Multi] (1.1.2f2/dlc) Repack Let'sРlay [Supporter Edition]
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250466.jpgsave_picture_250466.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Onirism (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250467.jpgsave_picture_250467.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Various - We Love Bobby O (2019) [WavPack|Lossless|tracks + .cue] <Electronic>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250468.jpgsave_picture_250468.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:9E4148D74064A3D81B0B8B068AF25B6AC3626040
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250469.jpgsave_picture_250469.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:12C3B1ACC3DA2FD5EEA86050A545E76117C6866E
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250470.jpgsave_picture_250470.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Lily Allen - West End Girl (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Pop-Rock,
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250471.jpgsave_picture_250471.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Dan Da Dan | Дандадан [ТВ-1] [2024, TV, 12 из 12] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250472.jpgsave_picture_250472.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Karing 1.2.5.882 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250473.jpgsave_picture_250473.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Death Roads: Tournament (2023) [Ru/Multi] (1.0.9.127) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250474.jpgsave_picture_250474.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Rogue Hex (2025) [Ru/Multi] (1.1.0/dlc) Repack Let'sРlay [Supporter Edition]
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250475.jpgsave_picture_250475.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ magnet:?xt=urn:btih:64B6242155D9FADB7EEAFE20FC02643FD962C697
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250476.jpgsave_picture_250476.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ magnet:?xt=urn:btih:CF67925820CDF1BB7A6870C6130F7F2EE35D46B3
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250477.jpgsave_picture_250477.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ magnet:?xt=urn:btih:DE088EE7AF72271363F0B5CD112199CC4E3EE5C3
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250478.jpgsave_picture_250478.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ magnet:?xt=urn:btih:024F5A523980B6AF78AFB1BC182E62F75CB1D527
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250479.jpgsave_picture_250479.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ magnet:?xt=urn:btih:1234ACAFC92B9C9944C32BAAD9FB84D431667385
 >>Элементы (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250480.jpgsave_picture_250480.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ GODBREAKERS (2025) [Ru/Multi] (1.0/dlc) Repack FitGirl [Juice Edition]
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250481.jpgsave_picture_250481.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ Gunfire Reborn (2021) [Ru/Multi] (20506329/dlc) Repack FitGirl [Bundles Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250482.jpgsave_picture_250482.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ magnet:?xt=urn:btih:94D7626192B327C0950007F0CE32BC8ACA3D4B84
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250483.jpgsave_picture_250483.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ magnet:?xt=urn:btih:47314108E5B4225B26D8E985D18FDB59B3BB5488
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250484.jpgsave_picture_250484.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Vanced Tube v5.5.80.136 Mod by TRUMods [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250485.jpgsave_picture_250485.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ magnet:?xt=urn:btih:16DD6C276D08361012873F66C475C754D6319AE1
 >>Титры (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250486.jpgsave_picture_250486.jpg" />
 </div>
 
 

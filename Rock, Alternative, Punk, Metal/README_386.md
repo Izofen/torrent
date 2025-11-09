@@ -6,7 +6,7 @@
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231176.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231176.jpgsave_picture_231176.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Wanted - Late Attraction (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231177.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231177.jpgsave_picture_231177.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Deathsiege - Throne of Heresy (2022) [FLAC|Lossless|image + .cue] <Black, Death 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231180.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231180.jpgsave_picture_231180.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:5E20490ADD58A112E892479393D21F4C3B0041C2
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231185.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231185.jpgsave_picture_231185.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Desolator - Resurgency & Desolator - Dark Revival - Mass Human Pyre (2011) Split
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231187.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231187.jpgsave_picture_231187.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Mister Kill - Mister Kill (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231190.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231190.jpgsave_picture_231190.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ James and the Cold Gun - James and the Cold Gun (2023) [MP3|320 Kbps] <Grunge>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231195.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231195.jpgsave_picture_231195.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Zorormr - Corpus Hermeticum (2015) [FLAC|Lossless|image + .cue] <Melodic Black M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231199.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231199.jpgsave_picture_231199.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Arouse the Darkness - Cemetery Of Buried Hopes (2022) [FLAC|Lossless|WEB-DL|trac
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231211.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231211.jpgsave_picture_231211.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Howl at the Sky - In Line for the End Times (2023) [FLAC|Lossless|WEB-DL|tracks]
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231212.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231212.jpgsave_picture_231212.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Evil Hunter - Lockdown (2021) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231213.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231213.jpgsave_picture_231213.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Archeonic - Digital Pain (2021) [FLAC|Lossless|image + .cue] <Technical Death Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231216.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231216.jpgsave_picture_231216.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Amon - Shemhamforash (1995) [FLAC|Lossless|tracks] <Death, Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231221.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231221.jpgsave_picture_231221.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Ealee - Лабиринт (2023) [MP3|320 Kbps] <Alternative Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231229.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231229.jpgsave_picture_231229.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Anubis Gate - Interference (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive, Po
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231230.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231230.jpgsave_picture_231230.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Nervosa - Perpetual Chaos (2021) Japan Edition [FLAC|Lossless|image + .cue] <Thr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231232.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231232.jpgsave_picture_231232.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Anubis Gate - Covered in Colours (2020) [FLAC|Lossless|WEB-DL|tracks] <Progressi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231236.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231236.jpgsave_picture_231236.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Pont Of Reindeer - Мир И Порядок (2023) [MP3|320 Kbps] <Thrash Metal>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231240.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231240.jpgsave_picture_231240.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Zorormr - IHS (2013) [FLAC|Lossless|image + .cue] <Melodic Black Metal, Dark Amb
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231241.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231241.jpgsave_picture_231241.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ King’s X - In The New Age The Atlantic Recordings 1988-1995 (2023) [MP3|320 Kb
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231262.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231262.jpgsave_picture_231262.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Exelerate - Exelerate (2023) [MP3|320 Kbps] <Power, Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231264.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231264.jpgsave_picture_231264.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Carnal Agony - Back from the Grave (2020) [FLAC|Lossless|image + .cue] <Power, T
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231270.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231270.jpgsave_picture_231270.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Bang - Another Me (2023) [MP3|320 kbps] <Psychedelic Hard Rock, Heavy Metal>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231277.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231277.jpgsave_picture_231277.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Exelerate - EO (2014) EP [MP3|320 Kbps] <Power, Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231278.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231278.jpgsave_picture_231278.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ The Contortionist - Retrospective Live From Atlanta (2023) 3CD Box Set [MP3|320 
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231283.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231283.jpgsave_picture_231283.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ False Memories - Live Until the Twiligh (2022) [FLAC|Lossless|WEB-DL|tracks] <Go
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231284.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231284.jpgsave_picture_231284.jpg" />
 </div>
 
 

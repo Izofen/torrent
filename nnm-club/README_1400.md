@@ -6,7 +6,7 @@ Grand Funk Railroad - Grand Funk (1969) Reissue, 2002, Toshiba [FLAC|Lossless|tr
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36755.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36755.jpgsave_picture_36755.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:0E32232CFA7DC1B82F5CBC538010E01B6BBA145E
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36756.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36756.jpgsave_picture_36756.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ magnet:?xt=urn:btih:7BD60C5943B35BB0CA5A5655B5A0610F5A069F8D
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36757.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36757.jpgsave_picture_36757.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ V.A. - Bossa Nova & Latin Vibes Italian Songs Hits (Bossanova Covers of Popular 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36758.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36758.jpgsave_picture_36758.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ VA - The Orient Collective: Sanctuary (2024) [FLAC|Lossless|WEB-DL|tracks] <Worl
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36759.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36759.jpgsave_picture_36759.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ magnet:?xt=urn:btih:38426D882EA44B77325FE7CB3786E90C44E328A3
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36760.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36760.jpgsave_picture_36760.jpg" />
 </div>
 
 
@@ -161,7 +161,7 @@ magnet:?xt=urn:btih:254DCAB851BAEB22106A46AF5C70E3092DDB453A
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36761.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36761.jpgsave_picture_36761.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ magnet:?xt=urn:btih:397BA1FE63B83A3F6300E9D565A9F64376745793
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36762.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36762.jpgsave_picture_36762.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ magnet:?xt=urn:btih:82539FB43CC84F30EF62B507A0ACF86F97C96AF9
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36763.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36763.jpgsave_picture_36763.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ Fritz Kalkbrenner - Third Place (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Te
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36764.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36764.jpgsave_picture_36764.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ magnet:?xt=urn:btih:80F6C6451C920B594D55C0684FDE36E8816A759E
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36765.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36765.jpgsave_picture_36765.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ VA - The Most Relaxing Jazz Piano Music in the Universe (2005) 2CD [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36766.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36766.jpgsave_picture_36766.jpg" />
 </div>
 
 
@@ -314,7 +314,7 @@ Garage Bluesband - Seven Shades of the Blues (2024) [FLAC 24/44.1|Lossless|WEB-D
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36767.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36767.jpgsave_picture_36767.jpg" />
 </div>
 
 
@@ -341,7 +341,7 @@ magnet:?xt=urn:btih:2843CC6B23DBF8BE67AAA16F0C993DA770D3CBE9
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36768.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36768.jpgsave_picture_36768.jpg" />
 </div>
 
 
@@ -365,7 +365,7 @@ magnet:?xt=urn:btih:2843CC6B23DBF8BE67AAA16F0C993DA770D3CBE9
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36769.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36769.jpgsave_picture_36769.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ magnet:?xt=urn:btih:2D055018DDA8FE96CB5D00C23EC6489E974C4AE9
 >>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36770.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36770.jpgsave_picture_36770.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ Wise Registry Cleaner Pro 11.1.8.723 RePack (& portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36771.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36771.jpgsave_picture_36771.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ INKredible PRO v3.0.6 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36772.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36772.jpgsave_picture_36772.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ magnet:?xt=urn:btih:B50C94A01C687585F6CD81771A14F7A9974418E2
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36773.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36773.jpgsave_picture_36773.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ SHINE – Journey Of Light 1.90.13 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36774.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36774.jpgsave_picture_36774.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ magnet:?xt=urn:btih:470C749D03FCBE604168349282DF5E80D5DB66B9
 >>Other
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36775.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36775.jpgsave_picture_36775.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ PDF24 Creator 11.21 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36776.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36776.jpgsave_picture_36776.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Fraction Calculator by Mathlab / Калькулятор Дробей v2024.07.54
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36777.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36777.jpgsave_picture_36777.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ magnet:?xt=urn:btih:034FFB964070A36641C5758D22586BBE4CB87725
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36778.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36778.jpgsave_picture_36778.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Blender 4.2.4 LTS + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36779.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36779.jpgsave_picture_36779.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ magnet:?xt=urn:btih:3653B1DF432455A9E0A0E0A7BB88E70392641AE1
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36780.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36780.jpgsave_picture_36780.jpg" />
 </div>
 
 

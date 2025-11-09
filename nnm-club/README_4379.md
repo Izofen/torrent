@@ -6,7 +6,7 @@ Bye Sweet Carole (2025) [Ru/Multi] (1.0.2/dlc) Repack Other s
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136895.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136895.jpgsave_picture_136895.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:D5C1A3485ACABE70AFCE0319118E99D97547F8FD
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136896.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136896.jpgsave_picture_136896.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Internet Download Manager 6.42 Build 51 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136897.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136897.jpgsave_picture_136897.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:E67DCC9031494A9200A7428314BD129119E910BD
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136898.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136898.jpgsave_picture_136898.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:748195432819782F67873E29A4188C8D793C48F9
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136899.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136899.jpgsave_picture_136899.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:3669E16F8B9026D126A75F3ED0FCB0A561F5A6BC
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136900.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136900.jpgsave_picture_136900.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:2E165C0DE2134E716A57DE9B0A68D71D68DF205E
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136901.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136901.jpgsave_picture_136901.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:20EA24D9DEF7AF5A0F6D9620B2F82F22786E96B7
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136902.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136902.jpgsave_picture_136902.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:C9C30E0F3168F7EA087BA598DB61542A6DA3086F
 >>Приключенческая проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136903.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136903.jpgsave_picture_136903.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Mr Salama - Favorites Collection (2025) [MP3|320 Kbps] <Electronic, Vocal>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136904.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136904.jpgsave_picture_136904.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:1A5FA82E36EF21425FE1F0E14124C2AD1AC2846E
 >>Приключенческая проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136905.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136905.jpgsave_picture_136905.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:9A5A2DBF2DCFC865613651BE41DD1A542DDA6F0D
 >>Приключенческая проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136906.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136906.jpgsave_picture_136906.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Windows 10 Pro/Ent LTSC by OneSmiLe 22H2 build 19045.6456 [Ru]
 >>Сборки Windows 10
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136907.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136907.jpgsave_picture_136907.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ magnet:?xt=urn:btih:B73F214991544FA99DCDE55A6FB87878D044239A
 >>Приключенческая проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136908.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136908.jpgsave_picture_136908.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ magnet:?xt=urn:btih:5B1B49ABC1639284A61340700A8871C6A97AF3CF
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136909.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136909.jpgsave_picture_136909.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ magnet:?xt=urn:btih:6FBB7CE03F73F3B7B13220E2B32529741DAC25C4
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136910.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136910.jpgsave_picture_136910.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ magnet:?xt=urn:btih:53740B0C0570714E3B66AE223F7ABB89B3263C20
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136911.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136911.jpgsave_picture_136911.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ magnet:?xt=urn:btih:542603CC2E25532EE371A37560773975B12D222D
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136912.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136912.jpgsave_picture_136912.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ magnet:?xt=urn:btih:813D7ED78B81650E3CCA62B43D9E260F806A037C
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136913.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136913.jpgsave_picture_136913.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ magnet:?xt=urn:btih:5329A5AEE20E38EB995231002E25CF538FF2885D
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136915.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136915.jpgsave_picture_136915.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ VMware Workstation Pro 25H2 25.0.0.24995812 RePack by KpoJIuK [Ru/En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136916.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136916.jpgsave_picture_136916.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ Allavsoft Video Downloader Converter 3.28.4.9413 RePack (& Portable) by elchupac
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136917.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136917.jpgsave_picture_136917.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Windows Manager 2.2.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136918.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136918.jpgsave_picture_136918.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Nexus - The Jupiter Incident (2004) [Ru/Multi] (1.03) Repack seleZen
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136919.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136919.jpgsave_picture_136919.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Internet Download Manager 6.42 Build 51 RePack by KpoJIuK [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136920.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136920.jpgsave_picture_136920.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ Total War: THREE KINGDOMS (2019) [Ru/En] (1.7.1/dlc) Repack Wanterlude
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136921.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136921.jpgsave_picture_136921.jpg" />
 </div>
 
 

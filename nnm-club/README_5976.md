@@ -6,7 +6,7 @@ Microsoft Visual Studio 2026 Enterprise Insiders 18.0.0 [11116.177] (Offline Cac
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188094.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188094.jpgsave_picture_188094.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:78AD6183E13C39EDA8178D6C617222CACAB90C56
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188095.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188095.jpgsave_picture_188095.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Sora no Aosa o Shiru Hito yo | Her Blue Sky | Она видела небо [2019
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188096.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188096.jpgsave_picture_188096.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ VirtualBox 7.2.4 Build 170995 + Extension Pack [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188097.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188097.jpgsave_picture_188097.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ VA - Deep House Female Vocal 2 (2025) [MP3|320 Kbps] <House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188098.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188098.jpgsave_picture_188098.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:1D3B354A872BED984B66FE17417A4FC0C3344292
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188099.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188099.jpgsave_picture_188099.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:562AFEAE5720D8F9BD33886E54916742ECCAADB3
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188100.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188100.jpgsave_picture_188100.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Vince Neil (Motley Crue) - Studio Albums (3 releases) (1993-2010) hand made [res
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188101.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188101.jpgsave_picture_188101.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ Shade Empire - Sunholy (2023) 2 x CD [FLAC|Lossless|WEB-DL|tracks] <Symphonic In
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188102.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188102.jpgsave_picture_188102.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ magnet:?xt=urn:btih:A46B5163D0EE31D8D46903D4737D09959CD72974
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188103.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188103.jpgsave_picture_188103.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ Kelley Johnson - Make Someone Happy (1998) Pipe Dream [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188104.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188104.jpgsave_picture_188104.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ Painkiller (2025) [Ru/Multi] (224001/dlc) Repack Let'sРlay [Deluxe]
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188105.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188105.jpgsave_picture_188105.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ magnet:?xt=urn:btih:879686469AE4EE6083769EEDB90FF4A28E312617
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188106.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188106.jpgsave_picture_188106.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Aephanemer - Memento Mori (2016) [FLAC|Lossless|image + .cue] <Symphonic Melodic
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188107.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188107.jpgsave_picture_188107.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ S.O.R.M - Under My Skin (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188108.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188108.jpgsave_picture_188108.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Jakob Bro Trio - Who Said Gay Paree? (2008) Loveland Records [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188109.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188109.jpgsave_picture_188109.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Gotland - Rise (2023) [FLAC|Lossless|WEB-DL|tracks] <Black, Folk Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188110.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188110.jpgsave_picture_188110.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ KMS Tools Portable by Ratiborus 15.09.2023 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188111.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188111.jpgsave_picture_188111.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ magnet:?xt=urn:btih:F5440C4722E90018495F1869D1632B05D8B8FDCE
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188113.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188113.jpgsave_picture_188113.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ Adobe Photoshop 2023 24.7.1.741 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188117.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188117.jpgsave_picture_188117.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ magnet:?xt=urn:btih:0FB64648CEA9C952DAD3C7427E5FD7A7C1CD696C
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188118.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188118.jpgsave_picture_188118.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Dune: Spice Wars (2023) [Ru/Multi] (1.0.0.28038) Scene Rune
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188119.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188119.jpgsave_picture_188119.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ magnet:?xt=urn:btih:9ABC01549593C197DC35B61177DE5713C7CE6098
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188120.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188120.jpgsave_picture_188120.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ magnet:?xt=urn:btih:347389380B14886E0E8D1190186774877A5F7FAA
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188121.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188121.jpgsave_picture_188121.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ magnet:?xt=urn:btih:6C277B9A73387ED6A32D9B05D6996DCA496D0CB5
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188122.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188122.jpgsave_picture_188122.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ magnet:?xt=urn:btih:6C7161A06C56CA469EAF2F74C9E6DA8743FE3131
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188123.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188123.jpgsave_picture_188123.jpg" />
 </div>
 
 

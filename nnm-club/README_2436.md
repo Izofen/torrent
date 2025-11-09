@@ -6,7 +6,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63703.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63703.jpgsave_picture_63703.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:9C6F6F53A1B844D9ABB75545719367AE218AE371
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63704.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63704.jpgsave_picture_63704.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Alice Cooper - Billion Dollar Babies (50th Anniversary Deluxe Edition) (1973) Re
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63705.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63705.jpgsave_picture_63705.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:B966C845599D10859B85324EBE1AECA25CF3E566
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63706.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63706.jpgsave_picture_63706.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Rainbow - Down To Earth (1979) Reissue, 2011, 2CD Japan Deluxe Edition, SHM-CD
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63707.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63707.jpgsave_picture_63707.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ magnet:?xt=urn:btih:761F110F4B4B16C4EE0452277F9298634650F2C5
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63708.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63708.jpgsave_picture_63708.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ magnet:?xt=urn:btih:5321FDB8921FFEBAA0830E2C11B8B7D27E056064
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63709.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63709.jpgsave_picture_63709.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ magnet:?xt=urn:btih:75B33DB7E645E913A95A2DF4A27BE61A692309DA
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63710.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63710.jpgsave_picture_63710.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ Billy Joel - Piano Man. 50th Anniversary Deluxe Edition (1973) Japanese Edition,
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63711.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63711.jpgsave_picture_63711.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ magnet:?xt=urn:btih:E18BEECC1E8B590D1F4414A385E1CA19879D391B
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63712.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63712.jpgsave_picture_63712.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ Supermium 122.0.6261.85 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63713.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63713.jpgsave_picture_63713.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ magnet:?xt=urn:btih:F0A234EC6933994ADB03B7C98CF743C540D5605C
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63714.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63714.jpgsave_picture_63714.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ Judas Priest - Invincible Shield (Deluxe Edition) (2024) [FLAC|Lossless|WEB-DL|t
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63715.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63715.jpgsave_picture_63715.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ PotPlayer 240307 (1.7.22125) Stable + Portable (x86/x64) by SamLab [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63716.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63716.jpgsave_picture_63716.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ magnet:?xt=urn:btih:BBB60D663B9158C60A3C7D762BEDE0BB37FD7180
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63717.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63717.jpgsave_picture_63717.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ magnet:?xt=urn:btih:A23C9E86CA64684B162C6A6596883F75DE885920
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63718.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63718.jpgsave_picture_63718.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ magnet:?xt=urn:btih:5D2019AE3C323F0623B86CD2F69878F92B002CFB
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63719.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63719.jpgsave_picture_63719.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ magnet:?xt=urn:btih:85EAA566079BEEA3D13C490ED646EB63B977DF6D
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63720.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63720.jpgsave_picture_63720.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ AIDA64 Extreme Edition 7.00.6754 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63721.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63721.jpgsave_picture_63721.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ magnet:?xt=urn:btih:65B8F05002478F10CD2C4AB0782A87FD8AE45B1D
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63722.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63722.jpgsave_picture_63722.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Print.Test.Page.OK 3.04 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63723.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63723.jpgsave_picture_63723.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ magnet:?xt=urn:btih:0D0A82C7D07907E47A69A92427EF2B9D6244C6FC
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63724.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63724.jpgsave_picture_63724.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ magnet:?xt=urn:btih:30B6F8457E5BAFBF9EEE6A07A23ADCE5AC5438D7
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63725.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63725.jpgsave_picture_63725.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Bundle for MS Office Templates for Mac 7.7 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63726.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63726.jpgsave_picture_63726.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ InnoExtractor Ultra 7.3.2.535 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63727.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63727.jpgsave_picture_63727.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ WinBin2Iso 6.26 Build 001 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63728.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63728.jpgsave_picture_63728.jpg" />
 </div>
 
 

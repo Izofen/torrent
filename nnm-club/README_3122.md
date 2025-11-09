@@ -6,7 +6,7 @@ Kekkon Yubiwa Monogatari II | Tales of Wedding Rings Season 2 | Легенда �
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100735.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100735.jpgsave_picture_100735.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Yoav Eshed - Guitar Hearts (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100736.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100736.jpgsave_picture_100736.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Vera Norea - Daughter of Eve (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100737.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100737.jpgsave_picture_100737.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ The Red Jumpsuit Apparatus - X’s For Eyes (2025) [FLAC 24/96|Lossless|WEB-DL|t
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100738.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100738.jpgsave_picture_100738.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Venna - Malik (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100739.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100739.jpgsave_picture_100739.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ magnet:?xt=urn:btih:8A82C3E13681320C47998BBF2A067A1E39023D1E
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100740.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100740.jpgsave_picture_100740.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ The Scott Rednor Band - Where You Wanna Go (2025) [FLAC 24/48|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100741.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100741.jpgsave_picture_100741.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ magnet:?xt=urn:btih:39A97783A3A735CA706D5A990D88EC310B7DE453
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100742.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100742.jpgsave_picture_100742.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ Stella Anning - Yellow Brick Veneer (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100743.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100743.jpgsave_picture_100743.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ magnet:?xt=urn:btih:78CD0D84D1792CEA0D71AE665D84BFE769FF0D96
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100744.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100744.jpgsave_picture_100744.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ Soul City Collective - Soul City Collective (2025) [FLAC 24/44.1|Lossless|WEB-DL
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100745.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100745.jpgsave_picture_100745.jpg" />
 </div>
 
 
@@ -291,7 +291,7 @@ Sophia Oster Quartet - Praise (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100746.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100746.jpgsave_picture_100746.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ magnet:?xt=urn:btih:1137566A863DA2F584A29CB23FBBC3CBD3BC9DBC
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100747.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100747.jpgsave_picture_100747.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Smokey Brights - Dashboard Heat (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Ro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100748.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100748.jpgsave_picture_100748.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ Schlussakkord - Drehbuch (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100749.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100749.jpgsave_picture_100749.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Sam Siefert Ensemble Project - Realization (2025) [FLAC 24/48|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100750.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100750.jpgsave_picture_100750.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Riot Jazz Brass Band - Ginja (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100751.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100751.jpgsave_picture_100751.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Richard D. Johnson - Warm Embrace (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Vo
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100752.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100752.jpgsave_picture_100752.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ magnet:?xt=urn:btih:3CB161B0E6AD51560477C8D27927E832A7EACF83
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100753.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100753.jpgsave_picture_100753.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ magnet:?xt=urn:btih:5CBD410E8F161FA5CC94513EF25EC18950310409
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100754.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100754.jpgsave_picture_100754.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ Remigio Ducros and Luciano Simoncini - America amore amaro (2025) [FLAC 24/44.1|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100755.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100755.jpgsave_picture_100755.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ magnet:?xt=urn:btih:0C78BE1AE692A1614EE2373487AA20CD2E69BE55
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100756.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100756.jpgsave_picture_100756.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ Mystic Majesty - Ad Maiora Semper (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100757.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100757.jpgsave_picture_100757.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ Epitaph - Don't Let The Gray Hair Fool You (2025) [FLAC 24/44.1|Lossless|WEB-DL|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100758.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100758.jpgsave_picture_100758.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ magnet:?xt=urn:btih:0D79E0EF9CB1C97A3E2C001C40910B87B8D2A95D
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100759.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100759.jpgsave_picture_100759.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ magnet:?xt=urn:btih:F7CF0EA00F6BD5232DAB3AEEFA7DFE5B39390D6C
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100760.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100760.jpgsave_picture_100760.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Ashampoo WinOptimizer 26.00.12 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230533.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230533.jpgsave_picture_230533.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:0C15C8B6543E6B2821EF0081316FCE2958AFA599
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_230534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230534.jpgsave_picture_230534.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ doPDF 11.8.417 Free [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230535.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230535.jpgsave_picture_230535.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ ZD Soft Screen Recorder 11.6.4.0 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_230540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230540.jpgsave_picture_230540.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:C860566A157DB88E6E9EF52F0DEED122D3677B9B
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230541.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230541.jpgsave_picture_230541.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ David Matuszek | Quick Functional Programming (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230542.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230542.jpgsave_picture_230542.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ DiskDigger Pro 1.0-pro-2023-04-11 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230544.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230544.jpgsave_picture_230544.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Sandboxie plus 1.10.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230546.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230546.jpgsave_picture_230546.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:EFCE02CF8B610C0F4CE635401876840846E8737C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230547.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230547.jpgsave_picture_230547.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Steps Ahead - Steps Ahead (1983) [FLAC|Lossless|tracks + .cue] <Fusion, Contempo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_230548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230548.jpgsave_picture_230548.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:520C4F76F794430D6468741BC3F33853FFEBEFF4
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230549.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230549.jpgsave_picture_230549.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Skype 8.100.0.203 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230551.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230551.jpgsave_picture_230551.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:E17A083097C1E3F4773E7F7C490269469DD980C6
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_230552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230552.jpgsave_picture_230552.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ VA - Music News vol.284 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230554.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230554.jpgsave_picture_230554.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ magnet:?xt=urn:btih:C4E9B4836959B408D0A9DD2A92F25436449D4610
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_230556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230556.jpgsave_picture_230556.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ chapterEditor 1.39 Portable [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230558.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230558.jpgsave_picture_230558.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ MKVToolNix 77.0.0 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_230559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230559.jpgsave_picture_230559.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ K-Lite Codec Pack Update 17.6.9 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230560.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230560.jpgsave_picture_230560.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ Don't Starve Together (2016) [Ru] (Build 696980/dlc) Repack Pioneer
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230562.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230562.jpgsave_picture_230562.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ magnet:?xt=urn:btih:817B5946F883DF83C42458136EC42FF9626CE350
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230564.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230564.jpgsave_picture_230564.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ magnet:?xt=urn:btih:A40D69368F1E6C63CCED185869A29D2F44FC65FA
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_230565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230565.jpgsave_picture_230565.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Windows Update Viewer 0.5.10.0 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_230566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230566.jpgsave_picture_230566.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Silly Polly Beast (2025) [Ru/Multi] (0.97) Repack seleZen
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230568.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230568.jpgsave_picture_230568.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Aurora - Poweramp Skin 8.8 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230569.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230569.jpgsave_picture_230569.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ magnet:?xt=urn:btih:B98C9255CC6A5C6E891742D86DBF8C12E9AD69C3
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230570.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230570.jpgsave_picture_230570.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ WizTree 4.14 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_230571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230571.jpgsave_picture_230571.jpg" />
 </div>
 
 

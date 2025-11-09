@@ -6,7 +6,7 @@ calibre 6.10.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163228.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163228.jpgsave_picture_163228.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:72DB3279C11D6E1AA7BC2395A4C6B481E2FD3F22
 >>Прочие зимние виды спорта
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163229.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163229.jpgsave_picture_163229.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:DDAC10BA2EC1C27314F67E19111BA91A0A193C5B
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163230.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163230.jpgsave_picture_163230.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:544D2F3C3C2ED474F48006AD769B883BF436617E
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163231.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163231.jpgsave_picture_163231.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Allegorithmic Substance Alchemist 2020.3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163233.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163233.jpgsave_picture_163233.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ macOS 12 Monterey 12.1 (Installer) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163234.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163234.jpgsave_picture_163234.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:0CA850774831E6876A8C9466505FCC69E05C6866
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163235.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163235.jpgsave_picture_163235.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Microsoft Windows 10.0.18363.535 Version 1909 (December 2019 Update) - Ориг�
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163236.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163236.jpgsave_picture_163236.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ magnet:?xt=urn:btih:ED792B3B3C08AD35BC5F19EE896C5B089CC031E0
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163237.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163237.jpgsave_picture_163237.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ magnet:?xt=urn:btih:1857A7A1214DB4CCADF4D1B6761CB8F70C41E626
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163238.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163238.jpgsave_picture_163238.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:487BB5DE01A4D8AA2237950B3468B53901223F4F
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163239.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163239.jpgsave_picture_163239.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ magnet:?xt=urn:btih:37B04FD47CFE341E894C100229C8290EB901EFCC
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163240.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163240.jpgsave_picture_163240.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ magnet:?xt=urn:btih:E60B8419FB768FC91D43EA5D4906403A70E4B599
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163241.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163241.jpgsave_picture_163241.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:B8A89D9A652A34FB65E76677CAB2397AC4D4D436
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163242.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163242.jpgsave_picture_163242.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Cubebrush, Marc Brunet | Drawing and Coloring Techniques (2014) WEB-DLRip [RU, E
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163243.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163243.jpgsave_picture_163243.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Big J - Above (2020) [MP3|320 Kbps] <Atmospheric Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163244.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163244.jpgsave_picture_163244.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ Seether - Disclaimer (2022) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Post-G
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163245.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163245.jpgsave_picture_163245.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ magnet:?xt=urn:btih:A9F367D52C52E9E7AB3CDACB8052AC82C10967B3
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163246.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163246.jpgsave_picture_163246.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ magnet:?xt=urn:btih:9B4DE24D85D691DB36387E960E82065A01C8D869
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163247.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163247.jpgsave_picture_163247.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Savatage / Trans-Siberian Orchestra - 30 albums, 2 Box-sets, 71CD (1983-2016) [F
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163248.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163248.jpgsave_picture_163248.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ magnet:?xt=urn:btih:3B7D89C5EA7EDBCAB24BFDADE4EF4104783A9B1F
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163249.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163249.jpgsave_picture_163249.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Kansas - Another Fork in the Road: 50 Years of Kansas (2022) 3xCD [MP3|320 Kbps]
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163250.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163250.jpgsave_picture_163250.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Zомбилэнд: Контрольный выстрел / Zombieland: Double Ta
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163251.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163251.jpgsave_picture_163251.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ aname (SE) - Beautiful World (2023) [FLAC|Lossless|WEB-DL|tracks] <Vocal House, 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163252.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163252.jpgsave_picture_163252.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Movavi Video Suite 22.0.1 [DC 09.12.2021] RePack (& Portable) by elchupacabra [M
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163253.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163253.jpgsave_picture_163253.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ ScreenFlow 9 v9.0.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163254.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163254.jpgsave_picture_163254.jpg" />
 </div>
 
 

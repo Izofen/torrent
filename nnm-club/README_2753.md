@@ -6,7 +6,7 @@
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74962.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74962.jpgsave_picture_74962.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:C94E44D34B5B55152BAEAE55F2657F3593F218F1
 >>Отечественные Мультфильмы 21-го века (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74964.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74964.jpgsave_picture_74964.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:8C25CF1F3B111D51BC78E0ED2EE36DDD726F4952
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74966.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74966.jpgsave_picture_74966.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ AllSubmitter v7.03 Nulled[Русский]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74980.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74980.jpgsave_picture_74980.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Windows 7 Ultimate SP1 IDimm Edition v.13.12 x86/x64
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74981.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74981.jpgsave_picture_74981.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ TrueCrypt 7.1a + Portable [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74986.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74986.jpgsave_picture_74986.jpg" />
 </div>
 
 
@@ -161,7 +161,7 @@ TrueCrypt — это программа для шифрования «на ле�
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74991.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74991.jpgsave_picture_74991.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ TrueCrypt — это программа для шифрования «на ле�
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74994.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74994.jpgsave_picture_74994.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ TrueCrypt — это программа для шифрования «на ле�
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74996.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74996.jpgsave_picture_74996.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ TrueCrypt — это программа для шифрования «на ле�
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74998.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74998.jpgsave_picture_74998.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ VA - The Perfect Jazz Collection: 25 Original Albums (2010) [MP3|320 kbps]<Jazz,
 >>Jazz
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75001.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75001.jpgsave_picture_75001.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ magnet:?xt=urn:btih:B8586C3514708090480C1680820531EF92715FFA
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75012.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75012.jpgsave_picture_75012.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ magnet:?xt=urn:btih:4AE865E196552149BC4DE57F88BF46773B24E764
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75027.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75027.jpgsave_picture_75027.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ magnet:?xt=urn:btih:99FF7DB677269F8DDB40730421D08861BFFFF0FE
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75030.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75030.jpgsave_picture_75030.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ Rihanna - Project R [The Audio-biography] (2011) [MP3|320 kbps]<R&B>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75035.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75035.jpgsave_picture_75035.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ magnet:?xt=urn:btih:9AB79C5516C3FE837311828176B98FBFD6C66FA9
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75040.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75040.jpgsave_picture_75040.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ magnet:?xt=urn:btih:9FCFACE6F4377657DC3BBDCE6EEED5ADEF29CAA3
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75046.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75046.jpgsave_picture_75046.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Dropbox 1.3.14 beta [Multi, русский отсутствует]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75058.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75058.jpgsave_picture_75058.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Dropbox — инструмент хранилища данных, благода
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75065.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75065.jpgsave_picture_75065.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ Dropbox — инструмент хранилища данных, благода
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75068.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75068.jpgsave_picture_75068.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ magnet:?xt=urn:btih:A88B51C4C1C0B0C56984EB0CFF27A1569489A85D
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75071.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75071.jpgsave_picture_75071.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ magnet:?xt=urn:btih:E14334E19012C9F1467A250D1C0141EFB7FD9633
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75086.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75086.jpgsave_picture_75086.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ magnet:?xt=urn:btih:DBFDD82D622AE3EA9B8AE817F39EC3572A5CADB9
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75087.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75087.jpgsave_picture_75087.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ magnet:?xt=urn:btih:C63CD9399366B554C50B210564A3BD841B8EED90
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75089.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75089.jpgsave_picture_75089.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ CrunchBang Linux 10 R20120207 [i386 + x86_64] (4xCD)
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75091.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75091.jpgsave_picture_75091.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ magnet:?xt=urn:btih:44779D25BDE96E887075EB69525E9559FA9FD9FC
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75095.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75095.jpgsave_picture_75095.jpg" />
 </div>
 
 

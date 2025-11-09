@@ -6,7 +6,7 @@
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_194224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_194224.jpgsave_picture_194224.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:442E79E2B9B356C082616F18F63B6E751757DBE2
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194225.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194225.jpgsave_picture_194225.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:359C5C50015306AA37CB52652E15076A6DD47AF8
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194226.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194226.jpgsave_picture_194226.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Windows Server 2022 LTSC, Version 21H2 Build 20348.1906 (Updated August 2023) - 
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194227.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194227.jpgsave_picture_194227.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:3E542AF9B49E8E45D9B13BFAF86E09E6B6F5EA3D
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194228.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194228.jpgsave_picture_194228.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:813B98B5527C20FDB73916CAB49061D26286AD12
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194229.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194229.jpgsave_picture_194229.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ CCleaner 6.15.10623 Free-Professional-Business-Technician Edition RePack (& Port
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194230.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194230.jpgsave_picture_194230.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Blackmagic Design DaVinci Resolve Studio 18.5.1 Build 6 (x64) RePack by AlekseyP
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194231.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194231.jpgsave_picture_194231.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:474FFAD222AF4FA04BED3EF150770337F1EAECC4
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194232.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194232.jpgsave_picture_194232.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Microsoft Windows 11 [10.0.22621.2134], Version 22H2 (Updated August 2023) - О�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194233.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194233.jpgsave_picture_194233.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Neon Noodles - Cyberpunk Kitchen Automation (2023) [Ru/Multi] (0.9.71) License G
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194234.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194234.jpgsave_picture_194234.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ magnet:?xt=urn:btih:51FEC2CDCF0487D1ADD05B4EC08493155D5DB618
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194235.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194235.jpgsave_picture_194235.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ magnet:?xt=urn:btih:74EA69CEECCD301018041F7046F7FDFCC4697909
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194236.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194236.jpgsave_picture_194236.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Boundless Entertainment, Sam Eisenhower | Unreal Engine for Filmmakers - Advance
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194237.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194237.jpgsave_picture_194237.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Psiphon 3 build 179 (15.08.2023) Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194238.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194238.jpgsave_picture_194238.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ SmartTube Next 18.92 (Stable) Mod by armanych [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194240.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194240.jpgsave_picture_194240.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ magnet:?xt=urn:btih:BC41B012D9ADBD7234FBDB342FFF46A71AA6E523
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194241.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194241.jpgsave_picture_194241.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ magnet:?xt=urn:btih:DC162AD4B2B7B2DA69F9CE89FA065FF69B5E3319
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194242.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194242.jpgsave_picture_194242.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ magnet:?xt=urn:btih:E69921C1371DACEC156EDDD406088F076647C391
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194243.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194243.jpgsave_picture_194243.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ magnet:?xt=urn:btih:69D63C22977819AAD3446F1453B6EFE9356E22D3
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194244.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194244.jpgsave_picture_194244.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ magnet:?xt=urn:btih:C7B429FA45A778B188A0EC7F56F0FC94606A076A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194245.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194245.jpgsave_picture_194245.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Sugar Sweet Temptation (2023) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194246.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194246.jpgsave_picture_194246.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ PDF Studio Pro for Mac 2023.0.1 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194247.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194247.jpgsave_picture_194247.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ magnet:?xt=urn:btih:20B9F65E81C4B8E2010F82F2650C2197F7EC2145
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194248.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194248.jpgsave_picture_194248.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Nightmare Manor (2023) [Ru/Multi] (Build 11921472) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194249.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194249.jpgsave_picture_194249.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ magnet:?xt=urn:btih:29D1D9DFDB484734851009AE0F009EF0509C5475
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194250.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194250.jpgsave_picture_194250.jpg" />
 </div>
 
 

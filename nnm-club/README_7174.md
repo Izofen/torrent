@@ -6,7 +6,7 @@
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245477.jpgsave_picture_245477.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Microsoft Windows 11 [10.0.22000.1696], Version 21H2 (Updated March 2023) - Ор
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245478.jpgsave_picture_245478.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Movist Pro 2.10.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245479.jpgsave_picture_245479.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ WinSnap 6.0.6 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245480.jpgsave_picture_245480.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:0CB38169B261797F082A6EE8AA7EB7ECC32469D1
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245481.jpgsave_picture_245481.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:96536FF82789C7EA4F10A87239DD272B23B05E42
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245482.jpgsave_picture_245482.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ magnet:?xt=urn:btih:9679CCAC49B062988AB65BEAA319B86ECB52608A
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245483.jpgsave_picture_245483.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:0C3356CE794395961A99F0B7A6D16A86E883A77D
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245484.jpgsave_picture_245484.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ Suzi Quatro - If You Knew Suzi (1978/1982) Bulgaria [FLAC 2.0|192/24|image +.cue
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245485.jpgsave_picture_245485.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ Invisible 2.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245486.jpgsave_picture_245486.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ Icecream PDF Editor PRO 2.70 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245487.jpgsave_picture_245487.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ VA - Trance Compilation Vol. 1 (2023) [MP3|320 Kbps] <Trance, Progressive, Elect
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245488.jpgsave_picture_245488.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ magnet:?xt=urn:btih:861AC5CC08301F0DC4F264572A61F00665272092
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245489.jpgsave_picture_245489.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ PDF Expert 2.5.21 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245490.jpgsave_picture_245490.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ magnet:?xt=urn:btih:E19A336EB29925817A635DDADC95C62AB99E3413
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245491.jpgsave_picture_245491.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ HDCleaner 2.046 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245492.jpgsave_picture_245492.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ magnet:?xt=urn:btih:B38EDE26C4EE84019D925025F1FCEC8AD4371EBE
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245493.jpgsave_picture_245493.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ Diablation - Par Le Feu (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Black Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245494.jpgsave_picture_245494.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ Raúl Ferrer García | iOS Architecture Patterns: MVP, MVVM, VIPER, and VIP in S
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245495.jpgsave_picture_245495.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ EtreCheck Pro 5.0.1 (5A009) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245496.jpgsave_picture_245496.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ WinSnap 6.0.6 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245497.jpgsave_picture_245497.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ A Musical Story (2022) [Ru/Multi] (1.0.5b) License GOG [Digital Deluxe Version]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245498.jpgsave_picture_245498.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ magnet:?xt=urn:btih:976A1479EE950EDFAA5904E2DCEC2BF3248EB47E
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245499.jpgsave_picture_245499.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Karl Seglem - Nye nord (2002) [FLAC|Lossless|tracks + .cue] <Contemporary Jazz, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245500.jpgsave_picture_245500.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ magnet:?xt=urn:btih:E80ADD94EFA9E45F1642255992AA84D5DAB4B89B
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245501.jpgsave_picture_245501.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Blackmagic Design Fusion Studio 18.0.1 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245502.jpgsave_picture_245502.jpg" />
 </div>
 
 

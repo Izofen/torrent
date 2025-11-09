@@ -6,7 +6,7 @@ Wirethrone - Wirethrone (2018) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237822.jpgsave_picture_237822.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ EdgeView 3 v.3.9.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237823.jpgsave_picture_237823.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:D31721306E6A44B7A426BA81CC959C861BEC913A
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237824.jpgsave_picture_237824.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:681935FA3C7182C5BBD433C549CBBD1A83F06861
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237825.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237825.jpgsave_picture_237825.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ Winterwar - Wizard of the North (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic De
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237826.jpgsave_picture_237826.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ MediaInfo 23.04 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237827.jpgsave_picture_237827.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ magnet:?xt=urn:btih:454876C3939B73DEEFD568C2C97E95F9850175FF
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237828.jpgsave_picture_237828.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:1F6445250D106ECEFF866B871D627788C479560F
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237829.jpgsave_picture_237829.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ GraphicConverter 11 v.11.7.1 beta [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237830.jpgsave_picture_237830.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ Smart Driver Manager Pro 6.4.975 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237831.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237831.jpgsave_picture_237831.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ magnet:?xt=urn:btih:1CAEA3EAC2C13718222B4E8098EBB0B318CB0694
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237832.jpgsave_picture_237832.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ magnet:?xt=urn:btih:D6678A813E210F6EC1EB37998961BB575FC55F4A
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237833.jpgsave_picture_237833.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ magnet:?xt=urn:btih:863B12167CE1F7EE4AC77EAE3955107F87CE923D
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237834.jpgsave_picture_237834.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ magnet:?xt=urn:btih:DB9C382C343FEA0E55418DB1964F08D0E2B2858A
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237835.jpgsave_picture_237835.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Submarine Silence - Did Swans Ever See God? (2020) [FLAC|Lossless|image + .cue] 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237836.jpgsave_picture_237836.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ a-ha - Headlines and Deadlines (The Hits Of a-ha) (1991) [FLAC|Lossless|tracks +
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237837.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237837.jpgsave_picture_237837.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ VideoProc Converter 4K 5.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237838.jpgsave_picture_237838.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Warpips (2022) [Ru/Multi] (2.0.5) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237839.jpgsave_picture_237839.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ VA - 60 minutes. Old School Dance Music vol.18 (mixed by Dj V) (2023) [MP3|320 K
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237840.jpgsave_picture_237840.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ VA - Abstract Electronic: Experimental Synth Pack (2021) [MP3|320 Kbps] <Synthwa
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237841.jpgsave_picture_237841.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ GraphicConverter 11 v.11.7.1 beta [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237842.jpgsave_picture_237842.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ magnet:?xt=urn:btih:203EC6AB573A89F85ECF6B3D9FCB3940CC5B902D
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237843.jpgsave_picture_237843.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ DesktopOK 10.88 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237844.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237844.jpgsave_picture_237844.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ magnet:?xt=urn:btih:E2A838883A11C5EE9F83B91741BCBF43862B726A
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237845.jpgsave_picture_237845.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ magnet:?xt=urn:btih:D41B07F98E1AA2715B1A9D094452DFE3D57830FB
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237846.jpgsave_picture_237846.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Icecream PDF Split & Merge Pro 3.47 [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237847.jpgsave_picture_237847.jpg" />
 </div>
 
 

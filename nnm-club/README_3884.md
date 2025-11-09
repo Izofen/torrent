@@ -6,7 +6,7 @@ Ant Download Manager Pro 2.16.0  Build 91578 RePack (& Portable) by elchupacabra
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121428.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121428.jpgsave_picture_121428.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Telegram Desktop 6.2.2 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121429.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121429.jpgsave_picture_121429.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:A936EB5857441AB8BDFA57CDCBADC8F95F3CFE4D
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121430.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121430.jpgsave_picture_121430.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ O&O Defrag Professional 30.0 Build 1057 RePack (& Portable) by elchupacabra [Mul
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121431.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121431.jpgsave_picture_121431.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ MediaHuman YouTube Downloader 3.9.17 (1010) RePack (& Portable) by elchupacabra 
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121432.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121432.jpgsave_picture_121432.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ PIDKey Lite 1.64.4 b50 Portable by Ratiborus [Ru/En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121433.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121433.jpgsave_picture_121433.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:7E1411D37D58F125E356E2ED4A8F6A1C880B4608
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121434.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121434.jpgsave_picture_121434.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:D0C3AE363F52DC3819FE236CB917C9FC42432E0D
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121435.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121435.jpgsave_picture_121435.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:4272C395463FE32ED1B778575B902414CD494458
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121436.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121436.jpgsave_picture_121436.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ TrashMe 3.5.6 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121437.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121437.jpgsave_picture_121437.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:794ECF041FF71789BF664C3396ABACDFBCD7C87E
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121438.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121438.jpgsave_picture_121438.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ Purple Hearts - Extraordinary Sensations: Studio & Live 1979-1986 (2024) [MP3|32
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121439.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121439.jpgsave_picture_121439.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ Lazarus Dream - Lifeline (2022) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121440.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121440.jpgsave_picture_121440.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ Little Nightmares III (3) (2025) [Ru/Multi] (Build 20188271) Scene Rune
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121441.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121441.jpgsave_picture_121441.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Michael Messer & Chaz Jankel - Mostly We Drive (2024) [FLAC 24/44.1|Lossless|WEB
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121442.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121442.jpgsave_picture_121442.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Little Nightmares (2025) [Ru/Multi] (Build 19756066/dlc) Repack FitGirl [Enhance
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121443.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121443.jpgsave_picture_121443.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Little Nightmares (2025) [Ru/Multi] (Build 19756066/dlc) Repack seleZen [Enhance
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121444.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121444.jpgsave_picture_121444.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Denny Newman - Reach Out - Music For Ruth Cape (2024) [FLAC 24/44.1|Lossless|WEB
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121445.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121445.jpgsave_picture_121445.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ Verbal Delirium - Conundrum (2022) [FLAC|Lossless|tracks + .cue] <Progressive Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121446.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121446.jpgsave_picture_121446.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ Little Nightmares (2025) [Ru/Multi] (Build 19756066/dlc) Repack Other s [Enhance
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121447.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121447.jpgsave_picture_121447.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ Fumo - Entropy (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz Fusion & Jazz Ro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121448.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121448.jpgsave_picture_121448.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ magnet:?xt=urn:btih:C8A45E3F4223AF08B104669A813D7682EE852D31
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121449.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121449.jpgsave_picture_121449.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Polarnik - Протокол (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Post-Bla
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121450.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121450.jpgsave_picture_121450.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ magnet:?xt=urn:btih:4E2FA9704429E7A04CA91E5A83C326EFE6814AC5
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121451.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121451.jpgsave_picture_121451.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Haunt - Chariot  Volume 1 (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121452.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121452.jpgsave_picture_121452.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ djay - DJ App & AI Mixer 5.0.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121453.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121453.jpgsave_picture_121453.jpg" />
 </div>
 
 

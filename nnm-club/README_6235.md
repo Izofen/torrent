@@ -6,7 +6,7 @@ Malwarebytes Premium 4.5.33.272 RePack by xetrin [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195628.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195628.jpgsave_picture_195628.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Chronus Home & Lock Widget / Информационные виджеты Chronus
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195629.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195629.jpgsave_picture_195629.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:19C575F589B673514A3204A2214CF4F51C0BEBA7
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195630.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195630.jpgsave_picture_195630.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Bucket Knight (2019) [Ru/Multi] (1.1) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195631.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195631.jpgsave_picture_195631.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:DCD79EF80334075B5E5759DD9170C59C8879D105
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195632.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195632.jpgsave_picture_195632.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Square Home Launcher 2.4.13 Mod by derrin [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195633.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195633.jpgsave_picture_195633.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:A5C925C1C9F91909613D221440F23DAAB5C9DE46
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195634.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195634.jpgsave_picture_195634.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:0991D1176D5CBA3A1687CEAB6BD7C54B4B648B35
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195635.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195635.jpgsave_picture_195635.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:850E43DFBA3583E5A53DA8DB7C4A6124230F57C2
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_195636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195636.jpgsave_picture_195636.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ Hetman Partition Recovery Home / Office / Unlimited Edition 4.8 RePack (& Portab
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195637.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195637.jpgsave_picture_195637.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Ventusky: Прогноз погоды v26.0 b2604 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_195638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195638.jpgsave_picture_195638.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ magnet:?xt=urn:btih:C6B6EE74671607923994E3848A24CE6B7783CA35
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195639.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195639.jpgsave_picture_195639.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ magnet:?xt=urn:btih:115717E6306CF92BEF0D4751FA75E7BE346C1251
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195640.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195640.jpgsave_picture_195640.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Psiphon 3 build 179 (16.07.2023) Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195641.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195641.jpgsave_picture_195641.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ magnet:?xt=urn:btih:97409B431508B76C05BCE11F895CB3BFEC3652A0
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_195642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195642.jpgsave_picture_195642.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ VA - Modern Rock (2023) [MP3|320 Kbps] <Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195643.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195643.jpgsave_picture_195643.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ magnet:?xt=urn:btih:7430C186182E820B7AA5266F0653166054671738
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195644.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195644.jpgsave_picture_195644.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ magnet:?xt=urn:btih:A7629906C32A9CBC96697AC0415BE5FE08CAA9D4
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195645.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195645.jpgsave_picture_195645.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ Planet VPN 2.1.5.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195646.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195646.jpgsave_picture_195646.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ magnet:?xt=urn:btih:ACAE84CBD5A1886CE1FB5BEBA1697D07FD7760DD
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195647.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195647.jpgsave_picture_195647.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ Picsart Photo & Video Editor v22.7.4 Mod by KirillCXV [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_195648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195648.jpgsave_picture_195648.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:2ED3C5343A9C952BE1D0BCB15E9D4752E2886775
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195649.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195649.jpgsave_picture_195649.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ magnet:?xt=urn:btih:D3755CA1746BF68FA0751B8BD0D559547103229A
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195650.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195650.jpgsave_picture_195650.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ magnet:?xt=urn:btih:35F552EA4871D33BBD22D392739FB5B180B2FAF2
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195651.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195651.jpgsave_picture_195651.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ magnet:?xt=urn:btih:11418D992AC45A7A7D699EA72503EA65859A2DD6
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195652.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195652.jpgsave_picture_195652.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ magnet:?xt=urn:btih:3CFA0B408D49E3BB949A70C994DD2BC30493B321
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_195653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195653.jpgsave_picture_195653.jpg" />
 </div>
 
 

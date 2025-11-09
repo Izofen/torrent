@@ -6,7 +6,7 @@ Oracle Database 11g Release 2 11.2.0.3 [ENG]
 >>Серверное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81344.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81344.jpgsave_picture_81344.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Bandicam 1.7.7.185 [Мульти, есть русский]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81345.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81345.jpgsave_picture_81345.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Bandicam — это высококачественная программа дл
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81346.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81346.jpgsave_picture_81346.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Bandicam — это высококачественная программа дл
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81352.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81352.jpgsave_picture_81352.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Bandicam — это высококачественная программа дл
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81353.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81353.jpgsave_picture_81353.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Irish Ёрш - Я Ирландец! (2011) [MP3|320 кб/с]<Celtic, Irish Folk>
 >>Folk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81362.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81362.jpgsave_picture_81362.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ magnet:?xt=urn:btih:14E49253F9925BC45792310117D9A2E2C7E5E7DD
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81365.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81365.jpgsave_picture_81365.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ magnet:?xt=urn:btih:D6F77E6843307989AC918910C24C384A276BE6A0
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81366.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81366.jpgsave_picture_81366.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ magnet:?xt=urn:btih:349F378CA2551F31EF5F50B750CFBE60D4814B37
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81370.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81370.jpgsave_picture_81370.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ magnet:?xt=urn:btih:0B8BFAA3711443CD1F4539B2B1F1498F6A2ACD3B
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81371.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81371.jpgsave_picture_81371.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ magnet:?xt=urn:btih:6AC5929ACCEC79290D1662A7F66948AF6AB39562
 >>Религии и культы (Док/TV)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81374.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81374.jpgsave_picture_81374.jpg" />
 </div>
 
 
@@ -289,7 +289,7 @@ Stan Getz - The Bossa Nova Albums (2008) 5-CD Box Set [MP3|320 кб/с]<Jazz, Bo
 >>Jazz
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81375.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81375.jpgsave_picture_81375.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ magnet:?xt=urn:btih:3D50F293F16D0038830CBC7BBB3970E209C0846A
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81377.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81377.jpgsave_picture_81377.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ magnet:?xt=urn:btih:C04D73694BA47DE925375806C158FDEBB25F75DA
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81379.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81379.jpgsave_picture_81379.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ magnet:?xt=urn:btih:F0BBBD98FCD1B2B83E16B05531790F161F57C580
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81382.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81382.jpgsave_picture_81382.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ magnet:?xt=urn:btih:F4A13ECA245A03A89D99C49733B5B8982AC34BD6
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81383.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81383.jpgsave_picture_81383.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Mr.President - Golden Super Hits (2000) [MP3|320 кб/с]<Eurodance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81385.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81385.jpgsave_picture_81385.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ Billy Ocean - Suddenly (1984) [FLAC|Lossless]<Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81386.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81386.jpgsave_picture_81386.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Billy Ocean - Suddenly (1984) [FLAC|Lossless]<Pop>
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81397.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81397.jpgsave_picture_81397.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Billy Ocean - Suddenly (1984) [FLAC|Lossless]<Pop>
 >>Религии и культы (Док/TV)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81398.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81398.jpgsave_picture_81398.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ magnet:?xt=urn:btih:5B8AF520A6221C2EF8D463FF726028E7B7876957
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81403.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81403.jpgsave_picture_81403.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ magnet:?xt=urn:btih:E851FD00A12ED5AEEDB91D73808E3AC2D582340E
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81406.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81406.jpgsave_picture_81406.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ magnet:?xt=urn:btih:8CB933FB33CA6CDC1CBA71F2FBBBF3E18C589DB8
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81408.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81408.jpgsave_picture_81408.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ magnet:?xt=urn:btih:B64D91C9A3CCF38F49C96DE2FF7AC0E5813E9637
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81411.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81411.jpgsave_picture_81411.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ magnet:?xt=urn:btih:3F9FD6012E882CB21E487A5718015829F3030BFF
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81413.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81413.jpgsave_picture_81413.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ Save2pc Ultimate 5.11 Build 1377 [Eng + Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81418.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81418.jpgsave_picture_81418.jpg" />
 </div>
 
 

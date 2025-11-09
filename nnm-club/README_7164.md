@@ -6,7 +6,7 @@
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245216.jpgsave_picture_245216.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Topaz Video AI 3.1.10 (x64) RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245217.jpgsave_picture_245217.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Johann Sebastian Bach, Bernard Foccroulle - Toccaten & Passacaglia (2008) Reissu
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245218.jpgsave_picture_245218.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Janet Klein - Come Into My Parlor (1998) Coeur De Jeanette Productions[FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245219.jpgsave_picture_245219.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ RTG. Музей оптики (2013) HDTV [H.264/1080i]
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245220.jpgsave_picture_245220.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ RedCrab Calculator 8.2.0 Portable [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245221.jpgsave_picture_245221.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ Debookee v8.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245222.jpgsave_picture_245222.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - Chill with Style - The Lounge & Chill-Out Collection, Vol. 2 (2014) [AAC|~3
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245223.jpgsave_picture_245223.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ Akebi-chan no Sailor Fuku | Akebi's Sailor Uniform | Школьная форма
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245224.jpgsave_picture_245224.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ magnet:?xt=urn:btih:A54D165DF6CE75C5FAA8EF1D765758BFB91481C3
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245225.jpgsave_picture_245225.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ VA - The Rock Collection: Rock Ballads (1992) 2CD Compilation [FLAC|Lossless|tra
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245226.jpgsave_picture_245226.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ O&O DiskImage Professional 18.4 Build 290 RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245227.jpgsave_picture_245227.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ Nova 5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245228.jpgsave_picture_245228.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ VA - Chill with Style - The Lounge & Chill-Out Collection, Vol. 1 (2014) [AAC|~3
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245229.jpgsave_picture_245229.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ magnet:?xt=urn:btih:814A3EF455D94D87044E9F27CE32BF245FB444D2
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245230.jpgsave_picture_245230.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ magnet:?xt=urn:btih:ACF4D57C414CCFEDE5E053B0EA341002EE820147
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245231.jpgsave_picture_245231.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ magnet:?xt=urn:btih:F825A5EFB98A8D44E89F98C93B023C7F037AB709
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245232.jpgsave_picture_245232.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ FastFlix 5.5.4 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245233.jpgsave_picture_245233.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ TaskPaper 3.8.15 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245234.jpgsave_picture_245234.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ magnet:?xt=urn:btih:D8B4DF036AE6E4B5E3E49F1BC30FAB01E48CDC17
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245235.jpgsave_picture_245235.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ ColorWell 7.3.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245236.jpgsave_picture_245236.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ After All - Mercury Rising (2003) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245237.jpgsave_picture_245237.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ magnet:?xt=urn:btih:DEA40876E50DEF018A9168FE88CE2D14B72E0E9D
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245238.jpgsave_picture_245238.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ magnet:?xt=urn:btih:59E7966C5DF9506D9CFEF4D3EFEEDE728C1BBD32
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245239.jpgsave_picture_245239.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Dash 6.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245241.jpgsave_picture_245241.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ MarsEdit 5.0.5 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245242.jpgsave_picture_245242.jpg" />
 </div>
 
 

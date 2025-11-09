@@ -6,7 +6,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239533.jpgsave_picture_239533.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Wise Disk Cleaner 11.0.2.816 RePack (& portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239534.jpgsave_picture_239534.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ SiteSucker 5.0.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239535.jpgsave_picture_239535.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:AE3FB02E4D5B7F5E89803E1ECF4E83FCBF93E09F
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239536.jpgsave_picture_239536.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ DMG Canvas 3.0.13 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239537.jpgsave_picture_239537.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:518F07A04DEE6125F83651E4F371F86E1E83D8FC
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239538.jpgsave_picture_239538.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:20DF8CECAC94D8EEE5DA68820A22BEA10B7786BF
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239539.jpgsave_picture_239539.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:73AA70B8213221DDD7F20BE7C91EAF7DFBF987D7
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239540.jpgsave_picture_239540.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:E141915F1963FF094F87F1A727DF0905BFC23DE2
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239541.jpgsave_picture_239541.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:91D0094D1D362EDE4174180A5387AFB7D6B92F3F
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239542.jpgsave_picture_239542.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:C02D8D8BED45A016CFA522DDDD1954729CA1AC79
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239543.jpgsave_picture_239543.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Yello - One Second (1987) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Synth-pop>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239544.jpgsave_picture_239544.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ SideNotes 1.2.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239545.jpgsave_picture_239545.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ GraphicConverter 11 v.11.6.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239546.jpgsave_picture_239546.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ magnet:?xt=urn:btih:A2878D6CCCEAE2DE9F0FF3A66EBC0D3FBD1A1141
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239547.jpgsave_picture_239547.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Infuse PRO 7.5.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239548.jpgsave_picture_239548.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ magnet:?xt=urn:btih:B77F00DD1E91B0CA3C30E53E31AA8821D3E9A232
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239549.jpgsave_picture_239549.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ magnet:?xt=urn:btih:311E73F2D9D5BFD9D0C145879EED88E307B50B73
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239550.jpgsave_picture_239550.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ magnet:?xt=urn:btih:8DD4F193C0FA815D0C718CC79643427BD5D5D05D
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239551.jpgsave_picture_239551.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ MailWasher Pro 7.12.133 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239552.jpgsave_picture_239552.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ EazyDraw 10.1.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239553.jpgsave_picture_239553.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ magnet:?xt=urn:btih:5BF797B61028A6593344D769FCCE67324599529C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239554.jpgsave_picture_239554.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ Downcast 2.11.13 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239555.jpgsave_picture_239555.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ ClipClip Pro 2.4.5874 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239556.jpgsave_picture_239556.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ magnet:?xt=urn:btih:613B7FEB57747CE55B2FBC204A82E164D0EFF196
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239557.jpgsave_picture_239557.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ Lacrimosa - The Anniversary Box (1990-2020) (2021) 3CD, For the 30th anniversary
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239558.jpgsave_picture_239558.jpg" />
 </div>
 
 

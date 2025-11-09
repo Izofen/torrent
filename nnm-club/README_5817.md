@@ -6,7 +6,7 @@
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181905.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181905.jpgsave_picture_181905.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Ron D Bowes - Blues, Booze and Bad News (2022) [FLAC|Lossless|WEB-DL|tracks] <Bl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181908.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181908.jpgsave_picture_181908.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ WiFi Analyzer v4.6 Mod by derrin [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181911.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181911.jpgsave_picture_181911.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:31B5DD2D028E9274FEBB4288BC97A92596EF3FE7
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181914.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181914.jpgsave_picture_181914.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:4B522EFB360CA79819A61314A0CA62DFC76A0796
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181915.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181915.jpgsave_picture_181915.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Faronics Deep Freeze SERVER Enterprise 8.38.270.5256 [Multi]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_181918.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_181918.jpgsave_picture_181918.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ Zed Mitchell - Ha, Ha, Ha, Ha (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181920.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181920.jpgsave_picture_181920.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:85B3EA7B1083C4727961BD63E90EC8E7D31C3559
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181923.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181923.jpgsave_picture_181923.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ Monrau - Тишина, сделай громче (2022) [FLAC|Lossless|WEB-DL|tr
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181924.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181924.jpgsave_picture_181924.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ magnet:?xt=urn:btih:6C9E36E6ECF33A14CF99D131A2E7B7CF3333AE87
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181926.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181926.jpgsave_picture_181926.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ magnet:?xt=urn:btih:3A283F5B974CD8247C8108F212840BD17A3A4C60
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_181936.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_181936.jpgsave_picture_181936.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ Te Deum - Reflexia (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death, Symphoni
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181938.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181938.jpgsave_picture_181938.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ magnet:?xt=urn:btih:83653FC97905621D9858F9C48F21753E689D8D13
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181940.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181940.jpgsave_picture_181940.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ magnet:?xt=urn:btih:98E9CBF16E81FF820C9A54B7299211653B9CA23E
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181944.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181944.jpgsave_picture_181944.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ Electric Jaguar Baby - Psychic Death Safari (2022) [FLAC|Lossless|WEB-DL|tracks]
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181945.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181945.jpgsave_picture_181945.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ magnet:?xt=urn:btih:D95B56A0DB8A5E11018978D3CB69B6B404F602D6
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181948.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181948.jpgsave_picture_181948.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ magnet:?xt=urn:btih:319E4FCBF18028DFD11E37120429F00813515A86
 >>Футбол. Чемпионаты мира
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181949.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181949.jpgsave_picture_181949.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ magnet:?xt=urn:btih:25E5E33AC236A78D129B93E985F0E3325648E994
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181953.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181953.jpgsave_picture_181953.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ magnet:?xt=urn:btih:31DED2F9C74AA37A365111CA3CE7CF21CC3A9273
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181954.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181954.jpgsave_picture_181954.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Pattern-Seeking Animals - Only Passing Through (2022) [FLAC|Lossless|image + .cu
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181956.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181956.jpgsave_picture_181956.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:E9AE51E399D68FBBDF89D828E37C0359BF18ECAC
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181958.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181958.jpgsave_picture_181958.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Galderia - Endless Horizon (2022) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181962.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181962.jpgsave_picture_181962.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ magnet:?xt=urn:btih:A646C6FF04AA1BD7DBC5312ECA264529D29A0F76
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181963.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181963.jpgsave_picture_181963.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ magnet:?xt=urn:btih:8EC67CD5DF911CCDFE0C1819B76F3157F8772E04
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181965.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181965.jpgsave_picture_181965.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ Cecil Alexander - Introducing (2022) Heartcore Records [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181966.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181966.jpgsave_picture_181966.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ magnet:?xt=urn:btih:950650CF2508ECA135866081C7AD92961352579E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_181968.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_181968.jpgsave_picture_181968.jpg" />
 </div>
 
 

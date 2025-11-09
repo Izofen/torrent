@@ -6,7 +6,7 @@ Elton John & Brandi Carlile - Who Believes In Angels? (2025) [FLAC|Lossless|imag
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68275.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68275.jpgsave_picture_68275.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ U2 - How To Dismantle An Atomic Bomb (2004) CD, Album [FLAC|Lossless|tracks + .c
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68291.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68291.jpgsave_picture_68291.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Tornado - Black President (2025) [FLAC|Lossless|image + .cue] <Thrash, Glam>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68305.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68305.jpgsave_picture_68305.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Mudhens - Mudhens (1996) [FLAC|Lossless|tracks + .cue] <Rock, Pop>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68307.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68307.jpgsave_picture_68307.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Metamorphosis - 6 Albums, 1 EP (2002-2021) [ MP3|320 Kbps] <Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68335.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68335.jpgsave_picture_68335.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Kiama - Sign Of IV (2016) [FLAC|Lossless|tracks + .cue] <Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68345.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68345.jpgsave_picture_68345.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Pravitas - The Parasitic Divine (2025) [FLAC|Lossless|WEB-DL|tracks] <Technical 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68346.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68346.jpgsave_picture_68346.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Tarzen - 2 Albums (1984,1989) Remaster, 2025, Metallic Blue Records [MP3|320 Kbp
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68352.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68352.jpgsave_picture_68352.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Death Angel - The Art Of Dying / Killing Season (2013) 2 x CD, Compilation, Limi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68355.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68355.jpgsave_picture_68355.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Kinetikill - Echoes of Oblivion (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Nu
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68360.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68360.jpgsave_picture_68360.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ Within Fractals - Samsara (2025) [FLAC|Lossless|WEB-DL|tracks] <Progressive Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68363.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68363.jpgsave_picture_68363.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ Raven - Leave 'Em Bleeding (2022) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68364.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68364.jpgsave_picture_68364.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ Lethal X - 90 Tons Of Thunder (2025) Japanese Edition [FLAC|Lossless|image + .cu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68404.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68404.jpgsave_picture_68404.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ Outlasted - Universal Human Desire (2025) [MP3|320 Kbps] <Melodic Rock, AOR>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68430.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68430.jpgsave_picture_68430.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ Neverlove - Nu Glam (2025) [MP3|320 Kbps] <Alternative Rock, Alternative Mrtal>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68433.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68433.jpgsave_picture_68433.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Unleash The Archers - Phantoma (2024) Japanese Edition [FLAC|Lossless|image + .c
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68434.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68434.jpgsave_picture_68434.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ White Willow - Signal to Noise (2006) Remastered, 2025, Karisma Records [MP3|320
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68439.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68439.jpgsave_picture_68439.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Warbringer - Woe To The Vanquished (2017) Japanese Edition [FLAC|Lossless|image 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68464.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68464.jpgsave_picture_68464.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Nightstalker - Return From The Point of No Return (2025) [FLAC|Lossless|WEB-DL|t
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68474.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68474.jpgsave_picture_68474.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ My Design Immortal - Ten Scars Deep (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard R
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68478.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68478.jpgsave_picture_68478.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ Killers - Killing Games (2001) [FLAC|Lossless|image + .cue] <Speed Metal, Hard R
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68484.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68484.jpgsave_picture_68484.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ magnet:?xt=urn:btih:179EDD0363C8CE79EFA0B089F2E893B525E62AAB
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68497.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68497.jpgsave_picture_68497.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ Arthemis - Blood Fury Domination (2017) Japanese Edition [FLAC|Lossless|image + 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68506.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68506.jpgsave_picture_68506.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ Chamber Mage - By Light Of Emerald Gods (2025) [FLAC|Lossless|WEB-DL|tracks] <He
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68512.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68512.jpgsave_picture_68512.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ Dragonslayer - Dragon Drums (2020) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68517.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68517.jpgsave_picture_68517.jpg" />
 </div>
 
 
@@ -682,7 +682,7 @@ magnet:?xt=urn:btih:0D22CC94C46E8B5AB3DB9E4E3845784604D52DA6
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68529.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68529.jpgsave_picture_68529.jpg" />
 </div>
 
 

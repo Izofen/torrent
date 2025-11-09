@@ -6,7 +6,7 @@ Believer - Gabriel (2009) [FLAC|Lossless|image + .cue] <Progressive, Technical T
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114287.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114287.jpgsave_picture_114287.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Charles Williams - Trees And Grass And Things (1971) 2017, Solid Records [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114288.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114288.jpgsave_picture_114288.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Codepoint for Mac 1.14 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114289.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114289.jpgsave_picture_114289.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Wynton Marsalis - Wynton Marsalis (1982) CBS [FLAC|Lossless|tracks + .cue] <Post
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114290.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114290.jpgsave_picture_114290.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Believer - Transhuman (2011) [FLAC|Lossless|image + .cue] <Progressive, Technica
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114291.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114291.jpgsave_picture_114291.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ EdgeView 4 v.4.6.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114292.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114292.jpgsave_picture_114292.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Hunter Francis - Daggermouth (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114293.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114293.jpgsave_picture_114293.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Feeder 4 v.4.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114294.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114294.jpgsave_picture_114294.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Mortifer - Euthanasia (1993) [FLAC|24/96|image + .cue|Vinyl-Rip] <Thrash Metal>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114295.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114295.jpgsave_picture_114295.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Calming Jazz Relax Academy - Instrumental Meditation: Calm Mindfulness Session w
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114296.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114296.jpgsave_picture_114296.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ magnet:?xt=urn:btih:570001576E29DE793FB5DC5625C02540BFD9CF54
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114297.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114297.jpgsave_picture_114297.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ magnet:?xt=urn:btih:0BBA5551A2B8AC030160016A0D5A8C5D91AD9066
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114298.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114298.jpgsave_picture_114298.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ AC/DC - Powerage (1978) [FLAC|24/192|image + .cue|Vinyl-Rip] <Hard Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114299.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114299.jpgsave_picture_114299.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ VA - Greatest Jazz Lounge Smooth Instrumentals to Chill (2024) [FLAC|Lossless|WE
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114300.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114300.jpgsave_picture_114300.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Odd Chap - Collaborations (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electro 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114301.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114301.jpgsave_picture_114301.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ StopTheMadness 40.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114302.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114302.jpgsave_picture_114302.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ SnapMotion Unlimited for Mac 5.2.1. [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114303.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114303.jpgsave_picture_114303.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Van Morrison - The Legendary Bang Sessions (1994) Remaster, 2024, Charly Digital
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114304.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114304.jpgsave_picture_114304.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Timo Lassy and Jukka Eskola - Nordic Stew (2024) [FLAC 24/44.1|Lossless|WEB-DL|t
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114305.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114305.jpgsave_picture_114305.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Max Cruise - Nights at Sunset Beach (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114306.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114306.jpgsave_picture_114306.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ WatsGo for Mac 8.4.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114307.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114307.jpgsave_picture_114307.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ VA - Fusion Funky Jazz Vol. 4 (2024) [FLAC|Lossless|WEB-DL|tracks] <Funky Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114308.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114308.jpgsave_picture_114308.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Solitude Aeturnus - Hour of Despair (2024) Deluxe Edition [FLAC 24/44.1|Lossless
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114309.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114309.jpgsave_picture_114309.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Sarah L King - Fire Horse (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz, Voca
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114310.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114310.jpgsave_picture_114310.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ Desktop Stickers 2.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114311.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114311.jpgsave_picture_114311.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ Malted Milk - 1975 (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114312.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114312.jpgsave_picture_114312.jpg" />
 </div>
 
 

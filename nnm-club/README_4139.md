@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128194.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128194.jpgsave_picture_128194.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Dekoboko Majo no Oyako Jijou | The Family Circumstances of the Irregular Witch |
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128196.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128196.jpgsave_picture_128196.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ CCleaner 6.19.10858 Free / Professional / Business / Technician Edition RePack (
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128197.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128197.jpgsave_picture_128197.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:9C5697F2C95927399E58062B5758F931BE9550F6
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128198.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128198.jpgsave_picture_128198.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:BE33F0110CCCBE753A60BC89D24E94F120E4CDF2
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128199.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128199.jpgsave_picture_128199.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:63BB4D8521FA596A209C4C201CAF008F3E02F1BF
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128200.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128200.jpgsave_picture_128200.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:F43E148540E9A979CB0B6BBB1281D1CCCC47B444
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128201.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128201.jpgsave_picture_128201.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:892B41FDF3413CCBEB4E7F531297938C056D07E0
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128202.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128202.jpgsave_picture_128202.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:C3C38CA4C29B33D3D1DCCC6AD0CF15C3C29A6A45
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128203.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128203.jpgsave_picture_128203.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:5F985EFAB33EB3AB960F450FBB47ACA354ED99D9
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128204.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128204.jpgsave_picture_128204.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:5E3C9B60E6A32F349A33B17D235D12B28B45DA03
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128205.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128205.jpgsave_picture_128205.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:45B888197BCACA7B9A4D5DDB86598A75C25F4998
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128207.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128207.jpgsave_picture_128207.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ VA - Sad Girl Jazz (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128208.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128208.jpgsave_picture_128208.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ magnet:?xt=urn:btih:0410E2EFA3DC9BCF66A3399E47B553BF77D70F0E
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128209.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128209.jpgsave_picture_128209.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ magnet:?xt=urn:btih:6D64556F7C12FD21D9ACDCFB5033042679C8FB78
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128210.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128210.jpgsave_picture_128210.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ VA - Meditative, Romantic and Stylish Jazz for the Quiet Times (2023) [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128211.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128211.jpgsave_picture_128211.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ magnet:?xt=urn:btih:AC427F85EA72390E6EAADF86E03668CCD05B0D8C
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128212.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128212.jpgsave_picture_128212.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ magnet:?xt=urn:btih:ED63FBE40885FF739D8BC4CF1AF676536F4EB75A
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128213.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128213.jpgsave_picture_128213.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ magnet:?xt=urn:btih:222740401C3AD3996736081ACC01A5BC17182127
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128214.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128214.jpgsave_picture_128214.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ Ayreon - The Human Equation (2004) [FLAC|24/192|image + .cue|Vinyl-Rip] <Progres
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128215.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128215.jpgsave_picture_128215.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ magnet:?xt=urn:btih:2FAA9527A96EC5AABE98385542B61DE872305AB5
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128216.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128216.jpgsave_picture_128216.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ VA - Luxury Relaxing Lounge Comfort Smooth Playlist (2023) [FLAC|Lossless|WEB-DL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128217.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128217.jpgsave_picture_128217.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Phil Woods - The Rev & I (1998) Blue Note [FLAC|Lossless|tracks + .cue] <Bop, Ha
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128218.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128218.jpgsave_picture_128218.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ magnet:?xt=urn:btih:DFDD841A7CC1DD391710B0168CE57AFB16E33C56
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128219.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128219.jpgsave_picture_128219.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Ayreon - 01011001 (2008) [FLAC|24/192|image + .cue|Vinyl-Rip] <Progressive Metal
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128220.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128220.jpgsave_picture_128220.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ Ammanas - Solitude (2023) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128221.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128221.jpgsave_picture_128221.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ VA - Dancing in Your Soul (2024) 2CD [MP3|320 Kbps] <Native American, New Age, E
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114885.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114885.jpgsave_picture_114885.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:7B6C0F5A03C50C0EF52380F5DAEFEBDE300E7104
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114886.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114886.jpgsave_picture_114886.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:7B6C0F5A03C50C0EF52380F5DAEFEBDE300E7104
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114887.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114887.jpgsave_picture_114887.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Wireless Network Watcher 2.41+  Portable [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114888.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114888.jpgsave_picture_114888.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ VMware Workstation Player 17.5.1 Build 23298084 Free [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114889.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114889.jpgsave_picture_114889.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:FEBB4786505AF2D6B88109C36E2618A0BA5DBFCE
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114890.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114890.jpgsave_picture_114890.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ ASAP Utilities for Excel 8.5 Home and Student [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114891.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114891.jpgsave_picture_114891.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ magnet:?xt=urn:btih:96C7A211B9EA5E5ADA7F6CDDA8ABBB9BDD2DC75F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114892.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114892.jpgsave_picture_114892.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ magnet:?xt=urn:btih:6F7DF7C19A63A0CF69D31F324891BC0E583967D4
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114893.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114893.jpgsave_picture_114893.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ magnet:?xt=urn:btih:4812771D904F05DD6B4974CEE8EDA745EE716686
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114894.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114894.jpgsave_picture_114894.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ magnet:?xt=urn:btih:378FD0F665A69032A2257C633D07C044B41F7322
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114895.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114895.jpgsave_picture_114895.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ Penny’s Big Breakaway (2024) [Ru/Multi] (1.1.20240131) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114896.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114896.jpgsave_picture_114896.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ magnet:?xt=urn:btih:0B6698D5D5C3DD307DF8FB12F63E2454CBB47864
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114897.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114897.jpgsave_picture_114897.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ magnet:?xt=urn:btih:E461852BD28FF8F7B07FB8FEAD5722802C5C2F4A
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114898.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114898.jpgsave_picture_114898.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ magnet:?xt=urn:btih:FE49557053D83E5031268C1016EDAFAD781EF727
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114899.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114899.jpgsave_picture_114899.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Secrets of Grindea (2024) [En] (13601958) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114900.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114900.jpgsave_picture_114900.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ UnHackMe 15.80.2024.0220 (акция Comss) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114901.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114901.jpgsave_picture_114901.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Windows 11 Manager 1.4.2 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114902.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114902.jpgsave_picture_114902.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ VA - Ласковый Май в инструментальных версиях 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114903.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114903.jpgsave_picture_114903.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ magnet:?xt=urn:btih:B3DAFEA8596460F9B34F09CC227AF26D1B9F77CC
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114904.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114904.jpgsave_picture_114904.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Topaz Photo AI 2.4.1 (x64) Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114905.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114905.jpgsave_picture_114905.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ WRATH: Aeon of Ruin (2019) [Ru/Multi] (1.5) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114906.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114906.jpgsave_picture_114906.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ magnet:?xt=urn:btih:0C949B841117C62D41F8C3182630C76CEC4FB2EA
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114907.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114907.jpgsave_picture_114907.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ Bridge Constructor Portal (2017) [Ru/Multi] (001.04/dlc) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114908.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114908.jpgsave_picture_114908.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ magnet:?xt=urn:btih:A86BD7DE26A1C7AF781A88E9FFFE38F46CF664A6
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114909.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114909.jpgsave_picture_114909.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ Invisible Fear (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114910.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114910.jpgsave_picture_114910.jpg" />
 </div>
 
 

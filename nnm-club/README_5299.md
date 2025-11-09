@@ -6,7 +6,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164585.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164585.jpgsave_picture_164585.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ FastScripts 3.0.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164586.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164586.jpgsave_picture_164586.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:1278CAF884E3A2E1CDFA055D291111B4825C15E2
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164587.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164587.jpgsave_picture_164587.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Yojo - Yojo (2013) [FLAC|Lossless|Web-DL|tracks] <Dark Jazz, Post Rock, Psychede
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164588.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164588.jpgsave_picture_164588.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:2702A1D1F9517965EB6A801B661D04D0253392D4
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164589.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164589.jpgsave_picture_164589.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ The Gnomon Workshop, Luis Carrasco | 3D Creature Design in ZBrush, Keyshot and P
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164590.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164590.jpgsave_picture_164590.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ Klokki 1.1.2 (build 28) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164591.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164591.jpgsave_picture_164591.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ Edenbridge - MyEarthDream (2008) [FLAC|Lossless|image + .cue] <Symphonic Power M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164592.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164592.jpgsave_picture_164592.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ magnet:?xt=urn:btih:3268C05062D3269815C19898B2CB409B9628FBE8
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164593.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164593.jpgsave_picture_164593.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ Cocktail Big Sur Edition 14.4.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164594.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164594.jpgsave_picture_164594.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ Microsoft Office Standard 2019 for Mac v16.44 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164595.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164595.jpgsave_picture_164595.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ Netra - Ingrats (2017) [FLAC|Lossless|tracks + .cue] <Depressive Black Metal, Po
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164597.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164597.jpgsave_picture_164597.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ AIDA64 Extreme | Engineer | Business 6.85.6300 RePack (&Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164598.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164598.jpgsave_picture_164598.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Aiseesoft Mac Blu-ray Player 6.6.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164599.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164599.jpgsave_picture_164599.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Toshiyuki Miyama & The New Herd - Tsuchi No Ne (1973) 2012, Nippon Columbia [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164600.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164600.jpgsave_picture_164600.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Netra - Mélancolie Urbaine (2010) [FLAC|Lossless|tracks + .cue] <Depressive Bla
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164601.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164601.jpgsave_picture_164601.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Edenbridge - Shine (2004) [FLAC|Lossless|image + .cue] <Symphonic Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164602.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164602.jpgsave_picture_164602.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ ColorWell 7.3.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164603.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164603.jpgsave_picture_164603.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ magnet:?xt=urn:btih:FA654CB8B94BC99DC36AB9E414AD3C38DBDF5186
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164604.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164604.jpgsave_picture_164604.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ magnet:?xt=urn:btih:407C2BE1A4A2CE4506AFDCBAD04171CD74CE4852
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164605.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164605.jpgsave_picture_164605.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ Netra - Sørbyen (2011) [FLAC|Lossless|tracks + .cue] <Depressive Black Metal, P
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164606.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164606.jpgsave_picture_164606.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ DirEqual 4.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164607.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164607.jpgsave_picture_164607.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ magnet:?xt=urn:btih:62682BF1BF5CD1ABC2E7EEEFAD4F28C2AC61BA8F
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164608.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164608.jpgsave_picture_164608.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ OmniReader Pro for Mac 2.6.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164609.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164609.jpgsave_picture_164609.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ magnet:?xt=urn:btih:BFD1750DC2CE7E75F5FC5BB9327B334924BAD183
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164610.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164610.jpgsave_picture_164610.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Network Kit 9.0.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164611.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164611.jpgsave_picture_164611.jpg" />
 </div>
 
 

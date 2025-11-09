@@ -6,7 +6,7 @@
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89966.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89966.jpgsave_picture_89966.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Puissance - 14 albums (1995-2007) [mp3|192-320 kbps] <Martial Industrial, Dark A
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89969.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89969.jpgsave_picture_89969.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ Runaway With The Circus (P) [En] 2012
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89975.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89975.jpgsave_picture_89975.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ magnet:?xt=urn:btih:7E2778EFD4491F18BD935494424CBA7C2E1F4746
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89977.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89977.jpgsave_picture_89977.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ magnet:?xt=urn:btih:80D1FF927855247D2E206E2664EB357FEFA782CA
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89979.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89979.jpgsave_picture_89979.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ magnet:?xt=urn:btih:707C02C4D4D015D0A86E9CDC97E579E461781FD6
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89981.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89981.jpgsave_picture_89981.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ VA - Drum & Bass Arena (2012) [MP3|320 кб/с]<Drum'n'Bass>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89983.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89983.jpgsave_picture_89983.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ magnet:?xt=urn:btih:831B8C6247F6A906EE32D5CD0E94F2635A49B30D
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89984.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89984.jpgsave_picture_89984.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ magnet:?xt=urn:btih:BCDAE6832B29901B00B4628D696C207DBF3C4B3A
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89988.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89988.jpgsave_picture_89988.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ magnet:?xt=urn:btih:61787410BCB8EFFA5CEEF808BF9744BC4092924A
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89991.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89991.jpgsave_picture_89991.jpg" />
 </div>
 
 
@@ -262,7 +262,7 @@ magnet:?xt=urn:btih:61787410BCB8EFFA5CEEF808BF9744BC4092924A
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89992.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89992.jpgsave_picture_89992.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ magnet:?xt=urn:btih:8742912121502EDF7AE3DEF73628794256127D6E
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89994.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89994.jpgsave_picture_89994.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ magnet:?xt=urn:btih:E5E220914C88654EE652FCE55A32040146AE29F8
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89995.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89995.jpgsave_picture_89995.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ Galaxy Hunter - Sleeping Child (2009) [MP3|320 кб/с]<Spacesynth>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89999.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89999.jpgsave_picture_89999.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ magnet:?xt=urn:btih:D73EAC7E5F8BCB6A3CB46B9F51FC3EA567DDBC33
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90003.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90003.jpgsave_picture_90003.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ magnet:?xt=urn:btih:D73EAC7E5F8BCB6A3CB46B9F51FC3EA567DDBC33
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90004.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90004.jpgsave_picture_90004.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ magnet:?xt=urn:btih:D73EAC7E5F8BCB6A3CB46B9F51FC3EA567DDBC33
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90005.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90005.jpgsave_picture_90005.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ VA - Memories are Made of This (1999) 10CD [MP3|320 кб/с]<Oldies>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90007.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90007.jpgsave_picture_90007.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ VA - Поклонимся Великим Тем Годам (2010) [MP3|320 kbps]
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90010.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90010.jpgsave_picture_90010.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ VA - Война закончилась давно (2005) [MP3|320 kbps]<Воен
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90016.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90016.jpgsave_picture_90016.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ Yoshida Kiyoshi - Warriors (2011) [MP3|320 кб/с]<New age, Ethnic>
 >>Asian Traditional, Ethnic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90017.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90017.jpgsave_picture_90017.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Parzival (+ Stiff Miners) - 8 albums (1995-2011) [mp3|192-320 kbps] <Martial Ind
 >>Experimental Electronic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90021.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90021.jpgsave_picture_90021.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ VA - Лучшие Хиты Радио DFm Часть 8 (2012) [MP3|256 кб/с]<
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90023.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90023.jpgsave_picture_90023.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ Various Artists - The Hearts Of Shadow Gods (1996) [mp3|320 kbps] <Dark Ambient,
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90024.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90024.jpgsave_picture_90024.jpg" />
 </div>
 
 
@@ -677,7 +677,7 @@ magnet:?xt=urn:btih:24C3E2030C6D8D7744F92BB210F29832DCB23D27
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90027.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90027.jpgsave_picture_90027.jpg" />
 </div>
 
 
@@ -701,7 +701,7 @@ Synthaurion - Distant Frontier (2010) [MP3| ~189-221 кб/с ]<Spacesynth>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90029.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90029.jpgsave_picture_90029.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82236.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82236.jpgsave_picture_82236.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:4E2D0DEC0A3EFAF2D8F9A2F041C0CDA8A885026A
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82237.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82237.jpgsave_picture_82237.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:4E2D0DEC0A3EFAF2D8F9A2F041C0CDA8A885026A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82240.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82240.jpgsave_picture_82240.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:4E2D0DEC0A3EFAF2D8F9A2F041C0CDA8A885026A
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82242.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82242.jpgsave_picture_82242.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:BB4A21DC64EE20DCA6F83E776192D448B376933F
 >>Вокал
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82243.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82243.jpgsave_picture_82243.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ magnet:?xt=urn:btih:B141A29E295432F3BA03E959197383B957D5F53E
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82245.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82245.jpgsave_picture_82245.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ magnet:?xt=urn:btih:D30D625FA57BF4DA13FDFAAAD9BE8D41A752CCD8
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82250.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82250.jpgsave_picture_82250.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ magnet:?xt=urn:btih:D30D625FA57BF4DA13FDFAAAD9BE8D41A752CCD8
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82253.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82253.jpgsave_picture_82253.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ magnet:?xt=urn:btih:D30D625FA57BF4DA13FDFAAAD9BE8D41A752CCD8
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82254.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82254.jpgsave_picture_82254.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ magnet:?xt=urn:btih:D30D625FA57BF4DA13FDFAAAD9BE8D41A752CCD8
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82255.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82255.jpgsave_picture_82255.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ David Garrett - Virtuoso (2007) [FLAC|Lossless]<Classical Crossover, Instrumenta
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82259.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82259.jpgsave_picture_82259.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ David Garrett - Virtuoso (2007) [FLAC|Lossless]<Classical Crossover, Instrumenta
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82260.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82260.jpgsave_picture_82260.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ magnet:?xt=urn:btih:35426510E95E2F83C00115826E5495A07A013B10
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82261.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82261.jpgsave_picture_82261.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ magnet:?xt=urn:btih:914BF54A5AB01E499A91B7D47F3102F10DFC36EC
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82263.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82263.jpgsave_picture_82263.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ magnet:?xt=urn:btih:914BF54A5AB01E499A91B7D47F3102F10DFC36EC
 >>Нормативная документация
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82267.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82267.jpgsave_picture_82267.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ magnet:?xt=urn:btih:9D2F41F8F8266CCCC7F68216DF89CA8C6A70D9BA
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82268.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82268.jpgsave_picture_82268.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ magnet:?xt=urn:btih:21965E9DBEC5C394CBF1C00C224790D1FAB1FB5A
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82271.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82271.jpgsave_picture_82271.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ magnet:?xt=urn:btih:C88AF25AF57C898C9E75416342D5E3A5641B1C85
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82274.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82274.jpgsave_picture_82274.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ magnet:?xt=urn:btih:FCE6E5D0630A656A08CE2D5C5334B4835CB925BE
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82278.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82278.jpgsave_picture_82278.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ http://multi-up.com/668333Продолжительность: 22 x ~00:44:00
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82279.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82279.jpgsave_picture_82279.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ Defenders of Ardania [En] (Lossless Repack) 2012 | R.G. UniGamers
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82280.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82280.jpgsave_picture_82280.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ magnet:?xt=urn:btih:EDE295BE0E1D4F1214F71A8F2522C3230011970A
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82281.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82281.jpgsave_picture_82281.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ magnet:?xt=urn:btih:F0B1F32525E160D38BF34A02CB31BEE9CDE7C7AF
 >>Веб-дизайн
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82283.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82283.jpgsave_picture_82283.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ magnet:?xt=urn:btih:E263FD501769EF8962F6D8256409B6F2614DDAAC
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82285.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82285.jpgsave_picture_82285.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ magnet:?xt=urn:btih:3E40819FD339604A321351B8011F990F72EAAACE
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82289.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82289.jpgsave_picture_82289.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ Rammstein - Live in St. Petersburg 13.02.2012 [2012, Industrial, HDCamRip 720]
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82293.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82293.jpgsave_picture_82293.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153900.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153900.jpgsave_picture_153900.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:A3A2EEE84EA694FA968DA94753E24DD426E5A6D4
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153901.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153901.jpgsave_picture_153901.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:786BE167A6D36D469F1D8F164DEACC3E6F459F67
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153902.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153902.jpgsave_picture_153902.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ O&O DiskImage Professional 15.1 Build 162 RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153903.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153903.jpgsave_picture_153903.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:007ABCF055FB6E16115A68BCFF3F329E36A9379B
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153904.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153904.jpgsave_picture_153904.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:F57799D784F35382391D6D0F7D55C414BDAA1A32
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153905.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153905.jpgsave_picture_153905.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:7E2BAC149E6C61BB4B9DC2FFAE713287C296312B
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153906.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153906.jpgsave_picture_153906.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Display Driver Uninstaller 18.0.0.6 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153907.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153907.jpgsave_picture_153907.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:B8AAA171B89B01E2DB13AD3FFAFD858C40F1AEAF
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153908.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153908.jpgsave_picture_153908.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ MusicLab - RealStrat 5.0.0.7420 STANDALONE, VSTi, VSTi3, AAX (x86/x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153909.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153909.jpgsave_picture_153909.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:BD420408277ACF26B7B51B472E67EE03C9A6907A
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153910.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153910.jpgsave_picture_153910.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:E9C0DCE4F849760882860A9279765633C6F7C9C3
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153911.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153911.jpgsave_picture_153911.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ QuarkXPress 2024 20.0.57094 (x64) Portable by 7997 [Multi/Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153912.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153912.jpgsave_picture_153912.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ magnet:?xt=urn:btih:E0B47AD16191B5CB2FA708CDE297E43B93679E65
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153913.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153913.jpgsave_picture_153913.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ magnet:?xt=urn:btih:E4EF0F60FCD9B54A8C72A0FB5B82DE365AF24325
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153914.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153914.jpgsave_picture_153914.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Lynda.com | Изучение ECMAScript 6 / Learning ECMAScript 6 (2017) PCRec [
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153915.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153915.jpgsave_picture_153915.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ magnet:?xt=urn:btih:DB8B397D74E8029929A03472B156C3A1B289B480
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153916.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153916.jpgsave_picture_153916.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ One Room: Third Season | Из одной комнаты [ТВ-3] [2020, TV, 12] 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153917.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153917.jpgsave_picture_153917.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ VA - Workout Music Perfect Playlist (2019) [FLAC|Lossless|WEB-DL|tracks] <Balear
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153918.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153918.jpgsave_picture_153918.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ PotPlayer 231113 (1.7.22038) Stable RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153919.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153919.jpgsave_picture_153919.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ magnet:?xt=urn:btih:A3D4C3CE848D51826D007D9F61D8FF96B3736BFB
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153920.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153920.jpgsave_picture_153920.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:AB59177227F8231814C4B88F41BC0B784FA91FEA
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153921.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153921.jpgsave_picture_153921.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ magnet:?xt=urn:btih:DFD4AA8B817FC8BD37B5E185C01E2E63B1244A35
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153922.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153922.jpgsave_picture_153922.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ magnet:?xt=urn:btih:4917B9FAFCE21EC67506C74ADFCFC39A99B0CE36
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153923.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153923.jpgsave_picture_153923.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Boom Library - JET - FLY BYS [WAV]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153924.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153924.jpgsave_picture_153924.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Tape Five - The Roaring 2020s (2019) [FLAC|Lossless|image + .cue] <Nu-Jazz, Elec
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153925.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153925.jpgsave_picture_153925.jpg" />
 </div>
 
 

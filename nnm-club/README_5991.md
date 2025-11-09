@@ -6,7 +6,7 @@ Opera GX 102.0.4880.55 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188542.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188542.jpgsave_picture_188542.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Jerky Dirt - Chirality (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Psych, 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188543.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188543.jpgsave_picture_188543.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Rage of Angels - Rage of Angels (1989) [WavPack|32/192|image + .cue|Vinyl-Rip] <
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188544.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188544.jpgsave_picture_188544.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Eyes Wide Open - Through Life and Death (2022) Deluxe Edition [FLAC|Lossless|WEB
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188545.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188545.jpgsave_picture_188545.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ magnet:?xt=urn:btih:8E8BDD5A5CF43695190ED75B29483BB38204B623
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188546.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188546.jpgsave_picture_188546.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Hydranaut - 2 Albums (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock'n'Roll, Ps
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188547.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188547.jpgsave_picture_188547.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ V.A. - Beach Bar Chill Grooves, Vol. 3 (2023) [FLAC|Lossless|WEB-DL|tracks] <Lou
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188548.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188548.jpgsave_picture_188548.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ magnet:?xt=urn:btih:5B0A8DF6CEBFF3FD784541E70B1B1ED5DD7C6A82
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188549.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188549.jpgsave_picture_188549.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Pieces Of Molly - Pieces Of Molly (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188550.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188550.jpgsave_picture_188550.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Feleth - 2 Albums (2020, 2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death, Doo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188551.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188551.jpgsave_picture_188551.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Carly Simon - These Are The Good Old Days: The Carly Simon & Jac Holzman Story (
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188552.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188552.jpgsave_picture_188552.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ In Grief - An Eternity of Misery (2022) [FLAC|Lossless|WEB-DL|tracks] <Death, Do
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188553.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188553.jpgsave_picture_188553.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ VA - Nothing But...Ibiza Closing Party 2023 Deep House (2023) [MP3|320 Kbps] <Ho
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188554.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188554.jpgsave_picture_188554.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ magnet:?xt=urn:btih:A89CFA6653CA662584058A14145CAAA09C69C2EE
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188555.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188555.jpgsave_picture_188555.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Innerforce - Arcadia (2022) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188556.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188556.jpgsave_picture_188556.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ magnet:?xt=urn:btih:1642F500E4DD58630CB9EC08EDAFAA21C11FEC95
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188557.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188557.jpgsave_picture_188557.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Void Cruiser - 3 Albums (2015-2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Stoner 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188558.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188558.jpgsave_picture_188558.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ Deadeye Navigator - Retronoid (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188559.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188559.jpgsave_picture_188559.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ In.Si.Dia - Di luce e d'aria (2022) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188560.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188560.jpgsave_picture_188560.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Monsters Flesh - Black Magic (2022) [FLAC|Lossless|WEB-DL|tracks] <Doom, Stoner,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188561.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188561.jpgsave_picture_188561.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ VA - Ibiza Closing Party 2023 Deep House (2023) [MP3|320 Kbps] <House, Deep Hous
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188562.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188562.jpgsave_picture_188562.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Demons & Wizards (Blind Guardian; Iced Earth) - Studio Albums (3 releases) (2000
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188563.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188563.jpgsave_picture_188563.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Windows 11 16in1 +/- [x86] Office 2019 by SmokieBlahBlah 2022.11.13 [Ru/En]
 >>11
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188564.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188564.jpgsave_picture_188564.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ PDF Extra: сканер и редактор 10.5.2136 Lite-Mod by Number one' [R
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188565.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188565.jpgsave_picture_188565.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ magnet:?xt=urn:btih:CF06E0C38F9F27384DCF07850B385A5A14EEB9A7
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188567.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188567.jpgsave_picture_188567.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ Windows 10 Enterprise LTSC x64 Micro 21H2 build 19044.2251 by Zosma [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188568.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188568.jpgsave_picture_188568.jpg" />
 </div>
 
 

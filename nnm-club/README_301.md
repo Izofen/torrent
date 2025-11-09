@@ -6,7 +6,7 @@
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7915.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7915.jpgsave_picture_7915.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Lost in Random: The Eternal Die (2025) [Ru/Multi] (29915/dlc) Repack Let'sРlay 
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7916.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7916.jpgsave_picture_7916.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Uplink OS (2021) [Ru] (21.04) Mod/Русификатор kesha4
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7917.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7917.jpgsave_picture_7917.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:E90D2B8FE710AEAA746844590DF6F0E83BA30591
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7918.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7918.jpgsave_picture_7918.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ GPU-Z 2.68.0 RePack by druc [Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7919.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7919.jpgsave_picture_7919.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ RAM Saver Professional 25.8.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7920.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7920.jpgsave_picture_7920.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:21D1CD2CE983C8447F37E981B7993962DD6A7904
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7921.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7921.jpgsave_picture_7921.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:6DB8E8262FC6DD419539B88ED0D5D952C6D9DB01
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7922.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7922.jpgsave_picture_7922.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ Adobe Acrobat Pro 2025.001.20623 (x86/x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7923.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7923.jpgsave_picture_7923.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:66CCF757EE8E5DE3278ABB6493A09C5F8B913BE4
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7924.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7924.jpgsave_picture_7924.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:2427A0F04F871F6AAB5684C22A9661F3AD67E1F6
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7925.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7925.jpgsave_picture_7925.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ WinTools.net Premium 25.9.1 Premium RePack (& Portable) by elchupacabra [Multi/R
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7926.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7926.jpgsave_picture_7926.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ magnet:?xt=urn:btih:B84815AD2CCD80D1BEBF7905909B11E9A555775F
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7927.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7927.jpgsave_picture_7927.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ magnet:?xt=urn:btih:967E62BF7C3F43F5662FAC9F4F81E8A1BC6FF917
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7928.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7928.jpgsave_picture_7928.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Adobe Media Encoder 2025 25.4.0.90 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7929.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7929.jpgsave_picture_7929.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ magnet:?xt=urn:btih:FC05C565F94B381633CA4A6756AE1AE5E71CB8D8
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7930.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7930.jpgsave_picture_7930.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ BROK the InvestiGator (2022) [Ru/Multi] (1.5.3/dlc) Repack Let'sРlay [Deluxe Ed
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7931.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7931.jpgsave_picture_7931.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ magnet:?xt=urn:btih:D80E9B4663D472151823D2BA95B30FD27E44F6B1
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7932.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7932.jpgsave_picture_7932.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ magnet:?xt=urn:btih:6F8C165FEDD22BD1015CB98CB4FE0133D68EF034
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7934.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7934.jpgsave_picture_7934.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Echoes of the End (2025) [Ru/Multi] (Build 19563242) Repack seleZen
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7935.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7935.jpgsave_picture_7935.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ magnet:?xt=urn:btih:6213031949708B61FD6B63EC6540D56E7296F887
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7936.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7936.jpgsave_picture_7936.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ magnet:?xt=urn:btih:53B7D73D3CB85A3111BEF04F38506EFB30535E95
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7937.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7937.jpgsave_picture_7937.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Adobe Premiere Pro 2025 25.4.0.99 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7938.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7938.jpgsave_picture_7938.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ magnet:?xt=urn:btih:9354279DA4437D74DC2493B8CD399A9154E931C5
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7939.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7939.jpgsave_picture_7939.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Kulebra and the Souls of Limbo (2025) [Multi] (1.1.5) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7940.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7940.jpgsave_picture_7940.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ magnet:?xt=urn:btih:C72D87B63C9D602B6964BB3EA32B2F3181C30403
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7941.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7941.jpgsave_picture_7941.jpg" />
 </div>
 
 

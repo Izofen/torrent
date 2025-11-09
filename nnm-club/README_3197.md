@@ -6,7 +6,7 @@ Matt Mitchell - Zealous Angles (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103462.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103462.jpgsave_picture_103462.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Kris Davis Trio - Run the Gauntlet (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <C
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103463.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103463.jpgsave_picture_103463.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Mark Hartsuch - India Jazz Casual (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Ja
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103464.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103464.jpgsave_picture_103464.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:E5269A82A8FDDE8F623B78CE3382AD766C633B40
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103465.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103465.jpgsave_picture_103465.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Sloper - Changing Colors (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103466.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103466.jpgsave_picture_103466.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ magnet:?xt=urn:btih:29588CD7989FEB44F39BD838901EDB63B64CCA9B
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103467.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103467.jpgsave_picture_103467.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ XXi - The Hard Part About Growing Up (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103468.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103468.jpgsave_picture_103468.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Terry Marshall And Friends - Living The Blues (2024) [FLAC 24/48|Lossless|WEB-DL
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103469.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103469.jpgsave_picture_103469.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Aaron Parks - Little Big III (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103470.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103470.jpgsave_picture_103470.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ magnet:?xt=urn:btih:FCCF7087EDC49C44F82446D8E085DBAB82671FE3
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103471.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103471.jpgsave_picture_103471.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Mariama Ndure - Rituals (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Vocal Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103472.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103472.jpgsave_picture_103472.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Nitrogods - Valley Of The Gods (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Heavy
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103473.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103473.jpgsave_picture_103473.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ The C.Zek Band - Agarthi (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103474.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103474.jpgsave_picture_103474.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Roy Waade - Playground (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz Fusion
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103475.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103475.jpgsave_picture_103475.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Charles Mingus - Incarnations (1960) 2024, Candid [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103476.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103476.jpgsave_picture_103476.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ magnet:?xt=urn:btih:D18BD3AFC397C89A2AF83F7729743284C60FA2A2
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103477.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103477.jpgsave_picture_103477.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Bunkiman - Electro Swing Festival (2024) [FLAC|Lossless|WEB-DL|tracks] <Electro 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103478.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103478.jpgsave_picture_103478.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ VA - Interplay ADE 2024 (Extended DJ Mixes) (2024) [MP3|320 Kbps] <Trance, Progr
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103479.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103479.jpgsave_picture_103479.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ Zooloo / The Seaweeds - Black Pearls (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103480.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103480.jpgsave_picture_103480.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Lankester Merrin - Dark Mother's Child (2024) [FLAC|Lossless|WEB-DL|tracks] <Mel
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103481.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103481.jpgsave_picture_103481.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Casandra's Crossing - Garden Of Earthly Delights (2024) [FLAC|Lossless|WEB-DL|tr
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103482.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103482.jpgsave_picture_103482.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ VA - Jazz For Halloween (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103483.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103483.jpgsave_picture_103483.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Mary Coughlan - Repeat Rewind (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blue
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103484.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103484.jpgsave_picture_103484.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Todd Partridge - Desert Fox Blues (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Bl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103485.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103485.jpgsave_picture_103485.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Nitrogods - Valley Of The Gods (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103486.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103486.jpgsave_picture_103486.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ magnet:?xt=urn:btih:EFB824A0BBDD6BB1617858B406673772276AC3EF
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103487.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103487.jpgsave_picture_103487.jpg" />
 </div>
 
 

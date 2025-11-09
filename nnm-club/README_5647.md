@@ -6,7 +6,7 @@
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173838.jpgsave_picture_173838.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:03701A0884EE3B2797C16A16825E2684D73423CD
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173839.jpgsave_picture_173839.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Wondershare PDFelement 10.1.1.2495 RePack by elchupacabra + OCR Plugin [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173841.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173841.jpgsave_picture_173841.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ VA - Digital Society Recordings 2015 - The Yearmix (Mixed by Cold Rush) (2015) [
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173842.jpgsave_picture_173842.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:4F62A6F8F1596E51C0CFD9286E154D7F89D42A62
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173843.jpgsave_picture_173843.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:C703D3E450AA83ABBF95914D345EBBF1B3CD61A0
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_173844.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_173844.jpgsave_picture_173844.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:92D993107FAA7614CA370A697B9B6B50005701A2
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173845.jpgsave_picture_173845.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Lee Abraham - Harmony-Synchronicity (2020) [FLAC|Lossless|WEB-DL|tracks] <Progre
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173846.jpgsave_picture_173846.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:8E6C9DAFCBADA39D88B19D28F67FBEFAC5FD1CC9
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173847.jpgsave_picture_173847.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ Kings Crown - Closer To The Truth (2023) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173849.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173849.jpgsave_picture_173849.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ IObit Smart Defrag Pro 5.8.0.1276 RePack (& Portable) by TryRooM  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173850.jpgsave_picture_173850.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ magnet:?xt=urn:btih:93DC7919B09B11F7E60027F75A31B43C6AC478FC
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173851.jpgsave_picture_173851.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ magnet:?xt=urn:btih:A67952C53C73F20E6D64BDDE1BEABC96AB1FFB9D
 >>Детские (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173852.jpgsave_picture_173852.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:1E66ECAFC6340493A267185F442A9411F4997DD4
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173853.jpgsave_picture_173853.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ magnet:?xt=urn:btih:C0A6F03A66F4E35446BE75BDA4E5AB029B99F39B
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173854.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173854.jpgsave_picture_173854.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ magnet:?xt=urn:btih:07308C3A8042F1ADE956478F690F42EE93B13981
 >>Мобильное Видео
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173855.jpgsave_picture_173855.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ VA - The Forest Chill Lounge, Vol. 15 (2019) [AAC|~314 Kbps] <Chillout, Lounge, 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173856.jpgsave_picture_173856.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ Air Explorer Pro 2.1.0 Portable by FoxxApp [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173858.jpgsave_picture_173858.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ C.C.Catch - The Best Of C.C. Catch (2000) 3 CD [OGG Vorbis|480 Kbps] <Electronic
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_173859.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_173859.jpgsave_picture_173859.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ Luminar Neo 1.14.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173860.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173860.jpgsave_picture_173860.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ Antivirus Removal Tool 2021.12 (v.1) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173861.jpgsave_picture_173861.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ magnet:?xt=urn:btih:58DBCDE9D151633EDCAEF8700B4178BEC48FE574
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173862.jpgsave_picture_173862.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ magnet:?xt=urn:btih:37524E08EE21CC9B469929F8582C7E4BA4B9DCED
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173863.jpgsave_picture_173863.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ magnet:?xt=urn:btih:B1650CBC2297A12DEA8B3097A430A116829D892B
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173864.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173864.jpgsave_picture_173864.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ magnet:?xt=urn:btih:DED2EF7A4DE1AA3B69965892FDA67444FB4849A9
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173865.jpgsave_picture_173865.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ magnet:?xt=urn:btih:D07B97AD8998FC478A7B7B9FF9046D1652EB2585
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173867.jpgsave_picture_173867.jpg" />
 </div>
 
 

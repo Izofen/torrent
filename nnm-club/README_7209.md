@@ -6,7 +6,7 @@
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246542.jpgsave_picture_246542.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:4A0683F1A574F290E361EEC417161CFBF8B4AA79
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246546.jpgsave_picture_246546.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ magnet:?xt=urn:btih:218E02CB9D22F08278096035D97F6D3C818A74F7
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246549.jpgsave_picture_246549.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ magnet:?xt=urn:btih:995E1239F5463289979FA3F70E6A27ED77D368A1
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246552.jpgsave_picture_246552.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ magnet:?xt=urn:btih:AA5166E1D8E1443CA090FC55DDADD08C1B59F084
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246553.jpgsave_picture_246553.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Scorpions - Final Sting Live in Челябинск (2012) [MP3|256 кб/с]<Hard
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246559.jpgsave_picture_246559.jpg" />
 </div>
 
 
@@ -172,7 +172,7 @@ magnet:?xt=urn:btih:DF3AECCD7EC007B9A8F79C56507FA78869F6F1AE
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246562.jpgsave_picture_246562.jpg" />
 </div>
 
 
@@ -196,7 +196,7 @@ Secrets of the Dark 2: Eclipse Mountain Collector's Edition (P) [En] 2012
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246568.jpgsave_picture_246568.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ magnet:?xt=urn:btih:8A06AC7B3E85A9BBA3958706D4ECF12C58C9DA80
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246575.jpgsave_picture_246575.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ magnet:?xt=urn:btih:6F6405AF0DBF89F3DDB68B925C5535E94A7C4F2B
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246587.jpgsave_picture_246587.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ magnet:?xt=urn:btih:48ED7A7FB4E929E3631E2DCEB19B5B8F8AEE968E
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246591.jpgsave_picture_246591.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ magnet:?xt=urn:btih:276B2049090D29ACFCFB63ACAAE5D714ACB068AD
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246593.jpgsave_picture_246593.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ magnet:?xt=urn:btih:62C3CF7E5F32D3ED3E4F6D5BDF63619B43B8DEF9
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246597.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246597.jpgsave_picture_246597.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ magnet:?xt=urn:btih:1FC4F3DE74C05A958614B7729D5B24DF0248F8F2
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246603.jpgsave_picture_246603.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Abandoned: Chestnut Lodge Asylum / Позабытая дурка. Каштанк
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246604.jpgsave_picture_246604.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ magnet:?xt=urn:btih:9967ED98E6777684644C0210D78DF81F73B43BD7
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246611.jpgsave_picture_246611.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ magnet:?xt=urn:btih:2D2AB0DBC9CA799C9DCAFD0692809E55D46C8CE0
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246612.jpgsave_picture_246612.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ magnet:?xt=urn:btih:03A9104FFD72E3867ACC8A7D13AFD82FD219A5D7
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246614.jpgsave_picture_246614.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ magnet:?xt=urn:btih:CB5A7C1B499352E92812BB6555CFDF108A1B96E1
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246621.jpgsave_picture_246621.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ magnet:?xt=urn:btih:4865AA2E862D5193FAECE6391189229D3FBAF7F2
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246624.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246624.jpgsave_picture_246624.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ magnet:?xt=urn:btih:22E95EAA60CDBC99C661A03BA18A31077550913B
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246625.jpgsave_picture_246625.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ magnet:?xt=urn:btih:53B1399ECC9AC8ABBDDB8BA9C4DA237112255A8F
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246630.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246630.jpgsave_picture_246630.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ magnet:?xt=urn:btih:A705C28135CE22F1589A8F713D32CDCE33F872E0
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246634.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246634.jpgsave_picture_246634.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ magnet:?xt=urn:btih:49D867952A84A8F30C2F58EE976992432C6DB43B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246641.jpgsave_picture_246641.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ magnet:?xt=urn:btih:9B975D4661EB71FE7A434E5FD291D4892DB60A14
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246651.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246651.jpgsave_picture_246651.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ magnet:?xt=urn:btih:4C0B10BF27B54BC46AF83CA40036BE7FBCFBB506
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246652.jpgsave_picture_246652.jpg" />
 </div>
 
 

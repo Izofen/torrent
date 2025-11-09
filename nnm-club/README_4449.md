@@ -6,7 +6,7 @@ Grotto - Circle of Magi (2017) [MP3|320 Kbps] <Stoner Metal, Psychedelic Rock>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139070.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139070.jpgsave_picture_139070.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:6400591E41BA1E5DD92CA64BC19B2105D32F5D15
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139071.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139071.jpgsave_picture_139071.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:EA264D31558F2BDB9441D63984C8BE94F332FF41
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139072.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139072.jpgsave_picture_139072.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ Craset, TBFM - A Thousand Decays (2017) [FLAC|Lossless|WEB-DL|tracks] <Future Ga
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139074.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139074.jpgsave_picture_139074.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ SUMo Pro 4.2.5.298 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139075.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139075.jpgsave_picture_139075.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ magnet:?xt=urn:btih:68AA745B89B662DB06C1001AC05CB7DE39074085
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139078.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139078.jpgsave_picture_139078.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ magnet:?xt=urn:btih:66D2426D7D704E4361CE2999DC1073CECDDB2D2F
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139079.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139079.jpgsave_picture_139079.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:F5C5F46B306E322F9A0FDBC9E758983FD83777F5
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139080.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139080.jpgsave_picture_139080.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ IObit Driver Booster Pro 8.2.0.308 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139081.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139081.jpgsave_picture_139081.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ Bohren & Der Club Of Gore - Black Earth (2002) [FLAC|Lossless|tracks + .cue] <Fu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139083.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139083.jpgsave_picture_139083.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ magnet:?xt=urn:btih:26EF496B2397A40971C13568FC1A9BF9129A0516
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139084.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139084.jpgsave_picture_139084.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ magnet:?xt=urn:btih:E189821EDC4D637D9CF194971F10B6F3AD006222
 >>Релакс / Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139086.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139086.jpgsave_picture_139086.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ magnet:?xt=urn:btih:F7E5CC11F9A75A6E10690882E0F815FFD6C90853
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139087.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139087.jpgsave_picture_139087.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ magnet:?xt=urn:btih:DC0662433D8402040DB5A2E023C2A8353D4719F6
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139089.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139089.jpgsave_picture_139089.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ magnet:?xt=urn:btih:6B31164EB5C802EAA14512D892188AF4034423D8
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139090.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139090.jpgsave_picture_139090.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ magnet:?xt=urn:btih:A90089D872299621956A598A76FE81BF6342C26E
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139091.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139091.jpgsave_picture_139091.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ magnet:?xt=urn:btih:C710950E9252FD9777279C667DBFBA33D0026094
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139092.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139092.jpgsave_picture_139092.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ magnet:?xt=urn:btih:B55F8C12C6F6C3BBE72585EE088247FCB59543E8
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139094.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139094.jpgsave_picture_139094.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Grotto - Smokonomicon (2016) [MP3|320 Kbps] <Stoner Metal, Psychedelic Rock>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139096.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139096.jpgsave_picture_139096.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Icecream PDF Editor PRO 2.44 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139097.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139097.jpgsave_picture_139097.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ magnet:?xt=urn:btih:1B5FF7B2533DDC5CBDC4D8FD8F786C3A29B4C0FB
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139098.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139098.jpgsave_picture_139098.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ magnet:?xt=urn:btih:0C772D84DFD9789DC5F4A38C53462AE1734205A6
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139101.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139101.jpgsave_picture_139101.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ VA - 40 Jahre Disco - Ilja Richter Prasentiert (2011) 14 CD [FLAC|Lossless]<Disc
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139102.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139102.jpgsave_picture_139102.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ CD1:
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139103.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139103.jpgsave_picture_139103.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Mylene Farmer - Desobeissance (2018) Nouvelle Edition [APE|Lossless|image + .cue
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139104.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139104.jpgsave_picture_139104.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ magnet:?xt=urn:btih:D45F1ACF1965EE3383FBE9910717B30F62780A05
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139105.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139105.jpgsave_picture_139105.jpg" />
 </div>
 
 

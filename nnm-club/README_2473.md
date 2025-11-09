@@ -6,7 +6,7 @@ Styx - Circling From Above (2025) [FLAC|Lossless|image + .cue] <Progressive Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65048.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65048.jpgsave_picture_65048.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:F1174F96EE8EABD1EEA8A5EDED907C7655D37DAB
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65049.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65049.jpgsave_picture_65049.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:B1B8DDB852A550E30237E7544742893DC26DE82E
 >>Элементы (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65050.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65050.jpgsave_picture_65050.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:4DF481CECCE4E2A0838D2F4C699E1233E0B8F84B
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65051.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65051.jpgsave_picture_65051.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ magnet:?xt=urn:btih:8F63D73B98B6CACA9A97906B83A21C5159F7F539
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65052.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65052.jpgsave_picture_65052.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ magnet:?xt=urn:btih:68E6E8FB5659E6EB7B02726CEDC8D545312392BE
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65053.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65053.jpgsave_picture_65053.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ magnet:?xt=urn:btih:EEBA6CEE5CB6696988FA5BB85A4EF51031A919E2
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65054.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65054.jpgsave_picture_65054.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:805AAC2065759D64C714EE76A1BF4876CF4C1588
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65055.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65055.jpgsave_picture_65055.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:6344F0B2ED8C7B1CCBC53958FE3F49A4D5BAAA3D
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65056.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65056.jpgsave_picture_65056.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:2FE9CA624CD37C5D950A59394C3C87B36DCC98A3
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65057.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65057.jpgsave_picture_65057.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:5A54EB7667E7A83AB25685FA4269CD5BB0D45DE8
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65058.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65058.jpgsave_picture_65058.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:CA007B6CB89C2EA3E7B289929C06E4418A0CFC43
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65059.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65059.jpgsave_picture_65059.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Black - Wonderful Life (1987) 1st German Press [APE|Lossless|image + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65060.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65060.jpgsave_picture_65060.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ magnet:?xt=urn:btih:AC67BE73C321F822597C2BB720252FD735A8511D
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65061.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65061.jpgsave_picture_65061.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ magnet:?xt=urn:btih:97133A7F5CC9F36499CCE3D498681CDCFBF652DC
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65062.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65062.jpgsave_picture_65062.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ magnet:?xt=urn:btih:AC69BE6D2353F8D52F38BB7AC677C59C20A62342
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65063.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65063.jpgsave_picture_65063.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Mari Kattman - Year Of The Katt (2025) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, 
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65064.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65064.jpgsave_picture_65064.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ RAR Extractor - Unarchiver (vip) 6.5.1 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65065.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65065.jpgsave_picture_65065.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ magnet:?xt=urn:btih:97ED112FEA6E4BB9C6AA3918658DF9EC418516B7
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65066.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65066.jpgsave_picture_65066.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ VA - The Groove of Life (2025) [MP3|320 Kbps] <Blues, Rock, Folk>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65067.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65067.jpgsave_picture_65067.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ VA - National Pop Dance Music Vol.114 (2025) [MP3|320 Kbps] <Pop, Folk, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65068.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65068.jpgsave_picture_65068.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ magnet:?xt=urn:btih:3D1AEDA909FC5E3AF7E4CE4A9DA80B1519733F50
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65069.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65069.jpgsave_picture_65069.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ magnet:?xt=urn:btih:6013A948339B21CDF487E3AAF003694F3962016B
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65070.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65070.jpgsave_picture_65070.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ magnet:?xt=urn:btih:59785ED14AFB7D3597D9D760B3A22335579F174D
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65071.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65071.jpgsave_picture_65071.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Madonna - Madonna (1983) 1st German Press [APE|Lossless|image + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65072.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65072.jpgsave_picture_65072.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ Silent Circle - № 1 (1986) 1st German Press [APE|Lossless|image + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65073.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65073.jpgsave_picture_65073.jpg" />
 </div>
 
 

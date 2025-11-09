@@ -6,7 +6,7 @@
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148660.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148660.jpgsave_picture_148660.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:EDD4D8CF6662546D226F12CEFF9EE1020C77A666
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148661.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148661.jpgsave_picture_148661.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:A26E7C5EED27A4D90855739524FD3C14F03ED222
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148663.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148663.jpgsave_picture_148663.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:3ED2123808B1727BCAA596A9F60E05893E132E46
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148664.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148664.jpgsave_picture_148664.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:DB816579FAC72757A498D11C7A83C79E734FA502
 >>Старые Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148665.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148665.jpgsave_picture_148665.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:B9138F151CD1D6B4BD4228F0C29D52681779125B
 >>DailyTechInfo
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148666.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148666.jpgsave_picture_148666.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:B9138F151CD1D6B4BD4228F0C29D52681779125B
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148667.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148667.jpgsave_picture_148667.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ XYplorer 16.10.0200 RePack by Manshet [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148668.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148668.jpgsave_picture_148668.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:0160CE21948C0A28AAB9C4B27CE8A71C374C9D78
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148669.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148669.jpgsave_picture_148669.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ magnet:?xt=urn:btih:0160CE21948C0A28AAB9C4B27CE8A71C374C9D78
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148671.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148671.jpgsave_picture_148671.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:B35ABA56742CFD11DB96BA33927F0B664DCDDAB4
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148673.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148673.jpgsave_picture_148673.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ VA - A Wave Of Positivity: Pop Dance Project (2021) [MP3|320 Kbps] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148674.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148674.jpgsave_picture_148674.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:C354E1E07B37CC30D6E348D951E546F8309C715A
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148675.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148675.jpgsave_picture_148675.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:7EC4F8102BBD4EFFCE8A53E2917352F5E7B5C5A5
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148676.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148676.jpgsave_picture_148676.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ KX Studio 14.04.2 (Мультимедийная рабочая станция) [
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148677.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148677.jpgsave_picture_148677.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:B3D4AC820812E1A26153AD830CFE9148EF65B92D
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148678.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148678.jpgsave_picture_148678.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Kpoxa Tweaker 1.4 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148679.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148679.jpgsave_picture_148679.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ VA - Best Music of 2018 (2018) [MP3|320 Kbps] <Pop, Hip Hop, Alternative, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148680.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148680.jpgsave_picture_148680.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ magnet:?xt=urn:btih:E63886D0789D2A18CCBBE81EB2BD3493AC8BA034
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148681.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148681.jpgsave_picture_148681.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ magnet:?xt=urn:btih:C4DED8E24D07E36B8C8E60E058209931C8E16507
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148683.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148683.jpgsave_picture_148683.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ VA - Best White Party: EDM & Electro House (2021) [MP3|320 Kbps] <Club, Dance, H
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148684.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148684.jpgsave_picture_148684.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ magnet:?xt=urn:btih:F231AFEF2B6B2ACA49F622524763BCAB2A9E7F5A
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148685.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148685.jpgsave_picture_148685.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ magnet:?xt=urn:btih:D4600C8D89C28C1E197186CB4534FA84308F3179
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148686.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148686.jpgsave_picture_148686.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ magnet:?xt=urn:btih:7286B4A488A9F09BBFB929D3FE74FD7FE1984FF3
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148687.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148687.jpgsave_picture_148687.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ VA - Secret Mission: Jackin House Party (2021) [MP3|320 Kbps] <Jackin, Funky, Di
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148688.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148688.jpgsave_picture_148688.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ Cozy Cole & Savina - Big Band Jazz And All That Gentle Jazz: Dual Performance 19
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148689.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148689.jpgsave_picture_148689.jpg" />
 </div>
 
 

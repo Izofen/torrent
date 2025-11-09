@@ -6,7 +6,7 @@
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57437.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57437.jpgsave_picture_57437.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Product University, Аркадий Морейнис, Алексей Черняк
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57438.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57438.jpgsave_picture_57438.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Microsoft запретила полиции США использовать ее
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57439.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57439.jpgsave_picture_57439.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ Microsoft запретила полиции США использовать ее
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57440.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57440.jpgsave_picture_57440.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ Tales from Candleforth (2024) [Multi] (1.08) License GOG
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57441.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57441.jpgsave_picture_57441.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ magnet:?xt=urn:btih:B6C9D91ADDDF07A3ED2260E9FF7967B8B6C68A66
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57442.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57442.jpgsave_picture_57442.jpg" />
 </div>
 
 
@@ -161,7 +161,7 @@ Topaz Mask AI 1.3.9 RePack (& Portable) by elchupacabra [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57443.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57443.jpgsave_picture_57443.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ magnet:?xt=urn:btih:2830E2C7797D1033C82588D0FDCC65F86C45762B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57444.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57444.jpgsave_picture_57444.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ magnet:?xt=urn:btih:2830E2C7797D1033C82588D0FDCC65F86C45762B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57445.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57445.jpgsave_picture_57445.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ magnet:?xt=urn:btih:2B96775AAAC2B68A3DA43FDDA1EBF768888FBA85
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57446.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57446.jpgsave_picture_57446.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ Forester v1.5.5 For Cinema 4D R18-2024 Win 1.5.5 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57447.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57447.jpgsave_picture_57447.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ Sound Normalizer 8.7 (06.05.2024) RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57448.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57448.jpgsave_picture_57448.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ magnet:?xt=urn:btih:8F05DC0434EE9AEC1A312726603FC47332E0D15C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57449.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57449.jpgsave_picture_57449.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ magnet:?xt=urn:btih:C9EE9D6E4E68CEE34BA3E87DA19604229E32D2A5
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57450.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57450.jpgsave_picture_57450.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ magnet:?xt=urn:btih:8350B1DF17765B3C929D119A8CE4FDDF19263F38
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57451.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57451.jpgsave_picture_57451.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Girls und Panzer: Saishuushou | Girls und Panzer das Final | Девушки и �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57452.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57452.jpgsave_picture_57452.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ magnet:?xt=urn:btih:76C838E887036782C617611A97EEFCAC34AB65B1
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57453.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57453.jpgsave_picture_57453.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ magnet:?xt=urn:btih:A833FF3B37F6B076B910F8F68EA78FE542C81D86
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57454.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57454.jpgsave_picture_57454.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ System software for Windows v.3.5.9 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57455.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57455.jpgsave_picture_57455.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ magnet:?xt=urn:btih:83565D719B9483219F863EC6D50087C27368ED93
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57456.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57456.jpgsave_picture_57456.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ magnet:?xt=urn:btih:7ADAB2E29728FF8A6AD2A1A6A2F3149BA35DAAE3
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57457.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57457.jpgsave_picture_57457.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ magnet:?xt=urn:btih:84CA8C96F83C064E76B566F1916501E66748AE86
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57458.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57458.jpgsave_picture_57458.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ magnet:?xt=urn:btih:CADCA7D31944A9A0A6C297DC80C1F79FE78C60B5
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57459.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57459.jpgsave_picture_57459.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ magnet:?xt=urn:btih:E215FC119E844066669FA3BC2847AB8A9A5032CC
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57460.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57460.jpgsave_picture_57460.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Office Installer & Office Installer+ 1.15 by Ratiborus [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57461.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57461.jpgsave_picture_57461.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ magnet:?xt=urn:btih:FBF285AE29C8E96BAF4BB29517B8D03CDCFBF8F7
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57462.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57462.jpgsave_picture_57462.jpg" />
 </div>
 
 

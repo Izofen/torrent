@@ -6,7 +6,7 @@
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101529.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101529.jpgsave_picture_101529.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Scarred For Life - Scarred For Life (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard R
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101530.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101530.jpgsave_picture_101530.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Tori Amos - Diving Deep Live (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101531.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101531.jpgsave_picture_101531.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ VA - Pretty Little Deep-House Friends, Vol. 4 (2024) [MP3|320 Kbps] <House, Deep
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101532.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101532.jpgsave_picture_101532.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Marvin Gaye - Greatest Hits Live (1974) Remaster, 2024, Cult Legends [MP3|320 Kb
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101533.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101533.jpgsave_picture_101533.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ magnet:?xt=urn:btih:66C52C7C2C61D2B8E5DFB547D9D20E7488CBE2F9
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101534.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101534.jpgsave_picture_101534.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ magnet:?xt=urn:btih:158E13EA3D1CDDCA830F75966AAB8498DF669A07
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101535.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101535.jpgsave_picture_101535.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Jethro Tull - The Jethro Tull Christmas Album (Fresh Snow At Christmas) (2024 Re
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101536.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101536.jpgsave_picture_101536.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ ZOYA - Eternity (2024) [MP3|320 Kbps] <Trance, Progressive, Electronic>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101537.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101537.jpgsave_picture_101537.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Seefeel - Squared Roots (2024) EP [FLAC|Lossless|Web-DL|tracks] <IDM, Ambient, S
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101538.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101538.jpgsave_picture_101538.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Swallow The Sun - Shining (2024) [FLAC|Lossless|image + .cue] <Gothic, Doom Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101539.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101539.jpgsave_picture_101539.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:D8551C2E2A6FD79D414D21CDEBF993A1BDEA31AD
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101540.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101540.jpgsave_picture_101540.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Babbba - Witty affair (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Smooth Jazz, S
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101541.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101541.jpgsave_picture_101541.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Markus Schulz - Global DJ Broadcast (Global DJ Broadcast World Tour, Stereo Mont
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101542.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101542.jpgsave_picture_101542.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ India.Arie - Acoustic Soul (2001) CD, Album, Club Edition [FLAC|Lossless|tracks 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101543.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101543.jpgsave_picture_101543.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Laufey - A Night At The Symphony: Hollywood Bowl (Live at the Hollywood Bowl) (2
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101544.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101544.jpgsave_picture_101544.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ magnet:?xt=urn:btih:B634893E8A465BCC0B5C2B9AD0BFA19B3297F973
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101545.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101545.jpgsave_picture_101545.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ magnet:?xt=urn:btih:6ACB4D2582E30DF2FF09764363D216EC13803E4C
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101546.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101546.jpgsave_picture_101546.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ Seekae - The Worry (2014) 10th Anniversary Edition, 2024, Future Classic [FLAC|L
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101547.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101547.jpgsave_picture_101547.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Saltatio Mortis - Finsterwacht (Feuer und Erz Edition) (2024) [FLAC|Lossless|WEB
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101548.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101548.jpgsave_picture_101548.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Coldplay - A Sky Full Of Stars (2014) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bit] 
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101549.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101549.jpgsave_picture_101549.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ AzizRush - War (2024) [MP3|320 Kbps] <Electronic>
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101550.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101550.jpgsave_picture_101550.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ magnet:?xt=urn:btih:9D203BBEEE87686C3B97BB47486B24457A222CE9
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101551.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101551.jpgsave_picture_101551.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ magnet:?xt=urn:btih:E134D63DAF47C833636C82C863A33B56282EA929
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101552.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101552.jpgsave_picture_101552.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ Alicia Keys feat. Kendrick Lamar, Pharrell Williams - It's On Again (2014) WEB-D
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101553.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101553.jpgsave_picture_101553.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ Photo Lab PRO v3.13.39 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101554.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101554.jpgsave_picture_101554.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9287.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9287.jpgsave_picture_9287.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:CA95A89C3DF04D91D12BC778DF432E750C53FCFB
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9288.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9288.jpgsave_picture_9288.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:88C0AAE039E0BDCD134134B34189A32F8B37A2A1
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9289.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9289.jpgsave_picture_9289.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Copycat (2024) [Ru/Multi] (1.0.6) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9290.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9290.jpgsave_picture_9290.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:00CDE286B32312B543CE9C9AB466F445717A4241
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9291.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9291.jpgsave_picture_9291.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Pink Floyd - История легенды 1 (2017) DVDRip [H.264/1080p] [VO, ha
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9292.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9292.jpgsave_picture_9292.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:DBDF07DBDBCF7E3F2EABEACFF278429B0B5EE7D4
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9293.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9293.jpgsave_picture_9293.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Adobe Illustrator 2025 29.7.1.8 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9294.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9294.jpgsave_picture_9294.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:DDD6A1AAA947A1F75CD136BC5B461053F8AA9F41
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9295.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9295.jpgsave_picture_9295.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Pink Floyd - История легенды 3 (2017) DVDRip [H.264/1080p] [VO, ha
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9296.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9296.jpgsave_picture_9296.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ Pink Floyd - История легенды 2 (2017) DVDRip [H.264/1080p] [VO, ha
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9297.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9297.jpgsave_picture_9297.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ magnet:?xt=urn:btih:3CC902598ED9FE42CB8C9434902A73B5A82B98E1
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9298.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9298.jpgsave_picture_9298.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ magnet:?xt=urn:btih:01FB0E864088007D66FD57B66452EF74B5E79564
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9299.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9299.jpgsave_picture_9299.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Rail Route (2024) [Ru/Multi] (2.3.22/dlc) Repack FitGirl [Supporter Bundle]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9300.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9300.jpgsave_picture_9300.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Yesdress nostress, Анастасия Кульбацкая | Самый крут
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9301.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9301.jpgsave_picture_9301.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ magnet:?xt=urn:btih:6A63B73BFC92269C0FB04D394BBCBF889162A07A
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9302.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9302.jpgsave_picture_9302.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ magnet:?xt=urn:btih:D95AE52B2284A50D29F7B75DD23AB5BEBCA05F4A
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9303.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9303.jpgsave_picture_9303.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ J. Stewart | Calculus, 8th edition (2016) [PDF] [En]
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9304.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9304.jpgsave_picture_9304.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ magnet:?xt=urn:btih:33E2A372D9BDFBBDCE90287B31F40DA2E4F65D44
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9305.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9305.jpgsave_picture_9305.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ magnet:?xt=urn:btih:D89D1C9EDEC320B6936FB4005B88685B9970E260
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9306.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9306.jpgsave_picture_9306.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ magnet:?xt=urn:btih:ED0B93E1995AF1531F5A228FA8E5A53B51A9E192
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9307.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9307.jpgsave_picture_9307.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ A.H. Robbins, W.C. Miller | Circuit Analysis: Theory and Practice (2012) [PDF] [
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9308.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9308.jpgsave_picture_9308.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ magnet:?xt=urn:btih:43069B4A4E55EB7A6BCF93382107E63A43EC795B
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9309.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9309.jpgsave_picture_9309.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ FireAlpaca 2.13.22 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9310.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9310.jpgsave_picture_9310.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ magnet:?xt=urn:btih:FC9654614D154B332322E35C39F40E370BAF393E
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9311.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9311.jpgsave_picture_9311.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ VA - Music News For Forum vol.121 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9312.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9312.jpgsave_picture_9312.jpg" />
 </div>
 
 

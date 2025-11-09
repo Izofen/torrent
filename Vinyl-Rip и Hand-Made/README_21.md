@@ -6,7 +6,7 @@ Ayreon - Into The Electric Castle (A Space Opera) (1998) Released, 2018, Music T
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68791.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68791.jpgsave_picture_68791.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Ocean of Grief - Nightfall's Lament (2018) [FLAC|24/192|image + .cue|Vinyl-Rip] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68807.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68807.jpgsave_picture_68807.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Nightwish - Oceanborn (1998) Released, 2015, Spinefarm Records [FLAC|24/192|imag
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68838.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68838.jpgsave_picture_68838.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Nightwish - Angels Fall First (1997) Released, 2015, Spinefarm Records [FLAC|24/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68844.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68844.jpgsave_picture_68844.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Fallujah - Empyrean (2022) [FLAC|24/96|image + .cue|Vinyl-Rip] <Progressive, Tec
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68895.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68895.jpgsave_picture_68895.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Forsaken - Virtues of Sanctity (1993) (EP) [FLAC|24/192|image + .cue|Vinyl-Rip] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68896.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68896.jpgsave_picture_68896.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Forsaken - Tales of Doom and Woe (2010) (Split) [FLAC|24/96|image + .cue|Vinyl-R
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68897.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68897.jpgsave_picture_68897.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Hidden Intent - Studio Albums (4 releases) (2014-2025) hand made [restored, decl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68915.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68915.jpgsave_picture_68915.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Nephylim - Studio Albums (3 releases) (2015-2025) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68916.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68916.jpgsave_picture_68916.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Vortex - Drink Bat Blood (2010) Released, 2012, Metalizer Records [FLAC|24/192|i
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68917.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68917.jpgsave_picture_68917.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Nightwish - Imaginaerum (2011) [DSD128|24/44,1|tracks|Vinyl-Rip] <Symphonic Powe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68928.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68928.jpgsave_picture_68928.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ magnet:?xt=urn:btih:B4802CA441A8E1FAF968A5D7C585B7E8E28E4867
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68961.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68961.jpgsave_picture_68961.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Bestial Warlust - Storming Bestial Legions Live 1996 (2017) [FLAC|24/192|image +
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68964.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68964.jpgsave_picture_68964.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Disarmonia Mundi - Studio Albums (6 releases) (2001-2025) hand made [restored, d
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68973.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68973.jpgsave_picture_68973.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ High Spirits - Hard to Stop (2020) [FLAC|24/192|image + .cue|Vinyl-Rip] <Hard Ro
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69010.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69010.jpgsave_picture_69010.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ Accu§er (Accuser; ex-Breaker; ex-Scartribe) - Studio Albums (15 releases) (1985
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69011.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69011.jpgsave_picture_69011.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ magnet:?xt=urn:btih:8EAD40EA9348A5B6E42D04C7126F048D99681F89
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69015.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69015.jpgsave_picture_69015.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ Bestial Warlust - Blood & Valour (1995) Reissue, 2005, Black Ace Records [FLAC|2
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69016.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69016.jpgsave_picture_69016.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ Bat - Under the Crooked Claw (2024) [FLAC|24/192|image + .cue|Vinyl-Rip]<Heavy, 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69105.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69105.jpgsave_picture_69105.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ magnet:?xt=urn:btih:D5A288FA5F177452F98525446DCA667D3EB7DF3E
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69107.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69107.jpgsave_picture_69107.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ magnet:?xt=urn:btih:36D3E118E0EEDA51858FD9786C791EA073AB2626
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69109.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69109.jpgsave_picture_69109.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ The Bleeding (U.K.) - Studio Albums (4 releases) (2013-2023) hand made [restored
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69128.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69128.jpgsave_picture_69128.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ magnet:?xt=urn:btih:5F0AB573A9D22E875D2884DF5AD4A43741A36E1A
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69137.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69137.jpgsave_picture_69137.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ W.A.S.P. - The Last Command (1985) [DSD128|24/44,1|tracks|Vinyl-Rip] <Heavy Meta
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69139.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69139.jpgsave_picture_69139.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ Sentenced - The Funeral Album (2005) Reissue, 2016, Century Media [FLAC|24/96|tr
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69150.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69150.jpgsave_picture_69150.jpg" />
 </div>
 
 
@@ -677,7 +677,7 @@ Sentenced - Frozen (1998) Reissue, 2016, Century Media [FLAC|24/192|tracks|Vinyl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69169.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69169.jpgsave_picture_69169.jpg" />
 </div>
 
 

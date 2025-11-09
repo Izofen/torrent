@@ -6,7 +6,7 @@ Default Folder X 6.0 a7 Pre-Release [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235584.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235584.jpgsave_picture_235584.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Stigma - When Midnight Strikes (2008) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235585.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235585.jpgsave_picture_235585.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Udemy, Mateusz Wendowski | AAA Game 3D Character Art course Module 01 - Body (20
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235586.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235586.jpgsave_picture_235586.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:026366492265D8EDF6A006156CDDAD9533999AB6
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235587.jpgsave_picture_235587.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Fracturus - Versus the Void (2023) EP [FLAC|Lossless|WEB-DL|tracks] <Deathcore>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235588.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235588.jpgsave_picture_235588.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ John Fedchock NY Sextet - Into The Shadows (2020) Summit Records [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235589.jpgsave_picture_235589.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ Allavsoft Video Downloader Converter 3.23.4.7759 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235590.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235590.jpgsave_picture_235590.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ Spearhead - Decrowning The Irenarch (2007) [FLAC|Lossless|image + .cue] <Death M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235591.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235591.jpgsave_picture_235591.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ Mimestream 1.0.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235592.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235592.jpgsave_picture_235592.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ Andromida - Hellscape (2021) [MP3|320 Kbps] <Progressive Metal, Djent>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235593.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235593.jpgsave_picture_235593.jpg" />
 </div>
 
 
@@ -262,7 +262,7 @@ Adobe Media Encoder 2022 22.4.0.53 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235594.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235594.jpgsave_picture_235594.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ magnet:?xt=urn:btih:4D02298537A1177EC66721052A6AEDF6A4AF7D50
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235595.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235595.jpgsave_picture_235595.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ Joplin 2.10.18 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235596.jpgsave_picture_235596.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ dEMOTIONAL - Scandinavian Aftermath (2021) Deluxe Edition, 2023, Relapse Records
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235597.jpgsave_picture_235597.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ ISGHERURD MORTH - Hellrduk (2021) [FLAC|Lossless|Web-DL|tracks] <Avantgarde Blac
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235598.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235598.jpgsave_picture_235598.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ VA - Post Modern Lounge 2 (2021) [AAC|~321 Kbps] <Lounge, Nu Jazz, Easy Listenin
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235599.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235599.jpgsave_picture_235599.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ magnet:?xt=urn:btih:D05D300F51843636DF5EAD60F677E9890DC49364
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235600.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235600.jpgsave_picture_235600.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Udemy, Art Studio | Complete Blender Course for Beginners & Intermediate (2022) 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235601.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235601.jpgsave_picture_235601.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ magnet:?xt=urn:btih:03BB19794057EA926A493A1108A07738FF69AC72
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235602.jpgsave_picture_235602.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ magnet:?xt=urn:btih:B39BB619F1C7ACF19C93BBBC8EF34B68176870C5
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235603.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235603.jpgsave_picture_235603.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Oliver Nelson & Nobuo Hara - In Tokyo (1970) 2013, Columbia [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235604.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235604.jpgsave_picture_235604.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Woab - Для этого мира (2020) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235605.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235605.jpgsave_picture_235605.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Toledo Steel - Heading For The Fire (2021) [FLAC|Lossless|image + .cue] <Heavy M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235606.jpgsave_picture_235606.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Byron - The Omega Evangelion (2021) [FLAC|Lossless|WEB-DL|tracks] <Stoner Rock, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235607.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235607.jpgsave_picture_235607.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Autumnblaze - Welkin Shores Burning (2020) [FLAC|Lossless|image + .cue] <Gothic 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235608.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235608.jpgsave_picture_235608.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Google Chrome 113.0.5672.93 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235609.jpgsave_picture_235609.jpg" />
 </div>
 
 

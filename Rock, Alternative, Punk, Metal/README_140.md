@@ -6,7 +6,7 @@ Danger Silent - The Revival (2024) [MP3|320 Kbps] <Alternative Rock, Post Hardco
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110184.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110184.jpgsave_picture_110184.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Perseus - Into The Silence (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110202.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110202.jpgsave_picture_110202.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Eternal Breath - Road to Insanity (2024) [FLAC|Lossless|WEB-DL|tracks] <Power Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110205.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110205.jpgsave_picture_110205.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Blaze of Perdition - Upharsin (2024) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110211.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110211.jpgsave_picture_110211.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Wheel - Charismatic Leaders (2024) [MP3|320 Kbps] <Progressive Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110213.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110213.jpgsave_picture_110213.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ magnet:?xt=urn:btih:0D895AECC9FB083B626C4A0CEB729C1BCF2249C8
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110216.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110216.jpgsave_picture_110216.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Jolly Jackers - Welcome to the Grind (2024) [FLAC|Lossless|WEB-DL|tracks] <Celti
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110217.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110217.jpgsave_picture_110217.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Daath - The Deceivers (2024) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Melodic De
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110219.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110219.jpgsave_picture_110219.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Alicate - Heaven Tonight (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110223.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110223.jpgsave_picture_110223.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Ava Rane - Insanity (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110224.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110224.jpgsave_picture_110224.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ soundlea - Юность под землёй (2024) [MP3|320 Kbps] <Indie Rock, S
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110226.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110226.jpgsave_picture_110226.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Benke Bunker Band - Rulla Hatt (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110229.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110229.jpgsave_picture_110229.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:71C5A6DFF8C69B14C62B8A40790F1940632B0FA2
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110231.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110231.jpgsave_picture_110231.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Pirate Queen - Ghosts (2024) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Power Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110263.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110263.jpgsave_picture_110263.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Ozzy Osbourne - Live at Budokan (2002) [FLAC|Lossless|image + .cue] <Hard Rock, 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110269.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110269.jpgsave_picture_110269.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Gothminister - Pandemonium I-II (2022-2024) [MP3|320 Kbps] <Industrial Metal, Go
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110273.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110273.jpgsave_picture_110273.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Belore - Eastern Tales (2024) [FLAC|Lossless|WEB-DL|tracks] <Epic, Atmospheric B
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110287.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110287.jpgsave_picture_110287.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Exhorder - Defectum Omnium (2024) [FLAC|Lossless|image + .cue] <Thrash, Groove M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110288.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110288.jpgsave_picture_110288.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:3D49ECF806B2B26450FFC89926C8643E3ACA9BB0
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110301.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110301.jpgsave_picture_110301.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Ironsmith - Ironsmith (2024) [MP3|320 Kbps] <Rock, Blues>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110310.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110310.jpgsave_picture_110310.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ The Last Element - Act I: Find Me in the Shadows (2024) [FLAC|Lossless|WEB-DL|tr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110313.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110313.jpgsave_picture_110313.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Bad Marilyn - Eye Of The Snake (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110314.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110314.jpgsave_picture_110314.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Bathym - Into Darkness (1990) Demo, Reissue, 2023, Doomed to Obscurity Records [
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110352.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110352.jpgsave_picture_110352.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Mob Rules - Celebration Day - 30 Years Of Mob Rules (2024) [FLAC|Lossless|WEB-DL
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110357.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110357.jpgsave_picture_110357.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Gothminister - Pandemonium II: The Battle of the Underworlds (2024) [FLAC|Lossle
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110362.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110362.jpgsave_picture_110362.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ FM - Old Habits Die Hard (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock, AOR
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110383.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110383.jpgsave_picture_110383.jpg" />
 </div>
 
 

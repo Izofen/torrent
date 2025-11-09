@@ -6,7 +6,7 @@
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150022.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150022.jpgsave_picture_150022.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ The Whizkey Brothers & Sona MacDonald - Eine Hommage An Billie Holiday (2018) [M
 >>Jazz
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150023.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150023.jpgsave_picture_150023.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ The Riftbreaker (2021) [Ru/Multi] (1.50) License GOG
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150024.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150024.jpgsave_picture_150024.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Gif Recorder - Record Your Screen 1.0 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150026.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150026.jpgsave_picture_150026.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ Windows 10 Pro 21H2 Build 19044.1415 x64 by SanLex [Ru] (2021.12.19)
 >>9
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150027.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150027.jpgsave_picture_150027.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ magnet:?xt=urn:btih:35A64BF42FCC1463D2EADE688E4AB911AF52C0B9
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150028.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150028.jpgsave_picture_150028.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ magnet:?xt=urn:btih:5402F1CD4D97EF7A4E8BA84F887E056C943F9A95
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150030.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150030.jpgsave_picture_150030.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:E9C4D2ECD5EBB6C5805EFA3E502A31ED5CA8F74B
 >>Звездные войны / Star Wars (сериалы по франшизе)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150031.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150031.jpgsave_picture_150031.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Paw 3.0.14 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150032.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150032.jpgsave_picture_150032.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ magnet:?xt=urn:btih:984404A8AD7ECA243DE01194C23026277616A024
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150033.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150033.jpgsave_picture_150033.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ magnet:?xt=urn:btih:984404A8AD7ECA243DE01194C23026277616A024
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150034.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150034.jpgsave_picture_150034.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ magnet:?xt=urn:btih:58E4B6AEA473D82D00E81AB655DC242C5AC255D5
 >>Звездные войны / Star Wars (сериалы по франшизе)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150037.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150037.jpgsave_picture_150037.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ WinPE 10-8 Sergei Strelec (x86/x64/Native x86) 2021.12.20 [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150038.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150038.jpgsave_picture_150038.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ magnet:?xt=urn:btih:2058800A97BC09673218C41C03F03A85D5EBE130
 >>Религия (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150039.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150039.jpgsave_picture_150039.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ magnet:?xt=urn:btih:C9B57AF6962A652F553A2CA88F165D8B99E699CC
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150040.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150040.jpgsave_picture_150040.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ magnet:?xt=urn:btih:26AC50532854895F16648B272EEA8E35FF3A9FF0
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150042.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150042.jpgsave_picture_150042.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ magnet:?xt=urn:btih:70471E01BD8B7491C19AFB1B0682334D5D130F10
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150043.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150043.jpgsave_picture_150043.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Angry Birds [En] (L/3.0.0) 2011
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150044.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150044.jpgsave_picture_150044.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ magnet:?xt=urn:btih:EB28E6EC5C957BE0BDAD1123AD4A919F590EC18A
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150045.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150045.jpgsave_picture_150045.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ magnet:?xt=urn:btih:9187ED27611163EC85DC6FBADC66D1534CEECA6B
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150046.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150046.jpgsave_picture_150046.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ magnet:?xt=urn:btih:B1DF0E9FD9B02C8F4C55F3B3C858A446CF57F4F2
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150049.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150049.jpgsave_picture_150049.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ OpenVPN 2.6.8 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150050.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150050.jpgsave_picture_150050.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Acronis True Image 2021 Build 35860 BootCD [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150051.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150051.jpgsave_picture_150051.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ magnet:?xt=urn:btih:5D0709FDB871FF6B9748A3D8738DB1165334F6DA
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150052.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150052.jpgsave_picture_150052.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ magnet:?xt=urn:btih:B9C79CF6962E955BEE2CC5464F2400F3333B35B8
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150053.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150053.jpgsave_picture_150053.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Tooth and Tail (2017) [Ru/Multi] (1.8.1.0) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150054.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150054.jpgsave_picture_150054.jpg" />
 </div>
 
 

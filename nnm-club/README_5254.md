@@ -6,7 +6,7 @@ Vivaldi 6.4.3160.41 include standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163388.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163388.jpgsave_picture_163388.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:6DFD570A2B40DE0947EF1D6F94505D11782B0ABB
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163389.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163389.jpgsave_picture_163389.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:F1850D269B4EA5AE9BF6F14B5EE8FA97D3599FF7
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163390.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163390.jpgsave_picture_163390.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ Windows Server, Version 20H2 (10.0.19042.685) (Updated December 2020) - Ориг
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163391.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163391.jpgsave_picture_163391.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ Zoner Photo Studio X 19.2309.2.504 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163392.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163392.jpgsave_picture_163392.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ BioShock Infinite (2013) [Ru] (1.0) Unofficial [Русификатор]
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163393.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163393.jpgsave_picture_163393.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Zoner Photo Studio X 19.2309.2.504 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163394.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163394.jpgsave_picture_163394.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:D2F818B837B33F4C18992B4C0D1AC581164B985E
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163395.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163395.jpgsave_picture_163395.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:B4B47458D7CF9B3D0E980FEE65E0D215C2D7AD0A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163396.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163396.jpgsave_picture_163396.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Opera 82.0.4227.33 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163397.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163397.jpgsave_picture_163397.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Billy Merziotis ft Gary Moore Band & Irene Movia - All the things you are (2023)
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163398.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163398.jpgsave_picture_163398.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Odd Dimension - The Last Embrace To Humanity (2013) [FLAC|Lossless|image + .cue]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163399.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163399.jpgsave_picture_163399.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Biff Byford - School Of Hard Knocks (2020) [FLAC|Lossless|image + .cue] <Hard'n'
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163400.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163400.jpgsave_picture_163400.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:12DA895ADD8D14689E4F3224925C3621249003E0
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163401.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163401.jpgsave_picture_163401.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ HTML Academy | Онлайн-курс «Вёрстка email-рассылок» (
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163402.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163402.jpgsave_picture_163402.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ magnet:?xt=urn:btih:C6BAA895A79EC19935DC9457F9C7179D813AE690
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163403.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163403.jpgsave_picture_163403.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Bad Wolves - Die About It (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alt.Meta
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163404.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163404.jpgsave_picture_163404.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ CupHead v.1.2.4 (2019) [Multi/Ru] [macOS Native game]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163405.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163405.jpgsave_picture_163405.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ Sweet Hole - 2 Albums (2017-2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163406.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163406.jpgsave_picture_163406.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ magnet:?xt=urn:btih:97DD9DBDD0588F892B8C6B91AB346B3F58A01B2E
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163407.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163407.jpgsave_picture_163407.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ FabFilter Total Bundle v.2023.10.31 U2B STANDALONE, VST, VST3, DPM, AU [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163408.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163408.jpgsave_picture_163408.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ magnet:?xt=urn:btih:9A8D62D9371043E2D177DC4C0436A8CAA50FEB3F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163409.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163409.jpgsave_picture_163409.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ magnet:?xt=urn:btih:08B972B7A5710D76433ECA9D4F1F9E88F31F9D09
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163410.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163410.jpgsave_picture_163410.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ magnet:?xt=urn:btih:1A610B34CDADF24BB113E1737621EC94164B49FB
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163411.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163411.jpgsave_picture_163411.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ magnet:?xt=urn:btih:54815CF3A07AF6C9DFDE8EED950AA02B1FA466E8
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163412.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163412.jpgsave_picture_163412.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ Serenity - Nemesis AD (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Symphonic-Pr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163413.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163413.jpgsave_picture_163413.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ ImageRanger Pro Edition 1.9.4.1874 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225963.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225963.jpgsave_picture_225963.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Fats Navarro - Nostalgia (1946, 1947) 1991, Savoy Jazz [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225972.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225972.jpgsave_picture_225972.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:54833EFAB0EA8DBAB1DE4AF07B9A0993F1D3380D
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_226011.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_226011.jpgsave_picture_226011.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Hank Mobley - Four Classic Albums (1958 - 1961) 2CD, 2017, Avid Jazz [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_226017.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_226017.jpgsave_picture_226017.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Network Radar 3.0.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_226025.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_226025.jpgsave_picture_226025.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Sublime Text 4.0 Build 4151 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_226037.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_226037.jpgsave_picture_226037.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ The Unscarred - Vacant Skies (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative R
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_226049.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_226049.jpgsave_picture_226049.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ George Wallington Quintet - The New York Scene (1957) 1992, Original Jazz Classi
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_226058.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_226058.jpgsave_picture_226058.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ Recreating Eden - Tome I: Awaken (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternati
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_226067.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_226067.jpgsave_picture_226067.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Phantom Witch - Forced to Worship (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_226075.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_226075.jpgsave_picture_226075.jpg" />
 </div>
 
 
@@ -265,7 +265,7 @@ Doomdozer - Live in Industrial Plate (Live) (2023) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_226086.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_226086.jpgsave_picture_226086.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Sisyphean - Illusions of Eternity (2017) [FLAC|Lossless|image + .cue] <Black, De
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_226093.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_226093.jpgsave_picture_226093.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Hey Colossus - RRR (2011) 2CD, Expanded Edition, 2018, Riot Season Records [FLAC
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_226101.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_226101.jpgsave_picture_226101.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Perracide - Underdog (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash, Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_226108.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_226108.jpgsave_picture_226108.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ The Astral Serpent - Mirages in Izar (2023) [FLAC|Lossless|WEB-DL|tracks] <Raw B
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_226114.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_226114.jpgsave_picture_226114.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Sisyphean - Colours of Faith (2022) [FLAC|Lossless|WEB-DL|tracks] <Black, Death 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_226121.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_226121.jpgsave_picture_226121.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ RAW Power 3.4.14 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_226132.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_226132.jpgsave_picture_226132.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Mudness - Mudness (2023) [FLAC|Lossless|WEB-DL|tracks] <Stoner Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_226140.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_226140.jpgsave_picture_226140.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Torture Rack - Primeval Onslaught (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_226148.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_226148.jpgsave_picture_226148.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ GarageSale 9.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_226155.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_226155.jpgsave_picture_226155.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ magnet:?xt=urn:btih:006BA195CC3377FE1834046B0481B3338F5DD099
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_226212.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_226212.jpgsave_picture_226212.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Magic Disk Cleaner 2.3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_226428.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_226428.jpgsave_picture_226428.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Dogs Of Neptune - One Taste Of Blood (2016) [FLAC|Lossless|WEB-DL|tracks] <Heavy
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_226444.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_226444.jpgsave_picture_226444.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Downie 4 v.4.6.23 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_226453.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_226453.jpgsave_picture_226453.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ The Shape of Chaos - The Shape of Chaos (2023) [FLAC|Lossless|WEB-DL|tracks] <Gr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_226460.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_226460.jpgsave_picture_226460.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ Eternal Rot - Moribound (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Metal, Doom 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_226468.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_226468.jpgsave_picture_226468.jpg" />
 </div>
 
 

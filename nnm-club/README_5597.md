@@ -6,7 +6,7 @@ Piezo 1.8.1 fc3 Beta [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172514.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172514.jpgsave_picture_172514.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ ScreenFloat-Better Screenshots 1.5.22 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172515.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172515.jpgsave_picture_172515.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Psygnosis - Mercury (2023) [FLAC|Lossless|WEB-DL|tracks] <Industrial, Progressiv
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172516.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172516.jpgsave_picture_172516.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Alfred PowerPack 5.1.3  [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172517.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172517.jpgsave_picture_172517.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Eddie "Lockjaw" Davis & Johnny Griffin Quintet - The Complete Sessions (1960, 19
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172518.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172518.jpgsave_picture_172518.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ Keep It 2.3.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172519.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172519.jpgsave_picture_172519.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ Loopback 2.3.1 fc3 Beta [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172520.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172520.jpgsave_picture_172520.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ BatchOutput DOC for Mac 2.6.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172521.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172521.jpgsave_picture_172521.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ Psychework - Karelian Hills (2018) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172522.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172522.jpgsave_picture_172522.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ Alfred PowerPack 5.1.4 Pre-release  [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172523.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172523.jpgsave_picture_172523.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ The Eddie "Lockjaw" Davis-Johnny Griffin Quintet - Tough Tenors (1970) 1988, MPS
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172524.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172524.jpgsave_picture_172524.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ Native Instruments Komplete Kontrol 3.0.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172525.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172525.jpgsave_picture_172525.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ Piezo 1.8.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172526.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172526.jpgsave_picture_172526.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ BatchOutput PDF 3.0.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172527.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172527.jpgsave_picture_172527.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ Windows 10 22H2 + LTSC 21H2 (x64) 28in1 +/- Office 2021 by Eagle123 (10.2023) [R
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172528.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172528.jpgsave_picture_172528.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ magnet:?xt=urn:btih:DE6F67AADFCF6BC8515ACF20E71ED52D36FD1A02
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172529.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172529.jpgsave_picture_172529.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ magnet:?xt=urn:btih:675C1FE2A9A371A04E72857381D314F154A8A046
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172530.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172530.jpgsave_picture_172530.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ magnet:?xt=urn:btih:234FF254B40F2BC77677A64729A5107824D0B39D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172531.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172531.jpgsave_picture_172531.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ magnet:?xt=urn:btih:DC89BEA7148CF638BC7E5C589626F89330AF6D6A
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172532.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172532.jpgsave_picture_172532.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ magnet:?xt=urn:btih:D29F85041BB49486D333CDA78388A77F5F68F007
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172533.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172533.jpgsave_picture_172533.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ magnet:?xt=urn:btih:620FDF8AD4DF1021EB1B962DECEA18B31F8B626E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172534.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172534.jpgsave_picture_172534.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Adobe Premiere Pro 2024 24.0.0.58 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172535.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172535.jpgsave_picture_172535.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ magnet:?xt=urn:btih:F82BD9CA8937763C661DA6099884E95C58A59D25
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172536.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172536.jpgsave_picture_172536.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Adobe Acrobat Pro 2023.006.20360 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172537.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172537.jpgsave_picture_172537.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ magnet:?xt=urn:btih:A131957501C799236309F396CF46D432F0C9FF66
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172538.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172538.jpgsave_picture_172538.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ Adobe Premiere Pro 2024 for Mac v.24.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172539.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172539.jpgsave_picture_172539.jpg" />
 </div>
 
 

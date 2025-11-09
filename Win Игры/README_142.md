@@ -6,7 +6,7 @@ Dwarven Realms (2022) [En] (1.0.100) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41204.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41204.jpgsave_picture_41204.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Silent Hill 2 Remake (2024) [Ru/Multi] (1.1.236.114/dlc) Repack FitGirl [Digital
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41208.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41208.jpgsave_picture_41208.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Dark Sky (2024) [Ru/Multi] (1.0.1/dlc) Repack FitGirl [Supporter Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41213.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41213.jpgsave_picture_41213.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Silent Hill 2 Remake (2024) [Ru/Multi] (1.1.236.114/dlc) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41218.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41218.jpgsave_picture_41218.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Gungrave G.O.R.E (2022) [Ru/Multi] (Build 15224246/dlc) Scene Rune
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41220.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41220.jpgsave_picture_41220.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ BioShock Remastered Dilogy (2016) [Ru/Multi] (1.0/1.0.122864) Repack dixen18
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41233.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41233.jpgsave_picture_41233.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Gungrave G.O.R.E (2022) [Ru/Multi] (Build 15224246/dlc) Repack FitGirl [Complete
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41239.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41239.jpgsave_picture_41239.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Until Dawn / Дожить до рассвета (2024) [Ru/Multi] (Build 1589651
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41241.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41241.jpgsave_picture_41241.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Times & Galaxy / Times and Galaxy (2024) [En] (1.13.5060.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41270.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41270.jpgsave_picture_41270.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Hell of an Office (2023) [Ru/Multi] (1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41274.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41274.jpgsave_picture_41274.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Machinika: Atlas (2024) [Ru/Multi] (1.1.2.1) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41291.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41291.jpgsave_picture_41291.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Until Dawn / Дожить до рассвета (2024) [Ru/Multi] (Build 1589651
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41309.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41309.jpgsave_picture_41309.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Steamworld Heist (2016) [Ru/Multi]  (2.1/dlc) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41334.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41334.jpgsave_picture_41334.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Starfield (2023) [Ru/Multi] (1.14.70.0/dlc) Repack Other s [Premium Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41337.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41337.jpgsave_picture_41337.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Space Prison (2024) [Ru/Multi] (1.0.8/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41375.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41375.jpgsave_picture_41375.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Yars Rising (2024) [Multi] (1.1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41378.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41378.jpgsave_picture_41378.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Satellite Odyssey: Prologue (2024) [Ru/En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41393.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41393.jpgsave_picture_41393.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Psycho Fear (2024) [Multi] (1.2) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41397.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41397.jpgsave_picture_41397.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Flintlock: The Siege of Dawn (2024) [Ru/Multi] (1.1.72) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41413.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41413.jpgsave_picture_41413.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Dread Dawn (2024) [Ru/Multi] (2024.10.1.1000) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41418.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41418.jpgsave_picture_41418.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Crysis (2007) [Ru/En] (1.1.1.6156) Repack dixen18 [Enhanced Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41421.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41421.jpgsave_picture_41421.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Beyond Hanwell (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41428.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41428.jpgsave_picture_41428.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Surreal Farm (2024) [En] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41486.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41486.jpgsave_picture_41486.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ AMEDAMA (2024) [Multi] (2.0.0/2.0.3) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41491.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41491.jpgsave_picture_41491.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ REYNATIS (2024) [Multi] (1.0.3/dlc) Scene FAiRLiGHT
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41500.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41500.jpgsave_picture_41500.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Steredenn: Binary Stars (2015) [Ru/Multi] (2.7.3) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41639.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41639.jpgsave_picture_41639.jpg" />
 </div>
 
 

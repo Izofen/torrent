@@ -6,7 +6,7 @@ VA - MAXI. Super Dance на Maximum FM (2012) [MP3|192 кб/с]<Pop,Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98171.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98171.jpgsave_picture_98171.jpg" />
 </div>
 
 
@@ -39,7 +39,7 @@ magnet:?xt=urn:btih:35C00ACD33D3358AA6A410EEAF07F6363646BB8D
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98172.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98172.jpgsave_picture_98172.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ magnet:?xt=urn:btih:0AFFD12B9D60CC570A519C225DAD0A492F034493
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98177.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98177.jpgsave_picture_98177.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - Energy Super Dance Vol.6 (2012) [MP3|320 кб/с]<Electro-House, Trance, Da
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98178.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98178.jpgsave_picture_98178.jpg" />
 </div>
 
 
@@ -120,7 +120,7 @@ Eivissa Salinas - Dear Father (2012) [MP3|320 кб/с]<Chillout, Lounge>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98180.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98180.jpgsave_picture_98180.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:F5EE4D1E74E942EFCCBEAE4D3C381BF45B09B4D9
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98182.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98182.jpgsave_picture_98182.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:8BA43E34BF5FA4D76805F2A00435041EBAA7758F
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98183.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98183.jpgsave_picture_98183.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ Before Their Eyes - Redemption (2012) [MP3|320 кб/с]<Post-Hardcore>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98184.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98184.jpgsave_picture_98184.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ VA - Trance Cookbook Vol.22 (2012) [MP3|320 кб/с]<Uplifting Trance,Vocal Tran
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98185.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98185.jpgsave_picture_98185.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ magnet:?xt=urn:btih:245B63BA446E4340975BAF356466DB68A0285ED0
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98187.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98187.jpgsave_picture_98187.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ magnet:?xt=urn:btih:0E471EEE9D4D51823A87EC466D93314A83B04C04
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98190.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98190.jpgsave_picture_98190.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ magnet:?xt=urn:btih:A8F9E8F46E38DD19F3AF312A523CE1AAB7073A8E
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98194.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98194.jpgsave_picture_98194.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ magnet:?xt=urn:btih:FEF6CB20466F72AA1AC9F2E6433BFBBB28F03837
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98196.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98196.jpgsave_picture_98196.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ magnet:?xt=urn:btih:29D3C7FE161BE6D3FD4D0BE9ECF4087BF1FAC185
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98197.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98197.jpgsave_picture_98197.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ VA - Chris Coco - Lazy Summer Vol. 2 (2011) [MP3|320 кб/с]<Electronic, Deep H
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98198.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98198.jpgsave_picture_98198.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ VA - Русский Avto Club (2012) [MP3|320 kbps]<Club | Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98204.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98204.jpgsave_picture_98204.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ Glassball - Psy-Fi Full On (03.01.2012) [MP3|320 кб/с]<Psychedelic>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98206.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98206.jpgsave_picture_98206.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ magnet:?xt=urn:btih:58A3A96094E1222DC004A0F856EAEDCDDC180484
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98207.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98207.jpgsave_picture_98207.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ magnet:?xt=urn:btih:9BC301109226C97B667226B216F38774E95FF7A9
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98211.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98211.jpgsave_picture_98211.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ VA - Водочку пьём! Баллады любимому напитку (20
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98212.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98212.jpgsave_picture_98212.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ magnet:?xt=urn:btih:608900861502653C66BD9640AAF1ECB47783D763
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98214.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98214.jpgsave_picture_98214.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ magnet:?xt=urn:btih:CC3F6704F32E7040313544152116ADC44169B37A
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98215.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98215.jpgsave_picture_98215.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ DJ Premier & Bumpy Knuckles - Kolexxxion (2012) [MP3|320 кб/с]<Underground Hi
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98216.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98216.jpgsave_picture_98216.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ VA - Танцевальный Рай Русский №33 (2012) [MP3|256 kbps]<
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98217.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98217.jpgsave_picture_98217.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ I Diggidy - Made in Russia (2012) [MP3|320 кб/с]<Rap, Hip-Hop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98218.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98218.jpgsave_picture_98218.jpg" />
 </div>
 
 
@@ -711,7 +711,7 @@ VA - Songs Of Protest (1987) [MP3|320 кб/с]<Psychedelic Pop/Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98222.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98222.jpgsave_picture_98222.jpg" />
 </div>
 
 

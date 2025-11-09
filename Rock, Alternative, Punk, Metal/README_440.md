@@ -6,7 +6,7 @@ Bite The Bullet - Rocky Road (2023) [FLAC|Lossless|image + .cue] <Melodic Rock, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239298.jpgsave_picture_239298.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Tomi Malm - Walkin' On Air (2018) Japanese Edition [FLAC|Lossless|image + .cue] 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239304.jpgsave_picture_239304.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Escape The Madness - Continuation Of Misery (2020) [FLAC|Lossless|WEB-DL|tracks]
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239325.jpgsave_picture_239325.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Clark - Sus Dog (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative, Indie
 >>Alternative, Punk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239327.jpgsave_picture_239327.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Rainbow - The Very Best Of Rainbow (1997) [APE|Lossless|image + .cue] <Hard Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239328.jpgsave_picture_239328.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Crimson Sunsets - A Furore Normannorum Libera Nos Domine (Demo) (1997) Reissue, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239334.jpgsave_picture_239334.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Calexico - Feast of Wire (2023) 20th Anniversary Deluxe Edition [FLAC 24/44.1|Lo
 >>Alternative, Punk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239335.jpgsave_picture_239335.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Page 99 - For Imagination's Sake (2022) [FLAC|Lossless|image + .cue] <AOR, Westc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239340.jpgsave_picture_239340.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Ian Hunter - Defiance Part 1 (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239344.jpgsave_picture_239344.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Titanskull - Titanomachy (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239349.jpgsave_picture_239349.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Brunorock - War Maniacs (2009) [FLAC|Lossless|image + .cue] <Melodic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239356.jpgsave_picture_239356.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Gia Margaret - Romantic Piano (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alte
 >>Alternative, Punk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239357.jpgsave_picture_239357.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Dawn of Creation - Self-Destructive Matters (2022) [FLAC|Lossless|WEB-DL|tracks]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239359.jpgsave_picture_239359.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Mozart Gabriel - Sign Me Up 4 The Apocalypse (2023) [FLAC|Lossless|WEB-DL|tracks
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239366.jpgsave_picture_239366.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Kira Mac - Chaos Calling (2022) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239375.jpgsave_picture_239375.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Dark Millennium - Ashore the Celestial Burden (1992) [FLAC|Lossless|image + .cue
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239383.jpgsave_picture_239383.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Aerodyne - Damnation (2019) [FLAC|Lossless|WEB-DL|tracks] <Melodic Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239389.jpgsave_picture_239389.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Stillskin - Through Time (2023) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239390.jpgsave_picture_239390.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Drautran - Unter dem Banner der Nordwinde (Demo) (2002) [FLAC|Lossless|image + .
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239392.jpgsave_picture_239392.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Cactus Cathedral - Suspending All Belief (2023) [FLAC|Lossless|WEB-DL|tracks] <H
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239398.jpgsave_picture_239398.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Drautran - Throne Of The Depths (2007) [APE|Lossless|image + .cue] <Sympho Black
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239399.jpgsave_picture_239399.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Hotwire - The Story so Far 1993 - 2023 (2023) [FLAC|Lossless|WEB-DL|tracks] <Mel
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239405.jpgsave_picture_239405.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Chiliasm - Flesh Over Finite (2021) EP [FLAC|Lossless|WEB-DL|tracks] <Neoclassic
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239406.jpgsave_picture_239406.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Koritni - Long Overdue (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239411.jpgsave_picture_239411.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ DevilDriver - Dealing With Demons, Volume II (2023) [FLAC|Lossless|image + .cue]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239415.jpgsave_picture_239415.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Coffinborn - Cadaveric Retribution (2023) [MP3|320 Kbps] <Death Metal, Oldschool
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239431.jpgsave_picture_239431.jpg" />
 </div>
 
 

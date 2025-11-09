@@ -6,7 +6,7 @@ Adventure of Samsara (2025) [Multi] (1.0.10) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3252.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3252.jpgsave_picture_3252.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ DYSMANTLE (2021) [Ru/Multi] (1.4.1.8/dlc) Repack Let'sРlay [Complete Bundle]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3259.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3259.jpgsave_picture_3259.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Shrink Rooms (2025) [Ru/Multi] (1.2.3) Repack Let'sРlay
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3260.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3260.jpgsave_picture_3260.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Otherskin (2025) [Ru/Multi] (Build 19817814) Repack seleZen
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3265.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3265.jpgsave_picture_3265.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ PC Building Simulator 2 (2022) [Ru/Multi] (1.13.07) Repack dixen18
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3270.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3270.jpgsave_picture_3270.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Revenge of the Savage Planet (2025) [Ru/Multi] (2025-9-9-106947 Net5/dlc) Repack
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3273.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3273.jpgsave_picture_3273.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ ReSetna (2025) [Ru/Multi] (1.7.1) Repack Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3274.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3274.jpgsave_picture_3274.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Achilles: Survivor (2025) [Ru/Multi] (1.2.9988/dlc) Repack Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3282.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3282.jpgsave_picture_3282.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ ION Shift (2024) [Ru/Multi] (1.2.3) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3284.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3284.jpgsave_picture_3284.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ The House of the Dead 2: Remake (2025) [Multi] (20250903) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3390.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3390.jpgsave_picture_3390.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ The Knightling (2025) [Ru/Multi] (1.1.0/dlc) Repack Let'sРlay [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3398.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3398.jpgsave_picture_3398.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Deathless Tales of Old Rus / Бессмертный. Сказки Старой �
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3412.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3412.jpgsave_picture_3412.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Darkest Dungeon II (2023) [Ru/Multi] (2.03.79909 HF/dlc) Repack Let'sРlay [Reso
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3415.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3415.jpgsave_picture_3415.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Section 13 (2023) [Ru/Multi] (1.1.0) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3420.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3420.jpgsave_picture_3420.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Deadzone: Rogue (2025) [Ru/Multi] (1.0.0.19) Repack Let'sРlay
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3422.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3422.jpgsave_picture_3422.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Crusader Kings III (3) (2020) [Ru/Multi] (1.17.0/dlc) Repack seleZen [Royal Edit
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3490.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3490.jpgsave_picture_3490.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Star Trucker (2024) [Ru/Multi] (1.0.70.1_m/dlc) License GOG
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3510.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3510.jpgsave_picture_3510.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Crusader Kings III (3) (2020) [Ru/Multi] (1.17.0/dlc) Repack FitGirl [Collection
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3511.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3511.jpgsave_picture_3511.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ ZERO PROTOCOL (2024) [Ru/Multi] (1.2) Repack Let'sРlay
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3514.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3514.jpgsave_picture_3514.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Against the Storm (2022) [Ru/Multi] (1.8.12R/dlc) Repack Let'sРlay [Complete Bu
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3519.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3519.jpgsave_picture_3519.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Sunkenland (2023) [Ru/Multi] (0.7.04) Repack Pioneer [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3520.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3520.jpgsave_picture_3520.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Look Outside (2025) [Ru/En] (1.07) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3521.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3521.jpgsave_picture_3521.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Isles of Sea and Sky (2024) [Ru/Multi] (2.4a) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3522.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3522.jpgsave_picture_3522.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Mortal Sin (2025) [Ru/Multi] (1.0 HF1) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3527.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3527.jpgsave_picture_3527.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Crusader Kings III (3) (2020) [Ru/Multi] (1.17/dlc) Repack dixen18
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3532.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3532.jpgsave_picture_3532.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Shattered Pixel Dungeon (2022) [Ru/Multi] (3.2.3) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3533.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3533.jpgsave_picture_3533.jpg" />
 </div>
 
 

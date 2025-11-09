@@ -6,7 +6,7 @@ RSS Guard 4.7.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109541.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109541.jpgsave_picture_109541.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Opera One 110.0.5130.23 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109542.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109542.jpgsave_picture_109542.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Ventusky: Прогноз погоды v34.0 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109543.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109543.jpgsave_picture_109543.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ FanControl V190 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109544.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109544.jpgsave_picture_109544.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:0A365D368E54BD91189B64ED6005FC3D44A036B3
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109545.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109545.jpgsave_picture_109545.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Microsoft .NET 8.0.5 Runtime [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109546.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109546.jpgsave_picture_109546.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Perfectly Clear WorkBench 4.6.1.2660 RePack (& Portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109547.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109547.jpgsave_picture_109547.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Microsoft .NET 6.0.30 Runtime [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109548.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109548.jpgsave_picture_109548.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ VA - We Love Synthpop (2014) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Electropop
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109549.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109549.jpgsave_picture_109549.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ Opera One 110.0.5130.23 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109550.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109550.jpgsave_picture_109550.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ Asian Meditation - Meditationsmusik (2007) [WavPack|Lossless|image + .cue] <Rela
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109551.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109551.jpgsave_picture_109551.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ Microsoft Visual Studio 2019 Enterprise 16.11.36 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109552.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109552.jpgsave_picture_109552.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Buck Hill - Relax (2006) Severn Records [FLAC|Lossless|tracks + .cue] <Hard Bop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109553.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109553.jpgsave_picture_109553.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Couch Slut - You Could Do It Tonight (2024) [FLAC|Lossless|WEB-DL|tracks] <sludg
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109554.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109554.jpgsave_picture_109554.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Lincoln Center Jazz Orchestra & Wynton Marsalis - Don't Be Afraid... The Music o
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109555.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109555.jpgsave_picture_109555.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Take Offense - T.O.tality (2024) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal, Ha
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109556.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109556.jpgsave_picture_109556.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Gonzalo Rubalcaba - Discovery: Live At Montreux (1991) Blue Note [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109557.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109557.jpgsave_picture_109557.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Buck Hill - Capital Hill (1990) Muse Records [FLAC|Lossless|tracks + .cue] <Hard
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109558.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109558.jpgsave_picture_109558.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Video Converter Pro 0.2.37 Lite-Mod by Илья Ёжик [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109559.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109559.jpgsave_picture_109559.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Teenage Bad Girl - Separate (2024) [FLAC|Lossless|WEB-DL|tracks] <Electro, Dance
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109560.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109560.jpgsave_picture_109560.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ The Higher - Hidden Places (2024) [MP3|320 Kbps] <Alternative Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109561.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109561.jpgsave_picture_109561.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Patricia Manion - Blues 365 (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109562.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109562.jpgsave_picture_109562.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Stryper - To Hell With The Amps (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109563.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109563.jpgsave_picture_109563.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Mike Clark Band - 0-60 (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109564.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109564.jpgsave_picture_109564.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ magnet:?xt=urn:btih:590377F30A865171BFBCADACF47D102E5CDB18F1
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109565.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109565.jpgsave_picture_109565.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ Chris BadNews Barnes - BadNews Travels Fast (2024) [FLAC|Lossless|WEB-DL|tracks]
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109566.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109566.jpgsave_picture_109566.jpg" />
 </div>
 
 

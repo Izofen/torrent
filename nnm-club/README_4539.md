@@ -6,7 +6,7 @@ ESET Smart Security + NOD32 Antivirus 9.0.318.24 Repack by SmokieBlahBlah [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142022.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142022.jpgsave_picture_142022.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ VA - Amnesia Ibiza-Underground 9 (2009) 2CD [FLAC|Lossless|tracks + .cue] <Elect
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142023.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142023.jpgsave_picture_142023.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ magnet:?xt=urn:btih:CB9F9488DBFE014B68E8D1BD9F1FC949348BC44B
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142024.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142024.jpgsave_picture_142024.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ VA - Space Holidays Vol. 13 (2021) 4CD [MP3|320 Kbps] <Synthpop, Spacesynth>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142025.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142025.jpgsave_picture_142025.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Video Converter Movavi 19 v19.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142026.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142026.jpgsave_picture_142026.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ magnet:?xt=urn:btih:55A9E43282F28E6A78326F209CAE3FC1EF3AB5BF
 >>Интернет-творчество
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142027.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142027.jpgsave_picture_142027.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ magnet:?xt=urn:btih:94CC9CDF623B0FD4CE204164C8396AFBF872DBD9
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142029.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142029.jpgsave_picture_142029.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ One-Punch Man / Ванпанчмен [2015, TV, 12 из 12 + 1 из 6 SP] HDTV 7
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142030.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142030.jpgsave_picture_142030.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ TextMate 2 v2.0.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142031.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142031.jpgsave_picture_142031.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ magnet:?xt=urn:btih:72628442F6F85BBE85034C0C5552BF22FE122D4F
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142033.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142033.jpgsave_picture_142033.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ VA - Музыка для машины Vol.42 (2023) [MP3|320 Kbps] <Pop, Dance, 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142034.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142034.jpgsave_picture_142034.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ magnet:?xt=urn:btih:91AB5AB99AB3FC6F7A03C92E50732E4190CFF3EE
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142035.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142035.jpgsave_picture_142035.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ magnet:?xt=urn:btih:A2FA198C145DE83CFD6D9EB3CE9D488C0DA29F9D
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142036.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142036.jpgsave_picture_142036.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ magnet:?xt=urn:btih:CAB6251C0E31C2D16DC517803527087567A1C6CE
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142037.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142037.jpgsave_picture_142037.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ magnet:?xt=urn:btih:7EF25577851CC3D8D2CF117139240B89BA83662C
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142039.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142039.jpgsave_picture_142039.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ VA - Steyoyoke Gems Solar 08 (2019) Compilation [FLAC|Lossless|WEB-DL|tracks] <P
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142040.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142040.jpgsave_picture_142040.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ VA - Space Holidays Vol. 13 (2021) 4CD [FLAC|Lossless|WEB-DL|tracks] <Synthpop, 
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142041.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142041.jpgsave_picture_142041.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ magnet:?xt=urn:btih:CEF591A4850B2DB3F88153543F7CE02A4E1C8BDB
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142042.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142042.jpgsave_picture_142042.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Star Wars Jedi Knight: Mysteries of the Sith (1998) [En] (1.0) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142044.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142044.jpgsave_picture_142044.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:E1D5070529229275A3E4A55110B70061D97B6160
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142046.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142046.jpgsave_picture_142046.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ magnet:?xt=urn:btih:88C92D985311269E7DAB3EAF833594F10BC0AE16
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142047.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142047.jpgsave_picture_142047.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Sono Toki, Kanojo wa. | И тогда она... [2018, TV, 12] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142048.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142048.jpgsave_picture_142048.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ magnet:?xt=urn:btih:3AFDF290A721C6B54FC1B52D0045622E604AD378
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142049.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142049.jpgsave_picture_142049.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Red Hat Enterprise Linux (Server, Workstation, Client) 7.2 [x86-64]
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142051.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142051.jpgsave_picture_142051.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ magnet:?xt=urn:btih:C6961D166A4E7BF024FD63B1342897AE8A7BDD6D
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142052.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142052.jpgsave_picture_142052.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ Lunar Pro for Mac 6.4.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142053.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142053.jpgsave_picture_142053.jpg" />
 </div>
 
 

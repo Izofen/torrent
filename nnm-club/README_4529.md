@@ -6,7 +6,7 @@
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141695.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141695.jpgsave_picture_141695.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ SINEE - Chop Suey 1.1 VSTi [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141696.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141696.jpgsave_picture_141696.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:D01F41A813C88533F6438FC5BB7FEBAF3B8A8C25
 >>DailyTechInfo
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141698.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141698.jpgsave_picture_141698.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:D01F41A813C88533F6438FC5BB7FEBAF3B8A8C25
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141699.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141699.jpgsave_picture_141699.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Malwarebytes Windows Firewall Control 6.9.9.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141700.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141700.jpgsave_picture_141700.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Debian GNU/Linux 6.0.6 Live [amd64] (4xDVD + 2xCD)
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141701.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141701.jpgsave_picture_141701.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Debian GNU/Linux 6.0.6 Live [amd64] (4xDVD + 2xCD)
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141702.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141702.jpgsave_picture_141702.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:8417658289BC8BA8AD565EC7C3535751FA48879D
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141703.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141703.jpgsave_picture_141703.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:E067A7CA5238DBBC5FC889881CE0EB3038089EF7
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141704.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141704.jpgsave_picture_141704.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:9D11FD7C5671A50339C276BBDE6E1B8EB527ACE4
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141705.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141705.jpgsave_picture_141705.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:C2FAE90F6839455E3EEE97B7E4746FBA48025B11
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141706.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141706.jpgsave_picture_141706.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:AA7719D264A55FDB9053C173228370D15C255637
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141708.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141708.jpgsave_picture_141708.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:935E5B1F985D9888696BC27FDBB8452931E11F4E
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141710.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141710.jpgsave_picture_141710.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:9B8CBF68BF3166F88D52AACD371FB5C3ADE4F48E
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141712.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141712.jpgsave_picture_141712.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ magnet:?xt=urn:btih:E33D1D5EAE726B2FB572D4891EA286CCE9E23F49
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141713.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141713.jpgsave_picture_141713.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:43C7A6D850437DDAF1582C1508E5895EF2BA5C6D
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141714.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141714.jpgsave_picture_141714.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ magnet:?xt=urn:btih:109B7F1ACD5D7D4131F1C0C9C980D45D8F26D35E
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141715.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141715.jpgsave_picture_141715.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ CocCoc 52.2.102 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141716.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141716.jpgsave_picture_141716.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ Bladed Fury (2018) [En/Ch/Jp] (1.0.1819) License CODEX
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141717.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141717.jpgsave_picture_141717.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ magnet:?xt=urn:btih:959FB1D151D945A8BA623BB30DF46522297D6B28
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141718.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141718.jpgsave_picture_141718.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Silberbart - 4 Times Sound Razing (1971) Remastered, 2002, Progressive Line [MP3
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141720.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141720.jpgsave_picture_141720.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Rydell & Quick - 2 альбома Discography (2006-2012) [MP3|320 Kbps] <Melodi
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141721.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141721.jpgsave_picture_141721.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ magnet:?xt=urn:btih:C1EF096DEF1D854C1ADCE7878907B288F1380BF5
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141722.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141722.jpgsave_picture_141722.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ DJ Aligator Project - Greatest Hits & Remixes (2003) [FLAC|Lossless|WEB-DL|track
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141723.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141723.jpgsave_picture_141723.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ Papik - Cocktail Christmas (2019) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141726.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141726.jpgsave_picture_141726.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ magnet:?xt=urn:btih:A4A0E7A02994C16209A0144318864D0A1683F582
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141727.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141727.jpgsave_picture_141727.jpg" />
 </div>
 
 

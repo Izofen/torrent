@@ -6,7 +6,7 @@ Skrillex - Best of all time (2012) [MP3|256 кб/с]<Dubstep>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135179.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135179.jpgsave_picture_135179.jpg" />
 </div>
 
 
@@ -39,7 +39,7 @@ Freakstorm - Angel In The Dark (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135181.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135181.jpgsave_picture_135181.jpg" />
 </div>
 
 
@@ -66,7 +66,7 @@ magnet:?xt=urn:btih:6D5971B37EF42D41966873694B5CA30507945475
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135182.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135182.jpgsave_picture_135182.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ Tantric Massage, Erotic Massage Music Ensemble - First Sexual Experience - New A
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135183.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135183.jpgsave_picture_135183.jpg" />
 </div>
 
 
@@ -117,7 +117,7 @@ AllDup 4.5.56 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135184.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135184.jpgsave_picture_135184.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ Meat Loaf: Guilty Pleasure Tour (2012) BDRip [H.265/1080p] [10-bit]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135185.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135185.jpgsave_picture_135185.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ VA - Музыка для машины Vol.44 (2023) [MP3|320 Kbps] <Pop, Dance, 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135186.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135186.jpgsave_picture_135186.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Termius for Mac 8.0.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135188.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135188.jpgsave_picture_135188.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Helen Jane Long - 3 albums (2007-2012) [MP3|320 kbps]<Instrumental, Solo Piano, 
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135189.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135189.jpgsave_picture_135189.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ magnet:?xt=urn:btih:4AB50C20AB554DC32B23F80B621673481C1D8F12
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135190.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135190.jpgsave_picture_135190.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Gergely Boganyi - Frederic Chopin: The Complete Nocturnes (2008) [DST 2.0 1bit/2
 >>Классика (HD Audio)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135191.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135191.jpgsave_picture_135191.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ magnet:?xt=urn:btih:57F95E7449F48BEA48F471747A9DE5C0ADB27A55
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135192.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135192.jpgsave_picture_135192.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ The Blue Van - There Goes My Love (Uncensored) (2012) WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135193.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135193.jpgsave_picture_135193.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ VA - Western Mood (2023) 2CD  [MP3|320 Kbps] <Country>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135194.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135194.jpgsave_picture_135194.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ CRAX Commander 1.13.4 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135196.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135196.jpgsave_picture_135196.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ magnet:?xt=urn:btih:B98EE7AE6EB81A3F9809FA8D92DB4749BD662F0D
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135198.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135198.jpgsave_picture_135198.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ VA - Hit News Vol. 7 '96 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135200.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135200.jpgsave_picture_135200.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ magnet:?xt=urn:btih:35840338C8844828AD01BF48C4FD6B83C910EFBF
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135202.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135202.jpgsave_picture_135202.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ magnet:?xt=urn:btih:48EB4B71696497440E878EF56107ED9934E04DB0
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135203.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135203.jpgsave_picture_135203.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ magnet:?xt=urn:btih:26F5FB82EB81CF6A112663DB52DC0148518B626C
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135204.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135204.jpgsave_picture_135204.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ magnet:?xt=urn:btih:1E349C1A9B09283A412316207999BCA55A32B8D0
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135205.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135205.jpgsave_picture_135205.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ magnet:?xt=urn:btih:784ACCF0106C45E4B487F60285BCD9A0CD7ADB8F
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135206.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135206.jpgsave_picture_135206.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ magnet:?xt=urn:btih:BD2453786CBFF969D45F4C850BC5473759698781
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135207.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135207.jpgsave_picture_135207.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ magnet:?xt=urn:btih:8C0E272D7AAAF51D1B39D51BE13981520830942D
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135208.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135208.jpgsave_picture_135208.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ magnet:?xt=urn:btih:1EC7246B0F466FDE86825FF3E58B5EB95A7DE03E
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135210.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135210.jpgsave_picture_135210.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ magnet:?xt=urn:btih:C48196B3AF0B50D0FA5671DD87A23FD09CFEA2B9
 >>Приключенческая проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135211.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135211.jpgsave_picture_135211.jpg" />
 </div>
 
 

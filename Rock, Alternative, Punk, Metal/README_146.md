@@ -6,7 +6,7 @@ Belmont - Liminal (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop-Punk, Alternative Ro
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111223.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111223.jpgsave_picture_111223.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ In Vain - Solemn (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Death-Black M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111224.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111224.jpgsave_picture_111224.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Attacker - The God Particle (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111225.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111225.jpgsave_picture_111225.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Atoll - Fallout Frenzy (2017) [FLAC|Lossless|WEB-DL|tracks] <Brutal Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111227.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111227.jpgsave_picture_111227.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Atoll - Inhuman Implants (2024) [FLAC|Lossless|WEB-DL|tracks] <Brutal Death Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111230.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111230.jpgsave_picture_111230.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Atoll - Zoopocalypse (2019) [FLAC|Lossless|WEB-DL|tracks] <Brutal Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111231.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111231.jpgsave_picture_111231.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Atoll - The Gathering Swarm (2016) [FLAC|Lossless|WEB-DL|tracks] <Brutal Death M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111232.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111232.jpgsave_picture_111232.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Atoll - Prepuce (2022) EP [FLAC|Lossless|WEB-DL|tracks] <Brutal Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111233.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111233.jpgsave_picture_111233.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Various Artists - The Power of the Heart: A Tribute to Lou Reed (2024) [FLAC|Los
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111239.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111239.jpgsave_picture_111239.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Letters Sent Home - Forever Undone (2024) [FLAC|Lossless|WEB-DL|tracks] <Alterna
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111242.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111242.jpgsave_picture_111242.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:E8A3D2B006CD8546D22548F286C847DD78EB4C78
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111244.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111244.jpgsave_picture_111244.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Amalgama - Mastermind (2024) [MP3|320 Kbps] <Heavy Metal, Hard Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111248.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111248.jpgsave_picture_111248.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Lights & Motion - Wonder (2024) [FLAC|Lossless|WEB-DL|tracks] <Post-Rock, Ambien
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111250.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111250.jpgsave_picture_111250.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Whalefall - Foxblood (2024) [FLAC|Lossless|WEB-DL|tracks] <Post-Hardcore, Metalc
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111252.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111252.jpgsave_picture_111252.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Bruce Springsteen - Best of Bruce Springsteen (Expanded Edition) (2024) [FLAC|Lo
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111264.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111264.jpgsave_picture_111264.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ DVNE - Voidkind (2024) [FLAC|Lossless|WEB-DL|tracks] <Post-Metal, Progressive Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111277.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111277.jpgsave_picture_111277.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ My Dying Bride - A Mortal Binding (2024) [FLAC|Lossless|WEB-DL|tracks] <Gothic D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111294.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111294.jpgsave_picture_111294.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ magnet:?xt=urn:btih:6BD69156E238F8ACFDC885795D17FE21A89D12A7
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111298.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111298.jpgsave_picture_111298.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:DB631C90EDA8437222F33256102B91F58E39A8A5
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111302.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111302.jpgsave_picture_111302.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Daevar - Amber Eyes (2024) [FLAC|Lossless|WEB-DL|tracks] <Stoner, Doom, Psych>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111310.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111310.jpgsave_picture_111310.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:CC9569F7BF1E48C6628F511C25CC59EE3C650C1D
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111311.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111311.jpgsave_picture_111311.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ House Of Lords - Come To My Kingdom (2008) [FLAC|Lossless|image + .cue] <Classic
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111323.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111323.jpgsave_picture_111323.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Evolucija - The World is Full of Wrath (2024) [FLAC|Lossless|WEB-DL|tracks] <Sym
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111331.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111331.jpgsave_picture_111331.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ VV & The Void - The Cage (2024) [FLAC|Lossless|WEB-DL|tracks] <Gothic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111335.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111335.jpgsave_picture_111335.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Deviated Instinct - As the Crow Flies (2024) [FLAC|Lossless|WEB-DL|tracks] <Crus
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111340.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111340.jpgsave_picture_111340.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Aequorea - Dim (2022) [FLAC|Lossless|WEB-DL|tracks] <Doom, Post-Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111362.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111362.jpgsave_picture_111362.jpg" />
 </div>
 
 

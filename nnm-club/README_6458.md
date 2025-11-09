@@ -6,7 +6,7 @@
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204608.jpgsave_picture_204608.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:5ABBFDD1063F030586F99ACCA0B4FEECB8DDE7E8
 >>Отечественные Мультфильмы 21-го века (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204609.jpgsave_picture_204609.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Sonny Criss - Rockin' In Rhythm (1968) 1999, Original Jazz Classics [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204610.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204610.jpgsave_picture_204610.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:900F07AE467CD85A478534CAC2C6E462F47621C1
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204611.jpgsave_picture_204611.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Incantation - Unholy Deification (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204612.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204612.jpgsave_picture_204612.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:41E0447FFEED558A41CFE7D76DECEF11031FFA32
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204613.jpgsave_picture_204613.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ Dropshare 5.35.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204614.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204614.jpgsave_picture_204614.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ Lord El-Melloi II-sei no Jikenbo: Rail Zeppelin Grace Note | Lord El-Melloi II's
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204615.jpgsave_picture_204615.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ Mastodon - Remission (2002) [FLAC|24/96|tracks|Vinyl-Rip] <Progressive, Sludge M
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204616.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204616.jpgsave_picture_204616.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ magnet:?xt=urn:btih:4F3B124811987B455D7D1285CC972C8BE9AD3F0C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204617.jpgsave_picture_204617.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ Scatterbrain - Here Comes Trouble (1990) [FLAC|Lossless|image + .cue] <Thrash Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204618.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204618.jpgsave_picture_204618.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ Madog - Raven (2018) [FLAC|Lossless|image + .cue] <Heavy, Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204619.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204619.jpgsave_picture_204619.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ Mahou Tsukai Reimeiki | The Dawn of the Witch | Рассвет ведьмы [202
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204620.jpgsave_picture_204620.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ magnet:?xt=urn:btih:662D5BE27FCCB349AECA08D9B02BA99974F045C4
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204621.jpgsave_picture_204621.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ Cookie 6.9.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204622.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204622.jpgsave_picture_204622.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ Cenobite - Torment Your Flesh and Explore the Limits of Experience (2023) [FLAC|
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204623.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204623.jpgsave_picture_204623.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Udemy, MA Applied Linguistics & DELTA, James Castleden | IELTS Step-by-step | MA
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204624.jpgsave_picture_204624.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Rideout - Driven To Insanity (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive H
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204625.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204625.jpgsave_picture_204625.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ magnet:?xt=urn:btih:FD8034FED41D5D717DC246D2AD434CA049A70D3F
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204626.jpgsave_picture_204626.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ magnet:?xt=urn:btih:E5C479CB7703DD40CB7EB8648B693664DDF66ECB
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204627.jpgsave_picture_204627.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ magnet:?xt=urn:btih:32F8EE5E6763B15172D90288C68A4655D9A64510
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204628.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204628.jpgsave_picture_204628.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ magnet:?xt=urn:btih:43E2A80CBBA1CC25425D17B75A0F6021041A2C08
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204629.jpgsave_picture_204629.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ magnet:?xt=urn:btih:37F22DEC9F3BB967F5715325051BD2BC81A3FF65
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204630.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204630.jpgsave_picture_204630.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ magnet:?xt=urn:btih:CD99D70BBA2E523C2D8213C9B75D06BC2C8C861C
 >>Кинолетопись Страны Советской
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204631.jpgsave_picture_204631.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ magnet:?xt=urn:btih:1ACDC547D092E644B1D09279358002E8060A1686
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204632.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204632.jpgsave_picture_204632.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ magnet:?xt=urn:btih:4A624552A93F6CF84616EEEC2CEF4C99BD921532
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204633.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204633.jpgsave_picture_204633.jpg" />
 </div>
 
 

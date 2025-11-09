@@ -6,7 +6,7 @@ VA - Dance Floor Autumn Edition (2016) [MP3|320 Kbps] <Dance, Nu Disco, Future B
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244162.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244162.jpgsave_picture_244162.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Музыкальный Заряд 4 (2016) [MP3|256 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244182.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244182.jpgsave_picture_244182.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - Кайфуем Лето (2022) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244183.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244183.jpgsave_picture_244183.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - Новички в попсе Vol 14 (2022) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244410.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244410.jpgsave_picture_244410.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ VA - Dancefloor Clubbing (2016) [MP3|320 Kbps] <House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244453.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244453.jpgsave_picture_244453.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ VA - Introdance: European EDM Mix (2016) [MP3|320 Kbps] <Club, Dance, House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244466.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244466.jpgsave_picture_244466.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ VA - Музыка для машины Vol.13 (2023) [MP3|320 Kbps] <Pop, Dance, 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244481.jpgsave_picture_244481.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ VA - Cross Extended Funky House Mix (2016) [MP3|255-320 Kbps] <Club, Funky, Prog
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244494.jpgsave_picture_244494.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ VA - German Top 100 Single Charts 11.02.2022 [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244528.jpgsave_picture_244528.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ VA - Tech & House Vocals Outstanding (2016) [MP3|209-320 Kbps] <Dance, Club, Hou
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244548.jpgsave_picture_244548.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ VA - Шансон 2020 Музыкальный хит-парад [часть.01] 
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244588.jpgsave_picture_244588.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ VA - Beatport Techno: Sound Pack #402 (2022) [MP3|320 Kbps] <Techno, Electro>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244653.jpgsave_picture_244653.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ VA - Finding Around Happiness (Energy Tech Trance) 010 (2016) [MP3|320 Kbps] <Tr
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244701.jpgsave_picture_244701.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ VA - Winter Clubbing Techno Set (2021) [MP3|320 Kbps] <Club, Techno, Electro, Te
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244727.jpgsave_picture_244727.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ VA - Winter EDM Party (2021) [MP3|320 Kbps] <Tech House, Techno, Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244741.jpgsave_picture_244741.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Bert Kaempfert - Compilation (2023) [MP3|320 Kbps] <Easy Listening>
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244776.jpgsave_picture_244776.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ VA - Clubland 2017 (2016) [MP3|320 Kbps] <House, Futurepop, Synthpop, Nu-Disco, 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244819.jpgsave_picture_244819.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ VA - Esperandote: New Latin Music (2021) [MP3|320 Kbps] <Latin, Pop, Reggaeton>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244872.jpgsave_picture_244872.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ VA - Best Chillout Vol.19 (2016) [MP3|192-320 Kbps] <Downtempo, Chillout, Lounge
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244881.jpgsave_picture_244881.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ VA - Trance Collection Vol.53 (2016) [MP3|320 Kbps] <Trance, Progressive Trance,
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244888.jpgsave_picture_244888.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ VA - Ambient Oceania (2021) [MP3|320 Kbps] <Ambient, Downtempo, Meditation, New 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244889.jpgsave_picture_244889.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Europe - Collection (2022) [MP3|320 Kbps] <Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244896.jpgsave_picture_244896.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ VA - Шальной Музон Хорошего Настроения 7 (2016) [M
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244901.jpgsave_picture_244901.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ VA - Beatport Club Techno: Sound Pack #248 (2021) [MP3|320 Kbps] <Techno, Tech H
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244910.jpgsave_picture_244910.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ VA - Beatport Progressive Trance: Sound Pack #249 (2021) [MP3|320 Kbps] <Trance,
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244957.jpgsave_picture_244957.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Mantovani and His Orchestra - Compilation (2023) [MP3|320 Kbps] <Easy Listening>
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245063.jpgsave_picture_245063.jpg" />
 </div>
 
 

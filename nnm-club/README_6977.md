@@ -6,7 +6,7 @@ RSS Guard 4.3.4 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239559.jpgsave_picture_239559.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Money Pro - Personal Finance 2.8.12 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239560.jpgsave_picture_239560.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:07E9B4A764748DC90B72186E32944FCA1F57E53F
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239561.jpgsave_picture_239561.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:3F031CCBC5945793FF11C0291B65C06087F459E2
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239562.jpgsave_picture_239562.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ Alfred 4 Powerpack 4.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239563.jpgsave_picture_239563.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ Meta 2.1.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239564.jpgsave_picture_239564.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ Stuff Smith - 1936 - 1939 (1993) Classics [FLAC|Lossless|tracks + .cue] <Swing, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239565.jpgsave_picture_239565.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ magnet:?xt=urn:btih:54E09CA3FEE3B01883C1033AB5B65CD635EF7543
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239566.jpgsave_picture_239566.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ magnet:?xt=urn:btih:66B6F497922EAFE7035159F0619E873A39CAF399
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239567.jpgsave_picture_239567.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ Mark J. Price | Apps and Services with .NET 7: Build practical projects with Bla
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239568.jpgsave_picture_239568.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ Public Domain Resource - AntiGravity (2018) [FLAC|Lossless|image + .cue] <Synth-
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239569.jpgsave_picture_239569.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ Glary Utilities Pro 5.203.0.232 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239570.jpgsave_picture_239570.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ VA - ZYX Italo Disco New Generation Vol. 5 (2014) 2 CD [OGG Vorbis|480 Kbps] <It
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239571.jpgsave_picture_239571.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ System Toolkit 5.6.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239572.jpgsave_picture_239572.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ VA - Lilac Aromas Lounge: Chillout Your Mind (2020) [AAC|~326 Kbps] <Downtempo, 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239573.jpgsave_picture_239573.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Skype 8.98.0.402 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239574.jpgsave_picture_239574.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Rebelway, JAMES HODGART | Mastering Environment creation in Houdini (2020) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239575.jpgsave_picture_239575.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ VA - 100 Radio Hits - The Sound Of My Life (2020) [5CD Box Set] [FLAC|Lossless|t
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239576.jpgsave_picture_239576.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ Water From Your Eyes - Everyone's Crushed (2023) [FLAC 24/96|Lossless|WEB-DL|tra
 >>Alternative, Punk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239577.jpgsave_picture_239577.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ magnet:?xt=urn:btih:E614C6508245F1D7EFA17103BC98A6C6A1B8229B
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239578.jpgsave_picture_239578.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ magnet:?xt=urn:btih:E0AD674E9B8BC051FA5643515DA97C7E8A094F11
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239579.jpgsave_picture_239579.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Howard McGhee - 1945 - 1946 (2000) Classics [FLAC|Lossless|tracks + .cue] <Bop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239580.jpgsave_picture_239580.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ magnet:?xt=urn:btih:B5A3526E8871CAB5A3AF83961AA6FB94943B8C62
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239581.jpgsave_picture_239581.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Wondershare PDFelement 9.5.3.2198 RePack by elchupacabra + OCR Plugin [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239582.jpgsave_picture_239582.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ DirEqual 4.4.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239583.jpgsave_picture_239583.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Glary Disk Cleaner 5.0.1.289 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239584.jpgsave_picture_239584.jpg" />
 </div>
 
 

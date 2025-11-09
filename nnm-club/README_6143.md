@@ -6,7 +6,7 @@ Udemy, Stephen Ulibarri | Blender Sculpting - Rune Sword (2022) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_193098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193098.jpgsave_picture_193098.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ John Haydock - Bargain with the Night (2023) [FLAC|Lossless|WEB-DL|tracks] <Blue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193099.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193099.jpgsave_picture_193099.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Sono Bisque Doll wa Koi o Suru | My Dress-Up Darling | Эта фарфорова
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_193100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193100.jpgsave_picture_193100.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Ring Of Fire - Studio Albums (5 releases) (2001-2022) hand made [restored, decli
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193101.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193101.jpgsave_picture_193101.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ magnet:?xt=urn:btih:E26EAF42EA1B40C0D8C30A20AB87DA11C1B6044D
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_193102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193102.jpgsave_picture_193102.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ magnet:?xt=urn:btih:9B9CF5E4C84D1CB8C64F61117111CAB4F1CEF0D1
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193103.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193103.jpgsave_picture_193103.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Grace Potter - Mother Road (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193104.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193104.jpgsave_picture_193104.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ magnet:?xt=urn:btih:7F0C5A9BDABDC7451B916FB02BAF8F3540D5F9F7
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_193105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193105.jpgsave_picture_193105.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Steve Baker - Too Much Is Never Enough (2023) [FLAC|Lossless|WEB-DL|tracks] <Blu
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193106.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193106.jpgsave_picture_193106.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ magnet:?xt=urn:btih:AA818CF145B541EA469F43730320BBE4330D24D7
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_193107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193107.jpgsave_picture_193107.jpg" />
 </div>
 
 
@@ -265,7 +265,7 @@ magnet:?xt=urn:btih:4A2F53CF7EBF3814B7441410E2FFE3B3A85F5B92
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_193108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193108.jpgsave_picture_193108.jpg" />
 </div>
 
 
@@ -289,7 +289,7 @@ MotoGP. Этап 11. Гран-при Каталонии. Квалификаци�
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193109.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193109.jpgsave_picture_193109.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ magnet:?xt=urn:btih:EDB17E408800B88296562E914F5C6CBA7FA55449
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193110.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193110.jpgsave_picture_193110.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ LEGO Brawls (2022) [PS4] [EUR] 5.05 [HEN] [License / 1.01] [Ru/Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_193111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193111.jpgsave_picture_193111.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ magnet:?xt=urn:btih:FD0FF5D73467C675E0CBDCAF888AF885BC724084
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_193112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193112.jpgsave_picture_193112.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ Chris Manning - Reach the Sky - Reach the Sky (2023) [FLAC|Lossless|WEB-DL|track
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193113.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193113.jpgsave_picture_193113.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ Blackburn Brothers - SoulFunkn'BLUES (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193114.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193114.jpgsave_picture_193114.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Avi Rosenfeld - Black Rock Mountain (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193115.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193115.jpgsave_picture_193115.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Art of Dysfunction - Art of Dysfunction (2023) [FLAC|Lossless|WEB-DL|tracks] <Ha
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193116.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193116.jpgsave_picture_193116.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Sprain - The Lamb as Effigy (2023) [FLAC|Lossless|WEB-DL|tracks] <Noise Rock, Po
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193117.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193117.jpgsave_picture_193117.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ Rock Paper Sisters - One In A Million (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193118.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193118.jpgsave_picture_193118.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ Frankie and the Witch Fingers - Data Doom (2023) [FLAC|Lossless|WEB-DL|tracks] <
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193119.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193119.jpgsave_picture_193119.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ magnet:?xt=urn:btih:47DD80B54698F761EB823E9A2096A9AE2FFA5CD5
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_193120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193120.jpgsave_picture_193120.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ Justin Light & The Midnighters - This Ain't Nothing but the Blues (2023) [FLAC|L
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193121.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193121.jpgsave_picture_193121.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ magnet:?xt=urn:btih:CBD5B03AE93BF74259DAAEEB2B32CFBEFCAA7C5A
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_193122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193122.jpgsave_picture_193122.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ magnet:?xt=urn:btih:1782BBF1CA8C55690FC94C1C484A720031534561
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193123.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193123.jpgsave_picture_193123.jpg" />
 </div>
 
 

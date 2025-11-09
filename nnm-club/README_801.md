@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21154.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21154.jpgsave_picture_21154.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Mandragora: Whispers of the Witch Tree (2025) [Ru/Multi] (1.2.4.2147/dlc) Repack
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21155.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21155.jpgsave_picture_21155.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:60FAD9DABBED086083FEF37CEC74A1C9F12C118E
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21156.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21156.jpgsave_picture_21156.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Chains of Freedom (2025) [Ru/Multi] (1.0.1) Repack FitGirl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21157.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21157.jpgsave_picture_21157.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:26E6AE848E4CB88F7C4DB96F09B0F1071A7AA9D0
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21158.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21158.jpgsave_picture_21158.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:2C8E6B2CDB25C2E24525DBAC1D9DBEC213485CE9
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21159.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21159.jpgsave_picture_21159.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:6968792583D6DADFDF4BD2548614378391D9789A
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21160.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21160.jpgsave_picture_21160.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:1D1C3DB04D99EF2FB1E92394FCEB64E03ACE2127
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21161.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21161.jpgsave_picture_21161.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:E09EC9EB9B256337071D1DCE1E10D143D0064F3F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21162.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21162.jpgsave_picture_21162.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Windows 11 PRO 24H2 26100.3775 Update 14 by Ghost Spectre [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21163.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21163.jpgsave_picture_21163.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ Anno 1800 (2020) [Ru/Multi] (9.2.972600/dlc) Repack seleZen [Complete Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21164.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21164.jpgsave_picture_21164.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:8BDDE2ECD79E40F5800C42F5CE7207C192653222
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21165.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21165.jpgsave_picture_21165.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ magnet:?xt=urn:btih:8EF348C9D040A7A762890A35E358DD07E29423FE
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21166.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21166.jpgsave_picture_21166.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ magnet:?xt=urn:btih:5FEA367544C043D09A55D742E76943E39ED08404
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21167.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21167.jpgsave_picture_21167.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ CCleaner 6.35.11488 Free / Professional / Business / Technician Edition RePack (
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21168.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21168.jpgsave_picture_21168.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Forever Skies (2023) [Ru/Multi] (1.0.0 Build #39119/dlc) Repack Wanterlude
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21169.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21169.jpgsave_picture_21169.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ AI Limit (2025) [Ru/Multi] (1.0.022/dlc) Repack Wanterlude [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21170.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21170.jpgsave_picture_21170.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ magnet:?xt=urn:btih:68BC4526F8AD2683A8F77004DD49FB130B59B7EA
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21171.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21171.jpgsave_picture_21171.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ magnet:?xt=urn:btih:8F7CE90B9AEA224E4B9E69C171434F6D361EDDC2
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21172.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21172.jpgsave_picture_21172.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ magnet:?xt=urn:btih:4852251EC83E275928FB5FA88AD03C5596B04AE2
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21173.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21173.jpgsave_picture_21173.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ magnet:?xt=urn:btih:07AFC2BAA5BF69631C350720FB610D529DB4AC32
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21174.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21174.jpgsave_picture_21174.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ magnet:?xt=urn:btih:63D87B863FF8C14A87F8734E71A7AC1EBF39F271
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21175.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21175.jpgsave_picture_21175.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ Blender 4.4.1 + Portable [Multi/Ru]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21176.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21176.jpgsave_picture_21176.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ magnet:?xt=urn:btih:BE8E5C194FC5E64C2BBEA1D66EF174153D2C5CED
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21177.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21177.jpgsave_picture_21177.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ magnet:?xt=urn:btih:FFB655837B5308FD8870A47FA0656B241C52EE5F
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21178.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21178.jpgsave_picture_21178.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ Adobe Bridge 2025 15.0.4.534 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21179.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21179.jpgsave_picture_21179.jpg" />
 </div>
 
 

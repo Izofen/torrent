@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132860.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132860.jpgsave_picture_132860.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:2E6EB5817B5890917AF44DE9A3A0CFF81D7A9562
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132862.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132862.jpgsave_picture_132862.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Tourist Trap (2023) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132863.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132863.jpgsave_picture_132863.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Fuga: Melodies of Steel 2 (2023) [Ru/Multi] (1.30/dlc) Scene Tenoke [Deluxe Edit
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132864.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132864.jpgsave_picture_132864.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:B32FCA428B649CC73668A283C434450FC7BE190B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132865.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132865.jpgsave_picture_132865.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:BA0DA389E87D5965CA5BDB5044CB808C32B5C58C
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132866.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132866.jpgsave_picture_132866.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:C482D8DBDFAD10A6E2DF864E0048F1445D3FDD6B
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132869.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132869.jpgsave_picture_132869.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:C482D8DBDFAD10A6E2DF864E0048F1445D3FDD6B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132871.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132871.jpgsave_picture_132871.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Creature Lab (2023) [Multi] (2.0.40/dlc) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132872.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132872.jpgsave_picture_132872.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:C97E1F4D0CC55BC0F2D712B017B5498AFF93C866
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132873.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132873.jpgsave_picture_132873.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Singularity [Ru/En] (RePack/1.1) 2010 | R.G. Механики
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132874.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132874.jpgsave_picture_132874.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ StartAllBack 3.7.0 StartIsBack++ 2.9.19 (2.9.1) StartIsBack + 1.7.6 RePack by Kp
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132875.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132875.jpgsave_picture_132875.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Far Cry 3 [Ru] (RePack/1.04) 2012 | Audioslave
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132876.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132876.jpgsave_picture_132876.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:E79B722A855C3CBE0B995D525A4B088CF9428204
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132877.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132877.jpgsave_picture_132877.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ FUEL [Ru/En] (RePack) 2009 | R.G. Механики
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132878.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132878.jpgsave_picture_132878.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ magnet:?xt=urn:btih:30B83DD4D9FF6A358F1A390382061D99E947C5F8
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132879.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132879.jpgsave_picture_132879.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ magnet:?xt=urn:btih:71CFB8BABA735E4DBE38825EE14E340BA6852B3B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132881.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132881.jpgsave_picture_132881.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ magnet:?xt=urn:btih:6C1B6AD357DC53CEF7FBDA359D74135E5EE3FC8B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132883.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132883.jpgsave_picture_132883.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ VA - Русские Хиты 7 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132884.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132884.jpgsave_picture_132884.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ magnet:?xt=urn:btih:11E38F044C187A3A1BA7D282363348019C05E87A
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132887.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132887.jpgsave_picture_132887.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ magnet:?xt=urn:btih:8E95AB7D08237350E3E32DBA9C4D3F3547EC46B3
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132888.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132888.jpgsave_picture_132888.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Final Cut Pro X 10.0.7 [Multi/Eng]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132889.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132889.jpgsave_picture_132889.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ ACDSee Pro 6.1 Build 197 Final [Английский + Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132890.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132890.jpgsave_picture_132890.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ ACDSee Pro - профессиональная программа для рабо
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132891.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132891.jpgsave_picture_132891.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ magnet:?xt=urn:btih:018BDBDB95E1A843FA232E49914A244581BC8CF9
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132892.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132892.jpgsave_picture_132892.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ magnet:?xt=urn:btih:7B31AEDB650736383C775FEA3C183ADED23D1AE5
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132893.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132893.jpgsave_picture_132893.jpg" />
 </div>
 
 

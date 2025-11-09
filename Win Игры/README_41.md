@@ -6,7 +6,7 @@ Deep Rock Galactic (2020) [Ru/Multi] (1.39.120236.0/dlc) Repack Pioneer
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12518.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12518.jpgsave_picture_12518.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:DDBBDF7B6915623D1345B56EAD5C9745A3735666
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12586.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12586.jpgsave_picture_12586.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Gal Guardians: Servants of the Dark (2025) [Multi] (1.4.0/dlc) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12587.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12587.jpgsave_picture_12587.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Perfect Heist 2 (2021) [Ru/Multi] (03.07.2025) Repack Pioneer
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12591.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12591.jpgsave_picture_12591.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Blood Bowl III (3) (2023) [Ru/Multi] (Build 52126/dlc) Repack FitGirl [Brutal Ed
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12595.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12595.jpgsave_picture_12595.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Frog Jump (2025) [Ru/Multi] (1.0.1) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12601.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12601.jpgsave_picture_12601.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Tales of Maj'Eyal (2012) [En] (1.7.6/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12606.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12606.jpgsave_picture_12606.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Moonstone Island (2023) [Ru/Multi] (1.5.2553.9/dlc) License GOG [Collector’s E
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12610.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12610.jpgsave_picture_12610.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Kainga: Seeds of Civilization (2022) [Multi] (1.2.21) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12613.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12613.jpgsave_picture_12613.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ The Spell Brigade (2024) [Ru/Multi] (0.11.0.4764) Repack Pioneer [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12617.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12617.jpgsave_picture_12617.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Lonely Mountains: Snow Riders (2025) [Ru/Multi] (1.2.101/dlc) Repack Let'sРlay
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12621.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12621.jpgsave_picture_12621.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ magnet:?xt=urn:btih:85AB2FFCE694D910FDF67C77781580B02F56F632
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12633.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12633.jpgsave_picture_12633.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ magnet:?xt=urn:btih:E2779316F0180EBD7644F9CD03A67DFC8F094358
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12692.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12692.jpgsave_picture_12692.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Project Warlock II (2) (2022) [Ru/Multi] (1.0.1.10) Repack Let'sРlay
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12697.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12697.jpgsave_picture_12697.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Soulslinger: Envoy of Death (2023) [Ru/Multi] (1.03) Repack Let'sРlay
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12721.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12721.jpgsave_picture_12721.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ KARMA: The Dark World (2025) [Ru/Multi] (karma250620) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12723.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12723.jpgsave_picture_12723.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Deep Rock Galactic (2020) [Ru/Multi] (1.39.120236.0/dlc) Repack Let'sРlay [Dwar
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12724.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12724.jpgsave_picture_12724.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ DOOMER SIMULATOR (2025) [Ru/En] (0.9.1) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12794.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12794.jpgsave_picture_12794.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Sengoku Dynasty (2023) [Ru/Multi] (1.1.0.6) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12805.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12805.jpgsave_picture_12805.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Post-Apo Builder (2025) [Ru/Multi] (1.0001) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12806.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12806.jpgsave_picture_12806.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Pocket Bravery (2023) [Multi] (2.05/dlc) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12807.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12807.jpgsave_picture_12807.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Coridden (2025) [Ru/Multi] (1.3.1/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12818.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12818.jpgsave_picture_12818.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Spacechem (2011) [Ru/Multi] (1016hf) License GOG
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12822.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12822.jpgsave_picture_12822.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ STAR WARS: Episode I: Jedi Power Battles (2025) [Ru/Multi] (1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12823.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12823.jpgsave_picture_12823.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Sandwalkers (2024) [Ru/Multi] (2.1.2) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12827.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12827.jpgsave_picture_12827.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ The Operator (2024) [Ru/Multi] (5145_1842) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12836.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12836.jpgsave_picture_12836.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87806.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87806.jpgsave_picture_87806.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87807.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87807.jpgsave_picture_87807.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Portable AkelPad Image Full 16.16 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87809.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87809.jpgsave_picture_87809.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ AkelPadImage является первой и крупнейшей уникал�
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87811.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87811.jpgsave_picture_87811.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ AkelPadImage является первой и крупнейшей уникал�
 >>Зарубежная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87812.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87812.jpgsave_picture_87812.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:319E775A8CE6A484AF85732DE1E15D5163704B84
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87814.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87814.jpgsave_picture_87814.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ magnet:?xt=urn:btih:C3B9BA9DBB2A38FD7A6758B682861B57F8E25813
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87816.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87816.jpgsave_picture_87816.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ History Channel: Секреты языка тела / Secrets of Body Language (
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87818.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87818.jpgsave_picture_87818.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ magnet:?xt=urn:btih:6828070C3FDCB9B2E168CF7064DFA4D1A35675A1
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87820.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87820.jpgsave_picture_87820.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ James Asher - 15 albums (1990-2011) [MP3|320 kbps]<New Age, Trance, World Music,
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87821.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87821.jpgsave_picture_87821.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ James Asher - 15 albums (1990-2011) [MP3|320 kbps]<New Age, Trance, World Music,
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87822.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87822.jpgsave_picture_87822.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ magnet:?xt=urn:btih:88355DBBBFBBEA72447B2CF1E98DDB1B60A45784
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87823.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87823.jpgsave_picture_87823.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ magnet:?xt=urn:btih:CF8C4D9FCEABE95C49E61A0B6246E046782AD1EA
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87824.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87824.jpgsave_picture_87824.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ magnet:?xt=urn:btih:CF8C4D9FCEABE95C49E61A0B6246E046782AD1EA
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87827.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87827.jpgsave_picture_87827.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ magnet:?xt=urn:btih:CF8C4D9FCEABE95C49E61A0B6246E046782AD1EA
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87829.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87829.jpgsave_picture_87829.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ magnet:?xt=urn:btih:9DEAA1122C14FC60BF7F84EE0DE28D2A6E333543
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87830.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87830.jpgsave_picture_87830.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ magnet:?xt=urn:btih:9DEAA1122C14FC60BF7F84EE0DE28D2A6E333543
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87834.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87834.jpgsave_picture_87834.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ magnet:?xt=urn:btih:9DEAA1122C14FC60BF7F84EE0DE28D2A6E333543
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87837.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87837.jpgsave_picture_87837.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ Microsoft .NET Framework 4.5 Beta [Мульти, есть русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87838.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87838.jpgsave_picture_87838.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Microsoft .NET Framework 4.5 Beta [Мульти, есть русский]
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87839.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87839.jpgsave_picture_87839.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ magnet:?xt=urn:btih:34C579C55D4FBE4C78C6E218A70B242FBC01F00F
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87840.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87840.jpgsave_picture_87840.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ magnet:?xt=urn:btih:B5832E13CACA891778145AD726D0B3A30425D325
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87841.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87841.jpgsave_picture_87841.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Zолушка (2012) [1080i] Blu-ray
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87842.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87842.jpgsave_picture_87842.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Microsoft прекращает основную поддержку Windows Vista
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87843.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87843.jpgsave_picture_87843.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Microsoft прекращает основную поддержку Windows Vista
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87844.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87844.jpgsave_picture_87844.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ magnet:?xt=urn:btih:27E5F7D9AB6514E17972D11C8178982FC7B67EF6
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87846.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87846.jpgsave_picture_87846.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Youtube Downloader HD 5.7.2 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48899.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48899.jpgsave_picture_48899.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:E337296C769FAF545FAA9449F17E5464281EB648
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48900.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48900.jpgsave_picture_48900.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Internet Download Manager 6.42 Build 17 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48901.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48901.jpgsave_picture_48901.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ DIO - Holy Diver Live (2005) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48902.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48902.jpgsave_picture_48902.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:08C03473D557FF1EC36866D3C8E518D70B96B583
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48903.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48903.jpgsave_picture_48903.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:08C03473D557FF1EC36866D3C8E518D70B96B583
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48904.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48904.jpgsave_picture_48904.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:31D425F661B2C216C356F97FCEFE419CA993A939
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48905.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48905.jpgsave_picture_48905.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:F421723F6B6D6A1F852B424F0DB5C8DE57689424
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48906.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48906.jpgsave_picture_48906.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:3B2CE0CED2F1D1153F1ED8D06AE5AABD24BE851F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48907.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48907.jpgsave_picture_48907.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Nine Sols (2024) [Multi] (b7ca1880) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48908.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48908.jpgsave_picture_48908.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ DIO - We Rock (2005) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48909.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48909.jpgsave_picture_48909.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ magnet:?xt=urn:btih:EF549F670962B382D9C089645AB46ABCC4CB4F6D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48910.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48910.jpgsave_picture_48910.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ magnet:?xt=urn:btih:CF6BB23D1DED3BCE01E3BC496B5D89B16AE195A8
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48911.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48911.jpgsave_picture_48911.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ magnet:?xt=urn:btih:6B6758536A62F88ABE72FE763F3D1CBEF36C6B31
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48912.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48912.jpgsave_picture_48912.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ magnet:?xt=urn:btih:4CDCC4DB809D09D4CC02858D962EB1F6084F66C6
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48913.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48913.jpgsave_picture_48913.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ magnet:?xt=urn:btih:4CDCC4DB809D09D4CC02858D962EB1F6084F66C6
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48914.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48914.jpgsave_picture_48914.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ magnet:?xt=urn:btih:50049F31EA9E6A01F0A25FD679E4489E4D6F604C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48915.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48915.jpgsave_picture_48915.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Adobe Premiere Pro 2024 24.5.0.57 (x64) Light Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48916.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48916.jpgsave_picture_48916.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ magnet:?xt=urn:btih:F111D8998D0FBDC1B28DD900BA76393729374B08
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48917.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48917.jpgsave_picture_48917.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ magnet:?xt=urn:btih:F111D8998D0FBDC1B28DD900BA76393729374B08
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48918.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48918.jpgsave_picture_48918.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ Adobe Premiere Pro 2024 24.5.0.57 (x64) Full Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48919.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48919.jpgsave_picture_48919.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ AnyDesk 8.0.12 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48920.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48920.jpgsave_picture_48920.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ magnet:?xt=urn:btih:31FD3CB0F0C943F457633607DCB6FC47CBC07985
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48921.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48921.jpgsave_picture_48921.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ $1000 в месяц: эксперимент Альтмана показал пл
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48922.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48922.jpgsave_picture_48922.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ $1000 в месяц: эксперимент Альтмана показал пл
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48923.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48923.jpgsave_picture_48923.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Judas Priest - British Steel Live - 30th Anniversary Deluxe Edition (2010) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48924.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48924.jpgsave_picture_48924.jpg" />
 </div>
 
 

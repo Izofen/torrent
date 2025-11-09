@@ -6,7 +6,7 @@
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86011.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86011.jpgsave_picture_86011.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@
 >>Детские Игры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86012.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86012.jpgsave_picture_86012.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:B041BD5E7C1594B9F0B5AC31E7933B9BA72C1773
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86013.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86013.jpgsave_picture_86013.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:20570A7354011F3AB3ABEF4A262A8673710C30C5
 >>Костюмы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86014.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86014.jpgsave_picture_86014.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:839C9812D0670E2D6D38412E30EC86A3698473F2
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86015.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86015.jpgsave_picture_86015.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:839C9812D0670E2D6D38412E30EC86A3698473F2
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86018.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86018.jpgsave_picture_86018.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Photo Objects Eraser 1.0 [Rus] Portable
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86022.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86022.jpgsave_picture_86022.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Photo Object Eraser это инструмент для удаления неже
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86026.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86026.jpgsave_picture_86026.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ Photo Object Eraser это инструмент для удаления неже
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86027.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86027.jpgsave_picture_86027.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ Photo Object Eraser это инструмент для удаления неже
 >>Развивающие Игры для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86029.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86029.jpgsave_picture_86029.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ magnet:?xt=urn:btih:C23A2CB32B7F8E8FC4F1060D261FD4C1C2C0F906
 >>Развивающие Игры для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86031.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86031.jpgsave_picture_86031.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ magnet:?xt=urn:btih:EE65722CDFB0BC7C0DAC83EA6D98635153710C8A
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86032.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86032.jpgsave_picture_86032.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:23D6C26CA07EDA9F7AC348FCFFC053A3DD332870
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86034.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86034.jpgsave_picture_86034.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ magnet:?xt=urn:btih:452D799DFF1B0A84176AE169566C67429B0148F2
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86035.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86035.jpgsave_picture_86035.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ magnet:?xt=urn:btih:3CFCB9758ADE241CBC25EADBCE62B6E4E89DA647
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86036.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86036.jpgsave_picture_86036.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ magnet:?xt=urn:btih:47DCDF58CBCAB5748B2289B7C889FA1A0D163215
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86037.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86037.jpgsave_picture_86037.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ magnet:?xt=urn:btih:47DCDF58CBCAB5748B2289B7C889FA1A0D163215
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86040.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86040.jpgsave_picture_86040.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Total Commander PowerUser v58
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86041.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86041.jpgsave_picture_86041.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Rabbids Go Home / Бешеные Кролики [Ru] (RePack) 2010 l UltraISO
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86042.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86042.jpgsave_picture_86042.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ magnet:?xt=urn:btih:53D9BCACD4FB338EC4CCD6D55ED4916B0EF18A25
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86043.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86043.jpgsave_picture_86043.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Windows 7 SP1 x86 x64 WPI By StartSoft v 17.4.12 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86045.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86045.jpgsave_picture_86045.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Windows 7 SP1 x86 x64 WPI By StartSoft v 17.4.12 [Русский]
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86047.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86047.jpgsave_picture_86047.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ magnet:?xt=urn:btih:5D75BCC2357FB4483D2EDDA706B7FBA1B1AB9F1F
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86050.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86050.jpgsave_picture_86050.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Adobe Photoshop CS6 13.0 Beta [Английский + Русификатор]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86052.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86052.jpgsave_picture_86052.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ Call of Duty: Black Ops AlterOps (2010) [Ru] (7.0.164) Rip Canek77 [Multiplayer]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86055.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86055.jpgsave_picture_86055.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ magnet:?xt=urn:btih:EC80B26CB4F879CE6485EF37E53C041434FEA6B7
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86056.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86056.jpgsave_picture_86056.jpg" />
 </div>
 
 

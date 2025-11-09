@@ -6,7 +6,7 @@
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149242.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149242.jpgsave_picture_149242.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:755581F10393135C513268EF29089FBFF5BAE0DE
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149244.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149244.jpgsave_picture_149244.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:972B77C9BB3E22365C1C64BB3854254DC4AA2E05
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149245.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149245.jpgsave_picture_149245.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:2A96125472F128E837C457557BF8F1D54083E4EA
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149246.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149246.jpgsave_picture_149246.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:0367084B7F77209FBB7F7C8DECABD94BF9F3055A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149247.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149247.jpgsave_picture_149247.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ VA - Amsterdam Music Festival, Johan Cruijff ArenA, ADE (2023-10-21) [MP3|320 Kb
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149248.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149248.jpgsave_picture_149248.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ GOM Player 2.1.47 Build 5133 Final [English]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149251.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149251.jpgsave_picture_149251.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ MAGIX Sound Forge Pro 15.0 Build 161 (x64) RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149252.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149252.jpgsave_picture_149252.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:C4D61E056B2328476C2CEDBA982646C7CB710468
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149253.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149253.jpgsave_picture_149253.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:9B55386565B0448543B4F3555F7EBC7D10A03520
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149254.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149254.jpgsave_picture_149254.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ ValhallaDSP Bundle 2020.11 VST, VST3, AAX (x64) RePack by VR [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149256.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149256.jpgsave_picture_149256.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Classix Nouveaux - Battle Cry (2023) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Ne
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149257.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149257.jpgsave_picture_149257.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Frank Zappa - Over-Nite Sensation (1973) 50th Anniversary, 2023 [FLAC 24/96|Loss
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149259.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149259.jpgsave_picture_149259.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ magnet:?xt=urn:btih:37DA0362A3B5681C83FAD4A3F3D36987086EC3AA
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149260.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149260.jpgsave_picture_149260.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ magnet:?xt=urn:btih:1C6991E3468925E478EA9CAE27E23D32AF478D2D
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149261.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149261.jpgsave_picture_149261.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ magnet:?xt=urn:btih:83DEBF7107EB73E1B2F23362FAD3CD9403699C58
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149262.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149262.jpgsave_picture_149262.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ magnet:?xt=urn:btih:38F7DB9A7C924FAC1952B83AA3C09DF1976143E4
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149263.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149263.jpgsave_picture_149263.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ magnet:?xt=urn:btih:2DDB37FF6888C3FA0ADD726ED17797699432BA74
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149264.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149264.jpgsave_picture_149264.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ magnet:?xt=urn:btih:8ECADDF6AAEC57375E2912D96B6846ED2BB38A4F
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149265.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149265.jpgsave_picture_149265.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ magnet:?xt=urn:btih:3CBB5FBC6D62731A1A76FC704C7B692EBD635BDC
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149266.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149266.jpgsave_picture_149266.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ Microsoft Visual Studio 2019 Enterprise 16.8.2 (Offline Cache, Unofficial) [Ru/E
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149267.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149267.jpgsave_picture_149267.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ magnet:?xt=urn:btih:5A78D0A5F2E72B39C8406534D6A749F38A3F53ED
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149269.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149269.jpgsave_picture_149269.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:6FE80264D1F0AF5E8867CAC38317F063D2EC7B1C
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149270.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149270.jpgsave_picture_149270.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ This Dying Hour - Longest Memory From The Shortest Life (2007) Delux Edition, 20
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149271.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149271.jpgsave_picture_149271.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ magnet:?xt=urn:btih:6B7B5D08BE81A2505095CC7B2A657EEA85306676
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149272.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149272.jpgsave_picture_149272.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ magnet:?xt=urn:btih:2AB061295A06421BD178E6505C6C6BCDB82864DF
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149273.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149273.jpgsave_picture_149273.jpg" />
 </div>
 
 

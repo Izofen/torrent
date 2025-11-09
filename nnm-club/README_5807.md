@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181317.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181317.jpgsave_picture_181317.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Dead Addiction - ...of Vice and Men (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard R
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181319.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181319.jpgsave_picture_181319.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Slurm (Слёрм), Кирилл Борисов | Jenkins: СI/CD для DevOps 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181320.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181320.jpgsave_picture_181320.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:D8506594F65FC69671E82782D0FEBE14EE0AFFCF
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181323.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181323.jpgsave_picture_181323.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:0439AA489D54958AD75322CBA0BE8BC54088FA7D
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181325.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181325.jpgsave_picture_181325.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:755569178A6D0F5BB78AE09A50F74E65D45A1F3E
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181331.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181331.jpgsave_picture_181331.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ YouTube ReVanced Extended 17.45.36 Mod by inotia00 + MicroG [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181332.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181332.jpgsave_picture_181332.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ App Builder 2023.59 (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_181335.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_181335.jpgsave_picture_181335.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Slurm (Слёрм), Иван Чувашов | Оптимизация запро�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181336.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181336.jpgsave_picture_181336.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ Stalker - Tales From Heaven (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Heavy 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181338.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181338.jpgsave_picture_181338.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ Bound By Blades (2022) [Multi] (1.7.2.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181340.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181340.jpgsave_picture_181340.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ magnet:?xt=urn:btih:63423784FDB69841C2A1A3747D88C7065B2C5475
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181342.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181342.jpgsave_picture_181342.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ Jon Lord - Live (2023) [MP3|320 Kbps] <Symphonic Rock, Rock, Classical>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181346.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181346.jpgsave_picture_181346.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ magnet:?xt=urn:btih:2F813AEDBE4BE4AED6DD9CA292598E4509734AA6
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181348.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181348.jpgsave_picture_181348.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ V.A. - Melodic Rock 100 (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181352.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181352.jpgsave_picture_181352.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ magnet:?xt=urn:btih:D37AD4BE22E0D9F229E8EDA9B61632C3CEF8C7ED
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181354.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181354.jpgsave_picture_181354.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ magnet:?xt=urn:btih:739038651B81613EB6409D062B0FC68BCBE4962F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181358.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181358.jpgsave_picture_181358.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ RJ TextEd 15.96.2.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181360.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181360.jpgsave_picture_181360.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ magnet:?xt=urn:btih:9FE7B0180A535088A7E0CAEFCE3E879D98F799E8
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181366.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181366.jpgsave_picture_181366.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ magnet:?xt=urn:btih:762FF281FE6C8616DEBBB1ECF8DAE891D797049C
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181368.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181368.jpgsave_picture_181368.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ magnet:?xt=urn:btih:258E9C8598CCC2B2C0CC95CB011E06B7F79CC530
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181370.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181370.jpgsave_picture_181370.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ magnet:?xt=urn:btih:CA1A5D5C11AE9F6C2E95152B015977C3274A18BF
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_181373.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_181373.jpgsave_picture_181373.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ magnet:?xt=urn:btih:BE537DC26E904B648AED7395B316E1E3BA8A8F13
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181374.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181374.jpgsave_picture_181374.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ magnet:?xt=urn:btih:76503F0F21ED598BD667D2BA31D4203D781C3C7A
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181375.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181375.jpgsave_picture_181375.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Total Commander 10.52 (22.11.2022) Portable by MiG [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181380.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181380.jpgsave_picture_181380.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ magnet:?xt=urn:btih:B0DF716EEF0D6A59FEF160CBE78768BEA6502943
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181382.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181382.jpgsave_picture_181382.jpg" />
 </div>
 
 

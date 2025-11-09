@@ -6,7 +6,7 @@ Noreya: The Gold Project (2023) [Ru/Multi] (1.3.39) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29872.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29872.jpgsave_picture_29872.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Sable (2021) [Ru/Multi] (4.3) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29910.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29910.jpgsave_picture_29910.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Assassin's Creed IV: Black Flag (2013) [Ru/Multi] (1.08/dlc) Repack Wanterlude
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29929.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29929.jpgsave_picture_29929.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ The Night of the Rabbit (2013) [Ru/Multi] (2.2.325) Repack Let'sРlay [Premium E
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29937.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29937.jpgsave_picture_29937.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Deepest Chamber: Resurrection (2021) [Multi] (1.088) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29942.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29942.jpgsave_picture_29942.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Company of Heroes 2 (2014) [Ru/En] (4.0.0.23468/dlc) Repack dixen18 [Master Coll
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29964.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29964.jpgsave_picture_29964.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ STAR WARS: Episode I: Jedi Power Battles (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29984.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29984.jpgsave_picture_29984.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Uncle Chop's Rocket Shop (2024) [Ru/Multi] (1.4.0:5875/dlc) Repack FitGirl [Delu
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30029.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30029.jpgsave_picture_30029.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Perennial Order (2024) [Ru/Multi] (1.0.3) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30044.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30044.jpgsave_picture_30044.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Wild Woods (2024) [Ru/Multi] (0.1.0) Repack Pioneer [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30052.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30052.jpgsave_picture_30052.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ DISORDER (2025) [Ru/Multi] (build 17062976) Repack seleZen
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30053.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30053.jpgsave_picture_30053.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Eximius: Seize the Frontline (2018) [Ru/Multi] (1.2.2/dlc) Repack seleZen
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30058.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30058.jpgsave_picture_30058.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ The Redundant (2025) [Ru/Multi] (Build 17094745) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30091.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30091.jpgsave_picture_30091.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Bartlow's Dread Machine (2020) [Ru/Multi] (Build 5929982) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30140.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30140.jpgsave_picture_30140.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Vampire Therapist (2024) [Multi] (1.202) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30155.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30155.jpgsave_picture_30155.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ The Other Me (2025) [Ru/Multi] (build 16992762) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30167.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30167.jpgsave_picture_30167.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Sons of the Forest (2023) [Ru/Multi] (1.0 53951) Repack Pioneer
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30186.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30186.jpgsave_picture_30186.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Warlords Under Siege (2022) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30193.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30193.jpgsave_picture_30193.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ My Memory of Us (2018) [Ru/Multi] (Build 16287132) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30229.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30229.jpgsave_picture_30229.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Paranormal Files 12: Fatal Flaw / Паранормальные явления 12
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30233.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30233.jpgsave_picture_30233.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ The Star Named EOS (2024) [Ru/Multi] (1.0.0.04) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30236.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30236.jpgsave_picture_30236.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Gangs of Neo Tokyo (2025) [En] (1.0) Repack FitGirl
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30265.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30265.jpgsave_picture_30265.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ The Other Me (2025) [Ru/Multi] (build 16992762) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30272.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30272.jpgsave_picture_30272.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Tales of Graces f Remastered (2025) [Ru/Multi] (1.0.0/dlc) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30277.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30277.jpgsave_picture_30277.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Final Fantasy VII Remake Intergrade (2021) [Ru/Multi] (1.005/dlc) Repack Wanterl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30292.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30292.jpgsave_picture_30292.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Detective Club: Missing in the Fog (2025) [Multi] (1.0) Unofficial [Collector's 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30304.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30304.jpgsave_picture_30304.jpg" />
 </div>
 
 

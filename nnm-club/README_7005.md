@@ -6,7 +6,7 @@ VA - Chill & Dance Hits 2023 [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240291.jpgsave_picture_240291.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:E5D0E5C6560DB99F9854241F3C5221C13C4C475E
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240292.jpgsave_picture_240292.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Keiko Lee - Imagine (1995) Sony Music [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240293.jpgsave_picture_240293.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:4F425D43D0941DE1305E04238297AD99496DAEAB
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240294.jpgsave_picture_240294.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ magnet:?xt=urn:btih:669E4647B04F20C3EBD9170452ADC924046126D9
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240295.jpgsave_picture_240295.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Primal Fear - I Will Be Gone (2021) EP [FLAC|Lossless|image + .cue] <Heavy Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240296.jpgsave_picture_240296.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Yate 6.14 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240297.jpgsave_picture_240297.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ magnet:?xt=urn:btih:05ECAD56BAB95B4FD29DE6C03FC9AB97058B5DB9
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240298.jpgsave_picture_240298.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ magnet:?xt=urn:btih:57027B5881D6F7C1A51707CE1E01FE024C7AB343
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240299.jpgsave_picture_240299.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ magnet:?xt=urn:btih:5A5D35194D423E19F187BDC93D4A6BDE6F6CF1D7
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240300.jpgsave_picture_240300.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ Stormburst - III (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240301.jpgsave_picture_240301.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ Adobe After Effects 2022 22.3.0.107 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240302.jpgsave_picture_240302.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ Jimmie Noone - The Jimmie Noone Collection, Vol.2 (1928 - 1930) 1993, Collector'
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240303.jpgsave_picture_240303.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ magnet:?xt=urn:btih:3D25BA8F44D5859818738C99197DC02CACCEBCDD
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240304.jpgsave_picture_240304.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ Teenage Slaves Of Satan - Poison Moon (2022) [FLAC|Lossless|WEB-DL|tracks] <Doom
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240305.jpgsave_picture_240305.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Topaz Photo AI 1.3.0 (x64) Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240306.jpgsave_picture_240306.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ magnet:?xt=urn:btih:258A91B4B278624B6704573A811C419CF59DA744
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240307.jpgsave_picture_240307.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ VA - Trance Impact Vol. 7 (2020) [MP3|320 Kbps] <Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240308.jpgsave_picture_240308.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ magnet:?xt=urn:btih:9F39C1D73FB8BEEE17B3281DAA1059FFF12327F9
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240309.jpgsave_picture_240309.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ The Used - Toxic Positivity (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Ro
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240310.jpgsave_picture_240310.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Marko Hietala - Pyre Of The Black Heart (2020) Japanese Edition [FLAC|Lossless|i
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240311.jpgsave_picture_240311.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Luminous Vault - Animate the Emptiness (2022) [FLAC|Lossless|WEB-DL|tracks] <Ind
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240312.jpgsave_picture_240312.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Roobanok - Космос умеет прощать (2023) [FLAC|Lossless|WEB-DL|t
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240313.jpgsave_picture_240313.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ magnet:?xt=urn:btih:19C11BB9E5CDFEA4126269DCEAF2B4F356EE7DFF
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240314.jpgsave_picture_240314.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Svalbard - When I Die, Will I Get Better? (2020) [FLAC|Lossless|WEB-DL|tracks] <
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240315.jpgsave_picture_240315.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ LEGO Worlds (2017) [PS4] [EUR] 6.72 [HEN] [License / 1.19 / DLC] [Ru/Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240316.jpgsave_picture_240316.jpg" />
 </div>
 
 

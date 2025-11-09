@@ -6,7 +6,7 @@ VA - Interplay 2023 (Selected By Alexander Popov) - Extended Versions (2023) [MP
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127565.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127565.jpgsave_picture_127565.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Asia - Live at the Pabst Theatre, Milwaukee, Wi, USA, 23 April 2008 (2023) [FLAC
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127566.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127566.jpgsave_picture_127566.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ YouCut - Video Editor v1.603.1181 Mod by maxi123444 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127567.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127567.jpgsave_picture_127567.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Casual - #Не_Умру_По_Утру (2019) [FLAC|Lossless|WEB-DL|tracks] <Rock
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127568.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127568.jpgsave_picture_127568.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Smerdead - Мёртвый лес (2023) [FLAC|Lossless|image + .cue] <Melodic De
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127569.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127569.jpgsave_picture_127569.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ magnet:?xt=urn:btih:95852CF71B279C17184BEE994A1F3C758915E923
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127570.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127570.jpgsave_picture_127570.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ magnet:?xt=urn:btih:47FD9A5856C5E3CEC485859599030EC642C5B467
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127571.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127571.jpgsave_picture_127571.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ Unicorn - You Are (2023) [FLAC|Lossless|WEB-DL|tracks] <Crossover Prog, Prog Pop
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127572.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127572.jpgsave_picture_127572.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ magnet:?xt=urn:btih:C6E42F11100B8C915AC6F98BAEB78076D48442C9
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127573.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127573.jpgsave_picture_127573.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ Lamori - Ave Valkyria (2023) [FLAC|Lossless|WEB-DL|tracks] <Gothic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127574.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127574.jpgsave_picture_127574.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ Lee Gallagher - The Falcon Ate the Flower (2023) [FLAC|Lossless|WEB-DL|tracks] <
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127575.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127575.jpgsave_picture_127575.jpg" />
 </div>
 
 
@@ -291,7 +291,7 @@ Stuka Squadron - Zeppelin (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127576.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127576.jpgsave_picture_127576.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ magnet:?xt=urn:btih:23C6AAC3BB9A2495E0DAC45FAF1F39C43CD500AB
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127577.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127577.jpgsave_picture_127577.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Moongates Guardian - Broken Sword (2022) Compilation [FLAC|Lossless|image + .cue
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127578.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127578.jpgsave_picture_127578.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ In Vision - Manuscript (2023) [FLAC|Lossless|image + .cue] <Melodic Death Metal>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127579.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127579.jpgsave_picture_127579.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ magnet:?xt=urn:btih:A50DE41E1A89B0E2CB0006563389AC7C857096DA
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127580.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127580.jpgsave_picture_127580.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ V.A. - Lounge Freebeat, Vol. 10 (2023) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Ch
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127581.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127581.jpgsave_picture_127581.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ VA - Black Hole Trance Music 12-23 (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127582.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127582.jpgsave_picture_127582.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Photo Lab PRO v3.12.83 Mod by Mixroot, LEEAPK [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127583.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127583.jpgsave_picture_127583.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Palace Of The King - Friends In Low Places (2023) [FLAC|Lossless|WEB-DL|tracks] 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127584.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127584.jpgsave_picture_127584.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ magnet:?xt=urn:btih:55CDB07CD6D064266E0867A69128A5F926CFA828
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127585.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127585.jpgsave_picture_127585.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ The Black Crowes - The Southern Harmony And Musical Companion (1992) Super Delux
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127586.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127586.jpgsave_picture_127586.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ magnet:?xt=urn:btih:5C2FFAF8DF80FD0634140DDA7423691C2EB0F1E9
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127587.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127587.jpgsave_picture_127587.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ magnet:?xt=urn:btih:41DFD96E026163F4189EFD258B334BE5C91B97A6
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127588.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127588.jpgsave_picture_127588.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ VA - Black Hole House Music 12-23 (2023) [MP3|320 Kbps] <House, Progressive Hous
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127589.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127589.jpgsave_picture_127589.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ PhotoRoom v4.7.8 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127590.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127590.jpgsave_picture_127590.jpg" />
 </div>
 
 

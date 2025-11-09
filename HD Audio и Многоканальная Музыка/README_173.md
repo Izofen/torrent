@@ -6,7 +6,7 @@ Suicide Bombers - All For The Candy (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119423.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119423.jpgsave_picture_119423.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Rumboat Chili - All The Time In The World (2024) [FLAC 24/48|Lossless|WEB-DL|tra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119427.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119427.jpgsave_picture_119427.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Dominia - Timeless (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Gothic Doom Metal
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119428.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119428.jpgsave_picture_119428.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Drip Fed Empire - Revolutionist (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Ra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119431.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119431.jpgsave_picture_119431.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Kelp - Datcho Dr (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119432.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119432.jpgsave_picture_119432.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Thomas Frank Hopper - Paradize City (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119433.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119433.jpgsave_picture_119433.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Leo - Leo Metal, Vol. 45 (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Modern Me
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119438.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119438.jpgsave_picture_119438.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Brookwood Drive - Take A Ride On The Drive (2024) [FLAC 24/48|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119444.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119444.jpgsave_picture_119444.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ The Tibbs - Keep It To Yourself (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Soul
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119447.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119447.jpgsave_picture_119447.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Larmet - Blues (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119450.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119450.jpgsave_picture_119450.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Hearts & Hand Grenades - Where I Begin (2024) [FLAC 24/44.1|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119454.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119454.jpgsave_picture_119454.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Jennifer Porter - Yes, I Do! (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues, 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119456.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119456.jpgsave_picture_119456.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Ocean Jet - Mind Rivers (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Electronic R
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119463.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119463.jpgsave_picture_119463.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Peter and the Roses - Peter and the Roses (2024) [FLAC 24/44.1|Lossless|WEB-DL|t
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119471.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119471.jpgsave_picture_119471.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ BJ Baartmans - Ghostwriter (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues, 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119472.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119472.jpgsave_picture_119472.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Serenity - Studio Albums (8 releases) (2007-2023) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119474.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119474.jpgsave_picture_119474.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Guns N' Roses - Use Your Illusion II (1991)[FLAC|24/192|image + .cue|Vinyl-Rip] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119615.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119615.jpgsave_picture_119615.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Guns N' Roses - Use Your Illusion I (1991) [FLAC|24/192|image + .cue|Vinyl-Rip] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119620.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119620.jpgsave_picture_119620.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Guns N' Roses - The Spaghetti Incident? (1993) [FLAC|24/192|image + .cue|Vinyl-R
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119623.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119623.jpgsave_picture_119623.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Guns N' Roses - Chinese Democracy (2008) [FLAC|24/192|image + .cue|Vinyl-Rip] <H
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119624.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119624.jpgsave_picture_119624.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Sigma - London Sound (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Drum & Bass>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119626.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119626.jpgsave_picture_119626.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Dymytry - Five Angry Men (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119628.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119628.jpgsave_picture_119628.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ magnet:?xt=urn:btih:ACD201FFC03AD80D9595C02D3CD61964DAF9FAF4
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119646.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119646.jpgsave_picture_119646.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Paul Mccartney, Wings - Band On The Run (1973) 2024, 50th Anniversary Underdubbe
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119661.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119661.jpgsave_picture_119661.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Guns N' Roses - Appetite for Destruction (1987) [FLAC|24/192|image + .cue|Vinyl-
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119760.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119760.jpgsave_picture_119760.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Guns N' Roses - G N' R Lies (1988) [FLAC|24/192|image + .cue|Vinyl-Rip] <Hard Ro
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119764.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119764.jpgsave_picture_119764.jpg" />
 </div>
 
 

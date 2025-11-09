@@ -6,7 +6,7 @@
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118452.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118452.jpgsave_picture_118452.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Chromium 121.0.6167.161 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118453.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118453.jpgsave_picture_118453.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ VA - Magic Dance Vol. 1 (1995) [OGG Vorbis|480 Kbps] <Electronic, Euro House>
 >>Eurodance, Euro-House, Technopop
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118454.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118454.jpgsave_picture_118454.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ PicPick Free+Pro 7.2.6 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118455.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118455.jpgsave_picture_118455.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:D2A3181805BF46C7237F5C4E0D8DA3C20355E992
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118456.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118456.jpgsave_picture_118456.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Brave Browser 1.62.162 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118457.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118457.jpgsave_picture_118457.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Calibre 7.5.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118458.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118458.jpgsave_picture_118458.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:2BB6EF49AC02FF17B25FCC20904D2FB6703D4D8A
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118459.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118459.jpgsave_picture_118459.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ Bob Marley & The Wailers - One Love (Original Motion Picture Soundtrack) (2024) 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118460.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118460.jpgsave_picture_118460.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ magnet:?xt=urn:btih:E581A44855514E9474C74FB90ED67FF6233D4DDB
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118461.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118461.jpgsave_picture_118461.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:889FFAC92C5C34DE873A3D1172B4F834F9B33D4A
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118462.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118462.jpgsave_picture_118462.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:719BB37A22E5EDE26D895CF188FAE89B59ED27CD
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118463.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118463.jpgsave_picture_118463.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ magnet:?xt=urn:btih:719BB37A22E5EDE26D895CF188FAE89B59ED27CD
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118464.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118464.jpgsave_picture_118464.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ AutoPowerOptionsOK 5.71 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118465.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118465.jpgsave_picture_118465.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ TikTok 33.3.4 Lite-Mod by Dmitry Nechiporenko + Plugin 1.27 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118466.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118466.jpgsave_picture_118466.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ magnet:?xt=urn:btih:5D26DF224FEE96B8D6DF58A59321025966CA6CC8
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118467.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118467.jpgsave_picture_118467.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ magnet:?xt=urn:btih:4873AE3C8BC5F0136B21794B5BA982FB597C56FF
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118468.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118468.jpgsave_picture_118468.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Digital Emotion - Digital Emotion (1984) 2024, 2CD Remastered Expanded Edition [
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118469.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118469.jpgsave_picture_118469.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ magnet:?xt=urn:btih:EC91C7456FAB5F0B871F80503E60C8A5DA759498
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118470.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118470.jpgsave_picture_118470.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ magnet:?xt=urn:btih:92A5D95F39648C8F9C7F93E9F672F6AE02C422E1
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118471.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118471.jpgsave_picture_118471.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ magnet:?xt=urn:btih:2E57740DA6E57A9577C98A38DC487B49F71200A0
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118472.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118472.jpgsave_picture_118472.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ magnet:?xt=urn:btih:3817ACBBDD6BD0DC892B2038369EFEEF1ED3906D
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118473.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118473.jpgsave_picture_118473.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ magnet:?xt=urn:btih:2D913677345D5EBA4BFC98D15295805A0D20BB91
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118474.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118474.jpgsave_picture_118474.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ VA - In Love We Trust (Valentine's Day) (2024) [MP3|320 Kbps] <Dance, Pop, Elect
 >>Eurodance, Euro-House, Technopop
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118475.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118475.jpgsave_picture_118475.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ VA - Sanremo (2024) 2 x CD [MP3|320 Kbps] <Pop, Rock>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118476.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118476.jpgsave_picture_118476.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ magnet:?xt=urn:btih:CF9157DB44D35954D64B942C49228BCBB92D916F
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118477.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118477.jpgsave_picture_118477.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ VA - XXXL Братва на воле (2012) [MP3|256 kbps]<Шансон>
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84433.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84433.jpgsave_picture_84433.jpg" />
 </div>
 
 
@@ -39,7 +39,7 @@ magnet:?xt=urn:btih:6D96C855986949BA5672EBCA10E696B3C125AEA8
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84434.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84434.jpgsave_picture_84434.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ magnet:?xt=urn:btih:6D96C855986949BA5672EBCA10E696B3C125AEA8
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84435.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84435.jpgsave_picture_84435.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ Neneh Cherry - Man (1996) [FLAC|Lossless]<Pop-rock>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84439.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84439.jpgsave_picture_84439.jpg" />
 </div>
 
 
@@ -121,7 +121,7 @@ Neneh Cherry - Man (1996) [FLAC|Lossless]<Pop-rock>
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84441.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84441.jpgsave_picture_84441.jpg" />
 </div>
 
 
@@ -145,7 +145,7 @@ magnet:?xt=urn:btih:D7087801F2B4AAB4043992EC98A9C2550BA0843A
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84442.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84442.jpgsave_picture_84442.jpg" />
 </div>
 
 
@@ -173,7 +173,7 @@ Markus Schulz - Global DJ Broadcast Top 20 March (2012) [MP3|320 кб/с]<Trance
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84445.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84445.jpgsave_picture_84445.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ magnet:?xt=urn:btih:8AC46EDCE0675C460D8788CF62904DC906CC5063
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84450.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84450.jpgsave_picture_84450.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ magnet:?xt=urn:btih:6E7597696C031F2F7C499326A5B652BA1A1A5E94
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84451.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84451.jpgsave_picture_84451.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ magnet:?xt=urn:btih:1A3D1C30B0F303AC109025EF27E143CE9D59DE0C
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84456.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84456.jpgsave_picture_84456.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ magnet:?xt=urn:btih:BD106CF01162C451198D20C789260CE34FA04A99
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84457.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84457.jpgsave_picture_84457.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:8A2DC370283B826F98BB547AE40BE7668631C0B3
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84459.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84459.jpgsave_picture_84459.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ VA - Здравствуйте, гости! (2012) [MP3|256 kbps]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84460.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84460.jpgsave_picture_84460.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ magnet:?xt=urn:btih:2A371698A5F8FECDD9DF30896E30A4EBDE53F46B
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84463.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84463.jpgsave_picture_84463.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ VA - Весенний муз-отрыв радио Record 6 (2012) [MP3|192 кб
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84464.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84464.jpgsave_picture_84464.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ magnet:?xt=urn:btih:1069A43D31680B8B45788170B6973788742DE75A
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84469.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84469.jpgsave_picture_84469.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ magnet:?xt=urn:btih:38A151C2AD01A7526D1BD326C433F1FA197C7AC5
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84473.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84473.jpgsave_picture_84473.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ VA - Armada Vocal Trance Sessions 2012 - 01 (2012) [MP3|320 кб/с]<Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84474.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84474.jpgsave_picture_84474.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ magnet:?xt=urn:btih:4BD2955147A8F8CA37913E4C589D844FB6D6C346
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84479.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84479.jpgsave_picture_84479.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ magnet:?xt=urn:btih:7E5C323F2B33F0F35A9C58AE8324359A86837F50
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84481.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84481.jpgsave_picture_84481.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ magnet:?xt=urn:btih:9BB8DB7A9AC40B16EAD65FD4EF9B769C5B89E87A
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84482.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84482.jpgsave_picture_84482.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ magnet:?xt=urn:btih:8DAD2F3D7347781D5A3AC657F7299A585A1E923E
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84484.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84484.jpgsave_picture_84484.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ magnet:?xt=urn:btih:658A9EBFC3C631344AEA3A5D321DAF702985CAEE
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84486.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84486.jpgsave_picture_84486.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ magnet:?xt=urn:btih:658A9EBFC3C631344AEA3A5D321DAF702985CAEE
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84489.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84489.jpgsave_picture_84489.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ magnet:?xt=urn:btih:658A9EBFC3C631344AEA3A5D321DAF702985CAEE
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84491.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84491.jpgsave_picture_84491.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Tammy Wynette - Anniversary: Twenty Years of Hits (1987) [MP3|320 кб/с]<Count
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84494.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84494.jpgsave_picture_84494.jpg" />
 </div>
 
 

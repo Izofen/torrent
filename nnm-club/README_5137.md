@@ -6,7 +6,7 @@ Beyond the Flames - Rise Again (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160295.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160295.jpgsave_picture_160295.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Bandini - Everything Must Go (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160296.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160296.jpgsave_picture_160296.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Hinayana - Shatter And Fall (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160297.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160297.jpgsave_picture_160297.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:596C3498A4B5497619AFB6518F6CA7A95C76D8F5
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160298.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160298.jpgsave_picture_160298.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ magnet:?xt=urn:btih:D0868AA1CA3D7977AAF99D1AC125BBD8DEFD2C2C
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160299.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160299.jpgsave_picture_160299.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ Dato 5.1.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160300.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160300.jpgsave_picture_160300.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ Jason Elmore & Hoodoo Witch - Rise up Lights (2023) [FLAC|Lossless|WEB-DL|tracks
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160301.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160301.jpgsave_picture_160301.jpg" />
 </div>
 
 
@@ -187,7 +187,7 @@ magnet:?xt=urn:btih:22D3695D7E3DB80BF78FACEA246952E949439341
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160302.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160302.jpgsave_picture_160302.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ magnet:?xt=urn:btih:DB47F9DBA27BF5362950418106DF74AA121F70F6
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160303.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160303.jpgsave_picture_160303.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ Disk Xray 4.1.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160304.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160304.jpgsave_picture_160304.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ magnet:?xt=urn:btih:4CB6146CEF9F55915B04E042D6C26CB135160501
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160305.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160305.jpgsave_picture_160305.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ magnet:?xt=urn:btih:1CEEF5FDC0BBB1B0671C59ACC32E2C0552A58A93
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160306.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160306.jpgsave_picture_160306.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ magnet:?xt=urn:btih:388015FA3DD8B4E1F76FE65016D9C9E6FA2A8BAD
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160307.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160307.jpgsave_picture_160307.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ Peter J. Lehman - I'm Done Hiding (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160308.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160308.jpgsave_picture_160308.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ AnyMP4 iPhone Transfer Pro for Mac 9.0.70 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160309.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160309.jpgsave_picture_160309.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ GrabIt 4.932 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160310.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160310.jpgsave_picture_160310.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Dave Williams - 23 (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160311.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160311.jpgsave_picture_160311.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Alex Lopez - Looking for a change (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Ro
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160312.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160312.jpgsave_picture_160312.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Kobra and The Lotus - Evolution (2019) Japanese Edition [FLAC|Lossless|image + .
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160313.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160313.jpgsave_picture_160313.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Platina - Про тебе... (2010) [FLAC|Lossless|tracks + .cue] <Pop Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160314.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160314.jpgsave_picture_160314.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Xliff Editor 2.9.14 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160315.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160315.jpgsave_picture_160315.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ Gama Bomb - BATS (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Thrash Metal>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160316.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160316.jpgsave_picture_160316.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ NetShred X 5.8.6 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160317.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160317.jpgsave_picture_160317.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ PowerPhotos 2.5.3 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160318.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160318.jpgsave_picture_160318.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ Billy Hart - All Our Reasons (2012) ECM [FLAC|Lossless|tracks + .cue] <Post-Bop,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160319.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160319.jpgsave_picture_160319.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ Native Instruments Komplete Kontrol 3.0.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160320.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160320.jpgsave_picture_160320.jpg" />
 </div>
 
 

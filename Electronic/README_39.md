@@ -6,7 +6,7 @@ VA - Ori Uplift - Uplifting Only Episode 634 (2025) [MP3|320 Kbps] <Trance, Upli
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68304.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68304.jpgsave_picture_68304.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - DJ MIX (2025) [MP3|320 Kbps] <House, Deep House, Dance, Club>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68317.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68317.jpgsave_picture_68317.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - The Sound of 2025, Chapter 3: London (Night Mix) (2025) [MP3|320 Kbps] <Tra
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68324.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68324.jpgsave_picture_68324.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - Budapest Session 2025 (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68334.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68334.jpgsave_picture_68334.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ The Black Dog - Live at the ICA (London 2024) (2025) [FLAC|Lossless|WEB-DL|track
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68339.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68339.jpgsave_picture_68339.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ The Black Dog - Further Vexations (2009) [MP3|320 Kbps] <Braindance, Darkwave, E
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68342.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68342.jpgsave_picture_68342.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Flying Lotus - Until the Quiet Comes (2012) [FLAC|Lossless|tracks + .cue] <IDM, 
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68343.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68343.jpgsave_picture_68343.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Skrillex - F*Ck U Skrillex You Think Ur Andy Warhol But Ur Not!! <3 (2025) [MP3|
 >>Dubstep, Future Garage, Bass Music, UK Garage
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68385.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68385.jpgsave_picture_68385.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Blut Reaktor - Plastic Bitch (2025) [MP3|320 Kbps] <Dark Electro, Electro-Indust
 >>Industrial, EBM, Dark Electro
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68426.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68426.jpgsave_picture_68426.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ VA - 25 Years Of Anjuna Mixed By Nourey (2025) [MP3|320 Kbps] <Trance, Progressi
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68427.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68427.jpgsave_picture_68427.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Aya - hexed! (2025) [MP3|320 Kbps] <Electronic, Footwork, Grime, Techno>
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68428.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68428.jpgsave_picture_68428.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Jessy Mach - Dice of doom (2025) [MP3|320 Kbps] <Synthwave, Synthpop>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68432.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68432.jpgsave_picture_68432.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Wolfgang Flur (ex. Kraftwerk) - Times (2025) [FLAC|Lossless|WEB-DL|tracks] <EDM,
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68452.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68452.jpgsave_picture_68452.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ VA - Interplay Miami 2025 (2025) [MP3|320 Kbps] <Progressive House, Melodic Hous
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68479.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68479.jpgsave_picture_68479.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ VA - Ultimate Sunset Chillout Best Selections (2025) [MP3|320 Kbps] <Downtempo, 
 >>Downtempo, Trip-Hop, Lounge
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68557.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68557.jpgsave_picture_68557.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ VA - The Sound of 2025, Chapter 3: London (Day Mix) (2025) [MP3|320 Kbps] <Progr
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68563.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68563.jpgsave_picture_68563.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ Markus Schulz - Global DJ Broadcast Miami Music Week Edition (2025-03-27) [MP3|3
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68564.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68564.jpgsave_picture_68564.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ Lane 8 - Spring 2025 Mixtape (2025-03-19) [MP3|320 Kbps] <Progressive House, Mel
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68577.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68577.jpgsave_picture_68577.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ VA - Redux Selection, Vol. 4 / 2025 (2025) [MP3|320 Kbps] <Trance, Uplifting Tra
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68578.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68578.jpgsave_picture_68578.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ VA - Milk & Sugar Miami Sessions 2025 [FLAC|Lossless|WEB-DL|tracks] <House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68593.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68593.jpgsave_picture_68593.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ VA - Ori Uplift - Uplifting Only Episode 633 (2025) [MP3|320 Kbps] <Trance, Upli
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68617.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68617.jpgsave_picture_68617.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ VA - Ibiza Beach Vibes (2025) [MP3|320 Kbps] <Dance, Club, House, Electronic>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68623.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68623.jpgsave_picture_68623.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ VA - Armin van Buuren - A State Of Trance 1218 (2025) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68651.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68651.jpgsave_picture_68651.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ VA - Trance Top 100, Vol. 2 (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68675.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68675.jpgsave_picture_68675.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ magnet:?xt=urn:btih:55787F63C287340445EEE87AD6D167B90CF026A8
 >>IDM
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68677.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68677.jpgsave_picture_68677.jpg" />
 </div>
 
 
@@ -676,7 +676,7 @@ VA - 25 Years Of Anjuna Mixed By Dosem (2025) [MP3|320 Kbps] <Progressive House,
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68680.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68680.jpgsave_picture_68680.jpg" />
 </div>
 
 

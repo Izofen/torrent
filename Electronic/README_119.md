@@ -6,7 +6,7 @@ VA - Black Hole Trance Music 07-23 (2023) [FLAC|Lossless|WEB-DL|tracks] <Progres
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187740.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187740.jpgsave_picture_187740.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - FSOE 800 - Top 10 (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187780.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187780.jpgsave_picture_187780.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - Evolving Horizons: Progressive Trance Chronicles, Vol. 14 (2025) [MP3|320 K
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187864.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187864.jpgsave_picture_187864.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - Progressive Trance Awakening, Vol. 08 (2025) [MP3|320 Kbps] <Trance, Progre
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187978.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187978.jpgsave_picture_187978.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ V.A. - A State of Trance, Ibiza 2023 (Mixed by Armin van Buuren) (2023) 3CD [FLA
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188013.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188013.jpgsave_picture_188013.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Vince Watson - Another Moment In Time (2023) [FLAC|Lossless|WEB-DL|tracks] <Tech
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188048.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188048.jpgsave_picture_188048.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Robert Babicz - Light Of The Universe (2023) [FLAC|Lossless|WEB-DL|tracks] <Tech
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188069.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188069.jpgsave_picture_188069.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ VA - Top 9 August 2023 Emotional and Uplifting Trance (2023) [MP3|320 Kbps] <Tra
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188076.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188076.jpgsave_picture_188076.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ VA - 10 Years Of Suanda Music - Mixed by Adip Kiyoi (2023) [MP3|320 Kbps] <Tranc
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188084.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188084.jpgsave_picture_188084.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ VA - Trance 100 - Best Of Summer 2023 [MP3|320 Kbps] <Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188228.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188228.jpgsave_picture_188228.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ VA - Black Hole House Music 09-23 (2023) [MP3|320 Kbps] <House, Progressive Hous
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188237.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188237.jpgsave_picture_188237.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ VA - Ibiza Closing Party 2023 Trance [FLAC|Lossless|WEB-DL|tracks] <Trance>
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188239.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188239.jpgsave_picture_188239.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Moxy The Band - Dream Feeling (2022) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Sy
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188520.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188520.jpgsave_picture_188520.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ VA - Black Hole Trance Music 09-23 (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188525.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188525.jpgsave_picture_188525.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ V.A. - Beach Bar Chill Grooves, Vol. 3 (2023) [FLAC|Lossless|WEB-DL|tracks] <Lou
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188548.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188548.jpgsave_picture_188548.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ VA - Nothing But...Ibiza Closing Party 2023 Deep House (2023) [MP3|320 Kbps] <Ho
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188554.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188554.jpgsave_picture_188554.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ VA - Ibiza Closing Party 2023 Deep House (2023) [MP3|320 Kbps] <House, Deep Hous
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188562.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188562.jpgsave_picture_188562.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ Jay-Jay Johanson - Best of 1996-2013 (2013) [FLAC|Lossless|WEB-DL|tracks] <Alter
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188835.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188835.jpgsave_picture_188835.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ The Chemical Brothers - For That Beautiful Feeling (2023) [FLAC|Lossless|WEB-DL|
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189187.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189187.jpgsave_picture_189187.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ VA - Bar Lounge Classics - Session 2023 (2023) [MP3|320 Kbps] <Downtempo, Chillo
 >>Downtempo, Trip-Hop, Lounge
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189253.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189253.jpgsave_picture_189253.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ FiXT & VA - FiXT Radium: Planet-X (2023) [MP3|320 Kbps] <Electro-Metal, Industri
 >>Industrial, EBM, Dark Electro
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189292.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189292.jpgsave_picture_189292.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ VA - Vocal Trance Classics 2022 [MP3|320 Kbps] <Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189358.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189358.jpgsave_picture_189358.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Jay-Jay Johanson - Labyrinth (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative P
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189410.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189410.jpgsave_picture_189410.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ VA - Best Of Vocal Trance 2023 (2023) [FLAC|Lossless|WEB-DL|tracks] <Electronic,
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189653.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189653.jpgsave_picture_189653.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ a-ha - True North (2022) [FLAC|Lossless|image + .cue] <Synth-pop, Pop Rock>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189654.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189654.jpgsave_picture_189654.jpg" />
 </div>
 
 
@@ -675,7 +675,7 @@ VA - Chillout Autumn Gems 2022: Chillout Your Mind [FLAC|Lossless|WEB-DL|tracks]
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189739.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189739.jpgsave_picture_189739.jpg" />
 </div>
 
 

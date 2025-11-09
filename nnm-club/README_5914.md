@@ -6,7 +6,7 @@ Erannorth Renaissance (2024) [En] (1.0.03) Scene Tenoke
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186310.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186310.jpgsave_picture_186310.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Systems.Education, babok-school.ru, Зоя Степчева, Анна Вичуг
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186312.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186312.jpgsave_picture_186312.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Display Driver Uninstaller 18.1.3.6 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186313.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186313.jpgsave_picture_186313.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:4F30678F8A9BD33BC06192015CCE8E93AE9D772C
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186314.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186314.jpgsave_picture_186314.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:E3C7A9DF0E25B2FDD928A0668C70D28E4F2CB5E8
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186315.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186315.jpgsave_picture_186315.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:2BF433EDD1DC0BD28E229D6F00683136B72512A7
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_186316.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_186316.jpgsave_picture_186316.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:E42FAD9565CB9DA032297E861D3FCBD97F989B5C
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186317.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186317.jpgsave_picture_186317.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Winxvideo AI 4.3 (x64) RePack (& Portable) by elchupacabra (DC 13.10.2025) [Mult
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186319.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186319.jpgsave_picture_186319.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ Systems.Education, babok-school.ru, Дарья Колесова, Анна Вич
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186320.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186320.jpgsave_picture_186320.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:51AF2272C82665C3E5DA420C04AE646511FFCF0D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186324.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186324.jpgsave_picture_186324.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:F4C4B3DB2F4F39F1D5513B5D7CD0A2E692AA2B67
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186325.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186325.jpgsave_picture_186325.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Tenpuru / Temple / Храм [2023, TV, 12] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186326.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186326.jpgsave_picture_186326.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ magnet:?xt=urn:btih:D5F78376DE6357E8531816E92A8DC6F289AF785D
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186328.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186328.jpgsave_picture_186328.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ magnet:?xt=urn:btih:2D00F8179CE072ED3F26E46CE83AAD1DEA733EE6
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186330.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186330.jpgsave_picture_186330.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ magnet:?xt=urn:btih:6490051AD09A371F12A24AE1DAB6EC75A0AA5B89
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186331.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186331.jpgsave_picture_186331.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ magnet:?xt=urn:btih:C7F85F6E1187FEB79D466A3F263248573DC61FDB
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186332.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186332.jpgsave_picture_186332.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ magnet:?xt=urn:btih:86D143267EC616A38B299BFDC8DE555A912F5D90
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_186334.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_186334.jpgsave_picture_186334.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ CoolUtils Total Movie Converter 4.1.0.72 RePack (& Portable) by elchupacabra [Mu
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186336.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186336.jpgsave_picture_186336.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ Seija Musou: Salaryman, Isekai de Ikinokoru Tame ni Ayumu Michi | Великий
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186337.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186337.jpgsave_picture_186337.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ magnet:?xt=urn:btih:5F6D47DF378CD5C4831C9B2A8ABBDC4F7121C0C1
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186338.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186338.jpgsave_picture_186338.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ magnet:?xt=urn:btih:F9AC749A54ECC14AD2B30B196D3D66BC0C83A880
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186340.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186340.jpgsave_picture_186340.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ Udemy, Nikita Sergeev | Управление проектами: полное п
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186341.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186341.jpgsave_picture_186341.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Higeki no Genkyou to Naru Saikyou Gedou Last Boss Joou wa Tami no Tame ni Tsukus
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186342.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186342.jpgsave_picture_186342.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Anthony GG | Full Time Go Dev (2023) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186343.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186343.jpgsave_picture_186343.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Sugar Apple Fairy Tale (2023) | Сказка о сахарном яблоке [�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186344.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186344.jpgsave_picture_186344.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ magnet:?xt=urn:btih:B2E041D8A77FF2D43B05DE5CFF01B36D1271B84C
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186345.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186345.jpgsave_picture_186345.jpg" />
 </div>
 
 

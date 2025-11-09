@@ -6,7 +6,7 @@ Wireshark 4.2.6 + Portable (x64) [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49252.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49252.jpgsave_picture_49252.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Files Inspector Pro 4.10 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49301.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49301.jpgsave_picture_49301.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ O&O DeskInfo 1.3.1347 Portable [Multi]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49645.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49645.jpgsave_picture_49645.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ NetBalancer 12.4.1.3834 RePack by elchupacabra [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49652.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49652.jpgsave_picture_49652.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ SysTools PDF Unlocker 5.3.0.0 [En]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49772.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49772.jpgsave_picture_49772.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:CF2BC2701AE558B6278FA659228D6DEB69CF5A3B
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49857.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49857.jpgsave_picture_49857.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ Aiseesoft Data Recovery 1.8.22 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49948.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49948.jpgsave_picture_49948.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ Wise Duplicate Finder Pro 2.1.3.64 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50023.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50023.jpgsave_picture_50023.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ ColorMania - Color Picker 14.0 + Portable [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50116.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50116.jpgsave_picture_50116.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ Allavsoft Video Downloader Converter 3.27.3.8952 RePack (& Portable) by TryRooM 
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50357.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50357.jpgsave_picture_50357.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ O&O AppBuster 1.4.1345 Portable [Multi]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50432.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50432.jpgsave_picture_50432.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ Driver Easy Pro 6.1.0.32140 Portable by zeka.k [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50496.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50496.jpgsave_picture_50496.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ Alt SwitchER 22.1 Portable [Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50537.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50537.jpgsave_picture_50537.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ iFind Data Recovery Enterprise 9.2.2.0 [Multi]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50554.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50554.jpgsave_picture_50554.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Abelssoft Win11PrivacyFix 2025 (4.0) 54970 (акция Abelssoft) [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50560.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50560.jpgsave_picture_50560.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Folder Marker Free 4.8.1.0 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50573.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50573.jpgsave_picture_50573.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ Driver Easy Pro 6.1.0.32140 Portable by FC Portables [Multi]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50579.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50579.jpgsave_picture_50579.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Adobe Acrobat Reader 2024.002.20895.0 [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50621.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50621.jpgsave_picture_50621.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ WhyNotWin11 2.6.1.0 Portable [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50670.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50670.jpgsave_picture_50670.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ HiBit Startup Manager 2.6.45 + Portable [Multi]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50677.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50677.jpgsave_picture_50677.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ High-Logic MainType Pro 12.0.0.1318 [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50869.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50869.jpgsave_picture_50869.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ AusLogics Disk Defrag Ultimate 4.13.0.2 RePack (& Portable) by elchupacabra [Mul
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50902.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50902.jpgsave_picture_50902.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ Recuva Professional / Business / Technician 1.54.120 [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50936.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50936.jpgsave_picture_50936.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ AusLogics Disk Defrag Ultimate 4.13.0.2 RePack (& Portable) by TryRooM [Multi/Ru
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50954.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50954.jpgsave_picture_50954.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Auslogics BoostSpeed 13.0.0.8 Portable by FC Portables [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51004.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51004.jpgsave_picture_51004.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Auslogics Duplicate File Finder 10.0.0.6 RePack (& Portable) by elchupacabra [Mu
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51008.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51008.jpgsave_picture_51008.jpg" />
 </div>
 
 

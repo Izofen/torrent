@@ -6,7 +6,7 @@ Serj Tankian - Дискография (2007-2010) [MP3|192-320 kbps]<Alternative
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57593.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57593.jpgsave_picture_57593.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:DBF057A039D0F95A345E0ED1AB354F9E22509233
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57594.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57594.jpgsave_picture_57594.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Pat Warner | Универсальный ручной фрезер (The Versatile
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57595.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57595.jpgsave_picture_57595.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Enigma Virtual Box 10.60 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57596.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57596.jpgsave_picture_57596.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:A3EF5843FEF98F17435B2AEC29727EBBB2384D28
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57597.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57597.jpgsave_picture_57597.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ DxO FilmPack 7.5.0 Build 513 Elite (x64) Portable by 7997 [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57598.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57598.jpgsave_picture_57598.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Gaia GPS (Topo Maps) v2024.4 b7881 Mod by Balatan [Ru/Multi]
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57599.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57599.jpgsave_picture_57599.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ Blackmagic Design DaVinci Fusion Studio 18.6.6 Build 4 (x64) Portable by 7997 [M
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57600.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57600.jpgsave_picture_57600.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:E198878D911C9890AE869966FB93C5C49FBEFC4F
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57601.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57601.jpgsave_picture_57601.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:C48FAC6F19BC0965965B58E603939489B5DAFB5F
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57602.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57602.jpgsave_picture_57602.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:D6E836A717DDD779D5D27DC08B86A840B9B8A80E
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57603.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57603.jpgsave_picture_57603.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Foxit PDF Editor Pro 2024.2.0.25138 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57604.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57604.jpgsave_picture_57604.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ PDF-XChange Editor Plus 10.3.0.386 Portable by FC Portables [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57605.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57605.jpgsave_picture_57605.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ magnet:?xt=urn:btih:7A600156BDA245FDC2DD97577511662F3525C8D7
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57606.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57606.jpgsave_picture_57606.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Dark City 9: Amsterdam / Мрачный город 9: Амстердам (2024) 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57607.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57607.jpgsave_picture_57607.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:9EAA0DC1C3F5009B7D08D2CA3F463E001EBD8A74
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57608.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57608.jpgsave_picture_57608.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ magnet:?xt=urn:btih:147FCD57857B8D781546AD38C1312136245C5501
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57609.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57609.jpgsave_picture_57609.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ GoldWave 6.80 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57610.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57610.jpgsave_picture_57610.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ Apeaksoft Blu-ray Player 1.1.38 Portable by 7997 [Multi/Ru]
 >>Видео Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57611.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57611.jpgsave_picture_57611.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ magnet:?xt=urn:btih:C6538A9C6E119E520A3106054655AA18997EDF16
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57612.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57612.jpgsave_picture_57612.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ Apeaksoft Video Editor 1.0.50 Portable by 7997 [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57613.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57613.jpgsave_picture_57613.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ VA - Cardio (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57614.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57614.jpgsave_picture_57614.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Michael Jackson - Thriller (1982) 2008 [FLAC 24/176.4|Lossless|WEB-DL|tracks] <S
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57615.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57615.jpgsave_picture_57615.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:B1D7F7EAE34CFDEBA52179C93E0675BFD3A6FA0D
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57616.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57616.jpgsave_picture_57616.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ R-Studio Technician 9.4 Build 191310 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57617.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57617.jpgsave_picture_57617.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Crossroads 4: Fatal Truths / Перекрёсток 4: Роковые истин
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57618.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57618.jpgsave_picture_57618.jpg" />
 </div>
 
 

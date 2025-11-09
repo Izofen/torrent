@@ -6,7 +6,7 @@ Mujuice - Regress (2019) [MP3|320 Kbps] <Electronic, IDM>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168029.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168029.jpgsave_picture_168029.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Media Player Classic Home Cinema (MPC-HC) 1.9.24 RePack (& portable) by elchupac
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168030.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168030.jpgsave_picture_168030.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Gear.Club Unlimited 2 (2021) [Ru/Multi] (1.0) License СODEX
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168031.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168031.jpgsave_picture_168031.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Oracle 10g Enterprise Edition 10.2.0 [Английский]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168032.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168032.jpgsave_picture_168032.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Calibre 4.6.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168033.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168033.jpgsave_picture_168033.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Data Guardian 6 v.6.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168034.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168034.jpgsave_picture_168034.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:2E3471CF89A9EFD05223D59961A7240140C52258
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168035.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168035.jpgsave_picture_168035.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Airtool 2 v2.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168036.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168036.jpgsave_picture_168036.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Impellitteri - The Complete Beast 1987-2009 (2023) 6CD, Boxed Set [FLAC|Lossless
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168037.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168037.jpgsave_picture_168037.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:235F321D22B8F334E3657ACD01A8E57C193C9449
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168038.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168038.jpgsave_picture_168038.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ SoundSwitch 6.4.3.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168039.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168039.jpgsave_picture_168039.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:09F35BE1BE8A17046A2D6571519FDD1872CE4F67
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168040.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168040.jpgsave_picture_168040.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Duplicate Photos SweeperOff 3.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168041.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168041.jpgsave_picture_168041.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ One Commander Pro 3.26.0.0 Portable  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168042.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168042.jpgsave_picture_168042.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Ultra Mood - X Planet X​-​420 (2019) [FLAC|Lossless|WEB-DL|tracks] <Hardstyl
 >>Hardstyle, Jumpstyle, Hardcore (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168043.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168043.jpgsave_picture_168043.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ VA - Best tracks of Intensified by Jody Wisternoff from 2008 to 2017 (2021) [MP3
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168044.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168044.jpgsave_picture_168044.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ VA - Jazz Saxophone Greats (2019) [MP3|320 Kbps] <Jazz, Smooth Jazz>
 >>Jazz
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168045.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168045.jpgsave_picture_168045.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Kölsch - I Talk To Water (2023) [FLAC|Lossless|WEB-DL|tracks + .cue] <Tech Hous
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168046.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168046.jpgsave_picture_168046.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ magnet:?xt=urn:btih:2BD4AEEDD709146B4C1147D5F122E6AA1B96F1CB
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168047.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168047.jpgsave_picture_168047.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Auslogics Driver Updater 1.24.0.7 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168048.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168048.jpgsave_picture_168048.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ PullTube 1.6.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168049.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168049.jpgsave_picture_168049.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ magnet:?xt=urn:btih:70176B4BE6AA6F140F8DF9FCEC1FAB0AED91A464
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168050.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168050.jpgsave_picture_168050.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ magnet:?xt=urn:btih:E93416CB70C295734836B6CA91BDC72176551147
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168051.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168051.jpgsave_picture_168051.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ magnet:?xt=urn:btih:E5BE792A335E39ECF659E855B50F39F0EEFE2811
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168052.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168052.jpgsave_picture_168052.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ SpamSieve 2.9.41 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168053.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168053.jpgsave_picture_168053.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Wirecast 16.0.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168054.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168054.jpgsave_picture_168054.jpg" />
 </div>
 
 

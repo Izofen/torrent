@@ -6,7 +6,7 @@ Reign of Fury - Studio Albums (4 releases) (2011-2019) hand made [restored, decl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120133.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120133.jpgsave_picture_120133.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Dramatic Classical Music (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120134.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120134.jpgsave_picture_120134.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Music Collection 3.6.2.5 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120135.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120135.jpgsave_picture_120135.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ HitPaw Edimakor (Video Editor) for Mac 2.6.0 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120136.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120136.jpgsave_picture_120136.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ magnet:?xt=urn:btih:F504F67672A9F97BD8C1C4B95AAADEEF30DEA19E
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120137.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120137.jpgsave_picture_120137.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ magnet:?xt=urn:btih:C690FF4EA5D03F200300B0079BB184C6C6B44B61
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120138.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120138.jpgsave_picture_120138.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ magnet:?xt=urn:btih:3A8230BBA2B72736D1FB1E91EED37A61862F61C2
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120139.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120139.jpgsave_picture_120139.jpg" />
 </div>
 
 
@@ -187,7 +187,7 @@ Sante DICOM Viewer Pro 14.0.4 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120140.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120140.jpgsave_picture_120140.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ magnet:?xt=urn:btih:165D06657A9FA9F8D1357C2FE9B99D1787A16193
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120141.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120141.jpgsave_picture_120141.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ magnet:?xt=urn:btih:1398D9266B02E11AC0111636CC7C792E5460F873
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120142.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120142.jpgsave_picture_120142.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ magnet:?xt=urn:btih:A053C5C326F51287137687EF6D3E835B00186BE8
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120143.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120143.jpgsave_picture_120143.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ magnet:?xt=urn:btih:A093D8683B3057E1547373EB56BA2B12EB2155D0
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120144.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120144.jpgsave_picture_120144.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ Native Instruments - Kontakt 7.8.0 STANDALONE, VSTi, VSTi 3, AAX (x64) Portable 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120145.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120145.jpgsave_picture_120145.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ Maxthon Browser 7.1.8.6001 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120146.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120146.jpgsave_picture_120146.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ magnet:?xt=urn:btih:05024F0118B5230A75ADB67083D06A29A229DAD7
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120147.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120147.jpgsave_picture_120147.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ magnet:?xt=urn:btih:EF3D356942B83EA317AFEE42A840544E76FBAF17
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120148.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120148.jpgsave_picture_120148.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ BioWare | Артбук по игре Dragon Age: Inquisition / The Art of Dragon
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120149.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120149.jpgsave_picture_120149.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ simplewall 3.7.8 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120150.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120150.jpgsave_picture_120150.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ BioWare | Артбук по серии игр Dragon Age / Dragon Age: The World
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120151.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120151.jpgsave_picture_120151.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ magnet:?xt=urn:btih:BAAA7EEE234CAF68CD62537A72A3ACC3011B6A48
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120152.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120152.jpgsave_picture_120152.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ magnet:?xt=urn:btih:6C6D8227CF8C83EBB2C82AB423C6ABC9A27CAD1B
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120153.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120153.jpgsave_picture_120153.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ magnet:?xt=urn:btih:EC37113320474E1A0F42F2D632563ACE090F8456
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120154.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120154.jpgsave_picture_120154.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ magnet:?xt=urn:btih:18E60A974093F087ED4D25F8654EE23ECAE20A6C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120155.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120155.jpgsave_picture_120155.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ magnet:?xt=urn:btih:2D0BDC9F038AFE5C5F35060FB8337895D21239E9
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120156.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120156.jpgsave_picture_120156.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Viwizard Spotify Music Converter for Mac 2.13.0 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120157.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120157.jpgsave_picture_120157.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ DRmare Music Converter for Spotify 2.11.0 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120158.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120158.jpgsave_picture_120158.jpg" />
 </div>
 
 

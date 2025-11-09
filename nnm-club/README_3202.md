@@ -6,7 +6,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103593.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103593.jpgsave_picture_103593.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Cold Cave - Passion Depression (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Syn
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103594.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103594.jpgsave_picture_103594.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ VA - Jazz Para Trabajar Y Estudiar (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103595.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103595.jpgsave_picture_103595.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ BoomChank - GobabyGO! (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103596.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103596.jpgsave_picture_103596.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Mama's Blues Joint - Happy Dude (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103597.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103597.jpgsave_picture_103597.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Khalif Wailin’ Walter - Phoenix Risin (2024) [FLAC|Lossless|WEB-DL|tracks] <Bl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103598.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103598.jpgsave_picture_103598.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Michelle Malone - Southern Comfort (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues, 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103599.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103599.jpgsave_picture_103599.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ James Cooke - Halfway There (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103600.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103600.jpgsave_picture_103600.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Mr Hardearly - Redemption & Bad Habits (2024) [FLAC|Lossless|WEB-DL|tracks] <Blu
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103601.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103601.jpgsave_picture_103601.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Tas Cru - Tas Cru Band LIVE (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103602.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103602.jpgsave_picture_103602.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Kenny Werner - Vida Nueva (New Life) (2001) Laurel Tree Records [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103603.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103603.jpgsave_picture_103603.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:0DAE7D856932D069E8775D24B82C87B1AFB8FB76
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103604.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103604.jpgsave_picture_103604.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ magnet:?xt=urn:btih:C72B9FA4EFC5529B9B56D5F2702C98AD61C71270
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103605.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103605.jpgsave_picture_103605.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ magnet:?xt=urn:btih:D24062E2C30F5B894491D78D02E2D884E97ACA10
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103606.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103606.jpgsave_picture_103606.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ magnet:?xt=urn:btih:55D238C875DD42DCB7B91BEDF37F59D382BC0F91
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103607.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103607.jpgsave_picture_103607.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ magnet:?xt=urn:btih:D19EFB770572D3AAE5156A4068E732910E38F097
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103608.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103608.jpgsave_picture_103608.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ magnet:?xt=urn:btih:A9DE08DBEDB533D6312B473539FFF190F418701A
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103609.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103609.jpgsave_picture_103609.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Hydra - Rehydration (2024) Japanese Edition [FLAC|Lossless|image + .cue] <Melodi
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103610.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103610.jpgsave_picture_103610.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ magnet:?xt=urn:btih:48120E6B162C1079A11D45CCC13BBDACAD5D434E
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103611.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103611.jpgsave_picture_103611.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ magnet:?xt=urn:btih:247368BED278E525A98929B8F7BA460981E379C0
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103612.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103612.jpgsave_picture_103612.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Joe Pass Quartet - Nuages: Live At Yoshi's, Vol. 2 (1992) 1997, Pablo [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103613.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103613.jpgsave_picture_103613.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ magnet:?xt=urn:btih:DB827098FA5C7BA37F75D088E4CE1C5C274E3247
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103614.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103614.jpgsave_picture_103614.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Jim Hall - Live! (1975) 2017, Universal [FLAC|Lossless|tracks + .cue] <Cool, Pos
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103615.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103615.jpgsave_picture_103615.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Barney Kessel & Herb Ellis - Poor Butterfly (1976) 2002, Victor [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103617.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103617.jpgsave_picture_103617.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ Joe Pass - Live In Vegas (1988) 2018, Hi Hat [FLAC|Lossless|tracks + .cue] <Bop,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103618.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103618.jpgsave_picture_103618.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ magnet:?xt=urn:btih:D2E2CB34EA352FBE9A3DE5061A1BC34FE9238B45
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103620.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103620.jpgsave_picture_103620.jpg" />
 </div>
 
 

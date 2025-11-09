@@ -6,7 +6,7 @@ Sand Land (2024) [Multi] (1.0.5/dlc) Scene Tenoke [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50720.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50720.jpgsave_picture_50720.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Digimon Survive (2022) [Multi] (1.0) Scene SKIDROW
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50806.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50806.jpgsave_picture_50806.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Drakkar Crew (2023) [Ru/En] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50811.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50811.jpgsave_picture_50811.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ The Legend of Nayuta: Boundless Trails (2021) [Multi] (1.0.7) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50860.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50860.jpgsave_picture_50860.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Deepest Chamber: Resurrection (2021) [Multi] (1.08) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50872.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50872.jpgsave_picture_50872.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Scars of Mars (2024) [Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50916.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50916.jpgsave_picture_50916.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Astor: Blade of the Monolith (2024) [Ru/Multi] (1.0.9) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51044.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51044.jpgsave_picture_51044.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ The Black Pool (2023) [Ru/Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51055.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51055.jpgsave_picture_51055.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Stray Gods: The Roleplaying Musical (2023) [Multi] (8863.1/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51156.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51156.jpgsave_picture_51156.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Mushoku Tensei: Jobless Reincarnation Quest of Memories (2024) [Multi] (1.0.3) R
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51215.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51215.jpgsave_picture_51215.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Ludus Mortis (2024) [Multi] (1.0.8) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51355.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51355.jpgsave_picture_51355.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Deathbulge: Battle of the Bands (2023) [En] (1.1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51714.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51714.jpgsave_picture_51714.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Russian Village Simulator / Симулятор русской деревни (20
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51720.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51720.jpgsave_picture_51720.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Dungeon Drafters (2023) [Ru/Multi] (1.1.1.6) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51880.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51880.jpgsave_picture_51880.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Reverse Collapse: Code Name Bakery (2024) [Multi] (1.0.7.1/dlc) Scene Tenoke [De
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52110.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52110.jpgsave_picture_52110.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ ELDEN RING (2022) [Ru/Multi] (1.12/dlc) Repack dixen18 [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52180.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52180.jpgsave_picture_52180.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Tower Song (2024) [En] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52396.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52396.jpgsave_picture_52396.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ magnet:?xt=urn:btih:01CF92E249B73F4F731F3AC3159602DDA9C14002
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52402.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52402.jpgsave_picture_52402.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ DYSMANTLE (2021) [Ru/Multi] (1.4.0.41/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52432.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52432.jpgsave_picture_52432.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ The I of the Dragon / Глаз дракона (2002) [Multi] (1.02) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52480.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52480.jpgsave_picture_52480.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Baten Kaitos I & II HD Remaster (2024) [Multi] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52495.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52495.jpgsave_picture_52495.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ magnet:?xt=urn:btih:B7442F6B6477296502517E352F1B6825AEB1BFE8
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52591.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52591.jpgsave_picture_52591.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Fate/Samurai Remnant (2023) [Multi] (1.3.1/dlc) Scene Rune [Digital Deluxe Editi
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52755.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52755.jpgsave_picture_52755.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Freedom Force (2002) [En] (1.3) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53117.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53117.jpgsave_picture_53117.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Freedom Force vs. the Third Reich (2005) [En] (1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53135.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53135.jpgsave_picture_53135.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Born of Bread (2023) [Multi] (r3.2.4d) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53287.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53287.jpgsave_picture_53287.jpg" />
 </div>
 
 

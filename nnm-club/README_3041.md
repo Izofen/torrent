@@ -6,7 +6,7 @@
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96101.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96101.jpgsave_picture_96101.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Autopoiesis - Cytherean Dreams (2002) [MP3|192 Kbps] <Electronic, Berlin School,
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96116.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96116.jpgsave_picture_96116.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ magnet:?xt=urn:btih:AD7028CD4C067E17FA43C1C78EE19F19997648E6
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96118.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96118.jpgsave_picture_96118.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:71D49F09C2DA4AF7BD2AD81E62635338BA7A7C72
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96120.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96120.jpgsave_picture_96120.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ magnet:?xt=urn:btih:CD3B7390498D2A93CF625868DE3619F50FF07A62
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96123.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96123.jpgsave_picture_96123.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ magnet:?xt=urn:btih:4B66EADB900CC539C7651F5A565B2FCC076F63FF
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96127.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96127.jpgsave_picture_96127.jpg" />
 </div>
 
 
@@ -161,7 +161,7 @@ magnet:?xt=urn:btih:22F121CE19B8076DFD7C6F424008B1E6B49F95CB
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96131.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96131.jpgsave_picture_96131.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ magnet:?xt=urn:btih:9985C5D1B1B441A2EAEC5028A63F77116327DF09
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96139.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96139.jpgsave_picture_96139.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ magnet:?xt=urn:btih:55DE87905A139F4FF141E4602AFB511D51A3E182
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96143.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96143.jpgsave_picture_96143.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ The Dwindlers - Allegories (2012) [MP3|~245 Kbps (V0)]<Ambient,Female vocal, Ele
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96147.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96147.jpgsave_picture_96147.jpg" />
 </div>
 
 
@@ -265,7 +265,7 @@ VA - Взрывной хит-парад Весна (2012) [MP3|256-320 кб/с]<
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96149.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96149.jpgsave_picture_96149.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:B1675603B457D1A2F443004ADFB5641905705754
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96155.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96155.jpgsave_picture_96155.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ magnet:?xt=urn:btih:3324C0EF0D5818375E0EAD01B668C77A5678E1FB
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96158.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96158.jpgsave_picture_96158.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ magnet:?xt=urn:btih:CABB4C349D84AE7675C80ED08239BB2E279D1DF0
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96162.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96162.jpgsave_picture_96162.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ magnet:?xt=urn:btih:44931C6C148394E0879EBD87A903796C0319CAD9
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96163.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96163.jpgsave_picture_96163.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ magnet:?xt=urn:btih:3F1F794BE95FAC968964AF12216C29ED8CB15013
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96166.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96166.jpgsave_picture_96166.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ VA - Ultimate Dance & Trance Vol.1 (2012) [MP3|320 кб/с]<Dance, Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96172.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96172.jpgsave_picture_96172.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ VA - Trance Maniacs Party: Uplifting Breeze #35 (09.03.2012) [MP3|320 кб/с]<U
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96176.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96176.jpgsave_picture_96176.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ VA - Звезды Танцевальных Хитов. Зарубежный (201
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96178.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96178.jpgsave_picture_96178.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ VA - High Big DubStep (2012) [MP3|320 кб/с]<Dubstep, Progressive>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96181.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96181.jpgsave_picture_96181.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ VA - High Rankin presents This Is Suicide Dub Volume 1 (2010) [MP3|320 кб/с]<
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96188.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96188.jpgsave_picture_96188.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ magnet:?xt=urn:btih:4845516FB28C01F76D8FD5E42680DEDF2F3D9487
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96189.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96189.jpgsave_picture_96189.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ magnet:?xt=urn:btih:2716B309F3E7B5300482E041253510FE0B8DA2D2
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96194.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96194.jpgsave_picture_96194.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Lord of Speed vs DJ Kaos - Split (2012) [MP3|320 кб/с]<Speedcore, Noise>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96196.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96196.jpgsave_picture_96196.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ magnet:?xt=urn:btih:DED9B5C665EE7403E3CBD8414A855638C7388551
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96198.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96198.jpgsave_picture_96198.jpg" />
 </div>
 
 
@@ -684,7 +684,7 @@ magnet:?xt=urn:btih:D560C0E2C0014C9660F81420EE93B69132D36CF0
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96200.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96200.jpgsave_picture_96200.jpg" />
 </div>
 
 

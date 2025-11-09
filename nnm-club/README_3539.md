@@ -6,7 +6,7 @@ Esplanada - Closer to the Edge (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112388.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112388.jpgsave_picture_112388.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Lillian Axe - The Box Vol. 1-2 (2023-2024) 13CD [MP3|320 Kbps] <Hard Rock, Heavy
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112389.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112389.jpgsave_picture_112389.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Tondemo Skill de Isekai Hourou Meshi 2 | Кулинарные скитания �
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112390.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112390.jpgsave_picture_112390.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ magnet:?xt=urn:btih:CE77007164D6B714EA6092CA1B93543AC893D9D2
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112391.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112391.jpgsave_picture_112391.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ Cleopatrics - Love Revenge (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112392.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112392.jpgsave_picture_112392.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ magnet:?xt=urn:btih:49758572A82AC906402639C5BAC12080188BDB59
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112393.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112393.jpgsave_picture_112393.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ Amerikan Bear - Seconds (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112394.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112394.jpgsave_picture_112394.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ Photo Lab PRO v3.13.5 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112395.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112395.jpgsave_picture_112395.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Scrutiny 12.8.9 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112396.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112396.jpgsave_picture_112396.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ Silver Convention - Save Me (1975) Remaster, 2024, Omnivore Recordings [FLAC 24/
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112397.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112397.jpgsave_picture_112397.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ magnet:?xt=urn:btih:A6633B4A538D8AFF96458EE1F942255C4C92321D
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112398.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112398.jpgsave_picture_112398.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ magnet:?xt=urn:btih:52B33898EC27DA8948FF4B204FB71C36C60EFFAE
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112399.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112399.jpgsave_picture_112399.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ magnet:?xt=urn:btih:0F417DA3C37D993BF5C09C8BADDA22E6C3D212A3
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112400.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112400.jpgsave_picture_112400.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ Alex Kozub - Evenings & Weekends (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Roc
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112401.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112401.jpgsave_picture_112401.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ magnet:?xt=urn:btih:9C846EF05757B6DCF351825C15C2E72FC14E0B6F
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112402.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112402.jpgsave_picture_112402.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Aaron Lehnen - Black Sabbath: A Tribute To Ozzy (2025) [FLAC 24/48|Lossless|WEB-
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112403.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112403.jpgsave_picture_112403.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ magnet:?xt=urn:btih:A15DE655FBA243606A1BA80122A037C35959CB33
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112404.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112404.jpgsave_picture_112404.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ magnet:?xt=urn:btih:D243D93E5186AD38507D45944BC8EFEEF600362D
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112405.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112405.jpgsave_picture_112405.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ Wandance | Один танец [2025, TV, 1 из 12] WEBRip 720p raw
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112406.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112406.jpgsave_picture_112406.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ magnet:?xt=urn:btih:3570C7FB130A3355356E25A673B98F10F91F8D58
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112407.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112407.jpgsave_picture_112407.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ magnet:?xt=urn:btih:B8ABED7672A6ABE2F9DC0C3F8E0B95F2B22FF3A4
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112408.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112408.jpgsave_picture_112408.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ magnet:?xt=urn:btih:F09E95E26C56780E2DD7AC372B6472C164731184
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112409.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112409.jpgsave_picture_112409.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ magnet:?xt=urn:btih:A9ED244EAC3177738CD3DCEDDC90B68E84A5C75B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112410.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112410.jpgsave_picture_112410.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ magnet:?xt=urn:btih:9445EBC25D5AD6AA61772EC66EB2D48458089A25
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112411.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112411.jpgsave_picture_112411.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ magnet:?xt=urn:btih:953595EC03D607B1FCE0E39FF12B4CCF700DC198
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112412.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112412.jpgsave_picture_112412.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ magnet:?xt=urn:btih:265272F3F56CECABC68B4114D202531714A9F70C
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112413.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112413.jpgsave_picture_112413.jpg" />
 </div>
 
 

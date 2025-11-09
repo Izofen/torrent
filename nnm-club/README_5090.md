@@ -6,7 +6,7 @@
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159049.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159049.jpgsave_picture_159049.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:0AE3972E0F020326761ABF88A9D50F51A1E02EFD
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159050.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159050.jpgsave_picture_159050.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ AnyMP4 iOS Cleaner 1.0.16 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159051.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159051.jpgsave_picture_159051.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:8DAF50D9C05155E574F24FD2DBDD2C3EDF9D3737
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159052.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159052.jpgsave_picture_159052.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Werewolf Jones - Rot Away (2022) [FLAC 2.0|96/24|tracks|WEB-DL] <Rock, Punk>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159053.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159053.jpgsave_picture_159053.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:92D0A102A859AAB40C2E723FF350BBF69F84D730
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159054.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159054.jpgsave_picture_159054.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ Garrett Smith - Volume III (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159055.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159055.jpgsave_picture_159055.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:BAFA955C8171A0F32E42B4383DF65B2DABE506C4
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159056.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159056.jpgsave_picture_159056.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ Xenoform - Zombietown (2022) [MP3|320 Kbps] <Alternative Rock, Space Rock, Elect
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159057.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159057.jpgsave_picture_159057.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ The Invincible (2023) [Ru/Multi] (44.304/dlc) Repack Other s
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159058.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159058.jpgsave_picture_159058.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ magnet:?xt=urn:btih:3BC8B616A80EF8D989D1BEEE147C454EE80D9CE1
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159059.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159059.jpgsave_picture_159059.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ magnet:?xt=urn:btih:1A2C2B794D84ACBD66D5FFBF7F1E06C261A242F8
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159060.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159060.jpgsave_picture_159060.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ Andy Lindquist - Life's Too Short to Spend It Raining (2022) [FLAC|Lossless|WEB-
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159061.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159061.jpgsave_picture_159061.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ Saints Row (2022) [Ru/Multi] (1.6.1.4735700/dlc) Scene Rune
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159062.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159062.jpgsave_picture_159062.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Various Artists - Gods Of Grind (1992) Japanese Ed. [FLAC|Lossless|image + .cue]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159063.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159063.jpgsave_picture_159063.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Birchpunk: Русская кибердеревня и другие (2020-2021) W
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159064.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159064.jpgsave_picture_159064.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ Aidan Black - About Time (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159065.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159065.jpgsave_picture_159065.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ Executive Assault 2 (2023) [En] (1.0.4.0) Scene Tenoke
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159066.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159066.jpgsave_picture_159066.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ Slowfoot - Something Good (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159067.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159067.jpgsave_picture_159067.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ magnet:?xt=urn:btih:B44979844AADA19C3A2AC16F911CF512C07631C5
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159068.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159068.jpgsave_picture_159068.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ magnet:?xt=urn:btih:CFB17B4B635EB1E29407E87B8F8E455FC4D8E76C
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159069.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159069.jpgsave_picture_159069.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ TT Isle Of Man: Ride on the Edge 3 (2023) [Ru/Multi] (20231109/dlc) Scene Rune
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159070.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159070.jpgsave_picture_159070.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ FRAGILE ART - The World You Wanted (2020) [MP3|320 Kbps] <Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159071.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159071.jpgsave_picture_159071.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ magnet:?xt=urn:btih:9D5618778D8ED7D20FDCB66D3471E3812C9E2BFF
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159072.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159072.jpgsave_picture_159072.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Clark Terry Quintet - Serenade To A Bus Seat (1957) 2007, Riverside [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159073.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159073.jpgsave_picture_159073.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ magnet:?xt=urn:btih:D0F92F6DAABB6359CD96A1C5E442CEC18C802AC8
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159074.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159074.jpgsave_picture_159074.jpg" />
 </div>
 
 

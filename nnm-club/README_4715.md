@@ -6,7 +6,7 @@ VA - A New You (2015) 3CD [MP3|320 кб/с] <Relax, Pop, Nu Jazz, Easy Listening
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147570.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147570.jpgsave_picture_147570.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:989787B1F8CCFB21381FD680EBFE67C0180CBC9D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147572.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147572.jpgsave_picture_147572.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ iZotope - RX 9 Audio Editor Advanced 9.2.0 STANDALONE, VST, VST3, AAX (x64) RePa
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147573.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147573.jpgsave_picture_147573.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ magnet:?xt=urn:btih:59B60BF4414A04BF6BB3ADC1D2666998B73B4F35
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147575.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147575.jpgsave_picture_147575.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ magnet:?xt=urn:btih:CCB6068D52893C7AD60FF54D5A7665F71B15A130
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147576.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147576.jpgsave_picture_147576.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ VA - Uplifting Only: Fan Favorites 2017-2018 (Mixed by Ori Uplift) (2018) [MP3|3
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147577.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147577.jpgsave_picture_147577.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ magnet:?xt=urn:btih:CC0AEE7B7190549A8D7CE299927AC4291F699208
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147578.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147578.jpgsave_picture_147578.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ AweEraser 4.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147579.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147579.jpgsave_picture_147579.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ Sublime Text 4.0 Build 4166 Dev for Mac [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147580.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147580.jpgsave_picture_147580.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ magnet:?xt=urn:btih:D7A7B16F5F4B7A57FDF5E989C7CEA55200431711
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147581.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147581.jpgsave_picture_147581.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ magnet:?xt=urn:btih:35BCB460E4B18218316B2ABDA6B6153F62B44D6F
 >>DailyTechInfo
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147582.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147582.jpgsave_picture_147582.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ magnet:?xt=urn:btih:35BCB460E4B18218316B2ABDA6B6153F62B44D6F
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147583.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147583.jpgsave_picture_147583.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:E7F4169F4CC125BF4676A86D86316F44A8169DCD
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147584.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147584.jpgsave_picture_147584.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ magnet:?xt=urn:btih:3038E8645F71CFE377EA4F463E9E1418DB6E3F89
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147585.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147585.jpgsave_picture_147585.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ magnet:?xt=urn:btih:F7CF31593E2A588D2F8A2B22F268BA74BE85BCC6
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147586.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147586.jpgsave_picture_147586.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ magnet:?xt=urn:btih:ED78145092D33DF6A896BD53E78C70CC40C2E371
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147587.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147587.jpgsave_picture_147587.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ VA - I Love Retro Dance 90's (2010) [FLAC|Lossless|tracks + .cue] <Eurodance>
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147588.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147588.jpgsave_picture_147588.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ magnet:?xt=urn:btih:1DDD7D7071DBBAE6E3AAF8577A3C5A18253C5AEB
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147589.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147589.jpgsave_picture_147589.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Shy Tiger - Feed The Kitty/Tails Out (2018) [FLAC|Lossless|image + .cue] <Hard R
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147591.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147591.jpgsave_picture_147591.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ magnet:?xt=urn:btih:731E8A4092AF7D48220BDE03FEF8F93BA3FDBDD1
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147592.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147592.jpgsave_picture_147592.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ magnet:?xt=urn:btih:CB22947833639418E945E23424B4D787F597EFD3
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147593.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147593.jpgsave_picture_147593.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Katica Illenyi - Tango Classic (2018) IKP Music [FLAC|Lossless|tracks + .cue] <S
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147594.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147594.jpgsave_picture_147594.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ magnet:?xt=urn:btih:CAD43E73469A40AFA22D4D1FB336D8117798A638
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147595.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147595.jpgsave_picture_147595.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ magnet:?xt=urn:btih:1962ABE6F5F02FBA2A5B0F36007AA10E8E38B6DE
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147597.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147597.jpgsave_picture_147597.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ Wattagio 1.4.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147598.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147598.jpgsave_picture_147598.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ magnet:?xt=urn:btih:5B782488F0D607D6ED025063EF9B7D97453D97FE
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147599.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147599.jpgsave_picture_147599.jpg" />
 </div>
 
 

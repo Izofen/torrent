@@ -6,7 +6,7 @@ Various Artists - Fußball - Rock Hits (2024) [FLAC|Lossless|WEB-DL|tracks] <Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107201.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107201.jpgsave_picture_107201.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:5E0B284EEBB62EC190A1E639506439260C43131C
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107202.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107202.jpgsave_picture_107202.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Luca Turilli (Dreamquest; Rhapsody) - Studio Albums (7 releases) (1999-2019) han
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107203.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107203.jpgsave_picture_107203.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:AF1E9CD184C7FD6E4F368E3A1430FCD067C28574
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107204.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107204.jpgsave_picture_107204.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ VA - Live @ Pinkpop Festival Netherlands (2024) [MP3|320 Kbps] <Progressive Hous
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107205.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107205.jpgsave_picture_107205.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ magnet:?xt=urn:btih:6F175951CB0B8EACF6669F11221A75B632A67977
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107206.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107206.jpgsave_picture_107206.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ VA - DJ Hits Vol. 131 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Euro
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107207.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107207.jpgsave_picture_107207.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ magnet:?xt=urn:btih:51210676BB2E95E817BA0C0B97AE4A67336270A8
 >>Футбол. Чемпионаты Европы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107208.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107208.jpgsave_picture_107208.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ VA - DJ Hits Vol. 124 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Euro
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107209.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107209.jpgsave_picture_107209.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ magnet:?xt=urn:btih:0792BF1E6BE289BD2D65990B41B409E011E416B7
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107210.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107210.jpgsave_picture_107210.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ VA - Strolling - Rock & Metal (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107211.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107211.jpgsave_picture_107211.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ VA - Father's Day 2024 (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107212.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107212.jpgsave_picture_107212.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Kasbo - 6 Albums (2018-2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Downtempo, E
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107213.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107213.jpgsave_picture_107213.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ magnet:?xt=urn:btih:979B53487C853ED62E0E8493A4864D875EB52ED6
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107214.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107214.jpgsave_picture_107214.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Dwson - Jewels (2024) [FLAC|Lossless|WEB-DL|tracks] <House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107215.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107215.jpgsave_picture_107215.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Lovejoy - Wake Up & It's Over (2023) [FLAC|Lossless|WEB-DL|tracks] <Power Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107216.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107216.jpgsave_picture_107216.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ Lovejoy - ...And It's Love! (2024) [MP3|320 Kbps] <Power Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107217.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107217.jpgsave_picture_107217.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ magnet:?xt=urn:btih:5B84A6E3991B388B3636154C092E0E3265165784
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107218.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107218.jpgsave_picture_107218.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ VA - Petty Country (A Country Music Celebration Of Tom Petty) (2024) [FLAC 24/48
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107219.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107219.jpgsave_picture_107219.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Erik Friedlander - Dirty Boxing (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107220.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107220.jpgsave_picture_107220.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Kadavar - 3 Albums (2011-2017) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Acid Rock,
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107221.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107221.jpgsave_picture_107221.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Federico Caruso - Sfunk (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107222.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107222.jpgsave_picture_107222.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Louis Jordan - 1941 - 1943 (1994) Classics [FLAC|Lossless|tracks + .cue] <Swing,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107223.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107223.jpgsave_picture_107223.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ Dreamroot - Push (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107224.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107224.jpgsave_picture_107224.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ Bryard Huggins - Confidential (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107225.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107225.jpgsave_picture_107225.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ James Blake & Lil Yachty - Bad Cameo (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107226.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107226.jpgsave_picture_107226.jpg" />
 </div>
 
 

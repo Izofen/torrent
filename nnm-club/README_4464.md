@@ -6,7 +6,7 @@
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139576.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139576.jpgsave_picture_139576.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:ACE04649D52783E12BCF243523A430229AE9104C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139577.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139577.jpgsave_picture_139577.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:3AE7307D6D550058A75696B1FFA5FB454BA16EA5
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139578.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139578.jpgsave_picture_139578.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:3EDDE57D5ED83DC6B845A5FCD81D9BC5A2EB9FF1
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139579.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139579.jpgsave_picture_139579.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:EAF40F701A2120154CF469C4AD12BB4877041750
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139581.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139581.jpgsave_picture_139581.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:9D2FA8129D428F27B85D11DFDF0DD33FB5387EB8
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139582.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139582.jpgsave_picture_139582.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:1BE8049FE1549B5C67DD023BBC4F8CB9F2DB23EE
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139583.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139583.jpgsave_picture_139583.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:3A7B370AADCA82E097091AF1CC87B71CC3860904
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139584.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139584.jpgsave_picture_139584.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:D8CB4D2BF1DA3B5E67D6C8F2AF304625F41D4951
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139585.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139585.jpgsave_picture_139585.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:97CE6C6EB9BA8D3AD648660636D434D30AE301A1
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139586.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139586.jpgsave_picture_139586.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:52A8B570F8918053881639C4B0D2838B4F0EF0E3
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139587.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139587.jpgsave_picture_139587.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ magnet:?xt=urn:btih:9C1D8F027CF98CBE19B2E391FC99DC4018A114D8
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139588.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139588.jpgsave_picture_139588.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ magnet:?xt=urn:btih:F316E324A19D91A2BDEE3C51FC89C6F8A5EEE3D8
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139589.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139589.jpgsave_picture_139589.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ magnet:?xt=urn:btih:4E09FC35AF10ED972A9EF71FF9ADACBE6F4F8FB2
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139590.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139590.jpgsave_picture_139590.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ FrontendMasters, Erik Reinert | Enterprise Cloud Infrastructure (2023) WEB-DL [E
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139592.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139592.jpgsave_picture_139592.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ TweakPower 1.082 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139593.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139593.jpgsave_picture_139593.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Bungou Stray Dogs / Бродячие псы литературы [2016, TV, 24 e
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139594.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139594.jpgsave_picture_139594.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ magnet:?xt=urn:btih:524D44A45A1DFF51DC4499825EB0833E2D065000
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139595.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139595.jpgsave_picture_139595.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Tykwer/Klimek/Heil - Run Lola Run (Original Motion Picture Soundtrack) (1999) TV
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139596.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139596.jpgsave_picture_139596.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ magnet:?xt=urn:btih:631CF91264E6C40D0E263F6F6078C34EDBD87EA4
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139597.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139597.jpgsave_picture_139597.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ magnet:?xt=urn:btih:38F9517465114645CDB0E606B867D2B12238206F
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139600.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139600.jpgsave_picture_139600.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Cannonball Adderley - Live! (1964) Remaster, 2011, EMI Music[FLAC|tracks+.cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139601.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139601.jpgsave_picture_139601.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ magnet:?xt=urn:btih:EC2F30D26BFA61E54D3B7DB3FFA57BA76C62EB07
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139602.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139602.jpgsave_picture_139602.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ magnet:?xt=urn:btih:5323A462479B335E4CA292297292DD57624E248D
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139603.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139603.jpgsave_picture_139603.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ VA - Дискотека 2017 Dance Club Vol. 159 от NNNB (2016) [MP3|320 Kbps]
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139605.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139605.jpgsave_picture_139605.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ magnet:?xt=urn:btih:7AEF5CE88BC72AE6CE192B4AAA507935F3A5588A
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139606.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139606.jpgsave_picture_139606.jpg" />
 </div>
 
 

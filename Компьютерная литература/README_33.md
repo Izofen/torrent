@@ -6,7 +6,7 @@
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_230863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230863.jpgsave_picture_230863.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:FA8A283A875BB442D3F44794C4B8336EE9970C79
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_230989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230989.jpgsave_picture_230989.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Jeanine Meye | The Essential Guide to HTML5: Using Games to Learn HTML5 and Java
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_231227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231227.jpgsave_picture_231227.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:00AE46B8A65A4ACA10A44BA71E4D277F861DB924
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_231233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231233.jpgsave_picture_231233.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ Daniel Ilett | Building Quality Shaders for Unity: Using Shader Graphs and HLSL 
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_231773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231773.jpgsave_picture_231773.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:1AC71EEC1FE390A8E229D2EB5062A7A9B902EC35
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232243.jpgsave_picture_232243.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:B9B2CF42EC403D14B3FE33070214FDF91D48DE24
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232395.jpgsave_picture_232395.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:0784DD59504019D357BF1E7DEB903B4EE054824A
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232427.jpgsave_picture_232427.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ Nagender Kumar Suryadevara | Beginning Machine Learning in the Browser (2021) [P
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233979.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233979.jpgsave_picture_233979.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:C3A767D2E4CF5F51DB55587E438F0734D4F438C9
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234354.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234354.jpgsave_picture_234354.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:9F546E88D27303430DFCC94D742E9C9E825DC693
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234422.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234422.jpgsave_picture_234422.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Darren James Harkness | Apache Essentials: Install, Configure, Maintain, 2nd Edi
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234530.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234530.jpgsave_picture_234530.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:A1139BABD5727848AEC9E6D86820A05FFC9271A5
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234555.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234555.jpgsave_picture_234555.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:4EB68FB021C52D603DBD2054526D5F9C2CA784E9
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234611.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234611.jpgsave_picture_234611.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ magnet:?xt=urn:btih:D0DBE670AE856DADE83BA09C3161D2E64DA3950E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234655.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234655.jpgsave_picture_234655.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Hari Narayn | Just React!: Learn React the React Way (2022) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234984.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234984.jpgsave_picture_234984.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Martin Joo | Test-Driven APIs with Laravel and Pest (2022) [PDF] [EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235175.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235175.jpgsave_picture_235175.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ magnet:?xt=urn:btih:9F150FB67A90F5A08B6E3EFFA5FC805BD3703491
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235516.jpgsave_picture_235516.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Narendar Singh Saini | iOS Developer Solutions Guide: Learn How to Create Stable
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235620.jpgsave_picture_235620.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ Akshay Kulkarni и др. | Applied Recommender Systems with Python (2023) [PDF] 
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235891.jpgsave_picture_235891.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Jamie Rumbelow | Building With Ethereum (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235988.jpgsave_picture_235988.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ Daniel Irvine | Build Your Own Test Framework: A Practical Guide to Writing Bett
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_236271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_236271.jpgsave_picture_236271.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ magnet:?xt=urn:btih:D46064E32D027230B54213F46B0C36FE3E643C96
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237538.jpgsave_picture_237538.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ magnet:?xt=urn:btih:F396D1832B28BABBAE067B708A285250CB034BB7
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237666.jpgsave_picture_237666.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ magnet:?xt=urn:btih:8783645C4370D70142F9CBE602B7548E554D9767
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237970.jpgsave_picture_237970.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ magnet:?xt=urn:btih:6267A9BD4D395F408DF7E367D8CACA9F7F40F4B3
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238646.jpgsave_picture_238646.jpg" />
 </div>
 
 

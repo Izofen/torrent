@@ -6,7 +6,7 @@ Travis - L.A. Times (2024) [FLAC|Lossless|WEB-DL|tracks] <Soft Rock, Alternative
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106730.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106730.jpgsave_picture_106730.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Testament - The Legacy (1987) Remastered, 2024, Rhino Atlantic; Nuclear Blast [F
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106736.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106736.jpgsave_picture_106736.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Arctic Rise - Voyager III (2024) [FLAC|Lossless|WEB-DL|tracks] <Post-Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106739.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106739.jpgsave_picture_106739.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Wallop - Hell On Wheels (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106741.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106741.jpgsave_picture_106741.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Eleanor - Effigy Of The Flowing Tears (2024) [FLAC|Lossless|WEB-DL|tracks] <Goth
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106743.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106743.jpgsave_picture_106743.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Ammify - Lost, Not Hiding (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Progress
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106754.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106754.jpgsave_picture_106754.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Troyen - Unfinished Business (2024) [MP3|320 Kbps] <NWOBHM, Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106758.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106758.jpgsave_picture_106758.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Nocturnus AD - Unicursal (2024) [FLAC|Lossless|image + .cue] <Technical Death Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106765.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106765.jpgsave_picture_106765.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Black Hole Deity - Profane Geometry (2024) [FLAC|Lossless|WEB-DL|tracks] <Death 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106769.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106769.jpgsave_picture_106769.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Slade - Live In London 1972 (Live) (2024) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106773.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106773.jpgsave_picture_106773.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Evercloud - From Light To Eternity (2024) [FLAC|Lossless|WEB-DL|tracks] <Doom, D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106774.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106774.jpgsave_picture_106774.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ DS Caw - Nothing To Fight For (2024) [MP3|320 Kbps] <Classic Rock, Blues>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106787.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106787.jpgsave_picture_106787.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ The Moody Blues - In Search Of The Lost Chord (1968) Box Set, Deluxe Edition, 3x
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106808.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106808.jpgsave_picture_106808.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Mr. Big - Ten (2024) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106814.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106814.jpgsave_picture_106814.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ magnet:?xt=urn:btih:4D526170BD806264A61DB36F37FEBD4CE149C67D
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106819.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106819.jpgsave_picture_106819.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Troyen - Unfinished Business (2024) [FLAC|Lossless|WEB-DL|tracks] <NWOBHM, Heavy
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106827.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106827.jpgsave_picture_106827.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Cloven Hoof - Eye Of The Sun (2006) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106829.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106829.jpgsave_picture_106829.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ DS Caw - Nothing To Fight For (2024) [FLAC|Lossless|WEB-DL|tracks] <Classic Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106845.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106845.jpgsave_picture_106845.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:F4AD9B80B95C7E4B6E661B4E265CDD5E66BAB13A
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106881.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106881.jpgsave_picture_106881.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Sabïre - Jätt (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106886.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106886.jpgsave_picture_106886.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Sear Bliss - Heavenly Down (2024) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Bla
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106887.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106887.jpgsave_picture_106887.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Limbonic Art - Opus Daemoniacal (2024) [FLAC|Lossless|WEB-DL|tracks] <Symphonic 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106889.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106889.jpgsave_picture_106889.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Heavy Star - Ride On (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106890.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106890.jpgsave_picture_106890.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Illdisposed - In Chambers Of Sonic Disgust (2024) [FLAC|Lossless|WEB-DL|tracks] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106892.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106892.jpgsave_picture_106892.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Hawkestrel - Presents Pre-Med - Old Habits Die Hard (2024) [FLAC|Lossless|WEB-DL
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106894.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106894.jpgsave_picture_106894.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Sabïre - Jätt (2024) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106895.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106895.jpgsave_picture_106895.jpg" />
 </div>
 
 

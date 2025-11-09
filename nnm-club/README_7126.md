@@ -6,7 +6,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244213.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244213.jpgsave_picture_244213.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:AEF21F6120D07390E24A50DF8C50331CB4AC040A
 >>Отечественное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244214.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244214.jpgsave_picture_244214.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:778CD3FC4E5013AD06CB17D5F1212D3B5DB1551C
 >>Старые Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244215.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244215.jpgsave_picture_244215.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:2909B91949CB02E1D8276AEC656EB3CCA2D7C32C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244216.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244216.jpgsave_picture_244216.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:FD6C4EFE4B9524D0117C8641FC226F8A995093A4
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244217.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244217.jpgsave_picture_244217.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ V.A. - Lounge & Coffee, Vol. 4 (2023) [FLAC|Lossless|WEB-DL|tracks] <Easy Listen
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244218.jpgsave_picture_244218.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ VA - Chilling in the Bar: Urban Chillout Music (2022) [AAC|~314 Kbps] <Chill Out
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244219.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244219.jpgsave_picture_244219.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ Caspar McCloud - Game Changers (2020) [FLAC|Lossless|WEB-DL|tracks] <Classic Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244220.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244220.jpgsave_picture_244220.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ magnet:?xt=urn:btih:FCA1D59A25E2F9C9B569FF8D62977ECA0B1FADB3
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244221.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244221.jpgsave_picture_244221.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ Little Bob Story – Livin' In The Fast Lane & 6 Inedits (1977) Reissue, 1991, F
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244222.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244222.jpgsave_picture_244222.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ magnet:?xt=urn:btih:AD78BDBC6339EBE02F8C2650948276E6D55E36DC
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244223.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244223.jpgsave_picture_244223.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ magnet:?xt=urn:btih:DF710C7B0F41AB1921EA2C2830988F111DD17105
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244224.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244224.jpgsave_picture_244224.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ LDPlayer 9.0.41 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244225.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244225.jpgsave_picture_244225.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ FanControl V156 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244226.jpgsave_picture_244226.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ VA - Viva 2021.4 (2022) [AAC|~331 Kbps] <House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244227.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244227.jpgsave_picture_244227.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ Second Story - Thin Twisting Line (2020) 2CDSet [MP3|320 Kbps] <Progressive Rock
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244228.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244228.jpgsave_picture_244228.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ VA - Ibiza Winter (2016) [MP3|320 Kbps] <Funky, Club House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244229.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244229.jpgsave_picture_244229.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ PrivaZer 4.0.64 Free + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244230.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244230.jpgsave_picture_244230.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ Onde (2022) [En] (1.2) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244231.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244231.jpgsave_picture_244231.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ Morghash - Cosmogony (2019) EP [MP3|320 Kbps] <Symphonic Black Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244232.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244232.jpgsave_picture_244232.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ Marga Sol - I Am Everywhere (Pop Lounge Vibes) (2013) [AAC|~315 Kbps] <Lounge, C
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244233.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244233.jpgsave_picture_244233.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ CyberLink PhotoDirector Ultra 14.1.1514 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244234.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244234.jpgsave_picture_244234.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ The Differentials - Gary 3:17 (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244235.jpgsave_picture_244235.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Gary Burton - Country Roads & Other Places (1969) 1998, Koch Jazz[FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244236.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244236.jpgsave_picture_244236.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ SiteSucker 4.0.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244237.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244237.jpgsave_picture_244237.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ magnet:?xt=urn:btih:66A500A6D4D03463A8DEFD6EE7AD2A90554478A6
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244238.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244238.jpgsave_picture_244238.jpg" />
 </div>
 
 

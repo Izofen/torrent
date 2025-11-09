@@ -6,7 +6,7 @@
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86141.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86141.jpgsave_picture_86141.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:359BE72D93F4828907043A2866A29800293D0FFB
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86144.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86144.jpgsave_picture_86144.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:359BE72D93F4828907043A2866A29800293D0FFB
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86146.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86146.jpgsave_picture_86146.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:F466AC4C57EEF1CDF4E7D5AB76756A88E7A43880
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86149.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86149.jpgsave_picture_86149.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:F466AC4C57EEF1CDF4E7D5AB76756A88E7A43880
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86151.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86151.jpgsave_picture_86151.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ magnet:?xt=urn:btih:8689D5E79EBBEDBE0FC933CA2F87B3B778E94669
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86152.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86152.jpgsave_picture_86152.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ AnvSoft Photo Flash Maker Platinum 5.45 Portable by Valx [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86153.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86153.jpgsave_picture_86153.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ AnvSoft Photo Flash Maker - программа для создания аним�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86155.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86155.jpgsave_picture_86155.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ VA - Кто создал тебя такую. Часть 5 (2012) [MP3|256 кб/
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86156.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86156.jpgsave_picture_86156.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ magnet:?xt=urn:btih:27E3562092B3C263F1395492D2F7B758F586128E
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86157.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86157.jpgsave_picture_86157.jpg" />
 </div>
 
 
@@ -262,7 +262,7 @@ VA - Хиты Авторадио Русский №20 (2012) [MP3|256 kbps]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86158.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86158.jpgsave_picture_86158.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ magnet:?xt=urn:btih:85AFDA6616103EEEB53FEF69C1002787DEE4AEA2
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86160.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86160.jpgsave_picture_86160.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ magnet:?xt=urn:btih:050058D096F0AA20F92A4EA645C8DA5CFF7C2404
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86161.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86161.jpgsave_picture_86161.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ Fuduntu 2012.2 [i686 + x86_64] (2xDVD)
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86162.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86162.jpgsave_picture_86162.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ magnet:?xt=urn:btih:748BA3390EACDAAC1878A201A18998414349DB32
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86163.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86163.jpgsave_picture_86163.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ The Longhorn Roketdock v1.3.5 by kubines v1.3.5 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86165.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86165.jpgsave_picture_86165.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ The Longhorn Roketdock v1.3.5 by kubines v1.3.5 [Русский]
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86166.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86166.jpgsave_picture_86166.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ magnet:?xt=urn:btih:6D1FC10592F57CE0AD6C803DA4D7954D5D7F9C19
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86167.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86167.jpgsave_picture_86167.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ magnet:?xt=urn:btih:E21E5D939282FB50C7336828D1A06B6F8632259E
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86168.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86168.jpgsave_picture_86168.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ magnet:?xt=urn:btih:D9F086EE6656982F350274E033BEDD2CC52AF81E
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86170.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86170.jpgsave_picture_86170.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ magnet:?xt=urn:btih:D9F086EE6656982F350274E033BEDD2CC52AF81E
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86172.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86172.jpgsave_picture_86172.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ magnet:?xt=urn:btih:D9F086EE6656982F350274E033BEDD2CC52AF81E
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86173.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86173.jpgsave_picture_86173.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Red Hot Chili Peppers: I'm With You (Live in Cologne) (2011) [1080i] HDTV
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86175.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86175.jpgsave_picture_86175.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Red Hot Chili Peppers: I'm With You (Live in Cologne) (2011) [1080i] HDTV
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86177.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86177.jpgsave_picture_86177.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ Red Hot Chili Peppers: I'm With You (Live in Cologne) (2011) [1080i] HDTV
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86178.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86178.jpgsave_picture_86178.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ My7CustoBox 1.3.0 [Французский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86180.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86180.jpgsave_picture_86180.jpg" />
 </div>
 
 

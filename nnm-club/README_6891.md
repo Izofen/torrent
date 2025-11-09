@@ -6,7 +6,7 @@
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236642.jpgsave_picture_236642.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:8A9250A75402A65FB568F4C498952DF24675852A
 >>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236644.jpgsave_picture_236644.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:539E9B7A29C8252D8DBE13BE0254001451130858
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236645.jpgsave_picture_236645.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Shabnak - Fusion (2021) [FLAC|Lossless|WEB-DL|tracks] <Tribal Metal, Industrual 
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236647.jpgsave_picture_236647.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ V.A. - Ambient Chill out Ibiza 2023 (2023) [FLAC|Lossless|WEB-DL|tracks] <Lounge
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236648.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236648.jpgsave_picture_236648.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ magnet:?xt=urn:btih:ACFE34F851133E778A6C65C295DA21C85464F788
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236650.jpgsave_picture_236650.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ magnet:?xt=urn:btih:9CBB70CE9EC44167A30D7532FBB3B9AD43E05201
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236651.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236651.jpgsave_picture_236651.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ Tor повышает скорость работы сети
 >>Компьютерные новости
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236652.jpgsave_picture_236652.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ Tor повышает скорость работы сети
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236655.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236655.jpgsave_picture_236655.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ Skype 8.98.0.407 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236656.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236656.jpgsave_picture_236656.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ Sublime Merge 2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236657.jpgsave_picture_236657.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ Bartender 4 v4.0.45 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236658.jpgsave_picture_236658.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Allavsoft Video Downloader Converter 3.25.7.8568 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236660.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236660.jpgsave_picture_236660.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ magnet:?xt=urn:btih:508E2B5855EE45FEB216AFF7DF5637507C7E93FF
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236661.jpgsave_picture_236661.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ magnet:?xt=urn:btih:2A04D02642BC2E5696C600F7834162093945EF4E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236662.jpgsave_picture_236662.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Kesem - Post-Terra (2021) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic, Space-Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236663.jpgsave_picture_236663.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ magnet:?xt=urn:btih:29D3E6FF8475815A97BB13D3ABEA5E45A10E80C5
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236665.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236665.jpgsave_picture_236665.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Naumind - Live at United Forever Festival 2021 (2021-01-17) [MP3|320 Kbps] <Big 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236666.jpgsave_picture_236666.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Fausto Papetti - Bonjour France (1998) [AAC|~336 Kbps] <Jazz, Easy Listening>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236669.jpgsave_picture_236669.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ magnet:?xt=urn:btih:08E76E7B8BBE6F76DDAAD27F32170F241A2D64DA
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236671.jpgsave_picture_236671.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ magnet:?xt=urn:btih:D26086D17534914BA3E01BE91A4D2F6E8A0F2679
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236672.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236672.jpgsave_picture_236672.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ magnet:?xt=urn:btih:3C53D33BD5FA5B443D97250EAA1C5A787E70BD30
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236673.jpgsave_picture_236673.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Eloy - Ocean (1977) Remastered, 2019, Vertigo Berlin [FLAC|Lossless|WEB-DL|track
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236675.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236675.jpgsave_picture_236675.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Radio Alarm Clock + 5.4.0 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236676.jpgsave_picture_236676.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ magnet:?xt=urn:btih:EAD828CD644593D75D512A3E58BFA49AF5D045BC
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236677.jpgsave_picture_236677.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ Plaindrifter - Echo Therapy (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive St
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236678.jpgsave_picture_236678.jpg" />
 </div>
 
 

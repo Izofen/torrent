@@ -6,7 +6,7 @@
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96754.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96754.jpgsave_picture_96754.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ magnet:?xt=urn:btih:FF7E848C5582E817B11EB2AE90FCC0E20BFF432E
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96756.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96756.jpgsave_picture_96756.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ Sense - Дискография 4 альбома (2002-2007) [MP3|320 кб/с]<Cr
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96760.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96760.jpgsave_picture_96760.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ VA - Танцевальная Горячка. Весенний Выпуск (201
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96761.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96761.jpgsave_picture_96761.jpg" />
 </div>
 
 
@@ -119,7 +119,7 @@ InnerWish - 4 альбома (1998-2010) [MP3|320 кб/с]<Power Metal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96767.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96767.jpgsave_picture_96767.jpg" />
 </div>
 
 
@@ -143,7 +143,7 @@ magnet:?xt=urn:btih:E2560C2327193E06FBC03B9CC647115C2E36C4F3
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96770.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96770.jpgsave_picture_96770.jpg" />
 </div>
 
 
@@ -171,7 +171,7 @@ magnet:?xt=urn:btih:19A8605B0A2CEBD7E13CD0E3A528B391D106D266
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96771.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96771.jpgsave_picture_96771.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:169D058C62CA955DB8E84688ED549A04B6B7F0F4
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96772.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96772.jpgsave_picture_96772.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ C.O.E. - Metal (S.L. Coe - ex Angel Dust,Scanner,Reactor) (2000) [MP3|320 кб/�
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96779.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96779.jpgsave_picture_96779.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ magnet:?xt=urn:btih:A329E4505D3B126C4BF24898A180CFDEF0DEFF74
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96780.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96780.jpgsave_picture_96780.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ magnet:?xt=urn:btih:47ABD00ED1E11C5EA0AD13F32B890BE02099E3F1
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96781.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96781.jpgsave_picture_96781.jpg" />
 </div>
 
 
@@ -316,7 +316,7 @@ magnet:?xt=urn:btih:0CE813C78E28CEEDA8E4136EB1D61446D70DCD3A
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96785.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96785.jpgsave_picture_96785.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ magnet:?xt=urn:btih:1087BBC68E2C340440796D798631B610A22010A3
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96789.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96789.jpgsave_picture_96789.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ magnet:?xt=urn:btih:2944AD01392F92AC793E1717D6B26FA9F8870880
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96791.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96791.jpgsave_picture_96791.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ magnet:?xt=urn:btih:11FBD8FBBBF0518F8E095E93068E1338330A2291
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96792.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96792.jpgsave_picture_96792.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ magnet:?xt=urn:btih:49B6113402C550A5C92A6F461374036008A191F8
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96793.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96793.jpgsave_picture_96793.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ VA - Trance Maniacs Party: Melody Of Heartbeat #77 (2012) [MP3|320 кб/с]<Tran
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96796.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96796.jpgsave_picture_96796.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ magnet:?xt=urn:btih:F601EC93447DC50D5EEC5EFFDAC31955AE0FDFCE
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96797.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96797.jpgsave_picture_96797.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ magnet:?xt=urn:btih:A675A14C3B21A6DDF0807008DDEA5AAF79C7CE53
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96800.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96800.jpgsave_picture_96800.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Juliette Katz - Tout Va De Travers (2012) [MP3|320 кб/с]<Chanson, Pop, French
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96801.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96801.jpgsave_picture_96801.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ magnet:?xt=urn:btih:8C60BEC267C0CFB8AFA66DA1A923B0668723075A
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96804.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96804.jpgsave_picture_96804.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ magnet:?xt=urn:btih:06311FE9C3489238A0A6AD1D926CAF44ADF252E4
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96806.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96806.jpgsave_picture_96806.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ magnet:?xt=urn:btih:2D7BE2F08BC1ADC10393322863BD448C51D6B156
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96810.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96810.jpgsave_picture_96810.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ magnet:?xt=urn:btih:F5E9111784F751FD33711792A7F6B36F32EF0838
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96813.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96813.jpgsave_picture_96813.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ magnet:?xt=urn:btih:904F94D5196412D1A4A2F54822CC7A40531D4A58
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96814.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96814.jpgsave_picture_96814.jpg" />
 </div>
 
 
@@ -697,7 +697,7 @@ Soulfly - World Scum (2012) HDRip [720p]
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96815.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96815.jpgsave_picture_96815.jpg" />
 </div>
 
 

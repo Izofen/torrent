@@ -6,7 +6,7 @@ In the Woods... - Diversum (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181189.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181189.jpgsave_picture_181189.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:560B9534D8B27D61AEF146095732F6C39F188296
 >>Образование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181191.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181191.jpgsave_picture_181191.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:C511EBE7C48F1F9D43B041B0AD609B46EA3FEA19
 >>Футбол. Чемпионаты мира
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181193.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181193.jpgsave_picture_181193.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ VA - ЕвроХит Топ 40 Europa Plus 29.09.2023 [MP3|256-320 Kbps] <Pop, Da
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181196.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181196.jpgsave_picture_181196.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Jordsjo - Jord Sessions (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181197.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181197.jpgsave_picture_181197.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ magnet:?xt=urn:btih:99465ABDF704E23952AE14FBD357DFE1AA889333
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181200.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181200.jpgsave_picture_181200.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Burnt Out Wreck - Stand and Fight (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Roc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181201.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181201.jpgsave_picture_181201.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ magnet:?xt=urn:btih:425FED6EE4E1F8F1E992DEC48A8ED3E1844AB044
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181204.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181204.jpgsave_picture_181204.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ B.U.F.F. DUDES | Dumbbell only 12 week plan (2018) [PDF] [EN]
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181205.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181205.jpgsave_picture_181205.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Gods of Ancient - Historia Mali et Lucis (2022) [FLAC|Lossless|WEB-DL|tracks] <D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181206.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181206.jpgsave_picture_181206.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Tails Noir Preludes (2023) [En] (11891862/dlc) Scene Tenoke [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181208.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181208.jpgsave_picture_181208.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ realMyst: Masterpiece Edition (2014) [En] (2.2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181211.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181211.jpgsave_picture_181211.jpg" />
 </div>
 
 
@@ -317,7 +317,7 @@ WITCHROT - Live In The Hammer (2022) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181213.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181213.jpgsave_picture_181213.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ magnet:?xt=urn:btih:E38D019A78857442E04870168E6FC62CE0029DE6
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_181215.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_181215.jpgsave_picture_181215.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ Judicator - The Majesty Of Decay (2022) [FLAC|Lossless|WEB-DL|tracks] <Power Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181217.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181217.jpgsave_picture_181217.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ magnet:?xt=urn:btih:9791350246456FAE10006590E24479B7F8015544
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181218.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181218.jpgsave_picture_181218.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ magnet:?xt=urn:btih:3877B50E584D7A96C6F6381127ADCB2599332237
 >>Футбол. Чемпионаты мира
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181221.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181221.jpgsave_picture_181221.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ Ciminero - Shadows Digging the Grave (2022) [FLAC|Lossless|WEB-DL|tracks] <Doom 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181223.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181223.jpgsave_picture_181223.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Sword - III (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181225.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181225.jpgsave_picture_181225.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ magnet:?xt=urn:btih:0F6A6D39E09A1728466E1CC100CDDEC1067AB3D7
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181227.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181227.jpgsave_picture_181227.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ magnet:?xt=urn:btih:3E03C4094AA876EE70656F175081153106AEB85D
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181229.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181229.jpgsave_picture_181229.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ magnet:?xt=urn:btih:7B7E662309E642093E48F564B1397E0215FA1B5D
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181232.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181232.jpgsave_picture_181232.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ magnet:?xt=urn:btih:E9BCB0D9F3A335682AC05DA0C05CD667B86B6EAE
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181234.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181234.jpgsave_picture_181234.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ Seven / 7 Минут Упражнение v9.19.04 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181236.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181236.jpgsave_picture_181236.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ magnet:?xt=urn:btih:BE3042F4376A035271BD5779A84F4F9EE9E22A5A
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181238.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181238.jpgsave_picture_181238.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ magnet:?xt=urn:btih:AD92F9A21688C26E8E5965362CBF05EE26204DFB
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181240.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181240.jpgsave_picture_181240.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Slaughter: The Lost Outpost v1.42 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32153.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32153.jpgsave_picture_32153.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:D5D2D899F018C1DA8C32DB790E23565D007D9511
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32154.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32154.jpgsave_picture_32154.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Janosik 2 (2024) [Ru/Multi] (1.0.018) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32155.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32155.jpgsave_picture_32155.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:DD9D6ECABA211D9589F84793919C18271D65361C
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32156.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32156.jpgsave_picture_32156.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Song of Farca (2021) [Ru/Multi] (1.0.2.25) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32157.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32157.jpgsave_picture_32157.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:739A3DF0518E07672C29BE884A9826E4567B5760
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32158.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32158.jpgsave_picture_32158.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ MInstAll v.23.12.2024 By Andreyonohov (ISO) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32159.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32159.jpgsave_picture_32159.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:77FBFA85037E4254A674F218B9652B8D2CE5C051
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32160.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32160.jpgsave_picture_32160.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ Shadow Warrior Classic Redux (2013) [En] (1.1.9/dlc) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32161.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32161.jpgsave_picture_32161.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Total Commander 11.50 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32162.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32162.jpgsave_picture_32162.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ magnet:?xt=urn:btih:0529A8BA4E24336EDE047271CD7E3C3B252C40A1
 >>18
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32163.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32163.jpgsave_picture_32163.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ STAR WARS: Bounty Hunter (2024) [Ru/Multi] (1.1 patch 2) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32164.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32164.jpgsave_picture_32164.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ magnet:?xt=urn:btih:B0FB3FCD4899741C1BCCE9B8FD25A51481CCDF14
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32165.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32165.jpgsave_picture_32165.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ magnet:?xt=urn:btih:B0FB3FCD4899741C1BCCE9B8FD25A51481CCDF14
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32166.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32166.jpgsave_picture_32166.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ Airship: Kingdoms Adrift (2023) [Multi] (1.6.1.2) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32167.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32167.jpgsave_picture_32167.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ magnet:?xt=urn:btih:5E4F105C0253F9DBF9C287C150168043B1CBFDB5
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32168.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32168.jpgsave_picture_32168.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ magnet:?xt=urn:btih:FD5AF2757BAD8515B35D107E9E6589D6C8149235
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32169.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32169.jpgsave_picture_32169.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ KMSoffline 2.4.7 Portable by Ratiborus [Ru/En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32170.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32170.jpgsave_picture_32170.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Realms of Arkania: Star Trail (Remake) (2017) [Multi] (1.10) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32171.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32171.jpgsave_picture_32171.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ magnet:?xt=urn:btih:82A8776833FDF1D639B74E5604A1439CF8E685F7
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32172.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32172.jpgsave_picture_32172.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ magnet:?xt=urn:btih:82A8776833FDF1D639B74E5604A1439CF8E685F7
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32173.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32173.jpgsave_picture_32173.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ magnet:?xt=urn:btih:13CFA1E2E649C65153B6CEE38F43713DABEE12CF
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32174.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32174.jpgsave_picture_32174.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ magnet:?xt=urn:btih:90B43AD09E57E58D7978C0C3518B338260CE819B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32175.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32175.jpgsave_picture_32175.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Flint: Treasure of Oblivion (2024) [Ru/Multi] (Build 16756464) Repack seleZen
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32176.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32176.jpgsave_picture_32176.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ magnet:?xt=urn:btih:B23EBABE61956EF2A17091D2636332C8E02DB787
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32177.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32177.jpgsave_picture_32177.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ magnet:?xt=urn:btih:054BAE87FD6D38CF8AEFED499C16183D2256C8E4
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32178.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32178.jpgsave_picture_32178.jpg" />
 </div>
 
 

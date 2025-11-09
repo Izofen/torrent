@@ -6,7 +6,7 @@ VA - Музыкальный презент хорошей музыки от Ев
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241992.jpgsave_picture_241992.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:7C45C9FC9F222216556DDFC1722993379E0AC26B
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241993.jpgsave_picture_241993.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ WiFi Explorer Pro 3 v3.0.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241994.jpgsave_picture_241994.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ QR & Barcode Scanner Pro 2.5.33 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241995.jpgsave_picture_241995.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ magnet:?xt=urn:btih:7E3F63843AC7504187C3EB66A9E624A2BE11A2C1
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241996.jpgsave_picture_241996.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ Aiden Malacaria - Inferno (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metalc
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241997.jpgsave_picture_241997.jpg" />
 </div>
 
 
@@ -161,7 +161,7 @@ Unruly Child - Can't Go Home (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Melodi
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241998.jpgsave_picture_241998.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ magnet:?xt=urn:btih:7629FFE6C603CAD51D3233F760861F96AFA7C23F
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241999.jpgsave_picture_241999.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ magnet:?xt=urn:btih:4F379DD56E0D79670EABC52E7CDCD12AB412D5F7
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242000.jpgsave_picture_242000.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ Magic Battery 7.8.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242001.jpgsave_picture_242001.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ magnet:?xt=urn:btih:CBAF4CF96EA6633D8295438856ED4D1510229B65
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242002.jpgsave_picture_242002.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ magnet:?xt=urn:btih:AAAD4CCCCEC6A845E3763C1F84BC76B1974D9ED9
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242003.jpgsave_picture_242003.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ magnet:?xt=urn:btih:B1C3822FC66943775364BDAFCB9732C12A19B6B3
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242004.jpgsave_picture_242004.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ Powerwolf - Interludium (2023) 3xCD, Deluxe Edition [FLAC|Lossless|WEB-DL|tracks
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242005.jpgsave_picture_242005.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ Andrews Sisters - BD Voices (1937 - 1952) 2CD, 2006, Nocturne [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242006.jpgsave_picture_242006.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Dynazty - The Dark Delight (2020) [FLAC|Lossless|WEB-DL|tracks] <Melodic Heavy M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242007.jpgsave_picture_242007.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ One Commander Pro 3.40.0.0 Portable  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242008.jpgsave_picture_242008.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ magnet:?xt=urn:btih:365A6A232EE5FB5C19648E99C6C4765288DE3B28
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242009.jpgsave_picture_242009.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ iClip - Clipboard Recorder & ClipArt Manager 5.5.6 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242010.jpgsave_picture_242010.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Udemy, Darrin Lile | Create Captain America's Motorcycle with Blender 2.7 (2019)
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242011.jpgsave_picture_242011.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:E54B2DBA01E2D79BF4799CE905D4E045F8F8B388
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242012.jpgsave_picture_242012.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ PTE AV Studio Pro 10.0.9 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242013.jpgsave_picture_242013.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ magnet:?xt=urn:btih:09497E485D7CD80453F0F64392209320B7A592E9
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242014.jpgsave_picture_242014.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ magnet:?xt=urn:btih:7645E132A8C2F1E9BA3C6FE2FB4A3203581CC9A0
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242015.jpgsave_picture_242015.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ John Barcanic - Time Between Times (2017) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242016.jpgsave_picture_242016.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Shaman - Rescue (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive, Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242017.jpgsave_picture_242017.jpg" />
 </div>
 
 

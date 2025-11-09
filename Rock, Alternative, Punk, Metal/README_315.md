@@ -6,7 +6,7 @@ Accuser - Accuser (2020) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_183498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183498.jpgsave_picture_183498.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Athlantis - 02.02.2020 (2020) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_183537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183537.jpgsave_picture_183537.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:DF04C774B4A908385CC464E6078AD140F4AB6EB5
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183554.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183554.jpgsave_picture_183554.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ Symphorce - Become Death (2007) [APE|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_183585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183585.jpgsave_picture_183585.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ The Antichrist Imperium - Volume III: Satan in His Original Glory (2022) [FLAC|L
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183774.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183774.jpgsave_picture_183774.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ Martin Simson’s Destroyer of Death - Eternal Reign (2023) [FLAC|Lossless|WEB-D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183812.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183812.jpgsave_picture_183812.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ Red Lama - 4 Albums (2016-2022) [FLAC|Lossless|WEB-DL|tracks] <Neo-Psychodelia, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183851.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183851.jpgsave_picture_183851.jpg" />
 </div>
 
 
@@ -196,7 +196,7 @@ LP (Laura Pergolizzi) - Love Lines (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183861.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183861.jpgsave_picture_183861.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Icon Of Sin - Icon Of Sin (2021) Japanese Edition [FLAC|Lossless|image + .cue] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183870.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183870.jpgsave_picture_183870.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:854D227D50AC3EA89D212F7A0AA3C734E8D7912E
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183876.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183876.jpgsave_picture_183876.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ Airborn - 2 Studio Albums (2018-2020) Japanese Edition [FLAC|Lossless|image + .c
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183883.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183883.jpgsave_picture_183883.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Christopher Esse - Resonance Part 1-4 (2019-2022) 4CD [FLAC|Lossless|WEB-DL|trac
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183896.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183896.jpgsave_picture_183896.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Savage Soul - Suffering World (2022) [FLAC|Lossless|WEB-DL|tracks] <Modern Death
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183921.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183921.jpgsave_picture_183921.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Mind Key - MK III: Aliens In Wonderland (2019) Japanese Edition [FLAC|Lossless|i
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183926.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183926.jpgsave_picture_183926.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Code Orange - The Above (2023) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Industr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183930.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183930.jpgsave_picture_183930.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Yaoru - Эверсивность (2022) [MP3|320 Kbps] <Alternative Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183935.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183935.jpgsave_picture_183935.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ Firs - Власть (2022) [MP3|320 Kbps] <Alternative Metal>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183938.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183938.jpgsave_picture_183938.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Rising Steel - Fight Them All (2020) Japanese Edition [FLAC|Lossless|image + .cu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183942.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183942.jpgsave_picture_183942.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Blowmind - Monster (2023) [MP3|320 Kbps] <Stoner Rock, Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183943.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183943.jpgsave_picture_183943.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Innerforce - 2 Albums (2017, 2022) [Mp3|320 kbps] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183946.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183946.jpgsave_picture_183946.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Galderia - Return Of The Cosmic Men (2017) Japanese Edition [FLAC|Lossless|image
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183949.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183949.jpgsave_picture_183949.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Mashgot - Тишина... (2022) [MP3|320 Kbps] <Alternative Metal, Progressive 
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183954.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183954.jpgsave_picture_183954.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ UnderWill - The Inevitable End (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183960.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183960.jpgsave_picture_183960.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ Blonde Redhead - Sit Down for Dinner (2023) [FLAC|Lossless|WEB-DL|tracks] <Alter
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_183961.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_183961.jpgsave_picture_183961.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ Eye of Doom - The Sapient (2022) [FLAC|Lossless|WEB-DL|tracks] <Psych, Stoner, D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183963.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183963.jpgsave_picture_183963.jpg" />
 </div>
 
 
@@ -677,7 +677,7 @@ Tempel - On The Steps Of The Temple (2014) [FLAC|Lossless|tracks + .cue] <Post-M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183969.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183969.jpgsave_picture_183969.jpg" />
 </div>
 
 

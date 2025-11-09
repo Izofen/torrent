@@ -6,7 +6,7 @@ MeGUI 2944 Portable by Heisenberg [En]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18029.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18029.jpgsave_picture_18029.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:6A550C95348B6947875AC73D19F5E55D8C2C2228
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18030.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18030.jpgsave_picture_18030.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:6A550C95348B6947875AC73D19F5E55D8C2C2228
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18031.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18031.jpgsave_picture_18031.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ Gerardo Escamilla | Быстрый набросок (2025) WEBRip [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18032.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18032.jpgsave_picture_18032.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:586FAC75ADFA0B32FB92C422F57852F014A7DBDA
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18033.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18033.jpgsave_picture_18033.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:5816785D312C2589797FB4603D5B10600998657A
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18034.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18034.jpgsave_picture_18034.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:39CCF0E1A6E38F1313DD72C15002452544B63D07
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18035.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18035.jpgsave_picture_18035.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ Windows 7 SP1 7601.27729 x64 3in1 by OneSmiLe [17.05.2025] [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18036.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18036.jpgsave_picture_18036.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:67C56F570E18D2D780F49ABB971C0E0E14492A12
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18037.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18037.jpgsave_picture_18037.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ Minecraft в кино / A Minecraft Movie (2025) WEB-DL [H.265/2160p] [4K, HDR10
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18038.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18038.jpgsave_picture_18038.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:DF174AF52D2E643E2A21235116B4617C825B2859
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18039.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18039.jpgsave_picture_18039.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:DA1CB98413A0B2A83E817E180E8B423A101A047E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18040.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18040.jpgsave_picture_18040.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:AC0B1AE953BD92EEDED1C290A31CA7EA09FCCCE5
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18041.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18041.jpgsave_picture_18041.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:B5C96ECF14F07199D5B4351E26FAA5D33ECDD17D
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18042.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18042.jpgsave_picture_18042.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ magnet:?xt=urn:btih:B5C96ECF14F07199D5B4351E26FAA5D33ECDD17D
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18043.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18043.jpgsave_picture_18043.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Everspace 2 (2021) [Ru/Multi] (1.4.47960/dlc) Repack seleZen
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18044.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18044.jpgsave_picture_18044.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ magnet:?xt=urn:btih:2BCF51D9D1DD1D95CDEEBCD46B0F66F0C6FBF227
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18045.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18045.jpgsave_picture_18045.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ Manivore (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18046.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18046.jpgsave_picture_18046.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ Udemy, Rick Crisci | Beginner Introduction to Containers, Docker, and Kubernetes
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18047.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18047.jpgsave_picture_18047.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ magnet:?xt=urn:btih:118503B8C1E087BC744883036CDF104521F31355
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18048.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18048.jpgsave_picture_18048.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ magnet:?xt=urn:btih:3FC6050E5E69AE90D64ED65D944228C41298B62B
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18049.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18049.jpgsave_picture_18049.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:A2AD1089D98568244AACC22C44E41452C06A66B0
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18050.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18050.jpgsave_picture_18050.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ magnet:?xt=urn:btih:241F5260F8AA9CCAA88CBA3619795ED9F3F32D07
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18051.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18051.jpgsave_picture_18051.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ magnet:?xt=urn:btih:8E65DAA9B53A3C6954827F10069C1F26AEB56AED
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18052.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18052.jpgsave_picture_18052.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Crossout: The New Frontier (2017) [Ru/Multi] (2.26.10.311879) License (обно�
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18053.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18053.jpgsave_picture_18053.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Enlisted: Jet Power (2020) [Ru/Multi] (0.6.8.64) License (обновляемая
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18054.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18054.jpgsave_picture_18054.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Stephan Georg - Blood Of The Witches (2024) [MP3|320 Kbps] <Hard & Heavy>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103567.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103567.jpgsave_picture_103567.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:B9AE7B327E8A81D20A0F36EBA1EA44DED45E57C5
 >>Религия (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103568.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103568.jpgsave_picture_103568.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Photo Lab PRO v3.13.32 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103569.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103569.jpgsave_picture_103569.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ SnapEdit - AI photo editor v7.1.3 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103570.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103570.jpgsave_picture_103570.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:32C7F63A2685DD771DF4A31ADB5723D31A4FAE57
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103571.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103571.jpgsave_picture_103571.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:DB611CEE8BB1D550E8B855B6F26C75AFD40F1A48
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103572.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103572.jpgsave_picture_103572.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ Veonity - The Final Element (2024) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103573.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103573.jpgsave_picture_103573.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ Health - Rat Wars (2023) Ultra Edition, 2024,  Loma Vista Recordings [FLAC 24/48
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103574.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103574.jpgsave_picture_103574.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ magnet:?xt=urn:btih:E66E1244A287496371E818C3B5F3F06C7D5B2D8A
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103575.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103575.jpgsave_picture_103575.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ Widespread Panic - Warfield 2000 #4 (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103576.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103576.jpgsave_picture_103576.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ DGM - Endless (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive Metal>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103577.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103577.jpgsave_picture_103577.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ Erskine Hawkins - 1941 - 1945 (1996) Classics [FLAC|Lossless|tracks + .cue] <Swi
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103578.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103578.jpgsave_picture_103578.jpg" />
 </div>
 
 
@@ -315,7 +315,7 @@ magnet:?xt=urn:btih:7B4AF070D25D104057F77F2897B5504A50E8874A
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103579.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103579.jpgsave_picture_103579.jpg" />
 </div>
 
 
@@ -340,7 +340,7 @@ u-he - ColourCopy 1.0.2 VST, VST 3, AAX (x86/x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103580.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103580.jpgsave_picture_103580.jpg" />
 </div>
 
 
@@ -364,7 +364,7 @@ magnet:?xt=urn:btih:49329C1F8FC7898C2417D3A124D12F2FDA03BE87
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103581.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103581.jpgsave_picture_103581.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ DGM - Endless (2024) [MP3|320 Kbps] <Progressive Metal, Heavy Prog>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103582.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103582.jpgsave_picture_103582.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ magnet:?xt=urn:btih:76A39474B655A9229475F8D42B0B55946DC66DEE
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103583.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103583.jpgsave_picture_103583.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ magnet:?xt=urn:btih:F764C501B00E02F7696E162020127B1F5E1F05CC
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103584.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103584.jpgsave_picture_103584.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Aries Descendant - From The Ashes Of Deceit (2024) [FLAC|Lossless|WEB-DL|tracks]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103585.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103585.jpgsave_picture_103585.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ magnet:?xt=urn:btih:8F9A0FD06F5673ACF644D851E5B3EB5F67E0DE67
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103586.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103586.jpgsave_picture_103586.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ magnet:?xt=urn:btih:A67FFA86E5FAEBBF97407B04225220E36D353FA8
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103587.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103587.jpgsave_picture_103587.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:3020007AFC53F718F10F687C0680AB9C9F1104E0
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103588.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103588.jpgsave_picture_103588.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Fate - Reconnect N' Ignite (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103589.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103589.jpgsave_picture_103589.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ magnet:?xt=urn:btih:F1AD0324F733B85E744E7551D1A1FE7A49E51055
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103590.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103590.jpgsave_picture_103590.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ magnet:?xt=urn:btih:63A5CA9B74406789A0AE2A9B53A46F0CF5E23212
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103591.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103591.jpgsave_picture_103591.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Agoria - Unshadow (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Deep 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103592.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103592.jpgsave_picture_103592.jpg" />
 </div>
 
 

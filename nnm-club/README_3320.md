@@ -6,7 +6,7 @@ Files Inspector Pro 4.10 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106681.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106681.jpgsave_picture_106681.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:986D2BD564856A0189149DEBFFFFF9DEA06AA6C7
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106682.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106682.jpgsave_picture_106682.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ VA - Playlist for a Picturesque Retreat That Will Rejuvenate Your Mind, Body, An
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106683.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106683.jpgsave_picture_106683.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ VA - Black Hole House Music 07-24 (2024) [MP3|320 Kbps] <House, Progressive Hous
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106684.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106684.jpgsave_picture_106684.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ VA - Lounge Playlist for a Picturesque Retreat to Rejuvenate Your Body and Soul 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106685.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106685.jpgsave_picture_106685.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ magnet:?xt=urn:btih:527B04A1E130EC080153242C114DC7EC3D25D41F
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106686.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106686.jpgsave_picture_106686.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ Photo Supreme 2024.2.1.6568 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106687.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106687.jpgsave_picture_106687.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:471D8F0E0B5CF48D697E1A0A8677CA3762E43D5A
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106688.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106688.jpgsave_picture_106688.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ Palace - Reckless Heart (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <AOR/Melodi
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106689.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106689.jpgsave_picture_106689.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ The Angels - Ninety Nine (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106690.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106690.jpgsave_picture_106690.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ Mr. Big - Ten (2024) with bonus track [FLAC 24/96|Lossless|WEB-DL|tracks] <Hard 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106691.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106691.jpgsave_picture_106691.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ Miles Davis - Miles In Tokyo (1964) 2005, Columbia [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106692.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106692.jpgsave_picture_106692.jpg" />
 </div>
 
 
@@ -315,7 +315,7 @@ VA - Funky Summer (2024) [FLAC|Lossless|WEB-DL|tracks] <Funky Jazz, Dance>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106693.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106693.jpgsave_picture_106693.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ VA - Jazz House Grooves Volume 2 (The Finest Jazzy Soulful Chill House Selection
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106694.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106694.jpgsave_picture_106694.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ Spektra - Hypnotized (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106695.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106695.jpgsave_picture_106695.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Spektra - Hypnotized (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106696.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106696.jpgsave_picture_106696.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Legions Of The Night - Darkness (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106697.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106697.jpgsave_picture_106697.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ magnet:?xt=urn:btih:35135612D29F8590CA474E3823BC1E992936FF57
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106698.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106698.jpgsave_picture_106698.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Voice - Holy Or Damned (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Power Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106699.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106699.jpgsave_picture_106699.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ magnet:?xt=urn:btih:C81660AA5B63EEFCAB85496A8CDE4400D54375FD
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106700.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106700.jpgsave_picture_106700.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ John Hiatt - Stolen Moments (1990) [FLAC 2.0|48/24|image +.cue|MC-Rip] <Country 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106701.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106701.jpgsave_picture_106701.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ magnet:?xt=urn:btih:590B37716A3D6A4F0CAC70B6A1B75434EAD2979D
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106702.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106702.jpgsave_picture_106702.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ magnet:?xt=urn:btih:F443BFDAE61601789F65316336D41990656FDF85
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106703.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106703.jpgsave_picture_106703.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Vincent Ingala - Escape With Me (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106704.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106704.jpgsave_picture_106704.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Amorphis - Tales From The Thousand Lakes (Live At Tavastia) (2024) Live [FLAC 24
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106705.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106705.jpgsave_picture_106705.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Axxis - Coming Home (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Heavy, Power M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106706.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106706.jpgsave_picture_106706.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109827.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109827.jpgsave_picture_109827.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ DesktopSnowOK 6.26 Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109828.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109828.jpgsave_picture_109828.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:20973901C9E7CABD76D994F109E1247DF0AC2AB8
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109829.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109829.jpgsave_picture_109829.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ Foxit PDF Editor Pro 13.1.0.22420 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109830.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109830.jpgsave_picture_109830.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ Pizza Possum (2023) [Ru/Multi] (1.4.16) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109831.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109831.jpgsave_picture_109831.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:B4FAF24044532275713B98CA6CFA5001BE3B6E8E
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109832.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109832.jpgsave_picture_109832.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:28A47946E303A04A04ED849312C71011EB056C3A
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109833.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109833.jpgsave_picture_109833.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ VA - Hippie vibes Make Love... (2024) [MP3|320 Kbps] <Pop, Rock, Blues>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109834.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109834.jpgsave_picture_109834.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ magnet:?xt=urn:btih:B3EAAEFBC64B40A564930CFE6D43001471D9FEE6
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109835.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109835.jpgsave_picture_109835.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ Dark Gathering | Тёмное собрание [2023, TV, 25 эп.] BDRip 1080p 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109836.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109836.jpgsave_picture_109836.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:81370B6BCFBC6915586E9D6455F517856F62F200
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109837.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109837.jpgsave_picture_109837.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ Emma Shapplin - 8 Albums (1997-2022) [FLAC|Lossless|WEB-DL|tracks] <Modern Class
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109838.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109838.jpgsave_picture_109838.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ magnet:?xt=urn:btih:2C11115D3F116DF4117383CCF78297BBE47CCBE4
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109839.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109839.jpgsave_picture_109839.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ magnet:?xt=urn:btih:8A67987680452980CB6F6DCF725D25EB0D465786
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109840.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109840.jpgsave_picture_109840.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Notepad++ 8.6.6 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109841.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109841.jpgsave_picture_109841.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Hank Marvin - Compilation (2024) [MP3|320 Kbps] <Instrumental Guitar>
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109842.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109842.jpgsave_picture_109842.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ magnet:?xt=urn:btih:5CDBD03D6521BE03C39612F494E916EC73B68E21
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109843.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109843.jpgsave_picture_109843.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Isekai Nonbiri Nouka | Farming Life in Another World | Фермерская жи
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109844.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109844.jpgsave_picture_109844.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ PotPlayer 240509 (1.7.22224) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109845.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109845.jpgsave_picture_109845.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Spotify 1.2.36.955 (Repack & Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109846.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109846.jpgsave_picture_109846.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ magnet:?xt=urn:btih:B3AE5AA49E59EABF25EE8DDC33AB6002E435A82E
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109847.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109847.jpgsave_picture_109847.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ magnet:?xt=urn:btih:1CA2F051370BE2A6D81020CEA1F149DCC68B93E4
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109848.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109848.jpgsave_picture_109848.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ magnet:?xt=urn:btih:F62A90AA4EF2C07928D558A8581CE0D353FD9D18
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109849.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109849.jpgsave_picture_109849.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ VA - Music News vol.374 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109850.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109850.jpgsave_picture_109850.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ magnet:?xt=urn:btih:614642DBF168825236991978C3D813E1192A7AED
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109851.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109851.jpgsave_picture_109851.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ magnet:?xt=urn:btih:1F7F3C7F5D85B6BE944519A5D737E7B68903DAC9
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109852.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109852.jpgsave_picture_109852.jpg" />
 </div>
 
 

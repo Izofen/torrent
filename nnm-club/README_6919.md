@@ -6,7 +6,7 @@
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237692.jpgsave_picture_237692.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:1EB1D96203297EB7B30862B56D22B9D62AF941FD
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237693.jpgsave_picture_237693.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Aiseesoft Mac Video Enhancer for Mac 9.2.30 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237694.jpgsave_picture_237694.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ Be Focused Pro - Focus Timer 2.3.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237695.jpgsave_picture_237695.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ Color Wheel 7.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237696.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237696.jpgsave_picture_237696.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ Free Hex Editor Neo 7.31.00.8528 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237697.jpgsave_picture_237697.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ VA - EDM Banger Tools (2021) [MP3|320 Kbps] <Techno, House, Electro, EDM>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237698.jpgsave_picture_237698.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ magnet:?xt=urn:btih:80372D0DEFE08E36532D0C5E34DB647641BDA886
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237699.jpgsave_picture_237699.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ magnet:?xt=urn:btih:2267EACBA218D0FA69A81C6A8360B9B0D805D547
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237700.jpgsave_picture_237700.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ Random - Reloaded (2010) [FLAC|Lossless|image + .cue] <Heavy Metal, Hard Rock>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237701.jpgsave_picture_237701.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ VA - Flora Lounge Tunes by Smooth Deluxe, Vol. 1 (2021) [AAC|~318 Kbps] <Chill O
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237702.jpgsave_picture_237702.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ Texas Scratch - TEXAS SCRATCH (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237703.jpgsave_picture_237703.jpg" />
 </div>
 
 
@@ -314,7 +314,7 @@ magnet:?xt=urn:btih:C0EFDEA2F1001A6FEC329B2A9600B5926235A17F
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237704.jpgsave_picture_237704.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ Reader for Mac 4.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237705.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237705.jpgsave_picture_237705.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ eMail Address Extractor 3.5.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237706.jpgsave_picture_237706.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ Poets of the Fall - Дискография (12 releases) (2005 - 2022) hand made
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237707.jpgsave_picture_237707.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ magnet:?xt=urn:btih:83A0D503523CFEB6F1CB88310E877900D4AECB00
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237708.jpgsave_picture_237708.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Courtney Pine - Spirituality (2022) Destin-E [FLAC|Lossless|tracks + .cue] <Post
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237709.jpgsave_picture_237709.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ magnet:?xt=urn:btih:BE22268473968A6A3539CD9B9F4AD4C95CECA6EC
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237710.jpgsave_picture_237710.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ magnet:?xt=urn:btih:4CE3DE1E382D0CA227063A12F57AD8ED20E111DD
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237711.jpgsave_picture_237711.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ magnet:?xt=urn:btih:B3FCA23A471085B071ADB6354CBF118DD9C52D83
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237712.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237712.jpgsave_picture_237712.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Picture Colorizer 2.0.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237713.jpgsave_picture_237713.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ magnet:?xt=urn:btih:6623EE9511A713890098E379E31F2D9C2B1078F3
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237714.jpgsave_picture_237714.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Deep Purple - Live Archive 1972 Vol. 1 (1972) 7CD  [MP3|320 Kbps] <Rock, Hard Ro
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237715.jpgsave_picture_237715.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Melody Angel - Indie Blues Girl (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237716.jpgsave_picture_237716.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Aiseesoft FoneEraser 1.0.12 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237717.jpgsave_picture_237717.jpg" />
 </div>
 
 

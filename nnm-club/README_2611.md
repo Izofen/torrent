@@ -6,7 +6,7 @@ Frozen Land - Out Of The Dark (2023) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68636.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68636.jpgsave_picture_68636.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:FEBAE8ABF745D22A6997F1F16189448D8D3E09DA
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68637.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68637.jpgsave_picture_68637.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Bad Valentine - I Am A Mess (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alt.Rock
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68638.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68638.jpgsave_picture_68638.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Black & Damned - Resurrection (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Heavy,
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68639.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68639.jpgsave_picture_68639.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ The Crown - Crown of Thorns (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Thrash M
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68640.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68640.jpgsave_picture_68640.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Hermano - When The Moon Was High (2024) [FLAC|Lossless|WEB-DL|tracks] <Stoner Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68641.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68641.jpgsave_picture_68641.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Forlorn - Aether (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Progressive Metal, 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68642.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68642.jpgsave_picture_68642.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ magnet:?xt=urn:btih:B76B856488190A072CA21213B8F1D5029C33D0C6
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68643.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68643.jpgsave_picture_68643.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Dabro - Дальше - больше (2025) [MP3|320 Kbps] <Pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68644.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68644.jpgsave_picture_68644.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Metallica - Load (1996) Released, 2001, Vertigo [FLAC|24/192|tracks|Vinyl-Rip] <
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68645.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68645.jpgsave_picture_68645.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ magnet:?xt=urn:btih:4A3901D96D44B5F27A793A0853381638E7C3E6F3
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68646.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68646.jpgsave_picture_68646.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ StaxRip 2.46.1 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68647.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68647.jpgsave_picture_68647.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ magnet:?xt=urn:btih:7ED35A9081DF7524E6174F501113F114C04FCE82
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68648.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68648.jpgsave_picture_68648.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Kalya Scintilla - Tales from the Path, Pt. 1 (2025) [FLAC 24/96|Lossless|WEB-DL|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68649.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68649.jpgsave_picture_68649.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ magnet:?xt=urn:btih:558DFD2137A73565C03F15629CC2542D5A3EB463
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68650.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68650.jpgsave_picture_68650.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ VA - Armin van Buuren - A State Of Trance 1218 (2025) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68651.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68651.jpgsave_picture_68651.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Lese - Sweep (Infinity Filter) 1.3.5 VST 3 (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68652.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68652.jpgsave_picture_68652.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Firefox Browser ESR 128.8.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68653.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68653.jpgsave_picture_68653.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ magnet:?xt=urn:btih:AB1DF3B663023E409A66B51550F4ABA49C955CB1
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68654.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68654.jpgsave_picture_68654.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ magnet:?xt=urn:btih:A7B02085B4DF752365802A437C5BA532CCAB084C
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68655.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68655.jpgsave_picture_68655.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Yelena Eckemoff - Scenes From the Dark Ages (2025) [FLAC 24/96|Lossless|WEB-DL|t
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68656.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68656.jpgsave_picture_68656.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Desire - Games People Play (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Synthpo
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68657.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68657.jpgsave_picture_68657.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Firefox Browser ESR 128.8.1 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68658.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68658.jpgsave_picture_68658.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ VA - I Love ZYX Italo Disco Collection 9 (2009) 3 CD [OGG Vorbis|480 Kbps] <Elec
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68659.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68659.jpgsave_picture_68659.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Firefox Browser 136.0.4 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68660.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68660.jpgsave_picture_68660.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ VA - I Love ZYX Italo Disco Collection 11 (2011) 3 CD [OGG Vorbis|480 Kbps] <Ele
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68661.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68661.jpgsave_picture_68661.jpg" />
 </div>
 
 

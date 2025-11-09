@@ -6,7 +6,7 @@
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190238.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190238.jpgsave_picture_190238.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Transcend SSD Scope 4.11 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190244.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190244.jpgsave_picture_190244.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:EB6AF0FAB27F87EAC56CD40213EC61CA6F475657
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190245.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190245.jpgsave_picture_190245.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Skype 8.90.0.407 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190246.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190246.jpgsave_picture_190246.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:764C27B10C0CA25AEC52E78830CFC3792847D34E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190247.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190247.jpgsave_picture_190247.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:A91D06EDC7D6744D287FD3C2D659623D70385256
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190251.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190251.jpgsave_picture_190251.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:5398756B2052C34AD679D7B23A5E39BBA1818B8A
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190252.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190252.jpgsave_picture_190252.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Windows 10 Manager 3.7.2 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190254.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190254.jpgsave_picture_190254.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:E3909BD36D051DFF98F44BB3FE01DE888A9BFBEF
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190260.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190260.jpgsave_picture_190260.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ magnet:?xt=urn:btih:22C8BE54F71E646714D5AA2A52B09955AC33FFB1
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190268.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190268.jpgsave_picture_190268.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Genghis Khan - Greatest Hits (1980) Japanese Edition, Compilation, Reissue, 1992
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190270.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190270.jpgsave_picture_190270.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:EECFDD5F4F096F55E4B93B66CC7DE3E93708789C
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190271.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190271.jpgsave_picture_190271.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Adobe After Effects 2023 v.23.6.0 U2B [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190272.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190272.jpgsave_picture_190272.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ magnet:?xt=urn:btih:2FC05193D594CDC059AF1AF0FBEB72E5A3196687
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190275.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190275.jpgsave_picture_190275.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ magnet:?xt=urn:btih:1F4FDD234778AD98CECDECA358D40F73C0EABE35
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190276.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190276.jpgsave_picture_190276.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ magnet:?xt=urn:btih:5CA68AB5888192FA185DE0CBA0F2B5DA8E5D4B67
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190278.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190278.jpgsave_picture_190278.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ magnet:?xt=urn:btih:5CA68AB5888192FA185DE0CBA0F2B5DA8E5D4B67
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190279.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190279.jpgsave_picture_190279.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ magnet:?xt=urn:btih:6340DA99BCC5F4BBA0540D793B5EC2C0CD5C164A
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190280.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190280.jpgsave_picture_190280.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ magnet:?xt=urn:btih:6340DA99BCC5F4BBA0540D793B5EC2C0CD5C164A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190281.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190281.jpgsave_picture_190281.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ The Laser Cowboys - Radioactivity (1986) Remastered, Unofficial Release, 2018, V
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190282.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190282.jpgsave_picture_190282.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ magnet:?xt=urn:btih:9AC3F93B9F2FC7818E92D82C7ADF7C0396F27E4B
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190285.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190285.jpgsave_picture_190285.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ Laravelcreative.ru | Социальная сеть SPA Laravel 9 vue 3 Tailwind 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190288.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190288.jpgsave_picture_190288.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ Mirillis Action! 4.30.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190290.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190290.jpgsave_picture_190290.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ magnet:?xt=urn:btih:112A74EC8816C2901B8B210D3489A277C789A4DC
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190291.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190291.jpgsave_picture_190291.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Techivation Full Bundle 07.11.2022 VST, VST 3 (x64) RePack by MOCHA [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190294.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190294.jpgsave_picture_190294.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ David Gonzalez | PostgreSQL for Jobseekers (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190295.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190295.jpgsave_picture_190295.jpg" />
 </div>
 
 

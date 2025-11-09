@@ -6,7 +6,7 @@
 >>Свадебные и романтические (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157994.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157994.jpgsave_picture_157994.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Rave The Reqviem - Discography 16 Releases (2013-2020) [MP3|320 Kbps] <Industria
 >>Industrial, EBM, Dark Electro
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157995.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157995.jpgsave_picture_157995.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ magnet:?xt=urn:btih:C92E2CF481115BF209B27F5E513CE3512CEDA9DB
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157997.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157997.jpgsave_picture_157997.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:49B370AD1D413001DB82CF508813152BC985C4CF
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157998.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157998.jpgsave_picture_157998.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ HeavenTools Resource Tuner 2.04 [Multi/Ru]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157999.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157999.jpgsave_picture_157999.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ MAGIX Video Pro X9 15.0.5.211 (x64) + Content [Ru/En]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158000.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158000.jpgsave_picture_158000.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ VA - Трибьют Сектор Газа (2020) [FLAC|Lossless|WEB-DL|tracks] <
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158001.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158001.jpgsave_picture_158001.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ Christmas Stories 4: Puss in Boots / Рождественские истории
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158002.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158002.jpgsave_picture_158002.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ magnet:?xt=urn:btih:AFF46F84CD69C40E88811689054F21E6CC8A5702
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158003.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158003.jpgsave_picture_158003.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ Shadow Warrior 2 (2016) [Ru/Multi] (1.1.13/dlc) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158004.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158004.jpgsave_picture_158004.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ magnet:?xt=urn:btih:07F97E61F591A08D7A38B11585725BE396540FDA
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158005.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158005.jpgsave_picture_158005.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ NG. Великолепные лошади / The Noble Horse (1999) DVDRip
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158006.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158006.jpgsave_picture_158006.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ BBC: Чудеса Солнечной системы / Wonders of the Solar Syste
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158008.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158008.jpgsave_picture_158008.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:D19513FBB466C3E2B096FAF8DD5BDCAF8D3883E2
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158009.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158009.jpgsave_picture_158009.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ magnet:?xt=urn:btih:BA2EAD1BCE1628CD4688B68B1FC40C7587BBCB69
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158010.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158010.jpgsave_picture_158010.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ BBC. Horizon: Богу конец? Гид от Horizon по науке и рел
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158011.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158011.jpgsave_picture_158011.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Dr.Web Security Space 11.0.5.12190 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158012.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158012.jpgsave_picture_158012.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ magnet:?xt=urn:btih:2F830BA77453CF1F72EA3BB0EDB24436B0282F90
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158013.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158013.jpgsave_picture_158013.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ magnet:?xt=urn:btih:EF40675EA4180BB37D64F2D31E60424C72D91848
 >>Свадебные и романтические (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158015.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158015.jpgsave_picture_158015.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Inuyashiki | Inuyashiki Last Hero | Инуяшики [2017, TV, 11 эп.] WEB-DL
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158016.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158016.jpgsave_picture_158016.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ magnet:?xt=urn:btih:225F27A0A1E103406CECFFD24BB53ABAEDFBB6E7
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158017.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158017.jpgsave_picture_158017.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ Little Big - Funeral Rave (2015) [MP3|320 кб/с] <Dance, Electronic>
 >>Eurodance, Euro-House, Technopop
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158019.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158019.jpgsave_picture_158019.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ magnet:?xt=urn:btih:A612B4FF309BF68189EE31EAD5A923731ACBFA07
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158020.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158020.jpgsave_picture_158020.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ magnet:?xt=urn:btih:1B2B5B86DE5E1C34DF4001C2E1B5CB80E3F8F02D
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158022.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158022.jpgsave_picture_158022.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Deep Purple - Machine Head (1972) /1987, Warner Bros. Records/ [FLAC|Lossless]<H
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158023.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158023.jpgsave_picture_158023.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ magnet:?xt=urn:btih:EECFB95CE6751C370E791B9AE9040FA2BC6991AB
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158024.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158024.jpgsave_picture_158024.jpg" />
 </div>
 
 

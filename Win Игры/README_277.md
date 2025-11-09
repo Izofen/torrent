@@ -6,7 +6,7 @@ Tahira: Echoes of the Astral Empire (2016) [En] (1.1.00) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202820.jpgsave_picture_202820.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Dwarven Skykeep (2022) [Ru/Multi] (50015) License GOG
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202833.jpgsave_picture_202833.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Skul: The Hero Slayer (2021) [Ru/Multi] (1.7.2) Repack ElAmigos
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202840.jpgsave_picture_202840.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Monster Hunter Rise: Sunbreak (2022) [Ru/Multi] (13.0.0.1/dlc) Repack DjDI [Delu
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203058.jpgsave_picture_203058.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ The House of Da Vinci 3 (2022) [Ru/Multi] (1.0.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203090.jpgsave_picture_203090.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Lust Academy Season 1 (2022) [Multi] (0.7.1f.002) License GOG [18+]
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203196.jpgsave_picture_203196.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Solstice (2021) [En] (1.0.1) Repack dark_elf2
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203221.jpgsave_picture_203221.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ City Legends 3: Ghost of Misty Hill / Городские легенды 3: Пр�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203249.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203249.jpgsave_picture_203249.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Automobilista 2 (2020) [Multi] (1.4.5.2.2247/dlc) License FLT [VR]
 >>Racing
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203250.jpgsave_picture_203250.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Bus Simulator 21 (2021) [Ru/Multi] (1.0) License CODEX
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203305.jpgsave_picture_203305.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ World Championship Boxing Manager 2 (2023) [Multi] (0.12.6.0) License GOG
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203676.jpgsave_picture_203676.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Clone Drone in the Danger Zone (2021) [Ru/Multi] (1.1.0.56) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203785.jpgsave_picture_203785.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ PixARK (2019) [Ru/Multi] (1.151/dlc) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203797.jpgsave_picture_203797.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Antivine (2022) [Multi] (1.0) License DARKSiDERS
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203872.jpgsave_picture_203872.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ There Is No Light (2022) [Ru/Multi] (1.1.7.1 ) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203989.jpgsave_picture_203989.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Criminal Expert (2023) [Multi] (1.4) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204000.jpgsave_picture_204000.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Prison Princess (2020) [Multi] (1.1) License GOG [18+]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204048.jpgsave_picture_204048.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Unforeseen Incidents (2018) [Ru/Multi] (1.0.9.1) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204094.jpgsave_picture_204094.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ FixFox (2022) [En] (402_c39e385a) License GOG
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204362.jpgsave_picture_204362.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Broken Pieces (2022) [Ru/Multi] (1.21) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204382.jpgsave_picture_204382.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ The friends of Ringo Ishikawa (2018) [Ru/Multi] (1.0.1) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204407.jpgsave_picture_204407.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Skater XL - The Ultimate Skateboarding Game (2020) [En] (1.2.2.5) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204412.jpgsave_picture_204412.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Din's Legacy (2019) [En] (1.013) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204425.jpgsave_picture_204425.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ B.I.O.T.A. (2022) [Ru/Multi] (59744/dlc) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204662.jpgsave_picture_204662.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Lost in Play (2022) [Ru/Multi] (1.0.45) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204761.jpgsave_picture_204761.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Autobahn Police Simulator 3 (2022) [Ru/Multi] (1.0.0) License FairLight
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204771.jpgsave_picture_204771.jpg" />
 </div>
 
 

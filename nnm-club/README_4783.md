@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149674.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149674.jpgsave_picture_149674.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Sadao Watanabe with The Great Jazz Trio - I'm Old Fashioned (1976) Remaster, 201
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149675.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149675.jpgsave_picture_149675.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Sadao Watanabe with The Great Jazz Trio - I'm Old Fashioned (1976) Remaster, 201
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149676.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149676.jpgsave_picture_149676.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Sonny Fortune - With Sound Reason (1970) Remaster, 2014, Warner[FLAC|tracks+.cue
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149677.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149677.jpgsave_picture_149677.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Sonny Fortune - With Sound Reason (1970) Remaster, 2014, Warner[FLAC|tracks+.cue
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149678.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149678.jpgsave_picture_149678.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Opeth - My Arms, Your Hearse (1998) Reissue, 2016, Candlelight Records [FLAC|24/
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149679.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149679.jpgsave_picture_149679.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ A4. Madrigal (01:27)(   Читать дальше...   )Жанр: Progressive De
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149680.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149680.jpgsave_picture_149680.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ A4. Madrigal (01:27)(   Читать дальше...   )Жанр: Progressive De
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149681.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149681.jpgsave_picture_149681.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ A4. Madrigal (01:27)(   Читать дальше...   )Жанр: Progressive De
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149682.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149682.jpgsave_picture_149682.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ Masabumi Kikuchi - In Concert (1970) Remaster, 2015, Universal[FLAC|tracks+.cue]
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149683.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149683.jpgsave_picture_149683.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ Volbeat - Let's Boogie Live From Telia Parken (2018) BDRip [H.264/720p]
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149684.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149684.jpgsave_picture_149684.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ VA - Driven By - Power Ballads (2018) 5CD [MP3|320 Kbps] <Folk, Country, Synthpo
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149686.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149686.jpgsave_picture_149686.jpg" />
 </div>
 
 
@@ -314,7 +314,7 @@ CD 01:
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149687.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149687.jpgsave_picture_149687.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ CD 01:
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149688.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149688.jpgsave_picture_149688.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ VA - Christmas Box (2018) [MP3|320 Kbps] <Psy-Trance, Progressive Psytrance>
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149690.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149690.jpgsave_picture_149690.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ VA - All Stars Disco Christmas 2001 (2000) [FLAC|Lossless|image + .cue] <Pop, Ch
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149691.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149691.jpgsave_picture_149691.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ VA - All Stars Disco Christmas 2001 (2000) [FLAC|Lossless|image + .cue] <Pop, Ch
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149692.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149692.jpgsave_picture_149692.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Microsoft® Windows® 11 Professional VL x64 23H2 RU by OVGorskiy 11.2023
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149694.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149694.jpgsave_picture_149694.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Microsoft Office LTSC 2021 Professional Plus / Standard + Visio + Project 16.0.1
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149696.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149696.jpgsave_picture_149696.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ She & Him - Christmas Party (2016) [AAC|256 Kbps]<Christmas, Indie Pop, Folk Pop
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149697.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149697.jpgsave_picture_149697.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Skydive Adventure by Juanpa Zurita v1.0.19 [Ru]
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149699.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149699.jpgsave_picture_149699.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Fallout 4 (2015) [Ru] (1.2.37.0) Repack xatab
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149700.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149700.jpgsave_picture_149700.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Fallout 4 - это продолжение знаменитой постапок�
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149701.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149701.jpgsave_picture_149701.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Fallout 4 - это продолжение знаменитой постапок�
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149702.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149702.jpgsave_picture_149702.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Fallout 4 - это продолжение знаменитой постапок�
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149703.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149703.jpgsave_picture_149703.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Microsoft Office Standard / ProPlus + Visio + Project 2016-2021 (16.0.16924.2015
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149706.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149706.jpgsave_picture_149706.jpg" />
 </div>
 
 

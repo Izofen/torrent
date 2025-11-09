@@ -6,7 +6,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247947.jpgsave_picture_247947.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:F693D85C9C42E62228721F5E7402C0EA8148E948
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247953.jpgsave_picture_247953.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:1A29761D3E0DC3BEEF06C0E916AA36A911298E5D
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247954.jpgsave_picture_247954.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:2DD1F55B5BF430268BDF4793F12D8D35D19D2BFC
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247956.jpgsave_picture_247956.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ VA - Двигай Попой 50\50 (2012) [MP3|256 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247961.jpgsave_picture_247961.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ magnet:?xt=urn:btih:7C7C90C820D5210FD1AF1D24AE4052A4B4120D2A
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247966.jpgsave_picture_247966.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ magnet:?xt=urn:btih:F08B96DECE242CC77CE0A0E088BC881B1672E68E
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247967.jpgsave_picture_247967.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ magnet:?xt=urn:btih:1793E74E19EEA4B6014E83738885A9B3A9B77359
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247972.jpgsave_picture_247972.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ magnet:?xt=urn:btih:5CE20B8C26128A0EFF6ACC0D878D9DE917A4D925
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247974.jpgsave_picture_247974.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ magnet:?xt=urn:btih:49E331CE7B0DEDFC27430D58D36AE228AB93B35F
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247975.jpgsave_picture_247975.jpg" />
 </div>
 
 
@@ -262,7 +262,7 @@ magnet:?xt=urn:btih:CFDBB76E1444EAB30D628E516C403605EB12A299
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247978.jpgsave_picture_247978.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ Archon Satani - 8 albums (1991-2002) [mp3|192-320 kbps] <Dark Ambient, Ritual Am
 >>Experimental Electronic
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247980.jpgsave_picture_247980.jpg" />
 </div>
 
 
@@ -317,7 +317,7 @@ magnet:?xt=urn:btih:5404944CA2639E72AAFDFE24E23CFA468293950D
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247982.jpgsave_picture_247982.jpg" />
 </div>
 
 
@@ -341,7 +341,7 @@ magnet:?xt=urn:btih:E092C7B3F2F46EFAA16C6151256E89EFBDD74860
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247987.jpgsave_picture_247987.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ Atlantic Journey: The Lost Brother / Атлантическое путешест
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247989.jpgsave_picture_247989.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ magnet:?xt=urn:btih:85BB1423935D2BE0B1167DCE244AE093D599740F
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247990.jpgsave_picture_247990.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ magnet:?xt=urn:btih:BA1301EE1FBAA8C7A3ACDD1A9B630E2E6ACAAB78
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247991.jpgsave_picture_247991.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ magnet:?xt=urn:btih:983F967ED9634F0EB94C66FB1214AE613AD28066
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247993.jpgsave_picture_247993.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ magnet:?xt=urn:btih:440D14DC5E0DFEC74D03D02FF286B3DDB77F9470
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247997.jpgsave_picture_247997.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ magnet:?xt=urn:btih:F3F7DBD340D0EED31BBC9F37941C066F5BBC4894
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247999.jpgsave_picture_247999.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ magnet:?xt=urn:btih:77DFFE91F25AC96CFC45938B0CFD516ADA8F8ED0
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248002.jpgsave_picture_248002.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ magnet:?xt=urn:btih:B6EC8C5DB12FCE006EE81496CD0E7C404037B52B
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248005.jpgsave_picture_248005.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ magnet:?xt=urn:btih:57B173DAC0A59049F37E9EFC53B045B77906D829
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248009.jpgsave_picture_248009.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ magnet:?xt=urn:btih:FA9CC811539C7CCADF0DFDB9E8DE63481503F152
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248011.jpgsave_picture_248011.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ magnet:?xt=urn:btih:76002604DE0DE5910FF05437E998209212A7DF4F
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248012.jpgsave_picture_248012.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ magnet:?xt=urn:btih:1FAFEC38DA22E75E6DA61C31F0B9E44F513453A7
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248014.jpgsave_picture_248014.jpg" />
 </div>
 
 

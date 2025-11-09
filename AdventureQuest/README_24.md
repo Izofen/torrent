@@ -6,7 +6,7 @@ Beyond The Edge Of Owlsgard (2022) [Multi] (1.2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36009.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36009.jpgsave_picture_36009.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Rauniot (2024) [Ru/Multi] (1.0.0.2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36013.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36013.jpgsave_picture_36013.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ El Hijo - A Wild West Tale (2020) [Ru/Multi] (1.03) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36059.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36059.jpgsave_picture_36059.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Slay the Princess (2023) [Ru/Multi] (1.0z) License GOG [The Pristine Cut]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36073.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36073.jpgsave_picture_36073.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ The Strange City (2024) [Multi] (1.0) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36082.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36082.jpgsave_picture_36082.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Beyond Hanwell (2024) [En] (1.1) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36126.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36126.jpgsave_picture_36126.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Sam & Max: Beyond Time and Space (2021) [Multi] (2.0.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36180.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36180.jpgsave_picture_36180.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Beyond: Two Souls (2019) [Ru/Multi] (Build 5117920) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36209.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36209.jpgsave_picture_36209.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Heavy Rain (2019) [Ru/Multi] (Build 5236766) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36212.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36212.jpgsave_picture_36212.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ The Journey of AutUmn (2024) [Multi] (1.12) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36224.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36224.jpgsave_picture_36224.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Detroit: Become Human (2019) [Ru/Multi] (Build 12158144) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36227.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36227.jpgsave_picture_36227.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Sam & Max: Save the World (2020) [Ru/Multi] (2.0.0) License GOG [Remastered]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36230.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36230.jpgsave_picture_36230.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ A Quiet Place: The Road Ahead (2024) [Ru/Multi] (1.1.0/dlc) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36374.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36374.jpgsave_picture_36374.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Once Alive (2024) [Ru/Multi] (0.9.9.8) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36525.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36525.jpgsave_picture_36525.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Once Alive (2024) [Ru/Multi] (0.9.9.8) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36599.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36599.jpgsave_picture_36599.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Disney Dreamlight Valley (2023) [Multi] (1.14.1.990/dlc) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36619.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36619.jpgsave_picture_36619.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Depersonalization (2022) [Multi] (2.0.30) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36655.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36655.jpgsave_picture_36655.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ The Oregon Trail (2022) [Ru/Multi] (1.0.33/dlc) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36911.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36911.jpgsave_picture_36911.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ VED (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36915.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36915.jpgsave_picture_36915.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Beyond The Darkness (2024) [Ru/En] (Build 16409241) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36981.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36981.jpgsave_picture_36981.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Evil Awaits (2024) [En] (1.0) Scene Skidrow
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37002.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37002.jpgsave_picture_37002.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Potion Permit (2022) [Ru/Multi] (1.5/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37042.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37042.jpgsave_picture_37042.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Leisure Suit Larry 7: Love for Sail! / Ларри 7: Секс под парус�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37044.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37044.jpgsave_picture_37044.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Dave the Diver (2023) [Ru/Multi] (1.0.3.1535/dlc) Repack Wanterlude
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37073.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37073.jpgsave_picture_37073.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Beyond The Darkness (2024) [Ru/En] (Build 16409241) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37090.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37090.jpgsave_picture_37090.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Beyond The Darkness (2024) [Ru/En] (Build 16409241) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37092.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37092.jpgsave_picture_37092.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Perpetual Rage - The Beginning (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Heavy
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100946.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100946.jpgsave_picture_100946.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ The Midnight - Syndicate (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Synthpop,
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101023.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101023.jpgsave_picture_101023.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Glitz Machine - Next Generation (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Ha
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101102.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101102.jpgsave_picture_101102.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Zavala Sol - Bad Habits (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101103.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101103.jpgsave_picture_101103.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Jaxon Turner Trio - All That Jazz (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Ja
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101106.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101106.jpgsave_picture_101106.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Samara Joy - Portrait (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Vocal Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101107.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101107.jpgsave_picture_101107.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Murat Osman, Seif Allah Kaak and Curly Cuts Collective - Eastbound Jazz (2024) [
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101108.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101108.jpgsave_picture_101108.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Sam Cole - Let's Dance the Blues (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blu
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101109.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101109.jpgsave_picture_101109.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Bernard Barrett - Alt. Blues (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101110.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101110.jpgsave_picture_101110.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Karel Formant - Hungry for Love (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Bl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101113.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101113.jpgsave_picture_101113.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ The Smoothies - My Cozy Winter in Soul (2024) [FLAC 24/48|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101114.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101114.jpgsave_picture_101114.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ After Evolution - War of the Worlds (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101119.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101119.jpgsave_picture_101119.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Sensual Chill Saxaphone Band, Erotica - Shades of Erotica (2024) [FLAC 24/44.1|L
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101127.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101127.jpgsave_picture_101127.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Isa Nielsen - Break The Chains (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Har
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101128.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101128.jpgsave_picture_101128.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Nancy Sinatra - Country, My Way (1967) Remastered, 2024, Boots Enterprises, Inc.
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101167.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101167.jpgsave_picture_101167.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ SZA – Sos Deluxe: Lana (2024) [FLAC 24/44.1, 48|Lossless|WEB-DL|tracks] <Soul,
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101178.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101178.jpgsave_picture_101178.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Sorceress of Sin - Ennea (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Power Met
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101192.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101192.jpgsave_picture_101192.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Pallbearer - Studio Albums (5 releases) (2012-2024) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101214.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101214.jpgsave_picture_101214.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Anna Rustikano - Two Albums (1986, 1990) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101220.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101220.jpgsave_picture_101220.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Aphex Twin - Music From The Merch Desk (2016 - 2023) (2024) [FLAC 24/44.1|Lossle
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101224.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101224.jpgsave_picture_101224.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ magnet:?xt=urn:btih:7B574C2DFD2E6885E75B85DA1949A3689E5E74AC
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101249.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101249.jpgsave_picture_101249.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Terrifier - Studio Albums (3 releases) (2012-2023) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101257.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101257.jpgsave_picture_101257.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Ultraboss - Yachtmaster (2022) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Synthwave>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101271.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101271.jpgsave_picture_101271.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ Southern Mojo - One Take Jam (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101274.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101274.jpgsave_picture_101274.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ Nate Gross Band - A Ride With The Devil (2024) [FLAC 24/44.1|Lossless|WEB-DL|tra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101276.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101276.jpgsave_picture_101276.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ Vexovoid - Studio Albums (2 releases) (2014-2017) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101277.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101277.jpgsave_picture_101277.jpg" />
 </div>
 
 

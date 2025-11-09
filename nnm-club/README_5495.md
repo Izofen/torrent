@@ -6,7 +6,7 @@ VA - Ninja Cuts: Funkungfusion (1998) Ninja Tune [FLAC|Lossless|tracks+.cue] <Ab
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169821.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169821.jpgsave_picture_169821.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Grand Theft Auto III (2021) [Ru/Multi] (1.14718) Repack Other s [The Definitive 
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169822.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169822.jpgsave_picture_169822.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:CA7F3552AD7515BE2377BC588AE01513A9010E18
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169823.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169823.jpgsave_picture_169823.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ ScreenToGif 2.27.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169824.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169824.jpgsave_picture_169824.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:48186BD0BBC129693F2CA8D05A3E2CE1ECFACDA6
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169825.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169825.jpgsave_picture_169825.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ Ensemble Labyrinthus - Carmina de morte (2014) [MP3|320 Kbps] <classical, chambe
 >>Камерная
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169826.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169826.jpgsave_picture_169826.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ magnet:?xt=urn:btih:A9156E7210FE2FB50BEA14DFB5B3029ED0B7AFD3
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169827.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169827.jpgsave_picture_169827.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ Radigost - Nocturne (1999) (Reissue 2002) [FLAC|Lossless|image + .cue] <Black Do
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169828.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169828.jpgsave_picture_169828.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ GOM Player Plus  2.3.91.5361 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169829.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169829.jpgsave_picture_169829.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ Della Reese - Essential Della Reese 1950-e - 1960-e (2004) MasterSong [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169830.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169830.jpgsave_picture_169830.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ magnet:?xt=urn:btih:0D439AFECC7A400AB03E7EF42633E24BFDAC322A
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169831.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169831.jpgsave_picture_169831.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ The Divine Invasion (2021) [Ru/Multi] (1.0.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169833.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169833.jpgsave_picture_169833.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ magnet:?xt=urn:btih:4678A084FAE8568A6FEE43347A13220C2466732D
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169834.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169834.jpgsave_picture_169834.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ uTorrent Pro 3.6.0 Build 46904 Stable Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169835.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169835.jpgsave_picture_169835.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ Hannon Tramp - Hannon Tramp (2014) [FLAC|Lossless|image + .cue] <Hard Rock, Glam
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169836.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169836.jpgsave_picture_169836.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ Derniere Volonte - Cristal (2022) [FLAC|Lossless|WEB-DL|tracks] <Neofolk, Synthp
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169837.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169837.jpgsave_picture_169837.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ magnet:?xt=urn:btih:74D026E2C919ED9F6483F9E1810C861B753E9257
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169838.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169838.jpgsave_picture_169838.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ Della Reese - Voice Of An Angel 1959 - 1964 (1996) RCA [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169839.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169839.jpgsave_picture_169839.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Ganbare Douki-chan | Доки, ты справишься! [2021, Web, 12 эп.] 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169840.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169840.jpgsave_picture_169840.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ A Better Finder Attributes 6.20 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169841.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169841.jpgsave_picture_169841.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Duplicate File Finder Pro for Mac 7 v.7.3.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169843.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169843.jpgsave_picture_169843.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Melanie Payer - Herzuber (2022) [FLAC|Lossless|image + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169844.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169844.jpgsave_picture_169844.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ magnet:?xt=urn:btih:42F238CDCAA7BD3B5F142BBEEA5E3B84345D897C
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169845.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169845.jpgsave_picture_169845.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ magnet:?xt=urn:btih:9681A4C3260F24A83F380373C1822B92A2F9CA70
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169846.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169846.jpgsave_picture_169846.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ ABBYY Lingvo European Dictionary 1.12.3 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169847.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169847.jpgsave_picture_169847.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ Cardhop 1.3.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169848.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169848.jpgsave_picture_169848.jpg" />
 </div>
 
 

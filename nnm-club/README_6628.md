@@ -6,7 +6,7 @@
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216003.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216003.jpgsave_picture_216003.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:D23B77F59966D1D7E96CE60ED45592A007B133F5
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216027.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216027.jpgsave_picture_216027.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Jump Desktop (RDP, VNC, Fluid) 8.9.23 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216033.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216033.jpgsave_picture_216033.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:25C3CF9759F20F359035AF2F7BA7B38B72025AEE
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216040.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216040.jpgsave_picture_216040.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ All to MP3 Audio Converter 3.1.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216051.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216051.jpgsave_picture_216051.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:0BC4EFE9E079FED24375B87DA42E47C50A97F8E7
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216057.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216057.jpgsave_picture_216057.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:51D1D2824323FF86A31BEAB8761C89DB9CF07678
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216066.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216066.jpgsave_picture_216066.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Privacy Eraser Free 5.40.0 Build 4560 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216075.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216075.jpgsave_picture_216075.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:B7E050B4EA4B5F4908E4BF2A59F6DDC1B97A7F3D
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216083.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216083.jpgsave_picture_216083.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ magnet:?xt=urn:btih:D74CF0C5346F77F9B4F0DBB3493198CF1931ADBF
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216099.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216099.jpgsave_picture_216099.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ magnet:?xt=urn:btih:B9348247514BBDEA61D0AF8F3B337D5038E44EB9
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216107.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216107.jpgsave_picture_216107.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Orphaned Land (& Amaseffer) - Studio Albums (10 releases) (1993-2018) hand made 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216114.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216114.jpgsave_picture_216114.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ RJ TextEd 15.92.1.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216121.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216121.jpgsave_picture_216121.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ magnet:?xt=urn:btih:7C1FDB9059A4C66D74E4EEC35AA72654A3F1FAFE
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216127.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216127.jpgsave_picture_216127.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ magnet:?xt=urn:btih:298E97916226E51A2B8E82917B040E3FEF4560FA
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216134.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216134.jpgsave_picture_216134.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ magnet:?xt=urn:btih:DE367C87978C5022FD57C3439D6839243BECD49C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216175.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216175.jpgsave_picture_216175.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ magnet:?xt=urn:btih:BABEEF7E9F159EE813B4F7CB84B08059F27004E2
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216182.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216182.jpgsave_picture_216182.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ Magnum - Kingdom of Madness (1978) 2 x CD, Japanese Edition, Reissue, Remastered
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216190.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216190.jpgsave_picture_216190.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ Rectangle Pro 3.0.6 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216200.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216200.jpgsave_picture_216200.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Degreed - Public Address (2023) Japanese Edition [FLAC|Lossless|image + .cue] <M
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216208.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216208.jpgsave_picture_216208.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ Nel Oliver - Nel Oliver (1980) LP [MP3|320 Kbps] <Disco, Reggae, Funk/Soul>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216219.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216219.jpgsave_picture_216219.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ The Mystical Hot Chocolate Endeavors - A Clock Without A Craftsman (2023) 2 x CD
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216234.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216234.jpgsave_picture_216234.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ magnet:?xt=urn:btih:9329012B0FC7319F90892352BCAEE2B4D3E26C60
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216245.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216245.jpgsave_picture_216245.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ Kenny Dorham - Sings And Plays: This Is the Moment! (1958) 1994, Original Jazz C
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216252.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216252.jpgsave_picture_216252.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ Jungle - Volcano (2023) [FLAC|Lossless|WEB-DL|tracks] <alternative, electronic, 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216261.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216261.jpgsave_picture_216261.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ Magnum - II (1979) Japanese Edition, Remastered, 2023, Belle Antique [FLAC|Lossl
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216271.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216271.jpgsave_picture_216271.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39980.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39980.jpgsave_picture_39980.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:BD73D18E56CFDFADDC28ED0D194ECCFC069DF9EF
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39981.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39981.jpgsave_picture_39981.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:49EFD0B19719651B978203B15DE9AB5D185AB224
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39982.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39982.jpgsave_picture_39982.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Kylie Minogue - Tension II (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative Dan
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39983.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39983.jpgsave_picture_39983.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Kylie Minogue - Tension II (2024) [FLAC 16,24/44.1,48|Lossless|WEB-DL|tracks] <E
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39984.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39984.jpgsave_picture_39984.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ Calibre 7.20.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39985.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39985.jpgsave_picture_39985.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:3B80D9346881674912CB449C416852331BC8431D
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39986.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39986.jpgsave_picture_39986.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ magnet:?xt=urn:btih:408FC76ED24D06225DCCF4C27F5173BC0E495DB2
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39987.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39987.jpgsave_picture_39987.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ magnet:?xt=urn:btih:408FC76ED24D06225DCCF4C27F5173BC0E495DB2
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39988.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39988.jpgsave_picture_39988.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ VA - Music News For Forum vol.033 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39989.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39989.jpgsave_picture_39989.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ The Offspring - Supercharged (2024) Deluxe Edition [FLAC|Lossless|tracks] <Rock,
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39990.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39990.jpgsave_picture_39990.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ magnet:?xt=urn:btih:CA223FE3514211A0977B8881CA4208A37C34FB02
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39991.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39991.jpgsave_picture_39991.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ magnet:?xt=urn:btih:BE27AE41A85A0FEC00ED9407F89FA24E605E153B
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39992.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39992.jpgsave_picture_39992.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ magnet:?xt=urn:btih:BE48813AC0DB56AEDE8504C2E6E28B8442041EAC
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39993.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39993.jpgsave_picture_39993.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ magnet:?xt=urn:btih:09E67C8A7BFED9A34E89965E75D01ED1441E906D
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39994.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39994.jpgsave_picture_39994.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ magnet:?xt=urn:btih:E104CC948A7CEB4E7B250E8D066973E7B18EE893
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39995.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39995.jpgsave_picture_39995.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ Blackmagic Design DaVinci Resolve Studio 19.0.3 Build 5 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39996.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39996.jpgsave_picture_39996.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Welcome to Empyreum (2024) [Ru/Multi] (1.0.9) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39997.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39997.jpgsave_picture_39997.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ magnet:?xt=urn:btih:E767FD7FB6B6410084B4FAA57DF27E437FB61D3F
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39998.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39998.jpgsave_picture_39998.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Duplicate File Finder Pro 2406 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39999.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39999.jpgsave_picture_39999.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ IK Multimedia - AmpliTube 5 Complete 5.10.1 STANDALONE, VST, VST 3, AAX (x64) [E
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40000.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40000.jpgsave_picture_40000.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ magnet:?xt=urn:btih:345AD3E1ED594546395CDA26E426B1FC6E64543B
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40001.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40001.jpgsave_picture_40001.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ magnet:?xt=urn:btih:5C79FA7C2500FB7B8A520E872826BDB6006EB8E9
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40002.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40002.jpgsave_picture_40002.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ magnet:?xt=urn:btih:5C79FA7C2500FB7B8A520E872826BDB6006EB8E9
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40003.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40003.jpgsave_picture_40003.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Botanicula 1.0.274 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40004.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40004.jpgsave_picture_40004.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Police Simulator: Patrol Officers (2022) [Ru/Multi] (15.1.4/dlc) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40005.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40005.jpgsave_picture_40005.jpg" />
 </div>
 
 

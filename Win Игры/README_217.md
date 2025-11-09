@@ -6,7 +6,7 @@ Arcade Tycoon: Simulation Game (2021) [Ru/Multi] (2.0.3) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110950.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110950.jpgsave_picture_110950.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Lil' Guardsman (2024) [Multi] (1.0.5.3) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111194.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111194.jpgsave_picture_111194.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ It Happened Here 3: A Storm is Brewing (2024) [En] (1.0) Unofficial [Collector's
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111206.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111206.jpgsave_picture_111206.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Hidden Object Secrets 2: The Whitefield Murder (2024) [En] (1.0) Unofficial [Col
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111488.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111488.jpgsave_picture_111488.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Reflections of Life 12: The Shattered Timeline / Отражения жизни 1
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111828.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111828.jpgsave_picture_111828.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Lucky Season: King of Fools / Сезон удачи: Король глупцов
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111848.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111848.jpgsave_picture_111848.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Wilde Investigations 2: Animal Sanctuary Shuffle (2024) [En] (1.0) Unofficial [C
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111934.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111934.jpgsave_picture_111934.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Immortal Mantis (2022) [Multi] (1.1) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111974.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111974.jpgsave_picture_111974.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Immortal Mantis: Revenge (2024) [Multi] (1.1) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112001.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112001.jpgsave_picture_112001.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Arcane Path (2025) [Ru/Multi] (1.0) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112316.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112316.jpgsave_picture_112316.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Absolum (2025) [Ru/Multi] (02 r34045) Repack Let'sРlay [Soundtrack Edition]
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112360.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112360.jpgsave_picture_112360.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Yooka-Replaylee (2025) [Ru/Multi] (1.0) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112378.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112378.jpgsave_picture_112378.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Edge of Reality 9: The Legend of Greenbush (2024) [En] (1.0) Unofficial [Collect
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112379.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112379.jpgsave_picture_112379.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Criminal Archives 3: Murder in the Pages / Криминальные архивы
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112381.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112381.jpgsave_picture_112381.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ The Unseen Fears 6: Fortunes Consequence / Невидимые страхи 6: П
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112420.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112420.jpgsave_picture_112420.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ MUSYNX (2018) [Multi] (1.0/dlc) Scene PLAZA
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112424.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112424.jpgsave_picture_112424.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Disgaea 7: Vows of the Virtueless (2023) [Multi] (1.12/dlc) Scene Tenoke [Ultima
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112445.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112445.jpgsave_picture_112445.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Fida Puti Samurai (2022) [En] (1.0b) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112672.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112672.jpgsave_picture_112672.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Knight Cats 3: Whisper of the Universe (2024) [En] (1.0) Unofficial [Collector's
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112974.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112974.jpgsave_picture_112974.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Criminal Archives 3: Murder in the Pages (2024) [Multi] (1.0) Unofficial [Collec
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113604.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113604.jpgsave_picture_113604.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Robin Hood: Sherwood Builders (2024) [Ru/Multi] (1.0) Repack DjDI
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114084.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114084.jpgsave_picture_114084.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ The Witcher 3: Wild Hunt / Ведьмак 3: Дикая Охота (2015) [Ru/Mu
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114266.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114266.jpgsave_picture_114266.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ The Mobius Machine (2024) [Multi] (1.0) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114271.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114271.jpgsave_picture_114271.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Classified: France '44 (2024) [Multi] (1.0/dlc) Repack FitGirl
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114281.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114281.jpgsave_picture_114281.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Run Pizza Run (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114426.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114426.jpgsave_picture_114426.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ SANYA / САНЁК (2024) [Ru/Multi] (3.4) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114445.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114445.jpgsave_picture_114445.jpg" />
 </div>
 
 

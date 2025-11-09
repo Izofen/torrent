@@ -6,7 +6,7 @@ Maneskin - Rush! (2023) [FLAC 24/44.1|WEB-DL|tracks] <Glam-rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_182242.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_182242.jpgsave_picture_182242.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ LP (Laura Pergolizzi) - Love Lines (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182244.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182244.jpgsave_picture_182244.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Velvet Insane - High Heeled Monster (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard R
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182246.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182246.jpgsave_picture_182246.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:D7FE17F94D277BDD472E189E40115600EBAB81FA
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182249.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182249.jpgsave_picture_182249.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ magnet:?xt=urn:btih:B9E6F3BF8C531238246B7737133B4BC42026EC52
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182253.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182253.jpgsave_picture_182253.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ magnet:?xt=urn:btih:3B7E0ED56BE8A90FE1D6CE3CBAEDAB84680D2552
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182254.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182254.jpgsave_picture_182254.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:AF36D689977A900F14B723AC5AF82E0C5465F491
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182257.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182257.jpgsave_picture_182257.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:8C8EF1452341212D267E44BDE85EC778B66C6105
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182258.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182258.jpgsave_picture_182258.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ Niagara Launcher 1.7.10 Mod by Taz [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182260.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182260.jpgsave_picture_182260.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ Nancy Sinatra - Keep Walkin': Singles, Demos & Rarities 1965-1978 (2023) [FLAC 2
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182262.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182262.jpgsave_picture_182262.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ magnet:?xt=urn:btih:5504FA1391480DBAC149DB67730818BCEDE90335
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182266.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182266.jpgsave_picture_182266.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ Creative Sound Blaster Command 3.5.08.0 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182267.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182267.jpgsave_picture_182267.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ magnet:?xt=urn:btih:35F4221F2D47C450579A42D09C74C38C454A64C2
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_182271.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_182271.jpgsave_picture_182271.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ LibreOffice 7.4.3.2 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182272.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182272.jpgsave_picture_182272.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ W10Privacy 4.1.0.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182274.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182274.jpgsave_picture_182274.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ magnet:?xt=urn:btih:8C9EE07DD0CFF855FD5927934FF2DAFF766F4FF1
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182276.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182276.jpgsave_picture_182276.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ magnet:?xt=urn:btih:E8350AA8EE69D71D1DC7948C35113B5A08868821
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182280.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182280.jpgsave_picture_182280.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ magnet:?xt=urn:btih:646B90947DAD51BC8684752960C6995DA8736429
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182281.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182281.jpgsave_picture_182281.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Ashampoo Driver Updater 1.5.1.0 RePack (&.Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182283.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182283.jpgsave_picture_182283.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Ed Sheeran - Autumn Variations (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182286.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182286.jpgsave_picture_182286.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ magnet:?xt=urn:btih:DDF4D5DEE1B9AC1D57B7A923200420D1DB6A629B
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182288.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182288.jpgsave_picture_182288.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ MiniTool Power Data Recovery 11.3 Full (Standard-Deluxe-Enterprise-Technician) R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182289.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182289.jpgsave_picture_182289.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ CPU-Z 2.03.1 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182292.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182292.jpgsave_picture_182292.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ WinScan2PDF 8.31 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182294.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182294.jpgsave_picture_182294.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Alter Bridge (Creed, Tremonti) - Studio Albums (7 releases) (2004 - 2022) hand m
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182296.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182296.jpgsave_picture_182296.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ IsMyLcdOK 5.32 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182299.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182299.jpgsave_picture_182299.jpg" />
 </div>
 
 

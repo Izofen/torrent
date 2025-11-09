@@ -6,7 +6,7 @@ Hauntii (2024) [Multi] (1.0) Scene Razor 1911
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55323.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55323.jpgsave_picture_55323.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Senua’s Saga: Hellblade II (2) (2024) [Ru/Multi] (1.0.0.0.158523) Repack DjDI
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55354.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55354.jpgsave_picture_55354.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Senua’s Saga: Hellblade II (2) (2024) [Ru/Multi] (1.0.0.0.158523) Repack FitGi
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55381.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55381.jpgsave_picture_55381.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ The Journey of AutUmn (2024) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55439.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55439.jpgsave_picture_55439.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ The Vanishing of Ethan Carter (2014) [Ru/Multi] (1.0) Repack dixen18
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55518.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55518.jpgsave_picture_55518.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ The Vanishing of Ethan Carter (2015) [Ru/Multi] (1.05) Repack dixen18 [Redux]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55555.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55555.jpgsave_picture_55555.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Senua’s Saga: Hellblade II (2) (2024) [Ru/Multi] (1.0.0.0.158523) Scene FairLi
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55636.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55636.jpgsave_picture_55636.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Scene Investigators (2023) [Ru/Multi] (20250503/dlc) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55856.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55856.jpgsave_picture_55856.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ AMANATSU ~Perfect Edition~ (2024) [Multi] (1.0.2/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55862.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55862.jpgsave_picture_55862.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Lorelei and the Laser Eyes (2024) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56081.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56081.jpgsave_picture_56081.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Crow Country (2024) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56160.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56160.jpgsave_picture_56160.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ The Cursed Tape (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56163.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56163.jpgsave_picture_56163.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ The Desolate Hope (2014) [Ru/En] (1.35) Repack 1nomok
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56170.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56170.jpgsave_picture_56170.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ The Cursed Tape (2024) [Ru/Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56293.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56293.jpgsave_picture_56293.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ A Highland Song (2023) [En] (1.2.3) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56302.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56302.jpgsave_picture_56302.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Hollow Cocoon (2023) [Ru/Multi] (1.20) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56311.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56311.jpgsave_picture_56311.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Hollow Cocoon (2023) [Ru/Multi] (1.20) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56331.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56331.jpgsave_picture_56331.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Poltergeist Watcher (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56359.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56359.jpgsave_picture_56359.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ INDIKA (2024) [Ru/Multi] (14207837) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56523.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56523.jpgsave_picture_56523.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ The Bridge Curse 2: The Extrication / Проклятый мост 2: Эваку�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56569.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56569.jpgsave_picture_56569.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Alba: A Wildlife Adventure (2020) [Ru/Multi] (0.90) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56893.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56893.jpgsave_picture_56893.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ The Bridge Curse 2: The Extrication / Проклятый мост 2: Эваку�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56911.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56911.jpgsave_picture_56911.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Gone Home (2013) [Ru/Multi] (2020-01-28) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56939.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56939.jpgsave_picture_56939.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ magnet:?xt=urn:btih:7A72EE7523EB3D247E903AF4001F28C85ADDB86E
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57108.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57108.jpgsave_picture_57108.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ INDIKA (2024) [Ru/Multi] (14207837) Repack Decepticon
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57479.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57479.jpgsave_picture_57479.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ POOLS (2024) [Ru/Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58008.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58008.jpgsave_picture_58008.jpg" />
 </div>
 
 

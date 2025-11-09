@@ -6,7 +6,7 @@ UniBook - Аудиокниги v0.6.4 [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235899.jpgsave_picture_235899.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ The Dead Krazukies - From the Underworld (2023) [FLAC|Lossless|WEB-DL|tracks] <P
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235900.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235900.jpgsave_picture_235900.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:A2896C074DAF1B9F146E3F53B720DF7B50174B59
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235901.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235901.jpgsave_picture_235901.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:5C4F112F4542D7646567E6A103368E55699DDFA1
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_235902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_235902.jpgsave_picture_235902.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ VA - Free And Romantic Country (2023) [MP3|320 Kbps] <Country, Folk, Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235903.jpgsave_picture_235903.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:15D8CD11016D79597C6999456DBC1267F4A4E1A9
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235904.jpgsave_picture_235904.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ Chicasss - 2 Albums (1989, 1990) Collection [MP3|320 Kbps] <Pop, Europop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_235905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_235905.jpgsave_picture_235905.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ UninstallView 1.50 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235906.jpgsave_picture_235906.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ Futuremark 3DMark 2.22.7359 Professional Edition RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_235907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_235907.jpgsave_picture_235907.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ T-Model Ford - Jack Daniel Time (2008) [FLAC|Lossless|tracks + .cue] <Delta Blue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_235908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_235908.jpgsave_picture_235908.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ Entombed / Entombed A.D. - Studio Albums (16 releases) (1990-2019) hand made [re
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235909.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235909.jpgsave_picture_235909.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ magnet:?xt=urn:btih:202CA229E76592ACD22373D03DC113A984759380
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_235910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_235910.jpgsave_picture_235910.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ Aurora - Poweramp Skin 8.7 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235911.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235911.jpgsave_picture_235911.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ VA - Infrasonic Spring Selection (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235912.jpgsave_picture_235912.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ Annette Humpe - Solo (серия "Другие восьмидесятые") (199
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_235913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_235913.jpgsave_picture_235913.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ magnet:?xt=urn:btih:0EC836E86623901511284A77489D57B669C5CB1D
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235914.jpgsave_picture_235914.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ magnet:?xt=urn:btih:A22E23C327DF7F1329B94AAB4D4524A87259E950
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_235915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_235915.jpgsave_picture_235915.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Glary Utilities Pro 5.205.0.234 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235916.jpgsave_picture_235916.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ Perished - Seid (2003) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_235917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_235917.jpgsave_picture_235917.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ DEVONthink Pro 3 Office/Server 3.9.1 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235918.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235918.jpgsave_picture_235918.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Textra SMS v4.62 Pro [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235919.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235919.jpgsave_picture_235919.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Grainne Duffy - Dirt Woman Blues (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Roc
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235920.jpgsave_picture_235920.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ magnet:?xt=urn:btih:2EB4516E54D7525F3869545E6CEA8C8FB53096A7
 >>Релакс / Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_235921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_235921.jpgsave_picture_235921.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ magnet:?xt=urn:btih:D0FACDC9740707B5404344C29F47BAA8C3712FB0
 >>Космос
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235922.jpgsave_picture_235922.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ orbit.industries (2022) [Ru/Multi] (1.1.9717.0) License GOG
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_235923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_235923.jpgsave_picture_235923.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Linda Jo Rizzo - Forever (2023) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235924.jpgsave_picture_235924.jpg" />
 </div>
 
 

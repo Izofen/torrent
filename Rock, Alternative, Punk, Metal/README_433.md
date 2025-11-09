@@ -6,7 +6,7 @@ Hatriot - The Vale Of Shadows (2022) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238109.jpgsave_picture_238109.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Abbath - Dread Reaver (2022) [MP3|320 Kbps] <Black Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238110.jpgsave_picture_238110.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Lower 13 - Embrace the Unknown (2021) [FLAC|Lossless|WEB-DL|tracks] <Power Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238116.jpgsave_picture_238116.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ River Of Deceit - The Dead Won't Raise Themselves (2023) [MP3|320 Kbps] <Heavy, 
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238117.jpgsave_picture_238117.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ June 1974 - Please Destroy Me (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238120.jpgsave_picture_238120.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Amongst The Giants - 2 Albums (2018-2022) [FLAC|Lossless|WEB-DL|tracks] <Metalco
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238122.jpgsave_picture_238122.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Drama Noir - Nightfall upon the Asylum (2023) [FLAC|Lossless|WEB-DL|tracks] <Atm
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238130.jpgsave_picture_238130.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Lo Garp - True Friends (2021) Japanese Edition [FLAC|Lossless|image + .cue] <Sof
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238133.jpgsave_picture_238133.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Akilla - The Gods Have Spoken (2023) [MP3|320 Kbps] <Melodic Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238137.jpgsave_picture_238137.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Triskelyon - Downfall (2022) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238142.jpgsave_picture_238142.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Unbowed - Colour The Soul (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death, B
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238148.jpgsave_picture_238148.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Dark Age of Technology - 4 Albums (2018-2022) [FLAC|Lossless|WEB-DL|tracks] <Thr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238154.jpgsave_picture_238154.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Antaghonist - 4 Relises (2017-2022) [MP3|244-320 kbps/320 Kbps] <Dark Hardcore>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238161.jpgsave_picture_238161.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Def Leppard - The Early Years 79 - 81 (2020) (5 CD), Reissue, Remastered, 2020, 
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238168.jpgsave_picture_238168.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ magnet:?xt=urn:btih:C441DB505805C522DD8906ABE941794932408FC9
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238175.jpgsave_picture_238175.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ KRITE - Мертв По Прибытии (2022) [MP3|320 Kbps] <Melodic Black Me
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238180.jpgsave_picture_238180.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Symfonia - In Paradisum (2011) Japanese Edition [FLAC|Lossless|image + .cue] <Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238190.jpgsave_picture_238190.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ magnet:?xt=urn:btih:D089270873A1B68DE31F076084F473CA80335CE9
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238197.jpgsave_picture_238197.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Sultan - Check And Mate (1990) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238200.jpgsave_picture_238200.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Foreseen - Untamed Force (2022) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal, Har
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238209.jpgsave_picture_238209.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Celeste - Assassine(s) (2022) [FLAC|Lossless|WEB-DL|tracks] <Black, Sludge Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238216.jpgsave_picture_238216.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Snowblind - Breaking Out (2021) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238218.jpgsave_picture_238218.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Fortress of Empyrean - Synchronized Demise (2023) [MP3|320 Kbps] <Progressive Me
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238225.jpgsave_picture_238225.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ Bestial Sight - 3 Albums (2017-2022) [MP3|320 Kbps] <RMW Black, Death Metal>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238229.jpgsave_picture_238229.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ Feed the Wolves - Age of Fire (2023) [MP3|320 Kbps] <Power, Groove Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238232.jpgsave_picture_238232.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ Tons - 3 Albums (2012-2022) [MP3|320 Kbps] <Sludge Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238238.jpgsave_picture_238238.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ David Gilmour - Greatest Hits (2015) 2CD, Japanese Edition [MP3|320 кб/с] <Pr
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152594.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152594.jpgsave_picture_152594.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Feuerschwanz - Todsunden (2022) [FLAC|Lossless|WEB-DL|tracks] <Folk Metal, Power
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152613.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152613.jpgsave_picture_152613.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Gary Eisenbraun - Stepping Stones (2022) [MP3|320 Kbps] <Classic Rock, Blues Roc
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152650.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152650.jpgsave_picture_152650.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Chris Isaak - Christmas (2004) Target Exclusive Limited Edition [FLAC|Lossless|t
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152666.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152666.jpgsave_picture_152666.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Boudreaux - Fallen Angel (1994) Reissue, 2021, Metallic Blue Records [FLAC|Lossl
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152710.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152710.jpgsave_picture_152710.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Monster God - Clouds Of Grey (2022) [MP3|320 Kbps] <Stoner Doom Meatal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152770.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152770.jpgsave_picture_152770.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ magnet:?xt=urn:btih:217CEEB6360EE386BDAC6F60DEA892660A614048
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152806.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152806.jpgsave_picture_152806.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Chabtan - Compelle Intrare (2022) [FLAC|Lossless|WEB-DL|tracks] <metalcore, melo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152855.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152855.jpgsave_picture_152855.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Elikadama - Choreography Of Femininity (2022) [FLAC|Lossless|WEB-DL|tracks] <Doo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152869.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152869.jpgsave_picture_152869.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Dream Theater - When Dream And Day Reunite (2004) Reissue, Remastered, 2021, Son
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152902.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152902.jpgsave_picture_152902.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Bitterness - Autumn's Fall (2005) [FLAC|Lossless|image + .cue] <Medieval Death M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152911.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152911.jpgsave_picture_152911.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Cellarpigs - Murder In the Front Row (2022) [FLAC|Lossless|WEB-DL|tracks] <Thras
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152917.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152917.jpgsave_picture_152917.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Ciroza - Ashes (2022) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152922.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152922.jpgsave_picture_152922.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Small Jackets - Just Like This! (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock,
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152952.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152952.jpgsave_picture_152952.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ D'Ercole - Dreams Of The Heart (2012) [MP3|320 кб/с]<Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152986.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152986.jpgsave_picture_152986.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ Memory Garden - 1349 (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Doom Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153017.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153017.jpgsave_picture_153017.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ Phil Koubek Project - I'm Your Rock Star (2021) [FLAC|Lossless|WEB-DL|tracks] <H
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153050.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153050.jpgsave_picture_153050.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Supreme Unbeing - Enter Reality (2020) [FLAC|Lossless|image + .cue] <Heavy Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153070.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153070.jpgsave_picture_153070.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Yeah Bop Station - Upfront (1992) Japanese Edition [FLAC|Lossless|image + .cue] 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153079.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153079.jpgsave_picture_153079.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Lacey Sturm (ex Flyleaf) - Kenotic Metanoia (2023) [MP3|320 Kbps] <Alternative R
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153087.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153087.jpgsave_picture_153087.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Battle Beast - Battle Beast (2013) [FLAC|Lossless]<Heavy Metal, Female Fronted>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153088.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153088.jpgsave_picture_153088.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ magnet:?xt=urn:btih:7D02FD777022F940DFEA403FE2593FF67E092FE8
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153089.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153089.jpgsave_picture_153089.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Reap The Light - Deliver Hell (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153100.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153100.jpgsave_picture_153100.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Parasyche - Sons Of Violence (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive H
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153123.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153123.jpgsave_picture_153123.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ McHale's Permanent Brew - Lesson's from the Darkest Storms (2023) [FLAC|Lossless
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153129.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153129.jpgsave_picture_153129.jpg" />
 </div>
 
 
@@ -688,7 +688,7 @@ Apocalyptica - Live In Helsinki St. John's Church (2023) [FLAC|Lossless|WEB-DL|t
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153219.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153219.jpgsave_picture_153219.jpg" />
 </div>
 
 

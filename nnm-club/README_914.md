@@ -6,7 +6,7 @@
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24103.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24103.jpgsave_picture_24103.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:4C25AFEF5718F15A5BAC22395F5AB7C85F8FC96F
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24104.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24104.jpgsave_picture_24104.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:635CD17C52E4B562811B727E6B5DC539EE32100C
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24105.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24105.jpgsave_picture_24105.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ MiniOS (все редакции) v4.1.2 [amd64, i386] 4xDVD [RU]
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24106.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24106.jpgsave_picture_24106.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Mortal Darkness (2025) [En] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24107.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24107.jpgsave_picture_24107.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:053D281BB4C10CC71147834FE8FC7A33F4942641
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24108.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24108.jpgsave_picture_24108.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:48FA5D45F88B850C33C5E7A839F449646DE3B3BE
 >>Элементы (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24109.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24109.jpgsave_picture_24109.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:F91D4E302A53AC761FC85CF4BAC9C1F64C8C027F
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24110.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24110.jpgsave_picture_24110.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ CCleaner 6.34.11482 Free / Pro / Business / Technician Edition RePack (& Portabl
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24111.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24111.jpgsave_picture_24111.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:C4F6B7D8D68F5DE8DA4DB7CBFEC9320668E2B2C2
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24112.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24112.jpgsave_picture_24112.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Grand Fantasy Heroes (2025) [En] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24113.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24113.jpgsave_picture_24113.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Death Stream (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24114.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24114.jpgsave_picture_24114.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:D6A32ABB3BBFEFEA7F01B8092938AE3A7CB71B6B
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24115.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24115.jpgsave_picture_24115.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Cities: Skylines II (2) (2023) [Ru/Multi] (1.2.5f1/dlc) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24116.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24116.jpgsave_picture_24116.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Neverwinter Nights: Enhanced Edition (2018) [Multi] (89.8193.37-15b/dlc) License
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24117.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24117.jpgsave_picture_24117.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ magnet:?xt=urn:btih:727848A1F0C5808B880DEF11D98D6E900B89A367
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24118.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24118.jpgsave_picture_24118.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ magnet:?xt=urn:btih:B3181A15A79CF557DF6B447EB0F438E1E9432E2C
 >>Кинолетопись Страны Советской
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24119.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24119.jpgsave_picture_24119.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ magnet:?xt=urn:btih:648F3431E1487F127D921F50824E661ED0A09D3F
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24120.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24120.jpgsave_picture_24120.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ Microsoft® Windows® 10 Pro-Home Optim Plus x64 22H2 RU by OVGorskiy 03.2025
 >>Сборки Windows 10
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24121.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24121.jpgsave_picture_24121.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ magnet:?xt=urn:btih:896D269E7A2C6E52923F4A2431990B88A64D16B3
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24122.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24122.jpgsave_picture_24122.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:714B555FC5960B3699F5B1B212B3B948A01B8F36
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24123.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24123.jpgsave_picture_24123.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Cities: Skylines II (2) (2023) [Ru/Multi] (1.2.5f1/dlc) Scene Rune
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24124.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24124.jpgsave_picture_24124.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ magnet:?xt=urn:btih:F4950784431747AAEEA907C8F8E51FDC1D69B5DC
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24125.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24125.jpgsave_picture_24125.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ magnet:?xt=urn:btih:F4950784431747AAEEA907C8F8E51FDC1D69B5DC
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24126.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24126.jpgsave_picture_24126.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ magnet:?xt=urn:btih:FDBDD3B1FF428911CB4E5B36CA311C311F1C61A0
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24127.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24127.jpgsave_picture_24127.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Total Commander 11.51 LitePack & PowerPack + Portable 2025.3 by SamLab [Multi/Ru
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24128.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24128.jpgsave_picture_24128.jpg" />
 </div>
 
 

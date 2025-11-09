@@ -6,7 +6,7 @@
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161821.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161821.jpgsave_picture_161821.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ JRiver Media Center 30.0.41 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161822.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161822.jpgsave_picture_161822.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:AFD256C73E11D3BC4BE49349936F311249D33946
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161823.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161823.jpgsave_picture_161823.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ magnet:?xt=urn:btih:DFAB3D1DC1619298B6ADDCBB40AB08EBBB2A0B4E
 >>Свадебные и романтические (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161824.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161824.jpgsave_picture_161824.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ VA - Робинзон (1997) [FLAC|Lossless|image +.cue]<Retro, Pop>
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161825.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161825.jpgsave_picture_161825.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ magnet:?xt=urn:btih:3D4BDE6D78AA50F924FBB4D60A2B6C98AF8CD0D4
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161826.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161826.jpgsave_picture_161826.jpg" />
 </div>
 
 
@@ -161,7 +161,7 @@ magnet:?xt=urn:btih:B417388827FE3B93E5A20E62E9CAD0719D707C4E
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161827.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161827.jpgsave_picture_161827.jpg" />
 </div>
 
 
@@ -187,7 +187,7 @@ SoundSource 5.5.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161828.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161828.jpgsave_picture_161828.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ magnet:?xt=urn:btih:D6A47987975BCCABCF76F5CAAAE9CF1322A3E994
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161829.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161829.jpgsave_picture_161829.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ magnet:?xt=urn:btih:77F9177D547C141B4D45DFC026E2305E8DB1F020
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161830.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161830.jpgsave_picture_161830.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ magnet:?xt=urn:btih:097AED91796AFACCDA8CD3C90E783BF918F950A8
 >>А знаете ли вы..
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161831.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161831.jpgsave_picture_161831.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ magnet:?xt=urn:btih:097AED91796AFACCDA8CD3C90E783BF918F950A8
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161832.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161832.jpgsave_picture_161832.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ magnet:?xt=urn:btih:EBA4C7395D0CF3EF366704E7FDE2368B681FA5B8
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161834.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161834.jpgsave_picture_161834.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ The Bat! Professional 10.5.2.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161835.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161835.jpgsave_picture_161835.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ Mac FoneTrans for iOS 9.0.60 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161836.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161836.jpgsave_picture_161836.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Vivaldi 5.6.2867.50 + Автономная версия (standalone) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161837.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161837.jpgsave_picture_161837.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ magnet:?xt=urn:btih:1262828BA49C3E724A85D16E38F4F74C34919BE6
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161838.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161838.jpgsave_picture_161838.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ magnet:?xt=urn:btih:1262828BA49C3E724A85D16E38F4F74C34919BE6
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161839.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161839.jpgsave_picture_161839.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ magnet:?xt=urn:btih:30396FB85EF20F0D76EFB3F2162FA08A0A124FC2
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161840.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161840.jpgsave_picture_161840.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ magnet:?xt=urn:btih:789D1127FED5C4B08179DABE95DAFFB99BA4E4DA
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161841.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161841.jpgsave_picture_161841.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ magnet:?xt=urn:btih:F1F8DE4B24AE64EEDD25110AE66E01F1C248EB53
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161842.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161842.jpgsave_picture_161842.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ magnet:?xt=urn:btih:7508F7363AF17019D5568E7A59AA8790F5C62719
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161843.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161843.jpgsave_picture_161843.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ magnet:?xt=urn:btih:30780AAD51D88DB7709753C714D2ABA9D0D799F5
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161844.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161844.jpgsave_picture_161844.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ magnet:?xt=urn:btih:E890560B6153B6236941CEF3DC2A99C8709F76D9
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161845.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161845.jpgsave_picture_161845.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ magnet:?xt=urn:btih:A60767FE47322A582ADB61DBD9E549016F72C77D
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161846.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161846.jpgsave_picture_161846.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ magnet:?xt=urn:btih:E9EB47D2198697299D1CB004E9565873AAED190F
 >>Единоборства, Бои без правил
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161847.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161847.jpgsave_picture_161847.jpg" />
 </div>
 
 

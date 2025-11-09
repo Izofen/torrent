@@ -6,7 +6,7 @@
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111923.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111923.jpgsave_picture_111923.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Electrolize - Феникс (2024) [FLAC|Lossless|WEB-DL|tracks] <Industrial Meta
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111924.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111924.jpgsave_picture_111924.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Martiria - The Eternal Soul (2004) Remastered, 2013, My Graveyard Productions [F
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111925.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111925.jpgsave_picture_111925.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:36EC54B9B9D8C0909E082562547AD162C5984C0E
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111930.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111930.jpgsave_picture_111930.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ magnet:?xt=urn:btih:5EC1DC751A317C89D20D39637A7C090D4ADA1761
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111973.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111973.jpgsave_picture_111973.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Smokie - 8 Albums (1975-1982) Reissue, 2007-2008, 7T's GLAM [FLAC|Lossless|track
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111989.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111989.jpgsave_picture_111989.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ magnet:?xt=urn:btih:089B8C1FF503830DC7D95079575A48B28014623F
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111996.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111996.jpgsave_picture_111996.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Conjureth - Foul Formations (2020) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112004.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112004.jpgsave_picture_112004.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Bokassa - Live At The BBC (2020) (Live) [FLAC|Lossless|WEB-DL|tracks] <Stoner Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112007.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112007.jpgsave_picture_112007.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Cryoshock - The Cold New Regime (2024) [FLAC|Lossless|WEB-DL|tracks] <Death, Thr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112008.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112008.jpgsave_picture_112008.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Uaral - Lamentos A Poema Muerto (2007) [FLAC|Lossless|image + .cue] <Doom Metal,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112009.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112009.jpgsave_picture_112009.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:07F9E042D289869EC5A3FBFA2E94E92CBE55A98A
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112022.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112022.jpgsave_picture_112022.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:B27DD64CE79C4E5118B6C8F4B809B1DE499869BE
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112025.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112025.jpgsave_picture_112025.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ magnet:?xt=urn:btih:02D2F3635629CCE868367696BCE06E265CB0CE8F
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112026.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112026.jpgsave_picture_112026.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ magnet:?xt=urn:btih:630D9CCA3A7F56DA817E108156432D23D98CDFE9
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112028.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112028.jpgsave_picture_112028.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ magnet:?xt=urn:btih:FF7373CAE2470A7BC23E6A1CACB5579D7E437624
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112037.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112037.jpgsave_picture_112037.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ VA - Rock Now Mixtape (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112065.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112065.jpgsave_picture_112065.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Toby Vetter - Illusions (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112066.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112066.jpgsave_picture_112066.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Ten Throne - Desolate Day (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112067.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112067.jpgsave_picture_112067.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:0B8AF1811E35DFABA02465D1524F2760F9A68709
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112068.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112068.jpgsave_picture_112068.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Life Hypothesis - Overdue to Evolve (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard R
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112069.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112069.jpgsave_picture_112069.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Kill The Kings - The Demo Years (2024) [FLAC|Lossless|WEB-DL|tracks] <Stoner, He
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112070.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112070.jpgsave_picture_112070.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Leviathan Project - MCMLXXXII (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112071.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112071.jpgsave_picture_112071.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Trifixion - The First and the Last Commandment (1995) [FLAC|Lossless|image + .cu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112073.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112073.jpgsave_picture_112073.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Transgressor - Ether for Scapegoat (1992) Reissue, 2015, Memento Mori [FLAC|Loss
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112074.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112074.jpgsave_picture_112074.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ VA - Rock Fun & Happy Songs (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112076.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112076.jpgsave_picture_112076.jpg" />
 </div>
 
 

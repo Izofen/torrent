@@ -6,7 +6,7 @@ Cities: Skylines II (2) (2023) [Ru/Multi] (1.3.6f1/dlc) Repack seleZen [Ultimate
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230586.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230586.jpgsave_picture_230586.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Wreckreation (2025) [Ru/Multi] (1.0.144924) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230593.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230593.jpgsave_picture_230593.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Beneath (2025) [Ru/Multi] (0.9920f/dlc) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230599.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230599.jpgsave_picture_230599.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Dark Moon (2025) [Ru/Multi] (2025-10-29 Build 20591880) Repack seleZen
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230605.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230605.jpgsave_picture_230605.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Darkest Dungeon II (2023) [Ru/Multi] (2.04.80648/dlc) Repack Necros
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230618.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230618.jpgsave_picture_230618.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Alekon (2021) [En] (1.3) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_230723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230723.jpgsave_picture_230723.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Bridge to Another World 11: A Trail of Breadcrumbs (2023) [En] (1.0) Unofficial 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_231076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231076.jpgsave_picture_231076.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Grim Tales 23: Dual Disposition / Страшные сказки 23: Двойст
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_231728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231728.jpgsave_picture_231728.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Astalon: Tears of the Earth (2021) [Ru/Multi] (1.1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233373.jpgsave_picture_233373.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ It Happened Here: Streaming Lives / Это случилось здесь: Пря
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233529.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233529.jpgsave_picture_233529.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Goetia 2 (2022) [Multi] (1.0.4) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233614.jpgsave_picture_233614.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Criminal Archives 2: Alphabetic Murders (2023) [En] (1.0) Unofficial [Collector'
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233708.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233708.jpgsave_picture_233708.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ City Legends 3: Ghost of Misty Hill (2023) [En] (1.0) Unofficial [Collector's Ed
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233731.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233731.jpgsave_picture_233731.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Connected Hearts 3: The Musketeers Saga / Связанные любовью 3: �
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233770.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233770.jpgsave_picture_233770.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Recursive Ruin (2022) [Ru/Multi] (22.05.17) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233780.jpgsave_picture_233780.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Detectives United 6: Beyond Time (2023) [En] (1.0) Unofficial [Collector's Editi
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233978.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233978.jpgsave_picture_233978.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ RICE Repetitive Indie Combat Experience (2023) [En] (24) License GOG [Early Acce
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234149.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234149.jpgsave_picture_234149.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Whateverland (2022) [Ru/Multi] (0.9.21) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234577.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234577.jpgsave_picture_234577.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Legend of Grimrock 2 (2014) [En] (2.2.4) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234642.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234642.jpgsave_picture_234642.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Camelot 2: The Holy Grail / Камелот 2: Святой Грааль [Ru/En] 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234790.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234790.jpgsave_picture_234790.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ LEGO Star Wars: The Skywalker Saga (2022) [Ru/Multi] (1.0.0.27327/dlc) Repack De
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235258.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235258.jpgsave_picture_235258.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Chinatown Detective Agency (2022) [Multi] (1.0.17) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235338.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235338.jpgsave_picture_235338.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Blue Fire (2021) [Ru/Multi] (6.0.4) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235355.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235355.jpgsave_picture_235355.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ orbit.industries (2022) [Ru/Multi] (1.1.9717.0) License GOG
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_235923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_235923.jpgsave_picture_235923.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Godlike Burger (2022) [Ru/Multi] (1.0.0) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_235999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_235999.jpgsave_picture_235999.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Lumote: The Mastermote Chronicles (2022) [Ru/Multi] (1.5.3-rc5) License GOG [Dig
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236099.jpgsave_picture_236099.jpg" />
 </div>
 
 

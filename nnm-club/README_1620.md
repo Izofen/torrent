@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42477.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42477.jpgsave_picture_42477.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@
 >>Солдаты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42478.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42478.jpgsave_picture_42478.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:DCF8A833885A551B4AF59738952330C2DE5293D7
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42479.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42479.jpgsave_picture_42479.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:AB5FEC2530B5A4BC7C823B39DE8F6A72C0A2C136
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42480.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42480.jpgsave_picture_42480.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:01A4CD8F55941F206EE0A5504B3AD3B28211558D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42481.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42481.jpgsave_picture_42481.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:44365A961B9D5C0539EB4A5CD9668631920EAC78
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42482.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42482.jpgsave_picture_42482.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:6BC4E6290EC0D27ED3CF3F7407B91A3C3A8D3695
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42483.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42483.jpgsave_picture_42483.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:7501E915EF8726DB80E41E46FFA6DF239DEE236A
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42484.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42484.jpgsave_picture_42484.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:1EC0811BA55C8F2734641A97B56EF25EF1235CD1
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42485.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42485.jpgsave_picture_42485.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ magnet:?xt=urn:btih:564A86DF7340A5845111D7EAEE56885317BC62EF
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42486.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42486.jpgsave_picture_42486.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ magnet:?xt=urn:btih:97B3801D86FC5F0BD58D79AD12E2187D78813EF8
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42487.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42487.jpgsave_picture_42487.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:E06CEAC77E8CEF41A21E4092D049006F30EFBCA3
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42488.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42488.jpgsave_picture_42488.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Alien: Isolation (2019) [Switch] [USA] 14.0.0 [NSZ] [License / 1.1.4_60709] [Ru/
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42489.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42489.jpgsave_picture_42489.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ magnet:?xt=urn:btih:56F3E486CE779EFFE42C948FB76B8E591F6B67CF
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42490.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42490.jpgsave_picture_42490.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ magnet:?xt=urn:btih:19E469B1E3B0E978BC7E9AC54D2DA790AF4277F6
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42491.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42491.jpgsave_picture_42491.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ magnet:?xt=urn:btih:19E469B1E3B0E978BC7E9AC54D2DA790AF4277F6
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42492.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42492.jpgsave_picture_42492.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ magnet:?xt=urn:btih:35EEFBAE31B8B0D7ACB318EB93A474379BD5608E
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42493.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42493.jpgsave_picture_42493.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ magnet:?xt=urn:btih:1E277602D217C39D00633E80579F37BC628DA3AC
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42494.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42494.jpgsave_picture_42494.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ magnet:?xt=urn:btih:A19EDA27B176F70CF2D740899A6085703820BDA8
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42495.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42495.jpgsave_picture_42495.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Isekai Shikkaku | No Longer Allowed In Another World | Дисквалифици�
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42496.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42496.jpgsave_picture_42496.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Disney Epic Mickey: Rebrushed (2024) [Ru/Multi] (15745129/dlc) Repack dixen18
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42497.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42497.jpgsave_picture_42497.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ magnet:?xt=urn:btih:CAF51D7C7DDCF5464E45040F6BFCFB99AE5A01F6
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42498.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42498.jpgsave_picture_42498.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ VA - Arabic Ethnic Deep House Mix 2022 [FLAC|Lossless|WEB-DL|tracks] <House, Fol
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42499.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42499.jpgsave_picture_42499.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Toni Braxton - Singles Collection (2000) Compilation, Unofficial Release [FLAC 2
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42500.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42500.jpgsave_picture_42500.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ VA - Calm Horizons 2: Chillout Your Mind (2024) [FLAC|Lossless|WEB-DL|tracks] <B
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42501.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42501.jpgsave_picture_42501.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ VA - Powermix Vol. 3 (1989) [OGG Vorbis|480 Kbps] <Electronic, Italo-Disco, Disc
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42502.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42502.jpgsave_picture_42502.jpg" />
 </div>
 
 

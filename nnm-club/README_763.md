@@ -6,7 +6,7 @@
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20164.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20164.jpgsave_picture_20164.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Machine Head - Unatøned (2025) [FLAC|Lossless|image + .cue] <Groove Metal / Thr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20165.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20165.jpgsave_picture_20165.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:FDC58C5A74B92049490947FA219354DCEB8C23CE
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20166.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20166.jpgsave_picture_20166.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ Sacred Steel - Studio Albums (10 releases) (1997-2025) hand made [restored, decl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20167.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20167.jpgsave_picture_20167.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ magnet:?xt=urn:btih:090936DC08D192DA7FD5E892279DC877E983A5D1
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20168.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20168.jpgsave_picture_20168.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ Seem Wild - The Great Gig at Heaven Pt1 (2025) [FLAC|Lossless|WEB-DL|tracks] <Ha
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20169.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20169.jpgsave_picture_20169.jpg" />
 </div>
 
 
@@ -161,7 +161,7 @@ Text Editor Pro 32.1.0 + Portable + Bonus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20170.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20170.jpgsave_picture_20170.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ magnet:?xt=urn:btih:F80B87AAFFE02542B5166AA532AEF33CA9554422
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20171.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20171.jpgsave_picture_20171.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Noah Beatz - Noah (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20172.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20172.jpgsave_picture_20172.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ Various - Metal Hammer Goes 90s (2017) Compilation [WavPack|Lossless|image + .cu
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20173.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20173.jpgsave_picture_20173.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ magnet:?xt=urn:btih:C42193EEC6B86BCC522FB29D10A7CC096DDD4EF0
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20174.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20174.jpgsave_picture_20174.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ magnet:?xt=urn:btih:9AC21D41099564C778E7A3DE2B43A359A03E813F
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20175.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20175.jpgsave_picture_20175.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ magnet:?xt=urn:btih:D4D068F64C35BFC647752A380AB2A63244E961FA
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20176.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20176.jpgsave_picture_20176.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ magnet:?xt=urn:btih:DEAC909A63F3A5B9C2FB9B933E92042339857477
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20177.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20177.jpgsave_picture_20177.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ Fabled Lands (2022) [Ru/En] (2.1.3а/dlc) Repack Let'sРlay [Complete Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20178.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20178.jpgsave_picture_20178.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ H.E.A.T - Studio Albums (8 releases) (2008-2025) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20179.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20179.jpgsave_picture_20179.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ magnet:?xt=urn:btih:F128002155276B9287FF5E8F65BF4C7B7E90718B
 >>Звездные войны / Star Wars (сериалы по франшизе)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20180.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20180.jpgsave_picture_20180.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ World of Goo 2 (2024) [Ru/Multi] (13112W) Repack seleZen
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20181.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20181.jpgsave_picture_20181.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ magnet:?xt=urn:btih:D9AE1B4139FB4127EB16897009A3F303D8E541CB
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20182.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20182.jpgsave_picture_20182.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ magnet:?xt=urn:btih:4BF2C1D07FF757847B13836480C08845A1FD2D53
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20183.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20183.jpgsave_picture_20183.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Light Image Resizer 7.2.0.100 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20184.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20184.jpgsave_picture_20184.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Process Lasso Pro 15.1.1.7 Beta RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20185.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20185.jpgsave_picture_20185.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ magnet:?xt=urn:btih:3E24F196529F40AC8091328CBD1DC2DDDE0CE9C9
 >>Секретные материалы / X-Files
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20186.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20186.jpgsave_picture_20186.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ magnet:?xt=urn:btih:0A5BD736F071EC8B056C58DDD53DCDC7B9F9F258
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20187.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20187.jpgsave_picture_20187.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ magnet:?xt=urn:btih:4F57D8BC9843933C6DF6D0A9A1E15A0D362F3A39
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20188.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20188.jpgsave_picture_20188.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ magnet:?xt=urn:btih:5403AD8DF9814F6D135623F43FE192ECE1C9D214
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20189.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20189.jpgsave_picture_20189.jpg" />
 </div>
 
 

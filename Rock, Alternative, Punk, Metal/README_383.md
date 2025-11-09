@@ -6,7 +6,7 @@
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230416.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230416.jpgsave_picture_230416.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Dругой Ветер - В темноте (2025) [MP3|320 Kbps] <Rock, Alternat
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230438.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230438.jpgsave_picture_230438.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - Road Trip Country Rock (2023) [MP3|320 Kbps] <Country, Country Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_230448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230448.jpgsave_picture_230448.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:7BA2AFDF6A5F59C5E18B8E4EF78C3E251FADF22A
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230487.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230487.jpgsave_picture_230487.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ magnet:?xt=urn:btih:57A57BD8C9F6D2D5AFE225C0C28719749F0D36C3
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230500.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230500.jpgsave_picture_230500.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Greg Lake - The Anthology - A Musical Journey (2020) 2xCD [FLAC|Lossless|image +
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230503.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230503.jpgsave_picture_230503.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ Eloy - Echoes From The Past (2023) [FLAC|Lossless|image + .cue] <Krautrock, Psyc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230622.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230622.jpgsave_picture_230622.jpg" />
 </div>
 
 
@@ -196,7 +196,7 @@ Foo Fighters - But Here We Are (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock,
 >>Alternative, Punk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_230623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230623.jpgsave_picture_230623.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ VA - Meddle Reimagined - A Tribute To Pink Floyd (2023) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230653.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230653.jpgsave_picture_230653.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ From Ashes to New - Blackout (2023) [FLAC|Lossless|WEB-DL|tracks] <Nu Metal, Rap
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230692.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230692.jpgsave_picture_230692.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ Inteam - Точёный пик (2023) [MP3|320 Kbps] <Comedy Metal>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230734.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230734.jpgsave_picture_230734.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ magnet:?xt=urn:btih:EE8D613C3380223664D8E1270605BE4985AF1EFA
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230757.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230757.jpgsave_picture_230757.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ Legba - Oscuro (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard-rock, blues>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230768.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230768.jpgsave_picture_230768.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ Coventrate - Roots of All Evil (2019) [FLAC|Lossless|image + .cue] <Speed, Thras
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230769.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230769.jpgsave_picture_230769.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ Crazy Space Gun - Тройничок (2023) [FLAC|Lossless|WEB-DL|tracks] <Alter
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230770.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230770.jpgsave_picture_230770.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Edu Falaschi - The Glory Of The Sacred Truth (2018) EP, Japan Edition [FLAC|Loss
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230780.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230780.jpgsave_picture_230780.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ ssshhhiiittt! - rawlove (2023) [FLAC|Lossless|WEB-DL|tracks] <Post-Punk, Psyched
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230784.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230784.jpgsave_picture_230784.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Ankhagram - ReANKHarnation (2006) Reissue, 2014, Satanarsa Records [FLAC|Lossles
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230786.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230786.jpgsave_picture_230786.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Voidfallen - The Atlas of Spiritual Apocalypse (2021) [MP3|320 Kbps] <Melodic De
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230795.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230795.jpgsave_picture_230795.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Noltem - Illusions In The Wake (2021) [FLAC|Lossless|WEB-DL|tracks] <Atmospherci
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_230810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230810.jpgsave_picture_230810.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ BlackSun Horizon - Who Will Live to Tell the Tale (2023) [FLAC|Lossless|WEB-DL|t
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_230814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230814.jpgsave_picture_230814.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ Birds of Prey - Sulfur & Semen (2008) [FLAC|Lossless|image + .cue] <Death, Sludg
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_230829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230829.jpgsave_picture_230829.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ Revolution Saints - Eagle Flight (2023) Japanese Edition [FLAC|Lossless|image + 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_230832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230832.jpgsave_picture_230832.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ Cerebral Invasion - A Story Of Death (2023) [FLAC|Lossless|WEB-DL|tracks] <Death
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230834.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230834.jpgsave_picture_230834.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ Matteo Mancuso - The Journey (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive R
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230835.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230835.jpgsave_picture_230835.jpg" />
 </div>
 
 
@@ -682,7 +682,7 @@ Nocturna - Daughters Of The Night (2022) Japanese Edition [FLAC|Lossless|image +
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230839.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230839.jpgsave_picture_230839.jpg" />
 </div>
 
 

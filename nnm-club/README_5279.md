@@ -6,7 +6,7 @@ VA - Remix NNM 7 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164056.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164056.jpgsave_picture_164056.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Vanessa Mai - Für Immer Tour Live 2022 [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164057.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164057.jpgsave_picture_164057.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:BE7FE6DEDA355ACA1599A7DBC01385A84D48751A
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164058.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164058.jpgsave_picture_164058.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Elasto Mania Remastered (2000) [En] (1.19) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164059.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164059.jpgsave_picture_164059.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ magnet:?xt=urn:btih:ACE59C410569F38084FC06BB7B888A5AD16F91AD
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164060.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164060.jpgsave_picture_164060.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ magnet:?xt=urn:btih:81CEECE6FC2150D4E6F51353FDD48F855BA86529
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164062.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164062.jpgsave_picture_164062.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ magnet:?xt=urn:btih:87340F52CFE4B6566AD94E9C282344A8806A9141
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164063.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164063.jpgsave_picture_164063.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ Cubebrush, Marc Brunet | Complete Guide to a Concept Art Career (2017) WEB-DLRip
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164064.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164064.jpgsave_picture_164064.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ magnet:?xt=urn:btih:E10DF374E16BA3906DE46B3C2C9490960AC494D8
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164065.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164065.jpgsave_picture_164065.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ Ie Naki Ko Remi | Remi, Nobody's Girl | Бездомная девочка Рем
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164066.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164066.jpgsave_picture_164066.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ Root Explorer / Root Проводник 4.12.3 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164067.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164067.jpgsave_picture_164067.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ magnet:?xt=urn:btih:9F5C73CA127F0318654DEA08B48F811F2DBD6F89
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164068.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164068.jpgsave_picture_164068.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ magnet:?xt=urn:btih:CCB7ED160ECB35426E07D2F809CC6F61FE4234B8
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164069.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164069.jpgsave_picture_164069.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ magnet:?xt=urn:btih:821D33B91965E0260DCDEAA27DB0A144D16EA110
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164070.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164070.jpgsave_picture_164070.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ magnet:?xt=urn:btih:EC1218CB58C2115FAAE9D2467897529DFC82A0A1
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164071.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164071.jpgsave_picture_164071.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ magnet:?xt=urn:btih:37A0920CB5F79544F7767BF589F4DD733418D788
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164072.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164072.jpgsave_picture_164072.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ magnet:?xt=urn:btih:5374F957D2D5A2FDBB6F953F0430ED5658736F44
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164073.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164073.jpgsave_picture_164073.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Jaja-uma Quartet | Wild Cardz | Crown Knights | Дикие карты [1997, OVA
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164074.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164074.jpgsave_picture_164074.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ magnet:?xt=urn:btih:E4F5413DA389A22DB01B3EFADFD8FD903E53FFC9
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164075.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164075.jpgsave_picture_164075.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ magnet:?xt=urn:btih:7386A76E0E72411F5E0CBFEA32CEA505F0DC36F6
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164076.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164076.jpgsave_picture_164076.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ magnet:?xt=urn:btih:6BE35952F9B530B5DE2D0BE8C25BBAA553091505
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164077.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164077.jpgsave_picture_164077.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ magnet:?xt=urn:btih:68607FC97AB5D7C777147764C4CACF1F1939F0BF
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164078.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164078.jpgsave_picture_164078.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ magnet:?xt=urn:btih:5C319951FDFE8F14B183C23EC812102F1189FBA0
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164079.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164079.jpgsave_picture_164079.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Ernesto Cortazar - The Best of Ernesto Cortazar, Vol. 1 (2022) [FLAC|Lossless|WE
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164080.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164080.jpgsave_picture_164080.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ magnet:?xt=urn:btih:B71225143E2B54AE2C8C3600E5B3D7FD03609C3A
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164081.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164081.jpgsave_picture_164081.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ magnet:?xt=urn:btih:B57B31D8BDDA1EC18AB7BE53C0ADCBE58E77A2E4
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164083.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164083.jpgsave_picture_164083.jpg" />
 </div>
 
 

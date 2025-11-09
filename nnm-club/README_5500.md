@@ -6,7 +6,7 @@ Kongas - Afrodesia (2019) EP (Produced by Cerrone) [MP3|320 Kbps] <Electronic, D
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169955.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169955.jpgsave_picture_169955.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:7E2FE4412E886A76436B4908457A2948E19C89F6
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169956.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169956.jpgsave_picture_169956.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:218B4E40B7C3D8D0EC52FBDFE067F3836A50BDD8
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169957.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169957.jpgsave_picture_169957.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Lionheart - Welcome to the West Coast III (2022) [FLAC|Lossless|WEB-DL|tracks] <
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169958.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169958.jpgsave_picture_169958.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:70CF73D6D54261B939B20E2285B31226362FADB9
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169959.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169959.jpgsave_picture_169959.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Uninstall Tool 3.7.3 Build 5720 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169960.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169960.jpgsave_picture_169960.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:6E65301FFBB2B8517D7229A3C04C75231CA2A821
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169961.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169961.jpgsave_picture_169961.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Brave Browser 1.18.70 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169962.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169962.jpgsave_picture_169962.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ O&O Defrag Professional + Server 27.0 Build 8050 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169963.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169963.jpgsave_picture_169963.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ magnet:?xt=urn:btih:7CBC2B0449CAFF3829DF78333D9ED0AA186775B2
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169964.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169964.jpgsave_picture_169964.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ magnet:?xt=urn:btih:335B846BA82F2D3E36B0BAC76C4FF64279FE58E1
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169965.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169965.jpgsave_picture_169965.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ magnet:?xt=urn:btih:6B714A1194B584CC8DF76952E5301CFBEFE045DE
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169966.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169966.jpgsave_picture_169966.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ magnet:?xt=urn:btih:0287F44A191E7F549DBD351C3E167E146ED88749
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169967.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169967.jpgsave_picture_169967.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Krilloan - Emperor Rising (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169968.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169968.jpgsave_picture_169968.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ magnet:?xt=urn:btih:2B0CCA6A3C7E4B81F172910C9A68AB41E9D0ECFE
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169969.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169969.jpgsave_picture_169969.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ magnet:?xt=urn:btih:19743BAE3FF1DDA4909DAEFA55CF32C099A666F0
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169970.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169970.jpgsave_picture_169970.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ magnet:?xt=urn:btih:0C3C0567480367C8A68CC849EC3984E5D9F226A2
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169971.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169971.jpgsave_picture_169971.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ Hallmark Card Studio 2022 Deluxe 22.0.1.2 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169972.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169972.jpgsave_picture_169972.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ magnet:?xt=urn:btih:0FE74E77B6423384B9B5B1A7B4AD63FAE623505A
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169973.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169973.jpgsave_picture_169973.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ magnet:?xt=urn:btih:10706D41A228937E656906DCE6D23DAEA985ECEE
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169974.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169974.jpgsave_picture_169974.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ After Lapse - Face the Storm (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive m
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169975.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169975.jpgsave_picture_169975.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Ashen (2019) [Ru/Multi] (1.0.2/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169976.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169976.jpgsave_picture_169976.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ NVIDIA GeForce Desktop Game Ready 545.92 WHQL + DCH [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169977.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169977.jpgsave_picture_169977.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ magnet:?xt=urn:btih:9D8FF87A0173491B11A7CA3D8CD64CFE3CCF2463
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169978.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169978.jpgsave_picture_169978.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ magnet:?xt=urn:btih:F0964C992F2AD521D41315191A58B63207022D3C
 >>Прочие зимние виды спорта
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169979.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169979.jpgsave_picture_169979.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ magnet:?xt=urn:btih:910EFA72D2381E06477912CA418B7ED95E9FC540
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169980.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169980.jpgsave_picture_169980.jpg" />
 </div>
 
 

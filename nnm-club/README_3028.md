@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94542.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94542.jpgsave_picture_94542.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:02AAD8E16C10B3954E2317902A3272308E159094
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94544.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94544.jpgsave_picture_94544.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:78698E61434587E1AD8E6DB4CDE8250F3697E1A3
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94545.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94545.jpgsave_picture_94545.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:58B383D4F7A528F4E6D498C0E1BC7111782BC6D0
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94546.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94546.jpgsave_picture_94546.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:6E547851FBAEA6BE3E7576F03A611C3798ECAA18
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94548.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94548.jpgsave_picture_94548.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:EDFF922BFADEAD46DA593844E56434BDF6839A39
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94549.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94549.jpgsave_picture_94549.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:D3C9CFAE173EE7AB8DDE9B2DE9E5329C081895D4
 >>Космос
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94550.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94550.jpgsave_picture_94550.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:274A943F9CC735DCEE884FF7F55BBDA2C23104E6
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94551.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94551.jpgsave_picture_94551.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:A9EE5BF76FE94C460A4B61405BE5B7E12BC5891A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94552.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94552.jpgsave_picture_94552.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:0A111878F02DE76AFE8CBBAFB1AB35A06F89E19A
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94558.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94558.jpgsave_picture_94558.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ magnet:?xt=urn:btih:ED474966350DDBF4EA89CC5A7E01337703086867
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94560.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94560.jpgsave_picture_94560.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ magnet:?xt=urn:btih:325FE5C9C1A423E5E8229771364B5B549AA45978
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94562.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94562.jpgsave_picture_94562.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ magnet:?xt=urn:btih:8433E4BA81643DEB3F5DD0F65F38ED0BA5096AF8
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94563.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94563.jpgsave_picture_94563.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Caramba Switcher 2025.10.03 Test [Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94564.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94564.jpgsave_picture_94564.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Flyoobe 1.25.485 Portable [En]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94566.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94566.jpgsave_picture_94566.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ magnet:?xt=urn:btih:FE3924594E4ADECE82A3444D35C97CD28FD1E620
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94568.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94568.jpgsave_picture_94568.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ Ronnie Romero - Voice Of Rock - Compilation (2012-2025) [MP3|320 Kbps] <Hard roc
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94570.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94570.jpgsave_picture_94570.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ magnet:?xt=urn:btih:7BB18F9748D72228D3C856B875B0EF69AA962404
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94571.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94571.jpgsave_picture_94571.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ magnet:?xt=urn:btih:A5C9B47B8F050F85A585D1C889E2E14E8C010160
 >>Картинки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94572.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94572.jpgsave_picture_94572.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ magnet:?xt=urn:btih:D59B843BCD1089291DA1584C7DFEE37E3704E788
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94574.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94574.jpgsave_picture_94574.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ magnet:?xt=urn:btih:F70026E575D3E5ACF22D3F10E8A3325F992AEC84
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94576.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94576.jpgsave_picture_94576.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ magnet:?xt=urn:btih:DC94989B88F1AA6E0F2E47D613C7169C89088877
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94578.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94578.jpgsave_picture_94578.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ magnet:?xt=urn:btih:E1062B406D2664DE560308100AE817CA099B6C59
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94579.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94579.jpgsave_picture_94579.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ magnet:?xt=urn:btih:7047AD9328FFEC73B5409932FBE973CA5180D36B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94582.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94582.jpgsave_picture_94582.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Lost in Random: The Eternal Die (2025) [Ru/Multi] (rc6/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94586.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94586.jpgsave_picture_94586.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Moros Protocol (2025) [Ru/Multi] (1.0.5) License GOG
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94587.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94587.jpgsave_picture_94587.jpg" />
 </div>
 
 

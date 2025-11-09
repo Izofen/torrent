@@ -6,7 +6,7 @@ Dena DeRose - Live at Jazz Standard, Vol. 2 (2008) MaxJazz [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_235955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_235955.jpgsave_picture_235955.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ TuneIn Radio 31.8 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235956.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235956.jpgsave_picture_235956.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Single Malt 15 - Full Throttle (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235957.jpgsave_picture_235957.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ One Commander 3.11.3.0 Portable  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_235959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_235959.jpgsave_picture_235959.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ magnet:?xt=urn:btih:43284E25C731862FFDD110365AC51DBFD0C1EB98
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_235960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_235960.jpgsave_picture_235960.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ magnet:?xt=urn:btih:4F1B098E830868E24D0E2392135AAF4DD2899E1C
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235961.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235961.jpgsave_picture_235961.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Firefox Browser 113.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235962.jpgsave_picture_235962.jpg" />
 </div>
 
 
@@ -187,7 +187,7 @@ Civil War - Studio Albums (5 releases) (2012-2022) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235963.jpgsave_picture_235963.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Scott Bradlee's Postmodern Jukebox - The Fourth Tuning (2023) [FLAC|Lossless|WEB
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235964.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235964.jpgsave_picture_235964.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ magnet:?xt=urn:btih:3CC435639FD29352CEBAD95A1F3A35323D07BF6D
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_235965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_235965.jpgsave_picture_235965.jpg" />
 </div>
 
 
@@ -265,7 +265,7 @@ magnet:?xt=urn:btih:0650B08E7DFAF42D342D21C501D07C69948BE322
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235966.jpgsave_picture_235966.jpg" />
 </div>
 
 
@@ -289,7 +289,7 @@ Microsoft Visual Studio 2022 Enterprise 17.3.3 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_235967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_235967.jpgsave_picture_235967.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ magnet:?xt=urn:btih:0FE97FEE6B69244FDD7572541AC2F1C888A86E24
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235969.jpgsave_picture_235969.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ Dr. Jeffrey Thompson - Creative Mind System 2.0 (2004) [FLAC|Lossless|tracks + .
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235970.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235970.jpgsave_picture_235970.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ magnet:?xt=urn:btih:624F922AD06292364CF05F7A264C6B85DBD6F0D5
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_235971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_235971.jpgsave_picture_235971.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ magnet:?xt=urn:btih:2AB05FD3C04A92CC41737BA45CC3CCA1666EA26C
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235972.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235972.jpgsave_picture_235972.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ magnet:?xt=urn:btih:1B53A14BFCE7FD2C7E4AFC06EAFF64A3BD8BDE44
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_235973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_235973.jpgsave_picture_235973.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ The Exploding Hearts - Guitar Romantic (2023) Expanded & Remastered [FLAC 24/44.
 >>Alternative, Punk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235974.jpgsave_picture_235974.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ magnet:?xt=urn:btih:BBA007F2A8014BCE9D4B9EAD4EC05E05B76E6388
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_235975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_235975.jpgsave_picture_235975.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ VA - 50 Lounge Chillout Tunes - Best of Cafe Lounge & Chill out Ambient Classics
 >>Downtempo, Trip-Hop, Lounge
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235976.jpgsave_picture_235976.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ Wondershare Recoverit for Mac 12.0.4.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235978.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235978.jpgsave_picture_235978.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Shadowland - Collection (1992-1996) 3CD [FLAC|Lossless|image + .cue] <Neo-progre
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235979.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235979.jpgsave_picture_235979.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Kassa Overall - ANIMALS (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235980.jpgsave_picture_235980.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Windows 10 21H2 x64 Rus by OneSmiLe [19044.1706]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_235981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_235981.jpgsave_picture_235981.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ magnet:?xt=urn:btih:1D062332C69D9100E15185011FF201FE1192CFD7
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235982.jpgsave_picture_235982.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ magnet:?xt=urn:btih:7B90000DE543FD2C14FA06D121DDB66AF68232F1
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_235983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_235983.jpgsave_picture_235983.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158866.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158866.jpgsave_picture_158866.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:8B1CB44E76C4322A0649D4B8B89F3D060C8F08C3
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158867.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158867.jpgsave_picture_158867.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ JUG Ru Group | FrontendConf 2022 - Профессиональная конфер
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158868.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158868.jpgsave_picture_158868.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Melon VPN - Secure Proxy VPN 7.9.546 Mod By Derrin [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158869.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158869.jpgsave_picture_158869.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:E9B7989995127244626EC59F0240E2E4A68A08AD
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158871.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158871.jpgsave_picture_158871.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:E7038F5F3AD89523430D7D108F73FD3A19632019
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158872.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158872.jpgsave_picture_158872.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:34E70678D82C9027EBDF1D477D5668CC87D79868
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158873.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158873.jpgsave_picture_158873.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ Zhimin Zhan | Selenium WebDriver Recipes in Python (2021) [PDF, EPUB] [EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158874.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158874.jpgsave_picture_158874.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ magnet:?xt=urn:btih:2B30ED60890E73CD7628CABF39347E736A4E4A43
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158875.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158875.jpgsave_picture_158875.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ magnet:?xt=urn:btih:341A2735601B609B8B9EFB01D4AB11129E455101
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158876.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158876.jpgsave_picture_158876.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ Jared James Nichols - 3 Albums (2014-2023) [FLAC|Lossless|image + .cue|tracks + 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158877.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158877.jpgsave_picture_158877.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ magnet:?xt=urn:btih:010D5A62BD6D65171CEB40EA82498984669C412E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158878.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158878.jpgsave_picture_158878.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ magnet:?xt=urn:btih:26D29BEA2CD105080866211958A4156F1571C110
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158879.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158879.jpgsave_picture_158879.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ magnet:?xt=urn:btih:3DAB142C723EC837880705CBB64818F4DC71E7F8
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158880.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158880.jpgsave_picture_158880.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ magnet:?xt=urn:btih:4977378F56411B8E21E6D4401DE6265E96BC3739
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158881.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158881.jpgsave_picture_158881.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Lightkey for Mac 4 v.4.5.1 [Multi]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158882.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158882.jpgsave_picture_158882.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ magnet:?xt=urn:btih:5D917BC1DB92B29813BCDE9DEAD93CB004A7612D
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158883.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158883.jpgsave_picture_158883.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ magnet:?xt=urn:btih:8C7E2D4828B1CC74C6196803195AC3B16EEA8183
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158884.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158884.jpgsave_picture_158884.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ magnet:?xt=urn:btih:F9839FA49918D262371AD70980F43F80C26EE0D2
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158885.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158885.jpgsave_picture_158885.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Udemy, Francis Gorman | AI Security Essentials (2023) WEB-DL [AD] [RU, EN / EN S
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158886.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158886.jpgsave_picture_158886.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Udemy, Arijit Datta | Nuke Full Comprehensive Course For Absolute Beginners Part
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158887.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158887.jpgsave_picture_158887.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Heinrich Kley | More Drawings by Heinrich Kley (1962) [PDF] [EN]
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158888.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158888.jpgsave_picture_158888.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ magnet:?xt=urn:btih:5AA47B578A27DC2501A70A9D8148E88162418104
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158889.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158889.jpgsave_picture_158889.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ magnet:?xt=urn:btih:BD030AE2253CF3ABDA3784FF7D3A85A1CC330C87
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158890.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158890.jpgsave_picture_158890.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ The Beatles - The Beatles 1962 – 1966 (Red Album) (1973) 2CD, 2023 Edition, Re
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158891.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158891.jpgsave_picture_158891.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ magnet:?xt=urn:btih:8C53BFCF877CFD940933B3B85B0080661292D04D
 >>Хоккей. Чемпионаты мира
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158892.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158892.jpgsave_picture_158892.jpg" />
 </div>
 
 

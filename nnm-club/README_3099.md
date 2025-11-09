@@ -6,7 +6,7 @@
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99474.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99474.jpgsave_picture_99474.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:1DA6B8FF9EDAD852F29BD1DEC825B758C7C2C1A6
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99475.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99475.jpgsave_picture_99475.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Derelict - Perpetuation (2012) [MP3|~295 кб/с]<Technical Progressive Death>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99476.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99476.jpgsave_picture_99476.jpg" />
 </div>
 
 
@@ -91,7 +91,7 @@ Jeff Hughell (ex-Brain Drill) - I Came To Hate [EP] (2009) [MP3|320 кб/с]<Tec
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99480.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99480.jpgsave_picture_99480.jpg" />
 </div>
 
 
@@ -119,7 +119,7 @@ magnet:?xt=urn:btih:498971FAC13080EF6ACEF2D0839969C2A376225C
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99483.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99483.jpgsave_picture_99483.jpg" />
 </div>
 
 
@@ -147,7 +147,7 @@ VA - Trance Maniacs Party: Trancefer Wave #96 (13.04.2012) [MP3|320 кб/с]<Tra
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99486.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99486.jpgsave_picture_99486.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - MAXI. Популярные новинки Раdio Плюс (2012) [MP3|256-
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99488.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99488.jpgsave_picture_99488.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ Trifixion - A Utopia For The Damned (2011) [MP3|~245 кб/с (V0)]<Brutal Techni
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99490.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99490.jpgsave_picture_99490.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Amongst The Deceit - Tribulations Of Man (2011) [MP3|320 кб/с]<Brutal Death>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99491.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99491.jpgsave_picture_99491.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ magnet:?xt=urn:btih:EDD4F0C6BBE039F7786672B9365D7E775E5CFBE7
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99492.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99492.jpgsave_picture_99492.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ magnet:?xt=urn:btih:42D31CF2F4925D5362D2B2D0B65F2A9A16818DA1
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99493.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99493.jpgsave_picture_99493.jpg" />
 </div>
 
 
@@ -316,7 +316,7 @@ Exumer - Fire & Damnation (2012) [MP3|320 кб/с]<Speed / Thrash Metal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99494.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99494.jpgsave_picture_99494.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ magnet:?xt=urn:btih:4920E535311EF50D74708E27BCF8EB2C94923973
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99497.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99497.jpgsave_picture_99497.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ magnet:?xt=urn:btih:72F2518D2D9C699B3DE007D5DE7EEBC170728050
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99499.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99499.jpgsave_picture_99499.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ magnet:?xt=urn:btih:147BF3EC77A6919CF43C09767C77E26CB81D7E97
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99503.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99503.jpgsave_picture_99503.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ magnet:?xt=urn:btih:68733C105078C93190E042F5C8F1EE149FB2A280
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99504.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99504.jpgsave_picture_99504.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ VA - Русские Новинки Vol.44 from AGR (2012) [MP3|320 кб/с]<Pop>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99508.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99508.jpgsave_picture_99508.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ magnet:?xt=urn:btih:C79563340A543B17A0E4E77893B371A408E8C422
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99509.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99509.jpgsave_picture_99509.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ magnet:?xt=urn:btih:FF242AFBCE560540BC0C02B2703C0DD461A18C7B
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99510.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99510.jpgsave_picture_99510.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ magnet:?xt=urn:btih:88EE6BE24FF1EA5F9B657BE4E3E066CED6719871
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99511.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99511.jpgsave_picture_99511.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ magnet:?xt=urn:btih:96A16F3008A310789E23FBD07932839F0A41FE5E
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99515.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99515.jpgsave_picture_99515.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Savage - Sons Of Malice (2012) [MP3|320 кб/с]<Heavy Metal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99518.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99518.jpgsave_picture_99518.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ Slackel KDE-4.8.2 [x32 + x64] (2xDVD)
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99520.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99520.jpgsave_picture_99520.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ magnet:?xt=urn:btih:B8CD9F2B4D8BF953407E42FD87AFC7E00A5B61B1
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99521.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99521.jpgsave_picture_99521.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ magnet:?xt=urn:btih:E7C7E1CA48CB1309BDE9ACFCCCF225D6C45EB3C5
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99522.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99522.jpgsave_picture_99522.jpg" />
 </div>
 
 
@@ -699,7 +699,7 @@ magnet:?xt=urn:btih:5D817449654010F33EC0DD775A89E1F060CE73CA
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99524.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99524.jpgsave_picture_99524.jpg" />
 </div>
 
 

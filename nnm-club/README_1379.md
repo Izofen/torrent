@@ -6,7 +6,7 @@ Beyond: Two Souls (2019) [Ru/Multi] (Build 5117920) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36209.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36209.jpgsave_picture_36209.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Maptorium GoogleSat Cache [Ru/En]
 >>Системы навигации и карты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36210.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36210.jpgsave_picture_36210.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:9392B51B54E2C80E3B9429886A5D6CA4E058EEEB
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36211.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36211.jpgsave_picture_36211.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Heavy Rain (2019) [Ru/Multi] (Build 5236766) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36212.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36212.jpgsave_picture_36212.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:9B32CDE80571BA7811ACF699EF84DF096E14D66E
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36213.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36213.jpgsave_picture_36213.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:B7E6E79D13B8EC5EF8B20BD900F28F22C75120AA
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36214.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36214.jpgsave_picture_36214.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:9A115DADA24614FF9ADC122237E1687B38DE270B
 >>Картинки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36215.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36215.jpgsave_picture_36215.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ magnet:?xt=urn:btih:3F07ADE6F8C737A744D2D31223131B994597CBF7
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36216.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36216.jpgsave_picture_36216.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ Windows 11 Pro 24H2 26100.2314 x64 by SanLex [Lightweight] [Ru/En] (2024.11.14)
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36217.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36217.jpgsave_picture_36217.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ magnet:?xt=urn:btih:AA8F70717B200B9B1AA39E125DF96791CCCEE563
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36218.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36218.jpgsave_picture_36218.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ magnet:?xt=urn:btih:F2D02DB011CCB5AAE234A121E4DFFD3A5E8F39D9
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36219.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36219.jpgsave_picture_36219.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ magnet:?xt=urn:btih:3600F00E561241361FC4051D1D4A96D388873B78
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36220.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36220.jpgsave_picture_36220.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ magnet:?xt=urn:btih:E95C4B96885C5CA05F6578001624DB54BE8A97D5
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36221.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36221.jpgsave_picture_36221.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ magnet:?xt=urn:btih:3BEF421B6E57F4F5875976D2AF4AC4E97CFDAF6F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36222.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36222.jpgsave_picture_36222.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ magnet:?xt=urn:btih:170F23B8F0FFE906424D7BCE703666FF771EB100
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36223.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36223.jpgsave_picture_36223.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ The Journey of AutUmn (2024) [Multi] (1.12) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36224.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36224.jpgsave_picture_36224.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ magnet:?xt=urn:btih:DB7CCB6E7B9A9C2D603BE3A068C5142484B505C7
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36225.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36225.jpgsave_picture_36225.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Adobe Photoshop 2025 26.1.0.121 Full (x64) Portable by 7997 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36226.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36226.jpgsave_picture_36226.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Detroit: Become Human (2019) [Ru/Multi] (Build 12158144) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36227.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36227.jpgsave_picture_36227.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ magnet:?xt=urn:btih:A46813C37357D3599A2B32A0A8E363FA981B647C
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36228.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36228.jpgsave_picture_36228.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ magnet:?xt=urn:btih:A46813C37357D3599A2B32A0A8E363FA981B647C
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36229.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36229.jpgsave_picture_36229.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ Sam & Max: Save the World (2020) [Ru/Multi] (2.0.0) License GOG [Remastered]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36230.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36230.jpgsave_picture_36230.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ magnet:?xt=urn:btih:1E6CBE5F0C88C7F69243EDEE62E82326248018E4
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36231.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36231.jpgsave_picture_36231.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Adobe Photoshop 2025 26.1.0.121 Light (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36232.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36232.jpgsave_picture_36232.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ magnet:?xt=urn:btih:93E20428D737F1253837B6A112BC207C238A1546
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36233.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36233.jpgsave_picture_36233.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ magnet:?xt=urn:btih:93E20428D737F1253837B6A112BC207C238A1546
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36234.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36234.jpgsave_picture_36234.jpg" />
 </div>
 
 

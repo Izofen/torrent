@@ -6,7 +6,7 @@ VA - I Love ZYX Italo Disco Collection 3 (2005) 3 CD [OGG Vorbis|480 Kbps] <Elec
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68870.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68870.jpgsave_picture_68870.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Booka Shade - For Real (2025) [FLAC|Lossless|WEB-DL|tracks] <House>
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68871.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68871.jpgsave_picture_68871.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:97809CF68B87746C522033603A3019A6F5FDD818
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68872.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68872.jpgsave_picture_68872.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:3496C1FEF7D4ABF26CC5A63FE8D3F3A36EFE9B4C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68873.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68873.jpgsave_picture_68873.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:F7000A0BC564BA92D568B57BC1056C5C749415A7
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68874.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68874.jpgsave_picture_68874.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ magnet:?xt=urn:btih:C2602A92BB8861F55374A7D2AFFA9A6FD701C9CC
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68875.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68875.jpgsave_picture_68875.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ Avalanch - 30 Aniversario (2025) 2 x CD [FLAC|Lossless|image + .cue] <Heavy Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68876.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68876.jpgsave_picture_68876.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ magnet:?xt=urn:btih:DDE29F9D528C4D7C78FF7A55F99D4F86EBB2F5EB
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68877.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68877.jpgsave_picture_68877.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ magnet:?xt=urn:btih:190DEE83394B65F16C9F0E2AAEF1EB0617546C56
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68878.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68878.jpgsave_picture_68878.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ Mia Morgan - Silber (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Deutschrock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68879.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68879.jpgsave_picture_68879.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ magnet:?xt=urn:btih:C9D297A26202E9982E3EFFCDE4A4385FB337D347
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68880.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68880.jpgsave_picture_68880.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ magnet:?xt=urn:btih:1CF146EC8BC7D452B15F810917BF76CED53324E5
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68881.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68881.jpgsave_picture_68881.jpg" />
 </div>
 
 
@@ -315,7 +315,7 @@ Tina Turner - Private Dancer (1984) 40th Anniversary Edition, 2025, Rhino [FLAC|
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68882.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68882.jpgsave_picture_68882.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ magnet:?xt=urn:btih:28E2CF979C43C429DF2EFCEA16DFE06E28A2F461
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68883.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68883.jpgsave_picture_68883.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ magnet:?xt=urn:btih:ACE2DFCAABA35E5596F4E90891867D338F88B2F6
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68884.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68884.jpgsave_picture_68884.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ Unit Converter Pro / Конвертер Единиц Pro v2.6.3 Mod by Balatan [
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68885.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68885.jpgsave_picture_68885.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ magnet:?xt=urn:btih:2700D9D29609913745E1AC5DFAF13D4E1A4DF558
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68886.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68886.jpgsave_picture_68886.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ magnet:?xt=urn:btih:00B51F3BA3172633966C35D7731425B955DC6C70
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68887.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68887.jpgsave_picture_68887.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ magnet:?xt=urn:btih:55B562600F56C7EB20950284AD3839A84283057B
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68888.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68888.jpgsave_picture_68888.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ magnet:?xt=urn:btih:AB7DCAA6ECADE205D4225689BD9BC8403C60D113
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68889.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68889.jpgsave_picture_68889.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ VA - Compilation Part 149 Electronic (2025) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68890.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68890.jpgsave_picture_68890.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ magnet:?xt=urn:btih:FE5815E07003B79FD063AE0EDDC0FAAB55531AFD
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68891.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68891.jpgsave_picture_68891.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Tina Turner - Private Dancer (1984) 40th Anniversary Edition, 2025, Rhino [MP3|3
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68892.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68892.jpgsave_picture_68892.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ magnet:?xt=urn:btih:FADAE20D67E543C75A973092A96C2304524AA68B
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68893.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68893.jpgsave_picture_68893.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ magnet:?xt=urn:btih:5DBFFAA2887C4C44A11118836DDC340C66122F9C
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68894.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68894.jpgsave_picture_68894.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ Fallujah - Empyrean (2022) [FLAC|24/96|image + .cue|Vinyl-Rip] <Progressive, Tec
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68895.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68895.jpgsave_picture_68895.jpg" />
 </div>
 
 

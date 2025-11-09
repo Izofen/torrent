@@ -6,7 +6,7 @@ Riverside - Live ID. (2025) 2 x CD, Limited Edition [FLAC|Lossless|image + .cue]
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71158.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71158.jpgsave_picture_71158.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:DEE296D41890E4A1E7B0D957E0721C55E6CC499C
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71159.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71159.jpgsave_picture_71159.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:A01DE2970BDE35A8B1B78F5D38B90B7E5FDFAF9A
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71160.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71160.jpgsave_picture_71160.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ David Rose - Let It Slide (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71161.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71161.jpgsave_picture_71161.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ VA - Sky Chaser - Yearmix 2024 (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71162.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71162.jpgsave_picture_71162.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ VA - The Midnighters Vol. I (2024) Signora Ward Records [FLAC|Lossless|Web-DL|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71163.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71163.jpgsave_picture_71163.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ VA - Italo Strikes Back Vol. 2 (1998) 2 CD [MP3|320 Kbps] <Electronic, Pop, Euro
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71164.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71164.jpgsave_picture_71164.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ VA - The Midnighters Vol. II (2025) Signora Ward Records [FLAC|Lossless|Web-DL|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71165.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71165.jpgsave_picture_71165.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Peter Kern - Guitar Man (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71166.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71166.jpgsave_picture_71166.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Pep'sBrown - I Fell In Love (2025) [FLAC 24/192|Lossless|WEB-DL|tracks] <Rhythm 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71167.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71167.jpgsave_picture_71167.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ The Hellacopters - Overdriver (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Garage
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71168.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71168.jpgsave_picture_71168.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ magnet:?xt=urn:btih:A3F3074D5812D0EE6330117FD23C09A80565F6F0
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71169.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71169.jpgsave_picture_71169.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Nicole Zuraitis - Siren songs volume 1 (2025) [FLAC 24/48|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71170.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71170.jpgsave_picture_71170.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ magnet:?xt=urn:btih:EDE2612C3D86C5D162C796DCD4FC84DC706B27D1
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71171.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71171.jpgsave_picture_71171.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Zaza Desiderio - Osmoses (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Contemporar
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71172.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71172.jpgsave_picture_71172.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ Make Them Suffer - Сollection (2010-2024) 6CD [FLAC|Lossless|tracks + .cue] <De
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71173.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71173.jpgsave_picture_71173.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ The 2:19 - Keep My Will Strong (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71174.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71174.jpgsave_picture_71174.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ VA - Italo Strikes Back (1997) [MP3|320 Kbps] <Electronic, Pop, Euro House>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71175.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71175.jpgsave_picture_71175.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ magnet:?xt=urn:btih:66935EBE8CEA3B3DDD70B7737E03577482552964
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71176.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71176.jpgsave_picture_71176.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ Salah Khaili & Eric D Larsen - Out of the Blues (2025) [FLAC 24/44.1|Lossless|WE
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71177.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71177.jpgsave_picture_71177.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Kadi Vija 3 - Freedom (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Vocal Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71178.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71178.jpgsave_picture_71178.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ My Silent Wake - Lost In Memories, Lost In Grief (2024) [FLAC|Lossless|image + .
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71179.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71179.jpgsave_picture_71179.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ magnet:?xt=urn:btih:0154A43EF8A57CBEC6B1A5B42A2449C6F3AF32F3
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71180.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71180.jpgsave_picture_71180.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ In Vain - Solemn (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Progressive Death/B
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71181.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71181.jpgsave_picture_71181.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ The Exu - The Exu (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Contemporary Jaz
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71182.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71182.jpgsave_picture_71182.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Rui Fernandes - Para Dois Corações (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71183.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71183.jpgsave_picture_71183.jpg" />
 </div>
 
 

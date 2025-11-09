@@ -6,7 +6,7 @@ PullTube 1.8.5.28 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113533.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113533.jpgsave_picture_113533.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ The Red Holloway / Clark Terry Sextet - Locksmith Blues (1989) Concord Jazz [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113534.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113534.jpgsave_picture_113534.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Sonny Stitt - Plays Jimmy Giuffre Arrangements (1959) 2010, American Jazz Classi
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113535.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113535.jpgsave_picture_113535.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ M.O.D - U.S.A. for M.O.D (1987) [WavPack|32/96|image + .cue|Vinyl-Rip] <Thrash M
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113536.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113536.jpgsave_picture_113536.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Darkthrone - A Blaze in the Northern Sky (1992) Reissue, 2009, Peaceville [FLAC|
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113537.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113537.jpgsave_picture_113537.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ magnet:?xt=urn:btih:680077D83BA132D0C3704C8609291041C7621546
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113538.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113538.jpgsave_picture_113538.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ magnet:?xt=urn:btih:88C54D85C73C331C60B7BEA36C78556AFD1C28AC
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113539.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113539.jpgsave_picture_113539.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Ben Hemming - Darkness Before Dawn (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues R
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113540.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113540.jpgsave_picture_113540.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Cosmic Promise - Navigator (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113541.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113541.jpgsave_picture_113541.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ magnet:?xt=urn:btih:3554E8C34C8D62A46FB6C34360519062ABAA9397
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113542.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113542.jpgsave_picture_113542.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Skeewiff - Something Like That (2024) [FLAC|Lossless|WEB-DL|tracks] <Big Beat, F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113543.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113543.jpgsave_picture_113543.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Nine Below Zero - Denmark (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113544.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113544.jpgsave_picture_113544.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Ty Clayton - An Animist Hymnal (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113545.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113545.jpgsave_picture_113545.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Allavsoft Video Downloader Converter 3.26.2.8837  [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113546.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113546.jpgsave_picture_113546.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ NCH ClickCharts Diagram Pro 9.15 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113547.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113547.jpgsave_picture_113547.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Navicat for SQLite on Mac 16.3.7 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113548.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113548.jpgsave_picture_113548.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ Arms Grace - Summit (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113549.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113549.jpgsave_picture_113549.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ Ink2Go 1.9.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113550.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113550.jpgsave_picture_113550.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ Samuel Bowen - Closer to the Sky (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113551.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113551.jpgsave_picture_113551.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ iBarcoder 3.14.7 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113552.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113552.jpgsave_picture_113552.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ magnet:?xt=urn:btih:F319A922D5A04F6D8AC4E0ADD252716FA69FACED
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113553.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113553.jpgsave_picture_113553.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ Al Rodriguez - Nowhere station (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113554.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113554.jpgsave_picture_113554.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ Deckset 2.0.28 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113555.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113555.jpgsave_picture_113555.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Stephane Grappelli - Stephane Grappelli with Strings (1961,1970) 2CD. 2020, Labe
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113556.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113556.jpgsave_picture_113556.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ magnet:?xt=urn:btih:8F7D58401E3828EDDF3554FB4B1AF129234DAE2E
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113557.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113557.jpgsave_picture_113557.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ magnet:?xt=urn:btih:0B18515AA1D828C6B5365C48652A00F66C035BD4
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113558.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113558.jpgsave_picture_113558.jpg" />
 </div>
 
 

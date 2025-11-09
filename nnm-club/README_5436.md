@@ -6,7 +6,7 @@ Fields Of The Nephilim - Elizium (1990) [FLAC|Lossless|image + .cue] <Gothic Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168242.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168242.jpgsave_picture_168242.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Acker Bilk - Great Moments With... (1998) Timeless Records [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168243.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168243.jpgsave_picture_168243.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Mitchell Gaynor M.D. - Crystal Sonic Sound Sleep (2013) [FLAC|Lossless|tracks + 
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168244.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168244.jpgsave_picture_168244.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:C59A5EEC546AE24FCC6290B4972E2725EBC6D2B0
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168245.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168245.jpgsave_picture_168245.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ magnet:?xt=urn:btih:3295FF232EB08F4D7C651FD409F0972529A14A8E
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168246.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168246.jpgsave_picture_168246.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Podlodka QA Crew | Карьерный рост и процессы тестир�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168247.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168247.jpgsave_picture_168247.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ VA - If U Need Me: Rap Selection (2019) [MP3|320 Kbps] <Rap>
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168248.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168248.jpgsave_picture_168248.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ magnet:?xt=urn:btih:7BC45C66A8AAB35FC0D837EED0719E0BE48A60FC
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168249.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168249.jpgsave_picture_168249.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ magnet:?xt=urn:btih:2FF760B1E4703309C30998BF58E2457F267533E4
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168250.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168250.jpgsave_picture_168250.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ Liedfett - Hi! (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Deutschrock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168251.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168251.jpgsave_picture_168251.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ magnet:?xt=urn:btih:7752D25C40E82B9E11EF903B90473A7A9F1C5B53
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168252.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168252.jpgsave_picture_168252.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ VA - Xmas Hot Wishes 2019 [MP3|320 Kbps] <Balearic, Downtempo>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168253.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168253.jpgsave_picture_168253.jpg" />
 </div>
 
 
@@ -315,7 +315,7 @@ magnet:?xt=urn:btih:6781DB3644D78C02D0365F8192045DFDE6625968
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168254.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168254.jpgsave_picture_168254.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ magnet:?xt=urn:btih:6803D852A518B0D057FC6A727FFF6E77B0DB6CF6
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168255.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168255.jpgsave_picture_168255.jpg" />
 </div>
 
 
@@ -365,7 +365,7 @@ magnet:?xt=urn:btih:90DA777B16B8A74AA6D95188AF6F06928B4799F6
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168256.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168256.jpgsave_picture_168256.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ Universal Media Creation Tool 07.12.2021 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168257.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168257.jpgsave_picture_168257.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ magnet:?xt=urn:btih:3D94B1E058353287714DE4D3FDF5457E5A16BF37
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168258.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168258.jpgsave_picture_168258.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ magnet:?xt=urn:btih:8A8B115966C927866091C0AB68DC9BADF2D52BD3
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168259.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168259.jpgsave_picture_168259.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ Nordic Union - Studio Albums (3 releases) (2016 - 2022) hand made [restored, dec
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168260.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168260.jpgsave_picture_168260.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ Speedtest от Ookla 5.2.2 Mod by maxi123444 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168261.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168261.jpgsave_picture_168261.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ ContaCam 9.9.20 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168262.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168262.jpgsave_picture_168262.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ magnet:?xt=urn:btih:BF96E75773DA92D193B0E016A47D49240134CE51
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168263.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168263.jpgsave_picture_168263.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ magnet:?xt=urn:btih:94547FDC295945A0710D116424221FEBF097A104
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168264.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168264.jpgsave_picture_168264.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Node Video - Pro Video Editor 6.8.3 Mod by PieMods [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168265.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168265.jpgsave_picture_168265.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ VA - House 2020 (2019) [MP3|320 Kbps] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168266.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168266.jpgsave_picture_168266.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ Live Wallpaper & Themes 4K Pro 14.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168267.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168267.jpgsave_picture_168267.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19826.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19826.jpgsave_picture_19826.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ V Rising (2024) [Ru/Multi] (1.1.0.1-r91217-b18/dlc) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19827.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19827.jpgsave_picture_19827.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:EE69B10E11EA7D830A62B115CAB889BF4CFEF331
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19828.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19828.jpgsave_picture_19828.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Microsoft  запустила для всех ИИ-функцию Recall, кот
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19829.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19829.jpgsave_picture_19829.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Total Commander 11.51 Extended 25.4 Full / Lite RePack (& Portable) by BurSoft [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19830.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19830.jpgsave_picture_19830.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Post Trauma (2025) [Ru/Multi] (1.05.02) Repack Let'sРlay [Supporter Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19831.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19831.jpgsave_picture_19831.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:7EB5535570F71F94FD3805A6E8E29167675F8DAA
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19832.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19832.jpgsave_picture_19832.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:9E04D40161B23D72BB4F48380CC01C7BFAF0ADB5
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19833.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19833.jpgsave_picture_19833.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ The Gnomon Workshop, Jordan Soler | Realistic Dog Grooming for Production with X
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19834.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19834.jpgsave_picture_19834.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Internet Download Manager 6.42 Build 35 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19835.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19835.jpgsave_picture_19835.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:297250D1E2CCEA314C2698E19E29693C6D3569D6
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19836.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19836.jpgsave_picture_19836.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Andrew Freed, Eniko Rozsa, Cari Jacobs | Effective Conversational AI: Chatbots t
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19837.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19837.jpgsave_picture_19837.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Smokie/Смоуки - Bright Lights & Back Alleys/Яркий Свет И Тем�
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19838.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19838.jpgsave_picture_19838.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ magnet:?xt=urn:btih:F39CD250A23C420F07AC529951AC06EB5ACFA5E4
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19839.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19839.jpgsave_picture_19839.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ StaxRip 2.46.5 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19840.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19840.jpgsave_picture_19840.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ magnet:?xt=urn:btih:8315E344878D9F496FEC1DFE26FB65AA99EDCA01
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19841.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19841.jpgsave_picture_19841.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ VA - Summer Pool Party 2025 (Deep Strips Records) [FLAC|Lossless|WEB-DL|tracks] 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19842.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19842.jpgsave_picture_19842.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ magnet:?xt=urn:btih:1A835630627286BE7F8C6DC15C5888C18F14BE9A
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19843.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19843.jpgsave_picture_19843.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ magnet:?xt=urn:btih:F653BE0C20FE49E2DEA3C63CF861349953B5F625
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19844.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19844.jpgsave_picture_19844.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Modern Music Solutions - Sub-Lif 1.0.0 VST 3, AAX [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19845.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19845.jpgsave_picture_19845.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ magnet:?xt=urn:btih:82FC10541A47C551A7B15E30A38795114438F0FC
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19846.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19846.jpgsave_picture_19846.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ magnet:?xt=urn:btih:9B34B5B26102F8AF454E0E4C2D88C0F794D85857
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19847.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19847.jpgsave_picture_19847.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ Alexandra Ilieva - Sax Remix Compilation (2025) [MP3|320 Kbps] <Jazz, Instrument
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19848.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19848.jpgsave_picture_19848.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ magnet:?xt=urn:btih:ABCBEEDF5AF01A82A8CB5AF2525A675419908996
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19849.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19849.jpgsave_picture_19849.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ YT Downloader 9.12.5 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19850.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19850.jpgsave_picture_19850.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ Cockos REAPER 7.37 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19851.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19851.jpgsave_picture_19851.jpg" />
 </div>
 
 

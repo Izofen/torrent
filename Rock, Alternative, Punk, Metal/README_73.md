@@ -6,7 +6,7 @@ MC5 - Back In The USA (1970) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69916.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69916.jpgsave_picture_69916.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Odin - Las Puertas Del Destino (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69918.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69918.jpgsave_picture_69918.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Janus - Gravedigger Hybrid (2006) Version, 2025, M.i.G [FLAC|Lossless|WEB-DL|tra
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69923.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69923.jpgsave_picture_69923.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Ringo Starr - Look Up (2025) [FLAC|Lossless|tracks + .cue] <Rock, Country>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69926.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69926.jpgsave_picture_69926.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ magnet:?xt=urn:btih:70B055AF06C83B2E0755D8F96A44BB959E0AFFF5
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69927.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69927.jpgsave_picture_69927.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Marko Hietala - Roses From The Deep (2025) [FLAC|Lossless|image + .cue] <Symphon
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69932.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69932.jpgsave_picture_69932.jpg" />
 </div>
 
 
@@ -171,7 +171,7 @@ Tori Amos - The Music of Tori and the Muses (2025) [FLAC|Lossless|WEB-DL|tracks]
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69938.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69938.jpgsave_picture_69938.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ David Lee Roth - The Warner Recordings 1985–1994 (2025) 5xCD, Reissue, Compila
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69951.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69951.jpgsave_picture_69951.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Evilizers - Lord Of The Lost Souls (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69975.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69975.jpgsave_picture_69975.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:749B00486F7A8D86C01B8B0A53569F0E2F678EAA
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70015.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70015.jpgsave_picture_70015.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ Megadeth - The World Needs A Hero (2001) Japanese Edition [FLAC|Lossless|image +
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70038.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70038.jpgsave_picture_70038.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ Virgin Steele - Virgin Steele I (The Anniversary Edition) (1982) Remixed, Reissu
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70051.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70051.jpgsave_picture_70051.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ Dirkschneider - Balls To The Wall Reloaded (2025) [FLAC|Lossless|WEB-DL|tracks] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70067.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70067.jpgsave_picture_70067.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ DGM - Tragic Separation (2020) [FLAC|Lossless|image + .cue] <Progressive Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70101.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70101.jpgsave_picture_70101.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ Francesco Marras - Out Of The Fire (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70153.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70153.jpgsave_picture_70153.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Ulcerate - Cutting The Throat Of God (2024) [FLAC|Lossless|image + .cue] <Death 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70168.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70168.jpgsave_picture_70168.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Retromorphosis - Psalmus Mortis (2025) [FLAC|Lossless|WEB-DL|tracks] <Technical 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70192.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70192.jpgsave_picture_70192.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ magnet:?xt=urn:btih:B94CCB3C923D20F0944588D5A2639BBCBCA711FC
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70220.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70220.jpgsave_picture_70220.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ Warmblood - Putrefaction Emphasis (2017) [FLAC|Lossless|image + .cue] <Death Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70234.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70234.jpgsave_picture_70234.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ The Cruel Intentions - No Sign of Relief (2018) [MP3|320 Kbps] <Glam Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70249.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70249.jpgsave_picture_70249.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ Judas Priest - Rocka Rolla (1974) Japanese Edition, 50th Anniversary, Remixed, R
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70261.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70261.jpgsave_picture_70261.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ H.E.R.O. - Ghost Of You (2025) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70280.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70280.jpgsave_picture_70280.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ VA - Gothic Valentines (2025) [FLAC|Lossless|WEB-DL|tracks] <Gothic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70325.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70325.jpgsave_picture_70325.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Limuria - Lost World (2025) [MP3|320 Kbps] <Progressive Metal, Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70327.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70327.jpgsave_picture_70327.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ Leprous - Aphelion (2021) 2xCD, Reissue, 2023, Inside Out Music, Limited Edition
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70333.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70333.jpgsave_picture_70333.jpg" />
 </div>
 
 
@@ -684,7 +684,7 @@ Enbound - Set It Free (2025) [FLAC|Lossless|WEB-DL|tracks] <Prog, Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70335.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70335.jpgsave_picture_70335.jpg" />
 </div>
 
 

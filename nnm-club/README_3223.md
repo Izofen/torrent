@@ -6,7 +6,7 @@
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104151.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104151.jpgsave_picture_104151.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:55C422E1F5C57C47BAE783333E74CF8CA5B82277
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104152.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104152.jpgsave_picture_104152.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ MotoGP. Этап 14 из 20. Гран-при Эмилии-Романьи. Ква
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104153.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104153.jpgsave_picture_104153.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:2F1B62D95B98704BB47E9EFED932C728ACC237C3
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104154.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104154.jpgsave_picture_104154.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Jumaane Smith - Come On Home (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104155.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104155.jpgsave_picture_104155.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ JD Simo & Luther Dickinson - Do The Rump! (2024) [FLAC 24/48|Lossless|WEB-DL|tra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104156.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104156.jpgsave_picture_104156.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ Alyssa Galvan - Darling (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104157.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104157.jpgsave_picture_104157.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:66540C4859B757CE276FE09F511F4E344ED41E3F
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104158.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104158.jpgsave_picture_104158.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ magnet:?xt=urn:btih:949E68C7851C2E0F4F6805E42841D919C9C228A6
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104159.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104159.jpgsave_picture_104159.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ magnet:?xt=urn:btih:2209F2A56E7BB47501A13AF9F40C0E90A654DAB5
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104160.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104160.jpgsave_picture_104160.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ magnet:?xt=urn:btih:944BB1B42B760A0573C509BDAE49F7A11CD30609
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104161.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104161.jpgsave_picture_104161.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ magnet:?xt=urn:btih:6BA14A91B25C38E917FBFF9FE5BFCF1755772903
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104162.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104162.jpgsave_picture_104162.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ VA - Dance the Night Away, Vol. 1 (2024) [MP3|320 Kbps] <Dance, Club, House, Ele
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104163.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104163.jpgsave_picture_104163.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ Markus Schulz - Global DJ Broadcast World Tour: Avalon, Los Angeles (2024-09-12)
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104164.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104164.jpgsave_picture_104164.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ magnet:?xt=urn:btih:D392C8421AD13F61CE95931FAC5ED7EF6CAF8E35
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104165.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104165.jpgsave_picture_104165.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ Lofi Waves Japan - Whispers of Kyoto (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104166.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104166.jpgsave_picture_104166.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ Tony Levin - Bringing It Down to the Bass (2024) [FLAC 24/48|Lossless|WEB-DL|tra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104167.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104167.jpgsave_picture_104167.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ VA - DJ Hits 1997 November (1997) [OGG Vorbis|480 Kbps] <Electronic, Pop, Euroda
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104168.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104168.jpgsave_picture_104168.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ VA - Trance Clubbers, Vol. 1 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104169.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104169.jpgsave_picture_104169.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ magnet:?xt=urn:btih:37E38C70A8C75F721C7B5FECD321818A49ED717A
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104170.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104170.jpgsave_picture_104170.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ magnet:?xt=urn:btih:4C147CA44A96B31C4BBFF02A15FB602A4963DB31
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104171.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104171.jpgsave_picture_104171.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ magnet:?xt=urn:btih:18229C274F4A5DFAC018869883F0B70AA4D150DA
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104172.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104172.jpgsave_picture_104172.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ magnet:?xt=urn:btih:35E03F5FA71CFBBC7015DEA1F8FFB2F9E128FD41
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104173.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104173.jpgsave_picture_104173.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ VA - EDM Anthems 2024: Top 40 Club Beats For DJs (2024) [MP3|320 Kbps] <Dance, C
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104174.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104174.jpgsave_picture_104174.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ VA - Trance Clubbers, Vol. 2 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104175.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104175.jpgsave_picture_104175.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ VA - Progressive House Waves, Vol.01 (2024) [MP3|320 Kbps] <House, Progressive H
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104176.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104176.jpgsave_picture_104176.jpg" />
 </div>
 
 

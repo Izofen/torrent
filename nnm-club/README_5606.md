@@ -6,7 +6,7 @@ Yuki Onna (2020) [Multi] (1.0) Scene DARKSiDERS
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172748.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172748.jpgsave_picture_172748.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:D80145C8AECB9C07951ED9862A843214B0C41537
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172749.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172749.jpgsave_picture_172749.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Inunaki Tunnel (2019) [Multi] (1.0) Scene DARKSiDERS
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172750.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172750.jpgsave_picture_172750.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Anna Skoulikari | Learning Git (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172751.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172751.jpgsave_picture_172751.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ magnet:?xt=urn:btih:D76A4C18C77BFA2CD06E14B615380979BFB1295C
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172752.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172752.jpgsave_picture_172752.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ Garden In! (2023) [Multi] (1.0.8) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172753.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172753.jpgsave_picture_172753.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ NG. Эпические приключения с Берти Грегори / Epi
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172754.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172754.jpgsave_picture_172754.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:DEEB1E963B9F32735294E16C26FF59A407567A43
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172755.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172755.jpgsave_picture_172755.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:26C49382CDD9C172EFB349F9D06C299FA906A18F
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172756.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172756.jpgsave_picture_172756.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ MathType 7.7.0.237 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172757.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172757.jpgsave_picture_172757.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ Duplicate File Finder Pro 2317 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172758.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172758.jpgsave_picture_172758.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ AOMEI Backupper Technician Plus 7.3.2 (16.10.2023) RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172759.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172759.jpgsave_picture_172759.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ magnet:?xt=urn:btih:C1BC9F7F960E553E20D1A80D896C1AE2838C55D0
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172760.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172760.jpgsave_picture_172760.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Moovit v5.128.0.596 Mod by 0x7d [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172761.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172761.jpgsave_picture_172761.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Advanced SystemCare Pro 17.0.1.107 Portable by zeka.k [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172762.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172762.jpgsave_picture_172762.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ magnet:?xt=urn:btih:A04C95C4DED2576FACEFA885AA068F18FA362EB7
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172763.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172763.jpgsave_picture_172763.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ Stigmatized Property (2019) [Ru/Multi] (1.0) Scene PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172764.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172764.jpgsave_picture_172764.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ magnet:?xt=urn:btih:7C141CDE7D686A36D8913B5D11620E3BF1E276C2
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172765.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172765.jpgsave_picture_172765.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ LosslessCut 3.58.0 Standalone (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172766.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172766.jpgsave_picture_172766.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ magnet:?xt=urn:btih:D60E758756CDB5A01221A17A2EFB625ABB4091AF
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172767.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172767.jpgsave_picture_172767.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ OCCT 12.1.10 Final Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172768.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172768.jpgsave_picture_172768.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ Wondershare UniConverter 15.0.3.14 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172769.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172769.jpgsave_picture_172769.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ Reg Organizer 9.31 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172770.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172770.jpgsave_picture_172770.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ VSDC Video Editor Pro 8.3.2.486 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172771.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172771.jpgsave_picture_172771.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ tvQuickActions Pro 3.3.0 Mod by Alex.Stranik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172772.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172772.jpgsave_picture_172772.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ magnet:?xt=urn:btih:761D19E446A79CD4E54675185842E9B4F6AB5878
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172773.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172773.jpgsave_picture_172773.jpg" />
 </div>
 
 

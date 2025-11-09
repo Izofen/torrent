@@ -6,7 +6,7 @@ Landscape - Xcursions 2 Other Versions (2023) [MP3|320 Kbps] <New Wave, Synthpop
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231317.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231317.jpgsave_picture_231317.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Wonderful Trance Tracks (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231342.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231342.jpgsave_picture_231342.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - Summer Mix 2023 Beach Music (2023) [MP3|320 Kbps] <Dance, Club, House, Elec
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231369.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231369.jpgsave_picture_231369.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Crowd+Ctrl - Smoke & Mirrors (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231409.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231409.jpgsave_picture_231409.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ VA - Black Lemon Top 100 (2023) [MP3|320 Kbps] <Dance, Club, House, Electronic>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231437.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231437.jpgsave_picture_231437.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ VA - Zenon Records: 20 Years (2023) [FLAC|Lossless|WEB-DL|tracks] <Trance>
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231439.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231439.jpgsave_picture_231439.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ VA - Nothing But... Trancetopia, Vol. 06 (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231447.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231447.jpgsave_picture_231447.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ VA - 10 Years Of Suanda Music - Mixed by Tycoos (2023) [MP3|320 Kbps] <Trance, U
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231476.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231476.jpgsave_picture_231476.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ VA - Deep Melancholic Vibes (2023) [MP3|320 Kbps] <House, Deep House, Dance, Clu
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231504.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231504.jpgsave_picture_231504.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ VA - Armada Electronic Elements - Ibiza (2023) [MP3|320 Kbps] <Progressive House
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_231590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231590.jpgsave_picture_231590.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Dexter Colt - Train Of Thought (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Ele
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_231637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231637.jpgsave_picture_231637.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Any Second - Sünde : Mensch (2018) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks]
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231685.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231685.jpgsave_picture_231685.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ VA - Trance 2023 Vol. 6 [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231719.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231719.jpgsave_picture_231719.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ VA - Top 8 June 2023 Emotional And Uplifting Trance (2023) [MP3|320 Kbps] <Tranc
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231746.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231746.jpgsave_picture_231746.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ VA - Uplifting Only Top 15: June 2023 (Extended Mixes) (2023) [MP3|320 Kbps] <Tr
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231761.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231761.jpgsave_picture_231761.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ VA - Keep It Trance Vol. 13 (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231768.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231768.jpgsave_picture_231768.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ VA - Armin van Buuren - A State Of Trance 1127 (2023) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231775.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231775.jpgsave_picture_231775.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ VA - 40 Dance Summer Hits (2023) [MP3|320 Kbps] <Dance, Club, House, Electronic>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231777.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231777.jpgsave_picture_231777.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Thomas Barrandon - 2 Albums (2023) [FLAC|Lossless|WEB-DL|tracks] <80's, electro,
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231785.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231785.jpgsave_picture_231785.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ VA - Abora 100: Timeless Favorites (Mixed by Ori Uplift) (2023) [MP3|320 Kbps] <
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231867.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231867.jpgsave_picture_231867.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ VA - Armin van Buuren - A State Of Trance 1129 (2023) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231886.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231886.jpgsave_picture_231886.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ VA - Chill Out, Vol. 1 (2023) [MP3|320 Kbps] <Chillout, Downtempo, Balearic>
 >>Downtempo, Trip-Hop, Lounge
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232001.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232001.jpgsave_picture_232001.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Sparks - The Girl Is Crying In Her Latte (2023) [FLAC|Lossless|image + .cue] <Ne
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232053.jpgsave_picture_232053.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ VA - Nothing But... Trancetopia, Vol. 05 (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232392.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232392.jpgsave_picture_232392.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Above & Beyond - Tranquility Base Vol. 1 (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232405.jpgsave_picture_232405.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ VA - Workout 2023 [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232417.jpgsave_picture_232417.jpg" />
 </div>
 
 

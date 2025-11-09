@@ -6,7 +6,7 @@ War Tortoise (2024) [Ru/Multi] (10000) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60530.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60530.jpgsave_picture_60530.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ PJ Masks Power Heroes: Mighty Alliance (2024) [Multi] (1.0.1) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61273.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61273.jpgsave_picture_61273.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Llamasoft: The Jeff Minter Story (2024) [Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61304.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61304.jpgsave_picture_61304.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ STAR WARS: Battlefront Classic Collection (2024) [Ru/Multi] (20240319/dlc) Repac
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61367.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61367.jpgsave_picture_61367.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ ONE PIECE: PIRATE WARRIORS 4 (2020) [Ru/Multi] (1.0.8.0/dlc) Scene Rune [Deluxe 
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61440.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61440.jpgsave_picture_61440.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Raw Metal (2024) [En] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61538.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61538.jpgsave_picture_61538.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ South Park: Snow Day! (2024) [Multi] (13796757/dlc) Repack dixen18
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61629.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61629.jpgsave_picture_61629.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ South Park: Snow Day! (2024) [Multi] (13796757/dlc) Scene Fairlight
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61649.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61649.jpgsave_picture_61649.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Tchia (2024) [Ru/Multi] (1.0/dlc) Repack dixen18
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61738.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61738.jpgsave_picture_61738.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ The Knight Witch (2022) [Ru/Multi] (59.40571) License GOG [Deluxe Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61887.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61887.jpgsave_picture_61887.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Hex Gambit: Respawned (2024) [Ru/Multi] (1.0.34+9115b5b) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62040.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62040.jpgsave_picture_62040.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Crimzon Clover: World Ignition (2014) [Multi] (1.06) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63519.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63519.jpgsave_picture_63519.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ WYRMHALL: Brush and Banter (2025) [Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65642.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65642.jpgsave_picture_65642.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Castle Crashers (2012) [Ru/Multi] (2.9.1/dlc) Repack EXROW
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66147.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66147.jpgsave_picture_66147.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Spin Rhythm XD (2023) [Ru/Multi] (1.5.0/dlc) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68036.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68036.jpgsave_picture_68036.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Panic In The Woods (2024) [Ru/Multi] (1.0.1) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70303.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70303.jpgsave_picture_70303.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Captain Claw / Капитан Клык [Ru] (RePack) 1997 | WinterKiss
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80890.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80890.jpgsave_picture_80890.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Blade Kitten (Р) [Ru] 2010
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81918.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81918.jpgsave_picture_81918.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Dustforce [En] (RePack) 2012 | Anonymous
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83364.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83364.jpgsave_picture_83364.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Mortal Kombat Ultimate HD M.U.G.E.N (P) [En] 2012
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83801.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83801.jpgsave_picture_83801.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ Prince of Persia [En] (RePack) 1989 | pet9948
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83807.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83807.jpgsave_picture_83807.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ Gatling Gears [Ru] (RePack) 2011 | Naitro
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84596.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84596.jpgsave_picture_84596.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Rabbids Go Home / Бешеные Кролики [Ru] (RePack) 2010 l UltraISO
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86042.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86042.jpgsave_picture_86042.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Warp [Ru] (RePack) 2012 | Fenixx
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86605.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86605.jpgsave_picture_86605.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Clones / Клоны (2010) [Ru/Multi] (1.32) RePack Fenixx
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86621.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86621.jpgsave_picture_86621.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Warp [Ru/En] (RePack) 2012 | R.G. Catalyst
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86650.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86650.jpgsave_picture_86650.jpg" />
 </div>
 
 

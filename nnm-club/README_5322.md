@@ -6,7 +6,7 @@ Royal Hunt - Dystopia (2020) [MP3|320 Kbps] <Melodic Progressive Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165201.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165201.jpgsave_picture_165201.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:0378A1EA1878A2B1A021BAE5EDBE4D9F6AE9B53C
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165202.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165202.jpgsave_picture_165202.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:C1098240A1AECEB7DBED9D35902C14B8A208100F
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165203.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165203.jpgsave_picture_165203.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Topaz Photo AI 2.0.7 (x64) RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165204.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165204.jpgsave_picture_165204.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:8DE8A3D75B8B9979752CDD2B23A5A7DD3F036D90
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165205.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165205.jpgsave_picture_165205.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:EC7D20B37852116E98914C0365B5C101CE0F6881
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165206.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165206.jpgsave_picture_165206.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:941130554E8554F436FCF91D473F553FF5115BAD
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165207.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165207.jpgsave_picture_165207.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:1F32729109A6F178351C2CA294DB05F67B0794C6
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165208.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165208.jpgsave_picture_165208.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Sketch 61.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165209.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165209.jpgsave_picture_165209.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ gTasks Pro - for Google Tasks 1.3.27 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165210.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165210.jpgsave_picture_165210.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ VA - Maor Levi Presents: 20 Years Of Anjunabeats (2020) DJ Mix [FLAC|Lossless|WE
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165211.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165211.jpgsave_picture_165211.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ magnet:?xt=urn:btih:73A8FE71F5BDCA9945B0668CD0A96A3E467D1A04
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165212.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165212.jpgsave_picture_165212.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ magnet:?xt=urn:btih:02A57A59B6CE155055882014C4D5B306C7F34D49
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165213.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165213.jpgsave_picture_165213.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Django Reinhardt - 1941 - 1942 (1996) Classics [FLAC|Lossless|tracks + .cue] <Sw
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165214.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165214.jpgsave_picture_165214.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ magnet:?xt=urn:btih:68EF0A06874FBFAADA45327FF96C606EBA6657C5
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165215.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165215.jpgsave_picture_165215.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ BluffTitler Ultimate 15.0.0.5 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165216.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165216.jpgsave_picture_165216.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ magnet:?xt=urn:btih:C0F0235A87736E688C9DD46505A6762B0811F7DB
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165217.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165217.jpgsave_picture_165217.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ magnet:?xt=urn:btih:9D11DA64335E89D9811892CEADE3723E97DE69CB
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165218.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165218.jpgsave_picture_165218.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ magnet:?xt=urn:btih:6089A229C564563C35397F285B8DC9D14722FCF3
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165219.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165219.jpgsave_picture_165219.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ magnet:?xt=urn:btih:C2FD4BBB7C07EB6B957AFB1D207F95993C8D361D
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165220.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165220.jpgsave_picture_165220.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Witch of the Vale - Commemorate (2020) [FLAC|Lossless|WEB-DL|tracks + .cue] <Got
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165221.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165221.jpgsave_picture_165221.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ VA - Hi Games Vol1 Mix (Chiptune Edition) (2018) [MP3|320 Kbps] <Chiptune>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165222.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165222.jpgsave_picture_165222.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ magnet:?xt=urn:btih:A6E765BCE30E66EF5B6FD8E3EE2C010736EB2678
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165223.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165223.jpgsave_picture_165223.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ magnet:?xt=urn:btih:56BE8215C8E52FFD7300D24C537C38DCF186A062
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165224.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165224.jpgsave_picture_165224.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ Nat "King" Cole - 1941 - 1943 (1994) Classics [FLAC|Lossless|tracks + .cue] <Voc
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165225.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165225.jpgsave_picture_165225.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ magnet:?xt=urn:btih:3C8489D539BBE63FD2E41DA4A0152D530507EE77
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165226.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165226.jpgsave_picture_165226.jpg" />
 </div>
 
 

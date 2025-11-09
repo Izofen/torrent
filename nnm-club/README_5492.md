@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169742.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169742.jpgsave_picture_169742.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Apple MainStage 3.5.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169743.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169743.jpgsave_picture_169743.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ A.M. Architect - Discography 6 Releases (2009-2019) 79Ancestors, Exponential [FL
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169744.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169744.jpgsave_picture_169744.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ VA - Urban Soulful Grooves, Vol. 2: Urban Vibes for Urban People (2021) [AAC|~31
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169745.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169745.jpgsave_picture_169745.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Telegram for Android 9.2.2 (2965) [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169746.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169746.jpgsave_picture_169746.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ VA - Fall Winter Moods (Atmospheric Chill and Electronic Jazzy Sounds) (2021) [A
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169747.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169747.jpgsave_picture_169747.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ O&O Defrag Professional 27.0 Build 8050 RePack (& Portable) by elchupacabra [Ru/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169748.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169748.jpgsave_picture_169748.jpg" />
 </div>
 
 
@@ -187,7 +187,7 @@ MOZGI - kyivstyle (2020) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169749.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169749.jpgsave_picture_169749.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ magnet:?xt=urn:btih:2B9A16A46F4AE10461877BFF9B17D60D59BA27B2
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169750.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169750.jpgsave_picture_169750.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ magnet:?xt=urn:btih:A57303E7D0A9CD0876518880BA4DAFF1E70705A4
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169751.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169751.jpgsave_picture_169751.jpg" />
 </div>
 
 
@@ -265,7 +265,7 @@ magnet:?xt=urn:btih:E0746902B513BA866D0B2B6AE6E337FDA0074634
 >>Футбол. Чемпионаты мира
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169752.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169752.jpgsave_picture_169752.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Sublime Merge Dev Build 2064 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169753.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169753.jpgsave_picture_169753.jpg" />
 </div>
 
 
@@ -316,7 +316,7 @@ magnet:?xt=urn:btih:8A38806944CAD5BD16A72B3BCB4A1D0C40AF9409
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169754.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169754.jpgsave_picture_169754.jpg" />
 </div>
 
 
@@ -340,7 +340,7 @@ magnet:?xt=urn:btih:DAA4671E20BCA2FE4D9F40EA9BA24BF3EC35274F
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169755.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169755.jpgsave_picture_169755.jpg" />
 </div>
 
 
@@ -365,7 +365,7 @@ LosslessCut 3.29 Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169756.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169756.jpgsave_picture_169756.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ VA - Finesse Jazz, Vol.4 (Smooth Jazzy Lounge Sounds) (2021) [AAC|~313 Kbps] <Lo
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169757.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169757.jpgsave_picture_169757.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ magnet:?xt=urn:btih:68C59E0F0A18AF0E75DDBE6641E4D96889389CB3
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169758.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169758.jpgsave_picture_169758.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Tommy DeCarlo - Dancing In The Moonlight (2022) [FLAC|Lossless|WEB-DL|tracks] <A
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169760.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169760.jpgsave_picture_169760.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Magic Battery 7.0.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169761.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169761.jpgsave_picture_169761.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:A471569BA0A30D3E6898AC2904E4C8580B0AC9DE
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169762.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169762.jpgsave_picture_169762.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ magnet:?xt=urn:btih:5C0F1E530E49F962214C20410CE57DF865779220
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169763.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169763.jpgsave_picture_169763.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ magnet:?xt=urn:btih:3FDD13D38102C40ED0946E7D861164FD9647CC83
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169764.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169764.jpgsave_picture_169764.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ VA - A Tribe Called Kotori 5 (2020) [AAC|~332 Kbps] <Progressive House, Deep Hou
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169765.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169765.jpgsave_picture_169765.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ VA - Chillhop Essentials - Winter (2019) [FLAC|Lossless|Web-DL|tracks] <ChillHop
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169766.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169766.jpgsave_picture_169766.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ VA - Electronic Moon (The Chill Out Journey), Vol. 1 (2021) [AAC|~320 Kbps] <Lou
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169767.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169767.jpgsave_picture_169767.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ magnet:?xt=urn:btih:CD6839F78476E166C31BD11BD2B8F13FC3EF6B6C
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169768.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169768.jpgsave_picture_169768.jpg" />
 </div>
 
 

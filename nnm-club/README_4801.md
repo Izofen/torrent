@@ -6,7 +6,7 @@
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150243.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150243.jpgsave_picture_150243.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Puraore! Pride of Orange / Оранжевая гордость [2021, TV, 12] WE
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150244.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150244.jpgsave_picture_150244.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:7D7B33CBC6F215B353833B3F94DA00CEA9250366
 >>Автомобильные мультимедийные материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150245.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150245.jpgsave_picture_150245.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Bang Bang Education | Дизайн-библиотека (2020) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150247.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150247.jpgsave_picture_150247.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:4A87F2072C3E9EFAEC2A3CEFC95480B7E09B36C0
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150248.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150248.jpgsave_picture_150248.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ VA - Christmas Lights - Smooth Jazz Instrumental Music (2018) [FLAC|Lossless|WEB
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150249.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150249.jpgsave_picture_150249.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ magnet:?xt=urn:btih:EBDA8354922578B7FC0B3D3457B8F8DBE06993A3
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150250.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150250.jpgsave_picture_150250.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:F828B1FE0DBCD119F259F82E27EA4A6F1E3D0FB9
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150251.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150251.jpgsave_picture_150251.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:635FF687A01093D9CEBB01A6C5BAC28884A0DFDC
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150252.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150252.jpgsave_picture_150252.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ Kaspersky Lab Products Remover 1.0.930 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150253.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150253.jpgsave_picture_150253.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ magnet:?xt=urn:btih:ABD86EAC73B447FE04705ACA1EDF16E2B15869AD
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150254.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150254.jpgsave_picture_150254.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ magnet:?xt=urn:btih:AC1FFE45887DB6C8BD18FB94A50BFC2F1EFF110B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150255.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150255.jpgsave_picture_150255.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ A. Никл | Сотня граней (Книга 1). Зарождение ле�
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150256.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150256.jpgsave_picture_150256.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:DD13DD242AE9979292703DC65755C5DA3578D217
 >>Футажи
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150257.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150257.jpgsave_picture_150257.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ magnet:?xt=urn:btih:509C194F5AA419B482A0194975CDC452224398CE
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150258.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150258.jpgsave_picture_150258.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ VA - Christmas Cracker 2016 (2016) EP [MP3|320 Kbps] <Drum & Bass>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150260.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150260.jpgsave_picture_150260.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ magnet:?xt=urn:btih:6DC8CEEF3B69507D96F77C465E25716DA2CF7FEA
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150261.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150261.jpgsave_picture_150261.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ magnet:?xt=urn:btih:6DC8CEEF3B69507D96F77C465E25716DA2CF7FEA
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150262.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150262.jpgsave_picture_150262.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ magnet:?xt=urn:btih:B88EAD62A9A0C3744016C9E21DD2644B0147CC23
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150263.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150263.jpgsave_picture_150263.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Aiseesoft Video Enhancer 1.0.20 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150264.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150264.jpgsave_picture_150264.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ magnet:?xt=urn:btih:5AC551A8AAD3C5B9269147A3A129D8F74A7ACE03
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150265.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150265.jpgsave_picture_150265.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ magnet:?xt=urn:btih:5AC551A8AAD3C5B9269147A3A129D8F74A7ACE03
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150266.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150266.jpgsave_picture_150266.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ VA - Fokuz Recordings Presents: Hateful Eighty (CD2) (2016) [MP3|320 Kbps] <Drum
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150267.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150267.jpgsave_picture_150267.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ magnet:?xt=urn:btih:77233FBA836009B59914C1DE7640E6412A3C8850
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150268.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150268.jpgsave_picture_150268.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Windows Server 2022 LTSC, Version 21H2 Build 20348.405 (Updated December 2021) -
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150270.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150270.jpgsave_picture_150270.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ magnet:?xt=urn:btih:7F5B98AA2076C5AF862CF135986AD55E3C3A3171
 >>Для открывших Интернет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150271.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150271.jpgsave_picture_150271.jpg" />
 </div>
 
 

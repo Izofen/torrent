@@ -6,7 +6,7 @@ Fumo - Entropy (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz Fusion & Jazz Ro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121448.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121448.jpgsave_picture_121448.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Polarnik - Протокол (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Post-Bla
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121450.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121450.jpgsave_picture_121450.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Suncity Blues - Blues on my mind (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <B
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121457.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121457.jpgsave_picture_121457.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ KJ Dale - Plays songs from Pioneers - End of time album (2024) [FLAC 24/44.1|Los
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121464.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121464.jpgsave_picture_121464.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Stateside Red - Far From The Delta (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <B
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121470.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121470.jpgsave_picture_121470.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ L.A. Guns - The Dark Horse (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Glam-Ha
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121479.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121479.jpgsave_picture_121479.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Background Music Masters, Instrumental Jazz Music Guys - Evening Revelry Harmoni
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121487.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121487.jpgsave_picture_121487.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Evan Nicole Bell - Runaway Girl (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Bl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121495.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121495.jpgsave_picture_121495.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Jeremy Renner - Love and Titanium (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121497.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121497.jpgsave_picture_121497.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Neil Young - Neil Young Archives Vol. III 1976 - 1987 (2025) Box Set [FLAC 24/19
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121517.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121517.jpgsave_picture_121517.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Immorium - Studio Albums (3 releases) (2015-2024) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121581.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121581.jpgsave_picture_121581.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Collapse 7 - Studio Albums (4 releases) (2004-2023) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121583.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121583.jpgsave_picture_121583.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Kari Antila - Dahill Road (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Contempo
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121666.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121666.jpgsave_picture_121666.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Circus Maximus - Studio Albums (5 releases) (2005-2019) hand made [restored, dec
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121681.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121681.jpgsave_picture_121681.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Caitlyn Smith - I Think of You (The Heartache Collection) (2024) [FLAC 24/44.1, 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121685.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121685.jpgsave_picture_121685.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Balint Gyemant (Bálint Gyémánt) - Vortex Of Silence (2024) [FLAC 24/48|Lossle
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121688.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121688.jpgsave_picture_121688.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ magnet:?xt=urn:btih:7ACAA1FBE490977F762C49B8715273094F3E970A
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121708.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121708.jpgsave_picture_121708.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ Saxon - Дискография (33 releases) (1979-2024) hand made [restored, de
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121761.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121761.jpgsave_picture_121761.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Rosalba Piccinni - Rosa che s'inchina (2024) [FLAC 24/48|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121833.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121833.jpgsave_picture_121833.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Hollywood Undead - Studio Albums (9 releases) (2008-2022) hand made [restored, d
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121872.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121872.jpgsave_picture_121872.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Dred Buffalo - Dred Buffalo (2020) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Roc
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121983.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121983.jpgsave_picture_121983.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Good Mood Music Academy - Sunny Winter Jazz Instrumental December Good Mood and 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121994.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121994.jpgsave_picture_121994.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Dred Buffalo - The Dark Age (2022) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Roc
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122003.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122003.jpgsave_picture_122003.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ Revolution Saints - Against The Winds (2024) [FLAC 24/44.1|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122007.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122007.jpgsave_picture_122007.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ CobraKill - Serpent’s Kiss (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122013.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122013.jpgsave_picture_122013.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ Green Day - Saviors (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Punk rock, Alter
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122044.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122044.jpgsave_picture_122044.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157213.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157213.jpgsave_picture_157213.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Slade - And Now the Waltz(es) (2023) [MP3|320 Kbps] <Rock, Glam Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157214.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157214.jpgsave_picture_157214.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ magnet:?xt=urn:btih:61D0FB3B24DB206FB9F109A906533BE2C47821C6
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157215.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157215.jpgsave_picture_157215.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ Aiseesoft Video Converter Ultimate 10.6.12 RePack (& Portable) by TryRooM [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157216.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157216.jpgsave_picture_157216.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ VA - Acoustic Chillout Album (2015) [MP3|320 кб/с] <Downtempo, Chillout, Loun
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157217.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157217.jpgsave_picture_157217.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ BurnAware Professional 17.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157218.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157218.jpgsave_picture_157218.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ magnet:?xt=urn:btih:7DE757AB212953DBBF4AED0AF333B72BC5851EB2
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157219.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157219.jpgsave_picture_157219.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ Phantasmat 12: Death in Hardcover / Фантазмат 12: Смерть в ст�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157220.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157220.jpgsave_picture_157220.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ magnet:?xt=urn:btih:4C1D0FE860B0A86681290EBC63B5718A2B4E85A7
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157221.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157221.jpgsave_picture_157221.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ magnet:?xt=urn:btih:D0C30CC01700CBF60286C1DBE1B7506B2CD70D1B
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157222.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157222.jpgsave_picture_157222.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ Lipshok - Shadows Of A Dark Heart (2020) [MP3|320 Kbps] <Gothic Metal, Gothic Ro
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157223.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157223.jpgsave_picture_157223.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ magnet:?xt=urn:btih:E096087B6A0B18587794F85C8530F8FF054DF02E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157224.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157224.jpgsave_picture_157224.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ magnet:?xt=urn:btih:B84E4BC24F2C08BF68BACD3A73F3F26C8E994C88
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157225.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157225.jpgsave_picture_157225.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:F30424AD5BA0A350803CFE8F0D7AD8A4C1B66473
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157226.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157226.jpgsave_picture_157226.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Waterfox 56.2.6 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157227.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157227.jpgsave_picture_157227.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Archie Shepp Quartet - I Didn't Know About You (1990) 2015, Timeless Records[FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157228.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157228.jpgsave_picture_157228.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ magnet:?xt=urn:btih:AB04D94C3732F9A42192055ABE3258C2FBA0A2FD
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157230.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157230.jpgsave_picture_157230.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ magnet:?xt=urn:btih:814EA9C8255393D72B9DE147176C020E5FF1E1DB
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157232.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157232.jpgsave_picture_157232.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ VA - Red Oxitocin: Sound Neuroleptics (2018) [MP3|320 Kbps] <Deep House, Tech Ho
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157233.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157233.jpgsave_picture_157233.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ magnet:?xt=urn:btih:C315AD7A014BEE28CBAD0AA17F4DB385EFB95BA2
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157234.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157234.jpgsave_picture_157234.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ magnet:?xt=urn:btih:07482E351A4EC89909C5967D887F2E48ADB1B410
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157236.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157236.jpgsave_picture_157236.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ magnet:?xt=urn:btih:F5ED48DE2E156E68AE3BDBD800976D5259E32931
 >>Общественно-политические и пропагандистские ток-шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157237.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157237.jpgsave_picture_157237.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ itsMine Video Watermark Maker Pro 2.6 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157238.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157238.jpgsave_picture_157238.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ Alien: Isolation (2014) [Ru/En] (1.0/upd9/dlc) Repack R.G. Механики [Dig
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157239.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157239.jpgsave_picture_157239.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ magnet:?xt=urn:btih:6F467E8259F2CEF255DFEF8067551E6258CD64DF
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157240.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157240.jpgsave_picture_157240.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ VA - Новогодний хоровод Vol.1 (2018) [MP3|256-320 Kbps] <Dance,
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157241.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157241.jpgsave_picture_157241.jpg" />
 </div>
 
 

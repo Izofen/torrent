@@ -6,7 +6,7 @@
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57801.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57801.jpgsave_picture_57801.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:0071CC73F25D654C10D86ACB82C93D0358451ACC
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57802.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57802.jpgsave_picture_57802.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:6A53846F5F9725D617D51AEAE6B6B2456C918F22
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57803.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57803.jpgsave_picture_57803.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Adobe Character Animator 2024 24.2.0.80 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57804.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57804.jpgsave_picture_57804.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:9C21B20F85DC508386913F945E7106F65328973F
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57805.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57805.jpgsave_picture_57805.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:961D88F3851624F30AE1FF39241614C7EBB1D49A
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57806.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57806.jpgsave_picture_57806.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Google Chrome 124.0.6367.119 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57807.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57807.jpgsave_picture_57807.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ VA - Music News vol.371 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57808.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57808.jpgsave_picture_57808.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ Auslogics Disk Defrag Pro 11.0.0.5 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57809.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57809.jpgsave_picture_57809.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ Auslogics Registry Cleaner Pro 10.0.0.5 RePack (& Portable) by elchupacabra [Mul
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57810.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57810.jpgsave_picture_57810.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ VA - Dario Caminita: Classic Revibes Collection Vol. 08 (2023) [MP3|320 Kbps] <D
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57811.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57811.jpgsave_picture_57811.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ Adobe Audition 2024 24.2.0.83 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57812.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57812.jpgsave_picture_57812.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Firefox Browser 125.0.3 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57813.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57813.jpgsave_picture_57813.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ magnet:?xt=urn:btih:A5B619E1194F1F601BBD8FAE54C09812A110E2B1
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57814.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57814.jpgsave_picture_57814.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ magnet:?xt=urn:btih:8B9B74F5EF197EAD100ADEEF55EEA1FAEE61AA72
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57815.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57815.jpgsave_picture_57815.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ magnet:?xt=urn:btih:8B9B74F5EF197EAD100ADEEF55EEA1FAEE61AA72
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57816.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57816.jpgsave_picture_57816.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ PULSARIUS - Journey Trough The Lost Galaxy (2024) [MP3|320 Kbps] <Spacesynth, Da
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57817.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57817.jpgsave_picture_57817.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Sandboxie plus 1.13.7 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57818.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57818.jpgsave_picture_57818.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Adobe Bridge 2024 14.0.4.222 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57819.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57819.jpgsave_picture_57819.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ OfficeSuite Pro + PDF 14.4.51682 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57820.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57820.jpgsave_picture_57820.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ magnet:?xt=urn:btih:E6F15730821E74ACD269A085E5146986A37422C2
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57821.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57821.jpgsave_picture_57821.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ NewFileTime 7.21 Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57822.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57822.jpgsave_picture_57822.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Auslogics BoostSpeed 13.0.0.7 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57823.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57823.jpgsave_picture_57823.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ AutoPowerOptionsOK 5.77 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57824.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57824.jpgsave_picture_57824.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Ashampoo Photo Optimizer 10.0.2.3 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57825.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57825.jpgsave_picture_57825.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Auslogics Duplicate File Finder 10.0.0.5 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57826.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57826.jpgsave_picture_57826.jpg" />
 </div>
 
 

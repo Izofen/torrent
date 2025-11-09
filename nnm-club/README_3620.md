@@ -6,7 +6,7 @@ Nigel Olsson - Nigel Olsson's Drum Orchestra And Chorus (1971) LP [MP3|320 Kbps]
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114495.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114495.jpgsave_picture_114495.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:ACC85FB82367DDB1F3AF8739C4BCC206766B4BEC
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114496.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114496.jpgsave_picture_114496.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Topaz Photo AI 2 for Mac 2.4.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114497.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114497.jpgsave_picture_114497.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Topaz Gigapixel AI for Mac 7.0.3 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114498.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114498.jpgsave_picture_114498.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:3C1C26303B6D0144D47D4BF8E3349017004D3AFF
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114499.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114499.jpgsave_picture_114499.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ Affinity Photo 2 v.2.4.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114500.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114500.jpgsave_picture_114500.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ Navicat Premium 16.3.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114501.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114501.jpgsave_picture_114501.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ Onslaught - Skullcrusher (2024) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114502.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114502.jpgsave_picture_114502.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ Wondershare Recoverit for Mac 12.5.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114503.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114503.jpgsave_picture_114503.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ The Steve Klatt Project - Dreams & Reality (2024) [FLAC|Lossless|WEB-DL|tracks] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114504.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114504.jpgsave_picture_114504.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ BBEdit 15.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114505.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114505.jpgsave_picture_114505.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ Jesse James Dupree - Breathing Fire (2023) [FLAC|Lossless|image + .cue] <Hard Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114506.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114506.jpgsave_picture_114506.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ Chicane - Far From The Maddening Crowds (1997) 2024 Symphonic Rehearsals [FLAC|L
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114507.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114507.jpgsave_picture_114507.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ Assistive Volume Button v0.9.4 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114508.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114508.jpgsave_picture_114508.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ magnet:?xt=urn:btih:7048788ABBE2084DFE13F75EADB21D5973DB0894
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114509.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114509.jpgsave_picture_114509.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Angels Of Babylon - Aquarius (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114510.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114510.jpgsave_picture_114510.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ magnet:?xt=urn:btih:E5705A03EDA647906CBF37661FAB8E6972C487CE
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114511.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114511.jpgsave_picture_114511.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Ulysses 33.1 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114512.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114512.jpgsave_picture_114512.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ magnet:?xt=urn:btih:3FF2E86EBE5F862927979090A8C5B50554EFD78D
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114513.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114513.jpgsave_picture_114513.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ magnet:?xt=urn:btih:C4904A0BD6897FB69629B95A9A4D6515E7431AF2
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114514.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114514.jpgsave_picture_114514.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ Black Nail Cabaret - Chrysanthemum (2024) [FLAC|Lossless|WEB-DL|tracks] <EBM, Sy
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114515.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114515.jpgsave_picture_114515.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Hollan Holmes - Sacred Places (2024) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Spa
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114516.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114516.jpgsave_picture_114516.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Caravan Palace - Gangbusters Melody Club (2024) [FLAC|Lossless|image + .cue] <El
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114517.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114517.jpgsave_picture_114517.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ DRmare Tidal Music Converter 2.14.0 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114518.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114518.jpgsave_picture_114518.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ magnet:?xt=urn:btih:AABB1E618AD8AD96521D83DEAFE9C3DE5D242BEA
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114519.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114519.jpgsave_picture_114519.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ magnet:?xt=urn:btih:4A9BE21C8F5618C4721B49662DC9E991157B8B07
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114520.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114520.jpgsave_picture_114520.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Rick Keller - Heroes (2025) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2741.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2741.jpgsave_picture_2741.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:A44C64187C4E9F50CC4919304D67666A629A3300
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2742.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2742.jpgsave_picture_2742.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Dark Angel - Extinction Level Event (2025) [MP3|320 Kbps] <Thrash, Speed Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2743.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2743.jpgsave_picture_2743.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:794C0A585189616D46C1609E6A3C34395C62A671
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2744.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2744.jpgsave_picture_2744.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Combichrist - RISE (2025) Single [FLAC|Lossless|WEB-DL|tracks] <Industrial Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2745.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2745.jpgsave_picture_2745.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Speed Queen - ... With a Bang! (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hea
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2746.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2746.jpgsave_picture_2746.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ magnet:?xt=urn:btih:92E4C5EFC316314B4B9A88E569709A35DB74BD16
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2747.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2747.jpgsave_picture_2747.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ magnet:?xt=urn:btih:591AD546CC32BDFE9FD3D3B1D4C16072A95F1D54
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2748.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2748.jpgsave_picture_2748.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Ripoff Raskolnikov Band - Another Seven (2025) [FLAC|Lossless|WEB-DL|tracks] <Bl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2749.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2749.jpgsave_picture_2749.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ The Charlie Daniels Band - Country Stars N' Stripes (2025) [FLAC|Lossless|WEB-DL
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2750.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2750.jpgsave_picture_2750.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ MotoGP. Этап 16 из 22. Гран-при Сан-Марино. Гонка (14
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2751.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2751.jpgsave_picture_2751.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Crucible - Hail To The Force (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Speed M
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2752.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2752.jpgsave_picture_2752.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ The Name Droppers - Cool Blue Shoes (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2753.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2753.jpgsave_picture_2753.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ SirJoe Polito - Black & White (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2754.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2754.jpgsave_picture_2754.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ The 251s - From the Five (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2755.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2755.jpgsave_picture_2755.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ The Bleary Eyed Bastards - Good Enough for Who It's For (2025) (2CD) [FLAC|Lossl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2756.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2756.jpgsave_picture_2756.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Not Enough Space - Weaponize Your Rage (2025) [FLAC 24/44.1|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2757.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2757.jpgsave_picture_2757.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ I See Stars - The Wheel (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Post-Hardcor
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2758.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2758.jpgsave_picture_2758.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ magnet:?xt=urn:btih:B2B579B07278B932BA5F46512A2563B41BA1FA2C
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2759.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2759.jpgsave_picture_2759.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ magnet:?xt=urn:btih:39CDA8D61994CDC945E288F8538E6872CAEE4CE7
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2760.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2760.jpgsave_picture_2760.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ magnet:?xt=urn:btih:147606E91C6555A244D94552985BE60718EB558D
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2761.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2761.jpgsave_picture_2761.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ magnet:?xt=urn:btih:67386115575D7FC4A27BC745CC624F0ACF61682E
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2762.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2762.jpgsave_picture_2762.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ magnet:?xt=urn:btih:58AACE9937D75D70DF81F4ABE01E5503B046FAA3
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2763.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2763.jpgsave_picture_2763.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ magnet:?xt=urn:btih:4D227A1F238B1EC1A321022FD0F5F20AE446D8F0
 >>КВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2764.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2764.jpgsave_picture_2764.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ magnet:?xt=urn:btih:BB23727D85E7F1F5C75269464506FF5BE1C5FB75
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2765.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2765.jpgsave_picture_2765.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ magnet:?xt=urn:btih:2DF906BF4366915BD3DCADE99A2F2384FB003CB3
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2766.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2766.jpgsave_picture_2766.jpg" />
 </div>
 
 

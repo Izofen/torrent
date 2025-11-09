@@ -6,7 +6,7 @@ Withering Surface - Meet Your Maker (2020) Japanese Edition [FLAC|Lossless|image
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181715.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181715.jpgsave_picture_181715.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Daisy George - see me now (2022) [FLAC 2.0|44/24|tracks|WEB-DL] <Alternative & I
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181719.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181719.jpgsave_picture_181719.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ XYZ - XYZ (1989) Japanese Edition, Reissue, 1990, Enigma Records [FLAC|Lossless|
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181723.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181723.jpgsave_picture_181723.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Nickelback - Get Rollin' (2022) Deluxe Edition [FLAC|Lossless|tracks + .cue] <Al
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181747.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181747.jpgsave_picture_181747.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Asia - Alpha (1983) Japanese Edition, Reissue, 2022, Universal [FLAC|Lossless|im
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181767.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181767.jpgsave_picture_181767.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Candlemass - Sweet Evil Sun (2022) [FLAC|Lossless|image + .cue] <Epic Doom Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181792.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181792.jpgsave_picture_181792.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ magnet:?xt=urn:btih:C26AD9950F5BF5FADBBB79ED51250102E42BF007
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181795.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181795.jpgsave_picture_181795.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Bennie And The Jets - Lipstick and Leather (2022) [FLAC|Lossless|WEB-DL|tracks] 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181815.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181815.jpgsave_picture_181815.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Walk In Darkness - 4 Albums (2017-2022) [FLAC|Lossless|WEB-DL|tracks] <Sympho Go
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181819.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181819.jpgsave_picture_181819.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:0C2B2510F582D33C3C05F9D90B91C35863ADBC46
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181825.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181825.jpgsave_picture_181825.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ An Abstract Illusion - Woe (2022) [FLAC|Lossless|tracks + .cue] <Melodic Death M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181829.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181829.jpgsave_picture_181829.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:E1C1A54E2253A0B69C30B5D72F21EC67FCA15E18
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181836.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181836.jpgsave_picture_181836.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Berlin - Count Three & Pray (1986) [OGG Vorbis|480 Kbps] <Electronic, Rock, Soft
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181873.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181873.jpgsave_picture_181873.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Firewind - Firewind (2020) Japanese Edition [FLAC|Lossless|image + .cue] <Power 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181884.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181884.jpgsave_picture_181884.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Magnus Karlsson's Free Fall - We Are The Night (2020) Japanese Edition [FLAC|Los
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181894.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181894.jpgsave_picture_181894.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Monrau - Тишина, сделай громче (2022) [FLAC|Lossless|WEB-DL|tr
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181924.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181924.jpgsave_picture_181924.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Te Deum - Reflexia (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death, Symphoni
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181938.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181938.jpgsave_picture_181938.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Electric Jaguar Baby - Psychic Death Safari (2022) [FLAC|Lossless|WEB-DL|tracks]
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181945.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181945.jpgsave_picture_181945.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ magnet:?xt=urn:btih:D95B56A0DB8A5E11018978D3CB69B6B404F602D6
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181953.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181953.jpgsave_picture_181953.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Pattern-Seeking Animals - Only Passing Through (2022) [FLAC|Lossless|image + .cu
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181956.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181956.jpgsave_picture_181956.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Galderia - Endless Horizon (2022) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181962.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181962.jpgsave_picture_181962.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Her Anxiety - No Land in Sight (2022) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181972.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181972.jpgsave_picture_181972.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Vain Louie - Time Devours Everything (2022) [FLAC|Lossless|WEB-DL|tracks] <Metal
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181988.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181988.jpgsave_picture_181988.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Gospelheim - Ritual & Repetition (2022) [FLAC|Lossless|WEB-DL|tracks] <Gothic Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181991.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181991.jpgsave_picture_181991.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ Lunar Mercia - Leaving the Fragile Space (2022) [FLAC|Lossless|WEB-DL|tracks] <P
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181996.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181996.jpgsave_picture_181996.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ Lifeforce - Apokalipsis (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182006.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182006.jpgsave_picture_182006.jpg" />
 </div>
 
 

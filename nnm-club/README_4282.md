@@ -6,7 +6,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132895.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132895.jpgsave_picture_132895.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:DE49D33393AAA5153C94946C7BDE1434D3B84E09
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132896.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132896.jpgsave_picture_132896.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:1485872886FD8712214BD03C9D8352C78684491E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132897.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132897.jpgsave_picture_132897.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:1485872886FD8712214BD03C9D8352C78684491E
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132898.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132898.jpgsave_picture_132898.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:432D242840322213628F0DC246FE937F71311BDA
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132899.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132899.jpgsave_picture_132899.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:E9BA66620093C70C5670E552550B47C326F9CA22
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132900.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132900.jpgsave_picture_132900.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:7AC34389CCF4513C8752DB1B58851D08249A23AF
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132901.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132901.jpgsave_picture_132901.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:93A28C4C73C397845045125043C5C6D72CD75378
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132902.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132902.jpgsave_picture_132902.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:70185B2427BC445175A5D73E392BD2AD0970DE7A
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132903.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132903.jpgsave_picture_132903.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:382AD620627F9268F6A3CF3B627889F168B81AED
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132904.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132904.jpgsave_picture_132904.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:382AD620627F9268F6A3CF3B627889F168B81AED
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132905.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132905.jpgsave_picture_132905.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ FUEL [Ru/En] (L) 2009
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132906.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132906.jpgsave_picture_132906.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:E1EF2D2D3ADCEB3DD2FDD9791E3961AEE417AAAF
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132907.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132907.jpgsave_picture_132907.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ magnet:?xt=urn:btih:1D81C0A7CDA41362DA1ACA4C2986D40205A77548
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132909.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132909.jpgsave_picture_132909.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Queen - The Platinum Collection: Greatest Hits I, II & III (2011) 3xCD Super Jew
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132910.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132910.jpgsave_picture_132910.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Koukaku Kidoutai: The Laughing Man | Ghost in the Shell: Stand Alone Complex - T
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132914.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132914.jpgsave_picture_132914.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Pro Basketball Manager 2024 (2023) [Ru/Multi] (1.22-20112023) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132915.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132915.jpgsave_picture_132915.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ magnet:?xt=urn:btih:E63E1A5FC844170C8835D95363DDD5A559C6C23E
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132916.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132916.jpgsave_picture_132916.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ magnet:?xt=urn:btih:2798A452C8F2E5D144F1808B5435BC4FE9D65008
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132917.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132917.jpgsave_picture_132917.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ VA - ЕвроХит Топ 40 Europa Plus 01.12.2023 [MP3|320 Kbps] <Pop, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132919.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132919.jpgsave_picture_132919.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Matthias Develtere | Дизайн и моделирование робота / D
 >>3D графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132921.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132921.jpgsave_picture_132921.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ WindowBlinds 7.4.0 build 320 Enhanced [Eng] + 141 best visual styles
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132922.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132922.jpgsave_picture_132922.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ WindowBlinds 7 – программа, предоставляющая польз
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132923.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132923.jpgsave_picture_132923.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ magnet:?xt=urn:btih:E1F1457F907BC7CD8F54A9FF3FE98298353AD123
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132924.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132924.jpgsave_picture_132924.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ magnet:?xt=urn:btih:C9B5AE3750A5FA6D5CE6AD879777163223A1FC0F
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132925.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132925.jpgsave_picture_132925.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Heroes of Might and Magic: Quest for the Dragon Bone Staff [PS2] [Multi-5] [PAL]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132926.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132926.jpgsave_picture_132926.jpg" />
 </div>
 
 

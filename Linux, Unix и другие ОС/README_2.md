@@ -6,7 +6,7 @@ openmediavault 7.0-32 [x86_64] 1xCD
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62473.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62473.jpgsave_picture_62473.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ MX Linux 23.2 [i386 / AMD64] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62477.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62477.jpgsave_picture_62477.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Fedora 39 Workstation / Server / Spins / Atomic [x86_64] 19xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62485.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62485.jpgsave_picture_62485.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ CentOS 9 Stream [x86_64 / aarch64] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62486.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62486.jpgsave_picture_62486.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ Debian 12.5 [i386, amd64] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62498.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62498.jpgsave_picture_62498.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ Clonezilla Live (stable) 3.1.2-9 [i686, i686-pae, amd64] 3xCD
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62577.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62577.jpgsave_picture_62577.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ SystemRescue 11.00 [amd64] 1xCD
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62583.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62583.jpgsave_picture_62583.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ Kodachi Linux 8.27 [x64] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62819.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62819.jpgsave_picture_62819.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ Qubes OS 4.2.0 [x64] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62870.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62870.jpgsave_picture_62870.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ EndeavourOS Galileo-Neo-2024.01.25 [x64] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62905.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62905.jpgsave_picture_62905.jpg" />
 </div>
 
 
@@ -262,7 +262,7 @@ Ubuntu*Pack 20.04 (март 2024) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62951.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62951.jpgsave_picture_62951.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ Ubuntu*Pack 20.04 KDE / Kubuntu (март 2024) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62962.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62962.jpgsave_picture_62962.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ Ubuntu*Pack 20.04 GNOME (март 2024) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62969.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62969.jpgsave_picture_62969.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ Ubuntu*Pack 20.04 Cinnamon (март 2024) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62970.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62970.jpgsave_picture_62970.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ Ubuntu*Pack 20.04 LikeWin (март 2024) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62980.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62980.jpgsave_picture_62980.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ Whonix Xfce 17.1.3.1 (образ для VirtualBox) [x64]
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63029.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63029.jpgsave_picture_63029.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ Arch Linux 2024.02.01 [i386/amd64] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63257.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63257.jpgsave_picture_63257.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ ZVirt 4.4 [amd64] 2xDVD
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63927.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63927.jpgsave_picture_63927.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ ALT Linux 8 СП C9F1 [i686, amd64] 6xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69450.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69450.jpgsave_picture_69450.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ ALT Linux 8 СП C10F1 [amd64] 3xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69459.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69459.jpgsave_picture_69459.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ ALT Linux 8 СП C9F2 [i586, amd64] 6xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69468.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69468.jpgsave_picture_69468.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ DraftSight V1R1.4 beta [x86] (rpm, deb)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84598.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84598.jpgsave_picture_84598.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Linux UsefulPack 12.04 (L) [Русский] (2012)[x86 + amd64]
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90537.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90537.jpgsave_picture_90537.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ FreeBSD 8.3 [amd64] (1xDVD+1xCD+LiveFS+USB IMG+BootOnly)
 >>ОС *BSD
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90757.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90757.jpgsave_picture_90757.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ Kubuntu 12.04 LTS [i386] (1xDVD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90916.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90916.jpgsave_picture_90916.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Ubuntu*Pack 24.04 Unity (июль 2024) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106062.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106062.jpgsave_picture_106062.jpg" />
 </div>
 
 

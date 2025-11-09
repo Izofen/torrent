@@ -6,7 +6,7 @@
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_231721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231721.jpgsave_picture_231721.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Big Shot - Big Shot (1992) 2022 [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231722.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231722.jpgsave_picture_231722.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ K-Lite Codec Pack Update 17.6.3 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_231723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231723.jpgsave_picture_231723.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ Legion Of The Damned - The Poison Chalice (2023) [FLAC|Lossless|WEB-DL|tracks] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231724.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231724.jpgsave_picture_231724.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ magnet:?xt=urn:btih:E7225C043F8ED8709541273BC82F4D47DF01AA41
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231726.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231726.jpgsave_picture_231726.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Grim Tales 23: Dual Disposition / Страшные сказки 23: Двойст
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_231728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231728.jpgsave_picture_231728.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ Barney Kessel - To Swing Or Not To Swing, Vol.3 (1955) 1987, Original Jazz Class
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231729.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231729.jpgsave_picture_231729.jpg" />
 </div>
 
 
@@ -187,7 +187,7 @@ Unsoulicited - Reflections (2023) [MP3|320 Kbps] <Symphonic Metal, Rock>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231730.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231730.jpgsave_picture_231730.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ magnet:?xt=urn:btih:D9618E6B1E5D3C299F195BE85460F71086479447
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_231731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231731.jpgsave_picture_231731.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ magnet:?xt=urn:btih:55A94C8B5BC4DE12F5CCEB6EC044C4DFE806A844
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_231732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231732.jpgsave_picture_231732.jpg" />
 </div>
 
 
@@ -262,7 +262,7 @@ Delorca / Tonnes - The Sacred Hunger of the Void (2023) [FLAC|Lossless|WEB-DL|tr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231736.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231736.jpgsave_picture_231736.jpg" />
 </div>
 
 
@@ -289,7 +289,7 @@ magnet:?xt=urn:btih:E1D11091175FB275D0265AF54B2F4C3A5389ADEB
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_231737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231737.jpgsave_picture_231737.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ Project Renegade - Ultra Terra (2023) [FLAC|Lossless|WEB-DL|tracks] <Alt. Metal,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231738.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231738.jpgsave_picture_231738.jpg" />
 </div>
 
 
@@ -340,7 +340,7 @@ magnet:?xt=urn:btih:E1ED196E92AF018508055BE008404CCD64834452
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231739.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231739.jpgsave_picture_231739.jpg" />
 </div>
 
 
@@ -364,7 +364,7 @@ Spotify 1.2.12.902 (Repack & Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_231740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231740.jpgsave_picture_231740.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ Thread - Thread (1995) 2023, 2xCD [FLAC|Lossless|image + .cue] <Prog Rock, Arena
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231742.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231742.jpgsave_picture_231742.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ Feeder 4 v.4.5.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231744.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231744.jpgsave_picture_231744.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ magnet:?xt=urn:btih:B445E01C1D3BB950CDE4C62133F814B81FA30491
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_231745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231745.jpgsave_picture_231745.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ VA - Top 8 June 2023 Emotional And Uplifting Trance (2023) [MP3|320 Kbps] <Tranc
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231746.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231746.jpgsave_picture_231746.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Way To Stars - Путь К Звёздам (2023) [MP3|320 Kbps] <Metalcore>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231747.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231747.jpgsave_picture_231747.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ AOMEI Backupper Technician Plus 7.2.2 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_231748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231748.jpgsave_picture_231748.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ VA - Superunknown (Redux) (2023) [FLAC|Lossless|WEB-DL|tracks] <Doom metal, Ston
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231750.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231750.jpgsave_picture_231750.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Millumin 4 v.4.16.f [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231752.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231752.jpgsave_picture_231752.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Veonity - Into the Void (2016) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231753.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231753.jpgsave_picture_231753.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ AOMEI Backupper Pro 7.2.2 [Multi/Ru] (акция Comss)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_231754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231754.jpgsave_picture_231754.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ PotPlayer 230523 (1.7.21916) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_231755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231755.jpgsave_picture_231755.jpg" />
 </div>
 
 

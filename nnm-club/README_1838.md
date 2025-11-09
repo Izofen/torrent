@@ -6,7 +6,7 @@ Stray (2022) [Ru/Multi] (1.5#368) Repack dixen18
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48145.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48145.jpgsave_picture_48145.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:678B009A600D40348A895CCEA75C149ED40E7118
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48146.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48146.jpgsave_picture_48146.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:678B009A600D40348A895CCEA75C149ED40E7118
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48147.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48147.jpgsave_picture_48147.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Snappy Driver Installer Origin R767 | Драйверпаки 24.08.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48148.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48148.jpgsave_picture_48148.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Dead Space 3 (2013) [Ru/En] (1.0.0.1/dlc) Repack FitGirl [Limited Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48149.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48149.jpgsave_picture_48149.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:C42EDB14F8B5E309ABD7D1B8E7242599E962C189
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48150.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48150.jpgsave_picture_48150.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Fabledom (2024) [Ru/Multi] (1.06) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48151.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48151.jpgsave_picture_48151.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ EF Commander 24.08 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48152.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48152.jpgsave_picture_48152.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:9B4C79622E8109CE4FB2E69B111446FC05E16001
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48153.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48153.jpgsave_picture_48153.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:C013475877C05D378F95C6D9CBA82764873CDB1A
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48154.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48154.jpgsave_picture_48154.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ magnet:?xt=urn:btih:4B4ED954FA1D887D553BADFBBF357ED1419C85F6
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48155.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48155.jpgsave_picture_48155.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Cursed Fables 5: A Gilded Rose (2024) [En] (1.0) Unofficial [Collector's Edition
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48156.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48156.jpgsave_picture_48156.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ magnet:?xt=urn:btih:1ADA5DA3002552594B28F1F8AE435742F6A14EA3
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48157.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48157.jpgsave_picture_48157.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ magnet:?xt=urn:btih:E2F764C7FC9CD5BD544063B052D81532D7947A1A
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48158.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48158.jpgsave_picture_48158.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ magnet:?xt=urn:btih:A6A5C49E0B5C1BDD11F567F2847948BF6125099D
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48159.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48159.jpgsave_picture_48159.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ VA - Today's blues (2024) [MP3|320 Kbps] <Blues>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48160.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48160.jpgsave_picture_48160.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ Armin Van Buuren - A State of Trance Radio Top 50 - 2024, Vol. 2 (2024) [FLAC 16
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48161.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48161.jpgsave_picture_48161.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ magnet:?xt=urn:btih:D5E7E9015E9730E458DAA77EB793BB315FBFC42D
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48162.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48162.jpgsave_picture_48162.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ Army Of Lovers - Remixodus (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop, Da
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48163.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48163.jpgsave_picture_48163.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ magnet:?xt=urn:btih:508F2B1F05682CC3C0096F0F2AE90BC89ECD2453
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48164.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48164.jpgsave_picture_48164.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ Frank Sinatra - On The Sunny Side Of The Street (1993) Entertainers [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48165.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48165.jpgsave_picture_48165.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ StartAllBack 3.8.0 build 5102 (DC-31-07-2024) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48166.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48166.jpgsave_picture_48166.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ VA - Anjunabeats Essentials 01 (DJ Mix) (2024) - [MP3|320 Kbps] <Progressive Hou
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48167.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48167.jpgsave_picture_48167.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Armin Van Buuren - Live at Tomorrowland 2024 (Mainstage) [Highlights] (2024) Liv
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48168.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48168.jpgsave_picture_48168.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Telegram Desktop 5.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48169.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48169.jpgsave_picture_48169.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ Deus Ex Lumina - As Above So Below (2024) [FLAC|Lossless|WEB-DL|tracks] <Synthpo
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48170.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48170.jpgsave_picture_48170.jpg" />
 </div>
 
 

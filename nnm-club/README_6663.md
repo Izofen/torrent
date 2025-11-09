@@ -6,7 +6,7 @@
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228321.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228321.jpgsave_picture_228321.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:48EACC2BE06ECCA9464C0F9B4CA5B20572F22BEF
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228331.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228331.jpgsave_picture_228331.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:84BD79213BC154431DB3F21166D0AFB58D544E64
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228339.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228339.jpgsave_picture_228339.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Eguana - Night Ambient Vol​.​2 (2023) [FLAC|Lossless|WEB-DL|tracks] <Ambient
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228347.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228347.jpgsave_picture_228347.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Uninstall Tool 3.7.3 Build 5716 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228356.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228356.jpgsave_picture_228356.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Garmin: TopoActive Africa 2023 [En]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228362.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228362.jpgsave_picture_228362.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ magnet:?xt=urn:btih:84C64AC7A452580C0EA608519CC8273324C1B5D2
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228370.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228370.jpgsave_picture_228370.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ Wise Disk Cleaner 11.0.3.817 RePack (& portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228378.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228378.jpgsave_picture_228378.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ Firefox Browser 115.0.3 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228385.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228385.jpgsave_picture_228385.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ FBackup 9.8.808 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228394.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228394.jpgsave_picture_228394.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:9D9DDA666793E4D567BDF1E97E312D9E021CE30C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228402.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228402.jpgsave_picture_228402.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Telegram Desktop 4.8.10 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228420.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228420.jpgsave_picture_228420.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ VA - The Wild Life. Music From The Original Motion Picture Soundtrack (1984) [FL
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228434.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228434.jpgsave_picture_228434.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ magnet:?xt=urn:btih:657A90F3016C8779A96FD342306A597CA4BD4795
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228442.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228442.jpgsave_picture_228442.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ magnet:?xt=urn:btih:591B29913FC2A1D8A229C307EE82169F1103C1B9
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228451.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228451.jpgsave_picture_228451.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Chromium 115.0.5790.110 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228487.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228487.jpgsave_picture_228487.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ magnet:?xt=urn:btih:CBE84F87A1A3019550CB0F6D184FA57B53FC45DC
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228498.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228498.jpgsave_picture_228498.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Paul Gilbert - The Dio Album (2023) [MP3|320 Kbps] <Hard Rock, Heavy Metal, Inst
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228508.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228508.jpgsave_picture_228508.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ magnet:?xt=urn:btih:6B5C2EFB3D6A82D4D684A869559F13FBA56F675A
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228516.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228516.jpgsave_picture_228516.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Calibre 6.7.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228520.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228520.jpgsave_picture_228520.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ magnet:?xt=urn:btih:BFC080EB26913801DD7D787A5311399FBD5838F6
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228521.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228521.jpgsave_picture_228521.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ VA - 100 Greatest Christmas Songs Ever (Top Xmas Pop Hits) (2019) [MP3|320 Kbps]
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228524.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228524.jpgsave_picture_228524.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ magnet:?xt=urn:btih:00CA7B23B91AB2C9A557313D1E0BDF25F973F528
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228525.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228525.jpgsave_picture_228525.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ magnet:?xt=urn:btih:242674F1DC296F70ED7107368404A6E83E5A7DBC
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228526.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228526.jpgsave_picture_228526.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ magnet:?xt=urn:btih:C7DF41B79B8E2F99EE4B3DE929B0592DF1E87AF7
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228527.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228527.jpgsave_picture_228527.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ magnet:?xt=urn:btih:AD9CD29A7759E8FBE16FD4079F13B31145232C12
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228528.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228528.jpgsave_picture_228528.jpg" />
 </div>
 
 

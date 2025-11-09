@@ -6,7 +6,7 @@ Men Eater - Men Eater (2023) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127795.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127795.jpgsave_picture_127795.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ The Rolling Stones - Hackney Diamonds (Live Edition) (2023) [FLAC|Lossless|WEB-D
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127800.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127800.jpgsave_picture_127800.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:8E944627ACB6E3F6CFA328649E227443D995CBD4
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127802.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127802.jpgsave_picture_127802.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Children Of Bodom - A Chapter Called Children of Bodom (2023) Final Show in Hels
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127941.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127941.jpgsave_picture_127941.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Stam1na - X (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive, Thrash, Heavy Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127949.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127949.jpgsave_picture_127949.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ magnet:?xt=urn:btih:A7BA724ACA07CC9BED0DBA5A77813FAF0A6D0369
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127966.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127966.jpgsave_picture_127966.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Evergrey - From Dark Discoveries to Heartless Portraits (2023) [FLAC|Lossless|WE
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127979.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127979.jpgsave_picture_127979.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Radio Moscow - 7 Albums (2007 - 2017) [FLAC|Lossless|tracks + .cue]<Garage Rock,
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128078.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128078.jpgsave_picture_128078.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Thelemite - Thelemism (2021) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128082.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128082.jpgsave_picture_128082.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Runemagick - Last Skull Of Humanity (2023) EP [FLAC|Lossless|WEB-DL|tracks] <Dea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128084.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128084.jpgsave_picture_128084.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ VA - New Rock Pulse (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128091.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128091.jpgsave_picture_128091.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Ammanas - Solitude (2023) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128221.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128221.jpgsave_picture_128221.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Dramaturg - Darkness (2022) [FLAC|Lossless|image + .cue] <Melodic Black Metal>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128222.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128222.jpgsave_picture_128222.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Sword - III (2022) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128223.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128223.jpgsave_picture_128223.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Cavandish - Лицемерие (2023) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128225.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128225.jpgsave_picture_128225.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Foetal Juice - Grotesque (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128226.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128226.jpgsave_picture_128226.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Grimorium Verum - Reall (2022) [FLAC|Lossless|image + .cue] <Black Metal, Sympho
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128227.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128227.jpgsave_picture_128227.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Off Grid - Reign Of The Architect (2023) [MP3|320 Kbps] <Progressive Rock, Class
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128249.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128249.jpgsave_picture_128249.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Slade - The Other Side of Slade - The 70's (2023) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128258.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128258.jpgsave_picture_128258.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ David Gilmour - Rattle That Lock (2015) Japanese Edition, Reissue, 2020, Sony Re
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128261.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128261.jpgsave_picture_128261.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Dreamwalkers Inc - The First Tragedy Of Klahera (2023) [FLAC|Lossless|WEB-DL|tra
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128349.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128349.jpgsave_picture_128349.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Truculency - The Dome Collector (2022) [FLAC|Lossless|image + .cue] <Brutal Deat
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128350.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128350.jpgsave_picture_128350.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Razörschrieck - Black Magick (2023) [FLAC|Lossless|image + .cue] <Depressive Bl
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128355.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128355.jpgsave_picture_128355.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Kalmankantaja - Tekopyhyytta Pyhassa Temppelissa (2011) Reissued 2021 [FLAC|Loss
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128357.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128357.jpgsave_picture_128357.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Treachery - The Key To The Abyss (2022) [FLAC|Lossless|image + .cue] <Death Meta
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128358.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128358.jpgsave_picture_128358.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Alchemy Of Flesh - By Will Alone (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128359.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128359.jpgsave_picture_128359.jpg" />
 </div>
 
 

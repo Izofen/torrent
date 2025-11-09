@@ -6,7 +6,7 @@ PDF-XChange Editor Plus 9.5.365.0 Portable + RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175258.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175258.jpgsave_picture_175258.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:5C8FC43625E7DFFEB58921A0BA1A26BA2BD9E25A
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175259.jpgsave_picture_175259.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:5F966AF2C6779222DA861C139819046FEA95DF53
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175260.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175260.jpgsave_picture_175260.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ Ola Englund - Master Of The Universe (2019) [FLAC|Lossless|WEB-DL|tracks] <Exper
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175261.jpgsave_picture_175261.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ magnet:?xt=urn:btih:1F091433664415BED83F29C26A5F73A05BB54D5E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175262.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175262.jpgsave_picture_175262.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ Xmas snow 1.5.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175263.jpgsave_picture_175263.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ magnet:?xt=urn:btih:F87A5D684A78BB1C6D9FCD28FB2967244C526C18
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175264.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175264.jpgsave_picture_175264.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:69E93F3B9F1B0FFEF70B448B3EE8CE8643860F5E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175265.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175265.jpgsave_picture_175265.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ magnet:?xt=urn:btih:74EC4215E9E2F88C058F0BCE258263D16A733FBE
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175268.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175268.jpgsave_picture_175268.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ magnet:?xt=urn:btih:AE36D67A435D354168FF70386B28ACAF510E0323
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175269.jpgsave_picture_175269.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ Macrorit Data Wiper 6.9.9 Unlimited Edition RePack (& Portable) by elchupacabra 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175271.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175271.jpgsave_picture_175271.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ magnet:?xt=urn:btih:59298E2518E66011A9781914D8715474BEC32496
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175273.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175273.jpgsave_picture_175273.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ Radiant Photo 1.1.2.315 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175274.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175274.jpgsave_picture_175274.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Arabs In Aspic - Arabs In Aspic - 4 Albums (2020-2022) [FLAC 24/44.1/48|Lossless
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175276.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175276.jpgsave_picture_175276.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Serif Affinity Designer 1.10.6.1665 + Content RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175277.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175277.jpgsave_picture_175277.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ magnet:?xt=urn:btih:7E35B27C5E48E7623813DE358AADF38E0ED77DD7
 >>Прочие зимние виды спорта
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175278.jpgsave_picture_175278.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Sammy Davis, Jr. - Capitol Collector's Series (1990) Capitol Records [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175280.jpgsave_picture_175280.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ magnet:?xt=urn:btih:7DB251107650CAE535E3D35866B0140CB1098536
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175281.jpgsave_picture_175281.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ Viber 21.1.0.6 (x64) RePack (Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175282.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175282.jpgsave_picture_175282.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ Motion 5.6.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175284.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175284.jpgsave_picture_175284.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ Myridian - Light in the Abyss (2020) [FLAC|Lossless|WEB-DL|tracks] <Melodic Deat
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175285.jpgsave_picture_175285.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ magnet:?xt=urn:btih:C0EA9984CF6D18A9277C8AF69F7714F840D77F46
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175287.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175287.jpgsave_picture_175287.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Belore - Journey Through Mountains and Valleys (2020) [FLAC|Lossless|image + .cu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175288.jpgsave_picture_175288.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ magnet:?xt=urn:btih:390841FB690379AFBB082556298C31144301D5FC
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175290.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175290.jpgsave_picture_175290.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Rogue Amoeba Farrago 1.6.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175291.jpgsave_picture_175291.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ magnet:?xt=urn:btih:57D18253E3801D9F7355A9AF452B137158350D9F
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175293.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175293.jpgsave_picture_175293.jpg" />
 </div>
 
 

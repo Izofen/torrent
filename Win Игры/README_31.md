@@ -6,7 +6,7 @@ The Last Flame (2024) [Ru/Multi] (1.0.3 Hotfix 2) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9265.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9265.jpgsave_picture_9265.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ The Echo Paradox (2025) [En] (19081580) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9268.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9268.jpgsave_picture_9268.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ POPUCOM (2025) [Ru/Multi] (1.0.6/dlc) Repack Let'sРlay [Too Many Clothes Editio
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9269.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9269.jpgsave_picture_9269.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ FATAL FURY: City of the Wolves (2025) [Ru/Multi] (1.3.1/dlc) Repack seleZen [Spe
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9270.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9270.jpgsave_picture_9270.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Bee Simulator: The Hive (2025) [Ru/Multi] (build 19461565/dlc) Repack seleZen
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9273.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9273.jpgsave_picture_9273.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ The Shaman's Ark (2025) [Ru/Multi] (build 19404296) Repack seleZen
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9275.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9275.jpgsave_picture_9275.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Fuel Harvest Together (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9278.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9278.jpgsave_picture_9278.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ PEAK (2025) [Ru/Multi] (1.11.a) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9285.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9285.jpgsave_picture_9285.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Copycat (2024) [Ru/Multi] (1.0.6) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9290.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9290.jpgsave_picture_9290.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Rail Route (2024) [Ru/Multi] (2.3.22/dlc) Repack FitGirl [Supporter Bundle]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9300.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9300.jpgsave_picture_9300.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Driftwood (2023) [Ru/Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9347.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9347.jpgsave_picture_9347.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Fuel Harvest Together (2025) [Ru/Multi] (1.0) Repack seleZen
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9351.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9351.jpgsave_picture_9351.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Driftwood (2023) [Ru/Multi] (1.0) Repack seleZen
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9354.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9354.jpgsave_picture_9354.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Hellcard (2024) [Ru/Multi] (1.1.250731/dlc) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9375.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9375.jpgsave_picture_9375.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Gatekeeper (2024) [Ru/Multi] (1.0) Repack seleZen
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9378.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9378.jpgsave_picture_9378.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Bus Flipper: Renovator Simulator (2025) [Ru/Multi] (1.0.22r) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9380.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9380.jpgsave_picture_9380.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Ikarus Parkour (2025) [Ru/Multi] (2.7) Repack seleZen
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9383.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9383.jpgsave_picture_9383.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Forest 6174 (2025) [Ru/Multi] (build 19378140) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9419.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9419.jpgsave_picture_9419.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Chants of Sennaar (2023) [Ru/Multi] (1.0.0.9-r3) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9433.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9433.jpgsave_picture_9433.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Kaizen: A Factory Story (2025) [Ru/Multi] (1.0.0.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9434.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9434.jpgsave_picture_9434.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Ninja Gaiden: Ragebound (2025) [Ru/Multi] (cs36158) Repack Wanterlude
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9437.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9437.jpgsave_picture_9437.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ South of Midnight (2025) [Ru/Multi] (1.3.0 186489) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9438.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9438.jpgsave_picture_9438.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Chasers Dash & Bash (2020) [Ru/Multi] (1.0.1) Repack FitGirl
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9444.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9444.jpgsave_picture_9444.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Power & Revolution (2023) [Ru/Multi] (6.94/dlc) Repack FitGirl [2023 Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9448.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9448.jpgsave_picture_9448.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Tyrant's Realm (2025) [Ru/Multi] (20250731 Build 19375382) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9458.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9458.jpgsave_picture_9458.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ One-Eyed Likho / Лихо одноглазое (2025) [Ru/Multi] (Build 19401283
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9459.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9459.jpgsave_picture_9459.jpg" />
 </div>
 
 

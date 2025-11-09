@@ -6,7 +6,7 @@
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249967.jpgsave_picture_249967.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Scott Eaton | Anatomy for Artists Week 1-8 (2012) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249968.jpgsave_picture_249968.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:9E125118CA896A9B8B21506757F7526A775EFA06
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249969.jpgsave_picture_249969.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ IDPhotoStudio + Portable 2.16.5.75 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249970.jpgsave_picture_249970.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:48C5F418DC8DA5A95D084A68C82C1D3FFD42ACB5
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249971.jpgsave_picture_249971.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:F0CE6D047F89C81A9C1973312DA1D4CF894C1F9E
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249972.jpgsave_picture_249972.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:8B033D5034E513F7AB7734146B9D2A193E69C51D
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249973.jpgsave_picture_249973.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Shade: Wrath Of Angels / Гнев Ангелов (2004) [Ru/En] (1.2) Repack Vas
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249974.jpgsave_picture_249974.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:FE1530DC39B06803EE8FD00B050F0CB690BE4415
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249975.jpgsave_picture_249975.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ CrystalDiskInfo 9.0.0 Beta3 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249976.jpgsave_picture_249976.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Auslogics BoostSpeed 12.3.0.1 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249977.jpgsave_picture_249977.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ VA - Classic & Easy Soft Rock (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock, Soft R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249978.jpgsave_picture_249978.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:AC9FE922EA7F33D43156F316C7894713218B696D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249979.jpgsave_picture_249979.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ magnet:?xt=urn:btih:83D0D4352B29332B42CA2334ECC20177FB0229C5
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249980.jpgsave_picture_249980.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ magnet:?xt=urn:btih:285DD341E2CA034C500111D9FF56BE5AB8339629
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249981.jpgsave_picture_249981.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ magnet:?xt=urn:btih:665E1EC55F9F9607E01C20EBF13788806ECFE8FF
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249982.jpgsave_picture_249982.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ Wondershare PDFelement 9.4.5.2128 + OCR Plugin (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249983.jpgsave_picture_249983.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ magnet:?xt=urn:btih:3CC3653269BEC542CE1BD28A0FD818C3BB782BC7
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249984.jpgsave_picture_249984.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ magnet:?xt=urn:btih:8080AB5AEB9B89044F8B5AE7EA32095550C1CA5E
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249985.jpgsave_picture_249985.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ VA - Billboard Hot 100 Singles Chart. 11 March 2023 (2023) [MP3|320 Kbps] <Pop, 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249986.jpgsave_picture_249986.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ magnet:?xt=urn:btih:804E8853D4CC0078B6FCAE2A4575FDC2EC143DD4
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249987.jpgsave_picture_249987.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ Scott Eaton | Portraiture and Facial Anatomy Week 1-6 (2016) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249988.jpgsave_picture_249988.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:CD5D08A0F304BA86AF9A999572649FEFE2ED34A7
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249989.jpgsave_picture_249989.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Sweet Home 3D 7.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249990.jpgsave_picture_249990.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ magnet:?xt=urn:btih:AD2897E6A0B591903B6E438D8F93EF54BA395C64
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249991.jpgsave_picture_249991.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ magnet:?xt=urn:btih:6E28276EB0711F1F3823FF77AA0FFA2E6A5207CF
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249992.jpgsave_picture_249992.jpg" />
 </div>
 
 

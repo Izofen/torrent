@@ -6,7 +6,7 @@
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147026.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147026.jpgsave_picture_147026.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:1F92F566493A89DABDFEFC4A2A953FE07D9372B6
 >>Общественно-политические и пропагандистские ток-шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147027.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147027.jpgsave_picture_147027.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:AEFFA201C00AA606EE90C44C0DEBC2D50E671792
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147028.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147028.jpgsave_picture_147028.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:619B8FCBD56B471C659A96E77A023499D1114B20
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147029.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147029.jpgsave_picture_147029.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:85F99446FD623198DAA40B6FE09779E7F27B746F
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147030.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147030.jpgsave_picture_147030.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ VA - Neon Plasma EDM Party (2016) [MP3|320 Kbps] <Electro, Progressive House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147031.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147031.jpgsave_picture_147031.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ magnet:?xt=urn:btih:E51060758DD3D5970C47B63617D98D5977567298
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147032.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147032.jpgsave_picture_147032.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ Joanne Shaw Taylor - Reckless Heart (2019) [FLAC 2.0 24/192|image (Vinyl-Rip)]<B
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147033.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147033.jpgsave_picture_147033.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ uDraw Wii collection [Wii] [PAL] [Eng] (2010-2011)
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147034.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147034.jpgsave_picture_147034.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ magnet:?xt=urn:btih:4F66BBF83CCFB37899A4C475ADCD1DC884A65386
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147035.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147035.jpgsave_picture_147035.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ The Seven Chambers (2018) [En] (1.0) Unofficial
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147036.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147036.jpgsave_picture_147036.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ R-Studio Network Edition 8.12 build 175721 RePack (& Portable) by TryRooM [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147038.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147038.jpgsave_picture_147038.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ Morcheeba - The Best Of Morcheeba 1995-2003 (2011) 2CD, Compilation [FLAC|Lossle
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147039.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147039.jpgsave_picture_147039.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ magnet:?xt=urn:btih:684F0D36F9F4AADCDAA720B9E4EBED6046E22B6E
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147040.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147040.jpgsave_picture_147040.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ magnet:?xt=urn:btih:FF6B20DF31ECCFAF9EF9F2CE6105B6E785399190
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147041.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147041.jpgsave_picture_147041.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ XYplorer 22.60.0200 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147042.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147042.jpgsave_picture_147042.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ magnet:?xt=urn:btih:5B6638F392FE4EE38D1F59644FCA8CC4CBB8AFDE
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147043.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147043.jpgsave_picture_147043.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ magnet:?xt=urn:btih:0FE7977E3389F60C898F4B5416B31210D1ACD78D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147044.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147044.jpgsave_picture_147044.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ magnet:?xt=urn:btih:AB45F6F990ACE11572283D0A5424617AA1938083
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147046.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147046.jpgsave_picture_147046.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ magnet:?xt=urn:btih:00A3A4BFE1585448A1298883AA28C1BDF5619787
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147047.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147047.jpgsave_picture_147047.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ magnet:?xt=urn:btih:868F2F38D3E2BDA9D545ED924CEE3700026CDB37
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147048.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147048.jpgsave_picture_147048.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ magnet:?xt=urn:btih:CC267063507FEDBBEB1D6B8A627697D67AD70DC0
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147050.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147050.jpgsave_picture_147050.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Cj Stereogun & Margo Fly - The Mirror (2016) [MP3|320 Kbps] <Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147051.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147051.jpgsave_picture_147051.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ magnet:?xt=urn:btih:939508200D4237C0CB0A31898EED1CE6CD0CCA45
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147052.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147052.jpgsave_picture_147052.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ magnet:?xt=urn:btih:0E5AA6BF9C02F5839DF6299399B9F92D62E1E919
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147053.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147053.jpgsave_picture_147053.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Udemy, Сергей Семёнов | Selenium и Selenide для начинаю�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147054.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147054.jpgsave_picture_147054.jpg" />
 </div>
 
 

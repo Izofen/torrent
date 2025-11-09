@@ -6,7 +6,7 @@ Queen - 14 Студийных альбомов (1973-1991) 1-st Press Japan /198
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77233.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77233.jpgsave_picture_77233.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Sentenced - The Funeral Album (Japanese Edition) (2005) [FLAC|Lossless]<Gothic M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77297.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77297.jpgsave_picture_77297.jpg" />
 </div>
 
 
@@ -68,7 +68,7 @@ Sentenced - The Funeral Album (Japanese Edition) (2005) [FLAC|Lossless]<Gothic M
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77317.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77317.jpgsave_picture_77317.jpg" />
 </div>
 
 
@@ -101,7 +101,7 @@ Howlin Rain - 4 альбома (2006 - 2012) [FLAC|Lossless]<Psychedelic / Blues
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77346.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77346.jpgsave_picture_77346.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ Creedence Clearwater Revisited - Extended Versions (2010) [FLAC|Lossless]<Classi
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77358.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77358.jpgsave_picture_77358.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Creedence Clearwater Revisited - Extended Versions (2010) [FLAC|Lossless]<Classi
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77435.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77435.jpgsave_picture_77435.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ Sting - B-Sides & Rarities (2008) [WavPack|Lossless]<Rock, Jazz Rock, Blues Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77700.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77700.jpgsave_picture_77700.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ Elvis Presley - ELVIS GOLD - The Very Best Of The KING (1995) [MP3|320 kbps]<Roc
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77775.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77775.jpgsave_picture_77775.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Kiss - 5 Albums (1978-1982) [FLAC|Lossless]<Hard Rock, Classic Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78128.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78128.jpgsave_picture_78128.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Kiss - 5 Albums (1978-1982) [FLAC|Lossless]<Hard Rock, Classic Rock>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78352.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78352.jpgsave_picture_78352.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Seven Seals - ... of Contradictions (2012) Авторская раздача [FL
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78360.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78360.jpgsave_picture_78360.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ VA - A Tribute to "Чёрный Обелиск" (2012) [MP3|192 кб/с]<Heavy M
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78361.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78361.jpgsave_picture_78361.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ Shovellica (Красная плесень) - The Symphony Of The Shovel (2011) [
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78543.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78543.jpgsave_picture_78543.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ Rockets - 6 Студийных альбомов (1976-1982) /2000-2003, Rockland
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78823.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78823.jpgsave_picture_78823.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ Rockets - 6 Студийных альбомов (1976-1982) /2000-2003, Rockland
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78835.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78835.jpgsave_picture_78835.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ David Gilmour - Greatest Hits (2006) [WavPack|Lossless]<Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79011.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79011.jpgsave_picture_79011.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Dio - Holy Diver (1983) /2012, Audio Fidelity [FLAC|Lossless]<Heavy Metal / Hard
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79031.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79031.jpgsave_picture_79031.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Louna - Время Х (2012) [MP3|320 кб/с]<Alternative Rock / Post-Grunge / 
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79069.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79069.jpgsave_picture_79069.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ magnet:?xt=urn:btih:45BE545070E7A8C23AF1BCD4161A6447D97BD63D
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79124.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79124.jpgsave_picture_79124.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ Whitesnake - Here I Go Again: The Whitesnake Collection (2002) 2CD [FLAC|Lossles
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79149.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79149.jpgsave_picture_79149.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Whitesnake - Here I Go Again: The Whitesnake Collection (2002) 2CD [FLAC|Lossles
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79271.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79271.jpgsave_picture_79271.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ Xandria - Neverworld's End (Limited Edition) (2012) [FLAC|Lossless]<Power Metal,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79551.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79551.jpgsave_picture_79551.jpg" />
 </div>
 
 
@@ -698,7 +698,7 @@ Manfred Mann's Earth Band - 2 Альбома (1976, 1978) [FLAC|Lossless]<Prog R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79571.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79571.jpgsave_picture_79571.jpg" />
 </div>
 
 
@@ -728,7 +728,7 @@ Nightwish - Lokikirja (2009) Box Set, 8CD / Spinefarm Records / [FLAC|Lossless]<
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79800.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79800.jpgsave_picture_79800.jpg" />
 </div>
 
 
@@ -755,7 +755,7 @@ Eloy - 18 альбомов (1971-2009) Not Remastered [FLAC|Lossless|image + .cu
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79825.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79825.jpgsave_picture_79825.jpg" />
 </div>
 
 
@@ -782,7 +782,7 @@ Whitesnake - Best Ballads (2000) [MP3|320 кб/с]<Hard/Glam Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80036.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80036.jpgsave_picture_80036.jpg" />
 </div>
 
 

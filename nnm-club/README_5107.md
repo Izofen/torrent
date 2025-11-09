@@ -6,7 +6,7 @@
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159504.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159504.jpgsave_picture_159504.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ PotPlayer 231110 (1.7.22037) (x64) Stable RePack (& portable) by 7sh3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159505.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159505.jpgsave_picture_159505.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:330337838C5CD14989C4F2CA847C3ACEAE66172F
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159506.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159506.jpgsave_picture_159506.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Blue Iris 5.3.7.5 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159507.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159507.jpgsave_picture_159507.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ Windows 11 Manager 1.3.3 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159508.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159508.jpgsave_picture_159508.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:A4C426E9EECFFC1A521C2837E31778003C89C226
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159509.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159509.jpgsave_picture_159509.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:4BD11A446A5913EF9D8E67CA4B0840C5D222AE32
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159510.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159510.jpgsave_picture_159510.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ Domestika, Mina Barrio | Профессиональные селфи и виде
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159511.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159511.jpgsave_picture_159511.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Hoshi no Samidare | Lucifer and the Biscuit Hammer | Люцифер и биск�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159512.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159512.jpgsave_picture_159512.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ Gekijouban Fate/Stay Night: Heaven's Feel | Судьба: Ночь схватк�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159513.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159513.jpgsave_picture_159513.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:D072BE8E2A666B3FAAD1294F40BD69F12D55C26D
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159514.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159514.jpgsave_picture_159514.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Svoboda 1945: Liberation (2021) [Multi] (1.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159515.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159515.jpgsave_picture_159515.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:4777A99B2D949650C38713ED244C1341C1013D8A
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159516.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159516.jpgsave_picture_159516.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:2E2B9BEC6498C7737AF2827BE9C50D6270EE8466
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159517.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159517.jpgsave_picture_159517.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ magnet:?xt=urn:btih:AC744F17643342DECFAB2629034B5165A4BDD47A
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159518.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159518.jpgsave_picture_159518.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:360323F92FC636446AC515B6A76FDC9553C54158
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159520.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159520.jpgsave_picture_159520.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ magnet:?xt=urn:btih:9356DF7705F81B683730A25AA5B3706A81CC6148
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159521.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159521.jpgsave_picture_159521.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ Berserk: Ougon Jidai Hen - Memorial Edition | Берсерк: Золотой в�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159522.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159522.jpgsave_picture_159522.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:C0C13EA35AB57FFC505BAF3D53D78F2961A87E82
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159523.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159523.jpgsave_picture_159523.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Shinmai Renkinjutsushi no Tenpo Keiei | Магазинчик начинающе�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159524.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159524.jpgsave_picture_159524.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Koukyuu no Karasu | Raven of the Inner Palace | Ворона в гареме [20
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159525.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159525.jpgsave_picture_159525.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ magnet:?xt=urn:btih:24F28B6E7810E323B5DC4CD91B44CB874CDA4267
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159526.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159526.jpgsave_picture_159526.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ MemTest86 10.2 Build 1000 Free [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159528.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159528.jpgsave_picture_159528.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Ventoy 1.0.86 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159529.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159529.jpgsave_picture_159529.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Attentat 1942 (2017) [Ru/Multi] (1.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159530.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159530.jpgsave_picture_159530.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Cтражи Галактики: Праздничный спецвыпуск / Th
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159531.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159531.jpgsave_picture_159531.jpg" />
 </div>
 
 

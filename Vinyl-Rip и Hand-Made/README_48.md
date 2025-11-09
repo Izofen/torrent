@@ -6,7 +6,7 @@ Death - Individual Thought Patterns (1993) [FLAC|24/96|tracks|Vinyl-Rip] <Death 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168063.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168063.jpgsave_picture_168063.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Death - Symbolic (1995) [FLAC|24/96|tracks|Vinyl-Rip] <Death Metal, Progressive 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168088.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168088.jpgsave_picture_168088.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Nordic Union - Studio Albums (3 releases) (2016 - 2022) hand made [restored, dec
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168260.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168260.jpgsave_picture_168260.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Tangerine Dream - Stratosfear (1981) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Ele
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168724.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168724.jpgsave_picture_168724.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ magnet:?xt=urn:btih:9988EF09DB2BA403F6D9AB26745AE208C6AF3A06
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168732.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168732.jpgsave_picture_168732.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Tarja (Nightwish) - Studio Albums (5 releases) (2007 - 2019) hand made [restored
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168869.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168869.jpgsave_picture_168869.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ ZZ Top - 5 Studio albums (1994-2012) hand made [restored, declipped] [FLAC|Lossl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168973.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168973.jpgsave_picture_168973.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Audioslave - Studio Albums (3 releases) (2002 - 2006) hand made [restored, decli
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169069.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169069.jpgsave_picture_169069.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Death - Leprosy (1988) [FLAC|24/96|tracks|Vinyl-Rip] <Death Metal, Progressive D
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169459.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169459.jpgsave_picture_169459.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Death - Scream Bloody Gore (1987) Reissue, 2001, Century Media [FLAC|24/96|track
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170154.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170154.jpgsave_picture_170154.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Gorefest (& The 11th Hour) - Studio Albums (9 releases) (1991-2012) hand made [r
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171225.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171225.jpgsave_picture_171225.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Death - Human (1991) Reissue 2021, Relapse Records [FLAC|24/96|tracks|Vinyl-Rip]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171235.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171235.jpgsave_picture_171235.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:0FE311C7FF8BB2A7F2ED42C507E7132C9BCFEB03
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171506.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171506.jpgsave_picture_171506.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Brand New - Studio Albums (5 releases) (2001-2017) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171583.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171583.jpgsave_picture_171583.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Mick Foster & Tony Allen - The Worlds Of Mick Foster & Tony Allen (1988) [FLAC 2
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171738.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171738.jpgsave_picture_171738.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Rival Sons - Studio Albums (9 releases) (2009-2023) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171743.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171743.jpgsave_picture_171743.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ magnet:?xt=urn:btih:08B2C03D66B08AC7471D628BDD3EB9CE8853A29D
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171830.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171830.jpgsave_picture_171830.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Devin Townsend - The Puzzle (2021) [FLAC|24/192|image + .cue|Vinyl-Rip] <Progres
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171940.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171940.jpgsave_picture_171940.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Devin Townsend - Snuggles (Beautiful Dream) (2021) [FLAC|24/192|image + .cue|Vin
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171948.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171948.jpgsave_picture_171948.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Roger Whittaker - Love Will Be Our Home (1989) [FLAC 2.0|24/192|image + .cue|Vin
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172120.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172120.jpgsave_picture_172120.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Devin Townsend - Empath (2019) [FLAC|24/192|image + .cue|Vinyl-Rip]  <Progressiv
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172141.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172141.jpgsave_picture_172141.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Yujiro Mabuchi '68 All Stars - Minatomachi Blues. Crown Golden Series, Tenor Sax
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172211.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172211.jpgsave_picture_172211.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Romy - Mid Air (2023) [FLAC|Lossless|tracks] hand made [restored, declipped] <Ho
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172323.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172323.jpgsave_picture_172323.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Guns N' Roses - Studio Albums (4 releases) (1991-2023) hand made [restored, decl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172592.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172592.jpgsave_picture_172592.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Ronnie Atkins (Pretty Maids) - Studio Albums (4 releases) (2021-2023) hand made 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172602.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172602.jpgsave_picture_172602.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Babe Corner - Crybaby  [FLAC 24/48|Lossless|tracks] hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172644.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172644.jpgsave_picture_172644.jpg" />
 </div>
 
 

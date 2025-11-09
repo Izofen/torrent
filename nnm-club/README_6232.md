@@ -6,7 +6,7 @@
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195544.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195544.jpgsave_picture_195544.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Firefox Browser ESR 115.0.3 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195545.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195545.jpgsave_picture_195545.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:0C3C57E59464F3C0D062D9EA481D4A32A22D44FB
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195546.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195546.jpgsave_picture_195546.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ AIDA64 Extreme | Engineer | Business Edition | Network Audit 6.90.6500 Portable 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195547.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195547.jpgsave_picture_195547.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:52D61EFC4F425EA4B1C1B1F96DBD9CCBAA4E27FC
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195548.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195548.jpgsave_picture_195548.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ VA - Heavy Blues (2023) 2CD [MP3|320 Kbps] <Blues, Heavy Blues, Dark Blues>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195549.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195549.jpgsave_picture_195549.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:9FACDDC02CCFD259FF9006A2F88745FE40AA1324
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195550.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195550.jpgsave_picture_195550.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:4D7721EF21E6A9840469845FEEA63CD4BCE6888A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195552.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195552.jpgsave_picture_195552.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:0A2C8EC23C97F12115AEAC99BA6AC05E69DB73AB
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195553.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195553.jpgsave_picture_195553.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:0CB1F29ED40B744870401C607DE61EC9CA114BF4
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195554.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195554.jpgsave_picture_195554.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ Golden Voice of ENIGMA - МИР Сибири (2023) WEBRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195555.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195555.jpgsave_picture_195555.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ magnet:?xt=urn:btih:A00543DE3AEA63F5B9CDCC9580796D380070F2A1
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195556.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195556.jpgsave_picture_195556.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ magnet:?xt=urn:btih:2123DB9DC7933BFD7CA66039CBFE85F58B8A2AEF
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_195557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195557.jpgsave_picture_195557.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:E043844DC3D24569E3E391A38142647D9DF11A91
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195559.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195559.jpgsave_picture_195559.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ magnet:?xt=urn:btih:7AF4D9CEFC6B8943D0F17C0EE52DA78F8D404D4E
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_195560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195560.jpgsave_picture_195560.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Total War: Rome II (2) (2014) [Ru/En] (2.4.0.11535779/dlc) Repack dixen18 [Emper
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195561.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195561.jpgsave_picture_195561.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Microsoft Windows 10.0.19045.3208, Version 22H2 (Updated July 2023) - Ориги
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195562.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195562.jpgsave_picture_195562.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Kena: Bridge of Spirits / Кена: Мост духов (2021) [Ru/Multi] (2.08)
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_195563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195563.jpgsave_picture_195563.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ BlueStacks App Player 5.12.0.1085 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195564.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195564.jpgsave_picture_195564.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ B-17 Flying Fortress: The Mighty 8th / Б-17 Летающая крепость 2
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_195565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195565.jpgsave_picture_195565.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ magnet:?xt=urn:btih:199C43CEEAD3427728DFC7A0693A8458B01F4883
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195566.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195566.jpgsave_picture_195566.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Nova Lands (2023) [Ru/Multi] (1.0.23) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195567.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195567.jpgsave_picture_195567.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ magnet:?xt=urn:btih:E914D9F0A02519F08C944AC6F6198E9C0A1BF966
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195568.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195568.jpgsave_picture_195568.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ magnet:?xt=urn:btih:4D67751694B2658FF985706FAE415836A72E2249
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_195569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195569.jpgsave_picture_195569.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ magnet:?xt=urn:btih:27A1FA4570CB14D6B264AF8DD95A756E136664DE
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195570.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195570.jpgsave_picture_195570.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ magnet:?xt=urn:btih:DE24C8DC9538052A0A2B93868DD7A094947BBF54
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_195571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195571.jpgsave_picture_195571.jpg" />
 </div>
 
 

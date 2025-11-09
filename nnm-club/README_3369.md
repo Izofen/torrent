@@ -6,7 +6,7 @@ Marcela de Campos - Dimmed Lights (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Bl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107955.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107955.jpgsave_picture_107955.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ The Andy MacFarlane Two Man Orchestr - My Old Suitcase (2024) [FLAC 24/44.1|Loss
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107956.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107956.jpgsave_picture_107956.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Xeneris - Eternal Rising (2024) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107957.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107957.jpgsave_picture_107957.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Jesse Dayton - The Hard Way Blues (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Bl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107958.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107958.jpgsave_picture_107958.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ VA - Константин Ступин. Трибьют, Часть 1 (2024) [FLA
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107959.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107959.jpgsave_picture_107959.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ magnet:?xt=urn:btih:5D9752149737D91B8D5374A5F2843C324A13B110
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107960.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107960.jpgsave_picture_107960.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Paul McCartney & Wings - One Hand Clapping Sessions [Live Studio Sessions 1974 /
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107961.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107961.jpgsave_picture_107961.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Neon Swingers - Electro Swing Party (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107962.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107962.jpgsave_picture_107962.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ magnet:?xt=urn:btih:8F7E88316858D12A2EEBCDB927BB683F2A2BA764
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107963.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107963.jpgsave_picture_107963.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ magnet:?xt=urn:btih:ACA8A3472E718F4F5641EB5CAD4DE185BBF910EA
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107964.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107964.jpgsave_picture_107964.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ VA - Black Hole Trance Music 06-24 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107965.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107965.jpgsave_picture_107965.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Opera GX 109.0.5097.130 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107966.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107966.jpgsave_picture_107966.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ magnet:?xt=urn:btih:DE4EE20546A428738F5322960CE38E29B0A14B6B
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107967.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107967.jpgsave_picture_107967.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Axel Rudi Pell - Risen Symbol (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Melodi
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107968.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107968.jpgsave_picture_107968.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ magnet:?xt=urn:btih:3156FF963C6958FC5CED112F0A61448B9E7E7E72
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107969.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107969.jpgsave_picture_107969.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ PhotoRoom 5.0.2 (b1448) Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107970.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107970.jpgsave_picture_107970.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ magnet:?xt=urn:btih:AAE61A1F793B472533CA5BC9522B22DC89E47163
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107971.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107971.jpgsave_picture_107971.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ magnet:?xt=urn:btih:248ECFF1840113EC39D4074FA6E408AF216296D1
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107972.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107972.jpgsave_picture_107972.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ magnet:?xt=urn:btih:6487A9FDC0E9460C51611CC89DDB6EB77B91A929
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107973.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107973.jpgsave_picture_107973.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Fuzziliers - Sail the Seven Seas (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <psy
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107974.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107974.jpgsave_picture_107974.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ Hour of Penance - Regicide (2014) [FLAC|Lossless|image + .cue] <Technical, Bruta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107975.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107975.jpgsave_picture_107975.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ Vince Guaraldi - A Flower Is A Lovesome Thing (1957) Original Jazz Classics [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107976.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107976.jpgsave_picture_107976.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ Tom Harrell, Kenny Werner, Andre Ceccarelli, Paul Imm - Sail Away (1991) Musidis
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107977.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107977.jpgsave_picture_107977.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ Ensiferum - Ensiferum (2001) Remastered, 2014, Blood Music [FLAC|24/192|image + 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107978.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107978.jpgsave_picture_107978.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ Bab L' Bluz - Swaken (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <psychedelic r
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107979.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107979.jpgsave_picture_107979.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Jimmie Lunceford - Margie (1946, 1947) 1989, Savoy Jazz [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107980.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107980.jpgsave_picture_107980.jpg" />
 </div>
 
 

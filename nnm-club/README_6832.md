@@ -6,7 +6,7 @@ Dorian Gray - Free Spirit (2004) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234807.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234807.jpgsave_picture_234807.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Carmen Lundy - Fade To Black (2022) Afrasia Productions [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234808.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234808.jpgsave_picture_234808.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Wet Wet Wet - Popped In Souled Out (1987-2017) Reissue, 2017, Virgin EMI Records
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234809.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234809.jpgsave_picture_234809.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Distance of Thought - Edge of Forever (2023) [FLAC|Lossless|WEB-DL|tracks] <Prog
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234810.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234810.jpgsave_picture_234810.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ magnet:?xt=urn:btih:7201BF2D76125C93B403E44F541AB2033B6BBDA5
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234811.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234811.jpgsave_picture_234811.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ VA - The Seeds of Lounge, Vol. 1 (2021) [AAC|~317 Kbps] <Lounge, Chill Out, Down
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234813.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234813.jpgsave_picture_234813.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Razorblade Messiah - Age of Oppression (2022) EP [FLAC|Lossless|WEB-DL|tracks] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234814.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234814.jpgsave_picture_234814.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Mammatus - Expanding Majesty (2023) [FLAC|Lossless|WEB-DL|tracks] <Psych, Stoner
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234815.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234815.jpgsave_picture_234815.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ magnet:?xt=urn:btih:B54B711B57AD67D32484199B14EE4C7CDC320D90
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234817.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234817.jpgsave_picture_234817.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ magnet:?xt=urn:btih:2F49D83F014E31692EAB0EAFA45FF20AC54106B7
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234818.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234818.jpgsave_picture_234818.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ magnet:?xt=urn:btih:665AA5B60E2F12C0A132540E6DB71ED361321DC3
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234819.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234819.jpgsave_picture_234819.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ VA - Lounge Hotel, Vol. 1 (2021) [AAC|~308 Kbps] <Lounge, Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234820.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234820.jpgsave_picture_234820.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Sermon - Till Birth Do Us Part (2023) [FLAC|Lossless|WEB-DL|tracks] <Gothic Doom
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234821.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234821.jpgsave_picture_234821.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ magnet:?xt=urn:btih:14FCB9260C6C20329BCA4BFEB87A660E229F195C
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234822.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234822.jpgsave_picture_234822.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Silvertrain - Steel Against Steel (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234823.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234823.jpgsave_picture_234823.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Dream Widow & Foo Fighters - Dream Widow (2022) [FLAC 2.0|44.1/24|WEB-DL|tracks]
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234824.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234824.jpgsave_picture_234824.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ magnet:?xt=urn:btih:4F6270BB3FA3FB8460119E93E8B935002D56FCA0
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234825.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234825.jpgsave_picture_234825.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ magnet:?xt=urn:btih:654DD0A85E43687DE28316B0A8AF877590CF745B
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234827.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234827.jpgsave_picture_234827.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ Google анонсировал новую функцию «Результаты �
 >>Компьютерные новости
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_234828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_234828.jpgsave_picture_234828.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ Fig Player - play mp4 mkv mp3 for Mac 1.3.1 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234829.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234829.jpgsave_picture_234829.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ magnet:?xt=urn:btih:B2986BE06D1D5D8FF6CD792C8275A65145C1417B
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234830.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234830.jpgsave_picture_234830.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Clipboard Manager 2.4.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234831.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234831.jpgsave_picture_234831.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Slipknot - The End, So Far (2022) [MP3|320 Kbps] <Nu-Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234832.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234832.jpgsave_picture_234832.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ magnet:?xt=urn:btih:ACEDCF14F7422061FC0D7AFA6F4809CA69641103
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234833.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234833.jpgsave_picture_234833.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Windows 7 (6.1.7601.25954) x64 (4in1) by Brux [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234836.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234836.jpgsave_picture_234836.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ VA - Ibiza Chill Vibes, Vol. 1 (2021) [AAC|~327 Kbps] <Lounge, Chill Out, Downte
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234837.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234837.jpgsave_picture_234837.jpg" />
 </div>
 
 

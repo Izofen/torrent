@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_214832.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_214832.jpgsave_picture_214832.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Adobe Lightroom Classic for Mac 12.4 U2B [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_214874.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_214874.jpgsave_picture_214874.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ iTop VPN 4.7.0.4423 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_214882.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_214882.jpgsave_picture_214882.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ WinRAR 6.23 Final RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_214889.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_214889.jpgsave_picture_214889.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:1282F34E05B343654AE1CAD926C8ACFB49C8F876
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_214894.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_214894.jpgsave_picture_214894.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Microsoft Windows 10.0.19045.3324, Version 22H2 (Updated August 2023) - Ориг
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_214908.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_214908.jpgsave_picture_214908.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:3E8735D83522414744B4FD0A91B76DA304D6486D
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_214915.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_214915.jpgsave_picture_214915.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:3E8735D83522414744B4FD0A91B76DA304D6486D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_214918.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_214918.jpgsave_picture_214918.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:47D8C9E56019C893E2BF71E04F1CFE5A05B9E20C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_214931.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_214931.jpgsave_picture_214931.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:24690747B53BA94DD1EC916791FD7B126C3BDB86
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_214938.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_214938.jpgsave_picture_214938.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Adobe Illustrator 2023 27.8.1.268 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_214947.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_214947.jpgsave_picture_214947.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:66A684548733CB6F6B2A0084A9131D833AA6393A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_214958.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_214958.jpgsave_picture_214958.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:6D0BFAA571034324CB19B39D139BFECA5DC93D8F
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_214968.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_214968.jpgsave_picture_214968.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Microsoft Office LTSC 2021 Professional Plus / Standard + Visio + Project 16.0.1
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215022.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215022.jpgsave_picture_215022.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ magnet:?xt=urn:btih:6DD7D547F25F04BB0E88F5E5E2D6C71552E145F0
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215030.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215030.jpgsave_picture_215030.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ magnet:?xt=urn:btih:E13966BFAD541FAD3FB7D5BE29882E5549408D19
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215043.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215043.jpgsave_picture_215043.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ JustNote Team, Дмитрий Гомонов | Курс по ремонту но
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215058.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215058.jpgsave_picture_215058.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ Microsoft Office 2016 Pro Plus + Visio Pro + Project Pro 16.0.5579.1001 VL (x86)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215068.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215068.jpgsave_picture_215068.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ magnet:?xt=urn:btih:A512C09D07AB2FCB92C3216FA8FA0A315088D678
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215085.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215085.jpgsave_picture_215085.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Adobe Substance 3D Painter 9.0.0 build 2585 [Multi]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215102.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215102.jpgsave_picture_215102.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ magnet:?xt=urn:btih:CF3AC6154D9785C0F34162117C86C4ABE65FA5B4
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215107.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215107.jpgsave_picture_215107.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:33B3DB972600A3370E552F7BBD81FAD8194D640C
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215132.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215132.jpgsave_picture_215132.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ magnet:?xt=urn:btih:9DD106C466750DD06B3BBD48560FAC4E4678D58C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215141.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215141.jpgsave_picture_215141.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ magnet:?xt=urn:btih:96C85A5F1D79CB62D9E5E541A3514112EAC733FE
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215147.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215147.jpgsave_picture_215147.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Microsoft Office 2013 Pro Plus + Visio Pro + Project Pro + SharePoint Designer S
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215160.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215160.jpgsave_picture_215160.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ magnet:?xt=urn:btih:D02F5BE4D16DB0F9A665891F450DA59A61BC9C60
 >>Иностранные языки (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215170.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215170.jpgsave_picture_215170.jpg" />
 </div>
 
 

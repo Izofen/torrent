@@ -6,7 +6,7 @@ Adobe Illustrator 2024 28.5.0.132 + Plug-ins (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58061.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58061.jpgsave_picture_58061.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:9FF4773E5E5A9B518B810DCF63B60C2AF1E59B2B
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58062.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58062.jpgsave_picture_58062.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ Kaiko Sareta Ankoku Heishi (30-dai) no Slow na Second Life | Неспешная 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58063.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58063.jpgsave_picture_58063.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ Bootleg Steamer (2024) [En] (1.0) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58064.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58064.jpgsave_picture_58064.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ vpnify - Безлимитный VPN 2.1.9 Mod by YouAreFinished [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58065.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58065.jpgsave_picture_58065.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Oriental Valley (2024) [Multi] (1.0/dlc) Repack FitGirl [Deluxe Edition]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58066.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58066.jpgsave_picture_58066.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:6A5321D82F8514BC61CE4323BE95F997122E7508
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58067.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58067.jpgsave_picture_58067.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ Tad the Lost Explorer (2022) [Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58068.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58068.jpgsave_picture_58068.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ Windows 10 (v22h2) x64 PRO by KulHunter v17 (esd) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58069.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58069.jpgsave_picture_58069.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:0865ACF020F5462990EC3E9B22ADD299CDECC143
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58070.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58070.jpgsave_picture_58070.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Scott Eaton.com, Scott Eaton | Portraiture and Facial Anatomy. Week 1-6 (2014) P
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58071.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58071.jpgsave_picture_58071.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ magnet:?xt=urn:btih:6B9C7E877C9860E4CA8AE180371C2F9AB585FE3E
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58072.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58072.jpgsave_picture_58072.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Majo to Yajuu | The Witch and the Beast | Ведьма и зверь [2024, TV, 
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58073.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58073.jpgsave_picture_58073.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ CrystalDiskInfo 9.3.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58074.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58074.jpgsave_picture_58074.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Foxit PDF Reader 2024.2.0.25138 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58075.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58075.jpgsave_picture_58075.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ CrystalDiskInfo & CrystalMark & Mark Retro 1.0.2 RePack (& Portable) by elchupac
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58076.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58076.jpgsave_picture_58076.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ Solium Infernum (2024) [Ru/Multi] (1.1.0/dlc) Scene Tenoke
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58077.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58077.jpgsave_picture_58077.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ magnet:?xt=urn:btih:8DCB71C990020DDF23585D6918C0077D07DCEDB1
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58078.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58078.jpgsave_picture_58078.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ Unholy Village (2024) [Ru/Multi] (1.0) Scene Tenoke
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58079.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58079.jpgsave_picture_58079.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Adobe InDesign 2024 19.4.0.63 (x64) Portable by 7997 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58080.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58080.jpgsave_picture_58080.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Stepik | HTML CSS (pro) (2024) WEB-DL [AD] [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58081.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58081.jpgsave_picture_58081.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ X-Com: From the Ashes (2022) [Ru/En] (0.1.0.3) Repack/Mod AndyFox
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58082.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58082.jpgsave_picture_58082.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Medieval II (2): Total War (2006) [Ru/Multi] (1.52/dlc) Scene PROPHET
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58083.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58083.jpgsave_picture_58083.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ magnet:?xt=urn:btih:FE8DE3A917720E68E087BEFAA1B23BE643404059
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58084.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58084.jpgsave_picture_58084.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ magnet:?xt=urn:btih:0AC4BD3285918459BC02951E177BE7B6FAD4924D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58085.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58085.jpgsave_picture_58085.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ vpnify - Безлимитный VPN 2.1.9 Mod by YouAreFinished [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58086.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58086.jpgsave_picture_58086.jpg" />
 </div>
 
 

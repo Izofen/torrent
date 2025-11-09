@@ -6,7 +6,7 @@ BorderZone / Пограничье (2005) [Ru/En] (1.1) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_205214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205214.jpgsave_picture_205214.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:0E5345CAAFB3D97FBA5FEE09E010F6B583574017
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205215.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205215.jpgsave_picture_205215.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:12FE79D31C32903AF932C4EED99C0B56933ED684
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_205216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205216.jpgsave_picture_205216.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:7BF988A5549175D6786FCF015A21DF02393454B7
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_205217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205217.jpgsave_picture_205217.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Atreyu - The Moment You Find Your Flame (2023) [FLAC|24/48|tracks|WEB-DL] <Metal
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205218.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205218.jpgsave_picture_205218.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:6DD367B32C551F4BE16C376FB116302C13634D73
 >>Детские (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_205219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205219.jpgsave_picture_205219.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ Mitch Malloy - The Last Song (2023) [FLAC|Lossless|image + .cue] <Melodic Rock, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205220.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205220.jpgsave_picture_205220.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ Van Stephenson - China Girl (1981) 2xCD, Reissue, 2022, MelodicRock Classics [FL
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205221.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205221.jpgsave_picture_205221.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ magnet:?xt=urn:btih:08706B16F3C4D7FC75BDF01827E24EF3AF6F0B89
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_205222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205222.jpgsave_picture_205222.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ magnet:?xt=urn:btih:69126AE7583089CD2D27E69CF1FD938C7A580B1C
 >>Русский Рок (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205223.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205223.jpgsave_picture_205223.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ magnet:?xt=urn:btih:EF8580F90482AF61F497DB8222A0D259499D1B44
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_205224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205224.jpgsave_picture_205224.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ Gueppardo - Power Lines (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy-Metal, Hard-
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205225.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205225.jpgsave_picture_205225.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ magnet:?xt=urn:btih:6E4063DA550B7270A4D71380C73ECF9E8E109B55
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_205226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205226.jpgsave_picture_205226.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ magnet:?xt=urn:btih:C1190CE15B83BF2CFE80CBAE4343E69805C90DC8
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205227.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205227.jpgsave_picture_205227.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ magnet:?xt=urn:btih:69DADA8E35BDC2DAA8B6D946BBFFAA4BA44224C3
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_205228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205228.jpgsave_picture_205228.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Photomath Plus 8.28.0 (b70000935) Mod by derrin [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205229.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205229.jpgsave_picture_205229.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ magnet:?xt=urn:btih:DA16530A2F0A5D2A1D5133FC70769A9893C4375C
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_205230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205230.jpgsave_picture_205230.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Dropshare 5.35 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205231.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205231.jpgsave_picture_205231.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ magnet:?xt=urn:btih:7C104D5A1DDD85C78782A0515DD8F3D520BF8DCA
 >>Отечественные Мультфильмы 21-го века (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_205233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205233.jpgsave_picture_205233.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ magnet:?xt=urn:btih:A409F2CE48494DFB804D3B7E476CE930E76FD1F7
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_205234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205234.jpgsave_picture_205234.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ magnet:?xt=urn:btih:3228BB60CAC5125E6DA0F71CE92852E203CFCCEC
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_205235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205235.jpgsave_picture_205235.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ magnet:?xt=urn:btih:D68182F554DA3712C495FA8A6678203E5D5F4B16
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_205236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205236.jpgsave_picture_205236.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ magnet:?xt=urn:btih:B7EB0A7EE710947130034250E899BC6DE4BEA40C
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_205237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205237.jpgsave_picture_205237.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ magnet:?xt=urn:btih:CF2B351FE791EB7F7509E4D4C6C78ADA795854C6
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_205238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205238.jpgsave_picture_205238.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ magnet:?xt=urn:btih:AB069974142B0CEF63289D8A33D41D9497CEC0B7
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205239.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205239.jpgsave_picture_205239.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ Lucky Patcher 10.8.4 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205241.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205241.jpgsave_picture_205241.jpg" />
 </div>
 
 

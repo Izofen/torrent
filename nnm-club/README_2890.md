@@ -6,7 +6,7 @@ Tomorrow's Outlook - 34613 (2012) [FLAC|Lossless]<Progressive/Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84853.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84853.jpgsave_picture_84853.jpg" />
 </div>
 
 
@@ -39,7 +39,7 @@ VA - Relax (Compiled by Nicolo) (2011) [FLAC|Lossless]<Ambient, Chillout>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84855.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84855.jpgsave_picture_84855.jpg" />
 </div>
 
 
@@ -70,7 +70,7 @@ VA - Bio - Hazard Xplorationz (2012) [MP3|320 кб/с]<Psychedelic, Goa Trance, 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84856.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84856.jpgsave_picture_84856.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:36DF56AE0DF1998273C65BBFDCB543FD0CD527B7
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84858.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84858.jpgsave_picture_84858.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:36DF56AE0DF1998273C65BBFDCB543FD0CD527B7
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84859.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84859.jpgsave_picture_84859.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ magnet:?xt=urn:btih:691AB1B8396C0E00A67851A15F9D586B18547077
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84860.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84860.jpgsave_picture_84860.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ Hysterica - The Art Of Metal (2012) [FLAC|lossless]<Heavy Metal / Female Vocal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84861.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84861.jpgsave_picture_84861.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Hysterica - The Art Of Metal (2012) [FLAC|lossless]<Heavy Metal / Female Vocal>
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84867.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84867.jpgsave_picture_84867.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ magnet:?xt=urn:btih:81FBA50480AF0D98E8EADEF2CC76F4BC7B822385
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84873.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84873.jpgsave_picture_84873.jpg" />
 </div>
 
 
@@ -262,7 +262,7 @@ Wise Disk Cleaner Free 7.13 Build 466 Final [Мульти, Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84874.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84874.jpgsave_picture_84874.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ Wise Disk Cleaner Free 7.13 Build 466 Final [Мульти, Русский]
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84875.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84875.jpgsave_picture_84875.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ magnet:?xt=urn:btih:B6435D46DF08C33E6F62671A0C9B95C6C07DE9CC
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84876.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84876.jpgsave_picture_84876.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ Rabies - Капля в Бесконечность (2012) [FLAC|Lossless]<Symphon
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84878.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84878.jpgsave_picture_84878.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Rabies - Капля в Бесконечность (2012) [FLAC|Lossless]<Symphon
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84880.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84880.jpgsave_picture_84880.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ magnet:?xt=urn:btih:25C8DFBC0CAF3A00F94662428469E32AF1DE897F
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84881.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84881.jpgsave_picture_84881.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ VA - Жажда Скорости - Полный Драйв (2012) [MP3|192 kbps]
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84883.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84883.jpgsave_picture_84883.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ magnet:?xt=urn:btih:F8EF6FE6C73B709C62C80825D30D46C541C19B3B
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84886.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84886.jpgsave_picture_84886.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ magnet:?xt=urn:btih:9F0578D6B5D37F2D11B774336A0B18A547322BDA
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84887.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84887.jpgsave_picture_84887.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Hamburg-audio - NUKLEAR 1.1.3 [английский]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84888.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84888.jpgsave_picture_84888.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Hamburg-Audio Nuklear - синтезатор, первый виртуальны�
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84890.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84890.jpgsave_picture_84890.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ VA - Trance In Motion vol.111 (2012) [MP3|320 kbps]<Trance, Vocal Trance, Progre
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84892.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84892.jpgsave_picture_84892.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ magnet:?xt=urn:btih:C56C21CECC5C0031F63433C8A75BB6454A0F0251
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84894.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84894.jpgsave_picture_84894.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ magnet:?xt=urn:btih:8717805A2CBB5CDEAED89FC275FC888D0472E90A
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84895.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84895.jpgsave_picture_84895.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ magnet:?xt=urn:btih:617C7F97AD4EAC76228B3669354DDB3B1249B14D
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84896.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84896.jpgsave_picture_84896.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ magnet:?xt=urn:btih:424A54CC58D8EC6C3EC883A1F85756E8C526BB3F
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84898.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84898.jpgsave_picture_84898.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ magnet:?xt=urn:btih:790DE8481B5CBA216E6FA830201ECFD806AF373C
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84902.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84902.jpgsave_picture_84902.jpg" />
 </div>
 
 

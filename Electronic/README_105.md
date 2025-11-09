@@ -6,7 +6,7 @@ Ovnimoon - Carjecatma (2022) [FLAC|Lossless|WEB-DL|tracks] <Psy Trance, Goa Tran
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159590.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159590.jpgsave_picture_159590.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ John Dopping - The Losing Struggle (2022) [FLAC|Lossless|WEB-DL|tracks] <Break B
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159612.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159612.jpgsave_picture_159612.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - Trance 2023 (2022) [MP3|320 Kbps] <Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159621.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159621.jpgsave_picture_159621.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - Relaxing Echoes: Chillout Your Mind (2022) [FLAC|Lossless|WEB-DL|tracks] <B
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159622.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159622.jpgsave_picture_159622.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Sarah Belle Reid & David Rosenboom - Nows (2022) [FLAC|Lossless|tracks + .cue] <
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159624.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159624.jpgsave_picture_159624.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ VA - The Best Of Trancemission 2022 [MP3|320 Kbps] <Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159635.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159635.jpgsave_picture_159635.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ VA - Uplifting Serenity: Chillout Your Mind (2022) [FLAC|Lossless|WEB-DL|tracks]
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159829.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159829.jpgsave_picture_159829.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ VA - Black Hole Recordings - Best of 2022 [MP3|320 Kbps] <Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159836.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159836.jpgsave_picture_159836.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ VA - Sweet Soulful: Chillout Your Mind (2023) [FLAC|Lossless|WEB-DL|tracks] <Bal
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159862.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159862.jpgsave_picture_159862.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ VA - Top 10 October 2023 Emotional and Uplifting Trance (2023) [MP3|320 Kbps] <T
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159896.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159896.jpgsave_picture_159896.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ VA - Levitated - Emotional Trance Vol. 3 (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159927.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159927.jpgsave_picture_159927.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ VA - Soulful Downtempo, Vol. 1 (Organic Chill Vibes) (2022) [FLAC|Lossless|WEB-D
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160090.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160090.jpgsave_picture_160090.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ VA - Soulful Downtempo  Vol. 2 (Organic Chill Vibes) (2022) [FLAC|Lossless|WEB-D
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160092.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160092.jpgsave_picture_160092.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ CJ Burnett - Heat in the Streets (2022) [FLAC|Lossless|WEB-DL|tracks] <Synthwave
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160132.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160132.jpgsave_picture_160132.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ The Timewriter - This Is The Timewriter (2022) [FLAC|Lossless|WEB-DL|tracks] <ED
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160145.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160145.jpgsave_picture_160145.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Roger Shah and Ambedo - Tribute To Earth (2023) [FLAC|Lossless|WEB-DL|tracks] <U
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160201.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160201.jpgsave_picture_160201.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Pet Shop Boys - Relentless (1993) Reissue, Remastered, 2023, Parlophone [FLAC|Lo
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160243.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160243.jpgsave_picture_160243.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ VA - Roman Messer - For All Time (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160246.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160246.jpgsave_picture_160246.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ VA - Dancing Services, Vol. 4 (2023) [MP3|320 Kbps] <Dance, Club, House, Electro
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160252.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160252.jpgsave_picture_160252.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ VA - Pop & Dance Anthems 2023 [MP3|320 Kbps] <Dance, Club, House, Electronic>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160644.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160644.jpgsave_picture_160644.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ VA - Restaurant & Bar Best Ambience Music (2023) [MP3|320 Kbps] <Lounge, Chillou
 >>Downtempo, Trip-Hop, Lounge
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160824.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160824.jpgsave_picture_160824.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ VA - Liquicity Autumn (2023) [FLAC|Lossless|WEB-DL|tracks] <Drum & Base>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160825.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160825.jpgsave_picture_160825.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Darude - Together (2023) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Trance, Danc
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160827.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160827.jpgsave_picture_160827.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ VA - Autumn Vibes Kolibri Selection (2023) [MP3|320 Kbps] <Downtempo, Chillout, 
 >>Downtempo, Trip-Hop, Lounge
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160843.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160843.jpgsave_picture_160843.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ VA - Solarstone Presents Pure Trance 10 (Mixed By Solarstone) (2023) [MP3|320 Kb
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160845.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160845.jpgsave_picture_160845.jpg" />
 </div>
 
 
@@ -676,7 +676,7 @@ VA - Angel Voices Vol.2 (Enigmatic Chill & Mystic Tracks To Relax) (2021) FLAC [
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160956.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160956.jpgsave_picture_160956.jpg" />
 </div>
 
 

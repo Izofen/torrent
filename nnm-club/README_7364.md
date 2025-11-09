@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251955.jpgsave_picture_251955.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:841699E7BDFD870D505275B3534AB52B5E9F9B40
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251956.jpgsave_picture_251956.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:FDDB882B248784133731382A395E320ADA9E1993
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251957.jpgsave_picture_251957.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:E4D7B6A4245BCD238301542FDFC450EE8EA5B3D2
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251958.jpgsave_picture_251958.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:2C1E611311BC4E2008E31DE7E5361B29585C13EC
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251959.jpgsave_picture_251959.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ Udemy, Andrey Sobolev | Микросервисы на Python (asyncio, starlette
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251960.jpgsave_picture_251960.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ PotPlayer 230523 (1.7.21916) RePack (& portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251961.jpgsave_picture_251961.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:634C3A6F777F52AB6B4BFC168AAC45BFED67E113
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251962.jpgsave_picture_251962.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ Ulbi TV, Тимур Ульби | Продвинутый Frontend. В Production 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251963.jpgsave_picture_251963.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ Windows 10 Debloater 2.6.2 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251964.jpgsave_picture_251964.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ Debian GNU/Linux 11 (Bullseye) KDE + nonfree by Lazarus 11.6.0 [i386, amd64] 2xD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251965.jpgsave_picture_251965.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ Dave Matthews Band - 28 альбомов, 3 Box Set (1993 - 2023) 68 CD [FLAC|Wa
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251966.jpgsave_picture_251966.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ magnet:?xt=urn:btih:9FCE0B0F531B03411FE10D221D07ABD1A9E4792E
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251967.jpgsave_picture_251967.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ Omega Infinity - The Anticurrent (2023) [FLAC|Lossless|WEB-DL|tracks] <Black, De
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251968.jpgsave_picture_251968.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ magnet:?xt=urn:btih:6D8ED293B033FFC8CB660BF307B3614680F8DEA4
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251969.jpgsave_picture_251969.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ magnet:?xt=urn:btih:C4C99143A519B78F9720EE2A47D578BD9974FD75
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251970.jpgsave_picture_251970.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ Quake 4 (2005) [Multi] (1.4.3) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251971.jpgsave_picture_251971.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ magnet:?xt=urn:btih:11B59BFC1C311D0B1B5B4EBCC80BCDC0AE9F98E8
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251972.jpgsave_picture_251972.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ magnet:?xt=urn:btih:C12056BC8442132C2E64DF9E3133CD2918654F97
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251973.jpgsave_picture_251973.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ magnet:?xt=urn:btih:FB36EBDE7645790596FFB0FAAD74226C8B18022C
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251974.jpgsave_picture_251974.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Crysis 2 Remastered (2022) [Ru/En] (1.0) Repack Decepticon
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251975.jpgsave_picture_251975.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ magnet:?xt=urn:btih:707063806EE941636D1E7F64733A11916A653EA5
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251976.jpgsave_picture_251976.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ magnet:?xt=urn:btih:B1035CF480AC0DCB339ACCADF0DCC72D17447368
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251977.jpgsave_picture_251977.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ Javascript.ninja, Илья Климов | Зимняя школа по Typescrip
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251978.jpgsave_picture_251978.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ CSI: Вегас / CSI: Vegas (2022-2023) WEB-DL [H.264/1080p] (сезон 2, с�
 >>Место преступления / CSI
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251979.jpgsave_picture_251979.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ Junghyun Seok | Анатомия Стоунхауса / Stonehouse's Anatomy (20
 >>2D графика
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251980.jpgsave_picture_251980.jpg" />
 </div>
 
 

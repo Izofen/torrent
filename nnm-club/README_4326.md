@@ -6,7 +6,7 @@ Alt-J - An Awesome Wave (2012) [MP3|320 кб/с]<Indie-Pop, Indie-Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134397.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134397.jpgsave_picture_134397.jpg" />
 </div>
 
 
@@ -39,7 +39,7 @@ magnet:?xt=urn:btih:8EA8661304052237DB8E52E24D39F95567CFF090
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134398.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134398.jpgsave_picture_134398.jpg" />
 </div>
 
 
@@ -65,7 +65,7 @@ magnet:?xt=urn:btih:1AB102BF1A2D116CA477255206595AEBB2D3FCFC
 >>Иностранные языки (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134399.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134399.jpgsave_picture_134399.jpg" />
 </div>
 
 
@@ -89,7 +89,7 @@ VA - Вийди, вийди, сонечко. Українські народні
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134400.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134400.jpgsave_picture_134400.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ magnet:?xt=urn:btih:03258EB3FD622C75F2EFE8466C64C6CA2D81B11F
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134402.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134402.jpgsave_picture_134402.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ magnet:?xt=urn:btih:4BF1B6068B61792980843C040CE383C3256A6BC9
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134404.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134404.jpgsave_picture_134404.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ magnet:?xt=urn:btih:43A08924800E3600D1CAEE4465BE9D924D766F65
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134405.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134405.jpgsave_picture_134405.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ MacCleaner 3 PRO 3.2.4 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134406.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134406.jpgsave_picture_134406.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ STAR WARS Empire at War (2006) [Ru/En] (1.120/1.121/dlc) Repack dixen18 [Gold Pa
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134407.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134407.jpgsave_picture_134407.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ Eric Gales - 19 Albums (1991 - 2022) [FLAC|Lossless|image + .cue|tracks + .cue] 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134408.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134408.jpgsave_picture_134408.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ magnet:?xt=urn:btih:C670375CEE8CDAA78553514A1A89AD573A6D9B79
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134409.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134409.jpgsave_picture_134409.jpg" />
 </div>
 
 
@@ -291,7 +291,7 @@ magnet:?xt=urn:btih:65D645564AEDB8BA22E96147E4AA1F8DF9F0E474
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134410.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134410.jpgsave_picture_134410.jpg" />
 </div>
 
 
@@ -315,7 +315,7 @@ magnet:?xt=urn:btih:F11ADEC87E33795665E63924E082B9DE51DA667B
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134415.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134415.jpgsave_picture_134415.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ Internet Download Manager 6.42 Build 2 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134417.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134417.jpgsave_picture_134417.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ magnet:?xt=urn:btih:5F1AF4208954CFF54E30758587CF7F298B18A293
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134418.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134418.jpgsave_picture_134418.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ magnet:?xt=urn:btih:2D0FE6E7903B65C0BCB7FB16C1AE6864FF7547A0
 >>Иностранные языки (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134419.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134419.jpgsave_picture_134419.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ magnet:?xt=urn:btih:78E503FD9D02C8D1267199CD80A594A26564BE90
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134422.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134422.jpgsave_picture_134422.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ magnet:?xt=urn:btih:85DA473480F23E8C5131DF1B478E75083ED1D9F8
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134423.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134423.jpgsave_picture_134423.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ magnet:?xt=urn:btih:69FD46C9756E70E2ACF2583125C77D93D200851A
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134424.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134424.jpgsave_picture_134424.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ magnet:?xt=urn:btih:407DA3EBA72F49D3A0D2587030F1D64F834C45F3
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134425.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134425.jpgsave_picture_134425.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ magnet:?xt=urn:btih:B4110070020E4F83886DCD75A01C1A15BF2590BE
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134426.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134426.jpgsave_picture_134426.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ magnet:?xt=urn:btih:00C6CD785EBE14AE9EBD995F2DCCAC5A6AE05858
 >>Отечественные Мультфильмы 21-го века (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134429.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134429.jpgsave_picture_134429.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ magnet:?xt=urn:btih:6A4F3FF3F5FDA6FBB28F56FC59C02F54B7646A56
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134431.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134431.jpgsave_picture_134431.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ magnet:?xt=urn:btih:77E83FB73D99064803238FBCB999762354A72022
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134433.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134433.jpgsave_picture_134433.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Mundaun (2021) [Ru/Multi] (1.0.444) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134434.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134434.jpgsave_picture_134434.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ magnet:?xt=urn:btih:AD98460209CF6390332F34ADBD130B44361EB645
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134436.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134436.jpgsave_picture_134436.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252111.jpgsave_picture_252111.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:6FB217D64B25F31A00DA84F65C15DC3F9CBEEA21
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252112.jpgsave_picture_252112.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ The Quarry (2022) [Ru/Multi] (Build 11105655/dlc) Repack Other s [Deluxe Edition
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252113.jpgsave_picture_252113.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:1928C22940FEFB02FBB0B46A154EB5199D34F2CB
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252114.jpgsave_picture_252114.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Scott Pilgrim vs. The World: The Game – Complete Edition (2021) [Switch] [USA]
 >>Switch
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252115.jpgsave_picture_252115.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:79DB1FC1F003FF75402F852212E8492480323D8F
 >>Универ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252116.jpgsave_picture_252116.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Windows 11 против Windows 10: стоит ли обновляться?
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252117.jpgsave_picture_252117.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ VA - Понемногу отовсюду by Yuridar #M-N (1958-2020) Compilation
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252118.jpgsave_picture_252118.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:C4721EEAE7EE725C62E7AD6F1D29CD4284135B1A
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252119.jpgsave_picture_252119.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:C958E40A1C870AAAA8652620BE29F4FB86445E65
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252120.jpgsave_picture_252120.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:C958E40A1C870AAAA8652620BE29F4FB86445E65
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252121.jpgsave_picture_252121.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:F356070C76D5B7FB1FB43CF183E612F286765BE9
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252122.jpgsave_picture_252122.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Greedventory (2023) [Multi] (1.0.2) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252123.jpgsave_picture_252123.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ magnet:?xt=urn:btih:DE59D914C648457A989E1BEA3F71C73CB98D1E91
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252124.jpgsave_picture_252124.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ magnet:?xt=urn:btih:F3DDF58905CA2BFB3C9946C5BB7CD39FB9AAA9C4
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252125.jpgsave_picture_252125.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ StartAllBack 3.6.5 StartIsBack++ 2.9.19 (2.9.1) StartIsBack + 1.7.6 RePack by Kp
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252126.jpgsave_picture_252126.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ magnet:?xt=urn:btih:D552DBD7FF24194DBA2DBC7EB178346694F37B00
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252127.jpgsave_picture_252127.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ magnet:?xt=urn:btih:0BD12FFA0AE089F4FD06D69DBEDF005FD23EE775
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252128.jpgsave_picture_252128.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ magnet:?xt=urn:btih:0BD12FFA0AE089F4FD06D69DBEDF005FD23EE775
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252129.jpgsave_picture_252129.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ Thea 2: The Shattering (2019) [Ru/En] (2.0508.0677) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252130.jpgsave_picture_252130.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ magnet:?xt=urn:btih:77208DCDC6F8676590FFE6FF0B2D7A47676FF67E
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252131.jpgsave_picture_252131.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Acronis True Image WD Edition 27.0.1.39676 [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252132.jpgsave_picture_252132.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Air: Большой прыжок / Air (2023) WEB-DL [H.264/1080p] [MVO]
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252133.jpgsave_picture_252133.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ magnet:?xt=urn:btih:932E6F37D7AA17F33715591E230B10C057AECDEE
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252134.jpgsave_picture_252134.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ magnet:?xt=urn:btih:5BFBB3BA432130830B5FF35ACB739FB717CB95F6
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252135.jpgsave_picture_252135.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ magnet:?xt=urn:btih:8876AB18BBD4B56BB5B297CB8BDEA37F7B207492
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252136.jpgsave_picture_252136.jpg" />
 </div>
 
 

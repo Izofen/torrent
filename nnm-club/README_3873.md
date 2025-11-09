@@ -6,7 +6,7 @@
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121126.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121126.jpgsave_picture_121126.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:0084AC2529D5DB32DA030CBDE2556CC986D01AAC
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121127.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121127.jpgsave_picture_121127.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:38CE18790B9C29DA107C03D70D7CA0DA74BF7643
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121128.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121128.jpgsave_picture_121128.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:05B8FE897D5CA4F8FFCBAB6556C4027147AFEF8F
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121129.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121129.jpgsave_picture_121129.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ magnet:?xt=urn:btih:56EAED62BC25A7E37A3AE4EA7C9AF558F2567B83
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121130.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121130.jpgsave_picture_121130.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ magnet:?xt=urn:btih:18CBBAC8A69F81AD34FFCEEA98C5D9232AD16460
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121131.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121131.jpgsave_picture_121131.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ Audkit Apple Music Converter for Mac  1.2.0 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121132.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121132.jpgsave_picture_121132.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ VA - Sexy & Noir Smooth Exquisite Sax Jazz Music, Soft BGM in Cozy Bar Ambience 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121133.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121133.jpgsave_picture_121133.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ IObit Uninstaller Free 13.3.0.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121134.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121134.jpgsave_picture_121134.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ magnet:?xt=urn:btih:5F0960C8FFF8392B3590D5931C81BE016E3B76DF
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121135.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121135.jpgsave_picture_121135.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ magnet:?xt=urn:btih:4A61EFC9B3E8EC0264728B1A1489B948C0674FE1
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121136.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121136.jpgsave_picture_121136.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ Charlotte Sands - can we start over? (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop, 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121137.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121137.jpgsave_picture_121137.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ magnet:?xt=urn:btih:3AB652F0FCC1CF2CF9FD9E03A5C5A5BF9003A717
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121138.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121138.jpgsave_picture_121138.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ Dynamic Wallpaper Engine 17.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121139.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121139.jpgsave_picture_121139.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ magnet:?xt=urn:btih:A89FBF4C1C6CB51E439C67C27655EBFB2528CA84
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121140.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121140.jpgsave_picture_121140.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ magnet:?xt=urn:btih:26444A4765DA490B354AF0B8C0853472BB8C6C40
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121141.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121141.jpgsave_picture_121141.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ magnet:?xt=urn:btih:C148094A73B739EB728EBFDACE5C9E0A3341FA05
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121142.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121142.jpgsave_picture_121142.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Johnny Hates Jazz - Turn Back The Clock (1988) [OGG Vorbis|480 Kbps] <Electronic
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121143.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121143.jpgsave_picture_121143.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ magnet:?xt=urn:btih:0722E48E1424B9A73CED807D508D756B55F3084D
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121144.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121144.jpgsave_picture_121144.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ magnet:?xt=urn:btih:0A34CFDF8510B7DB8AB9AB788949ADFF7B5AB04A
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121145.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121145.jpgsave_picture_121145.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ magnet:?xt=urn:btih:E5B590DB2859E48B6DE80FCF702D74DC51BF2F19
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121146.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121146.jpgsave_picture_121146.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Mozilla Thunderbird 115.7.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121147.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121147.jpgsave_picture_121147.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Cobian Reflector 2.5.10 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121148.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121148.jpgsave_picture_121148.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Mandelbulber 2.31.0 + Standalone [Multi]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121149.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121149.jpgsave_picture_121149.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ magnet:?xt=urn:btih:CD8F5E22CC67ED9B2D09A7D8B4A3D4968842EDC3
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121150.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121150.jpgsave_picture_121150.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ magnet:?xt=urn:btih:9548B71970BE02F99BA5EB647C61A131BDAD6CA7
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121151.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121151.jpgsave_picture_121151.jpg" />
 </div>
 
 

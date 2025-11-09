@@ -6,7 +6,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89250.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89250.jpgsave_picture_89250.jpg" />
 </div>
 
 
@@ -39,7 +39,7 @@ Aztec Magic Ball [5.0+jailbreak]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89251.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89251.jpgsave_picture_89251.jpg" />
 </div>
 
 
@@ -70,7 +70,7 @@ Aztec Magic Ball [5.0+jailbreak]
 >>Классическое искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89257.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89257.jpgsave_picture_89257.jpg" />
 </div>
 
 
@@ -95,7 +95,7 @@ VA - Песни о Великой войне (2005) [APE|Lossless]<Военна�
 >>Авторская и Военная песня (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89261.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89261.jpgsave_picture_89261.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ VA - Песни о Великой войне (2005) [APE|Lossless]<Военна�
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89262.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89262.jpgsave_picture_89262.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ magnet:?xt=urn:btih:823A11CFF34D4D96BEDC76D767E78B4C365B9648
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89264.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89264.jpgsave_picture_89264.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:830B97FB62AE7F478F528B8BE13CFD9E5125FD6C
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89266.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89266.jpgsave_picture_89266.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ magnet:?xt=urn:btih:830B97FB62AE7F478F528B8BE13CFD9E5125FD6C
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89268.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89268.jpgsave_picture_89268.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ magnet:?xt=urn:btih:44B5AECAC0B876316F5D5ED669CC8468B2180DE1
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89269.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89269.jpgsave_picture_89269.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ magnet:?xt=urn:btih:D3808FD808B554357CC29692C2D32C32BBF6B48F
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89270.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89270.jpgsave_picture_89270.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ Ballerburg / Баллербург [Ru] (RePack) 2002 | Pilotus
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89272.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89272.jpgsave_picture_89272.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ magnet:?xt=urn:btih:4D331D539B6C09C46C3D49CCA740E12C8DB1FC61
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89273.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89273.jpgsave_picture_89273.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Race Of Champions - The Official Game [3.2+jailbreak]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89276.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89276.jpgsave_picture_89276.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Race Of Champions - The Official Game [3.2+jailbreak]
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89278.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89278.jpgsave_picture_89278.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ magnet:?xt=urn:btih:C795EB3C3223B2FF574285C738DF3CDEF76C85E5
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89281.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89281.jpgsave_picture_89281.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ VA - Инструментальная музыка (2012) vol. № 10 [MP3|320 �
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89282.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89282.jpgsave_picture_89282.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ FileMenu Tools v6.1.3 Final + Portable [ENG\RUS]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89284.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89284.jpgsave_picture_89284.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ FileMenu Tools - программа настраивает пункты конт
 >>Старые Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89286.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89286.jpgsave_picture_89286.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ VA - The British Invasion - History Of British Rock (1991) Box Set 9 CD [FLAC|Lo
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89288.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89288.jpgsave_picture_89288.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ VA - The British Invasion - History Of British Rock (1991) Box Set 9 CD [FLAC|Lo
 >>Классическое искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89289.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89289.jpgsave_picture_89289.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ VA - За Рулем с Авторадио - Зарубежные Хиты 90-Х
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89290.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89290.jpgsave_picture_89290.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Driver Genius Professional 11.0.0.1128 Portable [Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89291.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89291.jpgsave_picture_89291.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Driver Genius Pro - программа для создания резервно�
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89292.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89292.jpgsave_picture_89292.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ Prince of Persia® Classic [4.3+jailbreak]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89293.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89293.jpgsave_picture_89293.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ Prince of Persia® Classic [4.3+jailbreak]
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89294.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89294.jpgsave_picture_89294.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ Prince of Persia® Classic [4.3+jailbreak]
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89296.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89296.jpgsave_picture_89296.jpg" />
 </div>
 
 

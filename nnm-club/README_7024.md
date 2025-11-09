@@ -6,7 +6,7 @@
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240787.jpgsave_picture_240787.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Fall Out Boy - So Much (For) Stardust (2023) [FLAC|Lossless|tracks + .cue] <Pop 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240788.jpgsave_picture_240788.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ VA - Black Hole Trance Music 04-23 (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240789.jpgsave_picture_240789.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:8A9DD528DBF5071DF83CB2023B3274028CDBA798
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240790.jpgsave_picture_240790.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ VA - Rock Hits 2023 [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240791.jpgsave_picture_240791.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Bennie Moten - Band Box Shuffle (1929 - 1932) 2CD, 2000, Hep Records [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240792.jpgsave_picture_240792.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Midnight Gang - Love Is Magic (1980) LP [MP3|320 Kbps] <Electronic, Funk Soul, D
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240793.jpgsave_picture_240793.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ QOwnNotes 23.5.3 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240794.jpgsave_picture_240794.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ bar italia - Tracey Denim (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Alternativ
 >>Alternative, Punk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240795.jpgsave_picture_240795.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Johnny Hodges - The Best Of The Verve Years (1959 - 1964) 4CD, 2019, Enlightenme
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240796.jpgsave_picture_240796.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Topaz Video Enhance AI 2.6.3 RePack (& portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240797.jpgsave_picture_240797.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ PDF Reader Pro 2.8.23.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240798.jpgsave_picture_240798.jpg" />
 </div>
 
 
@@ -317,7 +317,7 @@ Blanc Faces - Blanc Faces (2005) [FLAC|Lossless|image + .cue] <AOR, Melodic Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240799.jpgsave_picture_240799.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ magnet:?xt=urn:btih:E6355F3C5DC0342CD34F902BBC38A810AD9F0CC2
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240800.jpgsave_picture_240800.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ Mick White - Something's Got To Give (2022) [FLAC|Lossless|WEB-DL|tracks] <Melod
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240801.jpgsave_picture_240801.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ OCCT 12.0.0.b9 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240802.jpgsave_picture_240802.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ magnet:?xt=urn:btih:7B7A1856E69D46957964CB98359F81BF620C8035
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240803.jpgsave_picture_240803.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ magnet:?xt=urn:btih:AEC42B581169CD6B26BC79055145D21EEE366F90
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240804.jpgsave_picture_240804.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ magnet:?xt=urn:btih:CA29DB4D949CA48D82BE3188AF8DA445BBCE84E1
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240805.jpgsave_picture_240805.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ VA – Русский шансон часть 2 (1996) [MP3|320 Kbps] <Шанс�
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240806.jpgsave_picture_240806.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Author 6.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240807.jpgsave_picture_240807.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ magnet:?xt=urn:btih:1899E270B1795FDB9FC311F72D891218104B62F3
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240808.jpgsave_picture_240808.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Antagonist - Spawn Of Evil (2022) [MP3|320 Kbps] <Death Metal>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240809.jpgsave_picture_240809.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ magnet:?xt=urn:btih:575D5686BFE14A3D95DC7DFD2402C1F982A4D166
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240810.jpgsave_picture_240810.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ Spotify 1.1.83.956 (Repack & Portable) by Elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240811.jpgsave_picture_240811.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ magnet:?xt=urn:btih:D422BC0161F4679AA411403B4D688FAD0B8D92F0
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240812.jpgsave_picture_240812.jpg" />
 </div>
 
 

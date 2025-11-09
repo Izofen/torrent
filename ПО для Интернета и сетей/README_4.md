@@ -6,7 +6,7 @@ iTubeGo 9.3.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30264.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30264.jpgsave_picture_30264.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ TrafficMonitor 1.85 Portable [En/Cn]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30278.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30278.jpgsave_picture_30278.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:383A90C02F4A13442DAEC262633392D2A1589E60
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32767.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32767.jpgsave_picture_32767.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ The Bat! Professional 11.4.0.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32876.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32876.jpgsave_picture_32876.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ YTD Video Downloader Ultimate 7.6.4.1 RePack (& Portable) by elchupacabra [Multi
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33409.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33409.jpgsave_picture_33409.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ NekoRay / NekoBox 4.0.1 portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34374.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34374.jpgsave_picture_34374.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ YT Saver Video Downloader & Converter 9.2.2 Portable by zeka.k [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35787.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35787.jpgsave_picture_35787.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Outline Client VPN 1.14.0 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36114.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36114.jpgsave_picture_36114.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Hiddify 2.5.7 Pre-release + portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37156.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37156.jpgsave_picture_37156.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ Download Master 7.1.3.1733 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37248.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37248.jpgsave_picture_37248.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ PingPlotter Pro 5.25.7.9052 [En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38010.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38010.jpgsave_picture_38010.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:168C8E0D16EDAC327925385C786F07A4E792E01D
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38127.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38127.jpgsave_picture_38127.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Mailbird Pro 3.0.24.0 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38747.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38747.jpgsave_picture_38747.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ DameWare Remote Support & DameWare Mini Remote Control 12.3.2.5 [En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_41001.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_41001.jpgsave_picture_41001.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Chromium 141.0.7390.55 + Portable (x64) [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_41002.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_41002.jpgsave_picture_41002.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Vivaldi 7.6.3797.58 include standalone [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_41009.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_41009.jpgsave_picture_41009.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Google Chrome 141.0.7390.55 Stable + Enterprise [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_41022.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_41022.jpgsave_picture_41022.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ Opera GX 114.0.5282.84 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41185.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41185.jpgsave_picture_41185.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ Ant Download Manager Pro 2.14.1 Build 88711 (x32) / Build 88710 (x64) RePack (& 
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41249.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41249.jpgsave_picture_41249.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Opera GX 113.0.5230.135 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42431.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42431.jpgsave_picture_42431.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ WifiInfoView 2.94 Portable [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44036.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44036.jpgsave_picture_44036.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ AyuGram Desktop 5.4.1 Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44060.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44060.jpgsave_picture_44060.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:64E373574AF46CCB69BA20E20DA26C40C41D5197
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44152.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44152.jpgsave_picture_44152.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Bulk Image Downloader 6.50.0.0 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44299.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44299.jpgsave_picture_44299.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Viber 23.5.1.0 (x64) RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44354.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44354.jpgsave_picture_44354.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ SRWare Iron 126.0.6400.0 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44414.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44414.jpgsave_picture_44414.jpg" />
 </div>
 
 

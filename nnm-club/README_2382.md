@@ -6,7 +6,7 @@
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62299.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62299.jpgsave_picture_62299.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:0359FDE7188E5D98AA4110D113F61A2949A1BED4
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62300.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62300.jpgsave_picture_62300.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Adobe Photoshop 2024 25.6.0.433 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62301.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62301.jpgsave_picture_62301.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:E50E35D3BB0323ABD6C92C97CC37015583F1F356
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62302.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62302.jpgsave_picture_62302.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:797C6A66CCE83DBA29978FA18B45D64EEFC1574B
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62303.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62303.jpgsave_picture_62303.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Microsoft Windows 11 [10.0.22631.3296], Version 23H2 (Updated March 2024) - Ор
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62304.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62304.jpgsave_picture_62304.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ God of War (2022) [Ru/Multi] (1.0.13) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62305.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62305.jpgsave_picture_62305.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Adobe Photoshop 2024 25.6.0.433 Full (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62306.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62306.jpgsave_picture_62306.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:B6EA76E4052E856E9ABBA45677D34C737600B9B2
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62307.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62307.jpgsave_picture_62307.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:005B73B462CEAE13F78D4B52E6202621FE450E90
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62308.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62308.jpgsave_picture_62308.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ magnet:?xt=urn:btih:21257C99EF6970340D713747F10D695CD6C95B75
 >>Пользователи NNM-Club рекомендуют!
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62309.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62309.jpgsave_picture_62309.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ magnet:?xt=urn:btih:21257C99EF6970340D713747F10D695CD6C95B75
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62310.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62310.jpgsave_picture_62310.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ magnet:?xt=urn:btih:61F7B7C4DF90067F4889ECD019E29FE1EF30B031
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62311.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62311.jpgsave_picture_62311.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Blackmagic Design DaVinci Resolve Studio 18.6.6 Build 7 RePack by KpoJIuK [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62312.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62312.jpgsave_picture_62312.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ Alone in the Dark (2024) [Ru/Multi] (1.02/dlc) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62313.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62313.jpgsave_picture_62313.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ magnet:?xt=urn:btih:E05C1A25B4795EA5E4C29140712ADEF6079B31EF
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62314.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62314.jpgsave_picture_62314.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ Total Commander 11.03 final VIM 48 portable by Matros [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62315.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62315.jpgsave_picture_62315.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ magnet:?xt=urn:btih:9636C77AFA54BA42CF07BAE70C8231A5D0FEE4D7
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62316.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62316.jpgsave_picture_62316.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ magnet:?xt=urn:btih:6B28DF99B110E84351DBBF18E822A8282E179B9C
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62317.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62317.jpgsave_picture_62317.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ magnet:?xt=urn:btih:E4B8F68330D9EDA2C83F274790CE017D8832C3F1
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62318.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62318.jpgsave_picture_62318.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ magnet:?xt=urn:btih:8A1F21933BED665B1A0022E7675BD45EDB980665
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62319.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62319.jpgsave_picture_62319.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ Proxyman for Mac 5.1.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62320.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62320.jpgsave_picture_62320.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ magnet:?xt=urn:btih:18004B039FFF8CB4636FBE333B660818D639C391
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62321.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62321.jpgsave_picture_62321.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Free Download Manager 6.21.0.5639 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62322.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62322.jpgsave_picture_62322.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Pencil Photo Sketch : Drawing v2.0.69 Mod by PieMods [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62323.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62323.jpgsave_picture_62323.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Blender 3.6.10 LTS + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62324.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62324.jpgsave_picture_62324.jpg" />
 </div>
 
 

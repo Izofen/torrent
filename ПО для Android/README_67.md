@@ -6,7 +6,7 @@
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_194652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_194652.jpgsave_picture_194652.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ AVG антивирус & Безопасность 23.15.0 Mod by DEXUNPACKER [Ru
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194838.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194838.jpgsave_picture_194838.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Remini / Улучшение Фото v3.7.314.202248013 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194851.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194851.jpgsave_picture_194851.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ OsmAnd+ - Карты & GPS Офлайн 4.5.6 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194917.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194917.jpgsave_picture_194917.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Hira vpn 1.0.4 b24 Mod by AzadNet[Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194993.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194993.jpgsave_picture_194993.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ SnapTube - YouTube Downloader HD Video v7.05.1.7051601 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_194996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_194996.jpgsave_picture_194996.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Persona: Бьюти-камера v1.6.44 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_195017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195017.jpgsave_picture_195017.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ izi.TRAVEL v7.2.1.510 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_195079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195079.jpgsave_picture_195079.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ ESET Mobile Security Antivirus 8.2.8.0-15 Mod by DEXUNPACKER [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195188.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195188.jpgsave_picture_195188.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ magnet:?xt=urn:btih:EF678D79F9CC0F62EEFB9422617F4E26B725D7E5
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195210.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195210.jpgsave_picture_195210.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ ViMu Media Player for TV 10.10 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195213.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195213.jpgsave_picture_195213.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ CapCut - Видеоредактор 8.8.1 Mod by dimonx32, Айфона нет [
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195237.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195237.jpgsave_picture_195237.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Total Commander 3.42d Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195277.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195277.jpgsave_picture_195277.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ X-plore File Manager 4.32.00 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195304.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195304.jpgsave_picture_195304.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ Imagine : AI Art Generator v2.9.1 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195386.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195386.jpgsave_picture_195386.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ magnet:?xt=urn:btih:FBC5F0FF58269B8F4946F6FA1863FDD65BCEF0EF
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_195487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195487.jpgsave_picture_195487.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ Screenshot touch v2.1.1 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_195493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195493.jpgsave_picture_195493.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ magnet:?xt=urn:btih:0AA9F0B0899825E4CE4EB0884B5F38C7614FE5E9
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_195571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195571.jpgsave_picture_195571.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ PictureThis - Plant Identification v3.58 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_195587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195587.jpgsave_picture_195587.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ magnet:?xt=urn:btih:1A2D27CA69D5C6825ECB13EEA15ADFB447499C04
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_195614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195614.jpgsave_picture_195614.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Chronus Home & Lock Widget / Информационные виджеты Chronus
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195629.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195629.jpgsave_picture_195629.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ magnet:?xt=urn:btih:19C575F589B673514A3204A2214CF4F51C0BEBA7
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_195642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195642.jpgsave_picture_195642.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Picsart Photo & Video Editor v22.7.4 Mod by KirillCXV [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_195648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195648.jpgsave_picture_195648.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ AGAMA Car Launcher 3.3.1 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195746.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195746.jpgsave_picture_195746.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ magnet:?xt=urn:btih:E4F92CB45EAFD6D83F76934F148F8D840AAF481D
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195849.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195849.jpgsave_picture_195849.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Moon+ Reader Pro v8.3 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_196064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196064.jpgsave_picture_196064.jpg" />
 </div>
 
 

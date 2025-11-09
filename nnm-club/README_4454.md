@@ -6,7 +6,7 @@
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139242.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139242.jpgsave_picture_139242.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:7EE97863B75B834ECF4E2EA46F078F4592B761E4
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139243.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139243.jpgsave_picture_139243.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ MacDroid Pro 1.4 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139244.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139244.jpgsave_picture_139244.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:1F4A319F608A4B9DD360212AFDF16199F61CCA15
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139245.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139245.jpgsave_picture_139245.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:DD5C060B9D96785A195D4AADEC0ADFD5AD5E6EB4
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139247.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139247.jpgsave_picture_139247.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ Mac FoneTrans for iOS 9.0.30 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139248.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139248.jpgsave_picture_139248.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:721D6DC5F9D714C17E8BCF7F80075825F4CEE25E
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139249.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139249.jpgsave_picture_139249.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:148A735D5F4D641F191BC6FF1C22C6DB1C7A3016
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139250.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139250.jpgsave_picture_139250.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ Arma Gray Photographer | Arma Gray - Шоколад и кофе (2019) PCRec [RU
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139252.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139252.jpgsave_picture_139252.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ Soft Organizer Pro 7.41 RePacK by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139253.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139253.jpgsave_picture_139253.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ Luminar 4.1.0.5135 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139254.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139254.jpgsave_picture_139254.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ magnet:?xt=urn:btih:93913E44960538DE9A8BE8173CD45F70F62595AC
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139255.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139255.jpgsave_picture_139255.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ VA - Trance Traveling 72 TOP 20 (2015) [MP3|320 кб/с] <Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139256.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139256.jpgsave_picture_139256.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ VA - Top 50 Uplifting Trance 2016  [MP3|320 Kbps] <Uplifting Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139257.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139257.jpgsave_picture_139257.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ VA - The Collection 2021 Electronic Tree (2021) [AAC|~330 Kbps] <Progressive Hou
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139259.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139259.jpgsave_picture_139259.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ Life Is Strange (2015) [Ru/Multi] (1.0.0.397609) Repack R.G. Catalyst [Episode 1
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139260.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139260.jpgsave_picture_139260.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ DethKarz (1998) [En] (1.0) License GOG
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139261.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139261.jpgsave_picture_139261.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ magnet:?xt=urn:btih:99A77CB951DE0DEB7381E140F4BD14B6CFD513F7
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139262.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139262.jpgsave_picture_139262.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ UQ Holder! Mahou Sensei Negima! 2 / Владелец вечности! Волш�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139263.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139263.jpgsave_picture_139263.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Sublime Text 4.0 Build 4169 Stable Build for Mac [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139264.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139264.jpgsave_picture_139264.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ magnet:?xt=urn:btih:6BADA48F37C10641478C391048D552C40335C4C9
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139265.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139265.jpgsave_picture_139265.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ magnet:?xt=urn:btih:8F2E45E63F2F6CEFFC692B0CD8A8E4989857D279
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139269.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139269.jpgsave_picture_139269.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ magnet:?xt=urn:btih:97C04A6AFDC722E88A067C19F05983FDA55C955D
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139270.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139270.jpgsave_picture_139270.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ magnet:?xt=urn:btih:ABA32AD00324C789482D08FA35FC4AAF5C3706DD
 >>Компьютерные новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139271.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139271.jpgsave_picture_139271.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ magnet:?xt=urn:btih:ABA32AD00324C789482D08FA35FC4AAF5C3706DD
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139272.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139272.jpgsave_picture_139272.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ Dead Space 2 (2011) [Ru] (1.0) Repack xatab
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139274.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139274.jpgsave_picture_139274.jpg" />
 </div>
 
 

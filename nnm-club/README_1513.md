@@ -6,7 +6,7 @@ TechSmith Camtasia 24.1.0 Build 4395 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39693.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39693.jpgsave_picture_39693.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:CBEA7808629E5676B1864ADF56423B5AB4C3E773
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39694.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39694.jpgsave_picture_39694.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Kdenlive 24.08.2 + Standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39695.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39695.jpgsave_picture_39695.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:9014582A00F074357EADB4554C6F3087FC6B5713
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39696.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39696.jpgsave_picture_39696.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:0E70A37DFEF1397A27B8AB9EAA0A106F9A77FFF9
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39697.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39697.jpgsave_picture_39697.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:2C899212E19A0290DFC71B8FA3E3A9E7A934E04F
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39698.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39698.jpgsave_picture_39698.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ magnet:?xt=urn:btih:97A64A133181F281551F9F51EB7E4AA0E8D591F8
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39699.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39699.jpgsave_picture_39699.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:7B002D7261281F0442616CF001C5536A64322821
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39700.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39700.jpgsave_picture_39700.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:1763C4CC2DC1DC650D28F5C6A33515EB8D4AD164
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39701.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39701.jpgsave_picture_39701.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ Wondershare UniConverter Ultimate 15.7.3.47 RePack (& Portable) by elchupacabra 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39702.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39702.jpgsave_picture_39702.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Sarah Vaughan & Michel Legrand - Orchestra Arranged And Conducted By Michel Legr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39703.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39703.jpgsave_picture_39703.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ magnet:?xt=urn:btih:303FEDCC10A675967FB3FCE543316A3A9F8D1943
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39704.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39704.jpgsave_picture_39704.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Candleman 3.3.2 Mod by youarefinished [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39705.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39705.jpgsave_picture_39705.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ K-Lite Codec Pack Update 18.6.3 [En]
 >>Видео Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39706.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39706.jpgsave_picture_39706.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ magnet:?xt=urn:btih:ABE5098B7D6361E53F8BC3FCED140903404040CA
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39707.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39707.jpgsave_picture_39707.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ magnet:?xt=urn:btih:3705E3BF51628818348D24C34770E41082618427
 >>Анатомия страсти / Grey's Anatomy
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39708.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39708.jpgsave_picture_39708.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ magnet:?xt=urn:btih:30D619D2CCB9F0A55DBB5B04FA8FCEA5903CBBF7
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39709.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39709.jpgsave_picture_39709.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Winxvideo AI 3.6 (x64) RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39710.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39710.jpgsave_picture_39710.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ magnet:?xt=urn:btih:8A91DD83B0F48565785551BBB3297C4D5E8000CE
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39711.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39711.jpgsave_picture_39711.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ Sarah Vaughan - Live In Japan (2000) 2CD [FLAC|Lossless|tracks+.cue]<Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39712.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39712.jpgsave_picture_39712.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ magnet:?xt=urn:btih:22E68D358879575D78B5D957632B4C7BE4C76F78
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39713.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39713.jpgsave_picture_39713.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ magnet:?xt=urn:btih:9BF6FD925192493305413A323656C00B4AF15D2A
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39714.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39714.jpgsave_picture_39714.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ magnet:?xt=urn:btih:8814D8521FD1AEDC1F9E52FD6A52AF4A9D1405E7
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39715.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39715.jpgsave_picture_39715.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ magnet:?xt=urn:btih:2393D70776ED0A9B183C32E14CE6B8B6604F8D1E
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39716.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39716.jpgsave_picture_39716.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ magnet:?xt=urn:btih:45DA0C1A85B91391CB07DC0F56D1E1594DC809BB
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39717.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39717.jpgsave_picture_39717.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ Launcher for zapret 1.0 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39718.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39718.jpgsave_picture_39718.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50849.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50849.jpgsave_picture_50849.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Multi Commander Full Edition 14.1 Build 3017 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50850.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50850.jpgsave_picture_50850.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:5DE102E35D408C411D14510D9ACC2AFAD909ED07
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50851.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50851.jpgsave_picture_50851.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:F354B9551E847C048078DE2FD2B1E314836888E3
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50852.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50852.jpgsave_picture_50852.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:9FE5FF1413AD6ADF41C1AD73BB58E82D162CA554
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50853.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50853.jpgsave_picture_50853.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Frozen Synapse (2011) [En] (35/dlc) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50854.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50854.jpgsave_picture_50854.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:FB2C626FCC3B8AC71C60BBDDB956694D877D295A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50855.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50855.jpgsave_picture_50855.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Rainlendar Pro 2.21.2 Build 179 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50856.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50856.jpgsave_picture_50856.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ MediaHuman YouTube Downloader 3.9.9.92 (0704) RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50857.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50857.jpgsave_picture_50857.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Qalculate! 5.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50858.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50858.jpgsave_picture_50858.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Animelo Summer Live - evolution (2010) Blu-Ray [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50859.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50859.jpgsave_picture_50859.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ The Legend of Nayuta: Boundless Trails (2021) [Multi] (1.0.7) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50860.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50860.jpgsave_picture_50860.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ magnet:?xt=urn:btih:F7FA3502B8D6EAB58704EFF4B8A1015F2D92D2F4
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50861.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50861.jpgsave_picture_50861.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ magnet:?xt=urn:btih:83B99118EC9FEDF57E2C43562A8E87BB6A7B0968
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50862.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50862.jpgsave_picture_50862.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ TOEM: A Photo Adventure (2021) [Ru/Multi] (3.0.10) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50863.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50863.jpgsave_picture_50863.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Star Leaping Story (2024) [En] (1.0) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50864.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50864.jpgsave_picture_50864.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ magnet:?xt=urn:btih:3A7EEDBD834E12C22B96DBC9169D395E1CA917B1
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50865.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50865.jpgsave_picture_50865.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ magnet:?xt=urn:btih:113E31E8353F6A28F15A1A6F964C3B6B7E7312C0
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50866.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50866.jpgsave_picture_50866.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ VA - Music News vol.395 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50867.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50867.jpgsave_picture_50867.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ Slimjet 43.0.5.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50868.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50868.jpgsave_picture_50868.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ High-Logic MainType Pro 12.0.0.1318 [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50869.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50869.jpgsave_picture_50869.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ Blender 3.6.13 LTS + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50870.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50870.jpgsave_picture_50870.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ magnet:?xt=urn:btih:83B4CFD8EBA6AF18BC48AE0E1E0E03774D614B94
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50871.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50871.jpgsave_picture_50871.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Deepest Chamber: Resurrection (2021) [Multi] (1.08) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50872.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50872.jpgsave_picture_50872.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ magnet:?xt=urn:btih:F74A7C9D2C08F2FD586FF3D633F74493811257A7
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50873.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50873.jpgsave_picture_50873.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ magnet:?xt=urn:btih:B4BA8A0017A6516A58537379C1AC70B2265DB0C9
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50874.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50874.jpgsave_picture_50874.jpg" />
 </div>
 
 

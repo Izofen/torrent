@@ -6,7 +6,7 @@ Brad Gillies - Juxtapose (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101139.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101139.jpgsave_picture_101139.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Bluesblocket - Potatismos & Skandinavisk Blues (2024) [FLAC|Lossless|WEB-DL|trac
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101140.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101140.jpgsave_picture_101140.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:3C57D743835A6D0D509D3E9EE79F06E275032771
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101141.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101141.jpgsave_picture_101141.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:724E4CBB4AF5474CF1F6B6BEB72D832033FDA115
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101142.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101142.jpgsave_picture_101142.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ magnet:?xt=urn:btih:F0DB834B6FCEC3CE17E8623DBEB41E4A8EBB3267
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101143.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101143.jpgsave_picture_101143.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ magnet:?xt=urn:btih:D7D9CCB2709BDF5C13D767CBF3C9F83CDA52FD9B
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101144.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101144.jpgsave_picture_101144.jpg" />
 </div>
 
 
@@ -161,7 +161,7 @@ magnet:?xt=urn:btih:764A205E42C5FDC15C3841CCD5DD782E995DB21D
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101145.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101145.jpgsave_picture_101145.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ Pomante - Frames (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Funk, Soul>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101146.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101146.jpgsave_picture_101146.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ Lights To Remain - Damnation (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101147.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101147.jpgsave_picture_101147.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ VA - Funky For A Sunny Day (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Funk, Sou
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101148.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101148.jpgsave_picture_101148.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Bruce Springsteen - The Live Series: Songs Under Cover Vol. 3 (2024) [FLAC|Lossl
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101149.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101149.jpgsave_picture_101149.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Mamiko Watanabe - Being Guided By The Light (2024) Jojo Records [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101150.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101150.jpgsave_picture_101150.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ magnet:?xt=urn:btih:86B8C919C0CE688D8C455230CB54BC237ACE1A9E
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101151.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101151.jpgsave_picture_101151.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Høstsang (Hostsang) - I-II (2022, 2024) [FLAC|Lossless|WEB-DL|tracks] <Alternat
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101152.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101152.jpgsave_picture_101152.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Houston Person - Christmas With Houston Person And Friends (1994) Muse Records [
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101153.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101153.jpgsave_picture_101153.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ magnet:?xt=urn:btih:3316B6BC92FBCACB3F432F23D2450132E304E75F
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101154.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101154.jpgsave_picture_101154.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ magnet:?xt=urn:btih:5F61223373C3734E5A3D1CBBF3565FC2A5DD22CA
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101155.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101155.jpgsave_picture_101155.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ magnet:?xt=urn:btih:01D91364433A74B0BCB7534F098CBEBE60CA9CD3
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101156.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101156.jpgsave_picture_101156.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ Yuri Sosnin - Frank Conversation (2024) [MP3|320 Kbps] <Italo-Dance, Italo-Disco
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101157.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101157.jpgsave_picture_101157.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ magnet:?xt=urn:btih:DA223B3EC590BF96BFA7D2180E766195AAF6091D
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101158.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101158.jpgsave_picture_101158.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ Michael Simon, Tibetania - Umami (Tibetania Records) (2024) [FLAC|Lossless|WEB-D
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101159.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101159.jpgsave_picture_101159.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ magnet:?xt=urn:btih:AB552A35306B6758A531403D1D3796B7948ECB16
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101160.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101160.jpgsave_picture_101160.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Sports.ru - все новости спорта v6.12.3 Mod by Dymonyxx [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101161.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101161.jpgsave_picture_101161.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ magnet:?xt=urn:btih:45D91FAEADC911B247F2860A1B686F941B70E11E
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101162.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101162.jpgsave_picture_101162.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ magnet:?xt=urn:btih:7A754A76D46E994FF70461D0B6B986D80B163BF3
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101163.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101163.jpgsave_picture_101163.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ Waldorf - Blofeld 1.0.0 VSTi, VSTi 3, AAX (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101164.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101164.jpgsave_picture_101164.jpg" />
 </div>
 
 

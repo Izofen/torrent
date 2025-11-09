@@ -6,7 +6,7 @@ Auslogics BoostSpeed 14.1.0.0 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2379.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2379.jpgsave_picture_2379.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ IObit Driver Booster Pro 13.0.0.138 Portable by 7997 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2397.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2397.jpgsave_picture_2397.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Auslogics Driver Updater Pro 2.0.1.4 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2654.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2654.jpgsave_picture_2654.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Auslogics Registry Cleaner Pro 11.1.0.0 + Portable [Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2669.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2669.jpgsave_picture_2669.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ IObit Uninstaller Pro 15.0.0.13 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3012.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3012.jpgsave_picture_3012.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Ashampoo UnInstaller 16.00.02 Portable by 7997 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3216.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3216.jpgsave_picture_3216.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Ashampoo WinOptimizer 28.00.14 Portable by 7997 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3226.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3226.jpgsave_picture_3226.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ IObit Uninstaller Pro 15.0.0.13 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3343.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3343.jpgsave_picture_3343.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Glary Utilities Pro 6.31.0.35 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3362.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3362.jpgsave_picture_3362.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ UniTweaker 2025.9.8.27 Portable By Komoliddin [Ru] (Авторская разд�
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3427.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3427.jpgsave_picture_3427.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Auslogics Registry Defrag 15.1.0.0 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3743.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3743.jpgsave_picture_3743.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Auslogics BoostSpeed 14.1.0.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3760.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3760.jpgsave_picture_3760.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ NirLauncher Package 1.30.20 Portable [Ru/En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3776.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3776.jpgsave_picture_3776.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Auslogics Windows Slimmer 5.1.0.0 + Portable [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3803.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3803.jpgsave_picture_3803.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Uninstall Tool 3.8.0 Build 5730 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3805.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3805.jpgsave_picture_3805.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ Auslogics Duplicate File Finder 11.1.0.0 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4179.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4179.jpgsave_picture_4179.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ Auslogics Windows Slimmer 5.1.0.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4205.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4205.jpgsave_picture_4205.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Auslogics BoostSpeed 14.1.0.0 Portable by 7997 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4278.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4278.jpgsave_picture_4278.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Auslogics BoostSpeed 14.1.0.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4301.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4301.jpgsave_picture_4301.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Auslogics BoostSpeed 14.1.0.0 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4306.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4306.jpgsave_picture_4306.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Auslogics BoostSpeed 14.1.0.0 RePack (& Portable) by KpoJIuK [Ru/En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4308.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4308.jpgsave_picture_4308.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ Process Lasso Pro 16.0.2.10 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4314.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4314.jpgsave_picture_4314.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Process Lasso Pro 16.0.2.10 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4454.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4454.jpgsave_picture_4454.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Driver Magician 6.0 Portable by conservator [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4726.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4726.jpgsave_picture_4726.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ W10Privacy 5.2.0.5 + Portable [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5051.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5051.jpgsave_picture_5051.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Wipe  Professional 2510 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5052.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5052.jpgsave_picture_5052.jpg" />
 </div>
 
 

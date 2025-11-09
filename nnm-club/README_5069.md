@@ -6,7 +6,7 @@ Her Blood In My Veins - Veliota (2015) [FLAC|Lossless|WEB-DL|tracks] <IDM, Ambie
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158493.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158493.jpgsave_picture_158493.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - The Many Faces Of Elvis (2015) 3CD, Compilation [FLAC|Lossless|tracks + .cu
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158494.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158494.jpgsave_picture_158494.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - Majesty Trance: Psy Goa Party (2015) [MP3|320 кб/с] <Psychedelic, Psy Tr
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158495.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158495.jpgsave_picture_158495.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:6AC7F79EED5F0DE955A3941D0AD2C0FDE9F10C7B
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158496.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158496.jpgsave_picture_158496.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ magnet:?xt=urn:btih:E7F25981D0A7FA801832C850B6FC11117FAC6506
 >>Общественно-политические и пропагандистские ток-шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158497.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158497.jpgsave_picture_158497.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ magnet:?xt=urn:btih:2C0DC27C964566E39569F8FAF5D1B490A03A3B18
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158498.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158498.jpgsave_picture_158498.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ Maria Schneider Orchestra - The Thompson Fields (2015) ArtistShare[FLAC|tracks+.
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158499.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158499.jpgsave_picture_158499.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ magnet:?xt=urn:btih:D2415EAA8B66D62400BD6FF4C2F2D919A7C9D65B
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158500.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158500.jpgsave_picture_158500.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ Slaughter Brute - Systematic Transmutations (2012) Beasts Studio records [FLAC|L
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158501.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158501.jpgsave_picture_158501.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ magnet:?xt=urn:btih:EAC7BFB9239EA0F92D4D58CB61BD68B4B1DD3FED
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158502.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158502.jpgsave_picture_158502.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ magnet:?xt=urn:btih:5426B600B69FA0B97E016E43C28C52DAF9FA0BF0
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158503.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158503.jpgsave_picture_158503.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ VA - Private Beach (Chillout Edition) (2015) [MP3|320 кб/с] <Downtempo, Chill
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158504.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158504.jpgsave_picture_158504.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ VA - Groovedelicious 40 Deep and Tech House Sounds, Vol 1 (2015) [MP3|320 кб/�
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158505.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158505.jpgsave_picture_158505.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ magnet:?xt=urn:btih:66ACD73CCBC26221E8F028E95FCCE3155EA2C60D
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158506.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158506.jpgsave_picture_158506.jpg" />
 </div>
 
 
@@ -365,7 +365,7 @@ magnet:?xt=urn:btih:C02F684683369E6AFE0416502B2FAB6FA801E954
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158507.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158507.jpgsave_picture_158507.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ magnet:?xt=urn:btih:C960AC14DDCFDB3A6FB43B2BD72265E18FC136FE
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158508.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158508.jpgsave_picture_158508.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ magnet:?xt=urn:btih:EE03F3DD8B66D335138F88A3DD07D795C932B40D
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158509.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158509.jpgsave_picture_158509.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ The Lenny Hambro Quintet - Message From Hambro (1955) 2015, Sony Music[FLAC|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158510.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158510.jpgsave_picture_158510.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ magnet:?xt=urn:btih:E9295995FE83FCF1BFE20BB72FC01AD6DCFCA090
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158511.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158511.jpgsave_picture_158511.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ magnet:?xt=urn:btih:D8D563A32A2C7FD0E1620E5B378E46889D741E9A
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158512.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158512.jpgsave_picture_158512.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ magnet:?xt=urn:btih:BF139E78ED95E171F8371EE49E32548D7C661991
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158513.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158513.jpgsave_picture_158513.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ magnet:?xt=urn:btih:6913B10C83347AA943EA4EBAB7B3AAAD2A591C55
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158515.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158515.jpgsave_picture_158515.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Adobe Photoshop CC 2015.1.1 (20151209.r.327) RePack by D!akov [Multi/Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158516.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158516.jpgsave_picture_158516.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Football Manager 2016 (2015) [Ru/Multi] (16.1.1) Repack Piston
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158517.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158517.jpgsave_picture_158517.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Max Twain | Photo-art в Adobe Photoshop (2015) PCRec [H.264]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158518.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158518.jpgsave_picture_158518.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ magnet:?xt=urn:btih:2B152514E402CABD7A323E7901A7740FACB481F1
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158519.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158519.jpgsave_picture_158519.jpg" />
 </div>
 
 

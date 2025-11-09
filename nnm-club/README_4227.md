@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131033.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131033.jpgsave_picture_131033.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:F5A29F598C0E50C8DC7882FE471EFEE8788EA5F2
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131034.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131034.jpgsave_picture_131034.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:E77778D9E7EC0A3D44AF044C0206E3BA525AD9B8
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131036.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131036.jpgsave_picture_131036.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Sexy Girls Wallpapers (31.12.12) [Wallpapers 16+]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131037.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131037.jpgsave_picture_131037.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:999EDDF9543288D30256C29AB4E9CF1162B67551
 >>История
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131038.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131038.jpgsave_picture_131038.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:A64EB5EBE7E6FD9FBF2B7A54A195F77A1C10A49E
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131040.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131040.jpgsave_picture_131040.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:3C74A69578AE03902101C10D3CADA81475066ECE
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131041.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131041.jpgsave_picture_131041.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:4D9D7572F73FD6E8A7B9CDC786E44CA6BE2E6094
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131042.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131042.jpgsave_picture_131042.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Dudley Taft - Left For Dead (2010) [FLAC|Lossless]<Blues-Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131043.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131043.jpgsave_picture_131043.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ Dudley Taft - Left For Dead (2010) [FLAC|Lossless]<Blues-Rock>
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131044.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131044.jpgsave_picture_131044.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ VA - Trance In Motion Vol.369 (2023) [MP3|320 Kbps|image + .cue] <Trance, Uplift
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131046.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131046.jpgsave_picture_131046.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ magnet:?xt=urn:btih:C47E9B91652B8130287562398B47B1DFC96E8B10
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131048.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131048.jpgsave_picture_131048.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ SUMo 3.4.16.191 [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131049.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131049.jpgsave_picture_131049.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ Bryan Adams - Waking Up The Neighbours - Live At The Royal Albert Hall (2023) [F
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131050.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131050.jpgsave_picture_131050.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ magnet:?xt=urn:btih:83D7E384B500399E26D782FB9E59941654FAFEBA
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131052.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131052.jpgsave_picture_131052.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ magnet:?xt=urn:btih:FFDB02A3BA248FAFCA60FBF44EE1E66E4D06C8CC
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131054.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131054.jpgsave_picture_131054.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Best HD Wallpapers Pack (30.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131058.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131058.jpgsave_picture_131058.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ Computer Desktop Wallpapers Collection (30.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131059.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131059.jpgsave_picture_131059.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ Sexy Girls Pack Wallpapers (31.12.12) [Wallpapers 16+]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131061.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131061.jpgsave_picture_131061.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ magnet:?xt=urn:btih:5DC7E4E00E5C71E47605B4375AEDC30416EEA20A
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131062.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131062.jpgsave_picture_131062.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ David Jacobs-Strain - Live from the Left Coast (2011) [FLAC|Lossless]<Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131063.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131063.jpgsave_picture_131063.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Christmas Stories 12: The Legend of Toymakers (2023) [En] (1.0) Unofficial [Coll
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131064.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131064.jpgsave_picture_131064.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ magnet:?xt=urn:btih:48A07DA622B14483324FACA58088575F0CC4B521
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131066.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131066.jpgsave_picture_131066.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ magnet:?xt=urn:btih:31CE401402F65FE1E3CFBD6CD9E1D08A93B169B4
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131067.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131067.jpgsave_picture_131067.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Nature Wallpapers (31.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131068.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131068.jpgsave_picture_131068.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ magnet:?xt=urn:btih:E03364138CF1BDCCC45FD349305E238BC94D43C1
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131069.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131069.jpgsave_picture_131069.jpg" />
 </div>
 
 

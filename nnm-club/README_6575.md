@@ -6,7 +6,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210439.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210439.jpgsave_picture_210439.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:5A8C70EFAB24E6F35864888638A52A7E57504917
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210440.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210440.jpgsave_picture_210440.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Beelinguapp 2.930 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210441.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210441.jpgsave_picture_210441.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ VA - female rock, blues rock part  24 (2023) [MP3|320 Kbps] <Rock, Blues Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210443.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210443.jpgsave_picture_210443.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ Wise Care 365 Pro 6.5.5.628 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210446.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210446.jpgsave_picture_210446.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ jetAudio HD Music Player Plus 10.8.2 Mod by ctas8888 + Themes [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210448.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210448.jpgsave_picture_210448.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:29F53E6BB00DB82CF1DD8AADB2A74E718CC94F99
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210449.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210449.jpgsave_picture_210449.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Opera GX 99.0.4788.86 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210450.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210450.jpgsave_picture_210450.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ magnet:?xt=urn:btih:179AF4B169ABA274D9FA71D308E2140A6DD72DE2
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210454.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210454.jpgsave_picture_210454.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ Glary Utilities Pro 5.207.0.236 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210456.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210456.jpgsave_picture_210456.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ FanControl V161 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210458.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210458.jpgsave_picture_210458.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ Ashampoo WinOptimizer 26.00.11 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210460.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210460.jpgsave_picture_210460.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ BSPlayer Pro 3.18.244-20230605 + Russian Mod by master1274 [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210461.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210461.jpgsave_picture_210461.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ magnet:?xt=urn:btih:C5E35B5A5A7B43815664FA9DCA2BBFC309472ED8
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210462.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210462.jpgsave_picture_210462.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ WinUtilities Professional Edition 15.88 RePack (& Portable) by Dodakaedr [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210466.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210466.jpgsave_picture_210466.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ AIMP 3.30.1252 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210468.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210468.jpgsave_picture_210468.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Dexter Gordon - More Power! (1969) 1994, Original Jazz Classics [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210470.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210470.jpgsave_picture_210470.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Comodo Dragon 113.0.5672.127 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210472.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210472.jpgsave_picture_210472.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ WinTools.net 23.7.1 Classic / Professional / Premium RePack (& Portable) by TryR
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210474.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210474.jpgsave_picture_210474.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ magnet:?xt=urn:btih:E31E1632E57C634A29606E5A8E617506014F2706
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210476.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210476.jpgsave_picture_210476.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ magnet:?xt=urn:btih:D0CF1F147DE9D38906840A48FD13089517C58639
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210479.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210479.jpgsave_picture_210479.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ VIP Notes 9.9.71 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210482.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210482.jpgsave_picture_210482.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Elo OMEGA - Kisstadion ’77 (2023) 2CD [MP3|320 Kbps] <Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210483.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210483.jpgsave_picture_210483.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:87EF08BFCDA0723B055B97DFE4A1FD89B4FA94D4
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210485.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210485.jpgsave_picture_210485.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ magnet:?xt=urn:btih:2BEFDF157BE73A3B0AAE420D17C21B973A40B6A7
 >>Историческая проза, Мифы и Легенды
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210488.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210488.jpgsave_picture_210488.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ magnet:?xt=urn:btih:FC022CA95E5FB9B58B87DB2AEDA6CA55C3D51F95
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210489.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210489.jpgsave_picture_210489.jpg" />
 </div>
 
 

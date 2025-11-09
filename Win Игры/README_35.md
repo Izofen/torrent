@@ -6,7 +6,7 @@ Grocery Store Tycoon (2025) [Ru/Multi] (0.9) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10265.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10265.jpgsave_picture_10265.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Fruitbus (2024) [Ru/Multi] (1.0.12) Repack FitGirl [Fine Dining Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10266.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10266.jpgsave_picture_10266.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Tech Market Simulator (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10286.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10286.jpgsave_picture_10286.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Squirreled Away (2025) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10290.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10290.jpgsave_picture_10290.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Smalland: Survive the Wilds (2024) [Ru/Multi] (1.9.2) Repack Pioneer
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10291.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10291.jpgsave_picture_10291.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ TRAPPED (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10292.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10292.jpgsave_picture_10292.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Vilde (2025) [Ru/Multi] (1.0.0.2) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10294.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10294.jpgsave_picture_10294.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Crime Simulator (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10299.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10299.jpgsave_picture_10299.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ SGS Spain at War (2025) [Ru/Multi] (25.06.11) Repack FitGirl
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10306.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10306.jpgsave_picture_10306.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Star Wars Battlefront II (2) (2017) [Ru/Multi] (1.1.8.16162/dlc) Repack seleZen 
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10319.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10319.jpgsave_picture_10319.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Ship Graveyard Simulator 2 (2023) [Ru/Multi] (13486/dlc) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10326.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10326.jpgsave_picture_10326.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Killing Floor 3 (2025) [Ru/Multi] (build 19273238/dlc) Repack FitGirl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10327.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10327.jpgsave_picture_10327.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Days Gone (2021) [Ru/Multi] (1.13/dlc) Repack Other s [Remastered]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10334.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10334.jpgsave_picture_10334.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ SWORD ART ONLINE Fractured Daydream (2024) [Ru/Multi] (1.4.0.0/dlc) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10337.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10337.jpgsave_picture_10337.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Into the Dead: Our Darkest Days (2025) [Ru/Multi] (0.5.1.13033) Repack Other s [
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10348.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10348.jpgsave_picture_10348.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Detectives United 8: Vengeance from the Past (2025) [En] (1.0) Unofficial [Colle
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10359.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10359.jpgsave_picture_10359.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Mini Cozy Room: Lo-Fi (2025) [Ru/Multi] (1.02.04/dlc) Repack FitGirl [All in One
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10379.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10379.jpgsave_picture_10379.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Paranormal Files 13: Chaos Weekend / Паранормальные явления
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10393.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10393.jpgsave_picture_10393.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Meat Fest (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10400.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10400.jpgsave_picture_10400.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Sears: The Sky Frontier (2023) [Ru/Multi] (EA 0.3.2) Repack FitGirl
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10408.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10408.jpgsave_picture_10408.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Death Must Die (2023) [En] (0.8.5) Repack Necros1404 [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10432.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10432.jpgsave_picture_10432.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Dread: The Cold Case (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10436.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10436.jpgsave_picture_10436.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ WUCHANG: Fallen Feathers (2025) [Ru/Multi] (178067/dlc) Repack FitGirl [Deluxe E
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10449.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10449.jpgsave_picture_10449.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Killing Floor 3 (2025) [Ru/Multi] (build 19273238/dlc) Repack seleZen [Elite Nig
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10455.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10455.jpgsave_picture_10455.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ WUCHANG: Fallen Feathers (2025) [Ru/Multi] (178067) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10456.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10456.jpgsave_picture_10456.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ to a T (2025) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10474.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10474.jpgsave_picture_10474.jpg" />
 </div>
 
 

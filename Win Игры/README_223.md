@@ -6,7 +6,7 @@ Boxes: Lost Fragments (2024) [Ru/Multi] (13337283) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118528.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118528.jpgsave_picture_118528.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Murder Is Game Over: Deal Killer (2024) [En] (2.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118645.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118645.jpgsave_picture_118645.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Legendary Hoplite (2024) [Ru/Multi] (1.0.2) Repack FitGirl [Support Ithaca Bundl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118667.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118667.jpgsave_picture_118667.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Don't Pee (2024) [En] (1.0.2) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118668.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118668.jpgsave_picture_118668.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Heroes of Eternal Quest (2024) [Multi] (1.0.16a) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118673.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118673.jpgsave_picture_118673.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Splice (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118681.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118681.jpgsave_picture_118681.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Chorus (2021) [Ru/Multi] (1.0.9.216752/dlc) Repack Decepticon
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118706.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118706.jpgsave_picture_118706.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Steel Echoes (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118817.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118817.jpgsave_picture_118817.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ The Great Rebellion (2024) [Multi] (1.0) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118837.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118837.jpgsave_picture_118837.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Anomaly Agent (2024) [Ru/Multi] (1.0.0.30) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118863.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118863.jpgsave_picture_118863.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Y. Village - The Visitors (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118866.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118866.jpgsave_picture_118866.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ BeachHead (2024) [En] (1.3.25) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118895.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118895.jpgsave_picture_118895.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Not Another Weekend (2021) [Multi] (1.10) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118971.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118971.jpgsave_picture_118971.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Spells and Secrets / Spells & Secrets (2023) [Multi] (1.0.3) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119010.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119010.jpgsave_picture_119010.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Magical Girl Celesphonia (2022) [Multi] (5/dlc) License GOG [18+]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119054.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119054.jpgsave_picture_119054.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Darkest Dungeon II (2023) [Ru/Multi] (1.04.59290/dlc) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119240.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119240.jpgsave_picture_119240.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ The Last Worker (2023) [Ru/Multi] (1.0.11) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119249.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119249.jpgsave_picture_119249.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Boxes: Lost Fragments (2024) [Ru/Multi] (13337283) Scene Skidrow
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119390.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119390.jpgsave_picture_119390.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Shards of Chaos (2024) [Ru/En] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119394.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119394.jpgsave_picture_119394.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ The House of Da Vinci (2017) [Ru/Multi] (1.0.3) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119397.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119397.jpgsave_picture_119397.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ RIN: The Last Child (2024) [Ru/Multi] (221) License GOG
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119415.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119415.jpgsave_picture_119415.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Long Gone Days (2023) [Ru/Multi] (20240130) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119562.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119562.jpgsave_picture_119562.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Floating Life 2 (2023) [Multi] (1.0.2.58) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119572.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119572.jpgsave_picture_119572.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ COCOON (2023) [Ru/Multi] (13127050) Repack dixen18
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119575.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119575.jpgsave_picture_119575.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Fishing: North Atlantic (2020) [Ru/Multi] (1.8.1151.18467/dlc) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119581.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119581.jpgsave_picture_119581.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ The Elder Scrolls V: Skyrim (2021) [Ru/En] (1.6.1170.0.8/dlc) Repack Other s [An
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119584.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119584.jpgsave_picture_119584.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Granblue Fantasy: Relink (2024) [Multi] (1.0.4/dlc) Repack FitGirl [Special Edit
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114454.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114454.jpgsave_picture_114454.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Big Adventure: Trip to Europe 7 (2024) [En] (1.0) Unofficial [Collector's Editio
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114541.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114541.jpgsave_picture_114541.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Beyond the Fringe (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114567.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114567.jpgsave_picture_114567.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Intra (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114572.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114572.jpgsave_picture_114572.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Hospital of the Undead (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114574.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114574.jpgsave_picture_114574.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ The Brew Barons (2024) [En] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114585.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114585.jpgsave_picture_114585.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Crossroads 4: Fatal Truths (2024) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114699.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114699.jpgsave_picture_114699.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ The Hero We Need (2024) [En] (0.8.0) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114733.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114733.jpgsave_picture_114733.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ qomp2 (2024) [Ru/Multi] (1.1.2257) License GOG
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114734.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114734.jpgsave_picture_114734.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Gord (2023) [Ru/Multi] (1.5.0.42146/dlc) Repack Other s [Ultimate Edition]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114749.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114749.jpgsave_picture_114749.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Homeseek (2023) [Ru/Multi] (1.0.9) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114773.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114773.jpgsave_picture_114773.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Robin Hood: Sherwood Builders (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114783.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114783.jpgsave_picture_114783.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Penny’s Big Breakaway (2024) [Ru/Multi] (1.1.20240131) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114896.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114896.jpgsave_picture_114896.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Secrets of Grindea (2024) [En] (13601958) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114900.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114900.jpgsave_picture_114900.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ WRATH: Aeon of Ruin (2019) [Ru/Multi] (1.5) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114906.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114906.jpgsave_picture_114906.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Bridge Constructor Portal (2017) [Ru/Multi] (001.04/dlc) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114908.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114908.jpgsave_picture_114908.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Invisible Fear (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114910.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114910.jpgsave_picture_114910.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Slave Zero X (2024) [Ru/Multi] (1.00) Repack FitGirl [Digital Deluxe Edition]
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114916.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114916.jpgsave_picture_114916.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ STAR WARS: Dark Forces Remaster (2024) [Multi] (1.0) Repack FitGirl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114928.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114928.jpgsave_picture_114928.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Ad Infinitum (2023) [Ru/Multi] (1.0.8.271534/dlc) Repack Other s [Supporter Edit
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114934.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114934.jpgsave_picture_114934.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Nathan Morgan: Dilemma (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114947.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114947.jpgsave_picture_114947.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Expeditions: A MudRunner Game (2024) [Ru/Multi] (1.0.0.0/dlc) Repack DjDI [Supre
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114967.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114967.jpgsave_picture_114967.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Song of Nunu: A League of Legends Story (2023) [Ru/Multi] (20231130) Scene Tenok
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115091.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115091.jpgsave_picture_115091.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Bus World (2022) [Ru/Multi] (2.3.2) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115094.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115094.jpgsave_picture_115094.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Ruff Ghanor (2024) [Multi] (1.0.0.1) Repack FitGirl
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115105.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115105.jpgsave_picture_115105.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ The Witch of Fern Island (2023) [Multi] (1.0.0_B/dlc) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115109.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115109.jpgsave_picture_115109.jpg" />
 </div>
 
 

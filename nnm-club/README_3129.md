@@ -6,7 +6,7 @@
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100921.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100921.jpgsave_picture_100921.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Blues & Gentlemen's - Compilation (2025) [MP3|320 Kbps] <Blues, Slow Blues, Inst
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100922.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100922.jpgsave_picture_100922.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ magnet:?xt=urn:btih:B0D3D520680FB43353D64D8BB08649F120F412AF
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100923.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100923.jpgsave_picture_100923.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:BA46BCD38241607D9E6261BB15B9D87A44E18FF9
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100924.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100924.jpgsave_picture_100924.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ DIAZZA - Favorites Collection (2025) [MP3|320 Kbps] <Electronic, Vocal>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100925.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100925.jpgsave_picture_100925.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ Kobezzza, Дмитрий Холстинин | Сборка во Frontend (2025) 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100926.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100926.jpgsave_picture_100926.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ Chip Huyen | AI Engineering: Building Applications with Foundation Models (2025)
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100927.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100927.jpgsave_picture_100927.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ VA - Music News For Forum vol.138 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100928.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100928.jpgsave_picture_100928.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ magnet:?xt=urn:btih:5C4E783EE71C50E46E619A9A148FE268AF619CE4
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100929.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100929.jpgsave_picture_100929.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ magnet:?xt=urn:btih:FD102C550DB115B5350387F9E3E459FF92117D23
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100930.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100930.jpgsave_picture_100930.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ Sebastian Bach - Studio Albums (5 releases) (2001-2024) hand made [restored, dec
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100931.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100931.jpgsave_picture_100931.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ VA - Autumn Sonatas (2025) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100932.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100932.jpgsave_picture_100932.jpg" />
 </div>
 
 
@@ -314,7 +314,7 @@ magnet:?xt=urn:btih:A69C61469DBED484A3361C050F61DC99E94E558C
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100933.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100933.jpgsave_picture_100933.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ magnet:?xt=urn:btih:38DAEBFEE6EF621E0259CCB4847FCDA71C14D029
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100934.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100934.jpgsave_picture_100934.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ magnet:?xt=urn:btih:DE5BA1E5CC7A7C9C4A2817470436D58379D2930E
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100935.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100935.jpgsave_picture_100935.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ magnet:?xt=urn:btih:44A5529937A786A5C398F1E82B05B32DCE087C35
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100936.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100936.jpgsave_picture_100936.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ magnet:?xt=urn:btih:BB4A4480210907D8473B2BDEA1063E15779D50AE
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100937.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100937.jpgsave_picture_100937.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ magnet:?xt=urn:btih:72AA8D27B8E1F638C386FB00BED4E024BAB51755
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100938.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100938.jpgsave_picture_100938.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ magnet:?xt=urn:btih:595F6CFAECE1BA4D18FFEF473F764537B2E3B19A
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100939.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100939.jpgsave_picture_100939.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ magnet:?xt=urn:btih:0BF37D1B0A66F61FFEC1E50B2B2348AB847094FD
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100940.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100940.jpgsave_picture_100940.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ magnet:?xt=urn:btih:7C7DC7250381504F5E43DBF87E4ED2971A3FDF85
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100941.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100941.jpgsave_picture_100941.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ magnet:?xt=urn:btih:76449F861A2B8683E93DDD5A06E756E635D3BB08
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100942.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100942.jpgsave_picture_100942.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ magnet:?xt=urn:btih:325DD9E7D1751475DE34EDE375F08BEDDB8B92AC
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100943.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100943.jpgsave_picture_100943.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ magnet:?xt=urn:btih:AA88BD223F4FDFB09F7C59BCFAAD9E4F91CFE0D1
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100944.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100944.jpgsave_picture_100944.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Perpetual Rage - The Beginning (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Heavy
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100946.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100946.jpgsave_picture_100946.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ magnet:?xt=urn:btih:8BDE7563C35A6D9CEBBC64307D11D21C584188E0
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100947.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100947.jpgsave_picture_100947.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Игра престолов / Game of Thrones
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204767.jpgsave_picture_204767.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Skillshare, Harry Jones | Blender 3D for Beginners: Create a 3D Vaporwave Animat
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204768.jpgsave_picture_204768.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:ADD2F32C377C3144169F55F2073D29EF87B1A709
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204769.jpgsave_picture_204769.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ AIDA64 Extreme / Engineer / Business / Network Audit 6.80.6200 Final RePack (& P
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204770.jpgsave_picture_204770.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Autobahn Police Simulator 3 (2022) [Ru/Multi] (1.0.0) License FairLight
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204771.jpgsave_picture_204771.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:F1E549EDBA1D12CD84A5876B9C6B24F9611649F2
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204772.jpgsave_picture_204772.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:72CE15F103E8D5C9F3F54235EE2A718D99E82A0B
 >>Элементы (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204773.jpgsave_picture_204773.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:0D7C2A01C36FAAEA90269A2BAD5581603DB69C20
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204774.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204774.jpgsave_picture_204774.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:02E9E3D5C67833ED817028CBCCC7A8B9F11C2A29
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204775.jpgsave_picture_204775.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Moon+ Reader Pro 8.3 (803004) Mod by derrin [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204776.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204776.jpgsave_picture_204776.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Wondershare UniConverter for Mac 15.0.2 ARM/Intel [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204777.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204777.jpgsave_picture_204777.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ TutorOnline, Василий Рустамович | Курс по высшей м
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204778.jpgsave_picture_204778.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ magnet:?xt=urn:btih:EC40B2C71004045E0CFD878DFFA982369533B8B1
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204779.jpgsave_picture_204779.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Perfectly Clear WorkBench 4.6.0.2594 RePack (& Portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204780.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204780.jpgsave_picture_204780.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ magnet:?xt=urn:btih:FF67C9D5350D0F08607F75D2050411C2F5920B7F
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204781.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204781.jpgsave_picture_204781.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Ventoy 1.0.81 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204782.jpgsave_picture_204782.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ magnet:?xt=urn:btih:F1A945CECF9FB10D381BF9A4EA240538F498C356
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204783.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204783.jpgsave_picture_204783.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ magnet:?xt=urn:btih:D7B8D8107160DC19443D5F4426FECDB830630853
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204784.jpgsave_picture_204784.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ O&O ShutUp10++ 1.9.1434 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204785.jpgsave_picture_204785.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ magnet:?xt=urn:btih:DD31213B26000170B79A4E115B005081504B5823
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204786.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204786.jpgsave_picture_204786.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ magnet:?xt=urn:btih:D897E2E77A4E06492028160043AFDD0D315CA10C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204787.jpgsave_picture_204787.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ Eisbrecher - Es bleibt kalt°! (2023) 2CD, Compilation, 2003-2023, Sony Music Ca
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204788.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204788.jpgsave_picture_204788.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ Sigil 2.0.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204789.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204789.jpgsave_picture_204789.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:3FE61E504467B212C29E82A0BCF2473FEB79C8D4
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204791.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204791.jpgsave_picture_204791.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ magnet:?xt=urn:btih:C77BD907A0F3CDE20E10CAF0078FC639D37A30DF
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204792.jpgsave_picture_204792.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ magnet:?xt=urn:btih:F9975CAB086310BD2B04F45DEE7F4D0C89B5ECFF
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204793.jpgsave_picture_204793.jpg" />
 </div>
 
 

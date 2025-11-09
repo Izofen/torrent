@@ -6,7 +6,7 @@
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23687.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23687.jpgsave_picture_23687.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:81951ADB2C54DC538E874294B2C2E499587A8C35
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23688.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23688.jpgsave_picture_23688.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ Steinberg - Cubase Pro 14 14.0.20 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23689.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23689.jpgsave_picture_23689.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:EE4D991E63EC1414E6A7DC982C8E8D500897E3F8
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23690.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23690.jpgsave_picture_23690.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:EE4D991E63EC1414E6A7DC982C8E8D500897E3F8
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23691.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23691.jpgsave_picture_23691.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:CA60215376C698C8CAD6018C3748B4D6370B0A12
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23692.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23692.jpgsave_picture_23692.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ Driver Store Explorer 0.12.64 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23693.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23693.jpgsave_picture_23693.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:B2D95BCEB4B2261E42AA93B2EFF3DA1C03C572D9
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23694.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23694.jpgsave_picture_23694.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ Wanderstop (2025) [Multi] (Build #15399) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23695.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23695.jpgsave_picture_23695.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:0EE9145933EB5B2783C0E3955686662E89A280C3
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23696.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23696.jpgsave_picture_23696.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ S.T.A.L.K.E.R. 2: Heart of Chornobyl / S.T.A.L.K.E.R.: Сердце Черноб
 >>17
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23697.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23697.jpgsave_picture_23697.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ magnet:?xt=urn:btih:6CF174C61E6AFAE5474D400FD1FBBED429D01F9F
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23698.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23698.jpgsave_picture_23698.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Lumencraft (2022) [Ru/Multi] (9257) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23699.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23699.jpgsave_picture_23699.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Launcher for zapret 2.5 [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23700.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23700.jpgsave_picture_23700.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ magnet:?xt=urn:btih:9F58E7A56F047DB3E630FCBC730920FA21066FD8
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23701.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23701.jpgsave_picture_23701.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ magnet:?xt=urn:btih:458A8C7A49D398A114F78482D2613DD6E2744DE6
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23702.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23702.jpgsave_picture_23702.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ magnet:?xt=urn:btih:F6C49B12A6525F504252EB089B4A8D6A297DED9B
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23703.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23703.jpgsave_picture_23703.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Arduino Remote v1.0.2 Mod by Johann Shilinski [En] (авторская разд�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23704.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23704.jpgsave_picture_23704.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ magnet:?xt=urn:btih:466B062E70DF3B264C02CBA5AF124E2785195631
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23705.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23705.jpgsave_picture_23705.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ magnet:?xt=urn:btih:F3611B32C724B73489809B879E4BAB4BA77413F1
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23706.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23706.jpgsave_picture_23706.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ magnet:?xt=urn:btih:1946C86AB835543D9B026B99344F35FF9DD1B7A7
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23707.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23707.jpgsave_picture_23707.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ magnet:?xt=urn:btih:C2DC7DE4A9066186E0451D3265DBEC5E4D593529
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23708.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23708.jpgsave_picture_23708.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:15EA14D404322A3ADE435E33F00D433AA568A7BD
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23709.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23709.jpgsave_picture_23709.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ magnet:?xt=urn:btih:B6C5C076FEF4AE26718201DD4409B772283417BA
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23710.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23710.jpgsave_picture_23710.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Sakamoto Days | Дни Сакамото [2025, TV, 11 из 11 эп.] WEBRip 1080
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23711.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23711.jpgsave_picture_23711.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ magnet:?xt=urn:btih:506DB10684C1EDF8388023E53D873152E8B695F1
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23712.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23712.jpgsave_picture_23712.jpg" />
 </div>
 
 

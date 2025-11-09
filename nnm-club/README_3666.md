@@ -6,7 +6,7 @@
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115691.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115691.jpgsave_picture_115691.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Beau Geste - Another Night in the City (1986) Reissue, Magada Heritage, 1993 [FL
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115692.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115692.jpgsave_picture_115692.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Timson - Forever's Not Enough (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115693.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115693.jpgsave_picture_115693.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Beau Geste - Another Night in the City (1986) Remaster, Unidisc, 1998 [FLAC|Loss
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115694.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115694.jpgsave_picture_115694.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Job for a Cowboy - Moon Healer (2024) [FLAC|Lossless|tracks + .cue] <Death Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115695.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115695.jpgsave_picture_115695.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Distant - Heritage (2023) 3CD Absolute Deluxe Edition, 2024, Century Media [FLAC
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115696.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115696.jpgsave_picture_115696.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ magnet:?xt=urn:btih:A818BE398A8B81DE5E21AD8EC3AD2C391DBEBC90
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115697.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115697.jpgsave_picture_115697.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ VA - Александр Зацепин, Леонид Дербенев - Песн
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115698.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115698.jpgsave_picture_115698.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ magnet:?xt=urn:btih:A07E7EFD82AE6DE81FEB18A9F29D62684A271157
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115699.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115699.jpgsave_picture_115699.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ ShockOne - Organism Algorithm (2024) [MP3|320 Kbps] <drum 'n' bass, dubstep, dru
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115700.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115700.jpgsave_picture_115700.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Dio - Ronnie's Birthday Show (2019) Reissue, 2024, Smokin' [FLAC|Lossless|WEB-DL
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115701.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115701.jpgsave_picture_115701.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ ShockOne - Organism Algorithm (2024) [FLAC|Lossless|WEB-DL|tracks] <drum 'n' bas
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115702.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115702.jpgsave_picture_115702.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ magnet:?xt=urn:btih:F9E9F94CC5D875D0513DB3828A0429E7996463E0
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115703.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115703.jpgsave_picture_115703.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ magnet:?xt=urn:btih:2AE72CB9648A187C54A1D580B7DDBC2586A93F46
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115704.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115704.jpgsave_picture_115704.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Bon Jovi - Superrock Japan 1984 (Live) (2024) [MP3|320 Kbps] <Hard Rock, Pop Roc
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115705.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115705.jpgsave_picture_115705.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Max Cruise - Nights at Sunset Beach (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115706.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115706.jpgsave_picture_115706.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ VA - Pure Dreams, Vol. 2 (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115707.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115707.jpgsave_picture_115707.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ magnet:?xt=urn:btih:A63C49A7681C00BC782655692077AE2DDCA88FDB
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115708.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115708.jpgsave_picture_115708.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ magnet:?xt=urn:btih:C44E232C45B928D805ED8C06B1FBC588605AF678
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115709.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115709.jpgsave_picture_115709.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Text Editor Pro 28.4.3 + Portable + Bonus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115710.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115710.jpgsave_picture_115710.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ VA - Sea Melodies: Chillout Your Mind (2024) [FLAC|Lossless|WEB-DL|tracks] <Bale
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115711.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115711.jpgsave_picture_115711.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ VA - Calm Reflections: Chillout Your Mind (2024) [FLAC|Lossless|WEB-DL|tracks] <
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115712.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115712.jpgsave_picture_115712.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ VA - D.Trance 105 (2024) [MP3|320 Kbps] <Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115713.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115713.jpgsave_picture_115713.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ FM-84 - Atlas (2016) [FLAC|Lossless|WEB-DL|tracks] <Dreamwave, Synthwave>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115714.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115714.jpgsave_picture_115714.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ magnet:?xt=urn:btih:AF43FD0DEF44FBD83E3D96B7E3BB6EEE70E3D7CA
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115715.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115715.jpgsave_picture_115715.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ Myriam Hernandez (Myriam Hernández) - Sinergia (2022) [FLAC 24/44.1|Lossless|WE
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115716.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115716.jpgsave_picture_115716.jpg" />
 </div>
 
 

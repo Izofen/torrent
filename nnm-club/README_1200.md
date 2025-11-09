@@ -6,7 +6,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31555.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31555.jpgsave_picture_31555.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:0303D327CF5B454D3981BD563481D2595DB53430
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31556.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31556.jpgsave_picture_31556.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:2DDF91E61E020EE0F1D50BB354B60989AE48D883
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31557.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31557.jpgsave_picture_31557.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:C2ADA78261C798E156408A4D235774252FF47E5A
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31558.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31558.jpgsave_picture_31558.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:50BF565C5349ADB79245D10D37449B1963E800A3
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31559.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31559.jpgsave_picture_31559.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:931DFB39B481441A43D9181F9A3FFE1AAE201BF2
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31560.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31560.jpgsave_picture_31560.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:99DFF8C5FA68B2DFC5DF24869561B8C2505E2108
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31561.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31561.jpgsave_picture_31561.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:4763A5CD25EFBDA92321BC2C54D939F906473346
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31562.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31562.jpgsave_picture_31562.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ StaxRip 2.44.1 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31563.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31563.jpgsave_picture_31563.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ magnet:?xt=urn:btih:2ACD31B544DE9C5EDECA2B0E2A1B53887217EB99
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31564.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31564.jpgsave_picture_31564.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Secret Service - Top Secret* (*Greatest Hits) (2000) [OGG Vorbis|480 Kbps] <Elec
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31565.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31565.jpgsave_picture_31565.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ VA - Only the Best Music (2024) [FLAC|Lossless|WEB-DL|tracks] <New-Age, Relax>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31566.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31566.jpgsave_picture_31566.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ VA - Only the Best Music (2024) [MP3|320 Kbps] <New-Age, Relax>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31567.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31567.jpgsave_picture_31567.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ magnet:?xt=urn:btih:3F704E5595F848810347B963C0CAECEA87BB973D
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31568.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31568.jpgsave_picture_31568.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ magnet:?xt=urn:btih:955FDB6E4C0B690F41C4B16C176647B55364E959
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31569.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31569.jpgsave_picture_31569.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ magnet:?xt=urn:btih:F8F919DB82DE86400FBCB1EE8BF6D9D62499C3A6
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31570.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31570.jpgsave_picture_31570.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ VA - Disco Down The Best of 2024 (2025) [MP3|320 Kbps] <Disco, Nu-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31571.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31571.jpgsave_picture_31571.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ File & Image Uploader 8.4.9 Portable + Skins [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31572.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31572.jpgsave_picture_31572.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ magnet:?xt=urn:btih:E9C0EF8B188EA5588C8E6BDBEEDD016A9A797060
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31573.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31573.jpgsave_picture_31573.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ magnet:?xt=urn:btih:9056CD0FA2F3E6C33BC5815F1E67DB3E3C05F1EF
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31574.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31574.jpgsave_picture_31574.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ magnet:?xt=urn:btih:29828BADA44FA02102C1B6DA2A6420D6EEEA0B10
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31575.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31575.jpgsave_picture_31575.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Firefox Browser 134.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31576.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31576.jpgsave_picture_31576.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ VA - The Best Disco In Town (2007) 3 CD [OGG Vorbis|480 Kbps] <Funk / Soul, Disc
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31577.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31577.jpgsave_picture_31577.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ magnet:?xt=urn:btih:96DDADA9A2E14DB449A4030360F3E2E66EB170A0
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31578.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31578.jpgsave_picture_31578.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ magnet:?xt=urn:btih:077531E821CDB7F9F32D294E573F0919E98D1D9D
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31579.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31579.jpgsave_picture_31579.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ VA - Disco Down The Best of 2023 (2023) [MP3|320 Kbps] <House, Nu-Disco, Electro
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31580.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31580.jpgsave_picture_31580.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Five Nights at Freddy's: Security Breach (2021) [Ru/Multi] (1.0.20230719/dlc) Sc
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58059.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58059.jpgsave_picture_58059.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Tad the Lost Explorer (2022) [Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58068.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58068.jpgsave_picture_58068.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Three Kingdoms Story: Conussia (2020) [Ru/En] (27042024/dlc) License GOG [18+]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58111.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58111.jpgsave_picture_58111.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Staffer Reborn (2024) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58165.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58165.jpgsave_picture_58165.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Chihiro Himukai Always Walks Away (2021) [Multi] (1.0.1/dlc) License GOG [18+]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58271.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58271.jpgsave_picture_58271.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:E02363E25735FB9751E55CBE82AF5CC2F62EECD4
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58393.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58393.jpgsave_picture_58393.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ This is a Ghost (2024) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58453.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58453.jpgsave_picture_58453.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Once a Tale (2024) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58539.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58539.jpgsave_picture_58539.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ MADievals - The rise of Rusty Steelknee (2023) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58553.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58553.jpgsave_picture_58553.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Jawbreaker (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58566.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58566.jpgsave_picture_58566.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Scott Whiskers in: the Search for Mr. Fumbleclaw (2024) [Multi] (1.0.155) Licens
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58697.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58697.jpgsave_picture_58697.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Rauniot (2024) [Ru/Multi] (1.0.0.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58796.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58796.jpgsave_picture_58796.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Shinkansen 0 (2024) [Ru/Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58805.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58805.jpgsave_picture_58805.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ FLAKE The Legend of Snowblind (2024) [En] (1.1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58807.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58807.jpgsave_picture_58807.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Aquamarine (2022) [En] (2.1.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58841.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58841.jpgsave_picture_58841.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Sophia the Traveler (2024) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58888.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58888.jpgsave_picture_58888.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ The Mildew Children / Дети Плесени (2024) [Ru/En] (1.1.0) Repack Othe
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58907.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58907.jpgsave_picture_58907.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Agatha Christie Hercule Poirot: The London Case (2023) [Ru/Multi] (1.0.7) Licens
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58923.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58923.jpgsave_picture_58923.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Scars Above (2023) [Ru/Multi] (1.0.0.132679) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58927.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58927.jpgsave_picture_58927.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ My love with the GirlsGroup (2024) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58936.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58936.jpgsave_picture_58936.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Agatha Christie - Murder on the Orient Express (2023) [Ru/Multi] (20231222-20582
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58954.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58954.jpgsave_picture_58954.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Inspector Schmidt - A Bavarian Tale (2023) [Multi] (1.0.1.1014) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59222.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59222.jpgsave_picture_59222.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Lil Doll House (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59230.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59230.jpgsave_picture_59230.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Grand Canyon (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59242.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59242.jpgsave_picture_59242.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Purpose 1951 (2024) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59319.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59319.jpgsave_picture_59319.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ DYSCHRONIA: Chronos Alternate (2024) [Multi] (1.0) Repack FitGirl [Dual Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59325.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59325.jpgsave_picture_59325.jpg" />
 </div>
 
 

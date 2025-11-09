@@ -6,7 +6,7 @@ Witchunter - Metal Dream (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187256.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187256.jpgsave_picture_187256.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Highway Sentinels - The Waiting Fire (2022) [FLAC|Lossless|image + .cue] <Hard R
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187257.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187257.jpgsave_picture_187257.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Sammal - Aika laulaa (2022) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Rock, Ret
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187258.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187258.jpgsave_picture_187258.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Medusa Touch - Insaniteyes (2022) [FLAC|Lossless|WEB-DL|tracks] <NWOBHM, Heavy M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187259.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187259.jpgsave_picture_187259.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Night Lord - Death Doesn't Wait (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Spee
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187262.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187262.jpgsave_picture_187262.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Vuara - 3 Releases (2020-2022) [FLAC|Lossless|WEB-DL|tracks] <Blackened Metalcor
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187264.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187264.jpgsave_picture_187264.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ The Interbeing - Icon of the Hopeless (2022) [FLAC|Lossless|WEB-DL|tracks] <Prog
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187270.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187270.jpgsave_picture_187270.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Sahg - Born Demon (2022) [FLAC|Lossless|image + .cue] <Modern Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187275.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187275.jpgsave_picture_187275.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Holz - Holz (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Stoner Punk>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187276.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187276.jpgsave_picture_187276.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Eternal Candle - 2 Albums (2018-2022) [FLAC|Lossless|WEB-DL|tracks] <Death Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187278.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187278.jpgsave_picture_187278.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Warlung - Vulture's Paradise (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, S
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187281.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187281.jpgsave_picture_187281.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Depresszio - Vissza a Foldre (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187283.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187283.jpgsave_picture_187283.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Wheel - Preserved In Time (2021) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187284.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187284.jpgsave_picture_187284.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ KRAIDOL - Время настало (2022) [FLAC|Lossless|WEB-DL|tracks] <Altern
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187286.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187286.jpgsave_picture_187286.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Empire Drowns - Nothing (2022) [FLAC|Lossless|WEB-DL|tracks] <Doom, Gothic Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187288.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187288.jpgsave_picture_187288.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Maliciouz - 2 Albums (2022) [FLAC|Lossless|WEB-DL|tracks] <Doom, Sludge, Stoner 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187292.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187292.jpgsave_picture_187292.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ magnet:?xt=urn:btih:839238EEB489F3901C0F42149996C3F4ED197473
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187336.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187336.jpgsave_picture_187336.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ The Who - Who’s Next : Life House (Super Deluxe) (2023) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187407.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187407.jpgsave_picture_187407.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Nickelback - Get Rollin' (2022) [MP3|320 Kbps] <Post-Grunge>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187438.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187438.jpgsave_picture_187438.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Nickelback - Get Rollin' (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock,
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187451.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187451.jpgsave_picture_187451.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:EC90183E3A525AA4F7C961904F4D9909B181DD27
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187465.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187465.jpgsave_picture_187465.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ VA - Рок зима (Russian Rock Legends) (2019) [MP3|320 Kbps] <Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187471.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187471.jpgsave_picture_187471.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ The Bites - Squeeze (2023) [FLAC|Lossless|image + .cue] <Hard Rock, Garage Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187488.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187488.jpgsave_picture_187488.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ The Ides Of June - Rising Tide (2023) [MP3|320 Kbps] <Rock, Blues>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187505.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187505.jpgsave_picture_187505.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Kill Devil Hill - Seas Of Oblivion (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187508.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187508.jpgsave_picture_187508.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Sinheresy - Event Horizon (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic, Melod
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187514.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187514.jpgsave_picture_187514.jpg" />
 </div>
 
 

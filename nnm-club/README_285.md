@@ -6,7 +6,7 @@ JetBrains CLion 2025.2 Repack by Sitego [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7494.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7494.jpgsave_picture_7494.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Deep Purple - Made in Japan (Steven Wilson Remix) (1972) Reissue, Remaster, Rhin
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7495.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7495.jpgsave_picture_7495.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:A68350FD51706D167A0C383E45427ABE06D537D7
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7496.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7496.jpgsave_picture_7496.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ TechSmith Camtasia 25.2.2.11661 [Multi]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7497.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7497.jpgsave_picture_7497.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ magnet:?xt=urn:btih:B89654D36509DFEF2B1D2591052F24A20D03DC38
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7498.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7498.jpgsave_picture_7498.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ Squid - рукописные заметки v4.4.1 Mod by Alex.Strannik [Ru/Mult
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7499.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7499.jpgsave_picture_7499.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ VRadio - Online Radio App v2.8.7 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7500.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7500.jpgsave_picture_7500.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:251B4C14765852FD650D651FA4592DC2EF441D5C
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7501.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7501.jpgsave_picture_7501.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:D386D956473C17FFE763ACA68ACE21CB22F043DB
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7502.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7502.jpgsave_picture_7502.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ magnet:?xt=urn:btih:E86A22E28C93D6136AFCAE0C9EAEB9DDC51CEF03
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7503.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7503.jpgsave_picture_7503.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ magnet:?xt=urn:btih:972F0CE1EAD6F3988E5C6ECE0FD1630F9F4ED506
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7504.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7504.jpgsave_picture_7504.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ magnet:?xt=urn:btih:967152A8663FF92DC65E28932A4BCD32EBE0DFC9
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7505.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7505.jpgsave_picture_7505.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ magnet:?xt=urn:btih:D0A94250BF30F2C7203E5EBA627260AB4604C5CF
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7506.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7506.jpgsave_picture_7506.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ magnet:?xt=urn:btih:58F67A7D2B10618C0B19C5FF2DE5C204AE40DFA1
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7507.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7507.jpgsave_picture_7507.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ magnet:?xt=urn:btih:427108FF65BEF57FC47938AF069E08AB2DCDFDC3
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7508.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7508.jpgsave_picture_7508.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ KiiiKiii - Dancing Alone (2025) WEBRip [H.265/2160p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7509.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7509.jpgsave_picture_7509.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ magnet:?xt=urn:btih:3A10C75BCA635315E48078E3A2BF24B2B40A44CF
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7510.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7510.jpgsave_picture_7510.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ magnet:?xt=urn:btih:FBF5CFB1EE437111FD4FF8C8731E0AD3994488CF
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7511.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7511.jpgsave_picture_7511.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ FacePic - AI Face App v2.6.3 Pro Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7512.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7512.jpgsave_picture_7512.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ magnet:?xt=urn:btih:07B590B4A988FD9DFE58141DF441A0F64853D98B
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7513.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7513.jpgsave_picture_7513.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ magnet:?xt=urn:btih:DC69DFBF1E0D7AC307459F7AA9F12798EA936492
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7514.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7514.jpgsave_picture_7514.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ magnet:?xt=urn:btih:7DF3E2A7493767970375CFEC320AB87F2275E3CB
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7515.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7515.jpgsave_picture_7515.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Roger Waters: This Is Not a Drill - Live from Prague (2025) Blu-ray [H.264/1080p
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7516.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7516.jpgsave_picture_7516.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ magnet:?xt=urn:btih:2DD7CA2FCE7E0ED21717FD76554E1C6EB2A304B6
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7517.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7517.jpgsave_picture_7517.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ JetBrains DataGrip 2025.2 Repack by Sitego [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7518.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7518.jpgsave_picture_7518.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ magnet:?xt=urn:btih:5AAD5CC7297F3A7D818706A80F7B777A8B69ACF9
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7519.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7519.jpgsave_picture_7519.jpg" />
 </div>
 
 

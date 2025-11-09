@@ -6,7 +6,7 @@ Whispers - Unconscious Conspiracy (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249343.jpgsave_picture_249343.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - The Rock Collection: Rock Groups (1991) 2CD Compilation [FLAC|Lossless|trac
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249349.jpgsave_picture_249349.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Led Zeppelin - Led Zeppelin III (1970) 2xCD, Remastered, 2014, Atlantic Recordin
 >>Hard Rock (Hi Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249376.jpgsave_picture_249376.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Transworld Identity - Seven Worlds (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249390.jpgsave_picture_249390.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ The Steve Gibbons Band - 7 Альбомов (1976-1988) [FLAC|Lossless|tracks + 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249394.jpgsave_picture_249394.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Die Apokalyptischen Reiter - Freie Republik Reitermania (2025) [FLAC|Lossless|WE
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249446.jpgsave_picture_249446.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Aviana - Void (2025) [FLAC|Lossless|WEB-DL|tracks] <Metalcore>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249450.jpgsave_picture_249450.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ ZZ Top - RAW (2022) 'That Little Ol' Band From Texas' Original Soundtrack  [FLAC
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249453.jpgsave_picture_249453.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Soulwax - All Systems Are Lying (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alte
 >>Alternative, Punk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249454.jpgsave_picture_249454.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Blood Sky - MMXXV (2025) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal, Power
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249483.jpgsave_picture_249483.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:B4A7C941C48089A6DD4112C99FD7DA999AC3E0CD
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249497.jpgsave_picture_249497.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ U2 - Songs Of Surrender (2023) 4xCD [FLAC|Lossless|tracks + .cue] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249508.jpgsave_picture_249508.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:1B79605FA90F7E12EEDD6E82733D7008D43B6BAC
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249555.jpgsave_picture_249555.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Phil Vincent - No Respect (2022) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249605.jpgsave_picture_249605.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ U2 - Songs Of Surrender (2023) 4 CD [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249609.jpgsave_picture_249609.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ magnet:?xt=urn:btih:6FBE1E42EBBED09094DE01A3F562289CF218DE11
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249664.jpgsave_picture_249664.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Kiss In A Dragon Night - Kiss In A Dragon Night (2023) [MP3|320 Kbps] <Melodic H
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249740.jpgsave_picture_249740.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Civil War - Invaders (2022) [FLAC|Lossless|image + .cue] <Heavy Metal, Power Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249755.jpgsave_picture_249755.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ magnet:?xt=urn:btih:1D9CE1347DB9242F9DB50FE308E10CFB20ACCD54
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249777.jpgsave_picture_249777.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ Luiz Toffoli - Enigma Garden (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive P
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249794.jpgsave_picture_249794.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ Brave Rockets - Привет (2023) [FLAC|Lossless|WEB-DL|tracks] <Ska Punk-Rock
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249798.jpgsave_picture_249798.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ magnet:?xt=urn:btih:BBFA1919AB610AAD69E5055426D6E8AB0862AC7E
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249807.jpgsave_picture_249807.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ magnet:?xt=urn:btih:13099D979066C223691EA7A7ABCA99829837EE78
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249810.jpgsave_picture_249810.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ magnet:?xt=urn:btih:4100F4DD8FA4E93B30EF90FC73048783F657D1E0
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249813.jpgsave_picture_249813.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Glory Hunters - We Play Muzik (2022) [FLAC|Lossless|WEB-DL|tracks] <Ska, Punk>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249815.jpgsave_picture_249815.jpg" />
 </div>
 
 
@@ -683,7 +683,7 @@ Lord of the Void - Consvming the Trails ov Light (2023) [FLAC|Lossless|WEB-DL|tr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249817.jpgsave_picture_249817.jpg" />
 </div>
 
 

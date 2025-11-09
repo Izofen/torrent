@@ -6,7 +6,7 @@
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186074.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186074.jpgsave_picture_186074.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ CoolUtils Total Audio Converter 6.1.0.286 RePack (& Portable) by elchupacabra [M
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186075.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186075.jpgsave_picture_186075.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:F34458F305A8E12DE5155BF391CF359039802B6E
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186076.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186076.jpgsave_picture_186076.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Manhunt (2004) [Ru/Multi] (1.1) Repack Necros
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186077.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186077.jpgsave_picture_186077.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ MakeMKV 1.18.2 Beta RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186078.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186078.jpgsave_picture_186078.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Ninja Gaiden 4 (2025) [Ru/Multi] (1.0.1.0/dlc) Repack Let'sРlay [Deluxe Edition
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186079.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186079.jpgsave_picture_186079.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Thief's Shelter (2025) [Ru/Multi] (1.0) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186080.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186080.jpgsave_picture_186080.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Lessaria: Fantasy Kingdom Sim (2025) [Ru/Multi] (1.0.1034/dlc) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186081.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186081.jpgsave_picture_186081.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:9C437E5743F385ECD7D9717E5C89DE113F75ED4A
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186082.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186082.jpgsave_picture_186082.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:B3EC9D45C700FFFEF9DC857697D9ADE7D9DCCF85
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186083.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186083.jpgsave_picture_186083.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ magnet:?xt=urn:btih:683167D7C5BE67D43CB790AF4B5F33D8C5DDEFBE
 >>Отечественные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186084.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186084.jpgsave_picture_186084.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ magnet:?xt=urn:btih:3A1474C10F85D5919B73077B674CC781817AABA1
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186085.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186085.jpgsave_picture_186085.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Diablo II (2000) [En] (1.14d/dlc) Repack Necros
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186086.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186086.jpgsave_picture_186086.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ magnet:?xt=urn:btih:38A0CAEF5CA16DF349BF7373D36CFB2C2A588E39
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186087.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186087.jpgsave_picture_186087.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ magnet:?xt=urn:btih:AD99188A799E72F75980B7D9AE25E8D4A365AD39
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186088.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186088.jpgsave_picture_186088.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ magnet:?xt=urn:btih:713F778BA1AB3FC59A4E3460BD616F5777805B91
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186089.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186089.jpgsave_picture_186089.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Windows 11 PRO 24H2 26100.6899 Update 20 by Ghost Spectre [En]
 >>Сборки Windows 11
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186090.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186090.jpgsave_picture_186090.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ magnet:?xt=urn:btih:06C899269EC03C5443D6953A93D83025C06D148A
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186091.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186091.jpgsave_picture_186091.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ magnet:?xt=urn:btih:CECEC20C890F835A00BCF4EC4F53F4C31E0E122F
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186092.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186092.jpgsave_picture_186092.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ magnet:?xt=urn:btih:748D600725BCDA19544EBD0C8ACA39D6F58CA2CE
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186093.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186093.jpgsave_picture_186093.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ magnet:?xt=urn:btih:B1D7289464E75304D21B0346FD8ED6787C984098
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186094.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186094.jpgsave_picture_186094.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ v2rayN 7.15.4 portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186095.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186095.jpgsave_picture_186095.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ magnet:?xt=urn:btih:9BC21C08BFA6D654C1574789142D44E5709070BB
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186096.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186096.jpgsave_picture_186096.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ UltraSearch Professional 4.8.3.1183 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186097.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186097.jpgsave_picture_186097.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Caro Emerald - GEMS: The Essential Caro Emerald (2025) [FLAC 16,24/44.1|Lossless
 >>Jazz (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186098.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186098.jpgsave_picture_186098.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ magnet:?xt=urn:btih:9E3E5BF86EEE887A5E74FE7566A24737084C70DA
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186099.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186099.jpgsave_picture_186099.jpg" />
 </div>
 
 

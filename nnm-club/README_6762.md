@@ -6,7 +6,7 @@ Steinberg Nuendo Pro for Mac 12 v.12.0.70 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232674.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232674.jpgsave_picture_232674.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ WinSCP 6.1 Build 13674 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232675.jpgsave_picture_232675.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:3D494E2F8E4939D7F9F2F84A172AEB94FB944481
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232676.jpgsave_picture_232676.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:3AA08B8B41DB4569559C7C3F52BC2F86826AA4A4
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232681.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232681.jpgsave_picture_232681.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ magnet:?xt=urn:btih:D462472F49D0FBFE6D458DE1B51DDD4F0B4A13EB
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232682.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232682.jpgsave_picture_232682.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ Membrance - Undead Island (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232683.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232683.jpgsave_picture_232683.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ Disk Xray 4.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232684.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232684.jpgsave_picture_232684.jpg" />
 </div>
 
 
@@ -187,7 +187,7 @@ magnet:?xt=urn:btih:2A71F4E97B7784B92C9D1EBCF3D9E4B9E56564C2
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232685.jpgsave_picture_232685.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Simple Sticky Notes 6.0.1.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232689.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232689.jpgsave_picture_232689.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ magnet:?xt=urn:btih:0B811545EAE0187D0986FCBAB7AC47C7EBB75FCC
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232691.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232691.jpgsave_picture_232691.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ PDF24 Creator 11.12.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232692.jpgsave_picture_232692.jpg" />
 </div>
 
 
@@ -289,7 +289,7 @@ Spiritus Mortis - Spiritus Mortis (2004) Firebox Records, Reissue 2010 [FLAC|Los
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232693.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232693.jpgsave_picture_232693.jpg" />
 </div>
 
 
@@ -316,7 +316,7 @@ Kay Starr - Losers, Weepers (1960) 2012, Capitol Records [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232694.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232694.jpgsave_picture_232694.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ magnet:?xt=urn:btih:6A00728CB56B458B022FB083D8EA2B977486D38C
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232696.jpgsave_picture_232696.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ LightX - Фоторедактор 2.2.0 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232700.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232700.jpgsave_picture_232700.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ magnet:?xt=urn:btih:3403A0439114027A5E3D732CD3C4879616F63FAC
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232701.jpgsave_picture_232701.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ Distant Past - The Final Stage (2021) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232703.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232703.jpgsave_picture_232703.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ Firefox Browser 115.0.2 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232704.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232704.jpgsave_picture_232704.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ magnet:?xt=urn:btih:A1E3443A6BCF1B0D86BF930474C091CF2AD68E19
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232707.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232707.jpgsave_picture_232707.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Topaz Video AI 3.2.7 (x64) Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232708.jpgsave_picture_232708.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ magnet:?xt=urn:btih:53156EEAD0E1A0F73AD7B5F317921CEFFEC8FAC6
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232709.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232709.jpgsave_picture_232709.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ magnet:?xt=urn:btih:F8E0B5F9C5034C6CA966EF19BE155A920F83E285
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232711.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232711.jpgsave_picture_232711.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ magnet:?xt=urn:btih:137634C30604C1D18B9E1E188458DE99AA7EBA47
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232713.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232713.jpgsave_picture_232713.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ LibreOffice 7.5.3.2 Stable Portable by PortableApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232715.jpgsave_picture_232715.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Emmet Cohen - Uptown In Orbit (2022) Mack Avenue [FLAC|Lossless|tracks + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232716.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232716.jpgsave_picture_232716.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ ScreenToGif 2.38.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232718.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232718.jpgsave_picture_232718.jpg" />
 </div>
 
 

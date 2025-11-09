@@ -6,7 +6,7 @@
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112987.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112987.jpgsave_picture_112987.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:7059BDBA47A3905F200AC6CD9579645FFF3A7038
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112988.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112988.jpgsave_picture_112988.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Darkthrone - Goatlord (1996) Reissue, 2011, Peaceville [FLAC|24/192|image + .cue
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112989.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112989.jpgsave_picture_112989.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Carnival Of Dreams - Des Kaisers Alte Kleider (2024) [FLAC 24/44.1|Lossless|WEB-
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112990.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112990.jpgsave_picture_112990.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:018BD9CEF9BA0CC15729D7BB1447F36345B34F42
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112991.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112991.jpgsave_picture_112991.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Cruzh - The Jungle Revolution (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112992.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112992.jpgsave_picture_112992.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ Brodequin - Harbinger of Woe (2024) [FLAC|Lossless|WEB-DL|tracks] <Brutal Death 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112993.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112993.jpgsave_picture_112993.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ Don't Drop the Sword - Path to Eternity (2017) [FLAC|Lossless|WEB-DL|tracks] <Po
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112994.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112994.jpgsave_picture_112994.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ Brodequin - Harbinger of Woe (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Brutal 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112995.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112995.jpgsave_picture_112995.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Alestorm - Voyage of the Dead Marauder (2024) EP [FLAC|Lossless|WEB-DL|tracks] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112996.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112996.jpgsave_picture_112996.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Alestorm - Voyage of the Dead Marauder (2024) EP [FLAC 24/48|Lossless|WEB-DL|tra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112997.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112997.jpgsave_picture_112997.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Hammer King - König und Kaiser (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112998.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112998.jpgsave_picture_112998.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Samson - Head On (1980) Reissue, 2004, Earmark [FLAC|24/96|image + .cue|Vinyl-Ri
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112999.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112999.jpgsave_picture_112999.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Samson - Shock Tactics (1981) Reissue, 1989, Repertoire Records [FLAC|24/192|ima
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113000.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113000.jpgsave_picture_113000.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ magnet:?xt=urn:btih:8F05F6041EB18C64CD76CD47F8D8CCAC34CBB837
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113001.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113001.jpgsave_picture_113001.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ magnet:?xt=urn:btih:44FDC2F6DAC0A94C1216C00F55C937A7A930E100
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113002.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113002.jpgsave_picture_113002.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ magnet:?xt=urn:btih:07FE918F54092368419075F0BAE1FC992E427C29
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113003.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113003.jpgsave_picture_113003.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Cruzh - The Jungle Revolution (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113004.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113004.jpgsave_picture_113004.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Misanthrope - ΑXΩ (Le Magistère De L'Abnégation) (2017) [FLAC|Lossless|image
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113005.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113005.jpgsave_picture_113005.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Morta Skuld - Creation Undone (2024) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113006.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113006.jpgsave_picture_113006.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Zoot Sims - In Copenhagen (1978) 2007, Storyville Records [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113007.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113007.jpgsave_picture_113007.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Benny Golson - Quartet "Live" (1989) 1991, Dreyfus Jazz [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113008.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113008.jpgsave_picture_113008.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Benny Golson - California Message (1980) 1995, Timeless [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113009.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113009.jpgsave_picture_113009.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ T Bear - The Way Of The World (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues, Blues
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113010.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113010.jpgsave_picture_113010.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ magnet:?xt=urn:btih:D4B58B7DA712A1D17A89BDC35A879CC95F6CAFB2
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113011.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113011.jpgsave_picture_113011.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ Hideous Divinity - Unextinct (2024) [FLAC|Lossless|WEB-DL|tracks] <Technical-Bru
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113012.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113012.jpgsave_picture_113012.jpg" />
 </div>
 
 

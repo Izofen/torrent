@@ -6,7 +6,7 @@ Andreas Georgiou - Asate (2003) [FLAC|Lossless|tracks + .cue] <Fusion, Vocal Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151963.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151963.jpgsave_picture_151963.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:73806D3B70CFDC57623AC22C540504E041A19DF2
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151964.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151964.jpgsave_picture_151964.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Revuer, Евгений Дюжакин | МК «Ретушь и работа с �
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151965.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151965.jpgsave_picture_151965.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:52A6AA1007EBF5DA979E5C572F5CB6CEB3CB332C
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151967.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151967.jpgsave_picture_151967.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ magnet:?xt=urn:btih:889FE61C309A8DA3762F1938B399D49C5B0FA7D1
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151968.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151968.jpgsave_picture_151968.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ FIFA 19 Legacy Edition / FIFA 19 Издание Legacy (2018) [PS3] [EUR] 4.82 [
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151969.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151969.jpgsave_picture_151969.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ The Algorithm - Polymorphic Code (2012) [MP3|320 кб/с]<Progressive Electronic
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151970.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151970.jpgsave_picture_151970.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ MovieSherlock 6.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151971.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151971.jpgsave_picture_151971.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ magnet:?xt=urn:btih:94C91DA9A09DC0186D376FBAB6DB6321118ABAAD
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151972.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151972.jpgsave_picture_151972.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ magnet:?xt=urn:btih:A66907B3F8C21D38839535D101B59940DD6C5616
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151973.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151973.jpgsave_picture_151973.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ magnet:?xt=urn:btih:E6A22B4C8AEE6043FC5614ADE9A90ADFF9E78D10
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151975.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151975.jpgsave_picture_151975.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ John Lennon - 23 albums, 3 Box-sets, 87 CD (1969-2021) [FLAC|Lossless|image + .c
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151976.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151976.jpgsave_picture_151976.jpg" />
 </div>
 
 
@@ -315,7 +315,7 @@ magnet:?xt=urn:btih:5CEF2BE5E22DFD26E0F9A46183C75C3B868EDDAE
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151977.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151977.jpgsave_picture_151977.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ magnet:?xt=urn:btih:A6D16739F09374BE6DE665B323528096109057EE
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151981.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151981.jpgsave_picture_151981.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ ProArt School, Майк Вазовский | Game Art иллюстрация (20
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151982.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151982.jpgsave_picture_151982.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ magnet:?xt=urn:btih:A88198E522F412E56FDFD384C4C9035FAF1D68A6
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151983.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151983.jpgsave_picture_151983.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ magnet:?xt=urn:btih:E1EA8B326ECE0DE1339B5AC899D32167DFC362D5
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151984.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151984.jpgsave_picture_151984.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ magnet:?xt=urn:btih:EC105D18F05B15CE91FBD4EA096E2BCD650EBFC0
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151987.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151987.jpgsave_picture_151987.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ magnet:?xt=urn:btih:C1D50088CB6A4A6B87F28273D442678ECCDE76F8
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151988.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151988.jpgsave_picture_151988.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ magnet:?xt=urn:btih:66D50286E489370052011F957903CF6FA113DA0A
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151989.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151989.jpgsave_picture_151989.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:CD45EDBC57CEDE890682D82FC41A058754A2E22C
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151990.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151990.jpgsave_picture_151990.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ magnet:?xt=urn:btih:AC953F8550C38199391DFD08F727B94C4267A467
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151991.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151991.jpgsave_picture_151991.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ magnet:?xt=urn:btih:EA58250F74824B3ABB837E202126036D6A4ED906
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151992.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151992.jpgsave_picture_151992.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ magnet:?xt=urn:btih:80978B6F7B337AE55AC28CF903499B68BE56C27D
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151993.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151993.jpgsave_picture_151993.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ magnet:?xt=urn:btih:D5432D4E5C3FCC2EE0857459438B24F139E0B9F2
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151995.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151995.jpgsave_picture_151995.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ Alura - Alura (2020) [MP3|320 Kbps] <Nu Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151996.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151996.jpgsave_picture_151996.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165072.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165072.jpgsave_picture_165072.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Lee Aaron - Almost Christmas (2020) Reissue, 2021, Big Sister Records [FLAC|Loss
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165075.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165075.jpgsave_picture_165075.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Coronatus - 10 Albums (2007-2021) [FLAC, WavPack|Lossless|image + .cue, tracks] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165083.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165083.jpgsave_picture_165083.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Cristiano Filippini's FLAMES OF HEAVEN - The Force Within (2020) [FLAC|Lossless|
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165108.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165108.jpgsave_picture_165108.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Ice Nine Kills - Welcome To Horrorwood: The Silver Scream 2 (2021) Orchestral Ve
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165121.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165121.jpgsave_picture_165121.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Vanden Plas - The Ghost Xperiment - Awakening (2019) [FLAC|Lossless|tracks + .cu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165156.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165156.jpgsave_picture_165156.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Sideburn - Fired Up (2022) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165174.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165174.jpgsave_picture_165174.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Lacuna Coil - Live From The Apocalypse (2021) [FLAC|Lossless|image + .cue] <Goth
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165182.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165182.jpgsave_picture_165182.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Royal Hunt - Dystopia (2020) [MP3|320 Kbps] <Melodic Progressive Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165201.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165201.jpgsave_picture_165201.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:0378A1EA1878A2B1A021BAE5EDBE4D9F6AE9B53C
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165203.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165203.jpgsave_picture_165203.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ VA - Christmas Rock Legends (2020) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165236.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165236.jpgsave_picture_165236.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:D41D23BDF2B4D6600C9268F13AB7ACB2574D46B7
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165237.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165237.jpgsave_picture_165237.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Omega - Testamentum (Búcsúztató) (2021) Maxi Single [FLAC|Lossless|tracks + .
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165244.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165244.jpgsave_picture_165244.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Dark Pink Moon - A Chill Out Tribute To Pink Floyd (2002) [MP3|320 Kbps] <Rock, 
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165246.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165246.jpgsave_picture_165246.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Ripper - Return To Death Row (2022) EP [FLAC|Lossless|WEB-DL|tracks] <Heavy Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165248.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165248.jpgsave_picture_165248.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Shine On - Occitania Tribute to Pink Floyd (2016) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165251.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165251.jpgsave_picture_165251.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ magnet:?xt=urn:btih:E29EBB17D1BDC7142FF473CC5B51EAED7189BE50
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165263.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165263.jpgsave_picture_165263.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Disturbed - Indestructible (2008) [FLAC|Lossless|tracks + .cue] <Nu Metal, Alter
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165266.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165266.jpgsave_picture_165266.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Disturbed - Asylum (2010) [FLAC|Lossless|tracks + .cue] <Nu Metal, Alternative M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165268.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165268.jpgsave_picture_165268.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Cobra Cult - Second Gear (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Female
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165272.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165272.jpgsave_picture_165272.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Glenn Frey - No Fun Aloud (1982) [FLAC|Lossless|tracks + .cue] <Soft Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165273.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165273.jpgsave_picture_165273.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Oceans of Slumber - Aetherial (2013) [FLAC|Lossless|image + .cue] <Progressive M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165282.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165282.jpgsave_picture_165282.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Neil Young With Crazy Horse - Barn (2021) [FLAC|Lossless|track+.cue] <Country Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165298.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165298.jpgsave_picture_165298.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Doro - Maximum Celebration - Strong and Proud (2023) EP, Promo [MP3|320 Kbps] <H
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165305.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165305.jpgsave_picture_165305.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ Vented - Cruelty And Corruption (2022) [FLAC|Lossless|WEB-DL|tracks] <Groove Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165312.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165312.jpgsave_picture_165312.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ Vreid - Solverv (2015) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165326.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165326.jpgsave_picture_165326.jpg" />
 </div>
 
 

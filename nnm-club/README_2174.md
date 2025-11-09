@@ -6,7 +6,7 @@ Ubuntu EducationPack 20.04 (май 2024) [amd64][Multi]
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56891.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56891.jpgsave_picture_56891.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:F96368F7E2BF278CFD6FB5D2F3671CCFE20FA69D
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56892.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56892.jpgsave_picture_56892.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Alba: A Wildlife Adventure (2020) [Ru/Multi] (0.90) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56893.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56893.jpgsave_picture_56893.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Hand In Hand (2023) [Ru/Multi] (1.0) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56894.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56894.jpgsave_picture_56894.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ City Legends 4: The Witness in the Rye (2024) [Multi] (1.0) Unofficial [Collecto
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56895.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56895.jpgsave_picture_56895.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:222B263E23A920BD246DE4BF6C4386002EF5AFB9
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56896.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56896.jpgsave_picture_56896.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Antivirus Removal Tool 2024.05 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56897.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56897.jpgsave_picture_56897.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:9C68B69AF5A5B068F992AF178134D5611BB2C30A
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56898.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56898.jpgsave_picture_56898.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:9F6B58ABAF09F5A26750B5762B786CA3026BAFEA
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56899.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56899.jpgsave_picture_56899.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:B8D9BA845111BC2EACB91A12D61270E3F1B5E9BB
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56900.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56900.jpgsave_picture_56900.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:FD37280C8668FB0EEC4E9EA61EDF30E5927364C1
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56901.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56901.jpgsave_picture_56901.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ WinTools.net Premium 24.5.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56902.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56902.jpgsave_picture_56902.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Unleash the Archers - Studio Albums (7 releases) (2009-2024) hand made [restored
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56903.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56903.jpgsave_picture_56903.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Battle vs Chess (2011) [Ru/Multi] (1.2/dlc) License GOG [Grandmaster Premium Edi
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56904.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56904.jpgsave_picture_56904.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Windows 11 (v23h2) x64 HSL/PRO by KulHunter v4 (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56905.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56905.jpgsave_picture_56905.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ magnet:?xt=urn:btih:D3D00D5523A482C35ABD35373B6406570A959B16
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56906.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56906.jpgsave_picture_56906.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ magnet:?xt=urn:btih:57CD93F0317535B6E5B3F9FC787BB110C36E01D6
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56907.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56907.jpgsave_picture_56907.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ magnet:?xt=urn:btih:6F272E99D62D9378390756A84127464C21C753AF
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56908.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56908.jpgsave_picture_56908.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ magnet:?xt=urn:btih:194C5ACDB6D8B112306AF3E1F2FE8FB7C361EBD0
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56909.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56909.jpgsave_picture_56909.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Windows 11 (v23h2) x64 PRO by KulHunter v4 (esd) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56910.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56910.jpgsave_picture_56910.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ The Bridge Curse 2: The Extrication / Проклятый мост 2: Эваку�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56911.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56911.jpgsave_picture_56911.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ magnet:?xt=urn:btih:9935FD2DE7F428BC6C2F033DB993B8F6D506208B
 >>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56912.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56912.jpgsave_picture_56912.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ magnet:?xt=urn:btih:46DC85DC6D4D735631001C91912F206F40714C5B
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56913.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56913.jpgsave_picture_56913.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ magnet:?xt=urn:btih:832C14D5EC4D11710B290F78CE0E5036E9C34DE4
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56914.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56914.jpgsave_picture_56914.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Strongloween: The Escape (2024) [Multi] (1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56915.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56915.jpgsave_picture_56915.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ magnet:?xt=urn:btih:83D19EF4470A6BCF0B1F1E65A2E0F2F510A4CDF4
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56916.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56916.jpgsave_picture_56916.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Fatal Rails - Damned (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116653.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116653.jpgsave_picture_116653.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Tom Harrell - Infinity (2019) HighNote [FLAC|Lossless|tracks + .cue] <Post-Bop, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116654.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116654.jpgsave_picture_116654.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ NCH Crescendo Masters Pro 10.12 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116655.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116655.jpgsave_picture_116655.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Donald Byrd - Fuego (1959) 2005, Blue Note [FLAC|Lossless|tracks + .cue] <Hard B
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116656.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116656.jpgsave_picture_116656.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Athentech Perfectly Clear WorkBench for Mac 4.6.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116657.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116657.jpgsave_picture_116657.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Suicide Of Society - War Investment (2020) [FLAC|Lossless|image + .cue] <Thrash 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116658.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116658.jpgsave_picture_116658.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ EdgeView 4 v.4.5.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116659.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116659.jpgsave_picture_116659.jpg" />
 </div>
 
 
@@ -187,7 +187,7 @@ QOwnNotes 24.2.5 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116660.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116660.jpgsave_picture_116660.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ magnet:?xt=urn:btih:874DDB6D7658B53CE061202E74EF5781201D0B43
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116661.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116661.jpgsave_picture_116661.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ Fort Firewall 3.11.7 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116662.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116662.jpgsave_picture_116662.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ Mr.Bison - Echoes From The Universe (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116663.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116663.jpgsave_picture_116663.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ magnet:?xt=urn:btih:E879DEA5EBD34DDEDC6A6DAB9AF4C86FF918FB2F
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116664.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116664.jpgsave_picture_116664.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ Revolution Saints - Against The Winds (2024) [FLAC|Lossless|image + .cue] <Hard 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116665.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116665.jpgsave_picture_116665.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ Fig Player - play mp4 mkv mp3 for Mac 1.3.9 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116666.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116666.jpgsave_picture_116666.jpg" />
 </div>
 
 
@@ -364,7 +364,7 @@ FireAlpaca 2.11.15 + Standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116667.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116667.jpgsave_picture_116667.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ magnet:?xt=urn:btih:46CA8B999CAD97D6F7F1A1BFCEE3984BD84BE01C
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116668.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116668.jpgsave_picture_116668.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ magnet:?xt=urn:btih:3A80F55FF2DD1A719BE600855A3BE2E922C9697B
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116669.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116669.jpgsave_picture_116669.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ magnet:?xt=urn:btih:55BB255A77D8A96A77A0488B0EB8F98DCF1DE34C
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116670.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116670.jpgsave_picture_116670.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ magnet:?xt=urn:btih:11D8D038D2AC3F429632E1E9B363859ABEFF814E
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116671.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116671.jpgsave_picture_116671.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Paul Jensen - Journey Back Home (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116672.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116672.jpgsave_picture_116672.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ magnet:?xt=urn:btih:BFD9993C60B63CBD00BF01A87F7B49281A2BF0F8
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116673.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116673.jpgsave_picture_116673.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ magnet:?xt=urn:btih:62E8B2507545917976311457052B152C9A8AECFA
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116674.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116674.jpgsave_picture_116674.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Lucky Wuthrich (Lucky Wüthrich) - My Kind of Music (2024) [FLAC 24/44.1|Lossles
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116675.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116675.jpgsave_picture_116675.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Cigar Box Band - Don't Belong (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blue
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116676.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116676.jpgsave_picture_116676.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ NCH Express Invoice Plus 11.05 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116677.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116677.jpgsave_picture_116677.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ Fork 2.40.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116678.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116678.jpgsave_picture_116678.jpg" />
 </div>
 
 

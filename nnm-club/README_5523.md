@@ -6,7 +6,7 @@
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170567.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170567.jpgsave_picture_170567.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:D7221C69E8DF01D9EF23F49121FD47FD83216C10
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170568.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170568.jpgsave_picture_170568.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:8572E8D0C6260CE6C7BB2E820067AFFEEAC17509
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170569.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170569.jpgsave_picture_170569.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:0BDACF945A64554AB18C37AC7B5991C6ED110AD3
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170570.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170570.jpgsave_picture_170570.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Les Carlsen - He's Coming (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Har
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170571.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170571.jpgsave_picture_170571.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ VA - syncmusic - Essentials, Vol. 3 (2021) [AAC|~322 Kbps] <Lounge, Chill Out, D
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170572.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170572.jpgsave_picture_170572.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ FastScripts 3.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170573.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170573.jpgsave_picture_170573.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ Mgła (Mgla) - Age Of Excuse (2019) [FLAC|Lossless|tracks + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170574.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170574.jpgsave_picture_170574.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ magnet:?xt=urn:btih:7CDE8DB55130349AAA41CD4FAC6EA47880BC6BB8
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170575.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170575.jpgsave_picture_170575.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ CleanMyMac X 4.14.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170576.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170576.jpgsave_picture_170576.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ Stay Design - Moirai (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Metalcor
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170577.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170577.jpgsave_picture_170577.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ magnet:?xt=urn:btih:8800BA8CF098A2FD8BA4AB6EDC09D04764632E8F
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170578.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170578.jpgsave_picture_170578.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ magnet:?xt=urn:btih:9109E70628CE3A9AF5035F9461D04E32F052CF87
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170579.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170579.jpgsave_picture_170579.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ Circus Maximus - Havoc In Oslo (2017) 2xCD, Japanese Edition [FLAC|Lossless|imag
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170580.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170580.jpgsave_picture_170580.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ Stray Souls (2023) [Ru/Multi] (1.0) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170581.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170581.jpgsave_picture_170581.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Smultron 12 v12.5.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170582.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170582.jpgsave_picture_170582.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ VA - syncmusic - Essentials, Vol. 2 (2017) [AAC|~337 Kbps] <Lounge, Chill Out, D
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170583.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170583.jpgsave_picture_170583.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Highlord - Freakin' Out Of Hell (2022) [FLAC|Lossless|WEB-DL|tracks] <Power Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170584.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170584.jpgsave_picture_170584.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ magnet:?xt=urn:btih:79DE7F91C00BE30D9E5E91DE8E5F166F094D114C
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170585.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170585.jpgsave_picture_170585.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ magnet:?xt=urn:btih:1EFEAC789D0397C298481E4FD4834180C8A6DB3D
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170586.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170586.jpgsave_picture_170586.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ magnet:?xt=urn:btih:D8B74B2453A434C47B703A8025EB677C55FE2012
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170587.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170587.jpgsave_picture_170587.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ magnet:?xt=urn:btih:BAB9CECC8A7A1F5C480DB37E3C6FAC4F68987EE0
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170588.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170588.jpgsave_picture_170588.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ InPixio Photo Studio Pro 10 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170590.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170590.jpgsave_picture_170590.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ VA - A Tribe Called Kotori 2 (2018) [AAC|~333 Kbps] <Progressive House, Deep Hou
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170591.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170591.jpgsave_picture_170591.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ VA - A Strangely Isolated Place 2019 (2019) ASIP [FLAC|Lossless|WEB-DL|tracks] <
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170592.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170592.jpgsave_picture_170592.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ magnet:?xt=urn:btih:ADBA2083EAB3F22FCA689B317F953919742627F2
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170593.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170593.jpgsave_picture_170593.jpg" />
 </div>
 
 

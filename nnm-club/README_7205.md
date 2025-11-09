@@ -6,7 +6,7 @@
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246293.jpgsave_picture_246293.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:7B1301ECDF6A881CCEBAED8E8C1ED3D3A9D24021
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246294.jpgsave_picture_246294.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:FFF4E1CB804CB8D2D57C91D5FD6835E274408357
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246303.jpgsave_picture_246303.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:5C5B130841D4A1AB838BF241217CB09F3C4C3940
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246304.jpgsave_picture_246304.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ magnet:?xt=urn:btih:4C382E74747DC978B606FC156C3CE370AD454219
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246305.jpgsave_picture_246305.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ magnet:?xt=urn:btih:D4EE6F7121766E2B3F6040BDFA1ADF92AB9EF9EA
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246306.jpgsave_picture_246306.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ magnet:?xt=urn:btih:E3C0CFBCD031E7AC2D09C901B578F85357DD34AF
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246309.jpgsave_picture_246309.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ magnet:?xt=urn:btih:7E233FA8DE0103B9221A52C99049B697B012945F
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246312.jpgsave_picture_246312.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ magnet:?xt=urn:btih:E0FAD56190A0E6F891082B1B30D8218695E413C3
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246314.jpgsave_picture_246314.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ VA - Trance Maniacs Party: Melody Of Heartbeat #83 (03.05.2012) [MP3|320 кб/с
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246316.jpgsave_picture_246316.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ VA - Зарубежные Новинки Интернета (2012) [MP3|256 кб
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246317.jpgsave_picture_246317.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Nocturnal (2023) [Ru/Multi] (1.2.1.747) Repack Let'sРlay [Enhanced Edition]
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246318.jpgsave_picture_246318.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ magnet:?xt=urn:btih:94D459B4A40077F5229129B72161687F98761A5D
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246320.jpgsave_picture_246320.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ SKYHILL (2015) [Ru/Multi] (1.1.20) Repack Necros
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246321.jpgsave_picture_246321.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Fallout: New Vegas: Fate of Wanderer - Tale of Two Wastelands Edition (2025) [Ru
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246323.jpgsave_picture_246323.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ magnet:?xt=urn:btih:B596F57F40B7C235A39335B2753E0A4C72B42EEF
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246325.jpgsave_picture_246325.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ magnet:?xt=urn:btih:802C08130EF940526ED8A21F45B3FF47354BFEF5
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246327.jpgsave_picture_246327.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ magnet:?xt=urn:btih:96E314B3597B2577A95ED64D32CC6DBF6BF91CA2
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246329.jpgsave_picture_246329.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ magnet:?xt=urn:btih:EF99CC9054099722527C561FEAABF6BC03419D27
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246331.jpgsave_picture_246331.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ magnet:?xt=urn:btih:B59D2B204380F2F1AD58D502B77FF15AF5BAF134
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246332.jpgsave_picture_246332.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ magnet:?xt=urn:btih:9873B3DDFE4A2171837C34AA5B4036620DE67C00
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246333.jpgsave_picture_246333.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:20FE703CD1A433E96FD970519323D84A8028B9F2
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246334.jpgsave_picture_246334.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ VA - Сказочный Мир Русского Радио (2012) [MP3|256 кб/
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246335.jpgsave_picture_246335.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ magnet:?xt=urn:btih:3963E74EE737EED00F26590255E349AF94370034
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246336.jpgsave_picture_246336.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ magnet:?xt=urn:btih:700D7BB55F8862B5CCA2C9B351303816FE2FB72E
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246338.jpgsave_picture_246338.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ magnet:?xt=urn:btih:D384D666C8CB674E1F04F13BBF707E9B326755AB
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246339.jpgsave_picture_246339.jpg" />
 </div>
 
 

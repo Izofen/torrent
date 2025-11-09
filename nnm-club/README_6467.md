@@ -6,7 +6,7 @@ VA - Сектор газа. Народный трибьют 1 часть (2022) 
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204846.jpgsave_picture_204846.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ LibreOffice 7.6.0.3 Final Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204847.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204847.jpgsave_picture_204847.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:430617471D7EBF11D4A3E180CB689AD8B45F6F2E
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204848.jpgsave_picture_204848.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:E1E6D8844510CF55833625D71D4B91AC0451AC44
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204849.jpgsave_picture_204849.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ PDFCreator 5.1.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204850.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204850.jpgsave_picture_204850.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:6B2DD8A57DC4841E35F3C2F3CA00F03037999820
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204851.jpgsave_picture_204851.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:EC61B81363E402A6187B225AF84DC971D00F3B8D
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204852.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204852.jpgsave_picture_204852.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:57713664462010F52A54BA7A9E8A5E5C1260490A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204853.jpgsave_picture_204853.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Gumroad, Rachel | Modeling a Scifi Helmet in Blender 2.8 (2020) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204854.jpgsave_picture_204854.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ YouTube, Rachel | Scifi Hardsurface Glove Time-Lapse in Blender 2.9 (2022) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204855.jpgsave_picture_204855.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:C7B732D69B7C384FCC03886B8715ABC2AB0A5835
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204856.jpgsave_picture_204856.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Adguard 7.11.0 (7.11.4078.0) RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204857.jpgsave_picture_204857.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:3FA03BE2A1F36D965782F7D115F03E28E5AF1B99
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204858.jpgsave_picture_204858.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Aiseesoft FoneLab for Android 3.2.8 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204859.jpgsave_picture_204859.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Persevera - Genesis (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204860.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204860.jpgsave_picture_204860.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ magnet:?xt=urn:btih:D0148C42EDC10740528BF39A99FE9B67D7904F7D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204861.jpgsave_picture_204861.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Aeon Sable - Aenigma (2023) [FLAC|Lossless|WEB-DL|tracks] <Gothic Rock, Hard Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204862.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204862.jpgsave_picture_204862.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ magnet:?xt=urn:btih:504EB43A365CBF0B494D9B855FD9262F85B69835
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204863.jpgsave_picture_204863.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Samuel Keen - Metamorphosis (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard & Heavy>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204864.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204864.jpgsave_picture_204864.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ magnet:?xt=urn:btih:CC3A728AA58783A1B6F7589ACA0B5D8C55D04B1E
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204865.jpgsave_picture_204865.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Necroart - The Highest Law (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204866.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204866.jpgsave_picture_204866.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Udemy, Victor Deno | Blender: Ultimate Game Art Creation Guide (2022) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204867.jpgsave_picture_204867.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ Boxy SVG 4.8.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204868.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204868.jpgsave_picture_204868.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ Windows 10 22H2 x64 Rus by OneSmiLe [19045.2130]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204869.jpgsave_picture_204869.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ Obscure Infinity - Into the Vortex of Obscurity (2019) [FLAC|Lossless|image + .c
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204870.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204870.jpgsave_picture_204870.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ Foxford, Елена Горская | Подготовка к олимпиада�
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204871.jpgsave_picture_204871.jpg" />
 </div>
 
 

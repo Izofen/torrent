@@ -6,7 +6,7 @@ WarCraft II (2) (1995) [Ru] (2.02b/dlc) Repack EXROW [Battle.net Edition]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27154.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27154.jpgsave_picture_27154.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ StarCraft & Brood War (1998) [Ru] (1.16.1/dlc) Repack EXROW
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27352.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27352.jpgsave_picture_27352.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Bulwark Evolution: Falconeer Chronicles (2024) [Ru/Multi] (0.2.0.5.202502121057/
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27509.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27509.jpgsave_picture_27509.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Age of Mythology: Retold (2024) [Ru/Multi] (100.18.419.0/dlc) Repack Wagner [Pre
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27590.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27590.jpgsave_picture_27590.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Renaissance Kingdom Wars (2024) [Ru/Multi] (1.0) Repack FitGirl [Deluxe Edition]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27760.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27760.jpgsave_picture_27760.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Bulwark Evolution: Falconeer Chronicles (2024) [Ru/Multi] (Build 17334550/dlc) R
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27783.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27783.jpgsave_picture_27783.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Fallen Enchantress (2012-2013) [En] (1.32/3.01) License GOG [Ultimate Edition]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28114.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28114.jpgsave_picture_28114.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Plague Inc: Evolved (2016) [Ru/Multi] (1.20.0.0/dlc) Repack Decepticon
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28195.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28195.jpgsave_picture_28195.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Men of War: Assault Squad 2  / В тылу врага: Штурм 2 (2014) [Ru/E
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28311.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28311.jpgsave_picture_28311.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Warcraft: Remastered Trilogy (2024) [Ru/Multi] (1.0.0.2137/1.0.0.2157/2.0) Repac
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28331.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28331.jpgsave_picture_28331.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Dead Season (2024) [Ru/Multi] (build 15673615) Repack seleZen
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28573.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28573.jpgsave_picture_28573.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Dead Season (2024) [Ru/Multi] (1.0.0.9) Repack FitGirl
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28747.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28747.jpgsave_picture_28747.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Dead Season (2024) [Ru/Multi] (1.0.0.9) Repack Let'sРlay
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28836.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28836.jpgsave_picture_28836.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Battle Realms: Zen Edition (2001) [Ru/Multi] (1.59.1 HF5) Repack Let'sРlay
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28939.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28939.jpgsave_picture_28939.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Battle Realms: Zen Edition (2019) [Ru/Multi] (1.59.1) Repack FitGirl
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29232.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29232.jpgsave_picture_29232.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Empire of the Ants (2024) [Ru/Multi] (1.03.20053/dlc) License GOG [Digital Delux
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29239.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29239.jpgsave_picture_29239.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Company of Heroes 2 (2014) [Ru/En] (4.0.0.23468/dlc) Repack dixen18 [Master Coll
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29964.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29964.jpgsave_picture_29964.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Age of Darkness: Final Stand (2021) [Ru/Multi] (1.0) Scene Rune
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30474.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30474.jpgsave_picture_30474.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Ultimate General: American Revolution (2024) [Ru/Multi] (1.0.3/dlc) Repack FitGi
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30475.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30475.jpgsave_picture_30475.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Age of Darkness: Final Stand (2021) [Ru/Multi] (1.0) Repack FitGirl
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30666.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30666.jpgsave_picture_30666.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Wingspan / Крылья (2020) [Ru/Multi] (1.6.1065/dlc) Repack seleZen
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30934.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30934.jpgsave_picture_30934.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Touch Type Tale: Strategic Typing (2024) [Ru/Multi] (1.2.68) Repack FitGirl [Del
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31617.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31617.jpgsave_picture_31617.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ S.W.I.N.E. HD Remaster (2019) [Ru/Multi] (1.7.1846) Repack Other s
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32356.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32356.jpgsave_picture_32356.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Stellaris (2016) [Ru/Multi] (3.14.15926/dlc) Repack Decepticon [Galaxy Edition]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32686.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32686.jpgsave_picture_32686.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ WARNO (2024) [Ru/Multi] (141373/dlc) Repack FitGirl
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33412.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33412.jpgsave_picture_33412.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ magnet:?xt=urn:btih:0D8068E4FC549B17C0E58925DCB700E67FBB133D
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33615.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33615.jpgsave_picture_33615.jpg" />
 </div>
 
 

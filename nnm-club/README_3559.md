@@ -6,7 +6,7 @@ Celso Salim & Darryl Carriere - About Time (2024) [FLAC 24/48|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112909.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112909.jpgsave_picture_112909.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ I Shot A Man - Dues (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112910.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112910.jpgsave_picture_112910.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Samson - Don't Get Mad, Get Even (1984) [FLAC|24/192|image|Vinyl-Rip] <NWOBHM, H
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112911.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112911.jpgsave_picture_112911.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Darkthrone - Plaguewielder (2001) Reissue,  2012, Peaceville [FLAC|24/192|image 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112912.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112912.jpgsave_picture_112912.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Darkthrone - Ravishing Grimness (1999) Reissue, 2011, Peaceville [FLAC|24/192|im
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112913.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112913.jpgsave_picture_112913.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Lords Of Black - Mechanics Of Predacity (2024) [FLAC|Lossless|image + .cue] <Hea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112914.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112914.jpgsave_picture_112914.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ AMD Radeon Software Adrenalin Edition 24.1.1 WHQL (GCN 4/5 - Polaris/Vega) [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112915.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112915.jpgsave_picture_112915.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Codepoint for Mac 1.16 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112916.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112916.jpgsave_picture_112916.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Romantic Evening Jazz Club and Good Mood Music Academy - Jazzy Evening Calm (202
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112917.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112917.jpgsave_picture_112917.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Soultrace - Born Again (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy Me
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112918.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112918.jpgsave_picture_112918.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Stress Reducing Music Zone, Instrumental Jazz Music Guys, Positive Music Univers
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112919.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112919.jpgsave_picture_112919.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:4F690E040EEBD4CE149E69438FF0359D9291B3F9
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112920.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112920.jpgsave_picture_112920.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Nightblaze - Nightblaze (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112921.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112921.jpgsave_picture_112921.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ magnet:?xt=urn:btih:9BE7AC05E040BAF349CEAB4DBCED4C8A0BB1550B
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112922.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112922.jpgsave_picture_112922.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ magnet:?xt=urn:btih:17EED893AF0EDE0E2F20186E73479E29BF6A8D44
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112923.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112923.jpgsave_picture_112923.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ magnet:?xt=urn:btih:8323C5AB783D3E0AC68EA3905896AD7F6DCA35B8
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112924.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112924.jpgsave_picture_112924.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ Alligator Cats - Whiskeyland (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112925.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112925.jpgsave_picture_112925.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ Eddie Zeeman - Detours and Treasures (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112926.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112926.jpgsave_picture_112926.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Bruce Dickinson - Balls to Picasso (1994) [FLAC|24/96|tracks|Vinyl-Rip] <Rock, H
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112927.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112927.jpgsave_picture_112927.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ Relaxing Piano Man - Heading South (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112928.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112928.jpgsave_picture_112928.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Deej - Blue Sky Mama (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112929.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112929.jpgsave_picture_112929.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Magic Disk Cleaner 2.7.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112930.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112930.jpgsave_picture_112930.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Samson - Live at Reading`81 (1990) [FLAC|24/96|image + .cue|Vinyl-Rip] <NWOBHM, 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112931.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112931.jpgsave_picture_112931.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ magnet:?xt=urn:btih:2B167F93C1506393414E24B4126D7AE601D80630
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112932.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112932.jpgsave_picture_112932.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Inner Axis - Midnight Forces (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112933.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112933.jpgsave_picture_112933.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ VA - Miami Hits 2024 (2024) [MP3|320 Kbps] <Trance, Uplifting Trance, Vocal Tran
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112934.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112934.jpgsave_picture_112934.jpg" />
 </div>
 
 

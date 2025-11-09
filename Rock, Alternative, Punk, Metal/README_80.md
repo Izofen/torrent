@@ -6,7 +6,7 @@ Venom - Canadian Assault (2024) [FLAC|Lossless|WEB-DL|tracks] <NWOBHM, Heavy Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71973.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71973.jpgsave_picture_71973.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Babylon Zoo - King Kong Groover (1998) [MP3|320 kbps]<Pop/Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_72266.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_72266.jpgsave_picture_72266.jpg" />
 </div>
 
 
@@ -66,7 +66,7 @@ Kittie - Дискография [6 Альбомов, 3 Ep] (1999-2011) [MP3|320 
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_73073.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_73073.jpgsave_picture_73073.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ Kittie - Дискография [6 Альбомов, 3 Ep] (1999-2011) [MP3|320 
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_73977.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_73977.jpgsave_picture_73977.jpg" />
 </div>
 
 
@@ -117,7 +117,7 @@ Kittie - Дискография [6 Альбомов, 3 Ep] (1999-2011) [MP3|320 
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74456.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74456.jpgsave_picture_74456.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Kittie - Дискография [6 Альбомов, 3 Ep] (1999-2011) [MP3|320 
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74528.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74528.jpgsave_picture_74528.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ System of a Down - Mezmerize (2005) [FLAC|Lossless]<Nu-Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74893.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74893.jpgsave_picture_74893.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Bleeding Through - The Great Fire (2012) [FLAC|Lossless]<Symphonic Metalcore / H
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75211.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75211.jpgsave_picture_75211.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ The Cranberries - Tomorrow [Single] (2012) [MP3|256 kbps]<Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75213.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75213.jpgsave_picture_75213.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Carlos Santana - Multi Dimensional Warrior (2008) [FLAC|Lossless]<Rock, Bluers R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75259.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75259.jpgsave_picture_75259.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ Carlos Santana - Multi Dimensional Warrior (2008) [FLAC|Lossless]<Rock, Bluers R
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75459.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75459.jpgsave_picture_75459.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ Alice Cooper - 12 Albums (1969 -1978) Mini LP SHM-CD / 2011, Warner Music Japan 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75544.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75544.jpgsave_picture_75544.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ Electric Light Orchestra - The Essential Electric Light Orchestra (2011) 2CD [FL
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75906.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75906.jpgsave_picture_75906.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ The Essential Electric Light Orchestra был первоначально изд�
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76237.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76237.jpgsave_picture_76237.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ The Essential Electric Light Orchestra был первоначально изд�
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76252.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76252.jpgsave_picture_76252.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ London Symphony Orchestra - Classic Rock II: The Collector's Edition [4CD Box Se
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76318.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76318.jpgsave_picture_76318.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Deep Purple - Nobody's Perfect (1988) 2SHM-CD Set /2011 Universal Music Japan/ [
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76501.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76501.jpgsave_picture_76501.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Kreator - 14 Альбомов (1985-2009) Japan 1-st Press [FLAC|Lossless]<Thras
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76571.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76571.jpgsave_picture_76571.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Kreator - 14 Альбомов (1985-2009) Japan 1-st Press [FLAC|Lossless]<Thras
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76690.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76690.jpgsave_picture_76690.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ magnet:?xt=urn:btih:9165A9F53AF6FEC3D4DC10CFBF18FB1713945B5F
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76696.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76696.jpgsave_picture_76696.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ magnet:?xt=urn:btih:580FCC33068B8FB2C04ADF51B256290C648F9DBC
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76709.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76709.jpgsave_picture_76709.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ Van Halen - A Different Kind Of Truth (2012) [FLAC|Lossless]<Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76740.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76740.jpgsave_picture_76740.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ Chris Norman - Golden Hits (2007) 3CD [FLAC|Lossless]<Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76753.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76753.jpgsave_picture_76753.jpg" />
 </div>
 
 
@@ -692,7 +692,7 @@ Chris Norman & Suzi Quatro - Stumblin' In (1978-1979) (Singles Maxi 2009) [MP3|3
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76771.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76771.jpgsave_picture_76771.jpg" />
 </div>
 
 
@@ -720,7 +720,7 @@ Smashing Pumpkins - 8 альбомов ,28 Синглов(1991-2008) [MP3|320 kb
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76919.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76919.jpgsave_picture_76919.jpg" />
 </div>
 
 
@@ -753,7 +753,7 @@ UFO - Seven Deadly (2012), Too Hot To Handle: The Very Best Of UFO (2012) [MP3|3
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77055.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77055.jpgsave_picture_77055.jpg" />
 </div>
 
 

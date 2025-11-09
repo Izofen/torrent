@@ -6,7 +6,7 @@ Beckett - Beckett (1991) Reissue, Remastered, 2011, AOR Heaven [FLAC|Lossless|im
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238897.jpgsave_picture_238897.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Velvet & Cashmere - Dose Of Masculinity (2023) [FLAC|Lossless|WEB-DL|tracks] <He
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238899.jpgsave_picture_238899.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Roxy Blue - Want Some More (1992) Reissue, Remastered, 2013, FnA Records [FLAC|L
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238904.jpgsave_picture_238904.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Mass Madness - Innerbeast (2021) [FLAC|Lossless|WEB-DL|tracks + .cue] <Thrash Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238906.jpgsave_picture_238906.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Kotipelto - Waiting For The Dawn (2002) [OGG Vorbis|485 Kbps] <Rock, Heavy Metal
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238918.jpgsave_picture_238918.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ magnet:?xt=urn:btih:35F87D45381E3DF17F8107CC5395FF86BBDBEF81
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238923.jpgsave_picture_238923.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Muse - Will Of The People (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238930.jpgsave_picture_238930.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Kotipelto - Serenity (2007) [OGG Vorbis|484 Kbps] <Rock, Heavy Metal, Power Meta
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238934.jpgsave_picture_238934.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ AFI - Bodies (2021) [FLAC|Lossless|WEB-DL|tracks] <Alt.Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238937.jpgsave_picture_238937.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Last In Line - Jericho (2023) [FLAC|Lossless|image + .cue] <Heavy Metal, Hard Ro
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238938.jpgsave_picture_238938.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ The Users - The Users (2023) Remastered [FLAC 24/96|Lossless|WEB-DL|tracks] <Pun
 >>Alternative, Punk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238948.jpgsave_picture_238948.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Alien Force - We Meet Again (2021) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238956.jpgsave_picture_238956.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Yat-Kha (Ят-Ха) - We Will Never Die (2021) [MP3|320 Kbps] <Ethno Rock, Folk>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238957.jpgsave_picture_238957.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Alice Cooper - School's Out (1972) 2CD, Expanded and Remastered, 2023, Rhino - W
 >>Hard Rock (Hi Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238967.jpgsave_picture_238967.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Campfire Sigh - Different Peninsulas (2022) [FLAC|Lossless|WEB-DL|tracks] <Progr
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238971.jpgsave_picture_238971.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Marc Bolan & T. Rex - Star King (2021) [FLAC|Lossless|WEB-DL|tracks] <Glam Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238975.jpgsave_picture_238975.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Policromia - Sintagma (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, He
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238980.jpgsave_picture_238980.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Aletsch - 2 Albums (2019, 2021) [FLAC|Lossless|tracks + .cue] <Nu-Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238988.jpgsave_picture_238988.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:66CF1DA615B51DE85609995A37369A6DC323DDBB
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238993.jpgsave_picture_238993.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Goot - God's Doubt (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Gothic Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238998.jpgsave_picture_238998.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Fault Lines - Quiet Sickness (2022) [FLAC|Lossless|WEB-DL|tracks] <Nu-Metal, Met
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_239008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_239008.jpgsave_picture_239008.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Sithu Aye - Senpai III (2021) [MP3|320 Kbps] <Progressive Metal, Instrumental>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_239010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_239010.jpgsave_picture_239010.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Twilight Road - Trapped (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239011.jpgsave_picture_239011.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Daniel Blumberg - GUT (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Pop-Rock>
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239022.jpgsave_picture_239022.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Catherine Wheel - Happy Days (1995) [FLAC|Lossless|tracks + .cue] <Alternative R
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239030.jpgsave_picture_239030.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Pressure Points - The Island (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239033.jpgsave_picture_239033.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119414.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119414.jpgsave_picture_119414.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ RIN: The Last Child (2024) [Ru/Multi] (221) License GOG
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119415.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119415.jpgsave_picture_119415.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:3323327FC7A8F2ABE6601704066DB83948B8522C
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119416.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119416.jpgsave_picture_119416.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Descent + Descent II (1995-1996) [Ru/En] (0.58-1/dlc) Mod [DXX Rebirth]
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119417.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119417.jpgsave_picture_119417.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:449BBD8A2789A74CBC5777A0B162CA35877D7EE8
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119418.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119418.jpgsave_picture_119418.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:1D2465DEFE3BBC765A2D0E4CBA7C386849EB7ADB
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119419.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119419.jpgsave_picture_119419.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:1D2465DEFE3BBC765A2D0E4CBA7C386849EB7ADB
 >>Темы и Изображения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119420.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119420.jpgsave_picture_119420.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ VA - Deep Night Deep House 6 (2024) [MP3|320 Kbps] <Deep House, House, G-House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119421.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119421.jpgsave_picture_119421.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ Bubble Bones - Go Back to the Mojo (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119422.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119422.jpgsave_picture_119422.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ Suicide Bombers - All For The Candy (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119423.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119423.jpgsave_picture_119423.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ Dominia - Timeless (2024) [FLAC|Lossless|WEB-DL|tracks] <Gothic Doom Metal>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119424.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119424.jpgsave_picture_119424.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ Mental Destruction - Road of Redemption (2024) [FLAC|Lossless|WEB-DL|tracks] <Th
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119425.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119425.jpgsave_picture_119425.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ Minenwerfer - Feuerwalze (2023) [FLAC|Lossless|WEB-DL|tracks] <Black metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119426.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119426.jpgsave_picture_119426.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ Rumboat Chili - All The Time In The World (2024) [FLAC 24/48|Lossless|WEB-DL|tra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119427.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119427.jpgsave_picture_119427.jpg" />
 </div>
 
 
@@ -364,7 +364,7 @@ Dominia - Timeless (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Gothic Doom Metal
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119428.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119428.jpgsave_picture_119428.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ Pandora's Key - Yet I Remain (2024) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119429.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119429.jpgsave_picture_119429.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Art Blakey & The Jazz Messengers - Cu-Bop (1957) 1989, Fresh Sound Records [FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119430.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119430.jpgsave_picture_119430.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ Drip Fed Empire - Revolutionist (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Ra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119431.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119431.jpgsave_picture_119431.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ Kelp - Datcho Dr (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119432.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119432.jpgsave_picture_119432.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Thomas Frank Hopper - Paradize City (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119433.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119433.jpgsave_picture_119433.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Abdullah Ibrahim & The NDR Big Band - Ekapa Lodumo (2001) Tiptoe [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119434.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119434.jpgsave_picture_119434.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Video Cut&Crop&Join for Mac 3.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119435.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119435.jpgsave_picture_119435.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ Lethargy of Death - Necrology (2010) [FLAC|Lossless|image + .cue] <Funeral Doom 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119436.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119436.jpgsave_picture_119436.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Anita O'Day - Live At Ronnie Scott's (1986) Wadham [FLAC|Lossless|image + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119437.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119437.jpgsave_picture_119437.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ Leo - Leo Metal, Vol. 45 (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Modern Me
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119438.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119438.jpgsave_picture_119438.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ magnet:?xt=urn:btih:4BB25E064D1EEDB9F1D1611490667E511CFCC6FF
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119439.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119439.jpgsave_picture_119439.jpg" />
 </div>
 
 

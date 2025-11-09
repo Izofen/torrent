@@ -6,7 +6,7 @@
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130464.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130464.jpgsave_picture_130464.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:4767BA362D8339B5C96050E652D3F29C7840929C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130465.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130465.jpgsave_picture_130465.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Battle Beast - Circus Of Doom (2022) [MP3|320 Kbps] <Melodic Heavy Metal, Female
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130466.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130466.jpgsave_picture_130466.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:C814DB8D76C6225E168BDEDD1D32B71D6A0DAD29
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130468.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130468.jpgsave_picture_130468.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ magnet:?xt=urn:btih:7CDA8DAAF2BEF22B425E6A8CE3454AF724F2D774
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130469.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130469.jpgsave_picture_130469.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ magnet:?xt=urn:btih:7CDA8DAAF2BEF22B425E6A8CE3454AF724F2D774
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130470.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130470.jpgsave_picture_130470.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ magnet:?xt=urn:btih:F795406C25CA24D071421C417CECB4EE3A16CA39
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130471.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130471.jpgsave_picture_130471.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ Balabolka 2.15.0.810 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130473.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130473.jpgsave_picture_130473.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ magnet:?xt=urn:btih:39FDA920900384A72077106C2BC0609BC32AF4DC
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130475.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130475.jpgsave_picture_130475.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ PCSX2 SVN является открытым исходным кодом Sony Pla
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130479.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130479.jpgsave_picture_130479.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ magnet:?xt=urn:btih:1809A99B276C7BDE44E2D84D701BBA984C05F956
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130480.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130480.jpgsave_picture_130480.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ Free Opener v2.0.1.0 Portable by Baltagy x32/x64 [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130481.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130481.jpgsave_picture_130481.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ Free Opener – программа, которая умеет открывать
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130482.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130482.jpgsave_picture_130482.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ magnet:?xt=urn:btih:585F473AA2DE303A3684E2E296607924F156AA63
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130484.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130484.jpgsave_picture_130484.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ magnet:?xt=urn:btih:3FADD86E55DD7920CBBFA7F88B846469A668153B
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130485.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130485.jpgsave_picture_130485.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ magnet:?xt=urn:btih:3FADD86E55DD7920CBBFA7F88B846469A668153B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130486.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130486.jpgsave_picture_130486.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ Combat Mission: Beyond Overlord / Линия фронта. Нормандия (2
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130488.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130488.jpgsave_picture_130488.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Giorgio Moroder - The Best Of (2001) [FLAC|Lossless]<Pop, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130489.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130489.jpgsave_picture_130489.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Star Trek: Starfleet Command III (2002) [Ru/En] (1.00) Unofficial
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130490.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130490.jpgsave_picture_130490.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Microsoft Windows 11 [10.0.22000.434], Version 21H2 (Updated January 2022) - О�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130492.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130492.jpgsave_picture_130492.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Microsoft Windows 10.0.19043.1466, Version 21H1 (Updated January 2022) - Ори�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130494.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130494.jpgsave_picture_130494.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ magnet:?xt=urn:btih:CB8104AC02683F37C1CB9779C0F745170A190776
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130495.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130495.jpgsave_picture_130495.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ magnet:?xt=urn:btih:019EEB7843647FAE66EF44048EC45E36CDDC5F67
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130496.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130496.jpgsave_picture_130496.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ magnet:?xt=urn:btih:8C26804143EFA1D42F5616AA4E26F395A8F9C06A
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130497.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130497.jpgsave_picture_130497.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ magnet:?xt=urn:btih:205004380F67B35017AA1FBC1BB5F603E7EA8A99
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130498.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130498.jpgsave_picture_130498.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ magnet:?xt=urn:btih:4A85F44D10A7390B1E66075B609F2E726674CC7F
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130499.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130499.jpgsave_picture_130499.jpg" />
 </div>
 
 

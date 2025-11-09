@@ -6,7 +6,7 @@
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162663.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162663.jpgsave_picture_162663.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ VA - Русская коллекция. Хиты 80-х (2009) 6CD [WavPack|Lossl
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162664.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162664.jpgsave_picture_162664.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Adobe Substance 3D Painter 7.4.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162665.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162665.jpgsave_picture_162665.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:02EA0206AC3F7EC065C0A1D81B910C9C52B0C11F
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162666.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162666.jpgsave_picture_162666.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:C71C5D3AC41AAF924B3384872710EDB91103929A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162667.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162667.jpgsave_picture_162667.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:3815DBC11C8847330108ECADB62D172EEF07EF12
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162668.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162668.jpgsave_picture_162668.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:8BF5B5C21E442DC4ABF5EC90D0B121C7A9C31B8C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162669.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162669.jpgsave_picture_162669.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:149A24317ABBC19B67CF3FD42432191D0D5710B4
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162670.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162670.jpgsave_picture_162670.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ Christmas Wonderland 12 / Рождество. Страна Чудес 12 (2021) 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162672.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162672.jpgsave_picture_162672.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Celemony - Melodyne Studio 5 v5.1.1 STANDALONE, VST, VST3, AAX (x64) Repack by V
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162673.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162673.jpgsave_picture_162673.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:B09745C68CB4F134DEA7517A11EB7A1246BDFECB
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162674.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162674.jpgsave_picture_162674.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ The Mageseeker: A League of Legends Story (2023) [Ru/Multi] (1.0.1hf/dlc) Licens
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162675.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162675.jpgsave_picture_162675.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:11D5C668BE679BF5E2124228913558F4F9502AE0
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162676.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162676.jpgsave_picture_162676.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Spotify 1.1.74.631 Portable by JolyAnderson [En/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162677.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162677.jpgsave_picture_162677.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ CheckBook Pro 2.7.14 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162678.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162678.jpgsave_picture_162678.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ magnet:?xt=urn:btih:605D61C8B8BB55F294D392FF1B214C49DCE749E8
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162679.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162679.jpgsave_picture_162679.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ magnet:?xt=urn:btih:316F70556ADBB5DC8D3C3190CFF0D2F793F03C8D
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162680.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162680.jpgsave_picture_162680.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ magnet:?xt=urn:btih:4FD79977DF9BE73B2D107CF0653BABFA02D245D4
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162681.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162681.jpgsave_picture_162681.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ magnet:?xt=urn:btih:29EBC6F476011002527020537E60D3DBDCE90F1C
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162682.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162682.jpgsave_picture_162682.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Smithsonian Jazz Masterworks Orchestra - Bernstein Reimagined (2021) MCG Jazz [F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162683.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162683.jpgsave_picture_162683.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ magnet:?xt=urn:btih:F6319789BDFA915642282709BFDE97069128B3CE
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162684.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162684.jpgsave_picture_162684.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ Sidify Music Converter 2.4.3 RePack (& portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162685.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162685.jpgsave_picture_162685.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ magnet:?xt=urn:btih:9D7A63226D1B05EAA16518697C975CAC32E77ED0
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162686.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162686.jpgsave_picture_162686.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ KiCad 5.1.12 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162687.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162687.jpgsave_picture_162687.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ magnet:?xt=urn:btih:34649BA29804224A3A9CED49093D6A1254ED7A80
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162688.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162688.jpgsave_picture_162688.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ Masser - Chain Of Gifts (2022) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162689.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162689.jpgsave_picture_162689.jpg" />
 </div>
 
 

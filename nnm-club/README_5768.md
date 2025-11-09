@@ -6,7 +6,7 @@ Office 2013-2021 C2R Install 7.4.9 b03 ++ x64 Portable by Ratiborus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179077.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179077.jpgsave_picture_179077.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Mob Rules - Among The Gods (2004) [FLAC|Lossless|image + .cue] <Melodic Power Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179080.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179080.jpgsave_picture_179080.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:668B4C3A6CF01B5F0327C40A9A8B3E42EC8CFE37
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179081.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179081.jpgsave_picture_179081.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Psychework - Spark of Hope (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179083.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179083.jpgsave_picture_179083.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ magnet:?xt=urn:btih:494DCF91F0EB687273D964F65E88D068F224CB84
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179084.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179084.jpgsave_picture_179084.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ Revo Uninstaller Mobile 3.0.380G Mod by derrin [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179085.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179085.jpgsave_picture_179085.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ Mob Rules - Ethnolution A.D. (2006) [FLAC|Lossless|image + .cue] <Melodic Power 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179087.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179087.jpgsave_picture_179087.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ magnet:?xt=urn:btih:AF5E42412E255B985E46C2422940C80D2E2F3133
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179088.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179088.jpgsave_picture_179088.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ Mob Rules - Hollowed Be Thy Name (2002) [FLAC|Lossless|image + .cue] <Melodic Po
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179090.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179090.jpgsave_picture_179090.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ magnet:?xt=urn:btih:9A1182EEEC342633940F6C53B0D1824844AC0E0A
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179091.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179091.jpgsave_picture_179091.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ I Compagni di Baal - I Compagni di Baal (2012) [FLAC|Lossless|image + .cue] <Hea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179093.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179093.jpgsave_picture_179093.jpg" />
 </div>
 
 
@@ -291,7 +291,7 @@ magnet:?xt=urn:btih:2CCAB03CE18F264DCB9C64E539E4BC60F054EEF2
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179094.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179094.jpgsave_picture_179094.jpg" />
 </div>
 
 
@@ -315,7 +315,7 @@ Windows 11 Manager 1.1.8.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179096.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179096.jpgsave_picture_179096.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ magnet:?xt=urn:btih:1CE6B9267D9F857654F8BEE9074C96DFE151B318
 >>Сериалы Marvel Comics
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179098.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179098.jpgsave_picture_179098.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ Xorsist - At the Somber Steps To Serenity (2023) [FLAC|Lossless|WEB-DL|tracks] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179104.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179104.jpgsave_picture_179104.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Schokk - Л.О.Н. (2022) [MP3|320 Kbps] <Rap, Hip-hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179111.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179111.jpgsave_picture_179111.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ magnet:?xt=urn:btih:DFB83D50D87597D0F5A30BFA6A361478BDC59AF9
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179113.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179113.jpgsave_picture_179113.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Moon+ Reader Pro 7.8 (build 708002) Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179114.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179114.jpgsave_picture_179114.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Metallica - Lux Æterna (2022) Single [FLAC|Lossless|WEB-DL|tracks] <Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179118.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179118.jpgsave_picture_179118.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Microsoft Windows 11 Insider Preview, Version 23H2 [10.0.22631.2361] - Ориг�
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179121.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179121.jpgsave_picture_179121.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ magnet:?xt=urn:btih:2AB5662E50FAE75710CA2A67E9ABF6A6F85FE44C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179125.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179125.jpgsave_picture_179125.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ magnet:?xt=urn:btih:D5D946EF772D9C235C48F67CF166FFEEAD98A398
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179126.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179126.jpgsave_picture_179126.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ magnet:?xt=urn:btih:CAECD838CBDC782DA5895F8B784233288B3E092A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179129.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179129.jpgsave_picture_179129.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Uninstall Tool 3.7.1 Build 5699 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179130.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179130.jpgsave_picture_179130.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ magnet:?xt=urn:btih:A7861CA2C7C70BAC0231516C609C77AFB6AAF862
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179135.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179135.jpgsave_picture_179135.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ GOM Mix Pro 2.0.5.6.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179139.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179139.jpgsave_picture_179139.jpg" />
 </div>
 
 

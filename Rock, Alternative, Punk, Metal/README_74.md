@@ -6,7 +6,7 @@ A Day To Remember - Big Ole Album Vol. 1 (2025) [MP3|320 Kbps] <Post-Hardcore / 
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70357.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70357.jpgsave_picture_70357.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Lovell's Blade - Deadly Nightshade (2022) [FLAC|Lossless|tracks + .cue] <NWOBHM,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70358.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70358.jpgsave_picture_70358.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Dream Theater - Awake (1994) Japanese Edition, 2xCD [FLAC|Lossless|image + .cue]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70360.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70360.jpgsave_picture_70360.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Wretch - Visitors (2025) [MP3|320 Kbps] <Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70373.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70373.jpgsave_picture_70373.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Saor - Amidst The Ruins (2025) [FLAC|Lossless|image + .cue] <Atmospheric Black M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70377.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70377.jpgsave_picture_70377.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ magnet:?xt=urn:btih:E194E574C22D82EEA51503FE01B31D5FCE01869B
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70386.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70386.jpgsave_picture_70386.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Crazy Lixx - Thrill of the Bite (2025) [FLAC|Lossless|image + .cue] <Hard Rock, 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70396.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70396.jpgsave_picture_70396.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Savage Lands - Army of the Trees (2025) [FLAC|Lossless|WEB-DL|tracks] <Prog, Thr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70419.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70419.jpgsave_picture_70419.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ High Moonlight - Lycans (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70431.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70431.jpgsave_picture_70431.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Cemetery Skyline - Nordic Gothic (2024) Japanese Edition [FLAC|Lossless|image + 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70438.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70438.jpgsave_picture_70438.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ VA - Melhores Rock 2025 (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70450.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70450.jpgsave_picture_70450.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Tony Moore - Awake (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70463.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70463.jpgsave_picture_70463.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ R.J. Archer & The Painful Memories - The Cost of Loving Crisis (2025) [FLAC|Loss
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70480.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70480.jpgsave_picture_70480.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Stolen Lives - Luciferův Efekt (2019) [FLAC|Lossless|image + .cue] <Thrash, Har
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70489.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70489.jpgsave_picture_70489.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Striker - Ultrapower (2024) Japanese Edition [FLAC|Lossless|image + .cue] <Heavy
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70493.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70493.jpgsave_picture_70493.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Rosetta Stone - Nothing Is Sacred (2025) [FLAC|Lossless|WEB-DL|tracks] <Gothic R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70495.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70495.jpgsave_picture_70495.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Glass Hearts Harmony Club - Misfit Love Letter (2025) [FLAC|Lossless|WEB-DL|trac
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70503.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70503.jpgsave_picture_70503.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Avatarium - Between You, God, The Devil And The Dead (2025) [FLAC|Lossless|image
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70505.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70505.jpgsave_picture_70505.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Samson - Head On (1980) Japanese Edition, Reissue, 1992, Jimco Records [FLAC|Los
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70522.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70522.jpgsave_picture_70522.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Lacuna Coil - Sleepless Empire (2025) [FLAC|Lossless|image + .cue] <Gothic, Alte
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70614.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70614.jpgsave_picture_70614.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Soltur - Ride as One (2025) [FLAC|Lossless|WEB-DL|tracks] <Folk, Viking Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70669.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70669.jpgsave_picture_70669.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ The Great Old Ones - Kadath (2025) [FLAC|Lossless|image + .cue] <Atmospheric Bla
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70671.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70671.jpgsave_picture_70671.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Harakiri For The Sky - Scorched Earth (2025) [FLAC|Lossless|image + .cue] <Post-
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70673.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70673.jpgsave_picture_70673.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Phear - Save Our Souls (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Thrash Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70676.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70676.jpgsave_picture_70676.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ Prehistoria - Cryptic Halo (2025) [FLAC|Lossless|WEB-DL|tracks] <Power, Speed Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70696.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70696.jpgsave_picture_70696.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ Ebonheart - Face our Fear (2025) [FLAC|Lossless|WEB-DL|tracks] <Power, Progressi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70810.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70810.jpgsave_picture_70810.jpg" />
 </div>
 
 

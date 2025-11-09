@@ -6,7 +6,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145306.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145306.jpgsave_picture_145306.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ VA - Зимний шансон года Выпуск № 3 (2016) [MP3|256 Kbps]
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145308.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145308.jpgsave_picture_145308.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:6EE7B0F3DE1A15D8549419AD2D454D7469A32026
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145309.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145309.jpgsave_picture_145309.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:C14A3ED5DE64AA7E08E00E5D77085CE575D1D75B
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145310.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145310.jpgsave_picture_145310.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ Acoustica Premium Edition 7.5.5 (x64) RePack (& Portable) by elchupacabra [Ru/En
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145312.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145312.jpgsave_picture_145312.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ magnet:?xt=urn:btih:41837534BC584D1408DB7B0782B432AB324ECA14
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145313.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145313.jpgsave_picture_145313.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ Obsidian Kingdom - A Year With No Summer (2016) [MP3|320 Kbps] <Progressive, Exp
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145314.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145314.jpgsave_picture_145314.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ magnet:?xt=urn:btih:5F743A6E5168DBE49DAE906B26F00DDF8F7537AF
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145315.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145315.jpgsave_picture_145315.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ magnet:?xt=urn:btih:4734851640DE9DD43AB58F715DB2CE6D5B9B9A4B
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145316.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145316.jpgsave_picture_145316.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ magnet:?xt=urn:btih:519DFC5DD121582F444AA00335C5DBD47C66DE3F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145317.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145317.jpgsave_picture_145317.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ magnet:?xt=urn:btih:DA302421279BEE57621529550899315218D7D552
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145319.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145319.jpgsave_picture_145319.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ magnet:?xt=urn:btih:92ECE099DDF325F248FA44F227F14EA75F962A0F
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145320.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145320.jpgsave_picture_145320.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ VA - Музыкальный заряд Выпуск № 10 (2016) [MP3|256 Kbps]
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145321.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145321.jpgsave_picture_145321.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ VA - Асса (1987) [MP3|320 кб/с] <Rock, Soundtrack>
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145322.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145322.jpgsave_picture_145322.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ magnet:?xt=urn:btih:7E28FBA997018AED3EC0A0718D4845EE12B4D1C2
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145323.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145323.jpgsave_picture_145323.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ magnet:?xt=urn:btih:CAD8F124B032A470CBEC3AFEBF63AF12B1C21B16
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145324.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145324.jpgsave_picture_145324.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ magnet:?xt=urn:btih:385E655B02F544A8C0461591E4F35EF2B97FBBAE
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145325.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145325.jpgsave_picture_145325.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Hudozhnik Online, Ольга Кабаева | Природа акварелью 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145327.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145327.jpgsave_picture_145327.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ Joe Negri - Uptown Elegance (2004) MCG Jazz [FLAC|Lossless|tracks + .cue] <Mains
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145328.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145328.jpgsave_picture_145328.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ StatusBar Pro - 3DTouch Gestures 3.0 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145329.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145329.jpgsave_picture_145329.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Joe Negri - Guitars For Christmas (2003) MCG Jazz [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145330.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145330.jpgsave_picture_145330.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ magnet:?xt=urn:btih:D346FA8E095693FDBBE151A7B1FCCF795C60BC9A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145331.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145331.jpgsave_picture_145331.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Natasha St-Pier - Je n'ai que mon ame (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop,
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145332.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145332.jpgsave_picture_145332.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ VA - Танцевальная зима. Выпуск № 2 (2016) [MP3|256 Kbps]
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145334.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145334.jpgsave_picture_145334.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ magnet:?xt=urn:btih:5B8D85AAA771B664F6233D8608E8D41D9FB73DED
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145335.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145335.jpgsave_picture_145335.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ magnet:?xt=urn:btih:AE8C3503387B49D152B194E74C2F9A72DC9A3F73
 >>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145336.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145336.jpgsave_picture_145336.jpg" />
 </div>
 
 

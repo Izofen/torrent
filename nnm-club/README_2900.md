@@ -6,7 +6,7 @@
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85268.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85268.jpgsave_picture_85268.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Monty Alexander - Harlem-Kingston Express Live! (2011) [FLAC|Lossless]<Jazz, Bop
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85269.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85269.jpgsave_picture_85269.jpg" />
 </div>
 
 
@@ -67,7 +67,7 @@ Monty Alexander - Harlem-Kingston Express Live! (2011) [FLAC|Lossless]<Jazz, Bop
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85271.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85271.jpgsave_picture_85271.jpg" />
 </div>
 
 
@@ -91,7 +91,7 @@ Hidden Mysteries: Royal Family Secrets (P) [En] 2012
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85272.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85272.jpgsave_picture_85272.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ magnet:?xt=urn:btih:F3870514D1F6001E6B220D21945303EEDBDA9AA1
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85274.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85274.jpgsave_picture_85274.jpg" />
 </div>
 
 
@@ -143,7 +143,7 @@ magnet:?xt=urn:btih:9185DDBE1FB2374039F27C21B5181B9BDB144EB0
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85275.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85275.jpgsave_picture_85275.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ magnet:?xt=urn:btih:9185DDBE1FB2374039F27C21B5181B9BDB144EB0
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85278.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85278.jpgsave_picture_85278.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ magnet:?xt=urn:btih:A6DAA10BB635C0C8CE2FBDFE7DF87CED8CA45F2F
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85279.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85279.jpgsave_picture_85279.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ magnet:?xt=urn:btih:58594F6237AF079E21B57E2D7126F318B7F738D1
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85280.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85280.jpgsave_picture_85280.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ magnet:?xt=urn:btih:3033841494D44AE6B2CA05A2CA65D7379273ED30
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85281.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85281.jpgsave_picture_85281.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ BurnAware 4.8 Professional + Portable [Multi(Rus)]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85282.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85282.jpgsave_picture_85282.jpg" />
 </div>
 
 
@@ -291,7 +291,7 @@ VA - 200 Модных Хитов DFM №18 50/50 (2012) [MP3|128 kbps]<Pop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85286.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85286.jpgsave_picture_85286.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:0A55A4CBA365D1F8EBEE3D0920CF17334F7F7E72
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85287.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85287.jpgsave_picture_85287.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Wolfgang Amadeus Mozart - Cassations G-Dur KV 63 & B-Dur KV 99, Divertimento D-D
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85288.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85288.jpgsave_picture_85288.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ VA - Сборник медленных хитов Vol.4 (2012) [MP3|320 kbps]<Po
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85289.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85289.jpgsave_picture_85289.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ magnet:?xt=urn:btih:596D0B181C4EB738C5175D0E426EEB5525999CB3
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85291.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85291.jpgsave_picture_85291.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:54BACE1799B1710D980BEC21A87E2FFE44C5A440
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85292.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85292.jpgsave_picture_85292.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Macy Gray - Covered (2012) [MP3|320 кб/с]<Soul>
 >>Jazz
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85299.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85299.jpgsave_picture_85299.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ magnet:?xt=urn:btih:D20748694B3B8EC21C053BBDA97AA37DFB7B7FCE
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85301.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85301.jpgsave_picture_85301.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ magnet:?xt=urn:btih:EED35EDAE2BDFE441BD987C9B79C2A13368FA399
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85303.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85303.jpgsave_picture_85303.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ magnet:?xt=urn:btih:EED35EDAE2BDFE441BD987C9B79C2A13368FA399
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85304.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85304.jpgsave_picture_85304.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Wolfgang Amadeus Mozart-Requiem in D minor, K 626: VA, conductor Bernard Labadie
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85305.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85305.jpgsave_picture_85305.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ magnet:?xt=urn:btih:39756A4D56C587AB1872A31D5054C923DB22F00A
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85306.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85306.jpgsave_picture_85306.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ magnet:?xt=urn:btih:39756A4D56C587AB1872A31D5054C923DB22F00A
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85307.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85307.jpgsave_picture_85307.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ BBC. Horizon: Тайная жизнь собак / The secret life of the dog (2
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85308.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85308.jpgsave_picture_85308.jpg" />
 </div>
 
 
@@ -687,7 +687,7 @@ magnet:?xt=urn:btih:ADF872D29E015CA816BB18161CF8A5DC8D7382B8
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85309.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85309.jpgsave_picture_85309.jpg" />
 </div>
 
 

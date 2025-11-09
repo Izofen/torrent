@@ -6,7 +6,7 @@ StartAllBack 3.6.10 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230650.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230650.jpgsave_picture_230650.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:9A0F1224AEAB7AA1A2D7B450DC720DBF217A6AA8
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_230652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230652.jpgsave_picture_230652.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ VA - Meddle Reimagined - A Tribute To Pink Floyd (2023) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230653.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230653.jpgsave_picture_230653.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ EarthView 7.7.5 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230655.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230655.jpgsave_picture_230655.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:EB9070F9CDC618D7449743AE849A04EEAC10586E
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_230657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230657.jpgsave_picture_230657.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Kerala Dust - Violet Drive (2023) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Org
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230658.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230658.jpgsave_picture_230658.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ Revo Uninstaller Pro 5.1.5 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_230661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230661.jpgsave_picture_230661.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - Bossa N' Elvis (2023) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo, B
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230662.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230662.jpgsave_picture_230662.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ InShot - Фото и видеоредактор 1.950.1411 Mod by Alexey070315, 
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230663.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230663.jpgsave_picture_230663.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ magnet:?xt=urn:btih:AFAAC5E00E2B6319C536D9EB68A93E61C5055469
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_230664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230664.jpgsave_picture_230664.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ magnet:?xt=urn:btih:278E7489AAB4E46EDCE26FFEF85C3379833523F7
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230666.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230666.jpgsave_picture_230666.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ Wise Disk Cleaner 11.0.2.816 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_230667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230667.jpgsave_picture_230667.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:866E772A2DE471CA71AC3C81E11BA040803ABB9F
 >>Рыбалка и Охота
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230669.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230669.jpgsave_picture_230669.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ MyMovie - Видеоредактор 12.4.0 Mod by AppModz [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230670.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230670.jpgsave_picture_230670.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ RTG. Прогулка по Геленджику (2013) HDTV [H.264/1080i]
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_230672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230672.jpgsave_picture_230672.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Moviebase Premium 4.1.4 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230673.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230673.jpgsave_picture_230673.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ PixelLab Pro - Text on pictures 2.1.1 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230675.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230675.jpgsave_picture_230675.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ magnet:?xt=urn:btih:B50E6F0563617CE926B77412B2EA4BB2035F36A3
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230676.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230676.jpgsave_picture_230676.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ RTG. Прогулка по Выборгу (2013) HDTV [H.264/1080i]
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_230677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230677.jpgsave_picture_230677.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ magnet:?xt=urn:btih:C9A4B402FD57F386F9C91AF860A5F4932813D4B3
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230679.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230679.jpgsave_picture_230679.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ StaxRip 2.23.0/2.23.1 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230680.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230680.jpgsave_picture_230680.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ magnet:?xt=urn:btih:7F91B2557C7283E0DD64A4ED5B25BE70D4BDEEF1
 >>Рыбалка и Охота
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230682.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230682.jpgsave_picture_230682.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ RTG. Прогулка по Краснодару (2014) HDTV [H.264/1080i]
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_230683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230683.jpgsave_picture_230683.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ MacDroid Pro 1.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230684.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230684.jpgsave_picture_230684.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Duncan Sisters - The Duncan Sisters (1979) [MP3|320 Kbps] <Electronic, Disco, Fu
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230686.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230686.jpgsave_picture_230686.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ VA - Maretimo Chill Radio - Best of, Vol. 2 - Positive Summer Vibes (2023) [FLAC
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230689.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230689.jpgsave_picture_230689.jpg" />
 </div>
 
 

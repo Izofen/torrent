@@ -6,7 +6,7 @@ Dread Dawn (2024) [Ru/Multi] (2024.11.17.1029) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36896.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36896.jpgsave_picture_36896.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ ChessBase Mega Database 2025 (2024) [En] (2025) License
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36900.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36900.jpgsave_picture_36900.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Chess King 24 (2024) [Ru/Multi] (24.0.0.2400) License
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36901.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36901.jpgsave_picture_36901.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Fritz 19 (2023) [En] (19.3) License
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36907.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36907.jpgsave_picture_36907.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ The Oregon Trail (2022) [Ru/Multi] (1.0.33/dlc) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36911.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36911.jpgsave_picture_36911.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ VED (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36915.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36915.jpgsave_picture_36915.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Wolcen: Lords of Mayhem (2020) [Ru/Multi] (1.1.7.16.12/dlc) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36922.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36922.jpgsave_picture_36922.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Assassin's Creed Mirage (2023) [Ru/Multi] (1.0.6/dlc) Repack Decepticon [Master 
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36940.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36940.jpgsave_picture_36940.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Cult of the Lamb (2022) [Ru/Multi] (1.4.6.596/dlc) Repack Let'sРlay [The One Wh
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36962.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36962.jpgsave_picture_36962.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Beyond The Darkness (2024) [Ru/En] (Build 16409241) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36981.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36981.jpgsave_picture_36981.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Evil Awaits (2024) [En] (1.0) Scene Skidrow
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37002.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37002.jpgsave_picture_37002.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Inkulinati (2023) [Ru/Multi] (1.48.1.0/dlc) License GOG [Supporter Bundle]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37019.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37019.jpgsave_picture_37019.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Assassin's Creed Mirage (2023) [Ru/Multi] (1.0.6/dlc) Repack dixen18 [Master Ass
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37026.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37026.jpgsave_picture_37026.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ OTXO (2023) [Ru/Multi] (1.106) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37031.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37031.jpgsave_picture_37031.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Potion Permit (2022) [Ru/Multi] (1.5/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37042.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37042.jpgsave_picture_37042.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Dave the Diver (2023) [Ru/Multi] (1.0.3.1535/dlc) Repack Wanterlude
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37073.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37073.jpgsave_picture_37073.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Beyond The Darkness (2024) [Ru/En] (Build 16409241) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37090.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37090.jpgsave_picture_37090.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Beyond The Darkness (2024) [Ru/En] (Build 16409241) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37092.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37092.jpgsave_picture_37092.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ You Are Grounded (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37098.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37098.jpgsave_picture_37098.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Aquarist (2024) [Ru/Multi] (20241113/dlc) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37107.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37107.jpgsave_picture_37107.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Green Hell (2019) [Ru/Multi] (2.9.1) Repack Pioneer
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37112.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37112.jpgsave_picture_37112.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Little Big Adventure – Twinsen’s Quest (2024) [Ru/Multi] (1.0.4) Repack FitG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37120.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37120.jpgsave_picture_37120.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Warcraft I: Remastered (2024) [Ru/Multi] (1.0.0.2137) Scene Razor1911
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37126.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37126.jpgsave_picture_37126.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Ara: History Untold (2024) [Ru/Multi] (1.1.0/dlc) Scene Rune
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37132.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37132.jpgsave_picture_37132.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Vasilisa and Baba Yaga / Василиса и Баба Яга (2024) [Ru/Multi] (
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37133.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37133.jpgsave_picture_37133.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ The Witch of Fern Island (2023) [Multi] (1.0.4b) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37153.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37153.jpgsave_picture_37153.jpg" />
 </div>
 
 

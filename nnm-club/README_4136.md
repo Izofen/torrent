@@ -6,7 +6,7 @@ Microsoft Visual Studio 2022 Enterprise 17.7.7 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128111.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128111.jpgsave_picture_128111.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:5F81971632DE319DA1735427B3A82D7A1EE735EF
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128112.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128112.jpgsave_picture_128112.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Edith Piaf - Symphonique (2023) [FLAC|Lossless|image + .cue] <Pop, Chanson>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128113.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128113.jpgsave_picture_128113.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ magnet:?xt=urn:btih:9E1B2ED7344BCC6B8834AE3BD92D08C7F6954D3E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128114.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128114.jpgsave_picture_128114.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ magnet:?xt=urn:btih:9E1B2ED7344BCC6B8834AE3BD92D08C7F6954D3E
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128115.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128115.jpgsave_picture_128115.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ Lark Player - YouTube Music & Audio Player 5.66.7 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128116.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128116.jpgsave_picture_128116.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ magnet:?xt=urn:btih:E3F64AB20522B08E28FB97A852139C45BD67834D
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128117.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128117.jpgsave_picture_128117.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ magnet:?xt=urn:btih:07E03BF56824A9FCB3C29818712D13046C6A72D8
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128118.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128118.jpgsave_picture_128118.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ magnet:?xt=urn:btih:AEB0C8820ED204C0D04DF9CAB9CA83A0E59C7FE1
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128119.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128119.jpgsave_picture_128119.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ magnet:?xt=urn:btih:E9FEE7C2FF95FB5502D75DBC2E1A8E7F5F9D95BB
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128120.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128120.jpgsave_picture_128120.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ Microsoft Visual Studio 2019 Enterprise 16.11.32 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128121.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128121.jpgsave_picture_128121.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ Agnetha Faltskog - A+ (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128122.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128122.jpgsave_picture_128122.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ magnet:?xt=urn:btih:9FE6B7E0BED340AB95061C812690644E8C3D6747
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128123.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128123.jpgsave_picture_128123.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ Skype 8.110.0.215 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128124.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128124.jpgsave_picture_128124.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ magnet:?xt=urn:btih:703822576EAD5158F73B168B22E9BBE0240D3918
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128125.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128125.jpgsave_picture_128125.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ magnet:?xt=urn:btih:FC89524EBDE2E1A1E5108C83D3EA012D595DDCEA
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128126.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128126.jpgsave_picture_128126.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Fourplay - Between The Sheets (1993) 2023 30th Anniversary Remastered Edition [F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128127.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128127.jpgsave_picture_128127.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Topaz Video AI 4.0.7 (x64) RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128129.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128129.jpgsave_picture_128129.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ magnet:?xt=urn:btih:285EF5364F8A79D20E13A5DF8611B51F7A335492
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128130.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128130.jpgsave_picture_128130.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ magnet:?xt=urn:btih:5E6EDFF0FD74EDC68AF7DE2E73D97F79ED098BCD
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128131.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128131.jpgsave_picture_128131.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Adobe Photoshop Express 11.9.206 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128132.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128132.jpgsave_picture_128132.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Udemy, AI Sciences | AWS Essentials: Master Cloud Computing from Scratch - AWS (
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128133.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128133.jpgsave_picture_128133.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ magnet:?xt=urn:btih:951E6E6280C23463AEE34308B471ADD1CA090ED6
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128134.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128134.jpgsave_picture_128134.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ Hudozhnik Online, Дарья Куцаева | Акварельный портр�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128136.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128136.jpgsave_picture_128136.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ magnet:?xt=urn:btih:FAE2435BF224DF6AFD4217E5C4AC8679D58A50D0
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128137.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128137.jpgsave_picture_128137.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Udemy, Ohans Emmanuel | AstroJS 101: Build Blazing Fast Frontends! (2023) WEB-DL
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128138.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128138.jpgsave_picture_128138.jpg" />
 </div>
 
 

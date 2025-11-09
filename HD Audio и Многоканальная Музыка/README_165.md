@@ -6,7 +6,7 @@ AC/DC - High Voltage (1976) Released, 1981, Albert Productions [FLAC|24/192|imag
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114821.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114821.jpgsave_picture_114821.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Firehouse - Firehouse (1990) Remaster, 2024, Epic; Sony Music Entertainment [FLA
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114824.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114824.jpgsave_picture_114824.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Lesbian Bed Death - Midnight Lust (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Go
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114826.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114826.jpgsave_picture_114826.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:DDDF19C93FF271732AFD8FCE765A6C4B1DD1A350
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114834.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114834.jpgsave_picture_114834.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ VA - Рок-панорама - 87 (1) (1987) [FLAC 24/192|Lossless|tracks] <Rock
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114835.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114835.jpgsave_picture_114835.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Bokassa - Crimson Rider (2019) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Stoner Roc
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114988.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114988.jpgsave_picture_114988.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Brymir - Studio Albums (4 releases) (2011-2022) hand made [restored, declipped] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114989.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114989.jpgsave_picture_114989.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ magnet:?xt=urn:btih:28CD34E232C0EB34F4C42508B817BA2C6EAF8130
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114991.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114991.jpgsave_picture_114991.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Doro - Conqueress - Extended (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114994.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114994.jpgsave_picture_114994.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ AC/DC - T.N.T (1975) [FLAC|24/192|image + .cue|Vinyl-Rip] <Hard Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114996.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114996.jpgsave_picture_114996.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ AC/DC - Dirty Deeds Done Dirt Cheap (1976) Reissue, 1987, Albert Productions [FL
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114998.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114998.jpgsave_picture_114998.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Above & Beyond - Group Therapy 500 Live from Los Angeles (2024) (Live) [FLAC 24/
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115012.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115012.jpgsave_picture_115012.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:08F80C335F6FAA0A0DC8D4D7E19052BDB119C28E
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115020.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115020.jpgsave_picture_115020.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Army of Lovers - Massive Luxury Overdose (1993 (1991)) [FLAC 24/192|Lossless|tra
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115026.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115026.jpgsave_picture_115026.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Los Angeles - Лос Анхелес (1974 (1967)) [FLAC 24/192|Lossless|tracks] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115029.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115029.jpgsave_picture_115029.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ magnet:?xt=urn:btih:FE35D1AFDD151E2DE09DB6AB3AF0FF0B27DD3CF4
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115048.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115048.jpgsave_picture_115048.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ magnet:?xt=urn:btih:F598DCA5F10B0C9F64D1F08A05BB166034DED015
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115049.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115049.jpgsave_picture_115049.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ VA - Улетай, туча (1980) [FLAC 24/192|Lossless|tracks] <Pop>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115057.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115057.jpgsave_picture_115057.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:5FE8F59E82977F9DAFDAD4667A396FE78773272E
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115066.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115066.jpgsave_picture_115066.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Ace Frehley - 10,000 Volts (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Ro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115151.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115151.jpgsave_picture_115151.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Benny Andersson - Piano (2017) [FLAC 24/96|Lossless|WEB-DL|tracks] <Classical>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115160.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115160.jpgsave_picture_115160.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Puddle of Mudd - Studio Albums (8 releases) (1994-2023) hand made [restored, dec
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115170.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115170.jpgsave_picture_115170.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Viktoria Mullova, Tchaikovsky / Sibelius, Boston Symphony Orchestra, Seiji Ozawa
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115217.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115217.jpgsave_picture_115217.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Restaurant Music, Calming Jazz Relax Academy - Jazz for Dinner and Wine (2024) [
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115298.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115298.jpgsave_picture_115298.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Relaxing Instrumental Jazz Ensemble - Beautiful Jazz Instrumental Collection (20
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115300.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115300.jpgsave_picture_115300.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Kevin & JD - Blues Train (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Roc
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115302.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115302.jpgsave_picture_115302.jpg" />
 </div>
 
 

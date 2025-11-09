@@ -6,7 +6,7 @@
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7078.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7078.jpgsave_picture_7078.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:CF64D5359B7B2E7AE7D1D9D61B35231994166C1A
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7079.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7079.jpgsave_picture_7079.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:33CF014A5BA9E30E3FCDCE9CD601EE4DBF22DE41
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7080.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7080.jpgsave_picture_7080.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:A579E5999DCA3A74B1EDD20D03651C3490053235
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7081.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7081.jpgsave_picture_7081.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:251F0C37C76DC16CA931B4ED0E3DC29861BAD1D6
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7082.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7082.jpgsave_picture_7082.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Madonna - Platinum Hits 2 (2000) MTV History/Pop Extended [FLAC 2.0|48/24|image 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7083.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7083.jpgsave_picture_7083.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ Sidney Bos - Overrated (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7084.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7084.jpgsave_picture_7084.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ VA - Music News For Forum vol.127 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7085.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7085.jpgsave_picture_7085.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ magnet:?xt=urn:btih:B6AEDEB6DA690E32321BA17D755A84769DC28B91
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7086.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7086.jpgsave_picture_7086.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ magnet:?xt=urn:btih:BE91B2FC841508D9F1F851898CAA8E1044AD9D3D
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7087.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7087.jpgsave_picture_7087.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ magnet:?xt=urn:btih:3FA2B3B9C7F401B59D5DB972903FC1F60CFF97D7
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7088.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7088.jpgsave_picture_7088.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ VA - Summer Hits 2025 (Deep Strips Records) [FLAC|Lossless|WEB-DL|tracks] <House
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7089.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7089.jpgsave_picture_7089.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ magnet:?xt=urn:btih:639480F247CA17169D1584A1848393DAE9977373
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7090.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7090.jpgsave_picture_7090.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ Focsker | Людвиг Узурпатор: Или как создать импе
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7091.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7091.jpgsave_picture_7091.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ magnet:?xt=urn:btih:E23430D220205B65F0E76C89972AF8D655FB22BD
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7092.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7092.jpgsave_picture_7092.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ magnet:?xt=urn:btih:27EC19D116DDA74D8CF1189F52A3ED6C355672A8
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7093.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7093.jpgsave_picture_7093.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ magnet:?xt=urn:btih:E493E6F235930D4802B329BCC637D75546156F1E
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7094.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7094.jpgsave_picture_7094.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ magnet:?xt=urn:btih:98796F1DCD74D517DC841F618F11302CA8734E8C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7095.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7095.jpgsave_picture_7095.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ Ui Kits - UI8 -  ANXOE.AI – AI Personal Assistant Dashboard UI Kit [FIG]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7096.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7096.jpgsave_picture_7096.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ magnet:?xt=urn:btih:1DC6A82E49EBDBC279020A58BE1E40DF3E7BF493
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7097.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7097.jpgsave_picture_7097.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ magnet:?xt=urn:btih:6700F57F3967CB4E19017758DA132E07F360981D
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7098.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7098.jpgsave_picture_7098.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ magnet:?xt=urn:btih:07EA1F6A3C41F7A69A7408C6BDDE0407E4F03B47
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7099.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7099.jpgsave_picture_7099.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ YT Downloader 9.15.8 RePack (& Portable) by Dodakaedr [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7100.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7100.jpgsave_picture_7100.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ magnet:?xt=urn:btih:73E37F20033F4FCF20A043985060B949FE92D2DE
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7101.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7101.jpgsave_picture_7101.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ TapinRadio 2.16.008 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7102.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7102.jpgsave_picture_7102.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ magnet:?xt=urn:btih:1BF7BE88F975460D6B33C8A03B54D342E9DB642E
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7103.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7103.jpgsave_picture_7103.jpg" />
 </div>
 
 

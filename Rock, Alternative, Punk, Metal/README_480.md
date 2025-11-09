@@ -6,7 +6,7 @@ Jesse Damon - Damon's Rage (2020) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245955.jpgsave_picture_245955.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:81766192A2DAA116F15128865C28B19111F381AF
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245966.jpgsave_picture_245966.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Frank Stallone - Frank Stallone (1984) [MP3|320 Kbps] <Pop Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246000.jpgsave_picture_246000.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ Cradle of Filth - Trouble and Their Double Lives (2023) [FLAC|Lossless|WEB-DL|tr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246002.jpgsave_picture_246002.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ Erdling - Bestia (2023) [FLAC|Lossless|WEB-DL|tracks] <Industrial Metal, Neue De
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246017.jpgsave_picture_246017.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ Oughton Tanera - Under Crystal Skies (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246027.jpgsave_picture_246027.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ David Knopfler - Songs Of Loss And Love (2020) [FLAC|Lossless|WEB-DL|tracks + .c
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246040.jpgsave_picture_246040.jpg" />
 </div>
 
 
@@ -196,7 +196,7 @@ Kaasin - Fired Up (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246068.jpgsave_picture_246068.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Despised Icon - Shadow Work (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Death Me
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246071.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246071.jpgsave_picture_246071.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Sybreed - 5 Albums, 3 EP (2004-2025) [FLAC|Lossless|WEB-DL|tracks] <Industrial M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246098.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246098.jpgsave_picture_246098.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ Florence + The Machine - Everybody Scream (2025) [FLAC 24/48|Lossless|WEB-DL|tra
 >>Alternative, Punk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246111.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246111.jpgsave_picture_246111.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ VA - Rock Adrenaline (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246132.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246132.jpgsave_picture_246132.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ magnet:?xt=urn:btih:110C4CEC5E39EDCD53545121C5A31AFF8F46D818
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246139.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246139.jpgsave_picture_246139.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ Avatar - Don’t Go In The Forest (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Al
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246159.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246159.jpgsave_picture_246159.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ Galactic Empire - Cinemetal (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progre
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246170.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246170.jpgsave_picture_246170.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Elettra Storm - Evertale (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Met
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246174.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246174.jpgsave_picture_246174.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Mammoth - The End (2025) [FLAC 24/44.1|Lossless|WEB-DL] <Modern Hard Rock>
 >>Hard Rock (Hi Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246177.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246177.jpgsave_picture_246177.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Biohazard - Divided We Fall (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rapcore,
 >>Alternative, Punk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246180.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246180.jpgsave_picture_246180.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Downswing - And Everything Was Dark (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks]
 >>Alternative, Punk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246183.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246183.jpgsave_picture_246183.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Harkon - Love And Vore (2025) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246224.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246224.jpgsave_picture_246224.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ Acheode - Anxiety (2012) [MP3|320 кб/с]<Technical Death / Mathcore>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246453.jpgsave_picture_246453.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ Bud Spencer - People Are Curious But From The Outside (2012) [MP3|320 кб/с]<P
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246480.jpgsave_picture_246480.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ magnet:?xt=urn:btih:4B6CF191088C50841C2951B04EB3240DFFB96799
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246741.jpgsave_picture_246741.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ magnet:?xt=urn:btih:7BB18682E36B277A80744339A38FEDA1A84E36B4
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246994.jpgsave_picture_246994.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ Extreme - 10 Albums, 8 EP & Singles (1989 - 2023) (27 CD)[FLAC|Lossless|image + 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247295.jpgsave_picture_247295.jpg" />
 </div>
 
 
@@ -685,7 +685,7 @@ The Other - Alienated (2025) [FLAC|Lossless|WEB-DL|tracks] <Horror Punk, Heavy M
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247788.jpgsave_picture_247788.jpg" />
 </div>
 
 

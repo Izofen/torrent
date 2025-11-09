@@ -6,7 +6,7 @@ Audacity 3.3.3 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211858.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211858.jpgsave_picture_211858.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:287A237DC262D363CE7C0D6FB7F3CF2906469A65
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211861.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211861.jpgsave_picture_211861.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Strange Investigations 3: Secrets Can Be Deadly (2023) [En] (1.0) Unofficial [Co
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211864.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211864.jpgsave_picture_211864.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:6CEC1D36DD65A228D72FFF00C3DDBFB6C602EF6E
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211865.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211865.jpgsave_picture_211865.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ Pipette 23.6.9 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211866.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211866.jpgsave_picture_211866.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:D4308EA64772D412C9B5085F11CFAC843BA942B6
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211869.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211869.jpgsave_picture_211869.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:365FAE75F2DBD706A369A2BA80DBAA7820D8EBAA
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211872.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211872.jpgsave_picture_211872.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:2B9A9620C0FEF340434368925FB9F1F46B199ABF
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211873.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211873.jpgsave_picture_211873.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ LibreWolf 114.0-1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211875.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211875.jpgsave_picture_211875.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:EC26A976F5F0A6D9D799F59C73584CBAC67D2E2B
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211877.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211877.jpgsave_picture_211877.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:EE36E2616BBC41E5E7DCD586FA4B1C0314D03712
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211880.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211880.jpgsave_picture_211880.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ ON1 Effects 2023.5 v.17.5.1.14028 [Multi/Rus]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211881.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211881.jpgsave_picture_211881.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ magnet:?xt=urn:btih:9C5260D0C70F388E5FD5C11B246072A199641873
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211884.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211884.jpgsave_picture_211884.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ XYplorer 24.50 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211886.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211886.jpgsave_picture_211886.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ magnet:?xt=urn:btih:1F3D595C32D7061173094BF42BE1888D9E693711
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211888.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211888.jpgsave_picture_211888.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ magnet:?xt=urn:btih:D26C35F42FF5962EF0583D3C6C11EFA27472FED7
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211890.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211890.jpgsave_picture_211890.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ VA - German Top 100 Single Charts 09.06.2023 [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211892.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211892.jpgsave_picture_211892.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ MediBang Paint Pro 28.7 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211895.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211895.jpgsave_picture_211895.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Chicane - Nevertheless (2023) [MP3|320 Kbps] <House, Progressive House, Electron
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211896.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211896.jpgsave_picture_211896.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ magnet:?xt=urn:btih:E8DD8FB9EBA71326E9794A1C83E46D2A23B36FB4
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211898.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211898.jpgsave_picture_211898.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ magnet:?xt=urn:btih:86A6D9B084253DEB3C7BD83D54C85F99BE5C788F
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211901.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211901.jpgsave_picture_211901.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ ON1 HDR 2023.5 v.17.5.1.14028 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211902.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211902.jpgsave_picture_211902.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ magnet:?xt=urn:btih:B09F82D77F126683241DDB6BB6B3BA07D36164C7
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211903.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211903.jpgsave_picture_211903.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Glary Utilities Pro 5.206.0.235 include Portable (акция Comss) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211906.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211906.jpgsave_picture_211906.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ VA - Hit - List Vol 3 (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211908.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211908.jpgsave_picture_211908.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ RTG. Музей истории религии. Древние цивилизац
 >>История
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211912.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211912.jpgsave_picture_211912.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Ms. Holmes 4: The Case of the Dancing Men / Мисс Холмс 4: Дело о �
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207033.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207033.jpgsave_picture_207033.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Volcano Princess (2023) [Multi] (2.01.05) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207052.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207052.jpgsave_picture_207052.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Full Moon Rush (2023) [Multi] (1.0.0.1) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207062.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207062.jpgsave_picture_207062.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Dark City 8: Kyiv (2023) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207101.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207101.jpgsave_picture_207101.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Tennis Manager 2023 (2023) [Multi] (3.0.725) License GOG
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207113.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207113.jpgsave_picture_207113.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Class of '09 (2021) [En] (1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207132.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207132.jpgsave_picture_207132.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Farming Simulator 22 (2021) [Ru/Multi] (1.11.0.0/dlc) Scene Skidrow
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207139.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207139.jpgsave_picture_207139.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Koa and the Five Pirates of Mara (2023) [Multi] (1.2.1s) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207143.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207143.jpgsave_picture_207143.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Cursed Fables 3: A Voice to Die For / Проклятые предания 3: Г�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207564.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207564.jpgsave_picture_207564.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ It Happened Here 2: Beacon of Truth (2023) [En] (1.0) Unofficial [Collector's Ed
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207825.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207825.jpgsave_picture_207825.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Mystical Riddles 3: Ship From Beyond (2023) [Multi] (1.0) Unofficial [Collector'
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208045.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208045.jpgsave_picture_208045.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Whispered Secrets 14: Purrfect Horror / Нашептанные секреты 14
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208096.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208096.jpgsave_picture_208096.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ STORY OF SEASONS: A Wonderful Life (2023) [Multi] (1.0) Scene Rune
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208133.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208133.jpgsave_picture_208133.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Immortal Love 10: Polar Lights / Бессмертная любовь 10: Сев�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208174.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208174.jpgsave_picture_208174.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Showgunners (2023) [Ru/Multi] (1.1.0_53480/dlc) Scene Rune
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208245.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208245.jpgsave_picture_208245.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Papa's Freezeria Deluxe (2023) [En] (1.0.3) Repack NotDaMazzlov
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208658.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208658.jpgsave_picture_208658.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Big Adventure: Trip to Europe 5 / Большое приключение: Пое�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208748.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208748.jpgsave_picture_208748.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ When The Past Was Around (2020) [Ru/Multi] (1.0.3) License GOG
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208828.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208828.jpgsave_picture_208828.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Immortal Love 10: Polar Lights (2023) [En] (1.0) Unofficial [Collector's Edition
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208947.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208947.jpgsave_picture_208947.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Unsolved Case 3: The Scarlet Hyacinth / Нераскрытое дело 3: Ал�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209239.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209239.jpgsave_picture_209239.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Cursed Fables 3: A Voice to Die For (2023) [En] (1.0) Unofficial [Collector's Ed
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209464.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209464.jpgsave_picture_209464.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ theHunter: Call of the Wild (2017) [Ru/Multi] (11373498/dlc) Scene FairLight
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210124.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210124.jpgsave_picture_210124.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Reverie: Sweet As Edition (2023) [Multi] (1.0.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210195.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210195.jpgsave_picture_210195.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Dr. Chatelet: Faith 神医 (2022) [Multi] (1.0.25) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210522.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210522.jpgsave_picture_210522.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Remains (2021) [Ru/Multi] (0.50x0297a) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210543.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210543.jpgsave_picture_210543.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ MY LITTLE PONY: A Maretime Bay Adventure (2022) [Multi] (1.0.1_003) Scene Fairli
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210838.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210838.jpgsave_picture_210838.jpg" />
 </div>
 
 

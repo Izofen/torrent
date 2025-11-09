@@ -6,7 +6,7 @@ Mike Tramp - Songs of White Lion (2023) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243088.jpgsave_picture_243088.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:00BC79FE6C2A03AE45D0F1D79B4DF35CB22B10B8
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243089.jpgsave_picture_243089.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Sensei 1.4.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243091.jpgsave_picture_243091.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ PDFpenPro 11.2.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243092.jpgsave_picture_243092.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ Udemy, Ken Zhuang | Master Houdini FX: Art Directing Magic Smoke Explosion (2022
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243093.jpgsave_picture_243093.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ Outpost 11 - 4 Albums (2018-2023) [MP3|320 Kbps] <electro-industrial, EBM>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243094.jpgsave_picture_243094.jpg" />
 </div>
 
 
@@ -161,7 +161,7 @@ magnet:?xt=urn:btih:FA12CC3A00FE5B8D118DA77CC6D28E66117A47E0
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243095.jpgsave_picture_243095.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ Aviator - Aviator (1986) Reissue, 1997, Escape [MP3|320 Kbps] <Melodic Hard Rock
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243096.jpgsave_picture_243096.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ Lostly - Trance Academy: Acid Revolution (Mixed By Lostly) (2015) [FLAC|Lossless
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243097.jpgsave_picture_243097.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ magnet:?xt=urn:btih:037D1D80A5070B93A39BEE4D736FEFF669D3AB8B
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243098.jpgsave_picture_243098.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ VA - Beatport Clubbing Techno: Electro Sound Pack #260 (2021) [MP3|320 Kbps] <Cl
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243099.jpgsave_picture_243099.jpg" />
 </div>
 
 
@@ -291,7 +291,7 @@ Tank - Re-Ignition (2019) [FLAC|Lossless|tracks + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243100.jpgsave_picture_243100.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ magnet:?xt=urn:btih:C9517CF6F71CE4CC0841EE4529F485C679337105
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243101.jpgsave_picture_243101.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ magnet:?xt=urn:btih:91D1470595B466A9D2B89BC15064C96D0425841D
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243102.jpgsave_picture_243102.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ LogViewPlus 3.0.16 [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243104.jpgsave_picture_243104.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ Dropzone 4 Pro v4.2.9 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243105.jpgsave_picture_243105.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ Freddie Hubbard - Topsy (1990) Alfa Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243106.jpgsave_picture_243106.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ Blue Tattoo Blues Band - Made That Way (2014) [MP3|320 Kbps] <Electric Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243107.jpgsave_picture_243107.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ magnet:?xt=urn:btih:59BED4C99E98267B5430F779A63587D23AC6BEDF
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243108.jpgsave_picture_243108.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ magnet:?xt=urn:btih:9F163686226D24651A82DBADC136BB1E558877D8
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243109.jpgsave_picture_243109.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ The Vision Mastermixers - Immaculate Mixes II (2001) [FLAC|Lossless|image + .cue
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243110.jpgsave_picture_243110.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ magnet:?xt=urn:btih:2BCC3A7B259AC6442BA12A52FC1A3701EDCF0DD2
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243111.jpgsave_picture_243111.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Spotify 1.2.8.913 (Repack & Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243112.jpgsave_picture_243112.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ magnet:?xt=urn:btih:50A6E203163291C9175528B3A0954DA5C643D412
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243113.jpgsave_picture_243113.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ magnet:?xt=urn:btih:87ECF0935A053634251E7DA0FA53624EA4263FC1
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243114.jpgsave_picture_243114.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ magnet:?xt=urn:btih:CC55A355925ACBE84B8DE944794A6BFDDE326630
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243115.jpgsave_picture_243115.jpg" />
 </div>
 
 

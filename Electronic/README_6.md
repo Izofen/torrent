@@ -6,7 +6,7 @@ VA - Armin van Buuren - A State Of Trance 1228 (2025) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15472.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15472.jpgsave_picture_15472.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Vocal House Hits 2025 (2025) [MP3|320 Kbps] <House, Deep House, Dance, Club
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15543.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15543.jpgsave_picture_15543.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - Peaceful State: Chillout Your Mind (2025) [FLAC|Lossless|WEB-DL|tracks] <Ba
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15576.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15576.jpgsave_picture_15576.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - Top 11 March 2025 Emotional and Uplifting Trance (2025) [MP3|320 Kbps] <Tra
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15638.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15638.jpgsave_picture_15638.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Loess - battens (2025) [FLAC|Lossless|Web-DL|tracks] <IDM, Ambient, Experimental
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15653.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15653.jpgsave_picture_15653.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Filatov & Karas - Collection (2014-2025) [FLAC|Lossless|tracks] <House, Deep Hou
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15657.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15657.jpgsave_picture_15657.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Anyma - The End Of Genesys (2025) [FLAC|Lossless|WEB-DL|tracks] <Melodic House &
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15664.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15664.jpgsave_picture_15664.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ VA - Ibiza Summer 2025 (House Hotties from the Heart) [FLAC|Lossless|WEB-DL|trac
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15730.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15730.jpgsave_picture_15730.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ VA - 25 Years Of Anjuna Mixed By ANUQRAM (2025) [MP3|320 Kbps] <Trance, Progress
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15731.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15731.jpgsave_picture_15731.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Aedon - The Quietest Shade (2025) [FLAC|Lossless|Web-DL|tracks] <Experimental, B
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15736.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15736.jpgsave_picture_15736.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Calibre - Little Foot (2025) [FLAC|Lossless|Web-DL|tracks] <Ambient, Dubstep, Te
 >>Dubstep, Future Garage, Bass Music, UK Garage (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15738.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15738.jpgsave_picture_15738.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ VA - Chill Out Paradise, Vol. 2 (2025) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Ch
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15827.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15827.jpgsave_picture_15827.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ VA - A State of Trance Radio Top 50 - 2025, Vol. 1 (2025) [FLAC|Lossless|WEB-DL|
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15830.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15830.jpgsave_picture_15830.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ VA - Ibiza Blue Deluxe 2025 (Complied by Marga Sol) (2025) [FLAC|Lossless|WEB-DL
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15831.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15831.jpgsave_picture_15831.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ State Azure + Data Rebel - Core (2025) EP [FLAC|Lossless|Web-DL|tracks] <Techno,
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15832.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15832.jpgsave_picture_15832.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Jennifer Lopez - On the 6 (1999) CD, Album, Enhanced [FLAC|Lossless|tracks + .cu
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15834.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15834.jpgsave_picture_15834.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ VA - Maretimo Chill Radio - Best of Vol.4 - Positive Summer Vibes (2025) [FLAC|L
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16222.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16222.jpgsave_picture_16222.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ VA - Rimini Summer Party, Vol. 2 (2025) [MP3|320 Kbps] <Progressive House, Melod
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16441.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16441.jpgsave_picture_16441.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ VA - Armin van Buuren - A State Of Trance 1237 (2025) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16442.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16442.jpgsave_picture_16442.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ VA - Ori Uplift - Uplifting Only Episode 652 (2025) [MP3|320 Kbps] <Trance, Upli
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16443.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16443.jpgsave_picture_16443.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ VA - Nothing But... Trancetopia, Vol. 29 (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16464.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16464.jpgsave_picture_16464.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Earmake - Cosmic Hero 4 (2025) [FLAC|Lossless|WEB-DL|tracks] <RetroWave, Synthpo
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16523.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16523.jpgsave_picture_16523.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ VA - Dance Cover - The Best of 2025 (2025) [MP3|320 Kbps] <House, Dance, Trance>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16578.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16578.jpgsave_picture_16578.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Sunlounger - Distant Memories (2025) [FLAC|Lossless|WEB-DL|tracks] <Chillout, Ba
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16674.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16674.jpgsave_picture_16674.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ magnet:?xt=urn:btih:50ADD7B7C925149257C2218440CCD88E16896B71
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16737.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16737.jpgsave_picture_16737.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ VA - Top 10 May 2025 Emotional and Uplifting Trance (2025) [MP3|320 Kbps] <Tranc
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16744.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16744.jpgsave_picture_16744.jpg" />
 </div>
 
 

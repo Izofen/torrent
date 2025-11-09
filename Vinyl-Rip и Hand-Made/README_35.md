@@ -6,7 +6,7 @@
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113488.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113488.jpgsave_picture_113488.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Музыкальный телетайп 3 (1988) [FLAC 24/192|Lossless|trac
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113493.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113493.jpgsave_picture_113493.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - С Новым годом! (1979) [FLAC 24/192|Lossless|tracks] <Pop, Retro>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113506.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113506.jpgsave_picture_113506.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ M.O.D - U.S.A. for M.O.D (1987) [WavPack|32/96|image + .cue|Vinyl-Rip] <Thrash M
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113536.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113536.jpgsave_picture_113536.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Darkthrone - A Blaze in the Northern Sky (1992) Reissue, 2009, Peaceville [FLAC|
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113537.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113537.jpgsave_picture_113537.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ magnet:?xt=urn:btih:680077D83BA132D0C3704C8609291041C7621546
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113564.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113564.jpgsave_picture_113564.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ VA - Леонид Дербенев - Треугольное солнце (Роб
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113567.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113567.jpgsave_picture_113567.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ VA - Играй ещё - Keep On Playing (1981) [FLAC 24/192|Lossless|tracks] <P
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113571.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113571.jpgsave_picture_113571.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ VA - Мир песни (1 серия) (1973) [FLAC 24/192|Lossless|tracks] <Pop,
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113587.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113587.jpgsave_picture_113587.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ VA - Летная погода. Песни на стихи Михаила Тан
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113593.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113593.jpgsave_picture_113593.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Darkthrone - Soulside Journey (1991) Reissue, 2012, Peaceville [FLAC|24/192|imag
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113629.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113629.jpgsave_picture_113629.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ S.O.D - Speak English or Die (1985) [WavPack|32/96|image + .cue|Vinyl-Rip] <Thra
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113642.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113642.jpgsave_picture_113642.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ S.O.D - Speak English or Die (1985) Reissue, 2016, Megaforce Records [FLAC|24/19
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113645.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113645.jpgsave_picture_113645.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ VA - Rock Aid Armenia. The Earthquake Album (1990) 1992 [FLAC 24/192|Lossless|tr
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113655.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113655.jpgsave_picture_113655.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ VA - Вот какая любовь. Песни Романа Майорова (1
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113660.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113660.jpgsave_picture_113660.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ The Rolling Stones - Let It Bleed (Пусть льется кровь) (1969) 19
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113669.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113669.jpgsave_picture_113669.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ VA - Игра в четыре руки. Песни Аркадия Укупник
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113670.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113670.jpgsave_picture_113670.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ magnet:?xt=urn:btih:C57324459DB32E1B7E0B60D2FAE394596B7F6D6B
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113674.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113674.jpgsave_picture_113674.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Procol Harum - Shine On Brightly (Свети Ярче) (1968) 1992 [FLAC 24/192|
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113743.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113743.jpgsave_picture_113743.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Freddie Mercury & Montserrat Caballe - Barcelona (1988) 1992 [FLAC 24/192|Lossle
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113752.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113752.jpgsave_picture_113752.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:E7F0E7D0C3322396DB1B767644948C5BA0DB9BCC
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113754.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113754.jpgsave_picture_113754.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Marc Bolan & T-Rex - Марк Болан и T-REX (1987) 1992 [FLAC 24/192|Lossl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113760.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113760.jpgsave_picture_113760.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Sting - The Soul Cages (1991) 1992 [FLAC 24/192|Lossless|tracks] <Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113810.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113810.jpgsave_picture_113810.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ AC/DC - Stiff Upper Lip (2000) [FLAC|24/192|image + .cue|Vinyl-Rip] <Hard Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113814.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113814.jpgsave_picture_113814.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ The Moody Blues - The Other Side Of Life (1986) [FLAC 24/192|Lossless|tracks] <R
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113817.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113817.jpgsave_picture_113817.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ magnet:?xt=urn:btih:0E75E46114179205577E3DD79E2ACE6C79A2AC00
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113822.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113822.jpgsave_picture_113822.jpg" />
 </div>
 
 

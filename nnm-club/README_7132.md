@@ -6,7 +6,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244371.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244371.jpgsave_picture_244371.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:4D3BF34A0C13BED5F3A5EFBB5C4F3589F0BCAAD2
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244372.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244372.jpgsave_picture_244372.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:3CDB19F66CC7710B99B1D77E75A7240A522CB55B
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244373.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244373.jpgsave_picture_244373.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Solefald - Collection (1997 - 2015) 9 CD [FLAC|Lossless|image + .cue] <Avant-gar
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244374.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244374.jpgsave_picture_244374.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ VA - Raster-Noton. Oacis (2000) Raster-Noton [FLAC|Lossless|tracks+.cue] <Minima
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244375.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244375.jpgsave_picture_244375.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ Start Everywhere 1.4.0.39 (x64) Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244376.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244376.jpgsave_picture_244376.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:600A69E2A087A0C30495D1C7CE41F9ED1E1EE12A
 >>Мобильное Видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244377.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244377.jpgsave_picture_244377.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:07A99DE38B90D81C88F13B8723300EBB8A3B111E
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244378.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244378.jpgsave_picture_244378.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ magnet:?xt=urn:btih:4576BD13F7C70B2FDBC83654A7DAE77F2B2D862E
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244379.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244379.jpgsave_picture_244379.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ Drac Attack! - Drac Attack! (2021) [MP3|320 Kbps] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244380.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244380.jpgsave_picture_244380.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ McCoy Tyner - Sama Layuca (1974) 2002, Milestone [FLAC|Lossless|tracks + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244381.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244381.jpgsave_picture_244381.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ ApowerREC 1.6.3.18 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244382.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244382.jpgsave_picture_244382.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ Kainté Kountix (Kainte Kountix) - Assortiments (2019) EP [FLAC|Lossless|tracks 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244383.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244383.jpgsave_picture_244383.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ Fox River - 2 Albums (2018-2023) [MP3|320 Kbps] <Progressive Metal, Progressive 
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244384.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244384.jpgsave_picture_244384.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ VA - Coffee Chill Time, Vol. 6 (2020) [AAC|~319 Kbps] <Lounge, Chill Out, Smooth
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244385.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244385.jpgsave_picture_244385.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ VA - Калина красная 3-Песни, спетые сердцем (1999
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244386.jpgsave_picture_244386.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ Guild Of Ages - Vox Dominatas (1999) [FLAC|Lossless|image + .cue] <Progressive &
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244387.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244387.jpgsave_picture_244387.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ magnet:?xt=urn:btih:433236DB4F13D6E801E2825561724C3DCA8870C2
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244388.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244388.jpgsave_picture_244388.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ magnet:?xt=urn:btih:643187FEAFF1E33FCF88D364A77345771D5183A7
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244389.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244389.jpgsave_picture_244389.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ magnet:?xt=urn:btih:044FDA3EFD49CE76931AA59589F238348CD44B13
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244390.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244390.jpgsave_picture_244390.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ magnet:?xt=urn:btih:2930CC2C2589A949B9B7965E01B0B67764DDA4F3
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244391.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244391.jpgsave_picture_244391.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ magnet:?xt=urn:btih:480E91822E2F5889D6F2400F1BC0B70B2334BF70
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244392.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244392.jpgsave_picture_244392.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:A3D1415636FA2F0B2C5CDD8B1C08BA757111287C
 >>Космос
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244393.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244393.jpgsave_picture_244393.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Lana Del Rey - Did you know that there's a tunnel under Ocean Blvd (2023) [FLAC|
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244394.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244394.jpgsave_picture_244394.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Detestor - In the Circle of Time (1995) [FLAC|Lossless|image + .cue] <Death Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244395.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244395.jpgsave_picture_244395.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ Nightrage - Abyss Rising (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244396.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244396.jpgsave_picture_244396.jpg" />
 </div>
 
 

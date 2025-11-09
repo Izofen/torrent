@@ -6,7 +6,7 @@ Headcrasher - Nothing Will Remain (1989) 2 x CD, Reissue, , 2017, Punishment 18 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67960.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67960.jpgsave_picture_67960.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Lev Kushnir Quartet - Stars Fell On Samotlor (2001) 2024, Apollon & Evterpa [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67961.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67961.jpgsave_picture_67961.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ magnet:?xt=urn:btih:CA1B2A041353D26E20114B81F8FE07FDF1E66CF4
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67962.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67962.jpgsave_picture_67962.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:C9564EE51519B3C093E5AB01F701BA607B85F843
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67963.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67963.jpgsave_picture_67963.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:3BD3A9FC27E8E997A85682D3F32631EDEE89FBCA
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67964.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67964.jpgsave_picture_67964.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Revenge - Night Danger (2025) [FLAC|Lossless|WEB-DL|tracks] <Speed, Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67965.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67965.jpgsave_picture_67965.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ Haven - Turn It Up (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67966.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67966.jpgsave_picture_67966.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ magnet:?xt=urn:btih:8AC4FB70EE011B3F701D6918C2F17C90CC4AEE87
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67967.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67967.jpgsave_picture_67967.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ magnet:?xt=urn:btih:8FE1B7B0E93D68C377EA9628758FB818521B472C
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67968.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67968.jpgsave_picture_67968.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ magnet:?xt=urn:btih:7F942DB4479E5FEAE94AFC0FA8C9C5919938D9D3
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67969.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67969.jpgsave_picture_67969.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ Manowar - Hail to England (1984) [FLAC|24/192|image + .cue|Vinyl-Rip] <Heavy Met
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67970.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67970.jpgsave_picture_67970.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ VA - ЖЖ Was Here [mixed by DJ Юrkanik] (2025) [MP3|320 Kbps] <Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67971.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67971.jpgsave_picture_67971.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ magnet:?xt=urn:btih:2BF6B69280155587F7E82DC863251097F6B8B085
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67972.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67972.jpgsave_picture_67972.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ magnet:?xt=urn:btih:C06627087EBAB2F5D418D1AA5F278083F2166C6D
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67973.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67973.jpgsave_picture_67973.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ magnet:?xt=urn:btih:766FC570E45834389A65581CFCE0506CE656B44E
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67974.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67974.jpgsave_picture_67974.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Nightwish - Human. :||: Nature. (2020) [FLAC|24/192|image + .cue|Vinyl-Rip] <Sym
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67975.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67975.jpgsave_picture_67975.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ VA - Armin van Buuren - A State Of Trance 1220 (2025) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67976.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67976.jpgsave_picture_67976.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ magnet:?xt=urn:btih:FCFF8144651D2BB6FDE799F1D1BD6F04AFA929FA
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67977.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67977.jpgsave_picture_67977.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Magnolia Park - Vamp (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alt. Metal, Met
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67978.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67978.jpgsave_picture_67978.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ magnet:?xt=urn:btih:40D26E4627ACD39DCD0318EAFCC389CF204C3787
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67979.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67979.jpgsave_picture_67979.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ magnet:?xt=urn:btih:89CEDE8FF0CA30E0EDEB1E9E8DCE98CA21C77040
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67980.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67980.jpgsave_picture_67980.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Bob Sinclar - Born in 69 (2009) Remixed, 2024, Yellow productions [MP3|320 Kbps]
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67981.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67981.jpgsave_picture_67981.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ The Man-Eating Tree - Night Verses (2025) [MP3|320 Kbps] <Atmospheric Gothic Met
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67982.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67982.jpgsave_picture_67982.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ magnet:?xt=urn:btih:53A3DE5286952E7675E745AF2CCDDBE357C4AE84
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67983.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67983.jpgsave_picture_67983.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ magnet:?xt=urn:btih:AE24D7E261071AF96D429B45F8086947074CED47
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67984.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67984.jpgsave_picture_67984.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ magnet:?xt=urn:btih:1A664FB15A1FCDAB659DDB4864BC2C555B7BE583
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67985.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67985.jpgsave_picture_67985.jpg" />
 </div>
 
 

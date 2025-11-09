@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164746.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164746.jpgsave_picture_164746.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ FastStone Capture 9.3 (17.12.2019) Final RePack (& portable) by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164747.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164747.jpgsave_picture_164747.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:9891BC56944961A957882A7F53C2FB5ECE9997A6
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164748.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164748.jpgsave_picture_164748.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:DB22246A2CEFC8880C5D4D23D46DAED7F2120E36
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164749.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164749.jpgsave_picture_164749.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ SovaFilms | Массаж против лишних килограммов [2010]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164750.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164750.jpgsave_picture_164750.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:657C72FF121CB7A1151848FF2138F7EB4EC54C8E
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164751.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164751.jpgsave_picture_164751.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ TeamViewer Free 15.1.3937 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164752.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164752.jpgsave_picture_164752.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:F115E4487462E792408A82FD15AAD54B552F0F0F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164753.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164753.jpgsave_picture_164753.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:0F59A9AFCC5FF07BDF6C4DDA16F2DC4AC6BE34FC
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164754.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164754.jpgsave_picture_164754.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:DBEE7215BEFABAF53790AF291DA6F79F6A29D52B
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164755.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164755.jpgsave_picture_164755.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ magnet:?xt=urn:btih:C76A593BE0B02385BC7A3FE7B90CFEFA7C29145C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164757.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164757.jpgsave_picture_164757.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ magnet:?xt=urn:btih:DE48003B13D61557AB01778D6690A69F2767F87C
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164758.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164758.jpgsave_picture_164758.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Oaken (2023) [Multi] (1.1.2/dlc) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164759.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164759.jpgsave_picture_164759.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ magnet:?xt=urn:btih:B2672BAF5E386E3A01F8788846C69F25C7B94C4A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164760.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164760.jpgsave_picture_164760.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Phase One Capture One Pro 20 13.0.0.155 Final  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164761.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164761.jpgsave_picture_164761.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ magnet:?xt=urn:btih:1CBE3870FAB66F5C342EB5DE5114A81F16161587
 >>Футажи
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164762.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164762.jpgsave_picture_164762.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ magnet:?xt=urn:btih:F300B961893E496AA9765FC856DD84E433A6EE9F
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164764.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164764.jpgsave_picture_164764.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ magnet:?xt=urn:btih:A49643F000DB1D73213328645A2F712A6517C339
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164765.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164765.jpgsave_picture_164765.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ magnet:?xt=urn:btih:3C2C279DC505FA83307F2640E37C6CEAEDBCC0EE
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164766.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164766.jpgsave_picture_164766.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Revo Uninstaller Pro 4.4.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164767.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164767.jpgsave_picture_164767.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ R-Studio Network 9.1 Build 191061 RePack (& portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164768.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164768.jpgsave_picture_164768.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ magnet:?xt=urn:btih:2A2C6F489DA65D2382ED794F3F1AD53DF667C7B0
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164769.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164769.jpgsave_picture_164769.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ magnet:?xt=urn:btih:18620B2CB62A31DEDF69DB5C0613177CEB4E71B3
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164770.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164770.jpgsave_picture_164770.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Max Payne Mobile v1.7 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164771.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164771.jpgsave_picture_164771.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ VA - Кайфуем Зиму (2022) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164772.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164772.jpgsave_picture_164772.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ magnet:?xt=urn:btih:07B2E55A1ECDD56A0241F6104F51DA23909E219A
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164773.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164773.jpgsave_picture_164773.jpg" />
 </div>
 
 

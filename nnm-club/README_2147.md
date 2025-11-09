@@ -6,7 +6,7 @@ Windows 10 PRO AIO 20H1 - 22H2 1904X.4412 Update 17 by Ghost Spectre x64 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56189.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56189.jpgsave_picture_56189.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:18DF3C1ABEE38AA23646F45E8E11FD6FA76E1ED8
 >>История
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56190.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56190.jpgsave_picture_56190.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:A8C4E9952A72D3C3ECBB8BB69C111831E3F1D4C3
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56191.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56191.jpgsave_picture_56191.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ Stepik | Терминал Linux. Основы работы в командной
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56192.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56192.jpgsave_picture_56192.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ magnet:?xt=urn:btih:FD3FEE70DE27F4174B552796FFA562453A88F07D
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56193.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56193.jpgsave_picture_56193.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ magnet:?xt=urn:btih:E230EED38FAC6D5513644663D55F7FD070E357F5
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56194.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56194.jpgsave_picture_56194.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:85F923315D3FAD5F839BD4BC851AECB3C76AE687
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56195.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56195.jpgsave_picture_56195.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:28BF16DA0B140AD3DD0DBD3419A3770CD20F3416
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56196.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56196.jpgsave_picture_56196.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ Udemy, Colt Steele | HTML & CSS Bootcamp - 2023 Edition (2023) WEB-DL [EN / EN S
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56197.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56197.jpgsave_picture_56197.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ Nizamov.School, Илья Низамов | Telegram Web App 1С (2024) WEB-DL [AD
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56198.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56198.jpgsave_picture_56198.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ magnet:?xt=urn:btih:419EB9A7B79186E61CC95EB37AC4378BFD354F41
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56199.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56199.jpgsave_picture_56199.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ magnet:?xt=urn:btih:0594CA113186DECDB1C18B355E26D5CA3051E19A
 >>Грань / Fringe
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56200.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56200.jpgsave_picture_56200.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ magnet:?xt=urn:btih:AF838E6091B4EF6FE7CDE854EDFD9FE4AC20AA79
 >>Грань / Fringe
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56201.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56201.jpgsave_picture_56201.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ magnet:?xt=urn:btih:FF7ED9209C1C508793FCDFFC3BFB39183CFA7564
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56202.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56202.jpgsave_picture_56202.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ magnet:?xt=urn:btih:1F7F243F319A264666729258B305264428EFF33D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56203.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56203.jpgsave_picture_56203.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ magnet:?xt=urn:btih:D78AB775391EF9D879E0447EEE3A48057E600891
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56204.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56204.jpgsave_picture_56204.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ magnet:?xt=urn:btih:C174F7CF75048CD87BB89D183ADC5D3B2E85D545
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56205.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56205.jpgsave_picture_56205.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ magnet:?xt=urn:btih:40445A2CF46DC4483C3A29C5FAC0B648A302CB49
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56206.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56206.jpgsave_picture_56206.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ magnet:?xt=urn:btih:7D822EE4C4CBED7582210A2F2066A6568AF4762E
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56207.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56207.jpgsave_picture_56207.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ magnet:?xt=urn:btih:6F68089EACA2731BDEA8F82DCA89995341618BF5
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56208.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56208.jpgsave_picture_56208.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ Doom 3: BFG Edition (2012) [Ru/En] (22.07.2017/dlc) Repack R.G. Механики
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56209.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56209.jpgsave_picture_56209.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ magnet:?xt=urn:btih:FEBC8728BD0B59D979167B965702D3DD22D8440E
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56210.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56210.jpgsave_picture_56210.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:54D00336F6BA26B3318D7BC410D07875E1E2D2F9
 >>Менталист / The Mentalist; Теория Лжи / Lie To Me
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56211.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56211.jpgsave_picture_56211.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ magnet:?xt=urn:btih:07C9F7F4D6274397642C7516E5D6DD9A6BC0C776
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56212.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56212.jpgsave_picture_56212.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ magnet:?xt=urn:btih:AF5E5C4D045CE7391E1BE16AB17E2DE27D0FC57B
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56213.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56213.jpgsave_picture_56213.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ magnet:?xt=urn:btih:7B914F714EF1DFC71C3BB1A77EA660F37DCA5ED4
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56214.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56214.jpgsave_picture_56214.jpg" />
 </div>
 
 

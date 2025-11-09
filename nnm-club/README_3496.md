@@ -6,7 +6,7 @@ Malwarebytes Windows Firewall Control 6.9.9.9 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111257.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111257.jpgsave_picture_111257.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:DE4F6C326840546D6DFB4BC47C182A807518D002
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111258.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111258.jpgsave_picture_111258.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ YT Downloader 9.7.6 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111259.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111259.jpgsave_picture_111259.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:4F0FE19DC7E9A5CDC76FE847D2068ED3186D95DE
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111260.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111260.jpgsave_picture_111260.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:C05D491D5724AB85CC4BC644E5DD1EA5CC67E652
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111261.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111261.jpgsave_picture_111261.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:BA4F81309F0412F8ED2BDBB128D1C85F3578BC8D
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111262.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111262.jpgsave_picture_111262.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Blank & Jones - Sunset Coffee (2024) EP [FLAC|Lossless|WEB-DL|tracks] <Electroni
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111263.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111263.jpgsave_picture_111263.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Bruce Springsteen - Best of Bruce Springsteen (Expanded Edition) (2024) [FLAC|Lo
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111264.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111264.jpgsave_picture_111264.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ Bruce Springsteen - Best of Bruce Springsteen (Expanded Edition) (2024) [FLAC 24
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111265.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111265.jpgsave_picture_111265.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ VA - Rooftop Lounge: Chillout Your Mind (2024) [FLAC|Lossless|WEB-DL|tracks] <Ba
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111266.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111266.jpgsave_picture_111266.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ Brave Browser 1.65.114 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111267.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111267.jpgsave_picture_111267.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ magnet:?xt=urn:btih:BFD677945F8A0B0FDC07B8F1A4EBEE423D384B65
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111268.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111268.jpgsave_picture_111268.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ Gun - Hombres (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111269.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111269.jpgsave_picture_111269.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ My Dying Bride - A Mortal Binding (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111270.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111270.jpgsave_picture_111270.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ Walter Wanderley - Rain Forest (1966) 1990, Polydor [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111271.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111271.jpgsave_picture_111271.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ magnet:?xt=urn:btih:8D591FF513EB8D186DE7D0D053C7D3797A28DD33
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111272.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111272.jpgsave_picture_111272.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ DVNE - Voidkind (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Post-Metal, Progress
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111273.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111273.jpgsave_picture_111273.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ Hypersonic - Kaosmogonia (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Met
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111274.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111274.jpgsave_picture_111274.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Soul Twin Messiah - Soul Twin Messiah (2024) [FLAC 24/96|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111275.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111275.jpgsave_picture_111275.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ Anita O'Day - Live In Person (1976) 1993, Star Line Productions [FLAC|Lossless|i
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111276.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111276.jpgsave_picture_111276.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ DVNE - Voidkind (2024) [FLAC|Lossless|WEB-DL|tracks] <Post-Metal, Progressive Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111277.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111277.jpgsave_picture_111277.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Neal Francis - Francis Comes Alive (2023) Deluxe Edition, 2023, ATO Records [FLA
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111278.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111278.jpgsave_picture_111278.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Vella la Vella - Revolution (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Heavy Me
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111279.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111279.jpgsave_picture_111279.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ PicWish: AI Photo Editor v1.6.10 Mod by derrin [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111280.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111280.jpgsave_picture_111280.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ magnet:?xt=urn:btih:A2E9BFBF965CECDA80F3E8D00867932BC9578441
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111281.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111281.jpgsave_picture_111281.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ Q-Dir 11.55 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111282.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111282.jpgsave_picture_111282.jpg" />
 </div>
 
 

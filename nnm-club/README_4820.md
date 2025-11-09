@@ -6,7 +6,7 @@
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150796.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150796.jpgsave_picture_150796.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Vanessa Daou - Discography 40 Releases (1992-2020) [MP3|320 Kbps] <Nu Soul, Spok
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150797.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150797.jpgsave_picture_150797.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:6DC319943BF442546A37DFBFBDC9F21A34B9DE7B
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150798.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150798.jpgsave_picture_150798.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Dizence - Немой (2022) [FLAC|Lossless|WEB-DL|tracks] <Trip-Hop>
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150799.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150799.jpgsave_picture_150799.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ magnet:?xt=urn:btih:0A53B2E5E7E5FA80DECD134B39C9E68562EA8E4E
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150800.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150800.jpgsave_picture_150800.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ magnet:?xt=urn:btih:9A9E6B433FB3F946A24A84F942B44222274FC5FA
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150801.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150801.jpgsave_picture_150801.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:BC78658E31AE155E072BF883C3963F0D71FC8A6E
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150802.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150802.jpgsave_picture_150802.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ VA - Best of 2021: Sexy Songs [MP3|320 Kbps] <R&B>
 >>RnB, Reggae
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150803.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150803.jpgsave_picture_150803.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ magnet:?xt=urn:btih:C5E598CD070E3F809975A5E6A6D13E54A13E0B9F
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150804.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150804.jpgsave_picture_150804.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ Crysis Remastered Trilogy (2021-2022) [Ru/Multi] (rc2) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150805.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150805.jpgsave_picture_150805.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ magnet:?xt=urn:btih:A62527E84DBA40DAE85C527A1009C047E2439DFB
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150806.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150806.jpgsave_picture_150806.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ magnet:?xt=urn:btih:2595F418E6577EA3715A1927AE00989C33D01806
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150807.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150807.jpgsave_picture_150807.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ magnet:?xt=urn:btih:EE7C2D64EC235860FBEA814B67B557FDF8B9004C
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150808.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150808.jpgsave_picture_150808.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Crysis Remastered Trilogy (2021-2022) [Ru/En] (rc2) Repack dixen18
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150809.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150809.jpgsave_picture_150809.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ magnet:?xt=urn:btih:FEAA7099B67266D89B0A288581589D6A14CAC5CE
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150810.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150810.jpgsave_picture_150810.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ magnet:?xt=urn:btih:15822C7ED8896666AD8ABF873A88904B421309FA
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150811.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150811.jpgsave_picture_150811.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Microsoft® Windows® 10 Ent 1809 RS5 x86-x64 Ru-En-De-Uk by OVGorskiy® 12.2018
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150812.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150812.jpgsave_picture_150812.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ magnet:?xt=urn:btih:1F3C20E54FB18F8F2773CC72BE1D7D6B3F8DB375
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150813.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150813.jpgsave_picture_150813.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ magnet:?xt=urn:btih:188107E0481C2A792F66B1D8FAE3B80C2E3151D9
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150814.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150814.jpgsave_picture_150814.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ magnet:?xt=urn:btih:421751AC47B935E11404F7705582F9D161CEE50A
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150815.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150815.jpgsave_picture_150815.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ ABBYY FineReader 14.0.107.212 Enterprise RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150816.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150816.jpgsave_picture_150816.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ VA - Christmas With The Stars And The Royal Philharmonic Orchestra (2019) Jewelb
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150817.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150817.jpgsave_picture_150817.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ VA - Pink Floyd Tribute (2021) 2xSet [FLAC|Lossless|WEB-DL|tracks] <Psychedelic 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150818.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150818.jpgsave_picture_150818.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ magnet:?xt=urn:btih:1C26B37E44010779815AEAE9FDF4756EAAD20F48
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150819.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150819.jpgsave_picture_150819.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ One Commander Pro 3.29.0.0 Portable  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150820.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150820.jpgsave_picture_150820.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ magnet:?xt=urn:btih:A762D039FD163B31B5D34AFB47F96F0A22A6F08F
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150821.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150821.jpgsave_picture_150821.jpg" />
 </div>
 
 

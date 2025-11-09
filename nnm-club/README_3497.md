@@ -6,7 +6,7 @@
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111283.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111283.jpgsave_picture_111283.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Waterfox Current G6.0.12 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111284.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111284.jpgsave_picture_111284.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:5EB438636CA9E6AED1499B0883F36E581B9B3F2D
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111285.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111285.jpgsave_picture_111285.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Joe Sedita - They All Love Me (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111286.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111286.jpgsave_picture_111286.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Bless Her Evil - We Are Mystery... (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <H
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111287.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111287.jpgsave_picture_111287.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ magnet:?xt=urn:btih:E1301FD59D98EEAC7EE75690FA753A332798BB8A
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111288.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111288.jpgsave_picture_111288.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ Louis Prima & Keely Smith - Live from Las Vegas (1958) 2005, Capitol Records [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111289.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111289.jpgsave_picture_111289.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ Crimson Train - Crimson Train (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blue
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111290.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111290.jpgsave_picture_111290.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ Tedd Graves - The Day My World Turned Blue (2024) [FLAC|Lossless|WEB-DL|tracks] 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111291.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111291.jpgsave_picture_111291.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Engel Mayr - Heavy Metal Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Blues 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111292.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111292.jpgsave_picture_111292.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ magnet:?xt=urn:btih:EFA6987447A18F0C6A660F897909140B88CC6FE2
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111293.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111293.jpgsave_picture_111293.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ My Dying Bride - A Mortal Binding (2024) [FLAC|Lossless|WEB-DL|tracks] <Gothic D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111294.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111294.jpgsave_picture_111294.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ magnet:?xt=urn:btih:6BD69156E238F8ACFDC885795D17FE21A89D12A7
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111295.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111295.jpgsave_picture_111295.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Firefox Browser 125.0.1 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111296.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111296.jpgsave_picture_111296.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Firefox Browser 125.0.1 (x86/x64) Portable by 7997 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111297.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111297.jpgsave_picture_111297.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ magnet:?xt=urn:btih:A2E9D55AA92ADEBFE9E1E0E6A69236AA957667D0
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111298.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111298.jpgsave_picture_111298.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ magnet:?xt=urn:btih:DB631C90EDA8437222F33256102B91F58E39A8A5
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111299.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111299.jpgsave_picture_111299.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ Linda Ronstadt - Live in Los Angeles 1980 (2024) [MP3|320 Kbps] <Country Rock, S
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111300.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111300.jpgsave_picture_111300.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ Void Chapter - humAnIty (2023) Deluxe, 2024, FiXT[FLAC 24/44.1|Lossless|WEB-DL|t
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111301.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111301.jpgsave_picture_111301.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ magnet:?xt=urn:btih:54360154BC4C291E766C629350D43EC27537FCD6
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111302.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111302.jpgsave_picture_111302.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ magnet:?xt=urn:btih:D4AE1157E245511B5DC2C9982F302A62E2F3C951
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111303.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111303.jpgsave_picture_111303.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ magnet:?xt=urn:btih:8EBDCD661E60AB9F1147D5D2A19329D46EA2B306
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111304.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111304.jpgsave_picture_111304.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Citron - Tropic Of Cancer/Full Of Energy (1983/1986) 2xLP [FLAC 2.0|24/192|image
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111305.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111305.jpgsave_picture_111305.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ The Dave McKenna Quartet featuring Gray Sargent - No More Ouzo For Puzo (1989) C
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111306.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111306.jpgsave_picture_111306.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Dave McKenna - Giant Strides (1979) 1994, Concord Jazz [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111307.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111307.jpgsave_picture_111307.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ Dave McKenna & Gray Sargent - Recorded Live At Maybeck Recital Hall (1993) Conco
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111308.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111308.jpgsave_picture_111308.jpg" />
 </div>
 
 

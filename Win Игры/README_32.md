@@ -6,7 +6,7 @@ Drill Core (2025) [Ru/Multi] (1.199.5.7.17.49506e6/dlc) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9463.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9463.jpgsave_picture_9463.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Red Dead Redemption II (2) (2019) [Ru/Multi] (1491.50/dlc) Repack seleZen [Ultim
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9475.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9475.jpgsave_picture_9475.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ No Plan B (2024) [Ru/Multi] (1.2/dlc) Repack FitGirl
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9479.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9479.jpgsave_picture_9479.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Call Of Duty: Black Ops 6 (2024) [Ru/Multi] (11.1) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9480.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9480.jpgsave_picture_9480.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Craft The World (2014) [Ru/Multi] (1.11.006/dlc) Repack Pioneer
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9482.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9482.jpgsave_picture_9482.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Call Of Duty: Black Ops 6 (2024) [Ru/Multi] (11.1) Repack seleZen
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9485.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9485.jpgsave_picture_9485.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Call Of Duty: Black Ops 6 (2024) [Ru/En] (11.1) Repack Decepticon [Campaign]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9487.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9487.jpgsave_picture_9487.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Cosmoteer: Starship Architect & Commander / Cosmoteer: Конструктор и
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9489.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9489.jpgsave_picture_9489.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Asylum (2025) [Ru/Multi] (1.3.3071) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9501.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9501.jpgsave_picture_9501.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Call Of Duty: Black Ops 6 (2024) [Ru/En] (11.1) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9504.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9504.jpgsave_picture_9504.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ ARK: Survival Evolved (2017) [Ru/Multi] (360.1/dlc) Repack FitGirl [Ultimate Sur
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9505.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9505.jpgsave_picture_9505.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Call Of Duty: Black Ops 6 (2024) [Ru/En] (11.1) Repack Yaroslav98
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9507.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9507.jpgsave_picture_9507.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ South of Midnight (2025) [Ru/Multi] (1.3.0 186489) Repack Wanterlude
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9508.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9508.jpgsave_picture_9508.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Mandragora: Whispers of the Witch Tree (2025) [Ru/Multi] (1.6.2/dlc) Repack Want
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9511.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9511.jpgsave_picture_9511.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ One-Eyed Likho / Лихо одноглазое (2025) [Ru/Multi] (Build 19413365
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9525.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9525.jpgsave_picture_9525.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ NINJA GAIDEN: Ragebound (2025) [Ru/Multi] (CS36158) Repack FitGirl [Soundtrack E
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9556.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9556.jpgsave_picture_9556.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Achilles: Survivor (2025) [Ru/Multi] (1.0.9290) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9560.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9560.jpgsave_picture_9560.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ One-Eyed Likho / Лихо одноглазое (2025) [Ru/Multi] (Build 19413365
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9571.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9571.jpgsave_picture_9571.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Against the Storm (2022) [Ru/Multi] (1.8.4R/dlc) Repack FitGirl [Complete]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9574.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9574.jpgsave_picture_9574.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Killing Floor 3 (2025) [Ru/Multi] (Build 19273238/dlc) Repack Other s [Elite Nig
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9595.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9595.jpgsave_picture_9595.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Eriksholm: The Stolen Dream (2025) [Ru/Multi] (1.3) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9612.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9612.jpgsave_picture_9612.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Relaxing Time 2: Italy Tour / Время отдыха 2: Итальянское 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9621.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9621.jpgsave_picture_9621.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Relaxing Time: Paradise Resort / Время отдыха: Райский кур�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9623.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9623.jpgsave_picture_9623.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Ninja Gaiden: Ragebound (2025) [Ru/Multi] (1.0) Scene Rune
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9653.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9653.jpgsave_picture_9653.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Ninja Gaiden: Ragebound (2025) [Ru/Multi] (1.0) Repack seleZen
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9662.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9662.jpgsave_picture_9662.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Unravel Two (2018) [En] (1.0.0.47008) Repack Pioneer
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9676.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9676.jpgsave_picture_9676.jpg" />
 </div>
 
 

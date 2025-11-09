@@ -6,7 +6,7 @@ Misery - Misery Loves Company (1991) Remastered, 2022, Eonian Records [FLAC|Loss
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243792.jpgsave_picture_243792.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:47525FAE07EAFC71E17ED5237841DD607BEFE80F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243793.jpgsave_picture_243793.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:3B96E2DFF1E28E0682A800987CDE74087F65E9EC
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243794.jpgsave_picture_243794.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ DateBook - Journal | Memoi‪r 2.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243795.jpgsave_picture_243795.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ VA - Compilation  part 16 Electronic (2023) [MP3|224-320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243796.jpgsave_picture_243796.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ magnet:?xt=urn:btih:3EFE5F24C1C6E72648AE8E33916A6B367FBADA40
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243798.jpgsave_picture_243798.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ magnet:?xt=urn:btih:962A2EEE5D2E12D8CA0B4F188A4F02E293F04A5E
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243799.jpgsave_picture_243799.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ VA - Loungerie (25 Amazing Lounge Tunes), Vol. 3 (2017) [AAC|~329 Kbps] <Lounge,
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243800.jpgsave_picture_243800.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ magnet:?xt=urn:btih:CAC49E1F86EF58C013A76D5F9AE4BB6719087C60
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243801.jpgsave_picture_243801.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ Mitti 1.5.13 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243802.jpgsave_picture_243802.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ magnet:?xt=urn:btih:B90450C5E2693A3EE311C22D47F68C5F09424F8B
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243803.jpgsave_picture_243803.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ Windows and Office Genuine ISO Verifier 11.12.35.23 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243804.jpgsave_picture_243804.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ VA - Chillax (20 Chill-Out Tunes), Vol. 4 (2018) [AAC|~317 Kbps] <Lounge, Chill 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243805.jpgsave_picture_243805.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ magnet:?xt=urn:btih:0367E6A4F7DF4D1D3A6890A942DCA284A889760A
 >>Футбол
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243806.jpgsave_picture_243806.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ magnet:?xt=urn:btih:C6B231986A9DD789DA8CCD694059FC8924D5633A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243807.jpgsave_picture_243807.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ magnet:?xt=urn:btih:E03F59323FDE4121B62E3DEDA2F0D274323E8BDE
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243808.jpgsave_picture_243808.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Screenium 3 v3.2.17 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243809.jpgsave_picture_243809.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ magnet:?xt=urn:btih:4E8AFDB28472DD69258D4D958CF34DEE73E8D9BE
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243810.jpgsave_picture_243810.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ AIMP 5.11 Build 2426 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243811.jpgsave_picture_243811.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Chris Barr & Don Cromwell - A Story Unfolds (2022) 2xCD [FLAC|Lossless|image + .
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243812.jpgsave_picture_243812.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:86DB88193FD2C78BF8A78482BC0F918B3BDE3A81
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243813.jpgsave_picture_243813.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ magnet:?xt=urn:btih:E423F0D77F54B390ADF1C761C4C7F60ADE420457
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243814.jpgsave_picture_243814.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Integrity Pro 12.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243815.jpgsave_picture_243815.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ magnet:?xt=urn:btih:458DF58B36C628385D9CBB433832FCB45774E6F7
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243816.jpgsave_picture_243816.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ magnet:?xt=urn:btih:694E44D48D022A0EFED3E464DE74A3735FA28E8C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243817.jpgsave_picture_243817.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Soulver 3 v3.4.16 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243818.jpgsave_picture_243818.jpg" />
 </div>
 
 

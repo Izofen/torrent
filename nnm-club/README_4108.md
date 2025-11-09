@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127383.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127383.jpgsave_picture_127383.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Holy Giant - Diviners & Dividers (2023) [FLAC|Lossless|WEB-DL|tracks] <doommetal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127384.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127384.jpgsave_picture_127384.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:6D45B68665BD096ABF9B0D849858B537B59190B3
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127385.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127385.jpgsave_picture_127385.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:BF5F6FA1E92E10A9879FC5BC5F6E222C90416503
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127386.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127386.jpgsave_picture_127386.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ VA - Clubbing 2024 (2023) [MP3|320 Kbps] <House, Dance>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127387.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127387.jpgsave_picture_127387.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Neuroticfish - The Demystification Of The Human Heart (2023) [FLAC|Lossless|WEB-
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127388.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127388.jpgsave_picture_127388.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ TV Girl - Who Really Cares (2016) Digital Album [FLAC|Lossless|WEB-DL|[tracks] <
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127389.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127389.jpgsave_picture_127389.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ magnet:?xt=urn:btih:206DAC8842FB5E0410C689FE5E7922E590C1580A
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127390.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127390.jpgsave_picture_127390.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Heavy Load - Death Or Glory (1982) Remastered, 2019, Reissue, 2023, WM Sweden [F
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127391.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127391.jpgsave_picture_127391.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ VA - Heavy Electric Guitar (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127392.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127392.jpgsave_picture_127392.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ magnet:?xt=urn:btih:6025930D7BDC49E1292CE413EBC7F03F649F825F
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127393.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127393.jpgsave_picture_127393.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Iris Official - Heart Of An Artist: Resurrection (2023) [FLAC|Lossless|WEB-DL|tr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127394.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127394.jpgsave_picture_127394.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Van Roy Asylum - Unsaint Petersburg (Live) (2023) [FLAC|Lossless|WEB-DL|tracks] 
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127395.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127395.jpgsave_picture_127395.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ magnet:?xt=urn:btih:E112A1EFCD9C857B1DA35F416B1C43263DFD5A57
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127396.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127396.jpgsave_picture_127396.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Rash Panzer - Liberation (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Hard
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127397.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127397.jpgsave_picture_127397.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ magnet:?xt=urn:btih:2390E9F99547C8F93FAA9535139DF752B25D3FE1
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127398.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127398.jpgsave_picture_127398.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ magnet:?xt=urn:btih:4C5BFCC3384077AA232166BADF74D0FC07C433BF
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127399.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127399.jpgsave_picture_127399.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ magnet:?xt=urn:btih:359866900CCCD7AFE6B14730F3F16C214A6DFE83
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127400.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127400.jpgsave_picture_127400.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Listen Audiobook Player v5.2.4 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127401.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127401.jpgsave_picture_127401.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Livin' Blues, Nicko Christiansen - Back on track (2023) [MP3|320 Kbps] <Blues, R
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127402.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127402.jpgsave_picture_127402.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ magnet:?xt=urn:btih:838D32F2777782D19FF616B0EDA88C7AAB88F668
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127403.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127403.jpgsave_picture_127403.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ magnet:?xt=urn:btih:C3C5DB8CB0E31CF6D3F87370905F530CD1D6FB0F
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127404.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127404.jpgsave_picture_127404.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ magnet:?xt=urn:btih:23E9F121E44014B3A500DF118F076476F2D567E6
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127405.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127405.jpgsave_picture_127405.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ magnet:?xt=urn:btih:9390EC5AF67C2265D10ECCA83E720CA470A34077
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127406.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127406.jpgsave_picture_127406.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ magnet:?xt=urn:btih:5443484F81E842B05704646DF3548FA51A34DC34
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127407.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127407.jpgsave_picture_127407.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ magnet:?xt=urn:btih:340BA74811399579F3AC115BB65A33CC3E4358B8
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127408.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127408.jpgsave_picture_127408.jpg" />
 </div>
 
 

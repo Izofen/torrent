@@ -6,7 +6,7 @@
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27520.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27520.jpgsave_picture_27520.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Tomb Raider IV-VI Remastered (2025) [Ru/Multi] (Build 17156603) Repack seleZen [
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27521.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27521.jpgsave_picture_27521.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ The Foundry Nuke Studio 15.1v5 (x64) [En]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27522.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27522.jpgsave_picture_27522.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:B2C062F2F8799C7DF95955B4F753536E627CA5F5
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27523.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27523.jpgsave_picture_27523.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:772FAC433E9FA1F76FEC7DF5E3D1A96F8F57B437
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27524.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27524.jpgsave_picture_27524.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Microsoft exFAT/NTFS for USB by Paragon Pro v5.0.0.6 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27525.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27525.jpgsave_picture_27525.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:DC73F73BA7B1405DAE1E21449B8F15CAEBB9F1DC
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27526.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27526.jpgsave_picture_27526.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Few Nights More (2025) [Ru/Multi] (1.0.0214) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27527.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27527.jpgsave_picture_27527.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:155809B1DA0A6A00A12C8822798E63359C398D07
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27528.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27528.jpgsave_picture_27528.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ eM Client 10.1.5131.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27529.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27529.jpgsave_picture_27529.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Rescue Me! | Спаси меня! [2013, OVA] BDRip 1080p 10-bit raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27530.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27530.jpgsave_picture_27530.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Get Tilted! :) (2025) [Ru/Multi] (1.1) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27531.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27531.jpgsave_picture_27531.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ WPS Office + PDF v18.15.1 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27532.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27532.jpgsave_picture_27532.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ ES File Explorer File Manager v4.4.2.19 Mod Lite by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27533.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27533.jpgsave_picture_27533.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ magnet:?xt=urn:btih:65F68DD5867C5FF18B3083CA3E965EA60EB98231
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27534.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27534.jpgsave_picture_27534.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ magnet:?xt=urn:btih:AF73A6D7EAA9D27AC9FCC43A9ED4182B24C13E2B
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27535.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27535.jpgsave_picture_27535.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ magnet:?xt=urn:btih:3DD5075DFD74E193ACD9C4C87C2473706A63E41B
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27536.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27536.jpgsave_picture_27536.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ SolidRocks 2.5.0 for 3ds Max repack by MSI [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27537.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27537.jpgsave_picture_27537.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ magnet:?xt=urn:btih:271FE2BF23DC19C84FFD071F23500B2F213ABA45
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27538.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27538.jpgsave_picture_27538.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ magnet:?xt=urn:btih:BB2602109304E6C5D3262229DD6232F966B43252
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27539.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27539.jpgsave_picture_27539.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ magnet:?xt=urn:btih:C93A0F56880AFE5D004308E8D4805E01C46AA34C
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27540.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27540.jpgsave_picture_27540.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:3CCD1C977F40F7F9861DCCF9CC6DBEF81D65EF3C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27541.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27541.jpgsave_picture_27541.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ magnet:?xt=urn:btih:AD177D19BEAEE4BFFD8F55A221B20C9B9E332109
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27542.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27542.jpgsave_picture_27542.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ magnet:?xt=urn:btih:8223E125EBB57F39E766DF78BD3CB5C0B811BAFA
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27543.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27543.jpgsave_picture_27543.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ EasyUEFI 5.8 Release 1 Technician RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27544.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27544.jpgsave_picture_27544.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ magnet:?xt=urn:btih:D5363E1620880F507FE492E2C92C423D5C8376EF
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27545.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27545.jpgsave_picture_27545.jpg" />
 </div>
 
 

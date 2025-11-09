@@ -6,7 +6,7 @@ Pistol Kixx - Pistol Kixx (2018) [FLAC|Lossless|WEB-DL|tracks] <Punk-Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240239.jpgsave_picture_240239.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:2048449E1A53B4767DB0C2CF3F3B919639B00A58
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240240.jpgsave_picture_240240.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:3A1B20177AAFA8A5554F5400DC1C5133A5EC2A88
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240241.jpgsave_picture_240241.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Batteries 2.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240242.jpgsave_picture_240242.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Opera 99.0.4788.47 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240243.jpgsave_picture_240243.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Luteoks - Barely True Norwegian Black Metal (2023) [FLAC|Lossless|WEB-DL|tracks]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240244.jpgsave_picture_240244.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ Ubuntu*Pack 22.04 GNOME (март 2023) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240245.jpgsave_picture_240245.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ PullTube 1.5.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240246.jpgsave_picture_240246.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ AYVY 1.12.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240247.jpgsave_picture_240247.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ magnet:?xt=urn:btih:2D21CF8F7979B3CFF85C7EB14D954428AFE76C13
 >>Футбол
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240248.jpgsave_picture_240248.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:A5EF003D62189CA4347CBB96B586F6E4C291CA5E
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240249.jpgsave_picture_240249.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ Celldweller - Satellites (2022) Deluxe Edition, 3CD, 2023, FiXT [FLAC|Lossless|W
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240250.jpgsave_picture_240250.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ Lust Witch - Hands Of Filth (2023) EP [FLAC|Lossless|WEB-DL|tracks] <Death, Doom
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240251.jpgsave_picture_240251.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ Billie Eilish - hotline (edit) (2023) Single [FLAC 24/44.1|Lossless|WEB-DL|track
 >>Alternative, Punk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240252.jpgsave_picture_240252.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ The Great Unfinished... - Malcontent (2018) [FLAC|Lossless|WEB-DL|tracks] <Glasg
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240253.jpgsave_picture_240253.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ Ubuntu*Pack 22.04 LikeWin (март 2023) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240254.jpgsave_picture_240254.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Wondershare UniConverter for Mac 14.2.12 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240255.jpgsave_picture_240255.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ magnet:?xt=urn:btih:80CD8C0C526DAD49C58FE5B36E1E9206A565BE68
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240256.jpgsave_picture_240256.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ magnet:?xt=urn:btih:DF5D5EDDD5582B8370A8516F542806856704B462
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240257.jpgsave_picture_240257.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ Qvintessence - Qvintessence (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240258.jpgsave_picture_240258.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Various Artists - Flower Power - Best Of Love, Peace and Happiness (2023) [FLAC|
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240259.jpgsave_picture_240259.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ magnet:?xt=urn:btih:E02248EF75E6C157EBC57610851D91DCE822EEF3
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240260.jpgsave_picture_240260.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Azeroth - II (2008) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240261.jpgsave_picture_240261.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ VA - Dead Don’t Die - Rock Anthems (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240262.jpgsave_picture_240262.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ VA - Пулсиращи Ноти 1 (1984) [APE 2.0 24/96|image+.cue (Vinyl-Rip)]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240263.jpgsave_picture_240263.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Math Marriage Abel and Krell - Откровение (2021) [MP3|320 Kbps] <Extre
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240264.jpgsave_picture_240264.jpg" />
 </div>
 
 

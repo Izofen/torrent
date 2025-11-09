@@ -6,7 +6,7 @@ Live Wallpaper & Themes 4K Pro 17.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231482.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231482.jpgsave_picture_231482.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Black Nazareth - Black Nazareth (2022) [FLAC|Lossless|image + .cue] <Heavy Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231483.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231483.jpgsave_picture_231483.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Process Lasso Pro 12.3.1.20 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231484.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231484.jpgsave_picture_231484.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Chromium 115.0.5790.99 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231485.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231485.jpgsave_picture_231485.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:BFF19ECA74FF00C898B71A20896D2AD4FD17F76A
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231488.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231488.jpgsave_picture_231488.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:E8A242CFDF7A60F169060E956B2338CC909C84C4
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_231489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231489.jpgsave_picture_231489.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Usnea - Bathed in Light (2023) [FLAC|Lossless|WEB-DL|tracks] <Blackened Funeral 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231490.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231490.jpgsave_picture_231490.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Google Chrome 115.0.5790.99 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231491.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231491.jpgsave_picture_231491.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Winger - Seven (2023) Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231493.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231493.jpgsave_picture_231493.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ reaConverter Pro 7.789 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_231494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231494.jpgsave_picture_231494.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ Voivod - Morgöth Tales (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231495.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231495.jpgsave_picture_231495.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ Usnea - Usnea (2013) [FLAC|Lossless|WEB-DL|tracks] <Blackened Funeral Doom Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231497.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231497.jpgsave_picture_231497.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ Java SE Development Kit 17.0.8 LTS [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231498.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231498.jpgsave_picture_231498.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ YT Saver Video Downloader & Converter for Mac 7.0.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231499.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231499.jpgsave_picture_231499.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ magnet:?xt=urn:btih:9AD6540AA8C021819E8D50423185B35A85651506
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_231500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231500.jpgsave_picture_231500.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ Path Finder 2158 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231501.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231501.jpgsave_picture_231501.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Valgrind - Millennium of Night Bliss (2023) [FLAC|Lossless|WEB-DL|tracks] <Death
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231503.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231503.jpgsave_picture_231503.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ VA - Deep Melancholic Vibes (2023) [MP3|320 Kbps] <House, Deep House, Dance, Clu
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231504.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231504.jpgsave_picture_231504.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ magnet:?xt=urn:btih:A2D3904291DBCF95E9832639B4C00E275DEE4F34
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231505.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231505.jpgsave_picture_231505.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ Slimjet 39.0.4.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_231506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231506.jpgsave_picture_231506.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Dynamic Wallpaper 15.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231507.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231507.jpgsave_picture_231507.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Razor - Decibels (1997) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231509.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231509.jpgsave_picture_231509.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Jason Allen - Something I Dreamed (2001) [FLAC|Lossless|image + .cue] <Country>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231510.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231510.jpgsave_picture_231510.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Later Sons - Rise Up (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231511.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231511.jpgsave_picture_231511.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ iTubeGo YouTube Downloader Pro for Mac 7.0.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231512.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231512.jpgsave_picture_231512.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ IObit Uninstaller Pro 12.4.0.9 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_231514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231514.jpgsave_picture_231514.jpg" />
 </div>
 
 

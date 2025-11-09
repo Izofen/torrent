@@ -6,7 +6,7 @@ EarthView 7.9.9 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107175.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107175.jpgsave_picture_107175.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Derek Harvey | Smithsonian. Did You Know? Animals (2021) [PDF] [EN]
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107176.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107176.jpgsave_picture_107176.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:22EB03348F49657ECDDE8BE589F7470ED049033E
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107177.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107177.jpgsave_picture_107177.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Opera One 111.0.5168.55 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107178.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107178.jpgsave_picture_107178.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:2D06B6B9AD24D130F2DE5F4AAFEF4E006C447FE1
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107179.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107179.jpgsave_picture_107179.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ ApowerREC 1.7.0.10 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107180.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107180.jpgsave_picture_107180.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:6103C628C2223A35826AE5C97C1503801BDECB44
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107181.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107181.jpgsave_picture_107181.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Shaila Brown (editor) | Smithsonian. Ocean (2015) [PDF] [EN]
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107182.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107182.jpgsave_picture_107182.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ James Mitchem (editor) | My Encyclopedia of Very Important Animals (2017) [PDF] 
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107183.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107183.jpgsave_picture_107183.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ Algorithmic Melody - Love & War (2024) 2CD [FLAC|Lossless|WEB-DL|tracks] <Alt Me
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107184.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107184.jpgsave_picture_107184.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ magnet:?xt=urn:btih:B729216E3EAEF12045700CBB3BF4DA8F075D2742
 >>Футбол. Чемпионаты Европы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107185.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107185.jpgsave_picture_107185.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ magnet:?xt=urn:btih:F560FD7B2D5DBCC1E1C13D60DA2BF7D0818EB64C
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107186.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107186.jpgsave_picture_107186.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ Sandboxie 5.69.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107187.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107187.jpgsave_picture_107187.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ magnet:?xt=urn:btih:A99146C7AE84EBA322CC315F64F183F9755B5840
 >>Футбол. Чемпионаты Европы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107188.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107188.jpgsave_picture_107188.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ magnet:?xt=urn:btih:354C3A420118A5832CAAE9971A520F75C2C15A6E
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107189.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107189.jpgsave_picture_107189.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Archie Shepp - 5 Original Albums (1964 - 1968) 5CD, 2018, Universal [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107190.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107190.jpgsave_picture_107190.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ magnet:?xt=urn:btih:6237A40B737B08F5FD52C53E2BBDFA7D55FC5354
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107191.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107191.jpgsave_picture_107191.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Pallas - Arrive Alive (1981) Remaster, 2024, Esoteric [FLAC|Lossless|WEB-DL|trac
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107192.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107192.jpgsave_picture_107192.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ magnet:?xt=urn:btih:75F1029AF93F49E0596B6346C5F9442A18C5F064
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107193.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107193.jpgsave_picture_107193.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ magnet:?xt=urn:btih:3626024B101C90D8A19921BDF17D841DEB4714DF
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107194.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107194.jpgsave_picture_107194.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ magnet:?xt=urn:btih:BB567D9BC86ED339F4C7189A1EFA06B8DA229708
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107195.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107195.jpgsave_picture_107195.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Outlander - Acts of Harm (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Shoegaze,
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107196.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107196.jpgsave_picture_107196.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ magnet:?xt=urn:btih:FE5F94ADC44BABD6D3BF8D1866F7A80E748F63AF
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107197.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107197.jpgsave_picture_107197.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ Benjamin Finger - Beyond (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melanchol
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107198.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107198.jpgsave_picture_107198.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ magnet:?xt=urn:btih:26DFA125EC12129969C91D2C769BEA86087891AF
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107199.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107199.jpgsave_picture_107199.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ magnet:?xt=urn:btih:245084FCF5E306F480843E99854324BD4989C226
 >>Футбол. Чемпионаты Европы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107200.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107200.jpgsave_picture_107200.jpg" />
 </div>
 
 

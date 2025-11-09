@@ -6,7 +6,7 @@
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225728.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225728.jpgsave_picture_225728.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:8669C59C2DFD8BA07C7B7D416C5651827999853D
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225735.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225735.jpgsave_picture_225735.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:7A4F6784E425D5FA78A3E115B3DD655F4BF0DA30
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225744.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225744.jpgsave_picture_225744.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:04DED88316F5D806B3F7A8F9773AD4EF7A9C86F6
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225750.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225750.jpgsave_picture_225750.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Tag My Heart - Tag My Heart (2023) [MP3|320 Kbps] <Nu Metal, Metalcore, Female V
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225756.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225756.jpgsave_picture_225756.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:9025C4D90A85B6FD9BB58E329CF6E52F6A84F43E
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225763.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225763.jpgsave_picture_225763.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:F336A27D38270C1D173411753A70819E6F50A1D8
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225774.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225774.jpgsave_picture_225774.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ TORF - Романтика не в моде (2023) [FLAC|Lossless|WEB-DL|tracks] 
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225782.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225782.jpgsave_picture_225782.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Dream Theater - Systematic Chaos (2007) Japanese Edition [FLAC|Lossless|image + 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225825.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225825.jpgsave_picture_225825.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ magnet:?xt=urn:btih:F7A5A28DD251350627201F28246CFF4F648AB24C
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225834.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225834.jpgsave_picture_225834.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ AirRadar 7 v.7.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225839.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225839.jpgsave_picture_225839.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ GeoGebra 6.0.793.0 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225851.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225851.jpgsave_picture_225851.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:D696EA3EBF536F752B29928D156991DDD03BF2B7
 >>История
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225860.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225860.jpgsave_picture_225860.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Aerolith - Megalorama Part II (2023) [MP3|320 Kbps] <Progressive Rock, Space Roc
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225869.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225869.jpgsave_picture_225869.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Frank Wess, Kenny Burrell, Joe Newman - Jazz For Playboys (1956, 1957) 2000, Sav
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225877.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225877.jpgsave_picture_225877.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Meat Puppets - Santa Monica (1988) live, Remaster, 2023, [MP3|320 Kbps] <Pop Roc
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225883.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225883.jpgsave_picture_225883.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Jonathan Cain - Back To The Innocence (1995) Japanese Edition [FLAC|Lossless|ima
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225892.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225892.jpgsave_picture_225892.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Will The Thrill - Take It Sleazy (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Glam
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225899.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225899.jpgsave_picture_225899.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ G519 - Blue Atomic Sky (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, C
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225906.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225906.jpgsave_picture_225906.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Marc Atkinson - For A Broken Dime (2023) [FLAC|Lossless|WEB-DL|tracks] <Acoustic
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225915.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225915.jpgsave_picture_225915.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Amadeus Pro 2.8.13 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225924.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225924.jpgsave_picture_225924.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Protean Shield - Protean Shield (2023) [MP3|320 Kbps] <Epic Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225927.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225927.jpgsave_picture_225927.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ SweetScape 010 Editor for Mac 14.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225932.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225932.jpgsave_picture_225932.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ QLab 5.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225939.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225939.jpgsave_picture_225939.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Cavalera - Bestial Devastation (2023) EP [FLAC|Lossless|image + .cue] <Thrash/De
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225947.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225947.jpgsave_picture_225947.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Mactracker 7.12.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225956.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225956.jpgsave_picture_225956.jpg" />
 </div>
 
 

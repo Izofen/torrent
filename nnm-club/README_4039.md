@@ -6,7 +6,7 @@
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125582.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125582.jpgsave_picture_125582.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:8D13AAF592E00FFA1321244E552C138E4FA2E1A0
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125583.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125583.jpgsave_picture_125583.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Alexey Teplykh - The City at Night (2023) [FLAC|Lossless|WEB-DL|tracks] <Synthpo
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125584.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125584.jpgsave_picture_125584.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:1AC206B742273D964971CEC1E42E2DF479D10AE2
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125585.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125585.jpgsave_picture_125585.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ Demon - Heart of Our Time (1985) Japanese Edition, Reissue, Remastered, 2020, Ru
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125586.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125586.jpgsave_picture_125586.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ magnet:?xt=urn:btih:B484CF5483E6EC368E8D03A3E8C118475FC5C051
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125587.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125587.jpgsave_picture_125587.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ magnet:?xt=urn:btih:EE16C91651427BCDE536A54836E0644162F45019
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125588.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125588.jpgsave_picture_125588.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ magnet:?xt=urn:btih:3DF6E2E88DAEEE6384C3D69CD0552EC4F4ED9FF6
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125589.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125589.jpgsave_picture_125589.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ magnet:?xt=urn:btih:6CE8E63797F95E7A7CD822560FB5C6BA9D599EE4
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125590.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125590.jpgsave_picture_125590.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ magnet:?xt=urn:btih:E1AC16091A6B8C86A85748D12EFD08D54C010FB2
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125591.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125591.jpgsave_picture_125591.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ Uchuusen Sagittarius | Spaceship Sagittarius | Искатели приключе
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125592.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125592.jpgsave_picture_125592.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ Johnny Hallyday - Symphonique (2023) [MP3|320 Kbps] <Pop-Rock, Rock'n'Roll>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125593.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125593.jpgsave_picture_125593.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ magnet:?xt=urn:btih:1557FDBE0B00627DE73BCA777BCBB3BB8494D395
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125594.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125594.jpgsave_picture_125594.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ magnet:?xt=urn:btih:6C6BABAB23F0B088039237A5254149864BCABB9B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125595.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125595.jpgsave_picture_125595.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ magnet:?xt=urn:btih:FD7CCCE05D28619F16E378DF54073B6BF8C25FBA
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125596.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125596.jpgsave_picture_125596.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Ocenaudio 3.13.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125597.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125597.jpgsave_picture_125597.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ magnet:?xt=urn:btih:A0BFB5F8AFB45D5E6D55DA6EE7A3E9FDBA8E4D67
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125598.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125598.jpgsave_picture_125598.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ magnet:?xt=urn:btih:DA73851CBA116FA2E20DD2C3DB6F92F33D058744
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125599.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125599.jpgsave_picture_125599.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ VA - Silent Place, Vol. 1-3 (2023) 3 x CD [MP3|320 Kbps] <Lounge, Chill Out, Dow
 >>Downtempo, Trip-Hop, Lounge
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125600.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125600.jpgsave_picture_125600.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ magnet:?xt=urn:btih:C58E53A498514AFFF918B65289592B85027EE7CD
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125601.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125601.jpgsave_picture_125601.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ magnet:?xt=urn:btih:2333B366F0209849180F35CB78832DDDCF56B0F4
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125602.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125602.jpgsave_picture_125602.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ magnet:?xt=urn:btih:344EE5050648B60BC31252746B68C40A8616986D
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125603.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125603.jpgsave_picture_125603.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ VA - Pop Christmas Songs (2023) [FLAC|Lossless|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125604.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125604.jpgsave_picture_125604.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Chris Rea – Deltics (1979) Reissue, 1991 [OGG Vorbis|480 Kbps] <Soft Rock, Roc
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125605.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125605.jpgsave_picture_125605.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Chris Rea - Tennis (1980) Reissue, 1991 [OGG Vorbis|480 Kbps] <Soft Rock, Rock, 
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125606.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125606.jpgsave_picture_125606.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ magnet:?xt=urn:btih:B0F9665BF744E9E1CAAC386B441189FEFF4AC2D0
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125607.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125607.jpgsave_picture_125607.jpg" />
 </div>
 
 

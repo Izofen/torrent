@@ -6,7 +6,7 @@
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193229.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193229.jpgsave_picture_193229.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:1B15BC95A9BB613FAA036962E066F5ABD3058DB2
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193230.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193230.jpgsave_picture_193230.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ VA - В машине с музыкой Vol.314 (2022) MP30 [320 Kbps] <Pop, Danc
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193231.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193231.jpgsave_picture_193231.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:C4AA3F457C78CDBA49CDE55C22DD3E040A090E5A
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193232.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193232.jpgsave_picture_193232.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ qBittorrent 4.5.5 (x64) RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193233.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193233.jpgsave_picture_193233.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Tequilajazzz - Лучшее (2CD) (2010) [FLAC|Lossless|image + .cue]<Alternativ
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193234.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193234.jpgsave_picture_193234.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:545D60A774506357E3308557CD6DCD8183F90B50
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193235.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193235.jpgsave_picture_193235.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:4797BFC0150537DC0091327A1F6B56010B34CC51
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193236.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193236.jpgsave_picture_193236.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:EE3DD5378F1E59AF1C0FBDBFA1EA17333B382A4B
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193237.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193237.jpgsave_picture_193237.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ Simply Piano: Learn Piano Fast 7.6.9 Mod by youarefinished [Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193238.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193238.jpgsave_picture_193238.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ magnet:?xt=urn:btih:D83E92D9BCBEAD5EEA1332E5E58BE5B21D2956D5
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193239.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193239.jpgsave_picture_193239.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ magnet:?xt=urn:btih:20B0B6E8079E088DBE7FB6D207D05DFBE4BDA7E0
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193240.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193240.jpgsave_picture_193240.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:20B0B6E8079E088DBE7FB6D207D05DFBE4BDA7E0
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193241.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193241.jpgsave_picture_193241.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Otomege Sekai wa Mob ni Kibishii Sekai Desu | Trapped in a Dating Sim: The World
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193242.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193242.jpgsave_picture_193242.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ magnet:?xt=urn:btih:EE05EF44C61C3259F2E0C026C07D146058A296CF
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193243.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193243.jpgsave_picture_193243.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ magnet:?xt=urn:btih:D19052600A03274AFB3B130B3225E35B88153CE4
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193244.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193244.jpgsave_picture_193244.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Galaxy Angel A / Galaxy Angel AA | Галактические ангелы А [�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193245.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193245.jpgsave_picture_193245.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ magnet:?xt=urn:btih:1097D8092527DBA3F67A08E8206DF4238F257DC3
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193246.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193246.jpgsave_picture_193246.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Shika no Ou: Yuna to Yakusoku no Tabi | The Deer King | Король-олень 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193247.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193247.jpgsave_picture_193247.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ magnet:?xt=urn:btih:595FFB4F4910E9FC3055810D47C231891AB1B04A
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193248.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193248.jpgsave_picture_193248.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ magnet:?xt=urn:btih:1664BED378DB9A30ED5DB73182798FC66EBAD4E3
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193249.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193249.jpgsave_picture_193249.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ magnet:?xt=urn:btih:6FFA43F42B0903BDBBC7C6B57A3B768A794A9BFA
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193250.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193250.jpgsave_picture_193250.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:B2B0497AA257431FDE897C5115181E9AE5B1BF07
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193251.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193251.jpgsave_picture_193251.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ magnet:?xt=urn:btih:21678E6E7D4A2776EEFA47E6593EAB2B417A727C
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193252.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193252.jpgsave_picture_193252.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Bon Jovi - Greatest Hits: The Ultimate Collection (2010) [OGG Vorbis|480 Kbps] <
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193254.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193254.jpgsave_picture_193254.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ magnet:?xt=urn:btih:960178BC16FFF77E51571B42AE6F0E58517CE3DA
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193255.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193255.jpgsave_picture_193255.jpg" />
 </div>
 
 

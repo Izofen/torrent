@@ -6,7 +6,7 @@ Railroads Online (2021) [Ru/Multi] (0.10.0.0.0 51996) Repack seleZen
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35039.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35039.jpgsave_picture_35039.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:EEF086EAC42158088D82D640A03843561B3B993B
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35040.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35040.jpgsave_picture_35040.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:34E11DECA493D8BB5963EF8DD21A305E017E96CC
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35041.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35041.jpgsave_picture_35041.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Antivirus Removal Tool 2024.12 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35042.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35042.jpgsave_picture_35042.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Dementium II HD (2013) [Ru/Multi] (1.266) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35043.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35043.jpgsave_picture_35043.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:8305EAF78625A8218452A22EF70D9F598EF87ED3
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35044.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35044.jpgsave_picture_35044.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:818D36301646690A1C7022090CBE3F4B03033753
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35045.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35045.jpgsave_picture_35045.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Xandria - Studio Albums (10 releases) (2003-2024) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35046.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35046.jpgsave_picture_35046.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:29EB4C05C222406CFAE0E94EA0598B0516FBFC6C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35047.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35047.jpgsave_picture_35047.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Golf Peaks (2018) [Ru/Multi] (3.60) License GOG
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35048.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35048.jpgsave_picture_35048.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Devil's Way (2024) [Ru/Multi] (build 16096646) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35049.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35049.jpgsave_picture_35049.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Wondershare PDFelement 11.4.1.3253 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35050.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35050.jpgsave_picture_35050.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Duplicate File Finder Pro 2407 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35051.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35051.jpgsave_picture_35051.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ YTDLnis 1.8.1.2 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35052.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35052.jpgsave_picture_35052.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ magnet:?xt=urn:btih:31837D0B64BAEC46D943DB2FD493713FABBB42F9
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35053.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35053.jpgsave_picture_35053.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ METAL SLUG ATTACK RELOADED (2024) [Ru/Multi] (Reika Update) Scene SKIDROW
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35054.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35054.jpgsave_picture_35054.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ magnet:?xt=urn:btih:0687CACC457D215D38A4C16A7E60A43F80F8247C
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35055.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35055.jpgsave_picture_35055.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Blackmagic Design DaVinci Resolve Studio 19.1.1 Build 8 RePack by KpoJIuK [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35056.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35056.jpgsave_picture_35056.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ magnet:?xt=urn:btih:995F9E11DD4416D7D656F1536405F3AB8AD4ED91
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35057.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35057.jpgsave_picture_35057.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ magnet:?xt=urn:btih:995F9E11DD4416D7D656F1536405F3AB8AD4ED91
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35058.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35058.jpgsave_picture_35058.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ magnet:?xt=urn:btih:B3023A5805CB27659D187CA41DEE00F62C8CD16C
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35059.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35059.jpgsave_picture_35059.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ magnet:?xt=urn:btih:A9CD94EED9EA0CB3CF357FCD476ACF87F8BACCFE
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35060.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35060.jpgsave_picture_35060.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ magnet:?xt=urn:btih:2DDAFFBAD05A381FCDFCDCBDF7B07E3C749EF69D
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35061.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35061.jpgsave_picture_35061.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ magnet:?xt=urn:btih:38753C8ED85EDB69FF90EDEDD313761BB4060B88
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35062.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35062.jpgsave_picture_35062.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ magnet:?xt=urn:btih:B18CAC7C3EABE9BE37E3B12A9D95E3E17B700452
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35063.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35063.jpgsave_picture_35063.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Waves Ultimate 2024.11.29 VST, VST 3, AAX, STANDALONE (x64) RePack by R2R [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35064.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35064.jpgsave_picture_35064.jpg" />
 </div>
 
 

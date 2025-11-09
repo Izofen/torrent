@@ -6,7 +6,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74449.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74449.jpgsave_picture_74449.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74454.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74454.jpgsave_picture_74454.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74456.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74456.jpgsave_picture_74456.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74474.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74474.jpgsave_picture_74474.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:AA369209DB2C3C3362E74AA25EB518D990F35716
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74500.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74500.jpgsave_picture_74500.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:87272A88A5E33B8AE962B1FB729F9369BC4653C0
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74506.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74506.jpgsave_picture_74506.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:87272A88A5E33B8AE962B1FB729F9369BC4653C0
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74513.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74513.jpgsave_picture_74513.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:EC96A0E5CFC86A6BBE839EE36CE9EAD39BB1A135
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74514.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74514.jpgsave_picture_74514.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ PLASTICZOOMS -  6 альбомов (2009-2012) Дискография [MP3|192, 
 >>Asian Rock, Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74516.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74516.jpgsave_picture_74516.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ The Rolling Stones: Let's Spend the Night Together (1981/2011) [1080p] Blu-ray
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74518.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74518.jpgsave_picture_74518.jpg" />
 </div>
 
 
@@ -262,7 +262,7 @@ The Rolling Stones: Let's Spend the Night Together (1981/2011) [1080p] Blu-ray
 >>Веб-дизайн
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74519.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74519.jpgsave_picture_74519.jpg" />
 </div>
 
 
@@ -290,7 +290,7 @@ magnet:?xt=urn:btih:680D09B76DDE765E92D6C26E1D113E4F33AA799C
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74524.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74524.jpgsave_picture_74524.jpg" />
 </div>
 
 
@@ -314,7 +314,7 @@ magnet:?xt=urn:btih:F3285618BAB1A350E6CEE53D6C94E3772FEEB719
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74528.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74528.jpgsave_picture_74528.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ magnet:?xt=urn:btih:F3285618BAB1A350E6CEE53D6C94E3772FEEB719
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74533.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74533.jpgsave_picture_74533.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ magnet:?xt=urn:btih:F3285618BAB1A350E6CEE53D6C94E3772FEEB719
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74540.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74540.jpgsave_picture_74540.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ magnet:?xt=urn:btih:B0FB0A490FE94F80FE32E0B0BDD2C111F030E64D
 >>Мобильное Видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74545.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74545.jpgsave_picture_74545.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ magnet:?xt=urn:btih:B0FB0A490FE94F80FE32E0B0BDD2C111F030E64D
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74547.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74547.jpgsave_picture_74547.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:9A879CE11AEDDAB9B2ACC52981BE83EA8E0C237D
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74548.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74548.jpgsave_picture_74548.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ magnet:?xt=urn:btih:C6184011BEDB552935EC9C39341BE9045F7D2C86
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74551.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74551.jpgsave_picture_74551.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ magnet:?xt=urn:btih:A692AAEA3E36AA497373CFF71A5B6ABF61709598
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74553.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74553.jpgsave_picture_74553.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ magnet:?xt=urn:btih:A692AAEA3E36AA497373CFF71A5B6ABF61709598
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74557.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74557.jpgsave_picture_74557.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ magnet:?xt=urn:btih:812EF4F243CBAA093FF5307B9BBCD661C894C4A7
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74558.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74558.jpgsave_picture_74558.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ The Secret of Monkey Island: Special Edition [Ru/En] (RePack) 2009 | R.G. Мех
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74563.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74563.jpgsave_picture_74563.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ Microsoft Windows 7 Ultimate SP1 x86 ru OPTIM v.3
 >>30
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74570.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74570.jpgsave_picture_74570.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ Microsoft Windows 7 Ultimate SP1 x86 ru OPTIM v.3
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74581.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74581.jpgsave_picture_74581.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ magnet:?xt=urn:btih:7920303E8FBF9F9848EA17F03EEE5AECC3898E02
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74584.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74584.jpgsave_picture_74584.jpg" />
 </div>
 
 

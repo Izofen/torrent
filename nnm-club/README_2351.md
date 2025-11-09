@@ -6,7 +6,7 @@ Macrorit Disk Scanner 6.7.2 Unlimited Edition RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61493.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61493.jpgsave_picture_61493.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ CrystalMark Retro 1.0.0 RC2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61494.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61494.jpgsave_picture_61494.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:A45955A09C6C14DC10124DCB67418F3C5D875394
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61495.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61495.jpgsave_picture_61495.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ ExtraDisks 24.3.1 Home [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61496.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61496.jpgsave_picture_61496.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ VA - Electronic compilation part 66 (2024) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61497.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61497.jpgsave_picture_61497.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:72E72600646F55CABEAFB82E2372C5A33DAE29A8
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61498.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61498.jpgsave_picture_61498.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:8D3F52B06F1499B8E668D8C7BB2642309607F777
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61499.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61499.jpgsave_picture_61499.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:1EDDD7BC99BCB57842B8888D68D811BBE51B0C3B
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61500.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61500.jpgsave_picture_61500.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:91E9FD548DE0CAC72FD6750F9B80E234C077D513
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61501.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61501.jpgsave_picture_61501.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:66249AFCE2D441E409B5AA551C2F1C1B057AE38B
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61502.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61502.jpgsave_picture_61502.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ MediaInfo 24.03 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61503.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61503.jpgsave_picture_61503.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Psiphon 3 build 181 (27.03.2024) Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61504.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61504.jpgsave_picture_61504.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:F2AACB66524B5CEFBA87F8CA93BFA9DF6C5C3CA2
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61505.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61505.jpgsave_picture_61505.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ LibreOffice 7.6.6.3 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61506.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61506.jpgsave_picture_61506.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ MediaHuman YouTube Downloader 3.9.9.90 (0321) RePack (& Portable) by TryRooM [Mu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61507.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61507.jpgsave_picture_61507.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Topaz Gigapixel AI 7.0.5 (x64) RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61508.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61508.jpgsave_picture_61508.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ magnet:?xt=urn:btih:AF82AAA33CCDB4FA760CA21B187FEBDBAE777D21
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61509.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61509.jpgsave_picture_61509.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ magnet:?xt=urn:btih:F3ACFFAAF7C2E1DD611232B3495DFEFD485CDD97
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61510.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61510.jpgsave_picture_61510.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ LibreOffice 24.2.2.2 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61511.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61511.jpgsave_picture_61511.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Room Arranger 9.8.3.645 RePack (& Portable) by TryRooM [Multi/Ru]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61512.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61512.jpgsave_picture_61512.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Elmedia Player Pro 8.18 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61513.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61513.jpgsave_picture_61513.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:D7F9185B6932C8F4163C4E78DBC5E934F9721242
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61514.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61514.jpgsave_picture_61514.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ DEVONthink Pro 3 Office/Server 3.9.6 U2B [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61515.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61515.jpgsave_picture_61515.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ DJ Aurm - Compilation Version 2 (2024) [MP3|320 Kbps] <Instrumental, Piano, Elec
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61516.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61516.jpgsave_picture_61516.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ magnet:?xt=urn:btih:0CCE7AA6DB4A5B428982E351249CCC4331AD0967
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61517.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61517.jpgsave_picture_61517.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Deep Purple - Machine Head (Remix 2024, Remaster 2024) (1972) Remix, Remaster, 2
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61518.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61518.jpgsave_picture_61518.jpg" />
 </div>
 
 

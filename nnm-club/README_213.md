@@ -6,7 +6,7 @@
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5607.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5607.jpgsave_picture_5607.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:2F0C2EA039702A69D7E9DE4FFCA09588C499CB8A
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5609.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5609.jpgsave_picture_5609.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:C1383E2DB1E947BB87F119935F4611265FA9A1D8
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5610.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5610.jpgsave_picture_5610.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ Herdling (2025) [Ru/Multi] (1.2.3.p) Repack Let'sРlay [Complete Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5611.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5611.jpgsave_picture_5611.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:D9B63E6F3293C98D96BE3A1F6E81B1345814F150
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5612.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5612.jpgsave_picture_5612.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:6DDC2C9EBBF46129E9A876C111ECAD79A2DF5034
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5613.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5613.jpgsave_picture_5613.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:D9370CE9B79827E42A8445C5B0B96ED89326C4BE
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5614.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5614.jpgsave_picture_5614.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ Adobe Premiere Pro 2025 25.4.1.3 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5615.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5615.jpgsave_picture_5615.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:ABDA11F05B0EBF4D6D47CFA8F67970BE35A51F8A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5617.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5617.jpgsave_picture_5617.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Forgotten Realms: Demon Stone (2025) [Ru/Multi] (BuildID 19330718) Repack FitGir
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5618.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5618.jpgsave_picture_5618.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Adobe Acrobat Pro 2025.001.20643 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5619.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5619.jpgsave_picture_5619.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Space Adventure Cobra - The Awakening (2025) [Multi] (0.01.35/dlc) Repack Let's�
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5620.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5620.jpgsave_picture_5620.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ magnet:?xt=urn:btih:FE127468FE390B2416EAAFF3ED2B9073FD7DEDDE
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5621.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5621.jpgsave_picture_5621.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ magnet:?xt=urn:btih:7CB587027CA8F15DA9B873145ED7807D6FEF56A9
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5622.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5622.jpgsave_picture_5622.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ magnet:?xt=urn:btih:7F57C068E6F8C6E8263B58984891F01B6BC31E8C
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5623.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5623.jpgsave_picture_5623.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ Aurelia (2024) [Ru/Multi] (1.0.1) Repack Let'sРlay [18+]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5624.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5624.jpgsave_picture_5624.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ magnet:?xt=urn:btih:AC92A84224079114DF118A7DD9E24B99EE72E253
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5625.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5625.jpgsave_picture_5625.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ magnet:?xt=urn:btih:5805EE947347133C6261BC5B619FACA91E9811EC
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5626.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5626.jpgsave_picture_5626.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ magnet:?xt=urn:btih:CC4A2EAED5FD210CB3329BA4B2AA200B554265BF
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5627.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5627.jpgsave_picture_5627.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Enemy Front (2014) [Ru/Multi] (1.0/dlc) Repack Let'sРlay
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5628.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5628.jpgsave_picture_5628.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ magnet:?xt=urn:btih:38DDD4563F211074CEDEC2EE59898F281E0CCE7D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5629.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5629.jpgsave_picture_5629.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ VA - Party Mix 80s 90s 00s 10s 20s (2025) [MP3|320 Kbps] <Pop, Dance, Disco, Roc
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5630.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5630.jpgsave_picture_5630.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ magnet:?xt=urn:btih:6A2EA0F2F6F7EB216424993DB927ACAA6C406052
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5631.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5631.jpgsave_picture_5631.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ BROK The InvestiGator (2022) [Ru/Multi] (1.5.3.7/dlc) License GOG [Deluxe Editio
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5632.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5632.jpgsave_picture_5632.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ magnet:?xt=urn:btih:86A1657B53A0FB31E7FF41F72E55338D0278ABC4
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5633.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5633.jpgsave_picture_5633.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ magnet:?xt=urn:btih:50FC16AA2B4D943D48DF52A1802BC097F030EA8C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5634.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5634.jpgsave_picture_5634.jpg" />
 </div>
 
 

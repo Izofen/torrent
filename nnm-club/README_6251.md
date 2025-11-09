@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196065.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196065.jpgsave_picture_196065.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:3B18E210EAD4D858F05E3796D286BB9CB2352120
 >>Старые Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_196066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196066.jpgsave_picture_196066.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:7E29AC60D34EACE4FED79C07D0C7678E27F01B8B
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_196067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196067.jpgsave_picture_196067.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:5DAB3FBB38906D73F64F61D97C76E503B19B58B7
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196068.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196068.jpgsave_picture_196068.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:8AF5AA960A0B1FCA3E54DEE20F70E715D28A179C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196069.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196069.jpgsave_picture_196069.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Windows 7 SP1 5in1 (x64) Elgujakviso Edition (v.05.07.23) [Ru]
 >>Сборки Windows 7
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196070.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196070.jpgsave_picture_196070.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ AOMEI Partition Assistant Technician Edition 10.1.0 RePack (& Portable) by elchu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196071.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196071.jpgsave_picture_196071.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:32ACF9369452F98EE791FDE0F961BBE72D021A5F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196072.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196072.jpgsave_picture_196072.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:774E2BC7740335773D2790D7E62009E389672DC1
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196073.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196073.jpgsave_picture_196073.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:D48CF4D879926F076266D2F835184B17A687E928
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196074.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196074.jpgsave_picture_196074.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:E9A058EBE25028659EDED65A60BA3B49BFCCEBE8
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196076.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196076.jpgsave_picture_196076.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:61132EA1FEBE8AF43F9307073F7439F09685301D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196077.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196077.jpgsave_picture_196077.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Kaminaki Sekai no Kamisama Katsudou / KamiKatsu: Working for God in a Godless Wo
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_196078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196078.jpgsave_picture_196078.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ magnet:?xt=urn:btih:1059F72B6FBB57D017AEDA4D03E1525E619E88B5
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196079.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196079.jpgsave_picture_196079.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ EaseUS Data Recovery Wizard Technician 16.2.0.0 RePack (& Portable) by Dodakaedr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196080.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196080.jpgsave_picture_196080.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ magnet:?xt=urn:btih:63E774F297B35E324C29BEE5F82B1C058283943F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196081.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196081.jpgsave_picture_196081.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ magnet:?xt=urn:btih:25E59CAC800B3A6A95D8B6334AEE1E74304096BC
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_196082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196082.jpgsave_picture_196082.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ magnet:?xt=urn:btih:2821D9FE0AD062088C8B83A4528B5141AB2E6F10
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196083.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196083.jpgsave_picture_196083.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ magnet:?xt=urn:btih:505892203CBCA21404FF45CB6B1D7B52D9A965C8
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196084.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196084.jpgsave_picture_196084.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ magnet:?xt=urn:btih:A2821ED9E49BA268C4B994A32D8D52202EE7E63E
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_196085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196085.jpgsave_picture_196085.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ magnet:?xt=urn:btih:14504DBEF36CE7B53B0F91E8C0AC81D72FA5975B
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_196086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196086.jpgsave_picture_196086.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Ubuntu*Pack 20.04 GNOME (май 2023) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196087.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196087.jpgsave_picture_196087.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ magnet:?xt=urn:btih:9B5D53AE5EBD66D4BFEAA5FB42CE1FAB84B1F964
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196088.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196088.jpgsave_picture_196088.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ AMD Radeon Software Adrenalin Edition 23.7.1 WHQL [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196089.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196089.jpgsave_picture_196089.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ magnet:?xt=urn:btih:923CD9FAB4AE41763763B90CA7356C2C82893039
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196090.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196090.jpgsave_picture_196090.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ magnet:?xt=urn:btih:1E080CDC87CEBD982DD7B302FD82D99CF9D972AF
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196092.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196092.jpgsave_picture_196092.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111023.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111023.jpgsave_picture_111023.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:BF8C78D79458B8FB5E109E4F0BCF976F9FA39E2B
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111024.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111024.jpgsave_picture_111024.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Finch - Glory of the Inner Force / Galleons of Passion (1975&1977) [FLAC|Lossles
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111025.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111025.jpgsave_picture_111025.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ Adrenochrome - The Grove (2024) [FLAC|Lossless|WEB-DL|tracks] <Death Metal, Grin
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111026.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111026.jpgsave_picture_111026.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ Pat Martino - Live! (1972) 1992, Muse Records [FLAC|Lossless|tracks + .cue] <Pos
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111027.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111027.jpgsave_picture_111027.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ Asagraum - Dawn of Infinite Fire (2019) [FLAC|Lossless|tracks + .cue] <Black Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111028.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111028.jpgsave_picture_111028.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ magnet:?xt=urn:btih:A6F23A646606CFAF9E0223E075F8C2D4D69A99C0
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111029.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111029.jpgsave_picture_111029.jpg" />
 </div>
 
 
@@ -187,7 +187,7 @@ Jesse Cotton Stone - Welcome to the Hell Country (2024) [FLAC|Lossless|WEB-DL|tr
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111030.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111030.jpgsave_picture_111030.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Lightnin' Charlie - Life (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111031.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111031.jpgsave_picture_111031.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ magnet:?xt=urn:btih:984583A5960930CF292031C92D118E8CD0F7AF39
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111032.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111032.jpgsave_picture_111032.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ De Novo Blvd - Bourbon Street (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111033.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111033.jpgsave_picture_111033.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Ronny Smith - Struttin (2024) [FLAC|Lossless|WEB-DL|tracks] <Contemporary Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111034.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111034.jpgsave_picture_111034.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Chicago Mike Beck - LOVE! It's About Time (2024) [FLAC 24/44.1|Lossless|WEB-DL|t
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111035.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111035.jpgsave_picture_111035.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Vanessa Peters - Flying On Instruments (2024) [FLAC 24/96|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111036.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111036.jpgsave_picture_111036.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Framing the Red - Three To Get Ready (2024) [FLAC|Lossless|WEB-DL|tracks] <South
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111037.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111037.jpgsave_picture_111037.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Anthony Geraci - Tears in My Eyes (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111038.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111038.jpgsave_picture_111038.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Praying Mantis - Defiance (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111039.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111039.jpgsave_picture_111039.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Pontchartrain Shakers - Pontchartrain Shakers (2024) [FLAC 24/48|Lossless|WEB-DL
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111040.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111040.jpgsave_picture_111040.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ magnet:?xt=urn:btih:AE3401CE39426D2531A10957046952C48CF50F97
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111041.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111041.jpgsave_picture_111041.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Zoot Sims - Swing King! (1947 - 1953) 2CD, 2004, Proper Records [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111042.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111042.jpgsave_picture_111042.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Arne Skage - Rootwork (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111043.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111043.jpgsave_picture_111043.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Guenna - Peak of Jin'Arrah (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Hard Rock
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111044.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111044.jpgsave_picture_111044.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Die Ballista - Burial Bell (2024) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <doommet
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111045.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111045.jpgsave_picture_111045.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Asgaia - Death Board (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111046.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111046.jpgsave_picture_111046.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Alene Misantropi - Absence of Light (2016) [FLAC|Lossless|WEB-DL|tracks] <Depres
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111047.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111047.jpgsave_picture_111047.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ Paul Motian - Monk In Motian (1988) JMT [FLAC|Lossless|tracks + .cue] <Post-Bop,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111048.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111048.jpgsave_picture_111048.jpg" />
 </div>
 
 

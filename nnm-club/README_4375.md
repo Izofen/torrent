@@ -6,7 +6,7 @@ Kerry Charles - It'll Be Over Soon (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136790.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136790.jpgsave_picture_136790.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:EF58AEA0BB85A1918810957CE9DFE6E46D088804
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136791.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136791.jpgsave_picture_136791.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:4514E57C652987E72FC09BB7B78AB946983445C4
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136792.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136792.jpgsave_picture_136792.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ VA - Dark Amsterdam 2025 (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136793.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136793.jpgsave_picture_136793.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Kerosene 454 - At Zero (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136794.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136794.jpgsave_picture_136794.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ VA - A State of Trance - Classics Top 10, Vol. 6 (2025) [FLAC|Lossless|WEB-DL|tr
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136795.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136795.jpgsave_picture_136795.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ magnet:?xt=urn:btih:3ED6B602CF37CCC4314625D680F8086A21546CBF
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136796.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136796.jpgsave_picture_136796.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ Justin Runyon - Swirl (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136797.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136797.jpgsave_picture_136797.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ VMware Workstation Pro 25H2 25.0.0.24995812 [En] [x64] (bundle)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136798.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136798.jpgsave_picture_136798.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ magnet:?xt=urn:btih:6A1FBD24467E4172B75013082CC7FB05C962CBEA
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136799.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136799.jpgsave_picture_136799.jpg" />
 </div>
 
 
@@ -262,7 +262,7 @@ magnet:?xt=urn:btih:E59F5B9EFBA25A8CA5CB8F3A74177AB15BD1D21A
 >>Отечественные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136800.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136800.jpgsave_picture_136800.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ Windows 11 Pro/Ent by OneSmiLe 25H2 build 26200.6899 [Ru]
 >>Сборки Windows 11
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136801.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136801.jpgsave_picture_136801.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ magnet:?xt=urn:btih:39E177198CF5B9FC63CD0DAD6468AE6125374DCF
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136802.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136802.jpgsave_picture_136802.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ PALLADIUM Electric Band - Energy (2011) [MP3|256 Kbps] <Instrumental, Classical 
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136803.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136803.jpgsave_picture_136803.jpg" />
 </div>
 
 
@@ -364,7 +364,7 @@ Jay Parrino - Cover Recovery 2 (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136804.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136804.jpgsave_picture_136804.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ PALLADIUM Electric Band - Taboo (2012) [MP3|256 Kbps] <Instrumental, Classical C
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136805.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136805.jpgsave_picture_136805.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Jaret Miner - Leave Your Heart (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136806.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136806.jpgsave_picture_136806.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ Hollow Rhyme - Inns Fuel & Ale (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136807.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136807.jpgsave_picture_136807.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ Hammy Haze - Hammy Haze's Adult Radio Vol I (2025) [FLAC 24/44.1|Lossless|WEB-DL
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136808.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136808.jpgsave_picture_136808.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ magnet:?xt=urn:btih:45B76F61D1D6279047EEAE879123E23FBB38A23F
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136809.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136809.jpgsave_picture_136809.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ magnet:?xt=urn:btih:7D66EF367122B331839E7AF4A65BDE90B9DA9BD6
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136810.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136810.jpgsave_picture_136810.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ magnet:?xt=urn:btih:3262DBB1C21E6AE170C0B0A3383202828348FD2D
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136811.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136811.jpgsave_picture_136811.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Gothik Serpent - The Examination II (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136812.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136812.jpgsave_picture_136812.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ magnet:?xt=urn:btih:7C3CC15EDFF0C0A4F85C9FE2FFEA94F475C4EC24
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136813.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136813.jpgsave_picture_136813.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ magnet:?xt=urn:btih:F28AB238928702FC8384BC8CFD08FAD18EEB833F
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136814.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136814.jpgsave_picture_136814.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ magnet:?xt=urn:btih:93A3A4C9E7F14A02CA95D35815CC22B9D95285BD
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136815.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136815.jpgsave_picture_136815.jpg" />
 </div>
 
 

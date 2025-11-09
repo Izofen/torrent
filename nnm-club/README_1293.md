@@ -6,7 +6,7 @@ Dark Lightning - Studio Albums (2 releases) (2023-2024) hand made [restored, dec
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33973.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33973.jpgsave_picture_33973.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Kai Strauss - Wailin' In Vienna (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Bl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33974.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33974.jpgsave_picture_33974.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Nico Wayne Toussaint - With Love From Clarksdale (2024) [FLAC 24/88.2|Lossless|W
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33975.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33975.jpgsave_picture_33975.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ magnet:?xt=urn:btih:2940DFBBCE1303E8C2C5C4BF7B519E1A92CE550D
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33976.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33976.jpgsave_picture_33976.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ magnet:?xt=urn:btih:9C64D0D37C7F36F1254E2CC4C5BDFD25F447D3CA
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33977.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33977.jpgsave_picture_33977.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Ulrich Ellison - Momentum (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33978.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33978.jpgsave_picture_33978.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Wehmut - Flüstern der Freiheit (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33979.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33979.jpgsave_picture_33979.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ magnet:?xt=urn:btih:99E4893A69080E837601A5AAE82D15B4D272A3DE
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33980.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33980.jpgsave_picture_33980.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ After Inc. v1.0.5 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33981.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33981.jpgsave_picture_33981.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ magnet:?xt=urn:btih:C3D2A550A3A57618FB1BC4ECD3A3C07D3D278396
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33982.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33982.jpgsave_picture_33982.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Stardew Valley 1.6.14.11 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33983.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33983.jpgsave_picture_33983.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ PDF24 Creator 11.22 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33984.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33984.jpgsave_picture_33984.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ magnet:?xt=urn:btih:B6D9F04148D0FED070CA0E4DD1080AD84B5581B7
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33985.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33985.jpgsave_picture_33985.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ magnet:?xt=urn:btih:A4D8239BF2E6CF6964B10D697F93F064EB243E2B
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33986.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33986.jpgsave_picture_33986.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ magnet:?xt=urn:btih:57FB0FECD653207A951252D8F3587D3646F53452
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33987.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33987.jpgsave_picture_33987.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ magnet:?xt=urn:btih:09F206B895294706BFAA61518D8F4BDDF0F427B7
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33988.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33988.jpgsave_picture_33988.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ magnet:?xt=urn:btih:DB2B93728F3749B398B8463040B271CDA6D83A2B
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33989.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33989.jpgsave_picture_33989.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ magnet:?xt=urn:btih:334C1FDBCC5CE77AA485A128683B12F287E164F7
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33990.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33990.jpgsave_picture_33990.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Tiny Room Stories Town Mystery v2.6.26 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33991.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33991.jpgsave_picture_33991.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ magnet:?xt=urn:btih:E560D21B3664B03DCA7D100712D03913812C2FF4
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33992.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33992.jpgsave_picture_33992.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ magnet:?xt=urn:btih:BFEB5361E6F3FFE95A664FFA53E39413C3D626BE
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33993.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33993.jpgsave_picture_33993.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ magnet:?xt=urn:btih:C75548FFBF8E233C884E32DC2A748A6301556313
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33994.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33994.jpgsave_picture_33994.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ magnet:?xt=urn:btih:452AAA5F5ACDFD242D8026D7AFC9D480EF09A52C
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33995.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33995.jpgsave_picture_33995.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ magnet:?xt=urn:btih:9A8BC436A4E98C49DAFB05263869D2D1BB3D328B
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33996.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33996.jpgsave_picture_33996.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Nazareth - Rampant (1974) SHM-CD, Japanese Edition, Reissue, Remastered, 2024, B
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33997.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33997.jpgsave_picture_33997.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ magnet:?xt=urn:btih:920D44C4C35BB4422F31E0488A99006E202728E6
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33998.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33998.jpgsave_picture_33998.jpg" />
 </div>
 
 

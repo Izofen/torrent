@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240187.jpgsave_picture_240187.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:C70295C9D7CE290DFCBBDFF4F64EF355F833B483
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240203.jpgsave_picture_240203.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:FD904C615109261F9F17A2790B5CCDD44669D27A
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240216.jpgsave_picture_240216.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:1C70793F2B4574A9F0522FE6F9FB576F2E0C206E
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240285.jpgsave_picture_240285.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:14F9DC6D9C19736D08A2705445D5A4C52FA1AD8A
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240354.jpgsave_picture_240354.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:14959426EE021CDFFAF8B13946F54801C981FB4B
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240382.jpgsave_picture_240382.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:971B2D4681EF992701F45B2ABA00F26880FC3C18
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240428.jpgsave_picture_240428.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:E3A0BD3D69FF33BDAC9583B060BDE8FE67C178C8
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240521.jpgsave_picture_240521.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:276B8804DBFFFD25DF115F9826F4AB7AF16EB2E7
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240607.jpgsave_picture_240607.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:ABB7862517E8EE1EADD3707279AF163B184761F6
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240608.jpgsave_picture_240608.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ magnet:?xt=urn:btih:898DB66C2FF0FB87F97BD8198BC7692539F9964E
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240749.jpgsave_picture_240749.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ magnet:?xt=urn:btih:4F254F8AFAB04DA9CECC122AD5B489A448EBA130
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240818.jpgsave_picture_240818.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ magnet:?xt=urn:btih:DD69CFA1462C51BFD76286899748A6912B1E1049
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240839.jpgsave_picture_240839.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ magnet:?xt=urn:btih:08D579A44E50534DF2200DF3A0597E7ED48B0EDD
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240923.jpgsave_picture_240923.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ magnet:?xt=urn:btih:85C5443D3C2B7C6829B1E26B847F428EB11E0AA6
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240942.jpgsave_picture_240942.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ magnet:?xt=urn:btih:E893A044CBD234726454B255196AE52C4423B210
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241054.jpgsave_picture_241054.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ magnet:?xt=urn:btih:B55792A8545943BE0F379945E4932E164397F95C
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241354.jpgsave_picture_241354.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ magnet:?xt=urn:btih:C79BD8CD42702347EFD0B14236C94E94329E6DA2
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241399.jpgsave_picture_241399.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ magnet:?xt=urn:btih:764F8926DB1E461D803341770B1BB5391C577104
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241432.jpgsave_picture_241432.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ magnet:?xt=urn:btih:2DE9B1A90E884E014DAB44982B0CDAA7279DEE06
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241440.jpgsave_picture_241440.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ magnet:?xt=urn:btih:A729CEB3BBCFBC5B4C9E58F5E3ED111DD167B117
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241485.jpgsave_picture_241485.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ magnet:?xt=urn:btih:42C3EC1157649A0A62343822DFAA35A79537FECA
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241496.jpgsave_picture_241496.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ magnet:?xt=urn:btih:84459764EA5DBE06008CC3FFF599CE5696478338
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241540.jpgsave_picture_241540.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ magnet:?xt=urn:btih:C06B5D9BAA3A0D9E48F87F326F7B5CE82495451D
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241584.jpgsave_picture_241584.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ magnet:?xt=urn:btih:3254FB3ADCEE12854A3DB46A133ADC9A371CF80C
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241601.jpgsave_picture_241601.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ magnet:?xt=urn:btih:377049E824121C51AAB515D165C6DD165A196F6F
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241639.jpgsave_picture_241639.jpg" />
 </div>
 
 

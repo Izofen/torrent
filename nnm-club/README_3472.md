@@ -6,7 +6,7 @@ Danko Jones - Electric Sounds (2023) Deluxe Version, 2024, AFM Records [FLAC 24/
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110633.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110633.jpgsave_picture_110633.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Chilled Jazz Masters - Mocha Rythm (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110634.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110634.jpgsave_picture_110634.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ U.D.O. - Dominator (2009) Reissue, 2017, AFM Records [FLAC|24/192|image + .cue|V
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110635.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110635.jpgsave_picture_110635.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Vanden Plas - The Empyrean Equation Of The Long Lost Things (2024) [FLAC|Lossles
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110636.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110636.jpgsave_picture_110636.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ magnet:?xt=urn:btih:A6242D8D6355BC2594566585F9E5895744E507F8
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110637.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110637.jpgsave_picture_110637.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ magnet:?xt=urn:btih:A6242D8D6355BC2594566585F9E5895744E507F8
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110638.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110638.jpgsave_picture_110638.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ magnet:?xt=urn:btih:B1393F781AE68469159A3EAA9DE3B20FE0511565
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110639.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110639.jpgsave_picture_110639.jpg" />
 </div>
 
 
@@ -187,7 +187,7 @@ Text Editor Pro 29.1.0 + Portable + Bonus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110640.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110640.jpgsave_picture_110640.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ magnet:?xt=urn:btih:4AEE79890F363065A72E31F26E66CC8B7F5DF453
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110641.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110641.jpgsave_picture_110641.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ File & Image Uploader 8.4.2 Portable + Skins [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110642.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110642.jpgsave_picture_110642.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ MotoGP. Этап 04 из 21. Гран-при Испании. Гонка (28.04.2
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110643.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110643.jpgsave_picture_110643.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ magnet:?xt=urn:btih:301A8F230F07405C1FB6E6A7228D5A92DA6AE7C4
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110644.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110644.jpgsave_picture_110644.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ magnet:?xt=urn:btih:E97FBDFA98E3BEBBA51C2CE29344823DE5026D3F
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110645.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110645.jpgsave_picture_110645.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ magnet:?xt=urn:btih:39C82009CD71B00E8B686F20E38085DABBD6A1B8
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110646.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110646.jpgsave_picture_110646.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ magnet:?xt=urn:btih:228DFCAE1B1E386DF47D6B8D838BDC0C0D479423
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110647.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110647.jpgsave_picture_110647.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Transatlantic - Live at Morsefest 2022: The Absolute Whirlwind (2024) Live at Mo
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110648.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110648.jpgsave_picture_110648.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Stephen Sanchez - Angel Face (2024) Club Deluxe [FLAC|Lossless|WEB-DL|tracks] <P
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110649.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110649.jpgsave_picture_110649.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ magnet:?xt=urn:btih:FC839A05F7F77E6246FFACF656DA11E1724691F6
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110650.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110650.jpgsave_picture_110650.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ Instrumental Wedding Music Zone, Jazz Erotic Lounge Collective - Wedding Night E
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110651.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110651.jpgsave_picture_110651.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ magnet:?xt=urn:btih:2A17C6A911F069B3B9E951E1991B7638C8C94D4F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110652.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110652.jpgsave_picture_110652.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ magnet:?xt=urn:btih:2A17C6A911F069B3B9E951E1991B7638C8C94D4F
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110653.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110653.jpgsave_picture_110653.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Half Past Two - Talk Is Killing Me (2024) [FLAC|Lossless|WEB-DL|tracks] <Ska-Pun
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110654.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110654.jpgsave_picture_110654.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Marina Kaye - Heavenbound (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110655.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110655.jpgsave_picture_110655.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ magnet:?xt=urn:btih:2EBBBB5F789A2608025BBB01DCBF04E04FEC01D5
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110656.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110656.jpgsave_picture_110656.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ magnet:?xt=urn:btih:2537830807EE7ACFBF13E3DEF6ACB9E650D08BF6
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110657.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110657.jpgsave_picture_110657.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ magnet:?xt=urn:btih:26485D0C10C2F5772E2D2C8C75D51D0849DD839C
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110658.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110658.jpgsave_picture_110658.jpg" />
 </div>
 
 

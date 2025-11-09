@@ -6,7 +6,7 @@ QLab 5.3.7 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112142.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112142.jpgsave_picture_112142.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:EE955D4F4FAE824C9B3DB8D0FE48D369A874AF27
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112143.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112143.jpgsave_picture_112143.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Bigasoft FLAC Converter for Mac 5.8.0 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112144.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112144.jpgsave_picture_112144.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:C62C3BC24D71778BE5E5F9D88E178E2362CDF26B
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112145.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112145.jpgsave_picture_112145.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:C26E2A7B40E5A6383A81869103B4FEE695AA5064
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112146.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112146.jpgsave_picture_112146.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:1CEAC54F730A38950A75A5FAB945F203CC0519A2
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112147.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112147.jpgsave_picture_112147.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:AAB9193A1F6DCC130333C99C6F0D104D6C455EB9
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112148.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112148.jpgsave_picture_112148.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:D89EA03D0808DFD54082BE283716F7CF00634D7F
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112150.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112150.jpgsave_picture_112150.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Rapture - Silent Stage (2005) Limited Edition, Reissue, 2018, Alone Records [FLA
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112151.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112151.jpgsave_picture_112151.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ Tad Morose - March of the Obsequious (2022) [FLAC|Lossless|image + .cue] <Progre
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112152.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112152.jpgsave_picture_112152.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ Tad Morose - Chapter X (2018) [FLAC|Lossless|image + .cue] <Progressive Metal, P
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112153.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112153.jpgsave_picture_112153.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ Teutonic Slaughter - Puppeteer of Death (2018) [FLAC|Lossless|image + .cue] <Thr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112154.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112154.jpgsave_picture_112154.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ Tad Morose - Revenant (2013) [FLAC|Lossless|image + .cue] <Progressive Metal, Po
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112155.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112155.jpgsave_picture_112155.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ Tad Morose - St. Demonius (2015) [FLAC|Lossless|image + .cue] <Progressive Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112156.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112156.jpgsave_picture_112156.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ magnet:?xt=urn:btih:9A91E59F81B5ADC06E5C509F40505980B2FEFE4C
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112157.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112157.jpgsave_picture_112157.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ magnet:?xt=urn:btih:61D539CC4F770061BAE928F0F3BFB5EBF01F603C
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112158.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112158.jpgsave_picture_112158.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ magnet:?xt=urn:btih:72345CC7BB7E761F04C7EEADA22DE52788F56A9B
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112160.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112160.jpgsave_picture_112160.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Winter Blues Band - Tale of a Lone Lil' Boy (2024) [FLAC|Lossless|WEB-DL|tracks]
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112161.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112161.jpgsave_picture_112161.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ magnet:?xt=urn:btih:61E834A1A63A40663B4AB556C6EA965C7D8F69B1
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112163.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112163.jpgsave_picture_112163.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ The Disco Biscuits - Revolution in Motion (2024) [FLAC 24/44.1|Lossless|WEB-DL|t
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112164.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112164.jpgsave_picture_112164.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ Grover Washington, Jr. - Time Out Of Mind (1989) [FLAC|Lossless|image + .cue] <S
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112165.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112165.jpgsave_picture_112165.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ HJirok - HJirok (2024) [FLAC 24/44|Lossless|WEB-DL|tracks] <Pop>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112166.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112166.jpgsave_picture_112166.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ magnet:?xt=urn:btih:92EC125340D01C94F7DFD75276E3BC3B01414059
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112167.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112167.jpgsave_picture_112167.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ magnet:?xt=urn:btih:A7916DD7CF04FB1F01068502A0054A735B4A7985
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112168.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112168.jpgsave_picture_112168.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ Torchia - Arcane Magicae (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112169.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112169.jpgsave_picture_112169.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ Ben Webster - Live! Providence, Rhode Island (1963) 1994, Storyville Records [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112170.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112170.jpgsave_picture_112170.jpg" />
 </div>
 
 

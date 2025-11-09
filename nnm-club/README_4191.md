@@ -6,7 +6,7 @@
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129792.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129792.jpgsave_picture_129792.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Chain Reaction - Коллекция (11 дисков, 27 винилов) (1995-2
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129793.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129793.jpgsave_picture_129793.jpg" />
 </div>
 
 
@@ -65,7 +65,7 @@ Chain Reaction как лейбл-последователь Basic Channel - эт
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129794.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129794.jpgsave_picture_129794.jpg" />
 </div>
 
 
@@ -92,7 +92,7 @@ magnet:?xt=urn:btih:30C6D654F71688F38B24F25A75756418B8720EAB
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129795.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129795.jpgsave_picture_129795.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ magnet:?xt=urn:btih:5FA8EAFDEC6DBBE5289DF22841358F5C5E6DF8CA
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129796.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129796.jpgsave_picture_129796.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ VA - Автозвук От Русских Диджеев (2012) [MP3|224 кб/с
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129797.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129797.jpgsave_picture_129797.jpg" />
 </div>
 
 
@@ -173,7 +173,7 @@ Wise Data Recovery 3.03 Beta + Portable [Мульти, Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129798.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129798.jpgsave_picture_129798.jpg" />
 </div>
 
 
@@ -197,7 +197,7 @@ Dezperadoz - Dead Man's Hand (2012) [APE|Lossless]<Western Metal / Thrash Metal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129799.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129799.jpgsave_picture_129799.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ Dezperadoz - Dead Man's Hand (2012) [APE|Lossless]<Western Metal / Thrash Metal>
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129800.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129800.jpgsave_picture_129800.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ magnet:?xt=urn:btih:5942980038C82D6296D139A572F232F2739F2C17
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129801.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129801.jpgsave_picture_129801.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ Karmamoi - Strings From The Edge of Sound (2023) [FLAC|Lossless|tracks + .cue] <
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129802.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129802.jpgsave_picture_129802.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ Talla 2XLC - All The Dreams I Share (The Vocal Album) (2023) [MP3|320 Kbps] <Tra
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129804.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129804.jpgsave_picture_129804.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ magnet:?xt=urn:btih:A90D88808167AA255D7C20A23A35089F2302E6FD
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129806.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129806.jpgsave_picture_129806.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Amy Winehouse - Stronger Than Me (2003) Remastered, 2023, UMC [FLAC|Lossless|WEB
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129807.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129807.jpgsave_picture_129807.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ magnet:?xt=urn:btih:25DD276A32B0E1C71F648B5FF78CEFE1ED80F233
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129809.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129809.jpgsave_picture_129809.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ Cybotron - Enter (1983) Deluxe Edition, 2023, Craft Recordings [FLAC|Lossless|WE
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129810.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129810.jpgsave_picture_129810.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ magnet:?xt=urn:btih:8ED5E45DECD7494EE46123F724FE9948F89165FB
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129812.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129812.jpgsave_picture_129812.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ magnet:?xt=urn:btih:A87D561CF528B87CA5CC0C06693DC7744CC529CC
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129813.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129813.jpgsave_picture_129813.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ Total Commander 10.0 MAX-Pack 2021.11.30 by Mellomann [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129815.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129815.jpgsave_picture_129815.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ VA - Soft Rock Mix (Female Singer-Songwriters Vol. 1) (2023) [FLAC|Lossless|WEB-
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129817.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129817.jpgsave_picture_129817.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ magnet:?xt=urn:btih:72AAF68F4DAC7F2AC8A82E14776E874B12A2E8F1
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129818.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129818.jpgsave_picture_129818.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ magnet:?xt=urn:btih:F81C691B53C81EDFBC5A3773E14F6F84BEFEA739
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129819.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129819.jpgsave_picture_129819.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ The Big Pink - Future This (2012) [MP3|320 кб/с]<Folk, Indie Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129820.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129820.jpgsave_picture_129820.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ School of Motion, EJ Hassenfratz | Cinema 4D Basecamp (2018) PCRec [En]
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129821.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129821.jpgsave_picture_129821.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ magnet:?xt=urn:btih:D927A98799F6A93DB4736EA81A12E5F2DE9EAD45
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129822.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129822.jpgsave_picture_129822.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ magnet:?xt=urn:btih:66A597A1440129AFC949764D0E0F19B1EFA9FD14
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129823.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129823.jpgsave_picture_129823.jpg" />
 </div>
 
 

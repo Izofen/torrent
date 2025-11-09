@@ -6,7 +6,7 @@ Salome - Salome (2023) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal, atmospheric bl
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127201.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127201.jpgsave_picture_127201.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Seawalker - Overcome (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127202.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127202.jpgsave_picture_127202.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:26AFFD17D0A72D01B2D98A1C1A94A6D092733F04
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127203.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127203.jpgsave_picture_127203.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Liturgy - 93696 (2023) [FLAC|Lossless|WEB-DL|tracks] <Avant-garde Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127204.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127204.jpgsave_picture_127204.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Vore - Lord of Storms & Dead Kings Eyes (2009) Compilation [FLAC|Lossless|WEB-DL
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127205.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127205.jpgsave_picture_127205.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Vox Interium - Yearning (2004) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127206.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127206.jpgsave_picture_127206.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Vore - Gravehammer (2011) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127207.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127207.jpgsave_picture_127207.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ VA - The Best Of Trancemission 2023 [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127208.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127208.jpgsave_picture_127208.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Demon - Night of the Demon (1981) Japanese Edition, Reissue, Remastered, 2020, R
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127209.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127209.jpgsave_picture_127209.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Chet Baker - Chet Baker Sings: It Could Happen To You (1958) 2006, Victor Entert
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127210.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127210.jpgsave_picture_127210.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:4D29C09F8AE67EA8ADCCB19F00B47B5E28E0E36A
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127211.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127211.jpgsave_picture_127211.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Gregory Porter - Christmas Wish (2023) Blue Note [FLAC|Lossless|tracks + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127212.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127212.jpgsave_picture_127212.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Back Road Bourbon - The Other Side of Midnight (2023) [FLAC|Lossless|WEB-DL|trac
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127213.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127213.jpgsave_picture_127213.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ magnet:?xt=urn:btih:354C4E771F7F8592D563E68D79D4CECACA71B23E
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127214.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127214.jpgsave_picture_127214.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ magnet:?xt=urn:btih:066F41038BF73FA2E812FA501EEFCF2E7EE73ABC
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127215.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127215.jpgsave_picture_127215.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ magnet:?xt=urn:btih:47DB60BE72A279CFAA87677C5825DF4B639EE74F
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127216.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127216.jpgsave_picture_127216.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ magnet:?xt=urn:btih:1EC3B9BF1A9C451CAB39A067F7AC7184187F98E9
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127217.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127217.jpgsave_picture_127217.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ magnet:?xt=urn:btih:7283CFC721DF2F25E0B1DFE19ED9EBBCD81B2476
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127218.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127218.jpgsave_picture_127218.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ VA - The Best Of Full On 140 Records 2023 [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127219.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127219.jpgsave_picture_127219.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Checkerboard Lounge - Roller Coaster (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127220.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127220.jpgsave_picture_127220.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ VA - Urban Grooves 3 (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz, Funk, El
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127221.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127221.jpgsave_picture_127221.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Blue Deal - Can't Kill Me Twice (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127222.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127222.jpgsave_picture_127222.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Terri Lyne Carrington - TLC & Friends (1981) 2023, Candid [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127223.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127223.jpgsave_picture_127223.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Ella Fitzgerald - Ella Wishes You A Swinging Christmas (1960) 1988, Verve Record
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127224.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127224.jpgsave_picture_127224.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ Blackwater - Blues Chemistry (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127225.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127225.jpgsave_picture_127225.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ magnet:?xt=urn:btih:00EEA1BBFC2DD2864DE4735656907764D8CFAFFC
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127226.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127226.jpgsave_picture_127226.jpg" />
 </div>
 
 

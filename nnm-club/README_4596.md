@@ -6,7 +6,7 @@ The Lenny Hambro Quintet - The Nature Of Things (1956) Remaster, 2015, Sony Musi
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143876.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143876.jpgsave_picture_143876.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:C81467E5FD31C3B965A72E648FED1218B5E08E8E
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143877.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143877.jpgsave_picture_143877.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:4ECAEE382913B2F42B87CE4E87CF4C37CCF957D4
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143878.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143878.jpgsave_picture_143878.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ MKVToolNix 9.7.1 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143879.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143879.jpgsave_picture_143879.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:2EC3923AC56091B57D736CB1BB537CE3085CE749
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143880.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143880.jpgsave_picture_143880.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Need for Speed: Heat (2019) [Ru] (1.0) Origin-Rip InsaneRamZes [Deluxe Edition]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143881.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143881.jpgsave_picture_143881.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:A2368C7EAF66E0136A7195B9F2D179CFCAA1473A
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143882.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143882.jpgsave_picture_143882.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ magnet:?xt=urn:btih:13215EA26953165730D0EDBC2015E5C7C5728A44
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143883.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143883.jpgsave_picture_143883.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ magnet:?xt=urn:btih:BE9CC4040313A851DD46C7EE41F3CCDECBD9346C
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143884.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143884.jpgsave_picture_143884.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ FreeBSD 9.1 RELEASE [i386] (1xDVD+1xCD+USB IMG+BootOnlyCD)
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143885.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143885.jpgsave_picture_143885.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ FreeBSD разрабатывается как целостная операци�
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143886.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143886.jpgsave_picture_143886.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ FreeBSD разрабатывается как целостная операци�
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143887.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143887.jpgsave_picture_143887.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ BELOFF 2019.12 [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143888.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143888.jpgsave_picture_143888.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ magnet:?xt=urn:btih:455F925A9882618B016743A3B15BD58CDFDA9AAD
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143889.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143889.jpgsave_picture_143889.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ magnet:?xt=urn:btih:E41980AC3CAA59F74CF867E805B9BAD333490BB7
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143890.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143890.jpgsave_picture_143890.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ magnet:?xt=urn:btih:279728AD962DD420BD120B8D724085596DC76AF3
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143891.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143891.jpgsave_picture_143891.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Wes Montgomery - Wes's Best (1960-e) 2019, Resonance Records [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143892.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143892.jpgsave_picture_143892.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ magnet:?xt=urn:btih:AF6174D5019B2934EA3B3855094706D39BDA78CF
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143893.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143893.jpgsave_picture_143893.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ magnet:?xt=urn:btih:CDC7EF9F00054C96D674019BA80F5692C412C990
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143894.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143894.jpgsave_picture_143894.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ magnet:?xt=urn:btih:7F708CF06B1FC95CC26DD6259D7B899432A5A891
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143895.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143895.jpgsave_picture_143895.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ Zомбилэнд: Контрольный выстрел / Zombieland: Double Ta
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143896.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143896.jpgsave_picture_143896.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ magnet:?xt=urn:btih:7AF41160A39D3E1B6597952E7AE9CA9A1FD55A02
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143897.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143897.jpgsave_picture_143897.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ magnet:?xt=urn:btih:DF92F940247B87CC8E67B84E572BC8899C0C9400
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143898.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143898.jpgsave_picture_143898.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ magnet:?xt=urn:btih:EAE11C338029A5DFE1DCD0F7D665AE0B7A57D4D8
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143899.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143899.jpgsave_picture_143899.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ magnet:?xt=urn:btih:484CD1FACF138D3BEE6B56A793DD120F47B5E050
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143900.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143900.jpgsave_picture_143900.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ magnet:?xt=urn:btih:DBA6E37A9799048EFA81B4F41E82F259D0508BE5
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143901.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143901.jpgsave_picture_143901.jpg" />
 </div>
 
 

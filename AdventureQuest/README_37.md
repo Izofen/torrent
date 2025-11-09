@@ -6,7 +6,7 @@ An English Haunting (2024) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53559.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53559.jpgsave_picture_53559.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Scholar's Mate (2024) [Ru/Multi] (14623931) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53576.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53576.jpgsave_picture_53576.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ The Wild at Heart (2021) [Multi] (1.1.9.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53599.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53599.jpgsave_picture_53599.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Three Goblin Wobblin' (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53651.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53651.jpgsave_picture_53651.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ NUKITASHI Дилогия (2023-2024) [Multi] (1.0.1/1.0.2/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53676.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53676.jpgsave_picture_53676.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Alone in the Dark (2024) [Ru/Multi] (1.0.5b/dlc) License GOG [Digital Deluxe Edi
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53800.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53800.jpgsave_picture_53800.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ The Legend of Crystal Valley / Легенда хрустальной долин�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53821.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53821.jpgsave_picture_53821.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Lumnis (2024) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53849.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53849.jpgsave_picture_53849.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ The Medium (2021) [Ru/Multi] (1.0.184) Repack dixen18
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53859.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53859.jpgsave_picture_53859.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ INDIKA (2024) [Ru/Multi] (14207837) Repack dixen18
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53863.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53863.jpgsave_picture_53863.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ The Invincible (2023) [Ru/Multi] (12808193) Repack dixen18
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53870.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53870.jpgsave_picture_53870.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ DETECTIVE - Minerva case (2024) [Multi] (1.0) Scene Tinyiso
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53994.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53994.jpgsave_picture_53994.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Tamarindos Freaking Dinner (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54067.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54067.jpgsave_picture_54067.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Isles of Sea and Sky (2024) [Ru/Multi] (1.0.14493222) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54076.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54076.jpgsave_picture_54076.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Sisters: Last Day of Summer (2024) [En] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54208.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54208.jpgsave_picture_54208.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Duck Detective: The Secret Salami (2024) [En] (1.0.11) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54366.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54366.jpgsave_picture_54366.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Violet (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54412.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54412.jpgsave_picture_54412.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Venatrix (2024) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54448.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54448.jpgsave_picture_54448.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Lesson Learned (2024) [Ru/Multi] (1.023) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54462.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54462.jpgsave_picture_54462.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Echoes (2024) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54463.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54463.jpgsave_picture_54463.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ magnet:?xt=urn:btih:43996294F446E1AF560D50D6063B02BD6D29F091
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54504.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54504.jpgsave_picture_54504.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Harvest Hunt (2024) [Multi] (1.0.1) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54506.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54506.jpgsave_picture_54506.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Assassin's Creed IV: Black Flag (2013) [Ru/Multi] (1.07/dlc) Repack FitGirl [Jac
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54509.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54509.jpgsave_picture_54509.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Starstruck Vagabond (2024) [En] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54798.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54798.jpgsave_picture_54798.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Pre Dusk (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55135.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55135.jpgsave_picture_55135.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Imaginary Friend Asylum (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55210.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55210.jpgsave_picture_55210.jpg" />
 </div>
 
 

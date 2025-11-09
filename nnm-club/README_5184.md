@@ -6,7 +6,7 @@
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161533.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161533.jpgsave_picture_161533.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:4AEA1DA35BF582F026AFD59C4E4AD0309FDEE455
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161534.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161534.jpgsave_picture_161534.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Keep It 2.3.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161535.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161535.jpgsave_picture_161535.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:01A3E84BB18DB86E763BE642796F3D99ACB7E8BA
 >>Звездные войны / Star Wars (сериалы по франшизе)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161536.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161536.jpgsave_picture_161536.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ NG: Становление Кусто / Becoming Cousteau (2021) WEB-DL [H.264/1
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161537.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161537.jpgsave_picture_161537.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:9AF2B1D9742DF15476FB8C8F74EFC6BC47CB981F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161538.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161538.jpgsave_picture_161538.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ UVI - Model D Falcon 1.6 [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161539.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161539.jpgsave_picture_161539.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ UltraISO Premium Edition 9.7.5.3716 [DC 19.12.2020] RePack (& Portable) by KpoJI
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161540.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161540.jpgsave_picture_161540.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:B33BFF3D7A561248557D0F3CAC7B89A783AAEE76
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161541.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161541.jpgsave_picture_161541.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:946FC8139125E4D5B2BC981834375E1A2754D640
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161542.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161542.jpgsave_picture_161542.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Skillbox, Eight, Наиля Синицына и др. | Рекламная фо�
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161543.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161543.jpgsave_picture_161543.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:88E795CCFEDC7F89E3D820E2544B2E843C2E5B1E
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161544.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161544.jpgsave_picture_161544.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ magnet:?xt=urn:btih:ED7E7E2ADEA5D8589E36068BF3D95CB46DD1A324
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161545.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161545.jpgsave_picture_161545.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Gray Zone (2022) [Ru/Multi] (1.9) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161546.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161546.jpgsave_picture_161546.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ magnet:?xt=urn:btih:B30E0E31652485994F272DE7F6973C8C772C1CB8
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161547.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161547.jpgsave_picture_161547.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Foxit Reader 10.1.1.37576 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161548.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161548.jpgsave_picture_161548.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ magnet:?xt=urn:btih:EDA8BA5998B0706B6FB79D6D95A74B0CF6515BC8
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161549.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161549.jpgsave_picture_161549.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ Steganos VPN Online Shield 2.0.12 Revision 13086 (Акция COMSS от 2022.12.
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161550.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161550.jpgsave_picture_161550.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ magnet:?xt=urn:btih:4C8F502166DDC5F2C00F39535FC2926C721C0849
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161551.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161551.jpgsave_picture_161551.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Skabma - Snowfall (2022) [Ru/Multi] (1.1.110) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161552.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161552.jpgsave_picture_161552.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Microsoft Office 2016 Pro Plus + Visio Pro + Project Pro 16.0.5365.1000 VL (x86)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161553.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161553.jpgsave_picture_161553.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:C9BFF30AB86BF50FA7B6636E9A5B967C1D3EF56D
 >>Сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161554.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161554.jpgsave_picture_161554.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ magnet:?xt=urn:btih:D0E48FDBA0721D3A036133020CBC323B4CBB22C5
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161555.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161555.jpgsave_picture_161555.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ magnet:?xt=urn:btih:B4E1E68E3912A0DC852B55202697DF8D9DBCBF2D
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161556.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161556.jpgsave_picture_161556.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ magnet:?xt=urn:btih:73D0A92054243F98EEE78A104602EA4679CFAE12
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161557.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161557.jpgsave_picture_161557.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ magnet:?xt=urn:btih:B94DDACAF2A97488BED9345FFEC6F4EC2E641B7A
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161558.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161558.jpgsave_picture_161558.jpg" />
 </div>
 
 

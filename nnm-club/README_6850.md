@@ -6,7 +6,7 @@ Haunt - Beautiful Distraction (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235376.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235376.jpgsave_picture_235376.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Spring Sampler 2023 (2023) [MP3|320 Kbps] <House, Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235377.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235377.jpgsave_picture_235377.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Lou Ann Barton - Natural Born Lover (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235378.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235378.jpgsave_picture_235378.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:0D541EF59A27F53153812601CFDF2851E252B74F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235379.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235379.jpgsave_picture_235379.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ magnet:?xt=urn:btih:EC38B856906D334B0CD7265D7FCFB2450D85F520
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235380.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235380.jpgsave_picture_235380.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ magnet:?xt=urn:btih:3BF8C33BD6D655123123FE752E42C14A15F9A770
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235381.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235381.jpgsave_picture_235381.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:B978761C9767BB235B27AFAC6632FE19108095F3
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235382.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235382.jpgsave_picture_235382.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ Violent Sin - Serpent's Call (2023) [FLAC|Lossless|WEB-DL|tracks] <Speed Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235383.jpgsave_picture_235383.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ HyperSnap 8.24.03 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235384.jpgsave_picture_235384.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ magnet:?xt=urn:btih:83E06C5FCDB947C7C8C697C6B9A2BB56EEF0C094
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235385.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235385.jpgsave_picture_235385.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ Jeau James - Fated (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235386.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235386.jpgsave_picture_235386.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ TweakNow WinSecret Plus! 4.6.2 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235387.jpgsave_picture_235387.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ Visual Studio Code 1.71.0 + Автономная версия (standalone) [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235388.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235388.jpgsave_picture_235388.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ magnet:?xt=urn:btih:86766379F2742B81E96097B036974CCD1F7AE6FB
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235389.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235389.jpgsave_picture_235389.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ magnet:?xt=urn:btih:1BFBAFA0CE8AB5E126E984DEB01DAAE6ED8674BC
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235390.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235390.jpgsave_picture_235390.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Rebelstar - The Black Widow Anthems (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard R
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235391.jpgsave_picture_235391.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ VA - Songspire Records In Miami 2023 (2023) [MP3|320 Kbps] <House, Progressive H
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235392.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235392.jpgsave_picture_235392.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ Feanor - We Are Heavy Metal (2016) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235393.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235393.jpgsave_picture_235393.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Nemesea - Uprise (2016) [FLAC|Lossless|image + .cue] <Symphonic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235394.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235394.jpgsave_picture_235394.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Udemy, Evgeny Novikov | Создание фреймворка и автомат�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235395.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235395.jpgsave_picture_235395.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ PDF24 Creator 11.12.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235396.jpgsave_picture_235396.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ magnet:?xt=urn:btih:46B700A5C784F2578A01B6BAAD7245EA105BBC12
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235397.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235397.jpgsave_picture_235397.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Abdullah Ibrahim - Solotude (2021) Gearbox Records [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235398.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235398.jpgsave_picture_235398.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Mal Waldron - The 1978 Solo Piano Concert (2022) 2CD, Tompkins Square [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235399.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235399.jpgsave_picture_235399.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ BluePlum Home Inventory 4 v4.6.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235400.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235400.jpgsave_picture_235400.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Alkonost - Songs of the Eternal Oak (2000) Anniversary Edition, 2023, Soundage P
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235401.jpgsave_picture_235401.jpg" />
 </div>
 
 

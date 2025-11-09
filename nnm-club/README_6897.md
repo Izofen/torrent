@@ -6,7 +6,7 @@
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236888.jpgsave_picture_236888.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:5918D5EBD507CBA21A37BA4C1B193EF4385FF977
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236889.jpgsave_picture_236889.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Cisdem Duplicate Finder 5.8.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236891.jpgsave_picture_236891.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Black Drop - Octopus (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Stoner Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236892.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236892.jpgsave_picture_236892.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ XYplorer 24.50.0200 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236895.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236895.jpgsave_picture_236895.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:5DE02DED6AF5D048E7A94E5D672708FFE3D6B710
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236897.jpgsave_picture_236897.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:0AD193170F0ECE11759BF318C31930BDD29B4181
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236898.jpgsave_picture_236898.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:EE45E2E6A8EBDF6316935F4EEAE78F5CEE420190
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236899.jpgsave_picture_236899.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Joe Chambers - Dance Kobina (2023) Blue Note [FLAC|Lossless|tracks + .cue] <Post
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236901.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236901.jpgsave_picture_236901.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ Cline's Mind - Vortex Of Death (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash, Spe
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236902.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236902.jpgsave_picture_236902.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ Find Any File (FAF) 2.3 b10 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236905.jpgsave_picture_236905.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ Ancient Wisdom - A Celebration in Honor of Death (2021) [FLAC|Lossless|image + .
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236908.jpgsave_picture_236908.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ magnet:?xt=urn:btih:F2D62EB6CD3206B5A32C08EC20DB24BC0F62D126
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236909.jpgsave_picture_236909.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ Cyberband Academy | Полное погружение в No-code (2021) WEB-DL [
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236910.jpgsave_picture_236910.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ Pete La Roca - Basra (1965) 2015, Blue Note [FLAC|Lossless|tracks + .cue] <Hard 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236911.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236911.jpgsave_picture_236911.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ magnet:?xt=urn:btih:FE567C26DA807E4CE682F70E3DBEA37661949F94
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236912.jpgsave_picture_236912.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ AnyMP4 Android Data Recovery for Mac 2.1.12 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236913.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236913.jpgsave_picture_236913.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ magnet:?xt=urn:btih:C065E5C138E8C4B21624B28A071A74694353764A
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236914.jpgsave_picture_236914.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ VA - Arabic Music Playlist - The Best Arabica Chillout Tunes (2022) [FLAC|Lossle
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236915.jpgsave_picture_236915.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ magnet:?xt=urn:btih:3B6884CD959A72C8D8FF7204F1DC91174137F892
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236919.jpgsave_picture_236919.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ ON1 Photo Keyword AI 2023.5 v.17.5.1.14058 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236920.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236920.jpgsave_picture_236920.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ SnapNDrag Pro Screensho‪t‬  4.5.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236923.jpgsave_picture_236923.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Heartbreak Remedy - 3 Albums (2015-2023) [MP3|320 Kbps] <Classic Rock, Hard Rock
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236924.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236924.jpgsave_picture_236924.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ VA - Summer Melodies Vol. 9 (2022) [MP3|320 Kbps] <Electronic, House, Progressiv
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236925.jpgsave_picture_236925.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Sadao Watanabe - California Shower (1978) 2003, JVC [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236926.jpgsave_picture_236926.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ magnet:?xt=urn:btih:849FD5F630CAAFDB3D80FE58939425B01B142324
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236928.jpgsave_picture_236928.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ HitPaw Watermark Remover 2.1.0.15 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175336.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175336.jpgsave_picture_175336.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ FastStone Photo Resizer 4.4 RePack (& Portable) by elchupacabra [Ru/En]
 >>Просмотрщики Графики (вьюверы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175670.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175670.jpgsave_picture_175670.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ ImageGlass 8.10.9.27 + Portable [Multi/Ru]
 >>Просмотрщики Графики (вьюверы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175673.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175673.jpgsave_picture_175673.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ CoolUtils Total Image Converter 8.2.0.263 RePack (& Portable) by Dodakaedr [Mult
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175769.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175769.jpgsave_picture_175769.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Metasequoia 4.8.6a [Multi]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175820.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175820.jpgsave_picture_175820.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ IcoFX 3.9.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175853.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175853.jpgsave_picture_175853.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Image Tuner Pro 9.9 RePack (& Portable) by elchupacabra [Ru/En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175889.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175889.jpgsave_picture_175889.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ IcoFX 3.9.0 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175933.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175933.jpgsave_picture_175933.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ Exposure X7 7.1.8.9 (x64) [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176456.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176456.jpgsave_picture_176456.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Audio Damage Collection 12.2020 VST, VSTi, AAX (Retail) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_177237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_177237.jpgsave_picture_177237.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ IcoFX 3.9 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178877.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178877.jpgsave_picture_178877.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ IcoFX 3.9 Home, Business, Site [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_179385.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_179385.jpgsave_picture_179385.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ IcoFX 3.9 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179412.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179412.jpgsave_picture_179412.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Imagenomic Portraiture 4.0.3 Build 4033 [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179459.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179459.jpgsave_picture_179459.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ ACDSee Photo Studio Ultimate 2023 16.0.3.3188 Portable by NNM [Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180128.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180128.jpgsave_picture_180128.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ Baby Paint | Детская рисовалка 3.50 Portable [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180284.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180284.jpgsave_picture_180284.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ VSDC Video Editor Pro 8.2.3.477 (x64) Portable by FC Portables [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180550.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180550.jpgsave_picture_180550.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ GreyscaleGorilla Plus Hub Plugins for C4D R22-R26 Win 2022 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180692.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180692.jpgsave_picture_180692.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ Polyverse Music - Supermodal 0.5.0 VST,  VST 3, AAX (x64) RePack by r4e [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181031.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181031.jpgsave_picture_181031.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Cyotek Palette Editor 1.7.0.411 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181399.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181399.jpgsave_picture_181399.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Valhalla DSP - Valhalla Delay 2.5.0 VST, VST3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181605.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181605.jpgsave_picture_181605.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ iZotope Audiolens 1.1.0 (x64) RePack by R2R [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181629.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181629.jpgsave_picture_181629.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ iZotope - Stutter Edit 2 2.1.0 VST 3, AAX (x64) RePack by R2R [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181708.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181708.jpgsave_picture_181708.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Valhalla DSP - Valhalla Supermassive 2.5.0 VST, VST3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182938.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182938.jpgsave_picture_182938.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ SNS-HDR Pro 2.7.2 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_182972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_182972.jpgsave_picture_182972.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Capture One 23 Enterprise 16.0.1.20 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183527.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183527.jpgsave_picture_183527.jpg" />
 </div>
 
 

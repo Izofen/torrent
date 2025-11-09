@@ -6,7 +6,7 @@
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48353.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48353.jpgsave_picture_48353.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:1940FC3CA559794E691F4DFD4E26ADDA988A77AD
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48354.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48354.jpgsave_picture_48354.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:30CAFAE2479EBCF4A81CBDCE37780D9FE1B7F377
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48355.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48355.jpgsave_picture_48355.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Psiphon 3 build 183 (29.07.2024) Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48356.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48356.jpgsave_picture_48356.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:08967CD780E0CFF207B1D4C0AEBCFC713D6AF623
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48357.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48357.jpgsave_picture_48357.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ KMS_VL_ALL_AIO-52 Portable by abbodi1406 [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48358.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48358.jpgsave_picture_48358.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:2079FE5C7A4E00B1E090AD9603C34AF9E6A1ADAC
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48359.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48359.jpgsave_picture_48359.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:DBE13CA812FF925D35E8D1C8A5C616A1519E6A52
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48360.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48360.jpgsave_picture_48360.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:B2367AB631B1B67F9EED242BE00F525D26437170
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48361.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48361.jpgsave_picture_48361.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ magnet:?xt=urn:btih:DA63091A51962D56FAE5EF02AD1B41D72282931F
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48362.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48362.jpgsave_picture_48362.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:1C52E26C76F2BCCC1DBA6E59827790384B007972
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48363.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48363.jpgsave_picture_48363.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ VA - Music News For Forum vol.006 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48364.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48364.jpgsave_picture_48364.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ Atlantis Word Processor 4.4.0.4 Repack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48365.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48365.jpgsave_picture_48365.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ VA - Русская 30-ка хитов 7 (Новые русские песни) 
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48366.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48366.jpgsave_picture_48366.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ magnet:?xt=urn:btih:3C54C029B90CE088DB4E20E1F724E8D4FB7D9F9F
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48367.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48367.jpgsave_picture_48367.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ magnet:?xt=urn:btih:9DD92446A35FFADAB3F64FD2D859371A08183861
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48368.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48368.jpgsave_picture_48368.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ DVDFab StreamFab 6.1.9.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48369.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48369.jpgsave_picture_48369.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ magnet:?xt=urn:btih:8DD56AA52EB768584E95A80ACE7824FD2DEB3A01
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48370.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48370.jpgsave_picture_48370.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ magnet:?xt=urn:btih:67200A3F2BC3209122A43A5A4F69BADBB2273DC9
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48371.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48371.jpgsave_picture_48371.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ magnet:?xt=urn:btih:3A43642A485DC7BE5F5216C2FDD5C474196AEFCB
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48372.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48372.jpgsave_picture_48372.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ VA - Лучшая дискотека шансона -16 (2024) (2024) [FLAC|Loss
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48373.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48373.jpgsave_picture_48373.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ DVDFab 13.0.2.2 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48374.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48374.jpgsave_picture_48374.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Glary Utilities Pro 6.13.0.17 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48375.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48375.jpgsave_picture_48375.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ magnet:?xt=urn:btih:CAB421A27DBDAB699E9E32DA69FB4D0060916E28
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48376.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48376.jpgsave_picture_48376.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ magnet:?xt=urn:btih:D4F845DC523ADA481D46D005F8BCE29D9BA92472
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48377.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48377.jpgsave_picture_48377.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ VA - Новый Хит- 8 (Лето 2024) (2024) [FLAC|Lossless|WEB-DL|tracks] <
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48378.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48378.jpgsave_picture_48378.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Construct of Lethe - Exiler (2018) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120942.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120942.jpgsave_picture_120942.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ GarageSale 9.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120943.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120943.jpgsave_picture_120943.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:15DFCD94F32741B554A901495B9F4FEEB889705F
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120944.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120944.jpgsave_picture_120944.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Nomy - Dark Skies (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Hard R
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120945.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120945.jpgsave_picture_120945.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Ian Moss - Rivers Run Dry (Deluxe Edition) (2024) [FLAC 24/48|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120946.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120946.jpgsave_picture_120946.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ Ivy Gold - Broken Silence (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock, Blues>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120947.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120947.jpgsave_picture_120947.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Be Focused Pro - Focus Timer 2.4.1 [En/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120948.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120948.jpgsave_picture_120948.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ The Blushing Brides - Broken Hearts on Bleecker Street (2024) [FLAC|Lossless|WEB
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120949.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120949.jpgsave_picture_120949.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Caligula's Horse - Charcoal Grace (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120950.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120950.jpgsave_picture_120950.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Dead Poet Society - Fission (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alt.Rock
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120951.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120951.jpgsave_picture_120951.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Emerald Table - Book of illusion's fragments (2023) [MP3|320 Kbps] <Gothic, Doom
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120952.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120952.jpgsave_picture_120952.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Tipard Mac Video Converter Ultimate for Mac 10.2.52 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120953.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120953.jpgsave_picture_120953.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Construct of Lethe - Corpsegod (2016) Released, 2020, Everlasting Spew Records [
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120954.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120954.jpgsave_picture_120954.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ AnyMP4 iPhone GPS Spoofer for Mac 1.0.18 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120955.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120955.jpgsave_picture_120955.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ The New Day - Subtronic Symbiosis (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120956.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120956.jpgsave_picture_120956.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Final Draft 13 v.13.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120957.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120957.jpgsave_picture_120957.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Lone Star Mojo - A Shot of the Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120958.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120958.jpgsave_picture_120958.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ The liberators - A Ride Out of Town (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120959.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120959.jpgsave_picture_120959.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Mastercastle - The Phoenix (2009) Japanese Edition [FLAC|Lossless|image + .cue] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120960.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120960.jpgsave_picture_120960.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Lifespan 2.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120961.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120961.jpgsave_picture_120961.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Madcat's Roughriders - Madcat's Roughriders (2024) [FLAC|Lossless|WEB-DL|tracks]
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120962.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120962.jpgsave_picture_120962.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ magnet:?xt=urn:btih:D7246400520CB4BFB6CB578E6ECDC4D4ACEC6FE7
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120963.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120963.jpgsave_picture_120963.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ magnet:?xt=urn:btih:46DC9AA73E56FD75FEC76C9D7091868CF65FA58A
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120964.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120964.jpgsave_picture_120964.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ magnet:?xt=urn:btih:D977FE7F0CDD4C2A36C490ADF5553FD8757B2D0D
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120965.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120965.jpgsave_picture_120965.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Easy Data Transform for Mac 1.46.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120966.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120966.jpgsave_picture_120966.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ FoneLab HEIC Converter 1.0.18 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120967.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120967.jpgsave_picture_120967.jpg" />
 </div>
 
 

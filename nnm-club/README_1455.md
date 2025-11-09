@@ -6,7 +6,7 @@ GeoGebra 6.0.866.0 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38185.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38185.jpgsave_picture_38185.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Firefox Browser 132.0.1 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38186.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38186.jpgsave_picture_38186.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Nightmare (France) - Studio Albums (10 releases) (2001-2024) hand made [restored
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38187.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38187.jpgsave_picture_38187.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:C5A8A59EA31FFF7DF07ADCB267D11E1E33028810
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38188.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38188.jpgsave_picture_38188.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:AEAA502C23D0F1A61C1DC9F8D40D59B8D9B3E931
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38189.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38189.jpgsave_picture_38189.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ VA - Funk Instrumentals (2024) [FLAC|Lossless|WEB-DL|tracks] <Funk Soul Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38190.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38190.jpgsave_picture_38190.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:C1EF830C4182B512E2D9820D2AA915BB18EB6B7D
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38191.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38191.jpgsave_picture_38191.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Visions of Atlantis - Studio Albums (10 releases) (2002-2024) hand made [restore
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38192.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38192.jpgsave_picture_38192.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ Little River Band - Window To The World (2024) [FLAC 24/44.1|Lossless|WEB-DL|tra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38193.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38193.jpgsave_picture_38193.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ Koko-Jean & The Tonics - Love Child (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38194.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38194.jpgsave_picture_38194.jpg" />
 </div>
 
 
@@ -262,7 +262,7 @@ magnet:?xt=urn:btih:777A59FC84C91D567771FB1A6EFD85816C68A4F5
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38195.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38195.jpgsave_picture_38195.jpg" />
 </div>
 
 
@@ -289,7 +289,7 @@ Circle Of Mud - Inside The Circle (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38196.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38196.jpgsave_picture_38196.jpg" />
 </div>
 
 
@@ -316,7 +316,7 @@ Windrow - Deus Universi (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Power
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38197.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38197.jpgsave_picture_38197.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ Nordic Twilight - Nordic Twilight (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38198.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38198.jpgsave_picture_38198.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ magnet:?xt=urn:btih:7E238B99420377964628BD14FEFE0527EECB4251
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38199.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38199.jpgsave_picture_38199.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ Golden Software Grapher 24.1.213 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38200.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38200.jpgsave_picture_38200.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ magnet:?xt=urn:btih:76F5A837893C6121BA696929472B31EC6F19E1F1
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38201.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38201.jpgsave_picture_38201.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ magnet:?xt=urn:btih:FA67922DDCEA345CDFACE7841099AD01227DA0FB
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38202.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38202.jpgsave_picture_38202.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Tux Paint 0.9.34 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38203.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38203.jpgsave_picture_38203.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ magnet:?xt=urn:btih:BD6096B9FA1DED4E6693E4E5A37AF5FD1E9A2A32
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38204.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38204.jpgsave_picture_38204.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ magnet:?xt=urn:btih:DBE3A6179DEACE6FBAE4FE4AEB689040837E5D6D
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38205.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38205.jpgsave_picture_38205.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Opera One 114.0.5282.154 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38206.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38206.jpgsave_picture_38206.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ NIUBI Partition Editor 10.0.8 Pro / Unlimited / Technician Edition RePack (& Por
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38207.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38207.jpgsave_picture_38207.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ magnet:?xt=urn:btih:1A1E36F207BC1D6896632D21C9DBBDC38816BCCD
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38208.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38208.jpgsave_picture_38208.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ magnet:?xt=urn:btih:87582E3F8B73EA2F35D51D3176E519B6AD56C9AE
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38209.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38209.jpgsave_picture_38209.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Withering Surface - Studio Albums (7 releases) (1997-2024) hand made [restored, 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38210.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38210.jpgsave_picture_38210.jpg" />
 </div>
 
 

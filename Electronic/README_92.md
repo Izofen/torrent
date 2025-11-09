@@ -6,7 +6,7 @@ VA - A State of Trance - Classics Top 10, Vol. 6 (2025) [FLAC|Lossless|WEB-DL|tr
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136795.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136795.jpgsave_picture_136795.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ FaraoN - 20 Hits Dance Music Collection (2025) [MP3|320 Kbps] <House, Deep House
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136970.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136970.jpgsave_picture_136970.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ BELLATRIX - Lost In Space (2020) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Spaces
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137083.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137083.jpgsave_picture_137083.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - Space Holidays Vol. 12 (2020) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Spac
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137102.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137102.jpgsave_picture_137102.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ magnet:?xt=urn:btih:5C103F30499C94F838A5A9986F9519AAD0BB327F
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137578.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137578.jpgsave_picture_137578.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Gary Butcher aka Gary B, Luminous: ex resident of Cafe Del Mar - Discography 10 
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137643.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137643.jpgsave_picture_137643.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ VA - Best of Clubsonica Records 2022 (2022) [FLAC|Lossless|WEB-DL|tracks] <EDM, 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137668.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137668.jpgsave_picture_137668.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Armin van Buuren - 20 Albums , 117 Compilations (1999 - 2014) [MP3|320 кб/с]<
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137731.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137731.jpgsave_picture_137731.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Apashe - Antagonist (2023) [FLAC|Lossless|tracks] <Electronic, Breakbeat>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137822.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137822.jpgsave_picture_137822.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Tammetõru (Tammetoru) - 2001​-​2009 (2018) [FLAC|Lossless|WEB-DL|tracks] <I
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137859.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137859.jpgsave_picture_137859.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ VA - Classic Car Dance Hits 2019 (2018) [MP3|320 Kbps] <Funky, Club House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137883.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137883.jpgsave_picture_137883.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Double Touch & Wassu - Here For You (2023) [FLAC|Lossless|WEB-DL|tracks] <Tech H
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137928.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137928.jpgsave_picture_137928.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ VA - Alpine Grooves X (Kristallhutte) (2018) [FLAC|Lossless|WEB-DL|tracks] <Deep
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137951.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137951.jpgsave_picture_137951.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ VA - Equilibrium (2015) [FLAC|Lossless|WEB-DL|tracks] <Deep House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137955.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137955.jpgsave_picture_137955.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Thore Pfeiffer - Umland (2019) Savvy [FLAC|Lossless|WEB-DL|tracks] <Ambient, Exp
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137960.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137960.jpgsave_picture_137960.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ VA - CAVALRY 009 (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic House & Techno>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138044.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138044.jpgsave_picture_138044.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ Thomas Rossetti - Feel Nature EP (2019) Maintain Replay Records [FLAC|Lossless|W
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138046.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138046.jpgsave_picture_138046.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ VA - 5 Years Of Futura Groove Records (2018) [MP3|320 Kbps] <House, Tech House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138059.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138059.jpgsave_picture_138059.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ Coiro - Reflections (2023) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138064.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138064.jpgsave_picture_138064.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ Vintage & Morelli - Hymn To The Night (2019) Silk Music [FLAC|Lossless|WEB-DL|tr
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138159.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138159.jpgsave_picture_138159.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ VA - The Soundgarden: Winter Collection (2020) Compilation [FLAC|Lossless|WEB-DL
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138187.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138187.jpgsave_picture_138187.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ VA - Blufin Loves Amsterdam 11 (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138194.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138194.jpgsave_picture_138194.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Robert Parker - The Singles 2013-2015 (2015) [MP3|320 кб/с] <Synthpop, Synthw
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138649.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138649.jpgsave_picture_138649.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ VA - Christmas Box (2015) [MP3|320 кб/с] <Progressive, Psychedelic, Trance>
 >>Psychedelic, psytrance, fullon
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139065.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139065.jpgsave_picture_139065.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ VA - Gate 2 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139119.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139119.jpgsave_picture_139119.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ VA - Deep Dark and Sexy Vol.1: Finest Deep and Elektro House (2016) [MP3|320 Kbp
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139173.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139173.jpgsave_picture_139173.jpg" />
 </div>
 
 

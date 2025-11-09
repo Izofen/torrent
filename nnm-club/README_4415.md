@@ -6,7 +6,7 @@ Double Touch & Wassu - Here For You (2023) [FLAC|Lossless|WEB-DL|tracks] <Tech H
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137928.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137928.jpgsave_picture_137928.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ David Wilson - There's A Small Hotel (1997) Swallowtail Records [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137929.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137929.jpgsave_picture_137929.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ VA - The Ultimate Led Zeppelin Tribute - 2CD (2019) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137931.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137931.jpgsave_picture_137931.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:C54B2EA7458A729B5B83C5BD8EFB81E2FF307BD6
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137932.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137932.jpgsave_picture_137932.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:76833745003B73C5CD538A8B93982AD31CD982A8
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137934.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137934.jpgsave_picture_137934.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ DxO FilmPack 5 Elite 5.5.15 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137935.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137935.jpgsave_picture_137935.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ David Wilson - Romance of Christmas (1999) Swallowtail Records [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137936.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137936.jpgsave_picture_137936.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:E08FB082DFBD7D31D9B772D84996AA600D8DB854
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137937.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137937.jpgsave_picture_137937.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ magnet:?xt=urn:btih:F8513F4DE7771F036A5247B060E8C40FA3DA20C6
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137938.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137938.jpgsave_picture_137938.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ ABViewer Enterprise 14.1.0.47 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137939.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137939.jpgsave_picture_137939.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ magnet:?xt=urn:btih:D41FE0CD25786582CD8E7968A89CF0FCE2C8732E
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137940.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137940.jpgsave_picture_137940.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ Drive by Wire - Spellbound (2018) [FLAC|Lossless|tracks + .cue] <Psychedelic, St
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137941.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137941.jpgsave_picture_137941.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ magnet:?xt=urn:btih:116841A0EBC9653CEF504B407BB37CC493FDDF6D
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137943.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137943.jpgsave_picture_137943.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ VA - 55 Hits 2020 [MP3|320 Kbps] <Pop, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137944.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137944.jpgsave_picture_137944.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ magnet:?xt=urn:btih:D6E05675D1B15623E7EC57FBC3719386DB298E7A
 >>Релакс / Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137945.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137945.jpgsave_picture_137945.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ magnet:?xt=urn:btih:A23998940CDA8E751191D49A35D9DC7662F6FD31
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137947.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137947.jpgsave_picture_137947.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ magnet:?xt=urn:btih:39491274048B86329547F517C7F30B5243D0D44F
 >>Мобильное Видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137948.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137948.jpgsave_picture_137948.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ Michel Legrand - Legrand Jazz (1958) [FLAC 2.0|192/24|image+cue|Vinyl-Rip] <Jazz
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137949.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137949.jpgsave_picture_137949.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ magnet:?xt=urn:btih:F9664897486EBDB6E8D5CA8CF1AADEF4ABB3A8D9
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137950.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137950.jpgsave_picture_137950.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ VA - Alpine Grooves X (Kristallhutte) (2018) [FLAC|Lossless|WEB-DL|tracks] <Deep
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137951.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137951.jpgsave_picture_137951.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ magnet:?xt=urn:btih:49CAE218325FFB723F5F7413AAA0250DBBDC406D
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137952.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137952.jpgsave_picture_137952.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ magnet:?xt=urn:btih:73236BAA68B522562B4F929FB8FD291713C5F2F1
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137953.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137953.jpgsave_picture_137953.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ VA - Equilibrium (2015) [FLAC|Lossless|WEB-DL|tracks] <Deep House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137955.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137955.jpgsave_picture_137955.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ magnet:?xt=urn:btih:3744698BFD73EEA6D6204575E962C4C6D777CC9A
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137956.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137956.jpgsave_picture_137956.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Karl Jenkins - Symphonic Adiemus (2017) [FLAC|Lossless|tracks + .cue] <Classical
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137957.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137957.jpgsave_picture_137957.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ magnet:?xt=urn:btih:0DB96D6BFF1E1D078573118254AC3301F331E32F
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137959.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137959.jpgsave_picture_137959.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Ashampoo WinOptimizer 26.00.11 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_231214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231214.jpgsave_picture_231214.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Archeonic - Digital Pain (2021) [FLAC|Lossless|image + .cue] <Technical Death Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231216.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231216.jpgsave_picture_231216.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:78B91DB9A179CBD4CF0A3753C9FFC3A75D485818
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231218.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231218.jpgsave_picture_231218.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ magnet:?xt=urn:btih:C3F03EF07B5F069CACA58CCA172F938751B89F55
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_231219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231219.jpgsave_picture_231219.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Windows 11 PE x64 by Xemom1 (30.05.23) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_231220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231220.jpgsave_picture_231220.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ Amon - Shemhamforash (1995) [FLAC|Lossless|tracks] <Death, Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231221.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231221.jpgsave_picture_231221.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ WinToHDD Professional 6.0.1 (акция Comss) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_231223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231223.jpgsave_picture_231223.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ Speedtest от Ookla 5.0.7 Mod by youarefinished [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231224.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231224.jpgsave_picture_231224.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Jeanine Meye | The Essential Guide to HTML5: Using Games to Learn HTML5 and Java
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_231227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231227.jpgsave_picture_231227.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ magnet:?xt=urn:btih:00AE46B8A65A4ACA10A44BA71E4D277F861DB924
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_231228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231228.jpgsave_picture_231228.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ Ealee - Лабиринт (2023) [MP3|320 Kbps] <Alternative Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231229.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231229.jpgsave_picture_231229.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ Anubis Gate - Interference (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive, Po
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231230.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231230.jpgsave_picture_231230.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ Nervosa - Perpetual Chaos (2021) Japan Edition [FLAC|Lossless|image + .cue] <Thr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231232.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231232.jpgsave_picture_231232.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ magnet:?xt=urn:btih:E4DD4FBA3EE498E0D4F80F3E3E2CCD7F1E5A8DBC
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_231233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231233.jpgsave_picture_231233.jpg" />
 </div>
 
 
@@ -364,7 +364,7 @@ Ant Download Manager Pro 2.10.2 Build 86016 (акция Comss) [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_231234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231234.jpgsave_picture_231234.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ Anubis Gate - Covered in Colours (2020) [FLAC|Lossless|WEB-DL|tracks] <Progressi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231236.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231236.jpgsave_picture_231236.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ magnet:?xt=urn:btih:D23A77397C68DCF2B11ED937AC38127231D3AE7E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231238.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231238.jpgsave_picture_231238.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Charlie Rouse / Paul Quinichette - The Chase Is On (1957) 2004, Toshiba-EMI [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231239.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231239.jpgsave_picture_231239.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Pont Of Reindeer - Мир И Порядок (2023) [MP3|320 Kbps] <Thrash Metal>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231240.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231240.jpgsave_picture_231240.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Zorormr - IHS (2013) [FLAC|Lossless|image + .cue] <Melodic Black Metal, Dark Amb
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231241.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231241.jpgsave_picture_231241.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ AI Transcription 1.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231243.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231243.jpgsave_picture_231243.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Reflex - 20 лет - Лучшее и новое (2023) [MP3|320 Kbps] <Pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_231244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231244.jpgsave_picture_231244.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ magnet:?xt=urn:btih:2EA5F0EAE8C21C0932DC545E338F4933B663B8BF
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_231246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231246.jpgsave_picture_231246.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ magnet:?xt=urn:btih:06999EAFE8E0D2CE94E44C42A92B7D7D8E66D3F0
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231247.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231247.jpgsave_picture_231247.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ Magic Disk Cleaner 2.2.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231249.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231249.jpgsave_picture_231249.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ magnet:?xt=urn:btih:A9D6CBBF8AECCF3B0EC72D40C95AE020E0EFDFB7
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_231250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231250.jpgsave_picture_231250.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161296.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161296.jpgsave_picture_161296.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:1AF11CBAAB61AB6819A7FEACF619838BE1E27D58
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161297.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161297.jpgsave_picture_161297.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Cableguys - ShaperBox 3 3.2 VST, VST 3, AAX (x64) RePack by TeamCubeadooby [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161298.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161298.jpgsave_picture_161298.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ Sticks N' Stones - Get Stoned (2020) [MP3|320 Kbps] <Glam Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161299.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161299.jpgsave_picture_161299.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ magnet:?xt=urn:btih:204615E08CA46A086B4CA573C1074793C77CE0BB
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161300.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161300.jpgsave_picture_161300.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ Icecream Photo Editor 1.42 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161301.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161301.jpgsave_picture_161301.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ magnet:?xt=urn:btih:4AAFE4BAE90995B1C588EAC9B8C60909406ED338
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161302.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161302.jpgsave_picture_161302.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ magnet:?xt=urn:btih:D813FA54B16D9E53BDCBB25342DA9DF4B0388452
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161303.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161303.jpgsave_picture_161303.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ magnet:?xt=urn:btih:EDA58DC117B95C44EF092A16D082A72D07B0184E
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161304.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161304.jpgsave_picture_161304.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ Chicago - Greatest Christmas Hits (2023) Remaster [FLAC 24/192|Lossless|WEB-DL|t
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161305.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161305.jpgsave_picture_161305.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ magnet:?xt=urn:btih:352E92A050F79003E083254786E97F70DD2C5192
 >>Прочие зимние виды спорта
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161306.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161306.jpgsave_picture_161306.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ XYplorer 23.90 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161307.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161307.jpgsave_picture_161307.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ Mactracker 7.10.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161308.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161308.jpgsave_picture_161308.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ magnet:?xt=urn:btih:F71E4676F5F5D91369E57A94199382085BFD4667
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161309.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161309.jpgsave_picture_161309.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ magnet:?xt=urn:btih:09F10F55A383274AC87258F08EEB637F12E41F10
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161310.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161310.jpgsave_picture_161310.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ Vargo - Compilation (2022) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161311.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161311.jpgsave_picture_161311.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ WidsMob Viewer Pro 2.19 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161312.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161312.jpgsave_picture_161312.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ magnet:?xt=urn:btih:033556A9359C3F3D81334BC4DCD1E81E8EF62020
 >>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161313.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161313.jpgsave_picture_161313.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ magnet:?xt=urn:btih:B2369C052D95BEF93433DA6C43BD1C8DEAEE299A
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161314.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161314.jpgsave_picture_161314.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Daff Moon Phase (Фазы Луны) v3.23 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161315.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161315.jpgsave_picture_161315.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ magnet:?xt=urn:btih:49859F51CA5DA40E8BB86921C67C523FBE9CB875
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161316.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161316.jpgsave_picture_161316.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ magnet:?xt=urn:btih:356D6CC3F8E13E99FEEEAF5E5A74422BF1E32158
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161317.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161317.jpgsave_picture_161317.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ magnet:?xt=urn:btih:BE0CFEF164FCBD96B6A7E480BF4D056E4AB01200
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161318.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161318.jpgsave_picture_161318.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Icecream Video Converter Pro 1.37 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161319.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161319.jpgsave_picture_161319.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ magnet:?xt=urn:btih:34AF6CE3ABC85C8413B6FD93474F55537B651375
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161320.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161320.jpgsave_picture_161320.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ magnet:?xt=urn:btih:7307FAAA9EA398C21D4E537FB7FBA4D43EE1A64E
 >>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161321.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161321.jpgsave_picture_161321.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148691.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148691.jpgsave_picture_148691.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ FXPHD, Victor Perez | NUK312 Photorealism in Compositing with NUKE Fundamentals 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148692.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148692.jpgsave_picture_148692.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ VA - Valse/Tango 1, 2, 3... Musette (1997) Gold, 2CD Box Set [FLAC|Lossless|imag
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148693.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148693.jpgsave_picture_148693.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:8F83BC587A9C0A3508085358FA0B05FEFB8F2E0E
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148694.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148694.jpgsave_picture_148694.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:A1D542B99F5BF55411167882DC26517B4A278327
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148695.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148695.jpgsave_picture_148695.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:59A27F94EEC95AC691D43025148A16F78F9D3238
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148696.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148696.jpgsave_picture_148696.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ Fire Garden - Far and Near (2016) [FLAC|Lossless|image + .cue] <Progressive Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148697.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148697.jpgsave_picture_148697.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:C2108CA742807F2FB625B30BBFD219CD2EFB890F
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148698.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148698.jpgsave_picture_148698.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ JO - Soapte (2015) WEB-DL [H.264/1080p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148699.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148699.jpgsave_picture_148699.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ magnet:?xt=urn:btih:F4FE240FD699D810D2DB62C129B8839C13639161
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148700.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148700.jpgsave_picture_148700.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ VA - Lo-Fi to Chill: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <Ba
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148702.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148702.jpgsave_picture_148702.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ magnet:?xt=urn:btih:9DD13CF232441B9FC3923DF2B4DA74A790ABFC57
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148703.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148703.jpgsave_picture_148703.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ magnet:?xt=urn:btih:E9B61351F790F48173EF9041A51E4EE8816229E2
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148704.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148704.jpgsave_picture_148704.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ magnet:?xt=urn:btih:4B081D005AEDB348980359AF1376F49138AC557E
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148706.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148706.jpgsave_picture_148706.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ VA - The Best Of Pulsar 2016 (2016) [MP3|320 Kbps] <Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148707.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148707.jpgsave_picture_148707.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ VA - Electronic Cosmic Party (2019) [MP3|320 Kbps] <Electronic, Synthwave, Synth
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148708.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148708.jpgsave_picture_148708.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ VA - Morning Motivation Pop (2021) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148709.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148709.jpgsave_picture_148709.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ magnet:?xt=urn:btih:0619CDC5C3390A54F430F139E635197843C4AEEC
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148710.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148710.jpgsave_picture_148710.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ Last Autumn's Dream - Secret Treasures (2018) Japanese Edition [MP3|320 Kbps] <H
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148711.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148711.jpgsave_picture_148711.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ magnet:?xt=urn:btih:947CD0D8AD044E2146BF8B82E4CB9359A5AA8FBD
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148712.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148712.jpgsave_picture_148712.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ OTUS | Нагрузочное тестирование [Части 3 из 3] (20
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148713.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148713.jpgsave_picture_148713.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Fine Young Cannibals - Fine Young Cannibals (1985) [FLAC 2.0|48/24|image+.cue|MC
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148714.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148714.jpgsave_picture_148714.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Vivaldi 2.10.1745.23 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148715.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148715.jpgsave_picture_148715.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Alphaville - Salvation (1997) Deluxe Version, Remaster, 2023, Warner Music Centr
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148716.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148716.jpgsave_picture_148716.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ magnet:?xt=urn:btih:C878FC3C6B5CD81361EA5841AE54ED4044953DD3
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148717.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148717.jpgsave_picture_148717.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ magnet:?xt=urn:btih:FE423D21F7BC6B59DC07117E2C6CB107DE001A20
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148718.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148718.jpgsave_picture_148718.jpg" />
 </div>
 
 

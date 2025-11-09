@@ -6,7 +6,7 @@ Kontrust - madworld (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternative meta
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163556.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163556.jpgsave_picture_163556.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Riverside - Out of Myself (2003) Reissue 2021, Sony Music [FLAC|24/192|image + .
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163596.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163596.jpgsave_picture_163596.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Stratovarius (Kotipelto, Cain's Offering) - Studio Albums (23 releases) (1989 - 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163795.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163795.jpgsave_picture_163795.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ In This Moment - Studio Albums (8 Releases) (2007-2023) hand made [restored, dec
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164935.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164935.jpgsave_picture_164935.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Electric Sun - Earthquake (1979) [FLAC|24/192|image + .cue|Vinyl-Rip] <Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165358.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165358.jpgsave_picture_165358.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Bernie Marsden - And About Time Too (1979) [FLAC|24/192|image + .cue|Vinyl-Rip] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165395.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165395.jpgsave_picture_165395.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ DGM - Tragic Separation (2020) [FLAC|24/192|tracks|Vinyl-Rip] <Progressive Power
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165417.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165417.jpgsave_picture_165417.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Saltpig - Saltpig (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Psych Stoner Doom/
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165484.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165484.jpgsave_picture_165484.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:4C249F250338993B7BF692C0AC3140C9CA75576E
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165887.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165887.jpgsave_picture_165887.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Dernesch, Kollo, Wiener Philharmoniker, Georg Solti - Wagner: Tannhäuser (1971)
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166089.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166089.jpgsave_picture_166089.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:75D657D83388519FD0D42246E56D67DDEDEF28A8
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166534.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166534.jpgsave_picture_166534.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Fozzy - Studio Albums (8 releases) (2000 - 2022) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166735.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166735.jpgsave_picture_166735.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ VA - Танец На Барабане. Поют Н. Гнатюк, Е. Голов
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166749.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166749.jpgsave_picture_166749.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ magnet:?xt=urn:btih:CA7D22189496E1CCE8E36D661D60FE6C3C44E893
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167741.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167741.jpgsave_picture_167741.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ Deep Purple - In Rock (1970) Remaster, 2018, Parlophone UK [FLAC 24/96|Lossless|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167811.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167811.jpgsave_picture_167811.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Bolt Thrower - Studio Albums (8 releases) (1988-2005) hand made [restored, decli
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167966.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167966.jpgsave_picture_167966.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Death - The Sound of Perseverance (1998) Reissue 2016, Relapse Records [FLAC|24/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167985.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167985.jpgsave_picture_167985.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Death - Individual Thought Patterns (1993) [FLAC|24/96|tracks|Vinyl-Rip] <Death 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168063.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168063.jpgsave_picture_168063.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Death - Symbolic (1995) [FLAC|24/96|tracks|Vinyl-Rip] <Death Metal, Progressive 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168088.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168088.jpgsave_picture_168088.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Nordic Union - Studio Albums (3 releases) (2016 - 2022) hand made [restored, dec
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168260.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168260.jpgsave_picture_168260.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ Tangerine Dream - Stratosfear (1981) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Ele
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168724.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168724.jpgsave_picture_168724.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ magnet:?xt=urn:btih:9988EF09DB2BA403F6D9AB26745AE208C6AF3A06
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168732.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168732.jpgsave_picture_168732.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ Tarja (Nightwish) - Studio Albums (5 releases) (2007 - 2019) hand made [restored
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168869.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168869.jpgsave_picture_168869.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ ZZ Top - 5 Studio albums (1994-2012) hand made [restored, declipped] [FLAC|Lossl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168973.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168973.jpgsave_picture_168973.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ Audioslave - Studio Albums (3 releases) (2002 - 2006) hand made [restored, decli
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169069.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169069.jpgsave_picture_169069.jpg" />
 </div>
 
 
@@ -682,7 +682,7 @@ Ghosts of Atlantis - Riddles of the Sycophants (2023) [FLAC 24/44.1|Lossless|WEB
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169122.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169122.jpgsave_picture_169122.jpg" />
 </div>
 
 

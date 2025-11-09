@@ -6,7 +6,7 @@ MXGP 2020 - The Official Motocross Videogame (2020) [Multi] (1.0) License CODEX
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161584.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161584.jpgsave_picture_161584.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Tell Me Why (2020) [Ru/Multi] (5510896) Repack xatab [18+]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161617.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161617.jpgsave_picture_161617.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Folk Hero (2023) [Ru/Multi] (1.0.9) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161622.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161622.jpgsave_picture_161622.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ YesterMorrow (2020) [Ru/Multi] (1.0.4.1) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161705.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161705.jpgsave_picture_161705.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Legacy: Witch Island 3 / Наследие: Остров ведьмы 3 (2020) [R
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161719.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161719.jpgsave_picture_161719.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Enchanted Kingdom 8: Master of Riddles / Зачарованное королев
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161776.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161776.jpgsave_picture_161776.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Dark Deity II (2) (2025) [En] (1.14) License GOG [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161792.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161792.jpgsave_picture_161792.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Keeper (2025) [Ru/Multi] (1.121.2146.0) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161795.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161795.jpgsave_picture_161795.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Keeper (2025) [Ru/Multi] (1.121.2146.0) Repack Other s
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161801.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161801.jpgsave_picture_161801.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Firegirl: Hack 'n Splash Rescue (2021) [Ru/Multi] (1.017) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161804.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161804.jpgsave_picture_161804.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Overcooked! 2 (2018) [Ru/Multi] (6.231.1/dlc) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161805.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161805.jpgsave_picture_161805.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Order of Battle: World War II (2) (2015) [Ru/Multi] (10.0.6.01/dlc) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161809.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161809.jpgsave_picture_161809.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Fantasy General II (2): Invasion (2019) [Ru/Multi] (01.02.12913.01/dlc) License 
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161814.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161814.jpgsave_picture_161814.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ El Hijo - A Wild West Tale (2020) [Ru/Multi] (1.02(210331).1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161818.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161818.jpgsave_picture_161818.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ SUPERHOT: MIND CONTROL DELETE (2020) [Ru/Multi] (1.0.8b plus l1.1.36) License GO
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161852.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161852.jpgsave_picture_161852.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Little Big Workshop (2019) [Ru/Multi] (2.0.14042.1/dlc) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161863.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161863.jpgsave_picture_161863.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Keeper (2025) [Ru/Multi] (1.121.2146.0) Scene Rune
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161885.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161885.jpgsave_picture_161885.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Bridge to Another World 7: Secrets of the Nutcracker (2020) [En] (1.0) Unofficia
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161914.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161914.jpgsave_picture_161914.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ One Eleven (2023) [Ru/En] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161918.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161918.jpgsave_picture_161918.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Filthy Us (2023) [Multi] (1.0) License GOG [Complete Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162011.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162011.jpgsave_picture_162011.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Bridge to Another World 9: Christmas Flight (2021) [En] (1.0) Unofficial [Collec
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162118.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162118.jpgsave_picture_162118.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Cardaclysm: Shards of the Four (2020) [Ru/Multi] (1.1.2.6_fix) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162225.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162225.jpgsave_picture_162225.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ A Short Hike (2019) [Multi] (1.9_v3) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162229.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162229.jpgsave_picture_162229.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ SUPERHOT (2016) [Ru/Multi] (1.0.21b_plus_l1.1.36) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162231.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162231.jpgsave_picture_162231.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ The Coma 2: Vicious Sisters (2020) [Ru/Multi] (1.0.6 fix/dlc) License GOG [Delux
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162236.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162236.jpgsave_picture_162236.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Vambrace: Cold Soul (2019) [Ru/Multi] (1.11-fix) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162240.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162240.jpgsave_picture_162240.jpg" />
 </div>
 
 

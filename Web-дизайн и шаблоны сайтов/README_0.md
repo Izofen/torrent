@@ -6,7 +6,7 @@
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13389.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13389.jpgsave_picture_13389.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:0833B1AFBEB12374C018A9870ABA57DC10227E01
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14766.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14766.jpgsave_picture_14766.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ magnet:?xt=urn:btih:6E11B5A20AEB0B5897E55470CA13C75B93A0104A
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15881.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15881.jpgsave_picture_15881.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ Ui Kits - UI8 - Sublima UI (v3.0 ) - UI kit and Design system [FIG]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17457.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17457.jpgsave_picture_17457.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:E3FD9F6E3139E80E7DCF0FBF145BC8B061A4A5AF
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22126.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22126.jpgsave_picture_22126.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ magnet:?xt=urn:btih:2885645A862BDE72D19EDFB84EAAEA3DB210E587
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37445.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37445.jpgsave_picture_37445.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ Ui Kits - UI8 - Tasksy - UI kit for Productivity Mobile Apps [FIG, SKETCH]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52046.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52046.jpgsave_picture_52046.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Ui Kits - UI8 - Catmy - AI Chatbot Mobile App UI Kits [FIG]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52264.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52264.jpgsave_picture_52264.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ magnet:?xt=urn:btih:F2698609CCBF6890D5707DCF1395796DE78B45EB
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65779.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65779.jpgsave_picture_65779.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ magnet:?xt=urn:btih:6A0B44A6D0BB6BDED07BEDFB9FA43778AF258992
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65789.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65789.jpgsave_picture_65789.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ Ui Kits - UI8 -  WeCare - Medical Admin Dashboard UI Kit [FIG]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91194.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91194.jpgsave_picture_91194.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ Ui Kits - UI8 - Financial Forecasting Mobile App UI Kit - Thriftly [FIG]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101703.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101703.jpgsave_picture_101703.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ Ui Kits - UI8 - Eclipse - Vintage Store Web Ecommerce [FIG]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104474.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104474.jpgsave_picture_104474.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ Ui Kits - UI8 - The Folio - Portfolio, Blog, and Personal Website Template [FIG,
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117610.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117610.jpgsave_picture_117610.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ WordPress plugin - Oxygen 4.8 [PHP, SVG, CSS, JS]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127530.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127530.jpgsave_picture_127530.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ WordPress plugin - Advanced Custom Fields PRO 6.2.4 [PHP, CSS, JS]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127533.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127533.jpgsave_picture_127533.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ WordPress plugin - Rank Math SEO PRO 3.0.49 [PHP, CSS, JS]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127538.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127538.jpgsave_picture_127538.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ magnet:?xt=urn:btih:D4BABAE55D16A74C82C2FB5D7BF50FF913E15951
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141074.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141074.jpgsave_picture_141074.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Ui Kits - UI8 - Beesign - e-Signature Document Dashboard UI Kit [FIG]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173554.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173554.jpgsave_picture_173554.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Ui Kits - UI8 - Camero - CRM Dashboard UI Kit [FIG]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193342.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193342.jpgsave_picture_193342.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Ui Kits - UI8 - Convert [PDF]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202414.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202414.jpgsave_picture_202414.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Ui Kits - UI8 - Carsova - Electric Cars Website [FIG]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212137.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212137.jpgsave_picture_212137.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ Ui Kits - UI8 - FindWork - Job Finder App Ui Kits [FIG]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212178.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212178.jpgsave_picture_212178.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ Ui Kits - UI8 - Enefty - NFT Website UI Kit [FIG]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213477.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213477.jpgsave_picture_213477.jpg" />
 </div>
 
 

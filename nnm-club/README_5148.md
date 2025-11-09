@@ -6,7 +6,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160586.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160586.jpgsave_picture_160586.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Orchestre National De France - Georges Bizet: Carmen (1984) 3CD [FLAC|Lossless|i
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160587.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160587.jpgsave_picture_160587.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ DxO PhotoLab Elite  7.1.0 build 94 Portable by 7997 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160588.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160588.jpgsave_picture_160588.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ PIDKey Lite 1.64.4 b35 Portable by Ratiborus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160589.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160589.jpgsave_picture_160589.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ CareUEyes 2.2.9.0 Pro RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160590.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160590.jpgsave_picture_160590.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:6CA30EDEF35CB9FC4D79FA3E8DAEAE06997AFC60
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160591.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160591.jpgsave_picture_160591.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ Telegram Desktop 4.11.5 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160592.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160592.jpgsave_picture_160592.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ PortableApps.com Platform 26.3.0.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160593.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160593.jpgsave_picture_160593.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ magnet:?xt=urn:btih:D7FB47DA174B98B0A52AB4026CD998CB5D702DDA
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160594.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160594.jpgsave_picture_160594.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ PDF Shaper Professional 13.8 Portable by 7997 [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160595.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160595.jpgsave_picture_160595.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ Bob Marley & The Wailers - Catch A Fire (50th Anniversary) (2023) [FLAC 24/96|Lo
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160596.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160596.jpgsave_picture_160596.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ Logic Pro X 10.8.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160597.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160597.jpgsave_picture_160597.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ magnet:?xt=urn:btih:4CC6FB6C7764EBCBE929FC37B4F20EF7A4F6B5EE
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160598.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160598.jpgsave_picture_160598.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Topaz Video AI 4.0.2 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160599.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160599.jpgsave_picture_160599.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ magnet:?xt=urn:btih:87277A71FBDABDFE63E5A2F2988B75676E68174C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160600.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160600.jpgsave_picture_160600.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ magnet:?xt=urn:btih:B798D8405E8E2911216F7806E56DFD7F2855A137
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160601.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160601.jpgsave_picture_160601.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ magnet:?xt=urn:btih:9E6C0A9288149FFE9B948B7C5499245187A3D4B7
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160602.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160602.jpgsave_picture_160602.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ PDFsam Basic 5.2.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160603.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160603.jpgsave_picture_160603.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ magnet:?xt=urn:btih:CAE68F92C97E51EBE5FBF1C71631621F5D1A904E
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160604.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160604.jpgsave_picture_160604.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Ungoogled Chromium 119.0.6045.105-1.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160605.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160605.jpgsave_picture_160605.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ magnet:?xt=urn:btih:66610635E2ED2D71170C5C2230652DB67D51DB3B
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160606.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160606.jpgsave_picture_160606.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ magnet:?xt=urn:btih:7EE96C279ED448B3F06A62FA19B9E398C0082D60
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160607.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160607.jpgsave_picture_160607.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ magnet:?xt=urn:btih:C89192497D9F212CEC529B54424B1FEAA5EB3DDD
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160608.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160608.jpgsave_picture_160608.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ magnet:?xt=urn:btih:029E66781C7A203D20B09676A026C475B06A6389
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160609.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160609.jpgsave_picture_160609.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Shrapnel Storm - Silo (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160610.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160610.jpgsave_picture_160610.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Photo Lab 3.12.74 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160611.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160611.jpgsave_picture_160611.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138278.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138278.jpgsave_picture_138278.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:214B9A46F99BA501577E8C3378CF920365B36DED
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138279.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138279.jpgsave_picture_138279.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Neptunian Maximalism - 2 Albums (2020-2021) [FLAC|Lossless|WEB-DL|tracks] <Avant
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138281.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138281.jpgsave_picture_138281.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:7F6525568B4394F85B169D69B1B048AFA73A0B6C
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138282.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138282.jpgsave_picture_138282.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:1C455C2725B3639A16339A0C5BD70E8E1036DA08
 >>DailyTechInfo
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138283.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138283.jpgsave_picture_138283.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:1C455C2725B3639A16339A0C5BD70E8E1036DA08
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138284.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138284.jpgsave_picture_138284.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:62A004D7559F911A8FB12529DA53370316D120E6
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138285.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138285.jpgsave_picture_138285.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ Zuma's Revenge (2009) [Ru/En] (1.0) Unofficial
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138287.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138287.jpgsave_picture_138287.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:7A478F75AF1B0B1909ADB0F16D88C4F19089A2B2
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138288.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138288.jpgsave_picture_138288.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Wreckfest (2018) [Ru/Multi] (20181221) Repack R.G. Механики
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138289.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138289.jpgsave_picture_138289.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Krishna Das - Trust In The Heart (2017) [MP3|320 Kbps] <Meditative, Mantras, Eth
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138290.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138290.jpgsave_picture_138290.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ Chet Baker - The Hits 1952 - 1959 (2019) 3CD, New Continent [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138291.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138291.jpgsave_picture_138291.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ magnet:?xt=urn:btih:D50C0160B36E0A5590B5D6572A39B39CF8802661
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138292.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138292.jpgsave_picture_138292.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ magnet:?xt=urn:btih:D50C0160B36E0A5590B5D6572A39B39CF8802661
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138293.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138293.jpgsave_picture_138293.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ magnet:?xt=urn:btih:8A87B1D6A72A8EDFCAE7813944B22E30BDD1BEAB
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138294.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138294.jpgsave_picture_138294.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ magnet:?xt=urn:btih:EAD8A91213AD98429F55F922646DB470A4CD89CD
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138296.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138296.jpgsave_picture_138296.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Hitman Absolution: Professional Edition [Ru/En/Multi8] (Lossless Repack/1.0.444.
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138297.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138297.jpgsave_picture_138297.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ magnet:?xt=urn:btih:5CF3B304A0626916C7DE31D6D23A15E5C62621EB
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138298.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138298.jpgsave_picture_138298.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ FreeFileSync 9.6 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138299.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138299.jpgsave_picture_138299.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ SPINNIN' - Best Of 2019 Year Mix (2019-12-23) [MP3|320 Kbps] <House, Electro Hou
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138300.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138300.jpgsave_picture_138300.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Windows 7 SP1 х86-x64 by g0dl1ke 21.12.15 [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138301.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138301.jpgsave_picture_138301.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ Wi-Fi Mouse Pro v4.3.0 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138303.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138303.jpgsave_picture_138303.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ Health - UNLOVED (2023) EP [FLAC|Lossless|tracks] <Noise Rock, Electronic Rock, 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138304.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138304.jpgsave_picture_138304.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ Chameleon / Хамелеон [Ru] (RePack) 2005 | R.G.Games
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138306.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138306.jpgsave_picture_138306.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ magnet:?xt=urn:btih:5F4594795E3DAAE5409347F715BB2863D86983E8
 >>Мобильное Видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138307.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138307.jpgsave_picture_138307.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ Adobe Premiere Pro 2022 22.1.2.1 RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138308.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138308.jpgsave_picture_138308.jpg" />
 </div>
 
 

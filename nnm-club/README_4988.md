@@ -6,7 +6,7 @@ No Man Eyes - Harness The Sun (2023) [FLAC|Lossless|WEB-DL|tracks] <Prog Heavy M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155840.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155840.jpgsave_picture_155840.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ FonePaw Android Data Recovery 5.4.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155841.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155841.jpgsave_picture_155841.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:5A6F196FE6456B47AA6FED8012BBA361BB4BA5A2
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155842.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155842.jpgsave_picture_155842.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:330B1693BD400DB667BE3ED609F5C496F027C23D
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155843.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155843.jpgsave_picture_155843.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:28989EBB0168C70AC3C5103512072D623E149EDB
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155844.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155844.jpgsave_picture_155844.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Jim Snidero - Waves Of Calm (2019) Savant [FLAC|Lossless|tracks + .cue] <Post-Bo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155845.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155845.jpgsave_picture_155845.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:78921B7EB76F43677B16E2EE1EA51C30AE7494A6
 >>Приключенческая проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155846.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155846.jpgsave_picture_155846.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ Haunted [Ru/En] (Repack/1.0) 2012 | R.G. Catalyst
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155847.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155847.jpgsave_picture_155847.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ Armada Music - Trance Year Mix (2021-12-18) [MP3|320 Kbps] <Trance>
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155848.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155848.jpgsave_picture_155848.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ Ancient Trail - The Ancient Force (2023) [FLAC|Lossless|WEB-DL|tracks] <Power Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155849.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155849.jpgsave_picture_155849.jpg" />
 </div>
 
 
@@ -262,7 +262,7 @@ Translatium 10.1.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155850.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155850.jpgsave_picture_155850.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ magnet:?xt=urn:btih:7A2022B0BD9FE6577B635BAD6ACCBD62E449B004
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155851.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155851.jpgsave_picture_155851.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ The Ritual Aura - Heresiarch (2023) [FLAC|Lossless|WEB-DL|tracks] <Technical Dea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155852.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155852.jpgsave_picture_155852.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ WifiInfoView 2.10 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155853.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155853.jpgsave_picture_155853.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ magnet:?xt=urn:btih:09BC46522365822F17E1E05030DE3FF6B74DAECC
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155854.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155854.jpgsave_picture_155854.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ VA - Billboard Hot 100 Singles Chart 22.12.2018 (2018) [MP3|320 Kbps] <Pop, Danc
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155856.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155856.jpgsave_picture_155856.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Dark Fortress - Ylem (2010) [FLAC|Lossless|image + .cue] <Melodic Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155857.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155857.jpgsave_picture_155857.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ The Dreamhouse Orkestra - Synthesizer Dreamhouse Greatest Vol. 1 (1997) [MP3|320
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155858.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155858.jpgsave_picture_155858.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Frammer X 1.10 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155859.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155859.jpgsave_picture_155859.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:BAF04034E596664AED91164BE8AF4445E776BD30
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155860.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155860.jpgsave_picture_155860.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:BAF04034E596664AED91164BE8AF4445E776BD30
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155861.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155861.jpgsave_picture_155861.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Quercus - Kverulant & Nenia (2018) 2CD [FLAC|Lossless|image + .cue] <Funeral Doo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155862.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155862.jpgsave_picture_155862.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Optimage 3.3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155863.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155863.jpgsave_picture_155863.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ magnet:?xt=urn:btih:202228ACCF0937C6FCAFC06F2C85F56474575EFE
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155864.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155864.jpgsave_picture_155864.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ magnet:?xt=urn:btih:C57DB867E79E255DF1B83896EC27E6D639A19AD4
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155866.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155866.jpgsave_picture_155866.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ MTV Video Music Awards 2015 (2015) HDTVRip[H.264-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155867.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155867.jpgsave_picture_155867.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163976.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163976.jpgsave_picture_163976.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:AC9246F1BC0CAB7A89171B8D97EF4B8B3BB72CEB
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163977.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163977.jpgsave_picture_163977.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:0882B4718E9FCDE22B28CEDC5F64EBA46F2F7A61
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163978.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163978.jpgsave_picture_163978.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:D12EBBFFA82C1881C96BCC2E3B31D92E10516A81
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163979.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163979.jpgsave_picture_163979.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:F28BE14649EDFB9EE319A3E53FF9CAC58E59A68D
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163980.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163980.jpgsave_picture_163980.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Udemy, Stephen Ulibarri | Unreal Engine C++ The Ultimate Game Developer Course (
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163981.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163981.jpgsave_picture_163981.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ Udemy, Roope Kiuttu | Make Money on YouTube Following PROVEN STEPS - Works in 20
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163982.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163982.jpgsave_picture_163982.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:652587ADB13B920F42CA6540BFFE0409EBEF8AD2
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163983.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163983.jpgsave_picture_163983.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ magnet:?xt=urn:btih:C0C36D470F338BE79F2397DE5D0199CD04525FF7
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163984.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163984.jpgsave_picture_163984.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ Pepakura Designer 4.1.8 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163985.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163985.jpgsave_picture_163985.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ Red Giant Magic Bullet Suite 13.0.11 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163986.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163986.jpgsave_picture_163986.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ magnet:?xt=urn:btih:816C6B92B3419AA03CE6A7594696471EA06EE0DE
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163987.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163987.jpgsave_picture_163987.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Blackmagic Design DaVinci Resolve Studio 16.1.2.026 RePack by KpoJIuK + Componen
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163988.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163988.jpgsave_picture_163988.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ magnet:?xt=urn:btih:383CBF7D0FF579BA7E24FF0F91B6649B7F260630
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163989.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163989.jpgsave_picture_163989.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ magnet:?xt=urn:btih:7E6460F8F523CA5E7A208A79AB983EDF4B9A79AE
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163990.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163990.jpgsave_picture_163990.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Halestorm - Back From the Dead (2022) Deluxe [FLAC|Lossless|WEB-DL|tracks] <Heav
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163991.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163991.jpgsave_picture_163991.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ magnet:?xt=urn:btih:7ED54B51F4433A40EEE32AABC7F5D7A29EBEDDCA
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163992.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163992.jpgsave_picture_163992.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ magnet:?xt=urn:btih:3917D4F6D0FCD23567AB62B875A3791697FD7AB6
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163993.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163993.jpgsave_picture_163993.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ magnet:?xt=urn:btih:9830126F182BA876985BE19608A6AEA6B957BB8F
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163994.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163994.jpgsave_picture_163994.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ magnet:?xt=urn:btih:CE900BFAB70637005E3163783EC46716C10AB049
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163996.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163996.jpgsave_picture_163996.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Koukyuu no Karasu | Raven of the Inner Palace | Ворона император�
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163997.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163997.jpgsave_picture_163997.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ magnet:?xt=urn:btih:FBFA242E450BFBC0B7CF709F245258DD71247130
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163998.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163998.jpgsave_picture_163998.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ magnet:?xt=urn:btih:D5417A048E99950AB455FCE972C0519EFDF1F0EA
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163999.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163999.jpgsave_picture_163999.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ magnet:?xt=urn:btih:2C5D8B7C741FB3A2894D7C45FB8D4C97FA8BE014
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164000.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164000.jpgsave_picture_164000.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ magnet:?xt=urn:btih:8C6DA14D7753F66A514D5779CBD7F6828BCC6943
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164001.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164001.jpgsave_picture_164001.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ magnet:?xt=urn:btih:5F33502C9577FA1D2C0CD8AD84DEEB3DBC643EA2
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164002.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164002.jpgsave_picture_164002.jpg" />
 </div>
 
 

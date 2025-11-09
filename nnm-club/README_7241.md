@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247522.jpgsave_picture_247522.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:C25BD08ABFE872B9D62B15381BB79B94F73FB9B6
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247523.jpgsave_picture_247523.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:4F4653A50F36B0D21C32244FD52A7E6A3BA613F8
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247524.jpgsave_picture_247524.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:CDF38AD841600CF465968B07FEB315159C42BCAF
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247525.jpgsave_picture_247525.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:074CCA9DE39B97D79E9CDB76C665F93C90DE3460
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247526.jpgsave_picture_247526.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:BAAE9F966B8785A6248092DDCE3A19154D9CCF48
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247527.jpgsave_picture_247527.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:B4FB54ED270CAD9B840944BF58FC72CACE55C7AC
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247528.jpgsave_picture_247528.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:DDEEACCE187F70D3AD863932501ADEEBD55E9521
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247529.jpgsave_picture_247529.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:D5CA48375ED237F1569F2A914FF3BBCAB899E981
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247530.jpgsave_picture_247530.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ magnet:?xt=urn:btih:A7C3E5BBC2B1E90B03B8047771A4B10889229817
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247531.jpgsave_picture_247531.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Udemy, Sean Bradley | Zabbix 6 Application and Network Monitoring (2022) WEB-DL 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247532.jpgsave_picture_247532.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ Tor Bridges Updater 0.1.4 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247533.jpgsave_picture_247533.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ DJ Грув - Последние Киноремиксы (2007)
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247534.jpgsave_picture_247534.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Gekijouban Sword Art Online: Progressive - Hoshinaki Yoru no Aria | Мастер
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247535.jpgsave_picture_247535.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Metal: Hellsinger (2022) [Ru/Multi] (1.7.0-68176-154/dlc) Repack DjDI [Essential
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247536.jpgsave_picture_247536.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ magnet:?xt=urn:btih:EEF9E4D04651C37DF593FFEC6C28C3C111D30931
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247537.jpgsave_picture_247537.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ magnet:?xt=urn:btih:10ED3A72BD245913C0721516BF94690E552A7B89
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247538.jpgsave_picture_247538.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Mercedes-Benz EPC  последняя из традиционных [Офици�
 >>Автомобильные мультимедийные материалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247539.jpgsave_picture_247539.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Udemy, Антон Ларичев | JavaScript с нуля - основы язы�
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247540.jpgsave_picture_247540.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Udemy, Антон Ларичев | NestJS - с нуля, современный 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247542.jpgsave_picture_247542.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Slurm (Слёрм), Всеволод Севостьянов, Павел Сели
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247543.jpgsave_picture_247543.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Galactic Civilizations III / Galactic Civilizations 3 (2015) [Ru/Multi] (4.52.36
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247544.jpgsave_picture_247544.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ magnet:?xt=urn:btih:87B513A2517B01F69F84359446373E97480FF748
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247545.jpgsave_picture_247545.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ magnet:?xt=urn:btih:FAD7146DC58D794E19E5485709F350E67D197F77
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247546.jpgsave_picture_247546.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ magnet:?xt=urn:btih:3CC5157BDAE162ED9FF5109099CB27275820212D
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247547.jpgsave_picture_247547.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ DJ Грув - Ты не со мной (2008) [MP3|320 kbps]<House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247548.jpgsave_picture_247548.jpg" />
 </div>
 
 

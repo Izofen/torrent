@@ -6,7 +6,7 @@ Wise Care 365 Pro 6.6.2.632 + Portable [Multi/Ru] (акция Comss)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170973.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170973.jpgsave_picture_170973.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:E565B5EE1723248EB3C549D3D06FF6B0F5141A09
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170974.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170974.jpgsave_picture_170974.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ Bulk Image Downloader 6.35.0.0 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170975.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170975.jpgsave_picture_170975.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ Pradeepta Mishra | PyTorch Recipes, 2nd Edition (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170976.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170976.jpgsave_picture_170976.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ Artweaver Plus 7.0.16.15569 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170977.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170977.jpgsave_picture_170977.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Duran Duran - Danse Macabre (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170978.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170978.jpgsave_picture_170978.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ Queen - The Works (1984) 2CD Deluxe Edition, Remaster, 2011, EMI [FLAC|Lossless|
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170979.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170979.jpgsave_picture_170979.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ Queen - Made In Heaven (1995) 2CD Deluxe Edition, Remaster, 2011, EMI [FLAC|Loss
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170980.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170980.jpgsave_picture_170980.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Spotify 1.2.22.982 (Repack & Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170981.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170981.jpgsave_picture_170981.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ Shamdo  v1.3.1216 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170982.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170982.jpgsave_picture_170982.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ Queen - Innuendo (1991) 2CD Deluxe Edition, Remaster, 2011, EMI [FLAC|Lossless|W
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170983.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170983.jpgsave_picture_170983.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ City of Stories: Stephan's Journey (2023) [En] (1.0) Unofficial [Collector's Edi
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170984.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170984.jpgsave_picture_170984.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ VA - 80s Rock Standards (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170985.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170985.jpgsave_picture_170985.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ Ashampoo UnInstaller 14.00.10 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170986.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170986.jpgsave_picture_170986.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ magnet:?xt=urn:btih:405F399FC7A95BDA3D5DD788A5107DA9EFE4945E
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170987.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170987.jpgsave_picture_170987.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ magnet:?xt=urn:btih:CFE17E14FF736054505E80F3027FB6EA2A88C9F2
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170988.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170988.jpgsave_picture_170988.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Queen - Jazz (1978) 2CD Deluxe Edition, Remaster, 2011, EMI [FLAC|Lossless|WEB-D
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170989.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170989.jpgsave_picture_170989.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ Topaz Photo AI 2.0.7 (x64) Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170990.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170990.jpgsave_picture_170990.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ Topaz Video AI 4.0.1 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170991.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170991.jpgsave_picture_170991.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ Duran Duran - Danse Macabre (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Pop, Roc
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170992.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170992.jpgsave_picture_170992.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ magnet:?xt=urn:btih:332A9615BA239E7DAC7941A40478136FA1C05A16
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170993.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170993.jpgsave_picture_170993.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ magnet:?xt=urn:btih:53B06FDA8DEEDA14A90400FDDA20FBF354DBA408
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170994.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170994.jpgsave_picture_170994.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ magnet:?xt=urn:btih:AEF15C3F8D30289D328380FF0B745A95CC50F9FF
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170995.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170995.jpgsave_picture_170995.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Icecream PDF Editor PRO 3.12 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170996.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170996.jpgsave_picture_170996.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ magnet:?xt=urn:btih:91DE8045346C7109384688E3487D0147ED9C456C
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170997.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170997.jpgsave_picture_170997.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ magnet:?xt=urn:btih:DF542DA04089F589840E09B990861FB38265D37E
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170998.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170998.jpgsave_picture_170998.jpg" />
 </div>
 
 

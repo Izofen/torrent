@@ -6,7 +6,7 @@ Bizagi Modeler 4.0.0.065 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172303.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172303.jpgsave_picture_172303.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ DesktopOK 11.13 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172304.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172304.jpgsave_picture_172304.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ TweakNow WinSecret Plus! 4.9.9 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172305.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172305.jpgsave_picture_172305.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ NewFileTime 7.13 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172306.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172306.jpgsave_picture_172306.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ EssentialPIM Pro 11.7.2 RePack (& portable) by elchupacabra[Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172308.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172308.jpgsave_picture_172308.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ Brave Browser 1.59.120 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172309.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172309.jpgsave_picture_172309.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ Chromium 118.0.5993.89 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172310.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172310.jpgsave_picture_172310.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:8FFC8BDDC1F597E64E90606710344DE97DF378A9
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172311.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172311.jpgsave_picture_172311.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:1A787A5C81294681C97E4ACFEE0B42C6B88D8A60
 >>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172312.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172312.jpgsave_picture_172312.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ WinCatalog 2024.3.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172313.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172313.jpgsave_picture_172313.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Skype 8.106.0.212 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172314.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172314.jpgsave_picture_172314.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Icecream Video Converter Pro 1.36 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172315.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172315.jpgsave_picture_172315.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Icecream Photo Editor Pro 1.41 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172316.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172316.jpgsave_picture_172316.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ magnet:?xt=urn:btih:CC9B85582BCCA596C346BFE6E95342D214852AB1
 >>История
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172317.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172317.jpgsave_picture_172317.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ magnet:?xt=urn:btih:96742A32366016C3899B0F163950011D560DEE9C
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172318.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172318.jpgsave_picture_172318.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Arena - Lifian Tour MMXXII (2023) [MP3|320 Kbps] <Progressive Metal, Neo Progres
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172319.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172319.jpgsave_picture_172319.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ magnet:?xt=urn:btih:B0A0C380F0B7E3AC8CD4C2BF9B20C61C323185F0
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172320.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172320.jpgsave_picture_172320.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ VA - Electronic Elements - Amsterdam 2023 [MP3|320 Kbps] <House, Progressive Hou
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172321.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172321.jpgsave_picture_172321.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Wondershare PDFelement 10.1.2.2508 + OCR Plugin (x64) Portable by 7997 [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172322.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172322.jpgsave_picture_172322.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Romy - Mid Air (2023) [FLAC|Lossless|tracks] hand made [restored, declipped] <Ho
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172323.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172323.jpgsave_picture_172323.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Angelus Apatrida - Aftermath (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172324.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172324.jpgsave_picture_172324.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Affinity Designer 2 v.2.2.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172325.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172325.jpgsave_picture_172325.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ magnet:?xt=urn:btih:11ABB4F332CEA01DB93E925FEB977D0DC5C9BF4F
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172326.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172326.jpgsave_picture_172326.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ Skype 8.106.0.212 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172327.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172327.jpgsave_picture_172327.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ magnet:?xt=urn:btih:23A934B6245DC6D0B4FBE060264CD6C18E9B4FFC
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172328.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172328.jpgsave_picture_172328.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ HWiNFO 7.65 Build 5245 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172329.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172329.jpgsave_picture_172329.jpg" />
 </div>
 
 

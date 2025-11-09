@@ -6,7 +6,7 @@
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189646.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189646.jpgsave_picture_189646.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ CoolUtils Total Image Converter 8.2.0.258 RePack (& Portable) by Dodakaedr [Ru/E
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189647.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189647.jpgsave_picture_189647.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:3E3A7FF0FDBAFB58D0FE6F30CF30A9052A0B2F18
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189648.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189648.jpgsave_picture_189648.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Phase One Capture One 23 Enterprise 16.2.4.1568 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189649.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189649.jpgsave_picture_189649.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:4EF4777A7BC8AE284A8E4B117662AD7581D4F95F
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189650.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189650.jpgsave_picture_189650.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ Radeon Software Slimmer 1.10.1 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189651.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189651.jpgsave_picture_189651.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ JMG Sound - Cryostasis 1.1 VST, VST 3, AAX (x86/x64) RePack by TeamCubeadooby [E
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189652.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189652.jpgsave_picture_189652.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ VA - Best Of Vocal Trance 2023 (2023) [FLAC|Lossless|WEB-DL|tracks] <Electronic,
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189653.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189653.jpgsave_picture_189653.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ a-ha - True North (2022) [FLAC|Lossless|image + .cue] <Synth-pop, Pop Rock>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189654.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189654.jpgsave_picture_189654.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ VA - Music News vol.297 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189655.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189655.jpgsave_picture_189655.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ magnet:?xt=urn:btih:076C50E562EF69751188518A9737D1A8556DC6BC
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189656.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189656.jpgsave_picture_189656.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ magnet:?xt=urn:btih:00FEBE778D4662C1C3DF74993271C5747E9A6E2E
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189657.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189657.jpgsave_picture_189657.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ magnet:?xt=urn:btih:7128C5A241B2B7F4E6407C925316216C039CF7DF
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189658.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189658.jpgsave_picture_189658.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ Square Home Launcher 2.4.16 Mod by derrin [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189659.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189659.jpgsave_picture_189659.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ magnet:?xt=urn:btih:FAE4DA612672EE359F2B75779CFA900231C5CF49
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189660.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189660.jpgsave_picture_189660.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ AIDA64 Extreme | Engineer | Business Edition | Network Audit 6.92.6600 Portable 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189661.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189661.jpgsave_picture_189661.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ magnet:?xt=urn:btih:B8D18BA139F01BB134D84187B87F0DA57FF35138
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189662.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189662.jpgsave_picture_189662.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ magnet:?xt=urn:btih:BE6054D1E059B8001E932130FA8CD62BA59233DE
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189663.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189663.jpgsave_picture_189663.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ Exposure X7 Bundle v.7.1.8.9 [EN]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189664.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189664.jpgsave_picture_189664.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ magnet:?xt=urn:btih:C20F493E803764A831D0F8B78FD3213B3C815897
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189665.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189665.jpgsave_picture_189665.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ magnet:?xt=urn:btih:9221091EBD02469291DCB7DC294D03F345DE77BD
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189666.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189666.jpgsave_picture_189666.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ magnet:?xt=urn:btih:5CF14060D125CA94EFADCD263421BBBF3DCDFB9C
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189667.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189667.jpgsave_picture_189667.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ magnet:?xt=urn:btih:806102387E96A64F9D07AA11B9F1E86ADE8AD501
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189669.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189669.jpgsave_picture_189669.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ GPU-Z 2.55.0 + ASUS_ROG Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189670.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189670.jpgsave_picture_189670.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Google Chrome 116.0.5845.188 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189671.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189671.jpgsave_picture_189671.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ PowerISO 8.6 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189672.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189672.jpgsave_picture_189672.jpg" />
 </div>
 
 

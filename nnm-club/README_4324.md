@@ -6,7 +6,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134320.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134320.jpgsave_picture_134320.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:99DC5445DA2B5778A5D20953424A906B1A0E6BB1
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134321.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134321.jpgsave_picture_134321.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ PhotoRoom 4.7.5 (b1174) Lite-Mod by CMAPTOC [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134322.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134322.jpgsave_picture_134322.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:167F7788BE8C1462DC7459C1C81516DF1B7F7C2F
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134324.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134324.jpgsave_picture_134324.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ Princess Thailand - Golden Frames (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock, Po
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134325.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134325.jpgsave_picture_134325.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ Orange Stable - Nichts für ungut (2023) [FLAC|Lossless|WEB-DL|tracks] <Ska & Ro
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134326.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134326.jpgsave_picture_134326.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ magnet:?xt=urn:btih:667E8959E13F419F30625F5B297E14AC83D9CC94
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134327.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134327.jpgsave_picture_134327.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ magnet:?xt=urn:btih:78DA02790CBA59328DBB9E4977846C924322A7E3
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134328.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134328.jpgsave_picture_134328.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ Mike Vickers - I Wish I Were A Group Again (1968) Remaster, 1999, Parlophone UK[
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134329.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134329.jpgsave_picture_134329.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ U.S. Highball - No Thievery, Just Cool (2023) [FLAC|Lossless|WEB-DL|tracks] <Ind
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134330.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134330.jpgsave_picture_134330.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ VA - ROCK para el trabajo (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134332.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134332.jpgsave_picture_134332.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ magnet:?xt=urn:btih:88AA5E808681533F312F07C15014FE0B15153A27
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134334.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134334.jpgsave_picture_134334.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ magnet:?xt=urn:btih:C32AFBC9B1F0339333B620548FE60E8F1CDD2BE0
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134335.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134335.jpgsave_picture_134335.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ Widespread Panic - Boone 1999 (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Southe
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134337.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134337.jpgsave_picture_134337.jpg" />
 </div>
 
 
@@ -365,7 +365,7 @@ Call of Juarez: The Cartel / Call of Juarez: Картель [Ru/En/Multi9] (Stea
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134338.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134338.jpgsave_picture_134338.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ magnet:?xt=urn:btih:FDB26200383A0A6310139C3C69B824C7BD53FA76
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134339.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134339.jpgsave_picture_134339.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ Alarm Clock Pro 15 v.15.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134340.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134340.jpgsave_picture_134340.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Record of Lodoss War [Dreamcast] [PAL] [RUS] [CDI] (2001)
 >>Другие приставки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134341.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134341.jpgsave_picture_134341.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Meija - Grim (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative, progressive meta
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134343.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134343.jpgsave_picture_134343.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ JaSFTP13 for Mac 13.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134345.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134345.jpgsave_picture_134345.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:A92E4DFD58A2FF473B15C5F590563F25088023B5
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134346.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134346.jpgsave_picture_134346.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ FontXChange 6.0 U2B [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134347.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134347.jpgsave_picture_134347.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ RightFont 8.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134349.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134349.jpgsave_picture_134349.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Berlitz | Французский язык. Базовый курс [2006] [MP3+P
 >>Иностранные языки (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134354.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134354.jpgsave_picture_134354.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Verdath - Полярная ночь навсегда (2023) [FLAC|Lossless|WEB-D
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134355.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134355.jpgsave_picture_134355.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ WonderPen 2.4.1 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134358.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134358.jpgsave_picture_134358.jpg" />
 </div>
 
 

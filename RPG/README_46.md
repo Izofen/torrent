@@ -6,7 +6,7 @@ Edelweiss (2023) [Multi] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198455.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198455.jpgsave_picture_198455.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Saga of Sins (2023) [Multi] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198674.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198674.jpgsave_picture_198674.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Cursed Mansion (2023) [En] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198757.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198757.jpgsave_picture_198757.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Trine 5: A Clockwork Conspiracy (2023) [Ru/Multi] (1.0) Scene FairLight
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_201810.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_201810.jpgsave_picture_201810.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ The Lord of the Rings: Gollum (2023) [Ru/Multi] (1.2.52488/dlc) License GOG [Pre
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202112.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202112.jpgsave_picture_202112.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Darkest Dungeon II (2023) [Ru/Multi] (1.01.53364) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202192.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202192.jpgsave_picture_202192.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Queen's Wish: The Conqueror (2019) [En] (1.2) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202250.jpgsave_picture_202250.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Primitive Hearts (2023) [Multi] (v1/dlc) License GOG [18+]
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202336.jpgsave_picture_202336.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Keep Driving (2025) [Ru/Multi] (1.3.1.0d) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202471.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202471.jpgsave_picture_202471.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:2A9DA71A609A63ECE3EACF655EE289E46EE1C228
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202524.jpgsave_picture_202524.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Fox Girls Never Play Dirty! (2021) [Multi] (v1/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202742.jpgsave_picture_202742.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Monster Hunter Rise: Sunbreak (2022) [Ru/Multi] (13.0.0.1/dlc) Repack DjDI [Delu
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203058.jpgsave_picture_203058.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Lust Academy Season 1 (2022) [Multi] (0.7.1f.002) License GOG [18+]
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203196.jpgsave_picture_203196.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Din's Legacy (2019) [En] (1.013) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204425.jpgsave_picture_204425.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ BorderZone / Пограничье (2005) [Ru/En] (1.1) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_205214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205214.jpgsave_picture_205214.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ A Legionary's Life (2019) [Multi] (1.3.14.1) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_205631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205631.jpgsave_picture_205631.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Heroes of Hammerwatch II (2025) [Ru/Multi] (Build 20392961) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205658.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205658.jpgsave_picture_205658.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Nicktoons and The Dice of Destiny (2025) [Ru/Multi] (1.0) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205707.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205707.jpgsave_picture_205707.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Shadow Flare (2002) [En] (1.0) License
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206016.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206016.jpgsave_picture_206016.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Liberte (2023) [En] (1.0.2.b) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206769.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206769.jpgsave_picture_206769.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Volcano Princess (2023) [Multi] (2.01.05) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207052.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207052.jpgsave_picture_207052.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Class of '09 (2021) [En] (1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207132.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207132.jpgsave_picture_207132.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Spells of Gold / Заклятие (2002) [Ru/En] (1.042) Repack/Mod Foxx164
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207954.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207954.jpgsave_picture_207954.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ NeverHome - Hall of Apathy (2023) [En] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211031.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211031.jpgsave_picture_211031.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Forspoken (2023) [Ru/Multi] (1.21/dlc) Repack DjDI [Digital Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_229622.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_229622.jpgsave_picture_229622.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Forspoken (2023) [Ru/Multi] (1.21/dlc) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_229641.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_229641.jpgsave_picture_229641.jpg" />
 </div>
 
 

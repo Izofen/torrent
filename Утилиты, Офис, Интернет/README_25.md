@@ -6,7 +6,7 @@ Mirillis Action! 4.41.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43347.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43347.jpgsave_picture_43347.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ PDF Shaper Ultimate 14.5 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43362.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43362.jpgsave_picture_43362.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ BananaDefenderBlocker 1.0.0.2 [Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43494.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43494.jpgsave_picture_43494.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ RollBack Rx Professional 12.7 Build 2710121211 RePack by KpoJIuK [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43720.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43720.jpgsave_picture_43720.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ WifiInfoView 2.94 Portable [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44036.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44036.jpgsave_picture_44036.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Start11 Version 2.1.1.0 Business Edition [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44053.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44053.jpgsave_picture_44053.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Caramba Switcher Lab 2024.08.01 [Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44115.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44115.jpgsave_picture_44115.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Digital Clock 5.0.1 Final + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44140.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44140.jpgsave_picture_44140.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:A1799283569221066827A6B626E486C049548F37
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44152.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44152.jpgsave_picture_44152.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ DesktopOK 11.35 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44200.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44200.jpgsave_picture_44200.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ DiskGenius Pro 5.6.1.1580 (x64) Portable by Жека [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44247.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44247.jpgsave_picture_44247.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Wipe Pro 2408 (x64) Portable by FC Portables [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44252.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44252.jpgsave_picture_44252.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Colors Pro 3.2 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44286.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44286.jpgsave_picture_44286.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ HyperSnap 9.5.2 RePack (& Portable) by TryRooM [Ru/En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44291.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44291.jpgsave_picture_44291.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Bulk Image Downloader 6.50.0.0 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44299.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44299.jpgsave_picture_44299.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ Viber 23.5.1.0 (x64) RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44354.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44354.jpgsave_picture_44354.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ EssentialPIM Pro 12.0.6 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44395.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44395.jpgsave_picture_44395.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ BurnAware Professional / Premium 18.0 RePack (& Portable) by Dodakaedr [Multi/Ru
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44397.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44397.jpgsave_picture_44397.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Extreme Picture Finder 3.66.9.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44406.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44406.jpgsave_picture_44406.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ SRWare Iron 126.0.6400.0 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44414.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44414.jpgsave_picture_44414.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Mullvad Browser 13.5.3 Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44415.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44415.jpgsave_picture_44415.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ Viber 23.5.1.0 (x64) RePack (& Portable) by elchupacabra [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44468.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44468.jpgsave_picture_44468.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ DefenderKiller 12.6 Portable by Vlado [Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44485.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44485.jpgsave_picture_44485.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ ApowerREC 1.7.2.11 Portable by 7997 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44503.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44503.jpgsave_picture_44503.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Wondershare PDFelement 11.0.7.3119 [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44522.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44522.jpgsave_picture_44522.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ EssentialPIM Pro 12.0.6 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44764.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44764.jpgsave_picture_44764.jpg" />
 </div>
 
 

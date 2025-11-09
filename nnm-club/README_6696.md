@@ -6,7 +6,7 @@ Capture One 20 Pro v13.0.0.184 b6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229756.jpgsave_picture_229756.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ PDF-XChange PRO 9.2.359.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229757.jpgsave_picture_229757.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Nevercenter CameraBag Desktop 2.8.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229759.jpgsave_picture_229759.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ iClock Pro 5.7.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229760.jpgsave_picture_229760.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:A9D2015C1E1240DFDC40F58BF34A9BDEB0728C23
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229761.jpgsave_picture_229761.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:74DB38BF362167550F70CCA0495DB5DC45F2DE3D
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229762.jpgsave_picture_229762.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:288AD3A4AF219666520004947F26EDBAC1CD5402
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229764.jpgsave_picture_229764.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Vikisews, Виктория Ракуса | Немарафон по пошиву �
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_229765.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_229765.jpgsave_picture_229765.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:16F70AF54F9D66629E3907D6F80DEC10FAA079BF
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229767.jpgsave_picture_229767.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ OST - Hunt For The Wilderpeople | Охота на дикарей (2016) [MP3|320
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229768.jpgsave_picture_229768.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:29A38B1A2DC7F0128D5A707E14F7601B59756ED8
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229769.jpgsave_picture_229769.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ magnet:?xt=urn:btih:7276D8418B9E2ED0CFD4E5619069BC2DDA839F36
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229770.jpgsave_picture_229770.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ iMazing 2.10.6 (build 11553) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229773.jpgsave_picture_229773.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ LUNATIC TOHO - 1 альбом (2013) [FLAC|Lossless] <Touhou, Vocal, Doujin Onga
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229774.jpgsave_picture_229774.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ CCleaner Pro: ПО для очистки 23.14.0 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_229775.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_229775.jpgsave_picture_229775.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Queen - Face It Alone (2022) [MP3|320 kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229776.jpgsave_picture_229776.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ magnet:?xt=urn:btih:AC0EE631220822E1DB4DB8986DDB4DA210FF0951
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229777.jpgsave_picture_229777.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ Duplicate File Finder Pro 6.10  [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229778.jpgsave_picture_229778.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ magnet:?xt=urn:btih:B8A5DCA32B83603625579017AD669D3818BEA9C2
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229779.jpgsave_picture_229779.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ magnet:?xt=urn:btih:598185478405AC024A527315F58BF5E8D1F5A20C
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229780.jpgsave_picture_229780.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ magnet:?xt=urn:btih:483CB4A3CA91A8315FA4BDECE7652F892BC92B17
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229781.jpgsave_picture_229781.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ After The Burial - Wolves Within (2013) [MP3|320 кб/с]<Progressive Metalcore 
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229782.jpgsave_picture_229782.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ magnet:?xt=urn:btih:E40E62EE1AE7DE24F482D62640C39FD1A90111A1
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229785.jpgsave_picture_229785.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Flowx: Weather Map Forecast 3.402 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_229786.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_229786.jpgsave_picture_229786.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ magnet:?xt=urn:btih:F8F17041C6C498BF06B5DC59761BD0ABA12CB16A
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229787.jpgsave_picture_229787.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ magnet:?xt=urn:btih:BA0D7244628E94AFE0664BD6E1F90532A52499DE
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229788.jpgsave_picture_229788.jpg" />
 </div>
 
 

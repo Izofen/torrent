@@ -6,7 +6,7 @@ Donefor - Sleep On It (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Ha
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203279.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203279.jpgsave_picture_203279.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:A3A663C725544E933A167F75D6A3D7B51CABE84C
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203280.jpgsave_picture_203280.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Astral Wizard - Astral Wizard (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203281.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203281.jpgsave_picture_203281.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:E80EF101DB285886392CD0EEE0AE9D22D737AC70
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203282.jpgsave_picture_203282.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Uninstall Tool 3.7.2 Build 5701 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203283.jpgsave_picture_203283.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Kevin Galway - Something Bartered Something Blue (2023) [FLAC|Lossless|WEB-DL|tr
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203284.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203284.jpgsave_picture_203284.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:B0E65FDCAC4700770AAD94A7DC6A1C806F875EF0
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203285.jpgsave_picture_203285.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ Bury the Darkness - Dead Inside (2023) [FLAC|Lossless|WEB-DL|tracks] <Metalcore,
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203286.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203286.jpgsave_picture_203286.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ magnet:?xt=urn:btih:717A98A45DE3EE68B6C6B28F1C1CC165ACA430EE
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203287.jpgsave_picture_203287.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ Powderfinger - Vulture Street (20th Anniversary Edition, 2023, Universal Music A
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203288.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203288.jpgsave_picture_203288.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ IObit Driver Booster Pro 10.2.0.110 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203289.jpgsave_picture_203289.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ Persуide (Perséide) - The Only Thing (2021) [FLAC|Lossless|WEB-DL|tracks] <Mod
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203290.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203290.jpgsave_picture_203290.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ magnet:?xt=urn:btih:90C80198D8AFA070517E484FA624E75BB8F2F5D9
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203291.jpgsave_picture_203291.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ Omni Toolbox 1.4.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203292.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203292.jpgsave_picture_203292.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ magnet:?xt=urn:btih:165C054BD13C6DA151E11417288C2264F2E070E7
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203293.jpgsave_picture_203293.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Omni Recover 3.6.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203294.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203294.jpgsave_picture_203294.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ magnet:?xt=urn:btih:CEDBDB08E1DAB1F5E37C7A225B654901A23C7A4A
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203295.jpgsave_picture_203295.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ Wardell Gray - 1946 - 1950 (2002) Classics [FLAC|Lossless|tracks + .cue] <Bop, S
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203296.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203296.jpgsave_picture_203296.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ magnet:?xt=urn:btih:D57036E7F73F24BABA927A611768F07592C91DD2
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203297.jpgsave_picture_203297.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ Jag Panzer - The Fourth Judgement (1997) Reissue, 2007, Century Media [FLAC|Loss
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203298.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203298.jpgsave_picture_203298.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Kaspersky Tweak Assistant 23.1.30.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203299.jpgsave_picture_203299.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Vivaldi 6.2.3105.43 include standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203300.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203300.jpgsave_picture_203300.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ magnet:?xt=urn:btih:EC7098CC74C42B83D453C7BE4D755958721FE91A
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203301.jpgsave_picture_203301.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Brothers - Rainbow Rider (1973) [FLAC|Lossless|WEB-DL|tracks] <Classic Rock, Pro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203302.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203302.jpgsave_picture_203302.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ magnet:?xt=urn:btih:31EE97FDB404CA0BDDFE15F3336BC785B1EA3965
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203303.jpgsave_picture_203303.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Laurence Jones - Bad Luck & The Blues (2023) [FLAC|Lossless|WEB-DL|tracks] <Blue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203304.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203304.jpgsave_picture_203304.jpg" />
 </div>
 
 

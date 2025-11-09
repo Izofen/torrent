@@ -6,7 +6,7 @@ Wilco - Cousin (2023) [FLAC|Lossless|tracks + .cue] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182481.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182481.jpgsave_picture_182481.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Skype 8.91.0.404 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182482.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182482.jpgsave_picture_182482.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ The Charlie Hadden Blues Band - Baby Can't Dance (2023) [FLAC|Lossless|WEB-DL|tr
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182485.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182485.jpgsave_picture_182485.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Sensei 1.5.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182486.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182486.jpgsave_picture_182486.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:DFA380212771B11A34105D41041180852FEE19C7
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182489.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182489.jpgsave_picture_182489.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Fancy - Get Your Kicks (1985) [OGG Vorbis|950 Kbps] <Electronic, Disco, Italo-Di
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182491.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182491.jpgsave_picture_182491.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ James Hype - Live @ Mainstage, Mysteryland, Netherlands (2023-08-26) [MP3|320 Kb
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182494.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182494.jpgsave_picture_182494.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ Downie 4 4.6.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182495.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182495.jpgsave_picture_182495.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ Coal and Steel - Miners for Real (2023) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182498.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182498.jpgsave_picture_182498.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ Lights & i_o - Warehouse Summer (2022) [FLAC|Lossless|WEB-DL|tracks] <EDM, Progr
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182499.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182499.jpgsave_picture_182499.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ magnet:?xt=urn:btih:52351D20E122A6671D034A89DB1846042143E777
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182502.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182502.jpgsave_picture_182502.jpg" />
 </div>
 
 
@@ -290,7 +290,7 @@ Liquify - Beyond The Frozen Horizon (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182503.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182503.jpgsave_picture_182503.jpg" />
 </div>
 
 
@@ -317,7 +317,7 @@ Mahou Sensei Negima! Anime Final Gekijouban | Волшебный учитель 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182507.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182507.jpgsave_picture_182507.jpg" />
 </div>
 
 
@@ -341,7 +341,7 @@ Stefan Hillesheim - When I'm Gone (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182508.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182508.jpgsave_picture_182508.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ Alecks Waiters - Starry Streetlights (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182510.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182510.jpgsave_picture_182510.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ magnet:?xt=urn:btih:6E698EA1D3AECD079AA21F1C3AA3A794B9D4302C
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182512.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182512.jpgsave_picture_182512.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ magnet:?xt=urn:btih:CD8FD7E197D294DAE7434196A95FCC4276294CD3
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182514.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182514.jpgsave_picture_182514.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ Anthea - Tales Untold (2022) [FLAC|Lossless|image + .cue] <Symphonic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182516.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182516.jpgsave_picture_182516.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Heldmaschine - Flachenbrand (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Indust
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182519.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182519.jpgsave_picture_182519.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ HWiNFO 7.33 Build 4915 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182522.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182522.jpgsave_picture_182522.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ Apollo Motel - Apollo Motel (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues, Blues R
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182523.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182523.jpgsave_picture_182523.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ magnet:?xt=urn:btih:A4AADF0CFD33688244D6551FAF4357B298D36111
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182526.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182526.jpgsave_picture_182526.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Don Letts - Outta Sync (2023) [FLAC 16-24/44.1|Lossless|WEB-DL|tracks] <punk reg
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182527.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182527.jpgsave_picture_182527.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ Michael Wolff - Portraiture, The Blues Period (1998) Fuel 2000 [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182531.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182531.jpgsave_picture_182531.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ Mahou Sensei Negima! Mou Hitotsu no Sekai | Волшебный учитель Н
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182532.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182532.jpgsave_picture_182532.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ Violet - Illusions (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock, AOR, Fema
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182533.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182533.jpgsave_picture_182533.jpg" />
 </div>
 
 

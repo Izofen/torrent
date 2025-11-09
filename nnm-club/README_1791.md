@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46923.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46923.jpgsave_picture_46923.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:FCB66270EF7F42F1FFF2C41C65C52423129AA2DF
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46924.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46924.jpgsave_picture_46924.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:1D2149E321C1921CD3CB32979F622C86AEE81412
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46925.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46925.jpgsave_picture_46925.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ VA - Massage chakra (2024) [MP3|320 Kbps] <Relax, Meditative>
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46926.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46926.jpgsave_picture_46926.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:8C45EE35844422D074093F2933A1AC3EA1BBE337
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46927.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46927.jpgsave_picture_46927.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Nuro Audio - Pro Vocal Production Bundle 08.2024 VST 3, AAX (x64) RePack by Zom 
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46928.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46928.jpgsave_picture_46928.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:81FE5B3453789BCFFA0D99ED2F9F8C3695F3E2C0
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46929.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46929.jpgsave_picture_46929.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ JetBrains DataGrip 2024.2 Repack by Sitego [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46930.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46930.jpgsave_picture_46930.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ VA - Золотой шлягер (Любимые песни нашего вре�
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46931.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46931.jpgsave_picture_46931.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ magnet:?xt=urn:btih:C12583899943B4DB99E1582441558B35F6B55103
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46932.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46932.jpgsave_picture_46932.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ Mark Knopfler - Unplugged (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46933.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46933.jpgsave_picture_46933.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ magnet:?xt=urn:btih:2F4D23E833150AC562E961F0120A0B31ACA2CE03
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46934.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46934.jpgsave_picture_46934.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ VA - Золотой шлягер (Любимые песни нашего вре�
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46935.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46935.jpgsave_picture_46935.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ magnet:?xt=urn:btih:E5CC93849533D0896A052EECBF24E46B22AC2C22
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46936.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46936.jpgsave_picture_46936.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ magnet:?xt=urn:btih:A231B7FAF13E2F740D2E0799111B242AF31CCBDE
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46937.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46937.jpgsave_picture_46937.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ magnet:?xt=urn:btih:6B32F2F829B9AB9B89AAE8441BF5BBC31494B72E
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46938.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46938.jpgsave_picture_46938.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ magnet:?xt=urn:btih:776BCD0D11E77E3F656B559F0C5FA8A8FD942E1C
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46939.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46939.jpgsave_picture_46939.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Process Lasso Pro 14.3.0.54 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46940.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46940.jpgsave_picture_46940.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ JetBrains PyCharm Professional 2024.2 Repack by Sitego [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46941.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46941.jpgsave_picture_46941.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ magnet:?xt=urn:btih:2FFC54FC3B7452967B7E39FC1A4584388C7B2E83
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46942.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46942.jpgsave_picture_46942.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ magnet:?xt=urn:btih:6A64480C4311E1F1204F8AC497CC53008CB5EFAF
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46943.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46943.jpgsave_picture_46943.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ magnet:?xt=urn:btih:10261443E6B602A773CD79A511056046EA1158D9
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46944.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46944.jpgsave_picture_46944.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ magnet:?xt=urn:btih:24F79D25546DE3C50521307E61B17D603E83C3EC
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46945.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46945.jpgsave_picture_46945.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ magnet:?xt=urn:btih:A6DF9A6FA170E07A9415DB6912C7840E163E7304
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46946.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46946.jpgsave_picture_46946.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ Cadence OrCAD X 23.10.006 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46947.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46947.jpgsave_picture_46947.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ Topaz Video AI 5.3.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46948.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46948.jpgsave_picture_46948.jpg" />
 </div>
 
 

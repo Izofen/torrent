@@ -6,7 +6,7 @@
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155782.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155782.jpgsave_picture_155782.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:97DFB00ABDA2629A4EC0094AAA4C4E55FBF2308E
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155783.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155783.jpgsave_picture_155783.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ Kid3 3.9.0 Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155784.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155784.jpgsave_picture_155784.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ VA - Light Music Bass Best (2017) [MP3|192-320 Kbps] <Drum & Bass>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155785.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155785.jpgsave_picture_155785.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ DjVu Reader Pro 2.3.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155786.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155786.jpgsave_picture_155786.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ magnet:?xt=urn:btih:A94EA206252B768A11CE63D840238C9368F48392
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155787.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155787.jpgsave_picture_155787.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ magnet:?xt=urn:btih:E8F74449D694EF60B02EBDE4F94B784C571D24C5
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155789.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155789.jpgsave_picture_155789.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:A8CC1EADFCB56C9189ADD5DA9B6EDE0166BF030B
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155790.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155790.jpgsave_picture_155790.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ Trance Wax & Genix - Live @ Anjunakitchen London, United Kingdom 2019-12-13 [MP3
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155791.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155791.jpgsave_picture_155791.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ AnyTrans for iOS 8.9.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155792.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155792.jpgsave_picture_155792.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ VideoHive - Cinematic Sequence II - 5230046 [AEP]
 >>Трейлеры (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155793.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155793.jpgsave_picture_155793.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ magnet:?xt=urn:btih:967F75529477598FCF1F8FC40C42447C7D380822
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155795.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155795.jpgsave_picture_155795.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ Pavtube Video Converter Ultimate 4.9.0.0 Repack by 78Sergey [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155796.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155796.jpgsave_picture_155796.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ magnet:?xt=urn:btih:01F6574A06FC695DD33DFEAAA4CA9B6B8D792218
 >>Свадебные и романтические (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155797.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155797.jpgsave_picture_155797.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Psychos - Look Into Your Soul (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155798.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155798.jpgsave_picture_155798.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ magnet:?xt=urn:btih:99710B1D6970D9A1748805F82D24A6967965A760
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155799.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155799.jpgsave_picture_155799.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ Marc Benjamin - Live @ Orbit Tour, Melkweg Amsterdam, Netherlands 2019-11-11 [MP
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155802.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155802.jpgsave_picture_155802.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ magnet:?xt=urn:btih:14E61CF33A0ADAFCE569570B252FADA409937A77
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155803.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155803.jpgsave_picture_155803.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ magnet:?xt=urn:btih:1EC062C1DC7C99EEEE01810E542A5939EEB68912
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155804.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155804.jpgsave_picture_155804.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Titiyo - Come Along (2001) [MP3|320 Kbps] <Pop, Soul, R&B>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155805.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155805.jpgsave_picture_155805.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ VA - Club MTV - Dance Anthems (2018) [MP3|320 Kbps] <Pop, Experimental, Synthpop
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155806.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155806.jpgsave_picture_155806.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Yandex.ru | Курсы информационных технологий, Тре
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155807.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155807.jpgsave_picture_155807.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ magnet:?xt=urn:btih:A08B19CD2523FE00FB4EC63F22E4943B7304FF33
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155808.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155808.jpgsave_picture_155808.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ magnet:?xt=urn:btih:6C22FFE28900589BE2D70052BB861F5D3336F9BD
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155809.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155809.jpgsave_picture_155809.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ magnet:?xt=urn:btih:607E616C2904F06FDD68FF72BF7FF2B24A74A113
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155810.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155810.jpgsave_picture_155810.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ magnet:?xt=urn:btih:D4C1648C37AE5696127105CEBF8F244C3C95ED12
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155812.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155812.jpgsave_picture_155812.jpg" />
 </div>
 
 

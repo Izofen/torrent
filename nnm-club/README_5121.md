@@ -6,7 +6,7 @@ Sophie Lloyd - Imposter Syndrome (2023) [FLAC|Lossless|WEB-DL|tracks] <Modern Ha
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159872.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159872.jpgsave_picture_159872.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Oliver Tree - Cowboy Tears Drown the World in a Swimming Pool of Sorrow (2022) D
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159873.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159873.jpgsave_picture_159873.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Eva Alcaide Quintet - Dive Into The Sea (2022) Errabal Jazz [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159874.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159874.jpgsave_picture_159874.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:39072495B6EE5FDD6DBD3129AB214BEEBE99CFE9
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159875.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159875.jpgsave_picture_159875.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ magnet:?xt=urn:btih:9829514949D90B95B67BF9E061CB4A4C2EC48602
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159876.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159876.jpgsave_picture_159876.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ magnet:?xt=urn:btih:4352622058D07ABD043FAE3149DCD971B7774EE8
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159877.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159877.jpgsave_picture_159877.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ magnet:?xt=urn:btih:C1C2A86528AFA626EE2EF9D62BB0FA061C9A26F4
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159878.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159878.jpgsave_picture_159878.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ HWiNFO 7.65 Build 5266 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159879.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159879.jpgsave_picture_159879.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ magnet:?xt=urn:btih:327AF640404F3BB435AA9B0A356002CFC759C54F
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159880.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159880.jpgsave_picture_159880.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ magnet:?xt=urn:btih:B1FA5FB89FA0305C0963EED2A857ED45BA768902
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159881.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159881.jpgsave_picture_159881.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ magnet:?xt=urn:btih:DDE0EB945CE73D28937EB550AE78D4EFF887E7A4
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159882.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159882.jpgsave_picture_159882.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ Aiseesoft FoneEraser 1.0.8 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159883.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159883.jpgsave_picture_159883.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ Native Instruments Kontakt 7.7.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159884.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159884.jpgsave_picture_159884.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ DRmare Tidal Music Converter 2.9.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159885.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159885.jpgsave_picture_159885.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ VA - Silent Shore - Euphoric Trance Vol. 3 (2023) [MP3|320 Kbps] <Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159886.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159886.jpgsave_picture_159886.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Witness - The Hell List (2022) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159887.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159887.jpgsave_picture_159887.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ magnet:?xt=urn:btih:196BEE164CB7F2A096946CAB3C21734E65ED8D11
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159888.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159888.jpgsave_picture_159888.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Aiseesoft DVD Creator 5.2.28 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159889.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159889.jpgsave_picture_159889.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ magnet:?xt=urn:btih:3B8D82F835565132A1C15AFCD1F8CBC5AEBA6B8D
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159890.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159890.jpgsave_picture_159890.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ Posthuman Abomination - Mankind Recall (2022) [FLAC|Lossless|image + .cue] <Brut
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159891.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159891.jpgsave_picture_159891.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Diviner - Avaton (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159892.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159892.jpgsave_picture_159892.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Palefroid - Palefroid (2022) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159893.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159893.jpgsave_picture_159893.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ magnet:?xt=urn:btih:AD425F01FC1EF339F1936EF2E092579C29129304
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159894.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159894.jpgsave_picture_159894.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ AudKit Tidal Music Converter 2.9.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159895.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159895.jpgsave_picture_159895.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ VA - Top 10 October 2023 Emotional and Uplifting Trance (2023) [MP3|320 Kbps] <T
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159896.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159896.jpgsave_picture_159896.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Witticism - Once upon a War (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Black,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159897.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159897.jpgsave_picture_159897.jpg" />
 </div>
 
 

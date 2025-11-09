@@ -6,7 +6,7 @@
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170867.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170867.jpgsave_picture_170867.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:894CA074F8CD3E250EDE745BE29E789F0594655D
 >>Единоборства, Бои без правил
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170868.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170868.jpgsave_picture_170868.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:4E23E92088F2C6578CBAABCB437C3109E3654B03
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170869.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170869.jpgsave_picture_170869.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Skeletal Avenger (2021) [Ru/Multi] (1.0.6.4) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170870.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170870.jpgsave_picture_170870.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:BD7124D41866C26CBBC09B89947D7BCC5F79E411
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170872.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170872.jpgsave_picture_170872.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ magnet:?xt=urn:btih:AF757D93DB7AE8827236EA869263079F1E99D2C1
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170873.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170873.jpgsave_picture_170873.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ SamDrivers 19.11 - Сборник драйверов для Windows [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170874.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170874.jpgsave_picture_170874.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:10E1611FC881D504CC3A9072BDC04E7483B8A8EC
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170875.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170875.jpgsave_picture_170875.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ magnet:?xt=urn:btih:5501068855AF52B97B2F236A2FA0AC5563A55ADD
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170876.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170876.jpgsave_picture_170876.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ Winamp 5.9.1 RC2 Build 10023 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170877.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170877.jpgsave_picture_170877.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ The Gnomon Workshop, Christophe Desse | Introduction to Substance Painter 2020 W
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170878.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170878.jpgsave_picture_170878.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ magnet:?xt=urn:btih:90B64497C41F2FCA412F5802EC3694F55939918F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170879.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170879.jpgsave_picture_170879.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ magnet:?xt=urn:btih:A501BE7A5A0D9751152FBBD9EA5BD491C7A7879C
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170880.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170880.jpgsave_picture_170880.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Anthony Onyekachukwu Okonta | React.js Design Patterns (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170881.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170881.jpgsave_picture_170881.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Opera 73.0.3856.257 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170882.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170882.jpgsave_picture_170882.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ magnet:?xt=urn:btih:80AC4E5C4F577B9858C8B34A573C8BD9DB6AFF85
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170883.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170883.jpgsave_picture_170883.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ magnet:?xt=urn:btih:79EFF497209BE254E865A088E874D0FA88D40789
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170884.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170884.jpgsave_picture_170884.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Anti Spy Detector - Spyware 5.1.4 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170885.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170885.jpgsave_picture_170885.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ magnet:?xt=urn:btih:DAB22C837801D4864D8F8A48A22C608B553FA90A
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170886.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170886.jpgsave_picture_170886.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Paul Richard | Введение в AutoCAD 2020 / Introduction to AutoCAD 2020: 
 >>2D графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170887.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170887.jpgsave_picture_170887.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ magnet:?xt=urn:btih:2CEDD5B0D8B4D9D95DF35483A939D2A5A597E671
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170888.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170888.jpgsave_picture_170888.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ magnet:?xt=urn:btih:86639D85808DA03A51B880FE39857812C39E12FF
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170889.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170889.jpgsave_picture_170889.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ VA - Shazam Хит-парад World Top 200 Ноябрь (2021) [MP3|320 Kbps] <
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170890.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170890.jpgsave_picture_170890.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ magnet:?xt=urn:btih:5D197E005DC158CE50E4161821F0BC54627C7FE8
 >>Единоборства, Бои без правил
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170891.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170891.jpgsave_picture_170891.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ magnet:?xt=urn:btih:AFC622B38307C0AE9495DE28D6484CAF0E67EC5E
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170892.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170892.jpgsave_picture_170892.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Udemy, Nikita Sergeev | Аналитика в SPSS: от новичка до у�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170893.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170893.jpgsave_picture_170893.jpg" />
 </div>
 
 

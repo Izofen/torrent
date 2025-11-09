@@ -6,7 +6,7 @@ USB Device Tree Viewer 3.8.9.0 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190390.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190390.jpgsave_picture_190390.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:7508EE6C47FD845AF8758ADC0F9AB8354D6A85D2
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190392.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190392.jpgsave_picture_190392.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ The Chemical Brothers - For That Beautiful Feeling (2023) [MP3|320 Kbps] <Big Be
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190394.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190394.jpgsave_picture_190394.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Adobe Animate 2023 v.23.0.2 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190396.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190396.jpgsave_picture_190396.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ WinUtilities Professional 15.89 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190397.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190397.jpgsave_picture_190397.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:2BCBD895EBD8215255DFA6193254E7653B7A88C6
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190398.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190398.jpgsave_picture_190398.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:15B683F6C7D76F72CE836A1F0E6B5A2C8F16B945
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190399.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190399.jpgsave_picture_190399.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:25630074ABF493288092A46B86FCF9C846DD95C8
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190400.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190400.jpgsave_picture_190400.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:C8B3F16E84721ED811D98DFB55A5685F00AFDD70
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190401.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190401.jpgsave_picture_190401.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:65EE7947915C4F5F7DC2A39982798C1B6993E4A5
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190405.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190405.jpgsave_picture_190405.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Faetooth - Remnants of the Vessel (2022) [FLAC|Lossless|WEB-DL|tracks] <Doom Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190408.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190408.jpgsave_picture_190408.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ Adobe Bridge 2023 13.0.4 U2B [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190409.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190409.jpgsave_picture_190409.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Reabilitator - Mentally Defected (2022) [MP3|320 Kbps] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190410.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190410.jpgsave_picture_190410.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ magnet:?xt=urn:btih:303DAA5F838687ED6FA68D53F472ECB3E5E7B830
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190411.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190411.jpgsave_picture_190411.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ TrackView - HomeSafe v3.8.27 Mod by maxi123444 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190413.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190413.jpgsave_picture_190413.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ CrossOver 23.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190414.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190414.jpgsave_picture_190414.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ magnet:?xt=urn:btih:EE0ECADEF8B69F82F165ABF12C0BC8F1D6799B27
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190417.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190417.jpgsave_picture_190417.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ magnet:?xt=urn:btih:B445C016AE67EA3FED3E6C0D63598CB6CE62A2ED
 >>Единоборства, Бои без правил
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190418.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190418.jpgsave_picture_190418.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ magnet:?xt=urn:btih:FDF8E44B66C51380955F5D374D339384015859BD
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190421.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190421.jpgsave_picture_190421.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ VA - Autumn Mix (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190423.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190423.jpgsave_picture_190423.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ magnet:?xt=urn:btih:C4EE81C9C12C8CE54A76C0A304A5B4A726314063
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190424.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190424.jpgsave_picture_190424.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ ClassicDesktopClock 4.44 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190426.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190426.jpgsave_picture_190426.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ magnet:?xt=urn:btih:8B3239D3209DD74C14D38BA455ADCD495979AE4B
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190429.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190429.jpgsave_picture_190429.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ Balabolka 2.15.0.854 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190431.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190431.jpgsave_picture_190431.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ magnet:?xt=urn:btih:97A14AEE2957B910CF3BB75C82CC07321A52D14B
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190432.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190432.jpgsave_picture_190432.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ Topaz Photo AI for Mac 2.0.0 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190433.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190433.jpgsave_picture_190433.jpg" />
 </div>
 
 

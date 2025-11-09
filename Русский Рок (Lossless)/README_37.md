@@ -6,7 +6,7 @@
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247456.jpgsave_picture_247456.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Jane Air - 9 (2025) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248590.jpgsave_picture_248590.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Zmey Gorynich - Странствiя Рукоблуда и сестры его М
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248592.jpgsave_picture_248592.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:EDBF36F0A146DFBF8A82F40D7DF957C9CB98FA1E
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249497.jpgsave_picture_249497.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ magnet:?xt=urn:btih:CF056748BD3DB86EB11831B4652B2A8F60C0A2D5
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249777.jpgsave_picture_249777.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Brave Rockets - Привет (2023) [FLAC|Lossless|WEB-DL|tracks] <Ska Punk-Rock
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249798.jpgsave_picture_249798.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ magnet:?xt=urn:btih:BBFA1919AB610AAD69E5055426D6E8AB0862AC7E
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249807.jpgsave_picture_249807.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ magnet:?xt=urn:btih:13099D979066C223691EA7A7ABCA99829837EE78
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249810.jpgsave_picture_249810.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ magnet:?xt=urn:btih:4100F4DD8FA4E93B30EF90FC73048783F657D1E0
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249813.jpgsave_picture_249813.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Glory Hunters - We Play Muzik (2022) [FLAC|Lossless|WEB-DL|tracks] <Ska, Punk>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249815.jpgsave_picture_249815.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:4EA5E2E3961BAD87E8C1C1A1FF84F89F7C3FB3A6
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250065.jpgsave_picture_250065.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:587931C2B0AA6C6456020BEDF6DDFB619A0B0C75
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250400.jpgsave_picture_250400.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ magnet:?xt=urn:btih:C86FAF540BDE7B2475B73EAFA04FCE99CFE2BC5D
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251246.jpgsave_picture_251246.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ magnet:?xt=urn:btih:C86FAF540BDE7B2475B73EAFA04FCE99CFE2BC5D
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251859.jpgsave_picture_251859.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ magnet:?xt=urn:btih:D1D82ED6297BA5534CCF11CD8B985A7371AF4000
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252074.jpgsave_picture_252074.jpg" />
 </div>
 
 

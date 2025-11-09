@@ -6,7 +6,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149274.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149274.jpgsave_picture_149274.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:2E4A8723413B8C626BA7F2BA411FE46F614D0E45
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149275.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149275.jpgsave_picture_149275.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:57F4E6B8992A1163D94C4386142AB98562540A68
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149276.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149276.jpgsave_picture_149276.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:C248B87326B8C85530BF7633701E312C35053526
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149277.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149277.jpgsave_picture_149277.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:497F029E3F097CE0C5051362F0BF8EDC0F35D496
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149278.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149278.jpgsave_picture_149278.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ MultiBootHDD 2018 22.12.18 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149280.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149280.jpgsave_picture_149280.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ Rag'n'Bone Man - Wolves (2016) EP [FLAC|Lossless|tracks + .cue] <Rhythm & Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149281.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149281.jpgsave_picture_149281.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:79F54602E6095B51D8988CD502C5294FBE1B75F4
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149283.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149283.jpgsave_picture_149283.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ Bakumatsu: Ren'ai Bakumatsu Kareshi Gaiden | Бакумацу [2018, TV, 12] WEB
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149284.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149284.jpgsave_picture_149284.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ magnet:?xt=urn:btih:2A67299865106E0E1DECF73655CADEC21BB31F3D
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149285.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149285.jpgsave_picture_149285.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ magnet:?xt=urn:btih:173B15F56B70186F2ACF7B4E8C86BFA98AB3F4B9
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149286.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149286.jpgsave_picture_149286.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ magnet:?xt=urn:btih:6468C9F9F0FC0F75FFD8D6C015085AF5784C902E
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149288.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149288.jpgsave_picture_149288.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ magnet:?xt=urn:btih:34078BA025195E695B929E8B620A6404000E6A00
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149289.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149289.jpgsave_picture_149289.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ magnet:?xt=urn:btih:44731473E191F3974445960EC1C2C823DC6AECAD
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149290.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149290.jpgsave_picture_149290.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ PAC-MAN 256: вечный лабиринт v2.0.0 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149291.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149291.jpgsave_picture_149291.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ magnet:?xt=urn:btih:8250C77C9DE6CD3D8345788A726F8390D436284D
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149292.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149292.jpgsave_picture_149292.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ magnet:?xt=urn:btih:8F0A31E59A61330E66718D4E8374A6854CE85940
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149293.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149293.jpgsave_picture_149293.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ magnet:?xt=urn:btih:8F0A31E59A61330E66718D4E8374A6854CE85940
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149295.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149295.jpgsave_picture_149295.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Alphaville - Prostitute (1994) Deluxe Version, Remaster, 2023, Warner Music Cent
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149296.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149296.jpgsave_picture_149296.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ magnet:?xt=urn:btih:9F3E3197B575CF63604EE84E58329E6FD2871570
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149297.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149297.jpgsave_picture_149297.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ Microsoft Visual Studio 2019 Community 16.8.2 (Offline Cache, Unofficial) [Ru/En
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149298.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149298.jpgsave_picture_149298.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ magnet:?xt=urn:btih:084FA08BE53DAE4440950A30E4C65E1FFC05DABB
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149299.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149299.jpgsave_picture_149299.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:6076F4F33B016CE1603340F38FEC1B303FF2C167
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149300.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149300.jpgsave_picture_149300.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ magnet:?xt=urn:btih:32D7FA6A1B6243E77DCFD416F5B6BC165EB084B9
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149301.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149301.jpgsave_picture_149301.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Adobe Character Animator CC 2019 2.0.1.8 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149302.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149302.jpgsave_picture_149302.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ magnet:?xt=urn:btih:FF1C07C34B4F3BC75F0954CC93D2A4BD5EA18DD5
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149303.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149303.jpgsave_picture_149303.jpg" />
 </div>
 
 

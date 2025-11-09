@@ -6,7 +6,7 @@
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195379.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195379.jpgsave_picture_195379.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:6D021EE934784935085AAC696F3EC88CDBA5521D
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_195380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195380.jpgsave_picture_195380.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Udemy, Ali Gelenler | Event-Driven Microservices: Spring Boot, Kafka and Elastic
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195381.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195381.jpgsave_picture_195381.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ The Gnomon Workshop, Giovani Magana | Creating Assets & Architecture for Game En
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195382.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195382.jpgsave_picture_195382.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:3B5406DB844CCC2EFB3CA6DEC73D4363169627DD
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_195383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195383.jpgsave_picture_195383.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ DogLinux Debian 12 Bookworm 2023.07.21 [x86, amd64] 2xDVD 2xCD (ISO)
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195384.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195384.jpgsave_picture_195384.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ Imagine : AI Art Generator v2.9.1 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195386.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195386.jpgsave_picture_195386.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ Please, Forgive Me (2023) [Ru/En] (1.4) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195387.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195387.jpgsave_picture_195387.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:9146B71F351638037961119F75B8605C311A4536
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_195388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195388.jpgsave_picture_195388.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:F7FCED43CDEA7A1D0A833B1941CA24C1EB73C585
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195389.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195389.jpgsave_picture_195389.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ The Cave (2013) [Multi] (1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195390.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195390.jpgsave_picture_195390.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:A41A7B87E70F3E9007F2C36650AFD025617B7DA4
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195391.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195391.jpgsave_picture_195391.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Total Uninstall 7.4.0 Professional RePack (& Portable) by elchupacabra [Multi]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195392.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195392.jpgsave_picture_195392.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ magnet:?xt=urn:btih:E7C2F29D42E31024E37447C6B4F55693C6A79B24
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195393.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195393.jpgsave_picture_195393.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ The Gnomon Workshop, Miguel Perez Senent | Large-Scale Water Fx In Houdini (2023
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195394.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195394.jpgsave_picture_195394.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ The Rule of Land: Pioneers (2023) [Multi] (1.0.1) Scene Skidrow
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195395.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195395.jpgsave_picture_195395.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ magnet:?xt=urn:btih:DA9FA5194C6FCDFBD6A191FF2EAAC1ADF52B23AA
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_195396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195396.jpgsave_picture_195396.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ magnet:?xt=urn:btih:83C07F178A6A17A1C401BACC70C8067C09F00D2E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195397.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195397.jpgsave_picture_195397.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ magnet:?xt=urn:btih:0F220173DCE55902103584BC2487E461A72F5C0E
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195398.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195398.jpgsave_picture_195398.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ magnet:?xt=urn:btih:779D2B93495DB611518F75150D8392E0E1102EA5
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_195399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195399.jpgsave_picture_195399.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ AOMEI Backupper Technician Plus 7.3.0 Repack (& Portable) by elchupacabra [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195400.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195400.jpgsave_picture_195400.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ magnet:?xt=urn:btih:927ADED4B6F3300A7D3DB5A47E6DFCF8C7940148
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195401.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195401.jpgsave_picture_195401.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ magnet:?xt=urn:btih:CBD1F3E37EF6C2B4A9F53EAF821AB35A6E232D4F
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195402.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195402.jpgsave_picture_195402.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ magnet:?xt=urn:btih:4C0015328A79CB443F44D440CA706FEABF72AE8D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195403.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195403.jpgsave_picture_195403.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ magnet:?xt=urn:btih:B145AFA2B072BD2E7D7848CB7B6DDD1C3F7D9BAF
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195404.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195404.jpgsave_picture_195404.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Magic Recovery Software 2023.07 Portable by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195406.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195406.jpgsave_picture_195406.jpg" />
 </div>
 
 

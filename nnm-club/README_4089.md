@@ -6,7 +6,7 @@
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126889.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126889.jpgsave_picture_126889.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:D9B89EC797BE23936B074768B65D5DF785561944
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126890.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126890.jpgsave_picture_126890.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Autumn's Child - Tellus Timeline (2024) [MP3|320 Kbps] <Melodic Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126891.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126891.jpgsave_picture_126891.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ VA - Калина красная 19. Песни, спетые сердцем (20
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126892.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126892.jpgsave_picture_126892.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ magnet:?xt=urn:btih:80311BB3DE1D00807ABF6F58C2EC5207AD2B78C6
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126893.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126893.jpgsave_picture_126893.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ magnet:?xt=urn:btih:F0D976256963ABC57A64DF40645A4F503214751C
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126894.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126894.jpgsave_picture_126894.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ VA - Bravo Hits 12 (1996) 2CD, Compilation [FLAC|Lossless|WEB-DL|tracks] <Electr
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126895.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126895.jpgsave_picture_126895.jpg" />
 </div>
 
 
@@ -187,7 +187,7 @@ Sandboxie plus 1.12.5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126896.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126896.jpgsave_picture_126896.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ VA - The Best Of Hit News (1995) [OGG Vorbis|480 Kbps] <Electronic, Euro House, 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126897.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126897.jpgsave_picture_126897.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ FileZilla 3.66.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126898.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126898.jpgsave_picture_126898.jpg" />
 </div>
 
 
@@ -262,7 +262,7 @@ VA - The Best Of Aerodynamica Music Group 2023 [MP3|320 Kbps] <Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126899.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126899.jpgsave_picture_126899.jpg" />
 </div>
 
 
@@ -289,7 +289,7 @@ Opera GX 105.0.4970.56 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126900.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126900.jpgsave_picture_126900.jpg" />
 </div>
 
 
@@ -315,7 +315,7 @@ magnet:?xt=urn:btih:746211532D02D53E06CBF2110D6C09FEF63D2DC4
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126901.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126901.jpgsave_picture_126901.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ magnet:?xt=urn:btih:1FF3059AB26A75F4A9551112C69E82E4EA88042C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126902.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126902.jpgsave_picture_126902.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ Sandboxie 5.67.5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126903.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126903.jpgsave_picture_126903.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ magnet:?xt=urn:btih:529D957E4C9AC08FF653542DF13EA232C4C4F374
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126904.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126904.jpgsave_picture_126904.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Vatican Shadow - Destroy Chemical Weapons (2023) [FLAC|Lossless|WEB-DL|tracks] <
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126905.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126905.jpgsave_picture_126905.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ magnet:?xt=urn:btih:3BB446479436B5CB687371FEC8D5359262A8267D
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126906.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126906.jpgsave_picture_126906.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ TV Girl - French Exit (2014) Digital Album [FLAC|Lossless|WEB-DL|tracks] <Hypnot
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126907.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126907.jpgsave_picture_126907.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Serj Tankian - Invocations (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Classical
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126908.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126908.jpgsave_picture_126908.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ magnet:?xt=urn:btih:EC79343EA811D867AD7198F45AD690581B2DFA3F
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126909.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126909.jpgsave_picture_126909.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ magnet:?xt=urn:btih:6E987E2AED1AB6DEFF2EC4A55781AE6DCE353F7A
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126910.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126910.jpgsave_picture_126910.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ magnet:?xt=urn:btih:15CA9B818A6583E3D5CA302BDEEAC53CABE81714
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126911.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126911.jpgsave_picture_126911.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ magnet:?xt=urn:btih:A6545C2E4229A0D496DA9C330418BCDEF7FB7B47
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126912.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126912.jpgsave_picture_126912.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ magnet:?xt=urn:btih:FB6EEF6958C38A3514B0BED8C066FB0E9C37EC05
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126913.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126913.jpgsave_picture_126913.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ magnet:?xt=urn:btih:D8A451E62E43B5A9D8137817EB04443B388752F0
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126914.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126914.jpgsave_picture_126914.jpg" />
 </div>
 
 

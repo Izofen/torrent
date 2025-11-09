@@ -6,7 +6,7 @@ Dire Straits (Даэр Стрэйтс) - Love Over Gold (Любовь дорож
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114372.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114372.jpgsave_picture_114372.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Madis - 4 Альбома, 1 Сингл (2022-2023) [FLAC 24/48|Lossless|WEB-DL|t
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114375.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114375.jpgsave_picture_114375.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ R.E.M. - Studio Albums (9 releases) (1991-2011) hand made [restored, declipped] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114406.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114406.jpgsave_picture_114406.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:0BA66652C14E55A7E318BA0D609D708D561D7AEE
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114610.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114610.jpgsave_picture_114610.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ REO Speedwagon - Hi Infidelity (1980) Remaster, 2024, Epic - Legacy [FLAC 24/192
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114612.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114612.jpgsave_picture_114612.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Firewind - Stand United (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Power Meta
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114617.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114617.jpgsave_picture_114617.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Yard Act - Where’s My Utopia? (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Po
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114618.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114618.jpgsave_picture_114618.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Big Big Train - The Likes of Us (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Prog
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114619.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114619.jpgsave_picture_114619.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Elevenwire - Blood Red Sun (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Progressi
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114621.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114621.jpgsave_picture_114621.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:1C590C00B16CA6CFBD3382102D1F1BE23E88B61B
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114632.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114632.jpgsave_picture_114632.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Lars Leonhard - Reflections (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Ambient,
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114633.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114633.jpgsave_picture_114633.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Liam Gallagher & John Squire - Liam Gallagher & John Squire (2024) [FLAC 24/44.1
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114640.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114640.jpgsave_picture_114640.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Suldusk - Anthesis (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Atmospheric Dark,
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114649.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114649.jpgsave_picture_114649.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ magnet:?xt=urn:btih:375781DC63AEABB9688FAC13D3316628BD31D1D8
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114657.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114657.jpgsave_picture_114657.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ VA - Андрей Петров - Музыка из к/ф "Жестокий ро�
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114663.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114663.jpgsave_picture_114663.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ magnet:?xt=urn:btih:8CE9793F36D1E7AD68ED27AB1BC3A21A29DE0531
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114665.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114665.jpgsave_picture_114665.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ AC/DC - If You Want Blood You've Got It (1978) Live [FLAC|24/192|image + .cue|Vi
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114681.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114681.jpgsave_picture_114681.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Nirvana - Studio Albums (5 releases) (1989-1994) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114698.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114698.jpgsave_picture_114698.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Baltimoore - There’s No Danger On The Roof (1991 (1988)) [FLAC 24/192|Lossless
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114791.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114791.jpgsave_picture_114791.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Jacob Collier - Djesse Vol. 4 (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Pop, J
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114792.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114792.jpgsave_picture_114792.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Liv Kristine - Deus ex Machina (1998) Remastered, 2024, Metalville [FLAC 24/44.1
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114793.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114793.jpgsave_picture_114793.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Asher Monroe - Songs of the Century (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114799.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114799.jpgsave_picture_114799.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Blind Channel - Exit Emotions (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Nu Met
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114803.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114803.jpgsave_picture_114803.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Bananarama - Pop Life (1992 (1991)) [FLAC 24/192|Lossless|tracks] <Pop>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114808.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114808.jpgsave_picture_114808.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ magnet:?xt=urn:btih:A4ED4D581A5C263E8B86E37D92F8FEFEFFD39D99
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114809.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114809.jpgsave_picture_114809.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ AC/DC - Let There Be Rock (1977) [FLAC|24/192|image + .cue|Vinyl-Rip] <Hard Rock
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114816.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114816.jpgsave_picture_114816.jpg" />
 </div>
 
 

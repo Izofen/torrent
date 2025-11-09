@@ -6,7 +6,7 @@ Manhattan Jazz Quintet - The Sidewinder (1987) ProJazz [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70378.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70378.jpgsave_picture_70378.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Bishop Gunn - Live With Bishop Gunn (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70379.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70379.jpgsave_picture_70379.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Kenny Barron - Beyond This Place (2024) Artwork Records [FLAC|Lossless|image + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70380.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70380.jpgsave_picture_70380.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Nick Brignola & Sal Salvador - A Tribute To Gerry Mulligan (1982 - 1984) 1993, S
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70381.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70381.jpgsave_picture_70381.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Kenny Burrell - Prestige Profiles (1956 - 1963) 2005, Prestige [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70382.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70382.jpgsave_picture_70382.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ magnet:?xt=urn:btih:D749DD8B82D2474218AB7B380285D84540D24695
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70383.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70383.jpgsave_picture_70383.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ djdtime - Relaxing Deep House & Melodic Techno Vol. 3 (2025) [FLAC|Lossless|WEB-
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70384.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70384.jpgsave_picture_70384.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ FreeFileSync 14.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70385.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70385.jpgsave_picture_70385.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ magnet:?xt=urn:btih:31E4E484BF290D9FC08D52B7E3D9056A964409A6
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70386.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70386.jpgsave_picture_70386.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ magnet:?xt=urn:btih:114284C53B4A023398B03A92A3B3B62D90644ADD
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70387.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70387.jpgsave_picture_70387.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ magnet:?xt=urn:btih:06598F22A034B9B103DBD710B3B072C94B9A5A7A
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70388.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70388.jpgsave_picture_70388.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ magnet:?xt=urn:btih:C631C164C498BE58F570BBE9032EF63700D7AA66
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70389.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70389.jpgsave_picture_70389.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ magnet:?xt=urn:btih:822D7DCC2921D5C4E6F1F500E1067F3BE223CA62
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70390.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70390.jpgsave_picture_70390.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ magnet:?xt=urn:btih:646E5EB8F2BFA83D6B1B3646FFF00053E7E3608D
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70391.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70391.jpgsave_picture_70391.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ Krieg-B - War Drums' resonance (2024) [FLAC|Lossless|WEB-DL|tracks] <EBM, Dark E
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70392.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70392.jpgsave_picture_70392.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ Metropolit - Fear: My Guide, My Steady Downfall (2025) [MP3|320 Kbps] <Darkwave,
 >>Industrial, EBM, Dark Electro
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70393.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70393.jpgsave_picture_70393.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ magnet:?xt=urn:btih:C046E076BD69313F2D50A9674C53768FBB2337C7
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70394.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70394.jpgsave_picture_70394.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ magnet:?xt=urn:btih:680094E7D550E39497EA6EB43DC7F3669C728113
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70395.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70395.jpgsave_picture_70395.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ Crazy Lixx - Thrill of the Bite (2025) [FLAC|Lossless|image + .cue] <Hard Rock, 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70396.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70396.jpgsave_picture_70396.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Echodead - Enter the Void (2024) [FLAC|Lossless|WEB-DL|tracks] <EBM, Dark Electr
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70397.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70397.jpgsave_picture_70397.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ magnet:?xt=urn:btih:E5FC6328C9207DA00BF9653BA384430D6EE68E8F
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70398.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70398.jpgsave_picture_70398.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ magnet:?xt=urn:btih:3EF4D418B5242C5090C9C1FF018F6DA9AAD7ADF1
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70399.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70399.jpgsave_picture_70399.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Protokoll 19 - Mental Decay (2024) [MP3|320 Kbps] <Dark Electro, Harsh EBM>
 >>Industrial, EBM, Dark Electro
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70400.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70400.jpgsave_picture_70400.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ magnet:?xt=urn:btih:DC931DF2F20D7EEC1054E1FCC640F3F1636261A5
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70401.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70401.jpgsave_picture_70401.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ Strong Product - IV (2025) [FLAC|Lossless|WEB-DL|tracks] <EBM>
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70402.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70402.jpgsave_picture_70402.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ magnet:?xt=urn:btih:61074A71C9A7FA2474B477DD3D1569C94831E9F4
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70403.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70403.jpgsave_picture_70403.jpg" />
 </div>
 
 

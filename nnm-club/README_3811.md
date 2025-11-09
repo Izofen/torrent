@@ -6,7 +6,7 @@ VA - Saturday Night (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119466.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119466.jpgsave_picture_119466.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Being As An Ocean - Death Can Wait (2024) [MP3|320 Kbps] <Post-Hardcore, Alterna
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119467.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119467.jpgsave_picture_119467.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:F21E43B0C6509F96E0BB096AC11A92F1C871DA58
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119468.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119468.jpgsave_picture_119468.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ magnet:?xt=urn:btih:A3A4F52EFA7B0B067C085F7D1075C6F95B7EB92B
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119469.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119469.jpgsave_picture_119469.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ magnet:?xt=urn:btih:BD7EAFD879E4E52CC6D0E879A5E0C47CAAADCFA1
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119470.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119470.jpgsave_picture_119470.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Peter and the Roses - Peter and the Roses (2024) [FLAC 24/44.1|Lossless|WEB-DL|t
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119471.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119471.jpgsave_picture_119471.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ BJ Baartmans - Ghostwriter (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues, 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119472.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119472.jpgsave_picture_119472.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ VA - Relaxing Soothing Jazz Chilly Jams Playlist (2024) [FLAC|Lossless|WEB-DL|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119473.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119473.jpgsave_picture_119473.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Serenity - Studio Albums (8 releases) (2007-2023) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119474.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119474.jpgsave_picture_119474.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ PhotoDirector 18.10.0 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119475.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119475.jpgsave_picture_119475.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ magnet:?xt=urn:btih:DC362A75E17C3E0738691581B51E98FB2BFEC043
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119476.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119476.jpgsave_picture_119476.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ inShot (ex. instaShot) / Фото и видеоредактор v2.014.1437 Mod 
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119477.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119477.jpgsave_picture_119477.jpg" />
 </div>
 
 
@@ -317,7 +317,7 @@ magnet:?xt=urn:btih:9AB6EC6AEE00BC2D2D8B238560566383D085952C
 >>Старые Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119478.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119478.jpgsave_picture_119478.jpg" />
 </div>
 
 
@@ -341,7 +341,7 @@ magnet:?xt=urn:btih:E83362AE0E1831D44F964B8C17965B424B4D1097
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119479.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119479.jpgsave_picture_119479.jpg" />
 </div>
 
 
@@ -365,7 +365,7 @@ magnet:?xt=urn:btih:86230456856125237B855EBB2164E57CE94ED6B6
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119480.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119480.jpgsave_picture_119480.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ magnet:?xt=urn:btih:07798217AAFA1A56247D2EEF6CB6AA41A05BA561
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119481.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119481.jpgsave_picture_119481.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ magnet:?xt=urn:btih:24D0EBD5D8B6C7615A99C2D3188939ADC12548A0
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119482.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119482.jpgsave_picture_119482.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ magnet:?xt=urn:btih:FECD1CB6A7CA1D3CA1D964D9CFC567722632F9CA
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119483.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119483.jpgsave_picture_119483.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ magnet:?xt=urn:btih:6C39139A7C9FEE263C5A52C56B07B78249E65A35
 >>Folk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119484.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119484.jpgsave_picture_119484.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ magnet:?xt=urn:btih:A42CD29EC06A1C9EDCF18DCAF12B1442E8279AA4
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119485.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119485.jpgsave_picture_119485.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ Strava: бег, велоезда, хайкинг v345.7 Mod by ReVanced Team [Ru
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119486.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119486.jpgsave_picture_119486.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ magnet:?xt=urn:btih:19B8878B596234C610C32119350921AC13CCC06D
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119487.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119487.jpgsave_picture_119487.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ magnet:?xt=urn:btih:9BEADC320BF5A535973CFDA6830E564C4717E73F
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119488.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119488.jpgsave_picture_119488.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ magnet:?xt=urn:btih:C91E56F3352B118E094D08FE0DE21BB9D42A0732
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119489.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119489.jpgsave_picture_119489.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ VA - EDM Gaming Files (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119490.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119490.jpgsave_picture_119490.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ magnet:?xt=urn:btih:A018B2E27FAB8CA4832110D7DFB9EC3C235A3AF9
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119491.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119491.jpgsave_picture_119491.jpg" />
 </div>
 
 

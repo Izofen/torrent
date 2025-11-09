@@ -6,7 +6,7 @@
 >>Футбол. Чемпионаты мира
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179888.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179888.jpgsave_picture_179888.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:7D7EF639A6971AAF452E4B8EDB68C0CE8E8C5FA9
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179889.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179889.jpgsave_picture_179889.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:54ECE6F45D9048A783688F8709AD3FDB84F58F84
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179893.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179893.jpgsave_picture_179893.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Glary Utilities Pro 5.198.0.227 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179894.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179894.jpgsave_picture_179894.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ VA - 2022 MMA Workout Music [MP3|320 Kbps] <House, Dance, Other>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179896.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179896.jpgsave_picture_179896.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ CudaText 1.178.0.0 Portable + addons [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179898.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179898.jpgsave_picture_179898.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ Konstantin Klashtorni - Smooth Essence (The Best Of) (2022) [FLAC|Lossless|WEB-D
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179900.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179900.jpgsave_picture_179900.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ VA - Sexy Funky House Annual 2023 (2022) [MP3|320 Kbps] <Funky, Club House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179901.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179901.jpgsave_picture_179901.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ Neon Nox - Payback (2022) [FLAC|Lossless|WEB-DL|tracks] <Retrowave, Synthwave>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179903.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179903.jpgsave_picture_179903.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Sound Normalizer 8.7 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179907.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179907.jpgsave_picture_179907.jpg" />
 </div>
 
 
@@ -262,7 +262,7 @@ Neuroklast - 2 Albums (2021-2022) [MP3|320 Kbps] <Electro-Industrial, Cyberpunk>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179908.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179908.jpgsave_picture_179908.jpg" />
 </div>
 
 
@@ -289,7 +289,7 @@ magnet:?xt=urn:btih:76E509D0951746E0420A288D2B9E0F5D2D9619D4
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179911.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179911.jpgsave_picture_179911.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ Auslogics Registry Cleaner Pro 10.0.0.1 RePack (& Portable) by TryRooM [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179912.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179912.jpgsave_picture_179912.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ Lee Aaron - Elevate (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179913.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179913.jpgsave_picture_179913.jpg" />
 </div>
 
 
@@ -364,7 +364,7 @@ Anshul Saxena | Financial Modeling Using Quantum Computing (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_179915.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_179915.jpgsave_picture_179915.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ CCleaner 6.16.10662 Technician Edition (x64) + CCEnhancer Portable by FC Portabl
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179918.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179918.jpgsave_picture_179918.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ HDCleaner 2.038 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179920.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179920.jpgsave_picture_179920.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ AIMP 5.11 Build 2436 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179922.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179922.jpgsave_picture_179922.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ magnet:?xt=urn:btih:E77AA0E1F1FB70106EBB9E22F3A0E0623C7D6263
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179924.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179924.jpgsave_picture_179924.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ magnet:?xt=urn:btih:633BFC8EE1EF60920D4BD9C6F11905172449EF91
 >>Футбол. Чемпионаты мира
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179925.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179925.jpgsave_picture_179925.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Roger Waters - The Dark Side of the Moon Redux (2023) [FLAC|Lossless|image + .cu
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179927.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179927.jpgsave_picture_179927.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ magnet:?xt=urn:btih:0CD0294503B1A64771F5EE96048F02931B9C65A6
 >>Футбол. Чемпионаты мира
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179930.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179930.jpgsave_picture_179930.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Uninstall Tool 3.7.3 Build 5719 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179931.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179931.jpgsave_picture_179931.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ XnView Shell Extension 4.1.10 + Standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179933.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179933.jpgsave_picture_179933.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ magnet:?xt=urn:btih:5B802AD841E42320921C1BE2742D346E7004428D
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_179935.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_179935.jpgsave_picture_179935.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Sex Music Zone - Kiss N' Ride Erotic Lounge Music for Sex & Porno (2023) [FLAC|L
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179937.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179937.jpgsave_picture_179937.jpg" />
 </div>
 
 

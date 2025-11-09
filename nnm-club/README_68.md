@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1805.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1805.jpgsave_picture_1805.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Let Babylon Burn - Compilation Part 1 (2025) [MP3|320 Kbps] <Soul, Reggae>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1806.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1806.jpgsave_picture_1806.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:B8EFD8B56CE2328BB504EBFFF497229E47967D3D
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1807.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1807.jpgsave_picture_1807.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Enlly Blue - Softly Floating (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1808.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1808.jpgsave_picture_1808.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ VA - 50 DJ Tracks Vol. 2 (2025) [MP3|320 Kbps] <Dance, Club, House, Electronic>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1809.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1809.jpgsave_picture_1809.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ magnet:?xt=urn:btih:B857BA0B58A248EA5F9602C9EB0F6A5B1B2B35CD
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1810.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1810.jpgsave_picture_1810.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:86BF827DC7C0CB88701541ECB51802314931D22F
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1811.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1811.jpgsave_picture_1811.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:E006E54084BB2E7AB4B3155F5D6DDE5478F2B5DC
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1812.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1812.jpgsave_picture_1812.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:8E9353E66894144C611AC5D2752A5F95FDBD3725
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1813.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1813.jpgsave_picture_1813.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ Higurashi no Naku Koro ni | Higurashi When They Cry | Когда плачут ц
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1814.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1814.jpgsave_picture_1814.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ Higurashi no Naku Koro ni Kai | When They Cry: Kai | Когда плачут ц�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1815.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1815.jpgsave_picture_1815.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ magnet:?xt=urn:btih:E7D9C9697759A83559CBA48913E57487BE35F3BE
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1816.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1816.jpgsave_picture_1816.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ Notification Dots v1.2.76 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1817.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1817.jpgsave_picture_1817.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ magnet:?xt=urn:btih:AE2F5C4662E42C0DB60DB00BF9628E26168BEB12
 >>Разное (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1818.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1818.jpgsave_picture_1818.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Toki o Kakeru Shoujo | The Girl Who Leapt Through Time | Девочка, пок�
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1819.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1819.jpgsave_picture_1819.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ magnet:?xt=urn:btih:A33A324D3C7022FFA36F0BFEC16A3344C3DA985E
 >>Элементы (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1820.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1820.jpgsave_picture_1820.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ magnet:?xt=urn:btih:483C4FF6CA52A59752C7B99E3A1A63C00EA594D4
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1821.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1821.jpgsave_picture_1821.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ magnet:?xt=urn:btih:23DA614098A2E4754FD1A46D1EE5D7C0642B493F
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1822.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1822.jpgsave_picture_1822.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ magnet:?xt=urn:btih:69B62C62B2C9137235FAE81E65E25D9DB1B8131C
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1823.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1823.jpgsave_picture_1823.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ magnet:?xt=urn:btih:D9721764289A14AC63F6DEE3EA42C2DC55931899
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1824.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1824.jpgsave_picture_1824.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ magnet:?xt=urn:btih:5D9402E6A038B948CAAB4D98E9E1B9557487583B
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1825.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1825.jpgsave_picture_1825.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ magnet:?xt=urn:btih:2EAB10BF48C4D3BBD8986660BB59B0225905FC0C
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1826.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1826.jpgsave_picture_1826.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ magnet:?xt=urn:btih:7F8D9F25CD0F0A49C2F182C0B50CB6666E1E7365
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1827.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1827.jpgsave_picture_1827.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ PictureThis - Plant Identification v5.12.0 Mod by youarefinished [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1828.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1828.jpgsave_picture_1828.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ BikeComputer Pro v9.2.2 GP Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1829.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1829.jpgsave_picture_1829.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ magnet:?xt=urn:btih:A6658DF9F771D936AA638A2FEAB47FC3B2828655
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1830.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1830.jpgsave_picture_1830.jpg" />
 </div>
 
 

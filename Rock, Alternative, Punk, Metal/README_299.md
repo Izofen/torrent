@@ -6,7 +6,7 @@ Synestia - Maleficium (2022) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Deathcore,
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176283.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176283.jpgsave_picture_176283.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Who Dies in Siberian Slush - 4 Albums (2013-2020) [MP3|320 Kbps] <Funeral Doom, 
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176286.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176286.jpgsave_picture_176286.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Panzerkreuzer - 2 Albums (2015-2022) [FLAC|Lossless|WEB-DL|tracks] <Old School D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176287.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176287.jpgsave_picture_176287.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Newman - Into The Monsters' Playground (2021) [FLAC|Lossless|image + .cue] <Melo
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176289.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176289.jpgsave_picture_176289.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Burning by Desire - Insight (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Me
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176309.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176309.jpgsave_picture_176309.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ LiveWire - Under Attack! (2022) [FLAC|Lossless|WEB-DL|tracks] <Speed Metal, Heav
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176311.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176311.jpgsave_picture_176311.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Metaltouch - Zero Radicalism (2022) [MP3|320 Kbps] <Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176315.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176315.jpgsave_picture_176315.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Seducer's Embrace - Sinnocence (2002) [WavPack|Lossless|image + .cue] <Melodic D
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176319.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176319.jpgsave_picture_176319.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ In Search of Solace - The Endless Ache (2022) [FLAC|Lossless|WEB-DL|tracks] <Met
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176325.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176325.jpgsave_picture_176325.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Heron - Empires of Ash (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Stoner,
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176327.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176327.jpgsave_picture_176327.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Gavran - Indistinct Beacon (2022) [FLAC|Lossless|WEB-DL|tracks] <Sludge, Doom Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176332.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176332.jpgsave_picture_176332.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Evanescence - Synthesis (2017) Japanese Edition [FLAC|Lossless|image + .cue] <Al
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_176407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176407.jpgsave_picture_176407.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Annisokay - Aurora (2021) [MP3|320 Kbps] <Alternative Metal, Hardcore, Post-Hard
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_176609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176609.jpgsave_picture_176609.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Nuclear Power Trio - A Clear and Present Rager (2020) EP [MP3|320 Kbps] <Progres
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_176626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176626.jpgsave_picture_176626.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Paul McCartney - The 7” Singles (2022) [MP3|320 Kbps] <Pop Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176646.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176646.jpgsave_picture_176646.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ magnet:?xt=urn:btih:D0391539718231BB44CD0B693F4D6729145DFFB1
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177147.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177147.jpgsave_picture_177147.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ magnet:?xt=urn:btih:67C0B45B61EEA5E6DC27068F28EB34717EAEFB90
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177155.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177155.jpgsave_picture_177155.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ magnet:?xt=urn:btih:36B11E0AA8EBDCDB296FEBA28E65206DECB4F3FB
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177199.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177199.jpgsave_picture_177199.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Disturbed - Divisive (2022) [FLAC|Lossless|image + .cue] <Groove Metal, Nu Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177226.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177226.jpgsave_picture_177226.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:78AB0DB915C647E71C19D3B45C0C4B1CBE2B985B
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177236.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177236.jpgsave_picture_177236.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:BE339C6DF0034ED3DBB9FC23353CEE26AF96CA1D
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177238.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177238.jpgsave_picture_177238.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:4788732DA9BF15D6C68C248B569FFEDBE50CF48B
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177278.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177278.jpgsave_picture_177278.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ magnet:?xt=urn:btih:B7F66C4FAF54068F1C498CE1C107D65AC5381804
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177298.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177298.jpgsave_picture_177298.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Ring Of Fire - Gravity (2022) [FLAC|Lossless|image + .cue] <Neo-Classical Progre
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177354.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177354.jpgsave_picture_177354.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ magnet:?xt=urn:btih:5450C82AB52387E664E03A1BF15CC56B2ADECCC0
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177367.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177367.jpgsave_picture_177367.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ magnet:?xt=urn:btih:C43AB00D5F60CC59DD7C944C44767480C506F955
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177372.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177372.jpgsave_picture_177372.jpg" />
 </div>
 
 

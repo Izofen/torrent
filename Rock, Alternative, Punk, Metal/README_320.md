@@ -6,7 +6,7 @@ Symphorce - Godspeed (2005) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_185512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185512.jpgsave_picture_185512.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Saltwound - In the Shadow of the Valley of Death (2023) [FLAC|Lossless|WEB-DL|tr
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185513.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185513.jpgsave_picture_185513.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Troll - Collection (1995 - 2010) 5 CD [FLAC|Lossless|image + .cue] <Black Metal,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185514.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185514.jpgsave_picture_185514.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ West Alley - A Night To Remember (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic H
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185517.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185517.jpgsave_picture_185517.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Virgin Snatch - In The Name Of Blood (2006) [FLAC|Lossless|image + .cue] <Thrash
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_185518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185518.jpgsave_picture_185518.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ magnet:?xt=urn:btih:051093CEE088F26ADB48BFCC63BD0CE994BD3DAE
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185519.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185519.jpgsave_picture_185519.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Bio-Cancer - Revengeance (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185522.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185522.jpgsave_picture_185522.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Otus - Torch (2022) [FLAC|Lossless|WEB-DL|tracks] <Sludge, Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185524.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185524.jpgsave_picture_185524.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ Barrence Whitfield & The Savages - Glory (2023) [FLAC|Lossless|WEB-DL|tracks] <G
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185526.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185526.jpgsave_picture_185526.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ magnet:?xt=urn:btih:06D777C6D06D54E90BF1C00408BBAD93E9B4A52A
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185527.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185527.jpgsave_picture_185527.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ magnet:?xt=urn:btih:9735BB9B9FD7FDC828578CA80078D064932DFE3C
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185528.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185528.jpgsave_picture_185528.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Viscerate - Everybody Dies (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185530.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185530.jpgsave_picture_185530.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ The Real McKenzies - Songs of the Highlands, Songs of the Sea (2022) [FLAC|Lossl
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185532.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185532.jpgsave_picture_185532.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Prospective - Haunt Me (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metalco
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_185533.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_185533.jpgsave_picture_185533.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ magnet:?xt=urn:btih:555FFBDB5A86952DBA497504A3B7C20C02C3C56E
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185535.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185535.jpgsave_picture_185535.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Ataraxie - The Other Path (2003) Demo [FLAC|Lossless|image + .cue] <Funeral Doom
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185536.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185536.jpgsave_picture_185536.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ Sweet Oblivion - Sweet Oblivion (2019) Japanese Edition [FLAC|Lossless|image + .
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185537.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185537.jpgsave_picture_185537.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ magnet:?xt=urn:btih:94C5F8CA53E38F84536D3C78B4FFC89F6FEE48BE
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185539.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185539.jpgsave_picture_185539.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Wardog - Scorched Earth (1996) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_185540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185540.jpgsave_picture_185540.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Nils Patrik Johansson - The Great Conspiracy (2020) [FLAC|Lossless|image + .cue]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185543.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185543.jpgsave_picture_185543.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ Tungsten - We Will Rise (2019) Japanese Edition [FLAC|Lossless|image + .cue] <He
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185548.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185548.jpgsave_picture_185548.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Shallow Rivers - 4 Albums (2019-2022) [MP3|320 Kbps] <Atmospheric Doom, Death Me
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185553.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185553.jpgsave_picture_185553.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ magnet:?xt=urn:btih:25BD051FCEFF6C36FE9A4ACD5A9B0B5FCA83CEA7
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185558.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185558.jpgsave_picture_185558.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ The Silence - Angelus Custos (2022) [MP3|320 Kbps] <Post Metal, Post Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185562.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185562.jpgsave_picture_185562.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ Vigilance - Behind The Mask (1996) [FLAC|Lossless|image + .cue] <Progressive Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_185566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185566.jpgsave_picture_185566.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ Desert Wave - 2 Albums (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Psych, 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185573.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185573.jpgsave_picture_185573.jpg" />
 </div>
 
 

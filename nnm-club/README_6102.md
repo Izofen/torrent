@@ -6,7 +6,7 @@ Disk Drill 5.3.826 Enterprise (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192013.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192013.jpgsave_picture_192013.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Google Earth Pro 7.3.6.9277 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192014.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192014.jpgsave_picture_192014.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:871BED622B146E0CB558049E2307B53C7ADD98E4
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192015.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192015.jpgsave_picture_192015.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:DB19B314C6A6BF4578CF9EBEB84FD05A1CBA5D3D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192016.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192016.jpgsave_picture_192016.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:DB19B314C6A6BF4578CF9EBEB84FD05A1CBA5D3D
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192017.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192017.jpgsave_picture_192017.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Cyberduck 8.5.0 Build 38556 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192018.jpgsave_picture_192018.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Smash Mouth - 6 альбомов + 2 компиляции + 2 сингла (1997
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192019.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192019.jpgsave_picture_192019.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ magnet:?xt=urn:btih:B7AA05C2CBC80DFBE208FFB9BC4FCFF89CF9AF32
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192020.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192020.jpgsave_picture_192020.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ Freddie Mercury - 100% Freddie Mercury (2020) [MP3|320 Kbps] <Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192021.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192021.jpgsave_picture_192021.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ VA - NOW That's What I Call Music! 113 (2022) 2CD [FLAC|Lossless|WEB-DL|tracks] 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192022.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192022.jpgsave_picture_192022.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ magnet:?xt=urn:btih:093F345EA1F6729C6345218EB4FA17F01C78052E
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192024.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192024.jpgsave_picture_192024.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ magnet:?xt=urn:btih:E7FF3BA5D807CBB777C1A789EBF0AABB1639DC15
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192025.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192025.jpgsave_picture_192025.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ magnet:?xt=urn:btih:F07CEEA9A9A00E6DE9B0F8A18C22994009F4FB12
 >>Единоборства, Бои без правил
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192026.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192026.jpgsave_picture_192026.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ Wolfram Mathematica 13.3.1.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192027.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192027.jpgsave_picture_192027.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ magnet:?xt=urn:btih:103E83F5104BC467C32C04A7FB2E4B2286B788B1
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192028.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192028.jpgsave_picture_192028.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ StartAllBack 3.6.12 StartIsBack++ 2.9.19 (2.9.1 for 1607) StartIsBack+ 1.7.6 Sta
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192029.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192029.jpgsave_picture_192029.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ magnet:?xt=urn:btih:988BE980DC520F56CD347FB2DB130B414BB28B36
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192030.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192030.jpgsave_picture_192030.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ magnet:?xt=urn:btih:E37581B00457C18E5F629ED00B6EEF8476CC936C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192031.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192031.jpgsave_picture_192031.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Google Earth Pro 7.3.6.9277 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192032.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192032.jpgsave_picture_192032.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ magnet:?xt=urn:btih:9A3F8A782263D2A5CCC4A8971E228375DB6BC9DC
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192033.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192033.jpgsave_picture_192033.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ magnet:?xt=urn:btih:9A3F8A782263D2A5CCC4A8971E228375DB6BC9DC
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192034.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192034.jpgsave_picture_192034.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ magnet:?xt=urn:btih:36A4E512297785D1E2C3C6C34A7049F48314519F
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192035.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192035.jpgsave_picture_192035.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ YouTube ReVanced Extended 18.34.38 (RVP v2.190.0) Mod by YT-Advanced + mMicro G 
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192036.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192036.jpgsave_picture_192036.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:B867B8CBB6B8451B7D52EF09AC3B6379E57C2106
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192037.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192037.jpgsave_picture_192037.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Talkpython | Подборка курсов по FastAPI (2021-2022) WEB-DL [EN /
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192038.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192038.jpgsave_picture_192038.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ Pale Moon 31.3.1 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192039.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192039.jpgsave_picture_192039.jpg" />
 </div>
 
 

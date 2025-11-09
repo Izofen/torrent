@@ -6,7 +6,7 @@ Joe Henderson - Big Band (1997) Verve Records[FLAC|tracks+.cue] <Post-Bop, Mains
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139674.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139674.jpgsave_picture_139674.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Crypt of the Serpent King (2016) [En] (1.0) License HI2U
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139675.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139675.jpgsave_picture_139675.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:5D76BD09AEC0E5CB8049837B440BAFF71C635904
 >>История
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139676.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139676.jpgsave_picture_139676.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Nebula - Gate To Infinity (1997) Disturbance [FLAC|Lossless|tracks+.cue] <Techno
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139677.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139677.jpgsave_picture_139677.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:390D4621D1BE6F2CDFFA23C39D1AC95FB87C19CB
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139678.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139678.jpgsave_picture_139678.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:27B664A9B712D9B86DADCCDF331DF60E597326B5
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139679.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139679.jpgsave_picture_139679.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ magnet:?xt=urn:btih:C4E4C0053C1796E953269EB5C434EC57471FD3E6
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139680.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139680.jpgsave_picture_139680.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:6FFB405F8E19829344DF393F8745950A89DD0EAE
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139681.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139681.jpgsave_picture_139681.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ magnet:?xt=urn:btih:7D6746A2834AB039AC783A4A7B88B9FD7F599837
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139682.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139682.jpgsave_picture_139682.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ Forces United - Andy Vortex (2018) [MP3|320 Kbps] <Heavy metal>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139683.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139683.jpgsave_picture_139683.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ magnet:?xt=urn:btih:7BD7423002ACE1EE9317208CF63EF6FD9BB633E6
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139684.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139684.jpgsave_picture_139684.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ Shokugeki no Souma: San no Sara | Food Wars! The Third Plate | Кулинарн�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139685.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139685.jpgsave_picture_139685.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ HandBrake 1.7.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139686.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139686.jpgsave_picture_139686.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ System Mechanic 16.5.1.27 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139687.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139687.jpgsave_picture_139687.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ magnet:?xt=urn:btih:680E38B4CAD1657FEA242A82B1509B9D06004B5C
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139688.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139688.jpgsave_picture_139688.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ magnet:?xt=urn:btih:3D4FF1BFA01749825FEB86A80466221173DE9ACE
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139689.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139689.jpgsave_picture_139689.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ magnet:?xt=urn:btih:4CC096C79B9E3858276939CC918B05C2FE501C85
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139691.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139691.jpgsave_picture_139691.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Ungoogled Chromium 119.0.6045.159-1.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139692.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139692.jpgsave_picture_139692.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ magnet:?xt=urn:btih:421DD3681563783C0BD1D610165C3A86243E1A80
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139693.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139693.jpgsave_picture_139693.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ magnet:?xt=urn:btih:044853DB462E4AE7572DCA70282E6B389D047E4F
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139695.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139695.jpgsave_picture_139695.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ magnet:?xt=urn:btih:EE3294CF146EE3340E002E58C85309C4FC0DF0CA
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139696.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139696.jpgsave_picture_139696.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ magnet:?xt=urn:btih:4F58E1AC726E31C7519B21350EE7D099EF1CE792
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139697.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139697.jpgsave_picture_139697.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ VA - Music News vol.318 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139698.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139698.jpgsave_picture_139698.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ magnet:?xt=urn:btih:EBBF3C67EB2B1182C6D944D2648B7AC29088F431
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139699.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139699.jpgsave_picture_139699.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ magnet:?xt=urn:btih:1E5134C56B437328733FF92429A07424F6040EB7
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139700.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139700.jpgsave_picture_139700.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ magnet:?xt=urn:btih:FD13DD4A04BB7D06D12AFEC5CB22B2A7F5009F21
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139701.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139701.jpgsave_picture_139701.jpg" />
 </div>
 
 

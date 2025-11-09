@@ -6,7 +6,7 @@
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161376.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161376.jpgsave_picture_161376.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ VA - Hit News Vol. 7 (1993) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Italo
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161377.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161377.jpgsave_picture_161377.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:5158D6D1CD66B0733A5D21CFDDB530562D82B95E
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161378.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161378.jpgsave_picture_161378.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:C41518DAB5D9A139632D197E96952BC3EF20E55B
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161379.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161379.jpgsave_picture_161379.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Speedtest от Ookla 5.2.3 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161380.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161380.jpgsave_picture_161380.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Super PhotoCut Pro 2.8.7 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161381.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161381.jpgsave_picture_161381.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:F8976334DEBFC0CA59D1C080FFD0B853D1B711EC
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161382.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161382.jpgsave_picture_161382.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Mark Murdock - The Phoenix Has Risen (2020) [MP3|320 Kbps] <Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161383.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161383.jpgsave_picture_161383.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ VA - Hit News Vol. 6 (1994) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Italo
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161384.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161384.jpgsave_picture_161384.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ magnet:?xt=urn:btih:8A4A12462DA36C7F70156591787D5C1461C710FB
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161385.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161385.jpgsave_picture_161385.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ Algoriddim Neural Mix Pro 1.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161386.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161386.jpgsave_picture_161386.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ Sketch Fashion 1.2.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161387.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161387.jpgsave_picture_161387.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ WidsMob Panorama 4.28 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161388.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161388.jpgsave_picture_161388.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ magnet:?xt=urn:btih:F6287EFC17F12072B74DE2DE78753BFF243514D0
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161390.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161390.jpgsave_picture_161390.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ Rebirth::Collective featuring Tutu Puoane - It Might As Well Be Swing (2021) Sou
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161391.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161391.jpgsave_picture_161391.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ AudioFinder 6.0.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161392.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161392.jpgsave_picture_161392.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ WidsMob ImageConvert - JPG/PNG 3.25 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161393.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161393.jpgsave_picture_161393.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ magnet:?xt=urn:btih:1C5C1FF123BA2759A95FD0E00D451955E2515C10
 >>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161394.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161394.jpgsave_picture_161394.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ djay - DJ App & AI Mixer 4.1.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161395.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161395.jpgsave_picture_161395.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ magnet:?xt=urn:btih:B797D4B3FBBDF5A2D35331A0B2E3E76A06A10D49
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161396.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161396.jpgsave_picture_161396.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ magnet:?xt=urn:btih:986C291BA0EF0718B5023CF96A53E5DE41B54D31
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161397.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161397.jpgsave_picture_161397.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ FrameMagic - Collage Maker Pro 3.6.7 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161398.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161398.jpgsave_picture_161398.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ magnet:?xt=urn:btih:6356DE6D363304D81DD6DD99D1E30A816C3093B1
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161399.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161399.jpgsave_picture_161399.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ magnet:?xt=urn:btih:B228BC10A5A665BD9B40770B92F24223530D365E
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161400.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161400.jpgsave_picture_161400.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Imposter - Абсцесс (2020) [MP3|320 Kbps] <Street-Metal>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161401.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161401.jpgsave_picture_161401.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Alexander Popov - Reflected (2023) [MP3|320 Kbps] <Trance, Progressive, Electron
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161402.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161402.jpgsave_picture_161402.jpg" />
 </div>
 
 

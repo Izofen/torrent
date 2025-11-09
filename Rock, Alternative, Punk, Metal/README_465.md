@@ -6,7 +6,7 @@ Alase - A Matter of Time (2023) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Progr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243484.jpgsave_picture_243484.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Poços & Nuvens - Província Universo (2001) [FLAC|Lossless|image + .cue] <Symph
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243485.jpgsave_picture_243485.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Aftermath - Remastermath (2021) Compilation [FLAC|Lossless|WEB-DL|tracks] <Death
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243497.jpgsave_picture_243497.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Wyvern - Radiations (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Heav
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243500.jpgsave_picture_243500.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Berserkerband - First Blood (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243503.jpgsave_picture_243503.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Sieghetnar - Verfallen & Verendet (2006) [FLAC|Lossless|image + .cue] <Black Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243511.jpgsave_picture_243511.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Reverence - Vengeance Is … LIVE (2018) [FLAC|Lossless|image + .cue] <Power Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243520.jpgsave_picture_243520.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Cerulia - Aurora Skies (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Progressi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243530.jpgsave_picture_243530.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Disturbed - Down With The Sickness (2001) Single, Promo [FLAC|Lossless|tracks + 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243531.jpgsave_picture_243531.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Ronnie Atkins - Make It Count (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243536.jpgsave_picture_243536.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Rosicrucian - No Cause for Celebration (1994) [FLAC|Lossless|image + .cue] <Thra
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243539.jpgsave_picture_243539.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ First Signal - Face Your Fears (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243547.jpgsave_picture_243547.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Deimos' Dawn - Anthem Of The Lost (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243553.jpgsave_picture_243553.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Merciless Law - Troops Of Steel (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243554.jpgsave_picture_243554.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Zeelion - Steel Attack (2005) [APE|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243563.jpgsave_picture_243563.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ magnet:?xt=urn:btih:0658F28A90BB3155D5B30252489874D79FD1E147
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243564.jpgsave_picture_243564.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ SVO - Дежавю (2020) [MP3|320 Kbps] <Heavy Metal>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243568.jpgsave_picture_243568.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Lifestream - Alter Echo (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243578.jpgsave_picture_243578.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Friends of Hell - Friends Of Hell (2022) [FLAC|Lossless|WEB-DL|tracks] <Doom Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243581.jpgsave_picture_243581.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Gary Moore - We Want Moore! (1984) Reissue, 2023, Universal, Japanese Edition [F
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243592.jpgsave_picture_243592.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ Funeral - Praesentialis In Aeternum (2021) [FLAC|Lossless|image + .cue] <Funeral
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243596.jpgsave_picture_243596.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ Enforcer - Live by Fire II (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Po
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243612.jpgsave_picture_243612.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ Jeremy - Quo Vadis, Domine? (2008) [FLAC|Lossless|image + .cue] <Progressive Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243613.jpgsave_picture_243613.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ The Abbey - Word of Sin (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Doom M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243616.jpgsave_picture_243616.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Chip Z’Nuff - Perfectly Imperfect (2022) [FLAC|Lossless|WEB-DL|tracks] <Glam H
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243625.jpgsave_picture_243625.jpg" />
 </div>
 
 
@@ -683,7 +683,7 @@ Dimension Zero - Silent Night Fever (2002) [FLAC|Lossless|image + .cue] <Melodic
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243630.jpgsave_picture_243630.jpg" />
 </div>
 
 

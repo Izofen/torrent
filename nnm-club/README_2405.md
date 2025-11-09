@@ -6,7 +6,7 @@
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62897.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62897.jpgsave_picture_62897.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Monuments Renovator (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62898.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62898.jpgsave_picture_62898.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:B38EB5F987AFBE08913ACA1BEAD2BF2375E19AB2
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62899.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62899.jpgsave_picture_62899.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:168AD17E785F2189ED5B6B479E3BDD300B2F55D7
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62900.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62900.jpgsave_picture_62900.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:2ECE74DB1E183D0C74CB3073865042A5F2070D8A
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62901.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62901.jpgsave_picture_62901.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ EasyUEFI Technician 5.3 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62902.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62902.jpgsave_picture_62902.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:513FA4A247990ED4A2C743DC67094A4AB86F4132
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62903.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62903.jpgsave_picture_62903.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ Bondware Poser Pro 13.3.686 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62904.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62904.jpgsave_picture_62904.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ EndeavourOS Galileo-Neo-2024.01.25 [x64] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62905.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62905.jpgsave_picture_62905.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:7D10D50A1D2144BAF9E11021226483BB3ED1F49F
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62906.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62906.jpgsave_picture_62906.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Office Installer & Office Installer+ 1.05 by Ratiborus [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62907.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62907.jpgsave_picture_62907.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:DBE05AA7A48B4EC4AE5B072E468E2E1E26995252
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62908.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62908.jpgsave_picture_62908.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ WinRAR 7.00 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62909.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62909.jpgsave_picture_62909.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Windows 7 SP1 x64 Rus by OneSmiLe [15.03.2024]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62910.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62910.jpgsave_picture_62910.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ magnet:?xt=urn:btih:F27D5EC2417ED6CB4B1966A03EDB6740F68BF4F7
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62911.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62911.jpgsave_picture_62911.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ magnet:?xt=urn:btih:6CC37A4F170048ADB0DDFF0EF175B65164EBC060
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62912.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62912.jpgsave_picture_62912.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ magnet:?xt=urn:btih:7A897B98D2CBECC045EB8160CCDAA62BC68324FA
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62913.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62913.jpgsave_picture_62913.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ magnet:?xt=urn:btih:164E14B5951A56A9761EA6682190EAFBE0D4410E
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62914.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62914.jpgsave_picture_62914.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ magnet:?xt=urn:btih:089C36C3A6C8B74A625C2B32BA5498525B0C7666
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62915.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62915.jpgsave_picture_62915.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ magnet:?xt=urn:btih:FE80063126E0C4121DB6DE3E99FFE9137625B34B
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62916.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62916.jpgsave_picture_62916.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ magnet:?xt=urn:btih:E4286BDFC64087ACF7CCC88F4D02A48CF9CBBAC3
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62917.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62917.jpgsave_picture_62917.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ Beneath the Mountain (2024) [En] (1.3) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62918.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62918.jpgsave_picture_62918.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ NG. Последствия: Нулевое население / Aftermath: Popul
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62919.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62919.jpgsave_picture_62919.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Reg Organizer 9.41 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62920.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62920.jpgsave_picture_62920.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ AIDA64 Extreme | Engineer | Business Edition | Network Audit 7.20.6802 RePack (&
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62921.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62921.jpgsave_picture_62921.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ BBC: Всемирная история живописи / Sister Wendy's Story o
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62922.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62922.jpgsave_picture_62922.jpg" />
 </div>
 
 

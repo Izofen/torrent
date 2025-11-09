@@ -6,7 +6,7 @@ Great North Shelter 2 (2023) [Ru/En] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191748.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191748.jpgsave_picture_191748.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Remoteness (2022) [Ru/Multi] (1.80) License DOGE
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191874.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191874.jpgsave_picture_191874.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Danger Forever (2022) [En] (845) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191884.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191884.jpgsave_picture_191884.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Dark City 7: International Intrigue / Мрачный город 7: Междун�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191968.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191968.jpgsave_picture_191968.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Space Engineers / Космические инженеры (2019) [Ru/Multi] (1.2
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191981.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191981.jpgsave_picture_191981.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Tenebris Pictura (2023) [Ru/Multi] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191994.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191994.jpgsave_picture_191994.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Arena Renovation (2023) [Ru/Multi] (0.6.153) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192078.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192078.jpgsave_picture_192078.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Bibots (2022) [Multi] (1.03) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192175.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192175.jpgsave_picture_192175.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Behind the Frame: The Finest Scenery (2021) [Ru/Multi] (2.0.4_01) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192281.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192281.jpgsave_picture_192281.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Dead Man´s Diary (2022) [Ru/Multi] (1.5.54360) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192430.jpgsave_picture_192430.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Sackboy: A Big Adventure (2022) [Ru/Multi] (9806667/dlc) Repack DjDI
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192440.jpgsave_picture_192440.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Murder Is Game Over (2022) [En] (2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192475.jpgsave_picture_192475.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Daymare: 1998 (2019) [Ru/Multi] (1.4) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192476.jpgsave_picture_192476.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Spelunky (2013) [Multi] (2.1.0.9) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192507.jpgsave_picture_192507.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Myth or Reality 2: Mystery of the Lake (2023) [En] (1.0) Unofficial [Collector's
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192636.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192636.jpgsave_picture_192636.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ FAITH: The Unholy Trinity (2022) [En] (1.00) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192754.jpgsave_picture_192754.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Armored Core VI: Fires of Rubicon (2023) [Ru/Multi] (11893351/dlc) Repack DjDI [
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192813.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192813.jpgsave_picture_192813.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ HeadHorse Legacy (2023) [Ru/Multi] (2.031) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192902.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192902.jpgsave_picture_192902.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Criminal Archives 2: Alphabetic Murders / Криминальные архивы 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192948.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192948.jpgsave_picture_192948.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ KAGITORI -BIRD IN THE CAGE HIDING THE KEY- (2023) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192992.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192992.jpgsave_picture_192992.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Hell Pie (2022) [Ru/Multi] (1.1.5) License GOG [18+]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_193045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193045.jpgsave_picture_193045.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Paper Cut Mansion (2022) [Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_193063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193063.jpgsave_picture_193063.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Daymare: 1994 Sandcastle (2023) [Ru/Multi] (6410) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193193.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193193.jpgsave_picture_193193.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Vampire: The Masquerade - Bloodlines 2 (2025) [Ru/Multi] (46047/dlc) Repack Othe
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193265.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193265.jpgsave_picture_193265.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Jacksmith: Weapons and Warriors (2025) [En] (1.0.1 Build 18571048) Repack Necros
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193266.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193266.jpgsave_picture_193266.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Teenage Mutant Ninja Turtles: Shredder's Revenge (2022) [Ru/Multi] (1.0.0.349/dl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193307.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193307.jpgsave_picture_193307.jpg" />
 </div>
 
 

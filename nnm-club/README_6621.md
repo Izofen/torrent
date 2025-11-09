@@ -6,7 +6,7 @@ Gato Gordo - Sobreviviente (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213760.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213760.jpgsave_picture_213760.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Duplicate File Finder Pro 7 v.7.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213766.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213766.jpgsave_picture_213766.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Colibri 2.1.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213771.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213771.jpgsave_picture_213771.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ DVD-Cloner 2023 for Mac 7.0  [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213779.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213779.jpgsave_picture_213779.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ Mikey Junior - Blues in the Barn, Vol. 2 (2023) [FLAC|Lossless|WEB-DL|tracks] <B
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213785.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213785.jpgsave_picture_213785.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ Martins Aneiros Band - Rain (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213791.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213791.jpgsave_picture_213791.jpg" />
 </div>
 
 
@@ -161,7 +161,7 @@ Shores of Null - Black Drapes for Tomorrow (2017) [MP3|320 Kbps] <Melodic Black,
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213799.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213799.jpgsave_picture_213799.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Sonny Criss - Intermission Riff (1951) 1998, Original Jazz Classics [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213801.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213801.jpgsave_picture_213801.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ App Tamer 2.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213811.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213811.jpgsave_picture_213811.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ Karmen Field - Black Star Emperor (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard, He
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213813.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213813.jpgsave_picture_213813.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ magnet:?xt=urn:btih:DDA85549626A7EDE08009E1B9DCBB3B390A7E0B4
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213818.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213818.jpgsave_picture_213818.jpg" />
 </div>
 
 
@@ -290,7 +290,7 @@ Signs Preyer - Mammoth Disorder (2015) [MP3|320 Kbps] <Groove Metal/Hard Rock>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213825.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213825.jpgsave_picture_213825.jpg" />
 </div>
 
 
@@ -317,7 +317,7 @@ Native SQLite Manager 1.25.2[En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213827.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213827.jpgsave_picture_213827.jpg" />
 </div>
 
 
@@ -341,7 +341,7 @@ Lintver - Distorted Perception (2016) Reissue, 2017, PRC Music [FLAC|Lossless|im
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213832.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213832.jpgsave_picture_213832.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ Magic Disk Cleaner 2.3.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213836.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213836.jpgsave_picture_213836.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ Lake Cyanide - Lake Cyanide (2020) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213838.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213838.jpgsave_picture_213838.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ ABBYY FineReader PDF 16.0.14.7295 RePack (& Portable) by TryRooM [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213874.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213874.jpgsave_picture_213874.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ magnet:?xt=urn:btih:6C751EDEB508DE3EAE0A7909E068482EB09AC129
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213892.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213892.jpgsave_picture_213892.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ magnet:?xt=urn:btih:858A3AA7F1CB9FB4F14BC21589DA52037017622E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213924.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213924.jpgsave_picture_213924.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ magnet:?xt=urn:btih:CE9C17D935410F60E652B621E894AC5207D5F2C2
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213941.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213941.jpgsave_picture_213941.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ Adobe Photoshop Lightroom Classic 12.5.0.1 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213944.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213944.jpgsave_picture_213944.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ magnet:?xt=urn:btih:2711CE94036570A22FA3D10379D104AA7938FEB3
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213951.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213951.jpgsave_picture_213951.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ magnet:?xt=urn:btih:ABA22E85499B61CAD82AFB30A861B6B0419C2E06
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213964.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213964.jpgsave_picture_213964.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ magnet:?xt=urn:btih:BAAD7823B4C7B1E9E96757C4C5658C1E8034F122
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213974.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213974.jpgsave_picture_213974.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ MiniTool Partition Wizard Technician 12.8 RePack by KpoJIuK [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213984.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213984.jpgsave_picture_213984.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ magnet:?xt=urn:btih:1DB75D66E0836D1228961BAE26C265F5C5055D96
 >>Старые Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_214036.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_214036.jpgsave_picture_214036.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170278.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170278.jpgsave_picture_170278.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:939F6B4A56DEA2C6DEB9B30EF84812232FBA3D93
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170280.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170280.jpgsave_picture_170280.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:E80E581BDF2AC1A1DC4EA7797AC0B6076A290A61
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170281.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170281.jpgsave_picture_170281.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Avast Premium Security 20.10.2442 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170282.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170282.jpgsave_picture_170282.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Audio Editor - Merge Split And Edit 1.5.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170283.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170283.jpgsave_picture_170283.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Motley Crue - Shout At The Devil (40th Anniversary) (1983) Remastered, 2023, BMG
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170284.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170284.jpgsave_picture_170284.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Extreme Picture Finder 3.65.10.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170285.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170285.jpgsave_picture_170285.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ LibreOffice 7.4.3.2 Stable Portable by PortableApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170286.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170286.jpgsave_picture_170286.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:F9A0783613DD11E088F711A5AE441135806C063A
 >>Дневники вампира / Vampire Diaries; Настоящая кровь / True Blood; Древние / Originals; Наследие / Legacies
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170287.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170287.jpgsave_picture_170287.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:5371ED0C79D1587F3B01EFEAB925D399E7CC4C49
 >>Историческая проза, Мифы и Легенды
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170288.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170288.jpgsave_picture_170288.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:FE333F55F83CC2299AFCE38B59718B194382260D
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170289.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170289.jpgsave_picture_170289.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:E9F4C7DC3E5F574C02CE1F2A2113F2661189BFBE
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170290.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170290.jpgsave_picture_170290.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ magnet:?xt=urn:btih:8706F9E550161A8E466AE37824AA00D2E3C3C1FA
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170291.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170291.jpgsave_picture_170291.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ magnet:?xt=urn:btih:B3E6598BA1CE17ACC88F4A10AD0C60A58F511519
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170292.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170292.jpgsave_picture_170292.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ magnet:?xt=urn:btih:70FEFC48C1DF80255EA6CF7D2813170E6C41814E
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170293.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170293.jpgsave_picture_170293.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ magnet:?xt=urn:btih:723BF5BE02E8967EF3CEE59F71998E62280E930D
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170294.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170294.jpgsave_picture_170294.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ magnet:?xt=urn:btih:02B1E13409E974333EA2B810801CBF5EE17A65CA
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170295.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170295.jpgsave_picture_170295.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Auslogics Windows Slimmer 2.2.0.4 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170296.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170296.jpgsave_picture_170296.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ magnet:?xt=urn:btih:9455D724D5733FB89B756DCEA69887C1405F6595
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170297.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170297.jpgsave_picture_170297.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Fancy - Diamonds Forever Part I (2022) [FLAC|Lossless|WEB-DL|tracks] <Disco, Ita
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170298.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170298.jpgsave_picture_170298.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ magnet:?xt=urn:btih:27BF87BD3624B19F303CD6CB233148549B79DFAB
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170299.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170299.jpgsave_picture_170299.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ Emsisoft Emergency Kit 2022.12.0.11730 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170300.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170300.jpgsave_picture_170300.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ VA - Music News vol.230 (2022) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170301.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170301.jpgsave_picture_170301.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Wireshark 4.0.2 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170302.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170302.jpgsave_picture_170302.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ magnet:?xt=urn:btih:E1AA1EE8D4457E600FE447305DD06511B589BA02
 >>История
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170303.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170303.jpgsave_picture_170303.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ Simple Minds - New Gold Dream (Live From Paisley Abbey) (2023) [FLAC 24/48|Lossl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170304.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170304.jpgsave_picture_170304.jpg" />
 </div>
 
 

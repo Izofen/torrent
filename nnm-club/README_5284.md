@@ -6,7 +6,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164191.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164191.jpgsave_picture_164191.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:4DBA3922A9C7F43BD0830E9C158EF4F5B2FCF0DB
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164192.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164192.jpgsave_picture_164192.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:236B2C2EE2DE43EB346A5F8067AEA3C92699020E
 >>Отечественные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164193.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164193.jpgsave_picture_164193.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ VA - Die 50 Grobten Saxophon Hits Aller Zeiten (2015) [MP3|320 Kbps] <Pop, Instr
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164194.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164194.jpgsave_picture_164194.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:1A69DDDFB21A0F9319B252C1453734E2B4B04692
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164195.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164195.jpgsave_picture_164195.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ magnet:?xt=urn:btih:737086ACAD929676DB3FC0F654570473C2D5D504
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164196.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164196.jpgsave_picture_164196.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ AIDA64 (Mobile) v1.84 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164197.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164197.jpgsave_picture_164197.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ EZ CD Audio Converter 9.0.5.1 (x86) RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164198.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164198.jpgsave_picture_164198.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ magnet:?xt=urn:btih:D52EC6FA1C4D11B4DFE81A1955C86E3FDCA3E114
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164199.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164199.jpgsave_picture_164199.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ Volume2 1.1.7.444 Beta + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164200.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164200.jpgsave_picture_164200.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:44631EAF8C3F8AD2D9FF97AD22BA02E65BA266DE
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164201.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164201.jpgsave_picture_164201.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ MaxCommander 2.5.1 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164202.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164202.jpgsave_picture_164202.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ magnet:?xt=urn:btih:FA8401A0D2AE350DABA4161BC11DEB7464073BA3
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164203.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164203.jpgsave_picture_164203.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ magnet:?xt=urn:btih:773A94B779EA14E9B1781841A21BABE2AD21F562
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164204.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164204.jpgsave_picture_164204.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Windows and Office Genuine ISO Verifier 11.12.43.23 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164205.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164205.jpgsave_picture_164205.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ magnet:?xt=urn:btih:4ED5DC7EA59181AF8A8D518AEA5CFF6B6EED00BE
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164206.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164206.jpgsave_picture_164206.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Alicia Keys - Keys (2021) 2CD [FLAC|Lossless|WEB-DL|tracks] <Soul, R&B, Pop>
 >>RnB, Reggae (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164207.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164207.jpgsave_picture_164207.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ magnet:?xt=urn:btih:F94A4FEB8D3B10DFA8693D5F0AB1071D3DD5D7CE
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164208.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164208.jpgsave_picture_164208.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ VA - Americas Greatest Rock Anthems (2022) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164209.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164209.jpgsave_picture_164209.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Webcam Surveyor 3.8.7 Build 1182 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164210.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164210.jpgsave_picture_164210.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ magnet:?xt=urn:btih:9EAAEB393A0AA2FBC205DA1ADCD828E11316DF11
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164211.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164211.jpgsave_picture_164211.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ FileMaker Pro 19 v19.2.1.14  [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164212.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164212.jpgsave_picture_164212.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ magnet:?xt=urn:btih:C7680B12083B55F9FE56D3CCD4100584BD2CCDD4
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164213.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164213.jpgsave_picture_164213.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ Final Draft 12 v.12.0.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164214.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164214.jpgsave_picture_164214.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ magnet:?xt=urn:btih:BE6BDBAC94BDE18CA757118112412AFF6D47E9A9
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164215.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164215.jpgsave_picture_164215.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ The Philarmonics - Philadelphia Disco (1977) LP [MP3|320 Kbps] <Disco, Instrumen
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164216.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164216.jpgsave_picture_164216.jpg" />
 </div>
 
 

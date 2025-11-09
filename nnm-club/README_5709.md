@@ -6,7 +6,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175976.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175976.jpgsave_picture_175976.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:E3E9588F86BAA14547A33F1A70C2DFFC850FEDB3
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175977.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175977.jpgsave_picture_175977.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ App Icon Generator 1.3.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175978.jpgsave_picture_175978.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ Revo Uninstaller Pro 5.2.0 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175980.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175980.jpgsave_picture_175980.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:B557FAECBE4E6DEFC78FC83A8E2BE2F83B0B9435
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175982.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175982.jpgsave_picture_175982.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ WinCatalog 2024.3.0.1005 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175984.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175984.jpgsave_picture_175984.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ QuickTextPaste 8.73 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175986.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175986.jpgsave_picture_175986.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:2179A609F08E427735245BA425E9971B3EA723FB
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175988.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175988.jpgsave_picture_175988.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ Extreme Picture Finder 3.65.8.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175990.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175990.jpgsave_picture_175990.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Domenique Dumont - People On Sunday (2020) Leaf [FLAC|Lossless|tracks + .cue] <A
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175991.jpgsave_picture_175991.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ VA - Record Super Chart 03.12.2022 [MP3|320 Kbps] <Pop, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175992.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175992.jpgsave_picture_175992.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ magnet:?xt=urn:btih:B84C595F2F988592264057CB956BB2CCAA1FEEC1
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175993.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175993.jpgsave_picture_175993.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ magnet:?xt=urn:btih:BB4F743170D2BF05027FD0FCE97AC3F9666B919D
 >>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175994.jpgsave_picture_175994.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ magnet:?xt=urn:btih:05C7767EDB3AD1D50311696B1968FF0C59708E72
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175995.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175995.jpgsave_picture_175995.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Butcher - 666 Goats Carry My Chariot (2020) [FLAC|Lossless|WEB-DL|tracks] <Speed
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175996.jpgsave_picture_175996.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Things 3 v3.13.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175997.jpgsave_picture_175997.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ magnet:?xt=urn:btih:EA1F82E5DDB5665EBACBFC1337C622AEFCC75237
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175998.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175998.jpgsave_picture_175998.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Thenx v4.29 Mod by  Alex.Strannik [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175999.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175999.jpgsave_picture_175999.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Unite 4 v4.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_176000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176000.jpgsave_picture_176000.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ magnet:?xt=urn:btih:9C3F215601ADAE2A66BAAA9E9AE0F72779C60E07
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176001.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176001.jpgsave_picture_176001.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ magnet:?xt=urn:btih:C8D4031EE57DEB19325352AC7D2B59A18074D9C8
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_176002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176002.jpgsave_picture_176002.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Leæther Strip - Æppreciation III Deutsche Wælle (2018) [AAC|~344 Kbps] <ebm, 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_176004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176004.jpgsave_picture_176004.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Lock Me Out v7.0.6 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176005.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176005.jpgsave_picture_176005.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ magnet:?xt=urn:btih:0FCEB6C25769E7FB11FFE4EF201E24EA5631E248
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176006.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176006.jpgsave_picture_176006.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ magnet:?xt=urn:btih:53FDD021F4096931BEFA8C5FFD65DEBC02C8AB30
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176008.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176008.jpgsave_picture_176008.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ Leæther Strip - Æppreciation II (2018) [AAC|~351 Kbps] <ebm, industrial, dark 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_176009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176009.jpgsave_picture_176009.jpg" />
 </div>
 
 

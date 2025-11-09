@@ -6,7 +6,7 @@ ENDLESS Dungeon (2023) [Ru/Multi] (1.6.11053/dlc) Repack Let'sРlay [Last Wish E
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17437.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17437.jpgsave_picture_17437.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Dwarven Realms (2022) [Ru/Multi] (1.4.2) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17438.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17438.jpgsave_picture_17438.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Dustborn (2024) [Ru/Multi] (1.13/dlc) Scene Rune
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17458.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17458.jpgsave_picture_17458.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Empires of the Undergrowth (2017) [Ru/Multi] (20250324) Scene SKIDROW
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17465.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17465.jpgsave_picture_17465.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ JDM: Japanese Drift Master (2025) [Ru/Multi] (build 18552414) Repack seleZen
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17468.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17468.jpgsave_picture_17468.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Ai Limit (2025) [Ru/Multi] (1.0.022/dlc) Repack FitGirl [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17470.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17470.jpgsave_picture_17470.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ DreadOut Remastered Collection (2025) [Ru/Multi] (2.2.18f/1.0.8) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17475.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17475.jpgsave_picture_17475.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ House Flipper 2 (2023) [Ru/Multi] (1.8 build 18474892/dlc) Repack seleZen
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17515.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17515.jpgsave_picture_17515.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ S.T.A.L.K.E.R.: Legends of the Zone Trilogy (2025) [Ru/Multi] (1.7.0.12606) Repa
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17571.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17571.jpgsave_picture_17571.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ RoadCraft (2025) [Ru/Multi] (0.1.D1.1.429865/dlc) Scene Rune
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17607.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17607.jpgsave_picture_17607.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ RoadCraft (2025) [Ru/Multi] (0.1.D1.1.429865/dlc) Repack seleZen
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17611.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17611.jpgsave_picture_17611.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Tales and Tactics / Tales & Tactics (2023) [Ru/Multi] (1.1.03) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17615.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17615.jpgsave_picture_17615.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ House Flipper 2 (2023) [Ru/Multi] (1.8/dlc) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17620.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17620.jpgsave_picture_17620.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Zoria: Age of Shattering (2024) [Ru/Multi] (1.1.8/dlc) Repack Let'sРlay [Deluxe
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17622.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17622.jpgsave_picture_17622.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ magnet:?xt=urn:btih:528C4582D97165D570896D6A8BCF1FF978997037
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17639.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17639.jpgsave_picture_17639.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ S.T.A.L.K.E.R. 2: Heart of Chornobyl (2024) [Ru/Multi] (1.4.1) License GOG [Patc
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17649.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17649.jpgsave_picture_17649.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ FATAL FURY: City of the Wolves (2025) [Ru/Multi] (1.1.6-74935/dlc) Repack Let's�
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17654.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17654.jpgsave_picture_17654.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ Dark Souls: Remastered (2018) [Ru/Multi] (1.03.1) Repack seleZen
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17699.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17699.jpgsave_picture_17699.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Wilmot Works It Out (2024) [Multi] (1.039) License GOG
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17701.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17701.jpgsave_picture_17701.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Undying Flower (2025) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17711.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17711.jpgsave_picture_17711.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ S.T.A.L.K.E.R. Legends of the Zone Trilogy: Shadow of Chornobyl, Clear Sky, Call
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17720.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17720.jpgsave_picture_17720.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Crime Boss Rockay City (2023) [Ru/Multi] (1.15.1.0/dlc) Repack seleZen
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17721.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17721.jpgsave_picture_17721.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ The Planet Crafter (2022) [Ru/Multi] (1.518/dlc) Repack Let'sРlay [The Galactic
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17723.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17723.jpgsave_picture_17723.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Train Valley 2 (2019) [Ru/Multi] (1.8.8/dlc) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17740.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17740.jpgsave_picture_17740.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Dying Light 2: Stay Human (2022) [Ru/En] (1.22.4/dlc) Repack Other s [Digital Ex
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17742.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17742.jpgsave_picture_17742.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ ANOXIA Station (2025) [Ru/Multi] (1.0.1) Repack Let'sРlay
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17746.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17746.jpgsave_picture_17746.jpg" />
 </div>
 
 

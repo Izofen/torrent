@@ -6,7 +6,7 @@ Ubuntu*Pack 22.04 Xfce / Xubuntu (июль 2025) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9820.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9820.jpgsave_picture_9820.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ MeeGo OS 1.2 [i386] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12284.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12284.jpgsave_picture_12284.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ MeeGo OS 1.2 cedartrail  [i386] 1xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12569.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12569.jpgsave_picture_12569.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:94AFE14978DAD2C93CF43E62BDDC5CB9C8E6A555
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15527.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15527.jpgsave_picture_15527.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Kerio Control v9.4.5 Patch 2 Build 8629 [x64] (iso, img) [Multi/Ru]
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15788.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15788.jpgsave_picture_15788.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Astra Linux Special Edition 1.8.2.UU1 [amd64] 3xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16901.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16901.jpgsave_picture_16901.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ Red Hat Enterprise Linux 10.0 [x86_64, aarch64] 4xDVD 1xZIP
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17722.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17722.jpgsave_picture_17722.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ Astra Linux Special Edition 1.7.7 UU2 [amd64] 3xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18248.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18248.jpgsave_picture_18248.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ Astra Linux Special Edition 1.7.7 [amd64] 5xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20311.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20311.jpgsave_picture_20311.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ Astra Linux Special Edition 1.7.7 UU1 [amd64] 3xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20312.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20312.jpgsave_picture_20312.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ UALinux CyberPack FaP 22.04 [Multi]
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20745.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20745.jpgsave_picture_20745.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ CentOS 10 Stream [x86_64 / aarch64] 4xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21803.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21803.jpgsave_picture_21803.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ Astra Linux Special Edition 1.8.1.UU2 [amd64] 5xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24100.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24100.jpgsave_picture_24100.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ MiniOS (все редакции) v4.1.2 [amd64, i386] 4xDVD [RU]
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24106.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24106.jpgsave_picture_24106.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ Astra Linux Special Edition 1.6.15 [amd64] 5xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24602.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24602.jpgsave_picture_24602.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ ALT Linux 8 СП C10F2 [amd64] 3xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24634.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24634.jpgsave_picture_24634.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ GreenLinux 22.1.0 Novosibirsk [x86_64] 3xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27809.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27809.jpgsave_picture_27809.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ DR14 T.meter 2.0.0 [x32, x64] (py)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34312.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34312.jpgsave_picture_34312.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ AlmaLinux 9.5 (Gnome, Xfce, KDE, Mate) [x86_64] 8xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34457.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34457.jpgsave_picture_34457.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ Red Hat Enterprise Linux 9.5 [x86_64, aarch64] 4xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34756.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34756.jpgsave_picture_34756.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Elementary OS 8 Circe [x64] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35676.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35676.jpgsave_picture_35676.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ MiniOS (все редакции) v3.3.4 [amd64, i386] 10xCD [RU]
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37423.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37423.jpgsave_picture_37423.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Deepin 23 [x86_64] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38226.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38226.jpgsave_picture_38226.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Ubuntu 24.10 Oracular Oriole [x86_64] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38250.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38250.jpgsave_picture_38250.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ GFI Kerio Control 9.4.4 build 8434 [x86_64] 2xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38540.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38540.jpgsave_picture_38540.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ magnet:?xt=urn:btih:FBB6F87A88C2488D8113259578E02AD1A0EC0E9A
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39696.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39696.jpgsave_picture_39696.jpg" />
 </div>
 
 

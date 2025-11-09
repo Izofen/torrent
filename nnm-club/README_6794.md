@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233778.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233778.jpgsave_picture_233778.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Rob Tyner - Blood Brothers (1990) [FLAC|Lossless|tracks] <Rock, Classic Rock, Ha
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233779.jpgsave_picture_233779.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Recursive Ruin (2022) [Ru/Multi] (22.05.17) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233780.jpgsave_picture_233780.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ Music Editor / Музыкальный редактор 5.8.1 Mod by maxi123444 [
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233781.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233781.jpgsave_picture_233781.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ Opera Crypto Browser 99.0.4788.13 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233782.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233782.jpgsave_picture_233782.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ magnet:?xt=urn:btih:AC23664D8CD4365F5A622AEAC88D780621ABE577
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233783.jpgsave_picture_233783.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ Feeder 4 v.4.5.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233784.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233784.jpgsave_picture_233784.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Windows and Office Genuine ISO Verifier 11.12.37.23 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233785.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233785.jpgsave_picture_233785.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ magnet:?xt=urn:btih:6A27E0CEDE11F0CD67C5C556A8C183012E940DEB
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233786.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233786.jpgsave_picture_233786.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ magnet:?xt=urn:btih:4342523F4AB4F50C691DC889831950248EA9C736
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233787.jpgsave_picture_233787.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ Samtar - Cryptic Tales From A Vision Obscured (2021) [FLAC|Lossless|WEB-DL|track
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233788.jpgsave_picture_233788.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ magnet:?xt=urn:btih:CC371B22FB17388339E2E7D288DAF6F130118B1C
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233789.jpgsave_picture_233789.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ magnet:?xt=urn:btih:B89192B287CE97172626E25BCE3004518D95E726
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233790.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233790.jpgsave_picture_233790.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ PhotoRoom 4.5.8 Mod by Mixroot, Maximoff, 0x7d [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233791.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233791.jpgsave_picture_233791.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ magnet:?xt=urn:btih:6EF26BB175F64EC8AF43F760DF21EE29F6FF2E1B
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233792.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233792.jpgsave_picture_233792.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ magnet:?xt=urn:btih:C9E3E46357DB08792309085D108479A5CECC529E
 >>Русский Рок (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233793.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233793.jpgsave_picture_233793.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ magnet:?xt=urn:btih:5118F4C3EBD6BBDE0E2181C752E88308A2F5CC50
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233794.jpgsave_picture_233794.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Color Wheel 6.5 [Multi/Rus]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233795.jpgsave_picture_233795.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Nazty Habit - Twist of My Soul (2011) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233796.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233796.jpgsave_picture_233796.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Udemy, Greg Wondra | Unreal Engine: Create an Arcade Classic! (2021) PCRec [EN /
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233798.jpgsave_picture_233798.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ magnet:?xt=urn:btih:FCE3962C285C3306B39A42CCACD2EC18710D822D
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233799.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233799.jpgsave_picture_233799.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ WinUtilities Professional 15.88 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233800.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233800.jpgsave_picture_233800.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ VA - Свежий Русский Хит от ALEXnROCK часть 10 (2022) [MP3
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233801.jpgsave_picture_233801.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Dato 3.1.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233802.jpgsave_picture_233802.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ VA - Rock Fun & Happy Songs (2023) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233803.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233803.jpgsave_picture_233803.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ simplewall 3.6.7 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233805.jpgsave_picture_233805.jpg" />
 </div>
 
 

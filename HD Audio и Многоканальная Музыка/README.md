@@ -6,7 +6,7 @@ Siege Of Power - Studio Albums (2 releases) (2018-2023) hand made [restored, dec
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4.jpgsave_picture_4.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Arabs In Aspic - Studio Albums (8 releases) (2003-2023) hand made [restored, dec
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12.jpgsave_picture_12.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Dario Mollo projects (Crossbones, EZoo, The Cage, Twilight Road, Voodoo Hill) - 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18.jpgsave_picture_18.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Between the Buried and Me (BTBAM) - Studio Albums (18 releases) (2002-2025) hand
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102.jpgsave_picture_102.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Motörhead (Motorhead) - Studio Albums (23 releases) (1977-2015) hand made [rest
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140.jpgsave_picture_140.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Manowar - Studio Albums (19 releases) (1982-2023) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155.jpgsave_picture_155.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Fish Hook Smile - Fish Hook Smile (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Ha
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_209.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_209.jpgsave_picture_209.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Bill Barber & The Holding Cell - Southern Redemption (2025) [FLAC 24/96|Lossless
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_210.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_210.jpgsave_picture_210.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ Jacob and The Melody Drivers - Jacob and The Melody Drivers (2025) [FLAC 24/96|L
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_212.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_212.jpgsave_picture_212.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Clockers - Il Broccolino (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_213.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_213.jpgsave_picture_213.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Headstones - Burn All The Ships (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_214.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_214.jpgsave_picture_214.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Betschart Transport AG - Griffin Overdrive (2025) [FLAC 24/192|Lossless|WEB-DL|t
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_215.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_215.jpgsave_picture_215.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Bill Laurance - Lumen (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_216.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_216.jpgsave_picture_216.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Armando Alonso - Problemas con el gas (2025) [FLAC 24/48|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_217.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_217.jpgsave_picture_217.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Nathan Mitchell - The Legacy Project (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_227.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_227.jpgsave_picture_227.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Dust and Echoes - Whispers on the Wire (2025) [FLAC 24/44.1|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_228.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_228.jpgsave_picture_228.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ Biffy Clyro - Futique (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_231.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_231.jpgsave_picture_231.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Angelwreck - Pieces Of My Heart (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Ro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_234.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_234.jpgsave_picture_234.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Devil of a Woman - Last Call for Freedom (2025) [FLAC 24/44.1|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_235.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_235.jpgsave_picture_235.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Willow Suns - All out of Time (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blue
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_236.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_236.jpgsave_picture_236.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ Creed - The Best Of Creed (Remastered 2025) (2025) [FLAC 24/44.1|Lossless|WEB-DL
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_273.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_273.jpgsave_picture_273.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Mariah Carey - Here For It All (2025) [FLAC 24/44.1, 16/44.1|Lossless|WEB-DL|tra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_282.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_282.jpgsave_picture_282.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ Kate Bush - Best Of The Other Sides (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_288.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_288.jpgsave_picture_288.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ Mors Principium Est - Studio Albums (9 releases) (2003-2025) hand made [restored
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_591.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_591.jpgsave_picture_591.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ Revocation (ex-Cryptic Warning) - Studio Albums (11 releases) (2005-2025) hand m
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_615.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_615.jpgsave_picture_615.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ Vildhjarta - Studio Albums (5 releases) (2009-2025) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_763.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_763.jpgsave_picture_763.jpg" />
 </div>
 
 

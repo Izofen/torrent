@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146689.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146689.jpgsave_picture_146689.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:B234A42EFF09DC4A23A6D48F2D8F7A7C4034415C
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146692.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146692.jpgsave_picture_146692.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:22976D211D4A97E41DBD000A9911F73FE335DD09
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146693.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146693.jpgsave_picture_146693.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Sexy Girls Pack Wallpapers (15.12.12) [Wallpapers 16+]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146694.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146694.jpgsave_picture_146694.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Heavy Pettin - Best Of Heavy Pettin (2020) [MP3|320 Kbps] <Hard Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146695.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146695.jpgsave_picture_146695.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:E62D754ECE60B1AAAE71F488FFDDFEF4289BA05F
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146697.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146697.jpgsave_picture_146697.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ Devil Doll - Queen Of Pain (2002) [MP3|320 Kbps] <Rockabilly, Country Blues>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146698.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146698.jpgsave_picture_146698.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:18489187C4A4D492CB9ABED56FBF4E5F56D2B83D
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146699.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146699.jpgsave_picture_146699.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ WakeupOnStandBy 1.7.20.6 [Multi]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146700.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146700.jpgsave_picture_146700.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ Levi De Ville - Outtakes Series (2020) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146701.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146701.jpgsave_picture_146701.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ magnet:?xt=urn:btih:DCE8F46DD90F3C14C58B542BD46F3777CF154670
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146703.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146703.jpgsave_picture_146703.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ Big Pig - You Lucky People (1990) [MP3|320 Kbps] <Electronic Pop Rock, Funk, Fem
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146704.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146704.jpgsave_picture_146704.jpg" />
 </div>
 
 
@@ -314,7 +314,7 @@ HT System Administrator 14.1.5.22 [En] (SharewareOnSale до 31.12.2018)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146705.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146705.jpgsave_picture_146705.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ magnet:?xt=urn:btih:7CC0176103EAE808A61F09761478665EF303321F
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146706.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146706.jpgsave_picture_146706.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ Ella Fitzgerald & Duke Ellington - Ella & Duke At The Cote D'Azur (1966) 2CD, 19
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146707.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146707.jpgsave_picture_146707.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ magnet:?xt=urn:btih:AA701174D7578CFC0560DF7BAB6519CCF6469B08
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146709.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146709.jpgsave_picture_146709.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ magnet:?xt=urn:btih:A44B75227983282D1B958B41FE8B9727FB6E3A78
 >>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146710.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146710.jpgsave_picture_146710.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ PicShop - Photo Editor 3.0.3 Paid [Eng] - Редактирование фото�
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146711.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146711.jpgsave_picture_146711.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ Sumatra PDF 3.2.11073 Pre-release + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146712.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146712.jpgsave_picture_146712.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ WebVideoHunter Pro 6.2.1 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146713.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146713.jpgsave_picture_146713.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Zомбилэнд: Контрольный выстрел / Zombieland: Double Ta
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146715.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146715.jpgsave_picture_146715.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ magnet:?xt=urn:btih:EF8A4D70E298AD8395B5919E88EEA696FD30EF22
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146716.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146716.jpgsave_picture_146716.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ magnet:?xt=urn:btih:8C5AAB1FFF7BF4D0CDB9CF22804CA9AC9A06AF3C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146717.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146717.jpgsave_picture_146717.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ magnet:?xt=urn:btih:46D5CE2031B5B97E3FF0ECE73A9095D3F80CE5AF
 >>История
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146718.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146718.jpgsave_picture_146718.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ magnet:?xt=urn:btih:C3AAFFC3B3D5FDD6D8687EC415BA817A5890DB39
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146719.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146719.jpgsave_picture_146719.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Lane 8 - Winter 2020 Mixtape (2020-12-15) [MP3|320 Kbps] <Progressive House, Dee
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146721.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146721.jpgsave_picture_146721.jpg" />
 </div>
 
 

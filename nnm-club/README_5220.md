@@ -6,7 +6,7 @@
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162476.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162476.jpgsave_picture_162476.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ XYZ School, Женя Пак | Hard Surface (2020) HDTVRip
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162477.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162477.jpgsave_picture_162477.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ Call Recorder - SKVALEX v3.4.9 [Ru/Multi]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162478.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162478.jpgsave_picture_162478.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ reFX - Nexus 3.4.4 VSTi (x64) + Content [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162479.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162479.jpgsave_picture_162479.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Timer RH PRO  2.13.0 [En/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162480.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162480.jpgsave_picture_162480.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:683B6156D98DA0BF91D07AF4D0540DC3EC4118DA
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162481.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162481.jpgsave_picture_162481.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:E1A847D48736CFBABF96ABEDAE4C8D85ECB5361A
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162482.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162482.jpgsave_picture_162482.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:8E14F2434B71295DE7048D571098D58831AA08AE
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162483.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162483.jpgsave_picture_162483.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ Nicolas Barnes - Liquid Tools (2023) [FLAC|Lossless|WEB-DL|tracks] <Tech House, 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162484.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162484.jpgsave_picture_162484.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ magnet:?xt=urn:btih:3B321B76BA3D2599425934E21D4FAE818BFCABF6
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162485.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162485.jpgsave_picture_162485.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ HTML Academy | JavaScript. Архитектура клиентских прил�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162486.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162486.jpgsave_picture_162486.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ Remedy - Something That Your Eyes Won't See (2022) [FLAC|Lossless|WEB-DL|tracks]
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162487.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162487.jpgsave_picture_162487.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ Gumroad, Duard Mostert | AAA Game Assets with Fusion 360 Tutorial (2021) PCRec [
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162488.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162488.jpgsave_picture_162488.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Slay the Spire (2019) [Ru/Multi] (2.2) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162489.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162489.jpgsave_picture_162489.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ B.B. & The Blues Shacks - Lonesome In The Moonlight (2023) [FLAC|Lossless|WEB-DL
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162490.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162490.jpgsave_picture_162490.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ High-Logic FontCreator Professional 15.0.0.2949 Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162492.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162492.jpgsave_picture_162492.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ magnet:?xt=urn:btih:D4FD75C6756211A49FAE376DA5B93B89B3953697
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162493.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162493.jpgsave_picture_162493.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ magnet:?xt=urn:btih:EB9388610F1FB30721A5CF2A1A4ADB7032A152E8
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162494.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162494.jpgsave_picture_162494.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Adobe Photoshop 2021 v22.1.0 + Neural Filters [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162495.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162495.jpgsave_picture_162495.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ magnet:?xt=urn:btih:56E23C57D4544101EAD2213E109D5E8CE2C50561
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162496.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162496.jpgsave_picture_162496.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ WiFi Explorer 3.0.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162497.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162497.jpgsave_picture_162497.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Big Harp George - Big Harp George Does Christmas (2023) [FLAC|Lossless|WEB-DL|tr
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162498.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162498.jpgsave_picture_162498.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ The Beatles: Вернись / The Beatles: Get Back (2021) WEB-DL [H.265/2160p] 
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162500.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162500.jpgsave_picture_162500.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Counter-Strike 1.6 Warface (2020) [Ru] (1.1.2.7/pv48/b4554) Repack Ganniball
 >>Online Action (MMO)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162501.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162501.jpgsave_picture_162501.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ PhotoDirector - Редактор фото 18.7.0 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162502.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162502.jpgsave_picture_162502.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ magnet:?xt=urn:btih:32E2CFFDE8E5ADC54B79A656D6278D54456DD27D
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162503.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162503.jpgsave_picture_162503.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ The Oscar Peterson Trio - Another Day (1970) 2024, MPS [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101243.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101243.jpgsave_picture_101243.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:67B0DA0D17EE235D34B04687560DD2BB928E3F09
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101244.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101244.jpgsave_picture_101244.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Hard Shine - Next Best Thing (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101245.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101245.jpgsave_picture_101245.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:CEE4856CFCAAFE1CB0D3915DA4C0BC0B6A3C606C
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101246.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101246.jpgsave_picture_101246.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ JoJo Meerstal - Blues from Belgium (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101247.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101247.jpgsave_picture_101247.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ magnet:?xt=urn:btih:A4A469CF29B11F500A64E85FA200118A7DA34293
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101248.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101248.jpgsave_picture_101248.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ magnet:?xt=urn:btih:BC793EA61E077AE68ED8837C29A8C6FFC738AACA
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101249.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101249.jpgsave_picture_101249.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ magnet:?xt=urn:btih:8FA50DA32A028335598A6B2D14258F6EE92C9CF8
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101250.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101250.jpgsave_picture_101250.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ magnet:?xt=urn:btih:DADA1470D52CC452415DCE3ECE093B323F9ECA0F
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101251.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101251.jpgsave_picture_101251.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Mick Clarke - Dirty Work (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues, Blues Rock
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101252.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101252.jpgsave_picture_101252.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ VA - Extrema Global Music - Best Of 2024 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101253.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101253.jpgsave_picture_101253.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ VA - Top 11 October 2024 Emotional and Uplifting Trance (2024) [MP3|320 Kbps] <T
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101254.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101254.jpgsave_picture_101254.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Desert Near The End - Tides Of Time (2024) [FLAC|Lossless|image + .cue] <Power M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101255.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101255.jpgsave_picture_101255.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Revolting - Night Of The Horrid (2024) [FLAC|Lossless|WEB-DL|tracks] <Death Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101256.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101256.jpgsave_picture_101256.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Terrifier - Studio Albums (3 releases) (2012-2023) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101257.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101257.jpgsave_picture_101257.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ magnet:?xt=urn:btih:8A890C50D23FB662FE30E045530C55ED322E9D5C
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101258.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101258.jpgsave_picture_101258.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ VA - Gym Mode 2025 (2024) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101259.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101259.jpgsave_picture_101259.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ magnet:?xt=urn:btih:55C2CEAE6E7141A52CE94649F78FCA6901FE017E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101260.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101260.jpgsave_picture_101260.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ magnet:?xt=urn:btih:213CDD19FC5A0C81B4135C965A8481DB8FC03A4D
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101261.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101261.jpgsave_picture_101261.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ magnet:?xt=urn:btih:7BD9E826FF895E8C7CBA81626F7173586030E14A
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101262.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101262.jpgsave_picture_101262.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ magnet:?xt=urn:btih:0D153ED43AD77A1BF973289A949D2EB73724A00F
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101263.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101263.jpgsave_picture_101263.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ magnet:?xt=urn:btih:D85DF7FBD564893D4CCB378DFF92C8B832C76DB0
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101264.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101264.jpgsave_picture_101264.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:5ED8EC6B3C290646627778CD3848DADD0B920E45
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101265.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101265.jpgsave_picture_101265.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ magnet:?xt=urn:btih:79853284EA9FCF43673E5554BA9C25F840968A7E
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101266.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101266.jpgsave_picture_101266.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ magnet:?xt=urn:btih:5BFD7E70DFBC6DAC5E7CDDC1785644794F7D84EA
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101267.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101267.jpgsave_picture_101267.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ VA - The Blue Giants: Live At Groove Now (Live) (2024) [FLAC|Lossless|WEB-DL|tra
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101268.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101268.jpgsave_picture_101268.jpg" />
 </div>
 
 

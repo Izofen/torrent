@@ -6,7 +6,7 @@ Jean Mare - Atmospheric Dreams (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Dow
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145654.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145654.jpgsave_picture_145654.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:20D503CABCA4C260809759C087323E18F086C2BF
 >>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145655.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145655.jpgsave_picture_145655.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Ronnie Earl & The Broadcasters - Rise Up (2020) [MP3|320 Kbps] <Blues, Electric 
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145656.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145656.jpgsave_picture_145656.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:2C7C4008EE18CABCE11C283053067F2992405A08
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145658.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145658.jpgsave_picture_145658.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:2D80C3F3868CB1DBA02AA1592BE8C138C5E5D9D2
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145659.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145659.jpgsave_picture_145659.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Autumn's Child - Zenith (2021) Japanese Edition [FLAC|Lossless|image + .cue] <Me
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145660.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145660.jpgsave_picture_145660.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ Roxette - 25 Best Songs (2012) [MP3|~245 кб/с]<Pop, Rock>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145661.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145661.jpgsave_picture_145661.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ magnet:?xt=urn:btih:97B93C35286A569607E97DB663AD6C388420C7DC
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145662.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145662.jpgsave_picture_145662.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ NGW: Братья сафари / Safari Brothers (2016) HDTV [H.264/1080i-LQ] (�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145663.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145663.jpgsave_picture_145663.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ VA - Hustle Hits (1975) LP [MP3|320 Kbps] <Funk/Soul, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145664.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145664.jpgsave_picture_145664.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ magnet:?xt=urn:btih:11FE132DE3B09169A90D4FE28376C91E1A6C382D
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145665.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145665.jpgsave_picture_145665.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ magnet:?xt=urn:btih:DCA0F77BC898763D8B8918A28790235D87007213
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145666.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145666.jpgsave_picture_145666.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ magnet:?xt=urn:btih:4CF694261E116F2B7987C03B9530EB3F6D6EB00A
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145667.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145667.jpgsave_picture_145667.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ Stay Away - СССР 2077 (2023) [MP3|320 Kbps] <Punk Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145669.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145669.jpgsave_picture_145669.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ CHIP | CHIP - DVD приложение к журналу CHIP №1 (январь
 >>Приложения к журналам
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145670.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145670.jpgsave_picture_145670.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ magnet:?xt=urn:btih:35046F12D64B6B301F0B072A1D75C9FA610871EF
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145671.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145671.jpgsave_picture_145671.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ VA - SpinCat Music - Best Of 2021 (2021) [MP3|320 Kbps] <Disco, Nu-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145672.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145672.jpgsave_picture_145672.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ magnet:?xt=urn:btih:7A9B1C0908AF8AE392A74EE4D66FBDCB600C15E1
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145673.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145673.jpgsave_picture_145673.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ magnet:?xt=urn:btih:D4FF951738BEB683EA8833F0B600E91FA3973B5D
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145674.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145674.jpgsave_picture_145674.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ magnet:?xt=urn:btih:09B10AE5966413EB2D51E961452ACE84B6D3CA64
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145675.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145675.jpgsave_picture_145675.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ Total Commander 9.0a Final MAX-Pack Extended 2016.12.16 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145676.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145676.jpgsave_picture_145676.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ magnet:?xt=urn:btih:43E27ED898027CE0934C659EF32E678E120D6983
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145677.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145677.jpgsave_picture_145677.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ magnet:?xt=urn:btih:BAE733795C8E8C272B295049E11FC7EB0BF06813
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145678.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145678.jpgsave_picture_145678.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ magnet:?xt=urn:btih:B3C1B28C10B11C48F7F7BB941A124BD72D6A16F4
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145679.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145679.jpgsave_picture_145679.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ VA - Fear FM Hardstyle Top 40 January (2012) Unmixed [MP3|320 Kbps] <Hardstyle>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145681.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145681.jpgsave_picture_145681.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ magnet:?xt=urn:btih:8A39C8DECEF371D8F740BEB4C017C0A85AB2E840
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145682.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145682.jpgsave_picture_145682.jpg" />
 </div>
 
 

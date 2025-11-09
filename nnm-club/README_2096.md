@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54863.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54863.jpgsave_picture_54863.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:4A0EC7612A9D93D6271E164F0FC6E336C364DC16
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54864.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54864.jpgsave_picture_54864.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Master PDF Editor 5.9.84 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54865.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54865.jpgsave_picture_54865.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ YT Downloader 9.8.7 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54866.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54866.jpgsave_picture_54866.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Topaz Video AI 5.1.1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54867.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54867.jpgsave_picture_54867.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:EC0347DDDF37ADEE89B2E47F9598C93C675776D7
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54868.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54868.jpgsave_picture_54868.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ EssentialPIM Pro 12.0.0 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54869.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54869.jpgsave_picture_54869.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ Microsoft Visual Studio 2022 Enterprise 17.10.1 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54870.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54870.jpgsave_picture_54870.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ Viber 22.8.0.0 (x64) RePack (Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54871.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54871.jpgsave_picture_54871.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:27F4356CAA4BF9F693283FDA441A00338E140BAF
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54872.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54872.jpgsave_picture_54872.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:1D76F297A1F1305A7039DC62C1E183E2CADC35CF
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54873.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54873.jpgsave_picture_54873.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:847B6EBAC843A9BE36908721437F1BC496F43E7B
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54874.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54874.jpgsave_picture_54874.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Microsoft .NET 8.0.6 Runtime [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54875.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54875.jpgsave_picture_54875.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ magnet:?xt=urn:btih:096AC76C7F974E2F65895F952290109EFDFBBE37
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54876.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54876.jpgsave_picture_54876.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ magnet:?xt=urn:btih:B4408982B13A4A536643E91F882A30A2824512C5
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54877.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54877.jpgsave_picture_54877.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Process Explorer 17.06 Portable [En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54878.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54878.jpgsave_picture_54878.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ VA - Electronic compilation part 81 (2024) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54879.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54879.jpgsave_picture_54879.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ magnet:?xt=urn:btih:63C1A9DE6DDAFB42B6CB9116C6A9E3B68E7DD49A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54880.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54880.jpgsave_picture_54880.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ Wise Disk Cleaner 11.1.2.827 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54881.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54881.jpgsave_picture_54881.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Adrian Wallwork | Jokes: Have a Laugh and Improve Your English (2017) [PDF] [EN]
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54882.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54882.jpgsave_picture_54882.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ magnet:?xt=urn:btih:4F0C8B10CACA9783AE7E843C22F10698452DAF11
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54883.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54883.jpgsave_picture_54883.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ Opera One 110.0.5130.49 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54884.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54884.jpgsave_picture_54884.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ VA - Electronic compilation part 82 (2024) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54885.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54885.jpgsave_picture_54885.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ magnet:?xt=urn:btih:E66CE429D319B0FABBE75F3BAB1B21F24037744B
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54886.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54886.jpgsave_picture_54886.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ magnet:?xt=urn:btih:1180C9DFC2697C1986AD1DAA323EF901A4381AF5
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54887.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54887.jpgsave_picture_54887.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ VA - 100% Hits: DJ Hits '97 Vol. 1 (1997) [OGG Vorbis|480 Kbps] <Electronic, Reg
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54888.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54888.jpgsave_picture_54888.jpg" />
 </div>
 
 

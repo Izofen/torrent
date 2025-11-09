@@ -6,7 +6,7 @@
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97591.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97591.jpgsave_picture_97591.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ VA - XXXL Супер Танцевальный 50\50 Весна (2012) [MP3|256 �
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97594.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97594.jpgsave_picture_97594.jpg" />
 </div>
 
 
@@ -67,7 +67,7 @@ VA - Весенний музыкальный бум 50/50 (2012) [MP3|256 кб/�
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97595.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97595.jpgsave_picture_97595.jpg" />
 </div>
 
 
@@ -100,7 +100,7 @@ magnet:?xt=urn:btih:B80B9414FC94009F019523E9042E02418F9DF75E
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97598.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97598.jpgsave_picture_97598.jpg" />
 </div>
 
 
@@ -124,7 +124,7 @@ magnet:?xt=urn:btih:3A904B7C5DCA3BD8363D4630E17E9E4437882B7C
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97600.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97600.jpgsave_picture_97600.jpg" />
 </div>
 
 
@@ -148,7 +148,7 @@ Tales From The Dragon Mountain: The Strix (P) [Ge] 2011
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97604.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97604.jpgsave_picture_97604.jpg" />
 </div>
 
 
@@ -172,7 +172,7 @@ magnet:?xt=urn:btih:7AA0DD79EC93C849608DE8E5620F9B681F7F97BF
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97605.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97605.jpgsave_picture_97605.jpg" />
 </div>
 
 
@@ -196,7 +196,7 @@ Kammerer - Enter The Cheesedragon (2012) [MP3|320 кб/с]<Lounge, Nu Jazz, Trip
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97606.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97606.jpgsave_picture_97606.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ magnet:?xt=urn:btih:254DB41750285A4B3CB450C9F89D12C58DFDC03B
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97607.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97607.jpgsave_picture_97607.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ VA - MAXI. Electro Тебе в тачку (2012) [MP3|320 кб/с]<Club, Electro
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97610.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97610.jpgsave_picture_97610.jpg" />
 </div>
 
 
@@ -290,7 +290,7 @@ magnet:?xt=urn:btih:3953D8FC1D88BBB8F7F150D4978F750BBAF4ED52
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97612.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97612.jpgsave_picture_97612.jpg" />
 </div>
 
 
@@ -314,7 +314,7 @@ magnet:?xt=urn:btih:CA7738EE8F72194CD86E9F73A9C9E9F3E28F7341
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97625.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97625.jpgsave_picture_97625.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ magnet:?xt=urn:btih:36919D1530BAEF2B2B64418BA636F05E97BBFDCA
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97629.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97629.jpgsave_picture_97629.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ magnet:?xt=urn:btih:812FA47CAE82C84C5F8CE98778E95163D20CA8AB
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97634.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97634.jpgsave_picture_97634.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ VA - Science Of Dance (2011) [MP3|320 кб/с]<Psychedelic / Full On, Psy-Prog>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97635.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97635.jpgsave_picture_97635.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ magnet:?xt=urn:btih:9105B893EA333AA238C10A78E9A06296A6F9FFEA
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97638.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97638.jpgsave_picture_97638.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ magnet:?xt=urn:btih:4E7198630885A3EB8ADAFA54BA6F96AF1CE69E2D
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97644.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97644.jpgsave_picture_97644.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ magnet:?xt=urn:btih:D5145959628A5F88B3954F935094306B3241EC70
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97647.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97647.jpgsave_picture_97647.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ VA - Бездна Party (2012) [MP3|256 кб/с]<Шансон>
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97649.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97649.jpgsave_picture_97649.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ VA - Вечеринка Love Radio (2012) [MP3|256 кб/с]<Pop,Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97651.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97651.jpgsave_picture_97651.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ VA - Муз-треки Блатного радио Vol-2 (2012) [MP3|256 кб/с
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97652.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97652.jpgsave_picture_97652.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ magnet:?xt=urn:btih:B1B70553C22BBD1A641B61FB815B3684C3BC080B
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97653.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97653.jpgsave_picture_97653.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Alice de Selys - In A Heartbeat (2012) [MP3|320 кб/с]<Pop, Lounge>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97654.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97654.jpgsave_picture_97654.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ magnet:?xt=urn:btih:B1230ADA773366ABF365B405DE610B55B45FFE7C
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97657.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97657.jpgsave_picture_97657.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ magnet:?xt=urn:btih:73AC9719FFE38CC314402A6E62ABD1E0532BEA2E
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97658.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97658.jpgsave_picture_97658.jpg" />
 </div>
 
 
@@ -705,7 +705,7 @@ VA - Trancern 33.4: Official Compilation (25.03.2012) [MP3|320 кб/с]<Trance, 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97661.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97661.jpgsave_picture_97661.jpg" />
 </div>
 
 

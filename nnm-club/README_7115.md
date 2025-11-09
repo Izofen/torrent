@@ -6,7 +6,7 @@
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243926.jpgsave_picture_243926.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Lyre le temps - Lady Swing (2010) [AAC|~278 Kbps] <Electro Swing, Hip Hop>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243927.jpgsave_picture_243927.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:C8B3937EE685542CD0D0ECF261B0109C79C3F971
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243928.jpgsave_picture_243928.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Gengis Khan - Possessed By The Moon (2022) [FLAC|Lossless|image + .cue] <Heavy M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243929.jpgsave_picture_243929.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Zac Leaser - Empty Dreams (2017) [FLAC|Lossless|WEB-DL|tracks] <Technical, Melod
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243930.jpgsave_picture_243930.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Brave Browser 1.49.132 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243931.jpgsave_picture_243931.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Omni Recover 3 v3.2.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243932.jpgsave_picture_243932.jpg" />
 </div>
 
 
@@ -187,7 +187,7 @@ magnet:?xt=urn:btih:C98160E4C219E2AEC90B39FF880F906F5F6A38BF
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243933.jpgsave_picture_243933.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ magnet:?xt=urn:btih:7E1D83AFCAA468B6807BDAC7EC77DF26E91EEA60
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243934.jpgsave_picture_243934.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ Kenny Dorham - Una Mas (1963) 1987, Blue Note [FLAC|Lossless|tracks + .cue] <Har
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243935.jpgsave_picture_243935.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ VA - German Top 50 Official Dance Charts 18.11 (2016) [MP3|256-320 Kbps] <Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243936.jpgsave_picture_243936.jpg" />
 </div>
 
 
@@ -290,7 +290,7 @@ Louis Armstrong - The Complete Louis Armstrong Columbia And RCA Victor Studio Se
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243937.jpgsave_picture_243937.jpg" />
 </div>
 
 
@@ -317,7 +317,7 @@ Kingdom Come - Collection (2022) [MP3|320 Kbps] <Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243938.jpgsave_picture_243938.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ magnet:?xt=urn:btih:5CA9422CA3CD2E39A87BC8174E1EFEBC41CC28E4
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243939.jpgsave_picture_243939.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ DesktopClock3D 2.88 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243940.jpgsave_picture_243940.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ City Kings - Steel Rock n Roll (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243941.jpgsave_picture_243941.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ magnet:?xt=urn:btih:7D7A59FF61BDB42CE2B3184910E5DD9C2FD98262
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243942.jpgsave_picture_243942.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ Jimi Tenor - Saxentric (2016) [FLAC|Lossless|tracks + .cue] <Nu Jazz, Acid Jazz,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243943.jpgsave_picture_243943.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Clipboard mini 3.0.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243944.jpgsave_picture_243944.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ magnet:?xt=urn:btih:83084A98B764B8CB56F1D4C900EB12B1F195D5F0
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243945.jpgsave_picture_243945.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Artstudio Pro 4.0.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243946.jpgsave_picture_243946.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ VA - Happy Valentine's Day (2023) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Chi
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243947.jpgsave_picture_243947.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ The Philharmonia Slavonica. Henry Adolph Conducting - Ballet Music (Schubert, Tc
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243948.jpgsave_picture_243948.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ magnet:?xt=urn:btih:D7B27C7CCF2A0341908D3E180F3CA3D1F325508A
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243949.jpgsave_picture_243949.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ VA - 60 minutes. Old School Dance Music vol.17 (2023) mixed by Dj V [MP3|320 Kbp
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243950.jpgsave_picture_243950.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ magnet:?xt=urn:btih:B76A5D365C7A056B57B654C66E2646AD0404E1D4
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243951.jpgsave_picture_243951.jpg" />
 </div>
 
 

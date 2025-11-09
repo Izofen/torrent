@@ -6,7 +6,7 @@
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121853.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121853.jpgsave_picture_121853.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Eddie James - 'Ard (2024) [FLAC|Lossless|WEB-DL|tracks] <Classic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121854.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121854.jpgsave_picture_121854.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ In Flames - Hell Is Overcrowded And Heaven's Full Of Sinners (2023) [FLAC|Lossle
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121862.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121862.jpgsave_picture_121862.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Dolly Parton - Rockstar (2024) Deluxe [MP3|320 Kbps] <Pop-Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121868.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121868.jpgsave_picture_121868.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ magnet:?xt=urn:btih:86A92F53F93764EC77FC30157922E4B27C12A35B
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121879.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121879.jpgsave_picture_121879.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ magnet:?xt=urn:btih:AFC750E63F050878BE728E175CC2941B6D4C240A
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121981.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121981.jpgsave_picture_121981.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Deacon Stone - That Little Girl (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121982.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121982.jpgsave_picture_121982.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ magnet:?xt=urn:btih:E56C217D5009599C42EEF2E64908E26475B0B44B
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121987.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121987.jpgsave_picture_121987.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Final Coil - The World We Inherited (2024) [FLAC|Lossless|WEB-DL|tracks] <Progre
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121988.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121988.jpgsave_picture_121988.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Revolution Saints - Against The Winds (2024) [FLAC|Lossless|WEB-DL|tracks] <Melo
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121997.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121997.jpgsave_picture_121997.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Autumn's Child - Tellus Timeline (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic H
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121998.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121998.jpgsave_picture_121998.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Lazarus Dream - Imaginary Life (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122001.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122001.jpgsave_picture_122001.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Aasymar - Corona de Escamas (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Heav
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122005.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122005.jpgsave_picture_122005.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Master - Saints Dispelled (2024) [FLAC|Lossless|WEB-DL|tracks] <Death, Thrash Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122006.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122006.jpgsave_picture_122006.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ ASP - Horrors  A Collection of Gothic Novellas (2023) [FLAC|Lossless|WEB-DL|trac
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122008.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122008.jpgsave_picture_122008.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Food For Fish - Ещё не старый (2024) [FLAC|Lossless|WEB-DL|tracks] <P
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122010.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122010.jpgsave_picture_122010.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Craig Soderberg - Are You OK?! (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122011.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122011.jpgsave_picture_122011.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Dolly Parton - Rockstar (Deluxe) (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122014.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122014.jpgsave_picture_122014.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:A7232AD7F8FFE72537ADB3F6E871CFAEBE87ED4C
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122113.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122113.jpgsave_picture_122113.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Saxon - Hell, Fire and Damnation (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122141.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122141.jpgsave_picture_122141.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Metalite - Expedition One (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Power Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122144.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122144.jpgsave_picture_122144.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Gotus - Gotus (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122154.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122154.jpgsave_picture_122154.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Saxon - Hell, Fire and Damnation (2024) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122162.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122162.jpgsave_picture_122162.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ magnet:?xt=urn:btih:61E2CFEB5A0A426A681017C09C0B65E4E09AB75E
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122163.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122163.jpgsave_picture_122163.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Gotus - Gotus (2024) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122168.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122168.jpgsave_picture_122168.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Green Day - Saviors (2024) [MP3|320 Kbps] <Punk Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122225.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122225.jpgsave_picture_122225.jpg" />
 </div>
 
 

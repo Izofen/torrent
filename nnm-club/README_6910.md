@@ -6,7 +6,7 @@
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237448.jpgsave_picture_237448.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ VA - Bedroom Jams 2 (2023) [MP3|320 Kbps] <Pop, R&B, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237449.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237449.jpgsave_picture_237449.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ VA - Luxury Lounge Sunset, Vol. 3 (2021) [AAC|~312 Kbps] <Lounge, Chill Out, Dow
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237450.jpgsave_picture_237450.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Anthemon - Arcanes (2003) [FLAC|Lossless|image + .cue] <Symphonic Gothic, Doom M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237453.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237453.jpgsave_picture_237453.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ WebToLayers 1.2.1 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237456.jpgsave_picture_237456.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ magnet:?xt=urn:btih:F080D46A8373AC4C38B4BB207F04FED86E3CD038
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237457.jpgsave_picture_237457.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:6470EF9941BE298188FB862BEB5A5359FAE685EE
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237458.jpgsave_picture_237458.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ VA - Café Deluxe Chillout - Nu Jazz / Lounge, Vol. 3 (2017) [AAC|~309 Kbps] <Ea
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237459.jpgsave_picture_237459.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ Princess Connect! Re:Dive 2 / PriConne 2 / Связь принцесс! Ново
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237461.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237461.jpgsave_picture_237461.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ Lou Bennett - Enfin! (1963) 1997, RCA Victor [FLAC|Lossless|tracks + .cue] <Hard
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237464.jpgsave_picture_237464.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ Script Debugger 7 v7.0.13 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237465.jpgsave_picture_237465.jpg" />
 </div>
 
 
@@ -289,7 +289,7 @@ Sublime Merge 2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237467.jpgsave_picture_237467.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ magnet:?xt=urn:btih:C444AB4123FC13D19F2D9C4C3ED75611670659BA
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237468.jpgsave_picture_237468.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ magnet:?xt=urn:btih:7EAA2E3E2D1288A693DCFEA145CBC9325072E0CA
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237469.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237469.jpgsave_picture_237469.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ FSNotes 6.3.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237470.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237470.jpgsave_picture_237470.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ Soulver 3 v3.4.15 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237472.jpgsave_picture_237472.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ magnet:?xt=urn:btih:F6A7EB34A449F3D1F127FECA6140D13D51B37618
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237473.jpgsave_picture_237473.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ magnet:?xt=urn:btih:8D594039976A0C9FC767B0AF2083445124DAFAEB
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237474.jpgsave_picture_237474.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ OneCommander Pro 3.43.7.1 Portable  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237475.jpgsave_picture_237475.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ Athentech Perfectly Clear WorkBench for Mac 4.5.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237476.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237476.jpgsave_picture_237476.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ magnet:?xt=urn:btih:7AEF65F838CB109B89EBDED20233059231D61BFD
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237477.jpgsave_picture_237477.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ VA - Café Deluxe Chillout - Nu Jazz / Lounge, Vol. 7 (2021) [AAC|~294 Kbps] <Ea
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237478.jpgsave_picture_237478.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Vision Denied - Age Of The Machine (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237479.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237479.jpgsave_picture_237479.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ AudioSwitcher 3.04 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237480.jpgsave_picture_237480.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ magnet:?xt=urn:btih:F063C57AA7DE54B7485ED6DD9580479B074C2CBC
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237481.jpgsave_picture_237481.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ magnet:?xt=urn:btih:5970381FF869EED1E5C45525193613019922516A
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237482.jpgsave_picture_237482.jpg" />
 </div>
 
 

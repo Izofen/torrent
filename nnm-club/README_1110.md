@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29215.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29215.jpgsave_picture_29215.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ JOY OF PROGRAMMING - Software Engineering Simulator (2024) [Ru/Multi] (1.0.0) Re
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29216.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29216.jpgsave_picture_29216.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Andrew Burgess | Building a Web App From Scratch With AngularJS (2014) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29217.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29217.jpgsave_picture_29217.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:3E804598309E3D2046A82EFE21F60A6A8098C112
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29218.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29218.jpgsave_picture_29218.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:EDC2C9C25E0B0496606B559F646544C0B38F0EC0
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29219.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29219.jpgsave_picture_29219.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:1E44F655CB0F033BC68CBD145A4E7E399C84822F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29220.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29220.jpgsave_picture_29220.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ ReSetna (2025) [Ru/Multi] (build 17191225) Repack seleZen
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29221.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29221.jpgsave_picture_29221.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:8EA6FA757F4E02AF9A99653439849AB5C9EEF49D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29222.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29222.jpgsave_picture_29222.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Capture One 23 Enterprise 16.5.5.2701 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29223.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29223.jpgsave_picture_29223.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ The End of the Sun (2025) [Ru/Multi] (1.0.3) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29224.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29224.jpgsave_picture_29224.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Shiguan Daliren: Yingdu Pian | Time Agent: Bridon Arc | Агент времен�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29225.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29225.jpgsave_picture_29225.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:FA0DE515F8FED1DE8A3270645B2984C8FC13C30A
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29226.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29226.jpgsave_picture_29226.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ iFind Data Recovery 9.7.40.0 RePack (& Portable) by elchupacabra [Multi]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29227.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29227.jpgsave_picture_29227.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ magnet:?xt=urn:btih:7B7D5FDD1EF94B233135F731B7D3F5A0842D1945
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29228.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29228.jpgsave_picture_29228.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ magnet:?xt=urn:btih:D3679A7DBF53A6AC9BEC64F175CE7ECB4E576F9C
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29229.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29229.jpgsave_picture_29229.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Industry Giant 4.0 (2024) [Ru/Multi] (0.4.2) Repack seleZen [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29230.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29230.jpgsave_picture_29230.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ Star Trek: Bridge Commander (2002) [En] (1.1) License GOG
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29231.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29231.jpgsave_picture_29231.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ Battle Realms: Zen Edition (2019) [Ru/Multi] (1.59.1) Repack FitGirl
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29232.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29232.jpgsave_picture_29232.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ VA & Atomic Heart - Atomic Heart, Vol. 5 (2025) Original Game Soundtrack [FLAC 2
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29233.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29233.jpgsave_picture_29233.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ magnet:?xt=urn:btih:03728DA8AAB64857181DECD845ED571D3B801EC8
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29234.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29234.jpgsave_picture_29234.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ magnet:?xt=urn:btih:279FF4D86852D8BE10F55E1FFAA73CE1943CB405
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29235.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29235.jpgsave_picture_29235.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Manor Lords (2024) [Ru/Multi] (0.8.029) Repack Wagner [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29236.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29236.jpgsave_picture_29236.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ magnet:?xt=urn:btih:9F057EC5C13E3953EF9E80329D49F46EBBC9DAB4
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29237.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29237.jpgsave_picture_29237.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Adobe Photoshop 2025 26.3.0.156 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29238.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29238.jpgsave_picture_29238.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Empire of the Ants (2024) [Ru/Multi] (1.03.20053/dlc) License GOG [Digital Delux
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29239.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29239.jpgsave_picture_29239.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ magnet:?xt=urn:btih:3D8EC297AFE9E726E12CCAAA8BF172EF298AC98D
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29240.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29240.jpgsave_picture_29240.jpg" />
 </div>
 
 

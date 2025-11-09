@@ -6,7 +6,7 @@
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144177.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144177.jpgsave_picture_144177.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:8EA69816DDA011CB1F1E9EEE2E0A3F74C312B7E9
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144178.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144178.jpgsave_picture_144178.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:1742E7227CF880A5A12C4547182F8E68307686E6
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144179.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144179.jpgsave_picture_144179.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:9633C5A8B515C88AAA00AAB96B7176CB9DB8E6CA
 >>Релакс / Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144180.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144180.jpgsave_picture_144180.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:538CD3A0F57F004CBC77C1A5DE615BDA875A5017
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144181.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144181.jpgsave_picture_144181.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:53E62BDE36F63CE058BF6AF7136375CE0DD1A837
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144182.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144182.jpgsave_picture_144182.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:D27EDBDE634ACA2EDC4A760BFF3FABB434D087B4
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144183.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144183.jpgsave_picture_144183.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Panda Kingdom - Panda Kingdom (2023) [FLAC|Lossless|WEB-DL|tracks] <heavy metal 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144184.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144184.jpgsave_picture_144184.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:766E0EBCF79BFD37C3964CB58002EDE7565DF6B1
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144185.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144185.jpgsave_picture_144185.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ VA - Подставляйте ладони-я насыплю Вам солнца
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144186.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144186.jpgsave_picture_144186.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:26E4A2D6AF0F7E0057B42BB926CA36DB2C73AA58
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144187.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144187.jpgsave_picture_144187.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:B357592A6FC6BFC53D26708F97025CA167C9DAE3
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144188.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144188.jpgsave_picture_144188.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:88AF44F4DFB192FB7D7A1EA7537A7151C6BE78DA
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144189.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144189.jpgsave_picture_144189.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:88AF44F4DFB192FB7D7A1EA7537A7151C6BE78DA
 >>Сериалы Marvel Comics
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144190.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144190.jpgsave_picture_144190.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Udemy, Dzianis Matveyenka | Java для начинающих. Level 1 (2021) WEB
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144192.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144192.jpgsave_picture_144192.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ magnet:?xt=urn:btih:F8E88C8951EF5845AFC4FA6AB45BE39F571F2712
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144193.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144193.jpgsave_picture_144193.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ In Flames - The Mirror’s Truth (2008) EP [FLAC|Lossless|image + .cue] <Melodic
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144195.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144195.jpgsave_picture_144195.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ magnet:?xt=urn:btih:AFA1A9311FB20AA90CC8A551B68D2AA99C6A908D
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144197.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144197.jpgsave_picture_144197.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ magnet:?xt=urn:btih:6AC00747C485C297C28AF9EF05F60D004F834144
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144198.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144198.jpgsave_picture_144198.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ magnet:?xt=urn:btih:5DB01961D59EF49DB2E8E5B3AA405DFA6DEC2BF2
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144200.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144200.jpgsave_picture_144200.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Juggernaut - La Bestia (2021) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144201.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144201.jpgsave_picture_144201.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ magnet:?xt=urn:btih:7474A77A11077A1479473B345B28A45D92070A65
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144202.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144202.jpgsave_picture_144202.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ magnet:?xt=urn:btih:F50E88CA9EC931B2F43B8891DA7C04AE6A86F6E3
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144203.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144203.jpgsave_picture_144203.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ magnet:?xt=urn:btih:21B4B596B22F39182BDE47DD7E8ABF547BF55ABF
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144204.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144204.jpgsave_picture_144204.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ Udemy, Oleksiy Atroshchenko | Сети с нуля. Просто - о сложн
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144205.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144205.jpgsave_picture_144205.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ The Ghostbusters - Семь (2020) EP [MP3|320 Kbps] <Ghost-Punk>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144206.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144206.jpgsave_picture_144206.jpg" />
 </div>
 
 

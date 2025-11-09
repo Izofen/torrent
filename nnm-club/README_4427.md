@@ -6,7 +6,7 @@
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138337.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138337.jpgsave_picture_138337.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Stangala - Boued Tousek Hag Traou Mat All (2011) [FLAC|Lossless|image + .cue] <D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138339.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138339.jpgsave_picture_138339.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:A319AA7FFC7F54A8AC5A136C2F2F93815AA408C5
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138340.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138340.jpgsave_picture_138340.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ magnet:?xt=urn:btih:A319AA7FFC7F54A8AC5A136C2F2F93815AA408C5
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138341.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138341.jpgsave_picture_138341.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:95BD7527D8BCFD66C2D1E5E3EFBA0A7C1DE5E829
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138342.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138342.jpgsave_picture_138342.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:7C76E23838F1869BCC55292A56CA60DEDE4257A0
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138343.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138343.jpgsave_picture_138343.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:3B083865E502DECCD4FFC95B38F55C5237040BD1
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138344.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138344.jpgsave_picture_138344.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ MenubarX for Mac 1.6.6 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138345.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138345.jpgsave_picture_138345.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ VA - Rock Collection 1987 (2015) [MP3|320 кб/с] <Rock, Metal>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138346.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138346.jpgsave_picture_138346.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ magnet:?xt=urn:btih:7260F8632E3D31970D49576E5D70326290D1645B
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138347.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138347.jpgsave_picture_138347.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ magnet:?xt=urn:btih:B77DDBDDFFD1A3F7C38A7238DF7D584C1787EDF2
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138348.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138348.jpgsave_picture_138348.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ magnet:?xt=urn:btih:C86454E2F5A1B8C58CF5A5456E8205BB821DF140
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138349.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138349.jpgsave_picture_138349.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:837A3393E94A47B8DD73E175E37284CF558C64E4
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138350.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138350.jpgsave_picture_138350.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Stangala - Klañv (Klanv) (2016) [FLAC|Lossless|Web-DL|tracks] <Doom Metal, Ston
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138351.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138351.jpgsave_picture_138351.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ magnet:?xt=urn:btih:6869A30CF37FE928F741EB0D4BC4B61FACD0D3DF
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138352.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138352.jpgsave_picture_138352.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Lee Morgan - The Complete Recordings (1956 - 1962) 6CD, 2015, Enlightenment [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138353.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138353.jpgsave_picture_138353.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ magnet:?xt=urn:btih:D486B921691C1FC665E661EBECF201786EB52207
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138355.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138355.jpgsave_picture_138355.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ magnet:?xt=urn:btih:71CB909D6FF1BE2C10BECF6EB6821928B2C4EFAF
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138356.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138356.jpgsave_picture_138356.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Process Lasso Pro 8.9.1.6 Final RePack (& Portable) by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138357.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138357.jpgsave_picture_138357.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ magnet:?xt=urn:btih:F2BFEC6E85C02F03C8C3DACAD67F5B1D76EE75E4
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138358.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138358.jpgsave_picture_138358.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Panzar: Forged by Chaos (2012) [Ru/En] (46.4) License
 >>Online (MMO)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138359.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138359.jpgsave_picture_138359.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ magnet:?xt=urn:btih:BF17D16523013800E68567E189A03DA9DDE15DBA
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138360.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138360.jpgsave_picture_138360.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ Lew Tabackin - Live At Vartan Jazz (1994) Vartan Jazz [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138361.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138361.jpgsave_picture_138361.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ magnet:?xt=urn:btih:6266A07DCEA77E787A9BAFD5B49200675996E641
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138362.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138362.jpgsave_picture_138362.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ magnet:?xt=urn:btih:E1E6EFB7E66482A8F9A3B54BBA2D7A694D9FF3BD
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138363.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138363.jpgsave_picture_138363.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ VA - Корпоратив 2022 (mixed by Dj V) (2021) [MP3|320 Kbps] <Dance, Clu
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138364.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138364.jpgsave_picture_138364.jpg" />
 </div>
 
 

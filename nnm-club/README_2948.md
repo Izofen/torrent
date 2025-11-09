@@ -6,7 +6,7 @@ Windows 7 Ultimate AUZsoft Metallic v.11.12 [RUS]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87298.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87298.jpgsave_picture_87298.jpg" />
 </div>
 
 
@@ -39,7 +39,7 @@ VA - Super Italo Disco (2012) [MP3|128 kbps]<Pop | Disco>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87301.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87301.jpgsave_picture_87301.jpg" />
 </div>
 
 
@@ -72,7 +72,7 @@ magnet:?xt=urn:btih:85AD03A29B40D7C87D651755704DED5C8981F66E
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87302.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87302.jpgsave_picture_87302.jpg" />
 </div>
 
 
@@ -96,7 +96,7 @@ magnet:?xt=urn:btih:85AD03A29B40D7C87D651755704DED5C8981F66E
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87304.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87304.jpgsave_picture_87304.jpg" />
 </div>
 
 
@@ -120,7 +120,7 @@ VA - Русская народная хоровая песня (2000) [FLAC|Loss
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87305.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87305.jpgsave_picture_87305.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ VA - Oldies For A Rainy Day LPCD45 (2008) [FLAC|Lossless]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87306.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87306.jpgsave_picture_87306.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ VA - Oldies For A Rainy Day LPCD45 (2008) [FLAC|Lossless]<Jazz>
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87307.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87307.jpgsave_picture_87307.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ Bassnectar - Vava Voom (2012) [MP3|320 кб/с]<Dubstep>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87310.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87310.jpgsave_picture_87310.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ magnet:?xt=urn:btih:742B1331D773711DC90720A693780A5C7BC97303
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87311.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87311.jpgsave_picture_87311.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ magnet:?xt=urn:btih:742B1331D773711DC90720A693780A5C7BC97303
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87314.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87314.jpgsave_picture_87314.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ VA - Убойные хиты Europa Plus 3 50/50 (2012) [MP3|256 kbps]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87317.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87317.jpgsave_picture_87317.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Game - California Republic (Hosted By DJ Skee) (2012) [MP3|320 кб/с]<Rap, Hip
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87318.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87318.jpgsave_picture_87318.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ magnet:?xt=urn:btih:9D619909760ABD7358707B602D8E56AED9EBFF76
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87319.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87319.jpgsave_picture_87319.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ VA - Шансон Десятилетия 3 CD(2012) [MP3|320 кб/с]<Шансо
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87322.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87322.jpgsave_picture_87322.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Musicmanuals | Руководство пользователя - Ueberschall Ela
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87323.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87323.jpgsave_picture_87323.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ magnet:?xt=urn:btih:543E952E27099BA229EE5A9ADA680BF9D6AD2F1F
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87324.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87324.jpgsave_picture_87324.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ magnet:?xt=urn:btih:543E952E27099BA229EE5A9ADA680BF9D6AD2F1F
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87325.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87325.jpgsave_picture_87325.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ magnet:?xt=urn:btih:FD4DF9D78E00869EE17C7842EE8D520F94790CA9
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87326.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87326.jpgsave_picture_87326.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ VA - Топ 100 Europa Plus 4 50/50 (2012) [MP3|256-320 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87328.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87328.jpgsave_picture_87328.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ magnet:?xt=urn:btih:54885B32F042C84E70249E8EB359BB0967A3A0AA
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87332.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87332.jpgsave_picture_87332.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ VA - Шансон Года Часть 4 (2012) [MP3|256-320 kbps]<Шансон>
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87337.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87337.jpgsave_picture_87337.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ VA - Южный Хит Парад (2012) [MP3|256 kbps]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87338.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87338.jpgsave_picture_87338.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ magnet:?xt=urn:btih:3CB888CBEB0A7F761F551A4B1AD80196B43BF1E3
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87339.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87339.jpgsave_picture_87339.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ magnet:?xt=urn:btih:1FB4B409AA79B53032537092061824478F7ED33E
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87340.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87340.jpgsave_picture_87340.jpg" />
 </div>
 
 
@@ -689,7 +689,7 @@ magnet:?xt=urn:btih:6A19CBD6BFB1C667993EFFBE929E9FC77DC61683
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87341.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87341.jpgsave_picture_87341.jpg" />
 </div>
 
 
@@ -716,7 +716,7 @@ VA - Топ 100 Продвинутый Русский (2012) [MP3|256 kbps]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87343.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87343.jpgsave_picture_87343.jpg" />
 </div>
 
 

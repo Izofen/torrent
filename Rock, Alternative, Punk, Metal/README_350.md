@@ -6,7 +6,7 @@ Tequilajazzz - Лучшее (2CD) (2010) [FLAC|Lossless|image + .cue]<Alternativ
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193234.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193234.jpgsave_picture_193234.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Bon Jovi - Greatest Hits: The Ultimate Collection (2010) [OGG Vorbis|480 Kbps] <
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193254.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193254.jpgsave_picture_193254.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Panic! At The Disco - Live In Denver (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] 
 >>Alternative, Punk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193263.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193263.jpgsave_picture_193263.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Novembers Doom - Major Arcana (2025) [FLAC|Lossless|image + .cue] <Doom Metal, D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193269.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193269.jpgsave_picture_193269.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ magnet:?xt=urn:btih:683B91EE7C0EFE70F4DB72BCF625F3F18E309004
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_193308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193308.jpgsave_picture_193308.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Chris Rea - The Christmas Album (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193382.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193382.jpgsave_picture_193382.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Sabaton - Legends (2025) Limited Edition [MP3|320 Kbps] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193429.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193429.jpgsave_picture_193429.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Memories Of Old - Never Stop Believing (2025) [FLAC 24/48|Lossless|WEB-DL|tracks
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193618.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193618.jpgsave_picture_193618.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Doro - Warriors Of The Sea (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193635.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193635.jpgsave_picture_193635.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Testament - Para Bellum (2025) 3 x CD, Japanese Edition, Deluxe Edition [FLAC|Lo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193655.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193655.jpgsave_picture_193655.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ VA - Melodic Rock 100 (2023) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193664.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193664.jpgsave_picture_193664.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Five Finger Death Punch - BEST OF (Volume 2) (2025) [FLAC 24/48|Lossless|WEB-DL|
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193680.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193680.jpgsave_picture_193680.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Them - Psychedelic Enigma (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Heavy Meta
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193689.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193689.jpgsave_picture_193689.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Ronnie Romero - Backbone (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Heavy Metal
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193710.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193710.jpgsave_picture_193710.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Leprous - An Evening of Atonement (Live in Tilburg 2025) (2025) Compilation [FLA
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193719.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193719.jpgsave_picture_193719.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Katie Schecter - Empress (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Alternatif,
 >>Alternative, Punk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193750.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193750.jpgsave_picture_193750.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ AB/CD - Back 'n' Attack (2023) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193863.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193863.jpgsave_picture_193863.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Alice Cooper - Road (2023) [MP3|320 Kbps] <Rock, Glam Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193879.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193879.jpgsave_picture_193879.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ U.D.O. - Touchdown (2023) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193890.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193890.jpgsave_picture_193890.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ U.D.O. - Touchdown (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193897.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193897.jpgsave_picture_193897.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Tash Sultana - Collection (2013-2023) 16 релизов [MP3|320 Kbps] <Rock, Po
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_193959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193959.jpgsave_picture_193959.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Alice Cooper - Road (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193962.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193962.jpgsave_picture_193962.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Depeche Mode - Classics. Rarities. Revelations. (2023) Compilation [FLAC|Lossles
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194093.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194093.jpgsave_picture_194093.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Aerosmith - Greatest Hits (2023) [FLAC|24/96|tracks|WEB-DL] <Classic Rock, Blues
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194107.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194107.jpgsave_picture_194107.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ Within Temptation - Bleed Out (2023) [MP3|320 Kbps] <Symphonic-Rock, Symphonic-M
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194113.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194113.jpgsave_picture_194113.jpg" />
 </div>
 
 
@@ -675,7 +675,7 @@ Breaking Benjamin - Dark Before Dawn (2015) [FLAC|Lossless|tracks + .cue] <Hard 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_194253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_194253.jpgsave_picture_194253.jpg" />
 </div>
 
 

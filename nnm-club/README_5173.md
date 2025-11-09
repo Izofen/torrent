@@ -6,7 +6,7 @@ Shiroi Suna no Aquatope / Auatrope of White Sand / Акватоп белого �
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161244.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161244.jpgsave_picture_161244.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:AF03B7C43BEAB69A61A7C8AE1A447C0714F5F4DC
 >>Прочие зимние виды спорта
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161245.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161245.jpgsave_picture_161245.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:D1AC12B1327714EDD5EB56C42D101CBAC1440620
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161246.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161246.jpgsave_picture_161246.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ magnet:?xt=urn:btih:B9E1A3823EB906B84D03527244868E4F4A2C1FF5
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161247.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161247.jpgsave_picture_161247.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ magnet:?xt=urn:btih:F4215D8CE9849FEC368EA947CF850137D4B04C54
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161248.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161248.jpgsave_picture_161248.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ magnet:?xt=urn:btih:FF516A65B5A53DEA304BDBCB8C9AA241F18FB566
 >>Футбол. Чемпионаты мира
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161249.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161249.jpgsave_picture_161249.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ magnet:?xt=urn:btih:8F1A3492B7E0E656F578EFA6F93B3EA041E691F6
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161250.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161250.jpgsave_picture_161250.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ magnet:?xt=urn:btih:F9FC86E51709C93E32A8A2CC8F1AF7AD2AC7F667
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161251.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161251.jpgsave_picture_161251.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Enterclass, Елена Куракина | Розы акрилом (2023) WEB-DL 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161252.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161252.jpgsave_picture_161252.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ magnet:?xt=urn:btih:667D2ABDD49BFA63F72542C1B280C95C31A1E2E8
 >>Прочие зимние виды спорта
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161253.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161253.jpgsave_picture_161253.jpg" />
 </div>
 
 
@@ -262,7 +262,7 @@ magnet:?xt=urn:btih:87ECCC79EA6CB602B98A5D93B5DCF8B249817097
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161254.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161254.jpgsave_picture_161254.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ magnet:?xt=urn:btih:D79EE2AF0540564093893E4748619E57E38528A5
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161255.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161255.jpgsave_picture_161255.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ magnet:?xt=urn:btih:4D5173183AF536823F0DBCC18C9DFF60BC3155A9
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161256.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161256.jpgsave_picture_161256.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ magnet:?xt=urn:btih:D8A5F185CCA33144AD71D7B747D9EF79AC5BD87A
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161257.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161257.jpgsave_picture_161257.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ magnet:?xt=urn:btih:8B1F24D51A306C549D39ADFC4F8FB3CD5009019B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161258.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161258.jpgsave_picture_161258.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ magnet:?xt=urn:btih:4D512CD59A80D6B84B2680433375E3CF68F85281
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161259.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161259.jpgsave_picture_161259.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Wise Care 365 Pro 6.4.1.618 + Portable [Multi/Ru] (акция Comss)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161260.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161260.jpgsave_picture_161260.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ magnet:?xt=urn:btih:AEED30F1971A54EFFB74F247C86C1B79F9BD0D28
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161261.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161261.jpgsave_picture_161261.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ magnet:?xt=urn:btih:6846E56561233BB517891C5B6C837D0252C2FA39
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161262.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161262.jpgsave_picture_161262.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Bliss (Denmark) - Compilation (2022) [MP3|320 Kbps] <Downtempo, Ambient>
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161263.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161263.jpgsave_picture_161263.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ magnet:?xt=urn:btih:6F9D77E3C5F7F5BB0942DE9D2A51DAFD12E16C9D
 >>Старые Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161264.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161264.jpgsave_picture_161264.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ magnet:?xt=urn:btih:A969E14E5D897BEA031921C1A2738595551ED65E
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161265.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161265.jpgsave_picture_161265.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Rose Laurens - Compilation (2023) [MP3|320 Kbps] <Disco>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161266.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161266.jpgsave_picture_161266.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Nyx Nótt (Nyx Nott, Aidan Moffat) - Aux Pieds de la Nuit (2020) [FLAC|Lossless|
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161267.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161267.jpgsave_picture_161267.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Disk Space Analyzer Pro 4.0.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161268.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161268.jpgsave_picture_161268.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ magnet:?xt=urn:btih:C90B695271F156FFB950FDBB1271DBA821A16791
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161269.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161269.jpgsave_picture_161269.jpg" />
 </div>
 
 

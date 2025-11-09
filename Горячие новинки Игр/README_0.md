@@ -6,7 +6,7 @@ Arctic Awakening (2025) [Ru/Multi] (Build 20032483) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_612.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_612.jpgsave_picture_612.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Mai: Child of Ages (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_626.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_626.jpgsave_picture_626.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Platypus Reclayed (2025) [Ru/Multi] (1.0.20) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_631.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_631.jpgsave_picture_631.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ TurretGirls (2025) [Multi] (1.0.2) License GOG
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_696.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_696.jpgsave_picture_696.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Hades II (2) (2024) [Ru/Multi] (1.131346) Repack Wanterlude
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_737.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_737.jpgsave_picture_737.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ SILENT HILL f (2025) [Ru/Multi] (1.1.378720/dlc) Repack Let'sРlay [Digital Delu
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_739.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_739.jpgsave_picture_739.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Hades II (2) (2024) [Ru/Multi] (1.131346) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_831.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_831.jpgsave_picture_831.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Hades II (2) (2024) [Ru/Multi] (1.131346) Repack seleZen
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_853.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_853.jpgsave_picture_853.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ SILENT HILL f (2025) [Ru/Multi] (1.1.378720/dlc) Repack Other s [Digital Deluxe 
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_865.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_865.jpgsave_picture_865.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ PAC-MAN WORLD 2 Re-PAC (2025) [Ru/Multi] (1.0/dlc) Repack Let'sРlay [Deluxe Edi
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_877.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_877.jpgsave_picture_877.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Hades II (2) (2024) [Ru/Multi] (1.131346) Repack Other s
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_878.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_878.jpgsave_picture_878.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Dying Light The Beast (2025) [Ru/En] (1.2.2/dlc) Repack Let'sРlay [Deluxe Editi
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_936.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_936.jpgsave_picture_936.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Hollow Knight Silksong (2025) [Ru/Multi] (1.0.28750) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_942.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_942.jpgsave_picture_942.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Hell is Us (2025) [Ru/Multi] (1.4.22.43941) Repack Wanterlude
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1225.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1225.jpgsave_picture_1225.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ The Lightkeeper (2025) [Ru/En] (Build 20068430) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1239.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1239.jpgsave_picture_1239.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Hollow Knight: Silksong (2025) [Ru/Multi] (1.0.28650) Repack Wanterlude
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1263.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1263.jpgsave_picture_1263.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Dying Light: The Beast (2025) [Ru/En] (1.2.1/dlc) Repack dixen18 [Deluxe Edition
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1316.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1316.jpgsave_picture_1316.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ SILENT HILL f (2025) [Ru/Multi] (1.1.378720/dlc) Repack Decepticon [Digital Delu
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1334.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1334.jpgsave_picture_1334.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Dying Light The Beast (2025) [Ru/Multi] (1.2.1/dlc) Repack Wanterlude [Deluxe Ed
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1352.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1352.jpgsave_picture_1352.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ SILENT HILL f (2025) [Ru/Multi] (1.1.378720/dlc) Repack Wanterlude [Digital Delu
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1355.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1355.jpgsave_picture_1355.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ SILENT HILL f (2025) [Ru/Multi] (1.1.378720/dlc) Repack FitGirl [Digital Deluxe 
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1366.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1366.jpgsave_picture_1366.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ SILENT HILL f (2025) [Ru/Multi] (1.1.378720/dlc) Repack seleZen [Digital Deluxe 
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1368.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1368.jpgsave_picture_1368.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ SILENT HILL f (2025) [Ru/Multi] (1.1.378720/dlc) Scene Rune [Digital Deluxe Edit
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1369.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1369.jpgsave_picture_1369.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ SILENT HILL f (2025) [Ru/Multi] (1.1.378720/dlc) Repack West4it [Digital Deluxe 
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1389.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1389.jpgsave_picture_1389.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Hell is Us (2025) [Ru/Multi] (1.3.36.43556/dlc) Repack Decepticon
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1533.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1533.jpgsave_picture_1533.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Bad Cheese (2025) [Ru/Multi] (1.0.0) Repack seleZen
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1647.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1647.jpgsave_picture_1647.jpg" />
 </div>
 
 

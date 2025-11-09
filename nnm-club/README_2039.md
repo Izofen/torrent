@@ -6,7 +6,7 @@ Wizard with a Gun (2023) [Ru/Multi] (1.3/dlc) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53381.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53381.jpgsave_picture_53381.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:32C47067E765493A020D88E24E50BC49C5F3EECD
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53382.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53382.jpgsave_picture_53382.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ IObit Driver Booster Pro 11.5.0.85 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53383.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53383.jpgsave_picture_53383.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ vpnify - Безлимитный VPN 2.1.9.5 Mod by YouAreFinished [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53384.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53384.jpgsave_picture_53384.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Escape from Hata / Побег из Хаты (2024) [Ru/Multi] (1.0) Repack FitGi
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53385.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53385.jpgsave_picture_53385.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:20DB09FBBAC00590BD28B20DB2A156D5310B09F6
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53386.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53386.jpgsave_picture_53386.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:20DB09FBBAC00590BD28B20DB2A156D5310B09F6
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53387.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53387.jpgsave_picture_53387.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Windows 7 SP1 x64 (3in1) by Updated Edition (14.06.2024) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53388.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53388.jpgsave_picture_53388.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:8FCEA0AD0568A1278C5202AE5F2743AA1722B8AC
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53389.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53389.jpgsave_picture_53389.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:8FCEA0AD0568A1278C5202AE5F2743AA1722B8AC
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53390.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53390.jpgsave_picture_53390.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Revo Uninstaller Pro 5.3.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53391.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53391.jpgsave_picture_53391.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:19582CDF137F361103A55E30033E42F0BD549FB0
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53392.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53392.jpgsave_picture_53392.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Moby - always centered at night (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Do
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53393.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53393.jpgsave_picture_53393.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:572A859ECE360EBFE4869F2559D0BE77CF8BAE6F
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53394.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53394.jpgsave_picture_53394.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ magnet:?xt=urn:btih:DB1EC166338784C989A167BC9AEB613665A0F845
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53395.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53395.jpgsave_picture_53395.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Udemy, 3D Tudor | Blender Basics Geometry Node Brick Walls Workshop (2024) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53396.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53396.jpgsave_picture_53396.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ magnet:?xt=urn:btih:964B22678947256865D2CC7E9A108CDCBF44C1E9
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53397.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53397.jpgsave_picture_53397.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ magnet:?xt=urn:btih:478838691A64A62C38175C423EEBD5DCA573D975
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53398.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53398.jpgsave_picture_53398.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ magnet:?xt=urn:btih:121BD167CC287F976E2B3EB781E92B8F0A783174
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53399.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53399.jpgsave_picture_53399.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ magnet:?xt=urn:btih:702EC29988AED64E967B1E8219F329702C6766BF
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53400.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53400.jpgsave_picture_53400.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ magnet:?xt=urn:btih:562135D2EECF967E132C7D397E4C073B8E0DA7AF
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53401.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53401.jpgsave_picture_53401.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:DCDEC1DD7EB3209951F80759B52FC338A02C7BA4
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53402.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53402.jpgsave_picture_53402.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ magnet:?xt=urn:btih:DD19CE8C3E5ECE4A1EC063A913C617F9D5AEA72D
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53403.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53403.jpgsave_picture_53403.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ VA - Summer Deep House Hits 2024 (2024) [MP3|320 Kbps] <House, Deep House, Dance
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53404.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53404.jpgsave_picture_53404.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ magnet:?xt=urn:btih:B9B4A9D317C3457A786FBBA65B0042642812AEAC
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53405.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53405.jpgsave_picture_53405.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ Axel Rudi Pell - Risen Symbol (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Heav
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53406.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53406.jpgsave_picture_53406.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36261.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36261.jpgsave_picture_36261.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:EA86FA213D0C476F54FD8C18EAB13DA0AD2ED18C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36262.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36262.jpgsave_picture_36262.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:A2A2DB597D4A36CA232510D1DF181CE71087AE6B
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36263.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36263.jpgsave_picture_36263.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Karate Survivor (2024) [Ru/Multi] (1.0.2.239/dlc) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36264.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36264.jpgsave_picture_36264.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ VA - Christmas Blues Santa's Secret (2024) [MP3|320 Kbps] <Jazz, Blues>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36265.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36265.jpgsave_picture_36265.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ Linkin Park - From Zero (2024) Brazil, 0093624839842, AB1000 Pressing [FLAC|Loss
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36266.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36266.jpgsave_picture_36266.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ Reverso Translation Dictionary / Переводной словарь Reverso v12
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36267.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36267.jpgsave_picture_36267.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ Valkyrie of Phantasm (2022) [Multi] (1.04) Scene Skidrow
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36268.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36268.jpgsave_picture_36268.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ V.I.P. / V.I.P. / Beuiaipi (2017) BDRip [H.264/720p] [MVO]
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36269.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36269.jpgsave_picture_36269.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ magnet:?xt=urn:btih:8967C05DD59A2519FA6299E345EE855C8FE8CA21
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36270.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36270.jpgsave_picture_36270.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ V.I.P. / V.I.P. / Beuiaipi (2017) BDRip [H.264] [MVO]
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36271.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36271.jpgsave_picture_36271.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ CarX Street (2024) [Ru/Multi] (1.2.1/dlc) Repack seleZen [Deluxe Edition]
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36272.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36272.jpgsave_picture_36272.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ TuneIn Radio Pro v36.4 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36273.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36273.jpgsave_picture_36273.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ AirBrush: ИИ Фоторедактор v7.4.600 Mod by PieMods [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36274.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36274.jpgsave_picture_36274.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ magnet:?xt=urn:btih:3B1FE211699B2E57F6AC07BEDFD61178099F31C0
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36275.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36275.jpgsave_picture_36275.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ magnet:?xt=urn:btih:68481186639F01CCBDE784078603A6C8B203567D
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36276.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36276.jpgsave_picture_36276.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ W.A. Production - BeatQuake 1.0.0 VST, VST3, AAX (x86/x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36277.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36277.jpgsave_picture_36277.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ magnet:?xt=urn:btih:7FC34EAE8270E95A1024776AADAD680C61512DFD
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36278.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36278.jpgsave_picture_36278.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Tommy J (Tommy Johansson) - Metal Covers (2024) [MP3|320 Kbps] <Metal, Covers>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36279.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36279.jpgsave_picture_36279.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ magnet:?xt=urn:btih:A60A0FA62D4369F75062445B2D8C3061430D782D
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36280.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36280.jpgsave_picture_36280.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Rhodes Anthology 1.0.0 VSTi, VSTi 3, AAX (x64) RePack by R2R [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36281.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36281.jpgsave_picture_36281.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ Colorize Images v4.0.93 Mod by derrin [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36282.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36282.jpgsave_picture_36282.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ L.A. Noire (2011) [Ru/Multi] (2675.1.0.0/dlc) Repack FitGirl [The Complete Editi
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36283.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36283.jpgsave_picture_36283.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:5340052F623F85F5F8B5A2094574F6A509BDD649
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36284.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36284.jpgsave_picture_36284.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Dragon Age: Origins (2010) [Ru/Multi] (1.05/dlc) Repack dixen18 [Ultimate Editio
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36285.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36285.jpgsave_picture_36285.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ DipTrace 5.1.0 + 3D Models [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36286.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36286.jpgsave_picture_36286.jpg" />
 </div>
 
 

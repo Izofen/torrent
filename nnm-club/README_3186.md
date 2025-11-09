@@ -6,7 +6,7 @@ Violent Definition - Progressive Obsoletion (2024) [FLAC|Lossless|WEB-DL|tracks]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103174.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103174.jpgsave_picture_103174.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Captain Morgan Express - The Pussycat Tapes (2024) [FLAC|Lossless|WEB-DL|tracks]
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103175.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103175.jpgsave_picture_103175.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ North By Northwest - No Time Like the Present (2024) [FLAC|Lossless|WEB-DL|track
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103176.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103176.jpgsave_picture_103176.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Lucas Oakley - Right Here, Right Now (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103177.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103177.jpgsave_picture_103177.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Vendel - Out In The Fields (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Epic, Doo
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103178.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103178.jpgsave_picture_103178.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Jim Keays - Caledonia (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103179.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103179.jpgsave_picture_103179.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Jersey Julie Band - Multiball (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103180.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103180.jpgsave_picture_103180.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Bubba Coon - Tthe Fool (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103181.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103181.jpgsave_picture_103181.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Heathensun - Murda Beach (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Nu Metal, R
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103182.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103182.jpgsave_picture_103182.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Kenny Barron - 1+1+1 (1986) BlackHawk Records [FLAC|Lossless|tracks + .cue] <Har
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103183.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103183.jpgsave_picture_103183.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Matt Charles - Highland Avenue (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Harmo
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103184.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103184.jpgsave_picture_103184.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Ken Colyer - Boston Church Service (1972) 1998, GHB Records [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103185.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103185.jpgsave_picture_103185.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:56AEF5EDF550A8AA3E50968E3DDFD7F8449011DF
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103186.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103186.jpgsave_picture_103186.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ magnet:?xt=urn:btih:B3B68C8FDFD184190FAD49A3668F713AF53059F1
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103187.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103187.jpgsave_picture_103187.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ PeaZip 10.1.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103188.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103188.jpgsave_picture_103188.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ magnet:?xt=urn:btih:B8C74EBD41FD9AE6629A1D5C79DF4C1CCDC69CEB
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103189.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103189.jpgsave_picture_103189.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Julien Dore - Imposteur (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop, French 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103190.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103190.jpgsave_picture_103190.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ VA - Девчонки R'n'B (2007) [WavPack|Lossless|image + .cue] <Pop Rap, RnB
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103191.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103191.jpgsave_picture_103191.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Karfagen - Mysterious Forest: The Working Tapes (2024) [FLAC 24/48|Lossless|WEB-
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103192.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103192.jpgsave_picture_103192.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Kenny Thomas - Remixed The Best Of Kenny Thomas (2023) Remixed, 2CD, 2024, Chrys
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103193.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103193.jpgsave_picture_103193.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Steve Angello - Radio 1's Essential Mix (2024-11-09) [MP3|~245 Kbps (V0)] <House
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103194.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103194.jpgsave_picture_103194.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Ethereal - Downfall (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Gothic, Do
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103195.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103195.jpgsave_picture_103195.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Art Blakey & The Jazz Messengers - The Complete 3 Blind Mice (1961, 1962) 2CD, 2
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103196.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103196.jpgsave_picture_103196.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Kenny Thomas - Remixed The Best Of Kenny Thomas (2023) Remixed, 2CD, 2024, Chrys
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103197.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103197.jpgsave_picture_103197.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ magnet:?xt=urn:btih:8329B01596498E310D17C866A90132FBB2FD85B4
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103198.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103198.jpgsave_picture_103198.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ magnet:?xt=urn:btih:BC91A4E1D3E423BC5EC64BA43ED24BAA3850CF5C
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103199.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103199.jpgsave_picture_103199.jpg" />
 </div>
 
 

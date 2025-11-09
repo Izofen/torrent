@@ -6,7 +6,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88687.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88687.jpgsave_picture_88687.jpg" />
 </div>
 
 
@@ -36,7 +36,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88689.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88689.jpgsave_picture_88689.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Jewel Legends: Tree of Life (P) [En] 2012
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88693.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88693.jpgsave_picture_88693.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ magnet:?xt=urn:btih:DE813E8D4C7B526CB59799E4FCD4FCF0B3FA12ED
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88694.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88694.jpgsave_picture_88694.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ magnet:?xt=urn:btih:DE813E8D4C7B526CB59799E4FCD4FCF0B3FA12ED
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88697.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88697.jpgsave_picture_88697.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ magnet:?xt=urn:btih:6B8F665B0BBE665DB7CB0B8A535CC32AA553AC75
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88700.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88700.jpgsave_picture_88700.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ magnet:?xt=urn:btih:F0CC9267D8B4B021DB458688D8A49E57F28C77B8
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88701.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88701.jpgsave_picture_88701.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:B4FE66A835E57C0FBF5C995D7F6EF5AF96F17355
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88702.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88702.jpgsave_picture_88702.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ magnet:?xt=urn:btih:E5123027F2666914AAE5BB8B62E14E0A41B3E7FE
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88703.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88703.jpgsave_picture_88703.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ magnet:?xt=urn:btih:E5123027F2666914AAE5BB8B62E14E0A41B3E7FE
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88706.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88706.jpgsave_picture_88706.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:E5123027F2666914AAE5BB8B62E14E0A41B3E7FE
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88708.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88708.jpgsave_picture_88708.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:E5123027F2666914AAE5BB8B62E14E0A41B3E7FE
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88709.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88709.jpgsave_picture_88709.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ magnet:?xt=urn:btih:BA0933A773D7C99CFEA3F867B0F02A19DABBBF7F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88711.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88711.jpgsave_picture_88711.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Realms of Arkania Антология [En/Ru] (RePack) 1992-1996 | Pilotus
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88714.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88714.jpgsave_picture_88714.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Realms of Arkania Антология [En/Ru] (RePack) 1992-1996 | Pilotus
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88721.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88721.jpgsave_picture_88721.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Autodesk 3ds Max Design v.2013 (32 bit) [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88722.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88722.jpgsave_picture_88722.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ Autodesk® 3ds Max® Design предоставляет мощные интегр
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88724.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88724.jpgsave_picture_88724.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ magnet:?xt=urn:btih:514967078600F02F05D8731B23A715E9D3494BBC
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88725.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88725.jpgsave_picture_88725.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ magnet:?xt=urn:btih:514967078600F02F05D8731B23A715E9D3494BBC
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88727.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88727.jpgsave_picture_88727.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ magnet:?xt=urn:btih:514967078600F02F05D8731B23A715E9D3494BBC
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88729.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88729.jpgsave_picture_88729.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Vintagt Synth Sounds и предназначен для совместной р�
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88730.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88730.jpgsave_picture_88730.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ magnet:?xt=urn:btih:3B8F44DBD040E72B765CD0223235D2F75FCEE69F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88732.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88732.jpgsave_picture_88732.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ magnet:?xt=urn:btih:3B8F44DBD040E72B765CD0223235D2F75FCEE69F
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88733.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88733.jpgsave_picture_88733.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Uriah Heep Live (1973) SHM-CD /2003, Sanctuary, Universal Japan/ [FLAC|Lossless]
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88736.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88736.jpgsave_picture_88736.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ Uriah Heep Live (1973) SHM-CD /2003, Sanctuary, Universal Japan/ [FLAC|Lossless]
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88739.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88739.jpgsave_picture_88739.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ magnet:?xt=urn:btih:623D4E1ECAE607B80A3B42E6814FA537C970ED73
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88741.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88741.jpgsave_picture_88741.jpg" />
 </div>
 
 

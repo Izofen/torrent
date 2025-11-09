@@ -6,7 +6,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174975.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174975.jpgsave_picture_174975.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ CleanMyMac X 4.14.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174976.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174976.jpgsave_picture_174976.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ NirLauncher Package 1.23.36 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174978.jpgsave_picture_174978.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:E9BD76D615D20B0E945E8C27DB09089F381E4763
 >>Флот
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174979.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174979.jpgsave_picture_174979.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ ValiDrive 1.0.1 Portable [En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174980.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174980.jpgsave_picture_174980.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Final Cut Pro X 10.6.10 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174983.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174983.jpgsave_picture_174983.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ VA - Chillhop Essentials - Winter 2020 [FLAC|Lossless|Web-DL|tracks] <ChillHop, 
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174984.jpgsave_picture_174984.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:3FFD960D802A743B352844523CEB0548A3E30820
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174986.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174986.jpgsave_picture_174986.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:189A63BD51747EB6C280D7AFC18BD564269DBB60
 >>Подвижные Игры
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174987.jpgsave_picture_174987.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ magnet:?xt=urn:btih:34B646A45B859BE5D6564018B8846D41721DCE42
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174989.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174989.jpgsave_picture_174989.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ Cent Browser 4.3.9.226 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174990.jpgsave_picture_174990.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:D119DE6F6409924D4C76AAD268404873AD1AC86F
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174992.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174992.jpgsave_picture_174992.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Disk Drill Enterprise 4.1.206 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174993.jpgsave_picture_174993.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Download Master 7.0.1.1709 RePack (&Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174995.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174995.jpgsave_picture_174995.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ magnet:?xt=urn:btih:1B54F559F6590FB62EB3D683E0006F0D2E1256E0
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174996.jpgsave_picture_174996.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Blackmagic Design DaVinci Resolve Studio 18.6.2 Build 2 (x64) Portable by 7997 [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174998.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174998.jpgsave_picture_174998.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ magnet:?xt=urn:btih:9EC84063952C0AC272E79E51C7D3C03265F271E1
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174999.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174999.jpgsave_picture_174999.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ magnet:?xt=urn:btih:074E61DAE4B11137B28C37FE0C2577F4306CA745
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175000.jpgsave_picture_175000.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ magnet:?xt=urn:btih:8B7FC919F4AA0417BB834A484C8DB8619A71B17B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175002.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175002.jpgsave_picture_175002.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ magnet:?xt=urn:btih:9FF823E4E343BE78C8F0571754DA50907D0E6C46
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175003.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175003.jpgsave_picture_175003.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ magnet:?xt=urn:btih:FCD78A3F62E359D72CB14BEC5D70A8B94DE8EC6A
 >>История
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175004.jpgsave_picture_175004.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ RustDesk 1.2.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175006.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175006.jpgsave_picture_175006.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ Aiseesoft Video Converter Ultimate 10.6.8 RePack (& Portable) by TryRooM [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175007.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175007.jpgsave_picture_175007.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ magnet:?xt=urn:btih:F22064A99B1BD5CC3178049E6724B989A973DBE8
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175009.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175009.jpgsave_picture_175009.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ GPU Caps Viewer 1.49.1.0 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175010.jpgsave_picture_175010.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ magnet:?xt=urn:btih:7F399B5FD85D009F68E196281094D2A4B34354C3
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175011.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175011.jpgsave_picture_175011.jpg" />
 </div>
 
 

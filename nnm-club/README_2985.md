@@ -6,7 +6,7 @@
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89299.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89299.jpgsave_picture_89299.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Autodesk AutoCAD Mechanical 2013 x86-x64 RUS-ENG (AIO)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89300.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89300.jpgsave_picture_89300.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ AutoCAD Mechanical – это AutoCAD для машиностроительно�
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89301.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89301.jpgsave_picture_89301.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ Microsoft рассказала о трех версиях Windows 8
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89302.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89302.jpgsave_picture_89302.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ O&O Defrag Professional 15.5 Build 323 (x32 and x64) [Eng+Rus(русификат
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89303.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89303.jpgsave_picture_89303.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ O&O Defrag Professional очень мощный дефрагментатор. П
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89305.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89305.jpgsave_picture_89305.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ Uniblue SpeedUpMyPC 2012 Build 5.2.1.7 [Multi(Rus)]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89306.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89306.jpgsave_picture_89306.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ SpeedUpMyPC сочетает в себе профессиональный наб
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89307.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89307.jpgsave_picture_89307.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Enable decoding of indexed textures (using (   Читать дальше...   )
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89308.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89308.jpgsave_picture_89308.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ Enable decoding of indexed textures (using (   Читать дальше...   )
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89309.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89309.jpgsave_picture_89309.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ magnet:?xt=urn:btih:9DE817AF00E04B0F701837E78841FF2A8BEE3939
 >>Классическое искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89310.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89310.jpgsave_picture_89310.jpg" />
 </div>
 
 
@@ -290,7 +290,7 @@ FlippingBook PDF Publisher 1.5.8 Corporate [Eng]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89314.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89314.jpgsave_picture_89314.jpg" />
 </div>
 
 
@@ -314,7 +314,7 @@ FB Publisher Trial_ - приложения, которые помогут кон
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89319.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89319.jpgsave_picture_89319.jpg" />
 </div>
 
 
@@ -340,7 +340,7 @@ magnet:?xt=urn:btih:E831212F69D8F3CF6DEAFAD0FFCB547CD85FEE5A
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89320.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89320.jpgsave_picture_89320.jpg" />
 </div>
 
 
@@ -364,7 +364,7 @@ magnet:?xt=urn:btih:E831212F69D8F3CF6DEAFAD0FFCB547CD85FEE5A
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89323.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89323.jpgsave_picture_89323.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ magnet:?xt=urn:btih:C60FE9E9ED175E7A3CA6936073CF2AC36E444BAB
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89324.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89324.jpgsave_picture_89324.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ magnet:?xt=urn:btih:7D7A95367C63A599103B6C418D5863212AD7943B
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89329.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89329.jpgsave_picture_89329.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ magnet:?xt=urn:btih:7D7A95367C63A599103B6C418D5863212AD7943B
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89330.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89330.jpgsave_picture_89330.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ magnet:?xt=urn:btih:D40FB0BFC8080513F86D2D43733905BAD3ED0A1C
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89331.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89331.jpgsave_picture_89331.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Windows 7 Ultimate Core-2 & AUZsoft x64x86 v.14.12 [RUS]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89332.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89332.jpgsave_picture_89332.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Resident Evil Director's Cut [Ru] (P/Emul) 1997 | MarkusEVO
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89337.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89337.jpgsave_picture_89337.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Resident Evil Director's Cut [Ru] (P/Emul) 1997 | MarkusEVO
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89338.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89338.jpgsave_picture_89338.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ magnet:?xt=urn:btih:EC7CFEF70E470DE895DAE8335A87E147DA75B58F
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89339.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89339.jpgsave_picture_89339.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ GarageBand [5.0+Jailbreak]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89340.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89340.jpgsave_picture_89340.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ GarageBand — ваша собственная студия звукозапис
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89341.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89341.jpgsave_picture_89341.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ magnet:?xt=urn:btih:DE5891661B3F43205DA415FF7349F3FC3A876767
 >>Мультимедийные материалы для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89343.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89343.jpgsave_picture_89343.jpg" />
 </div>
 
 

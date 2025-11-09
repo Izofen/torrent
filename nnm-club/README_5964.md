@@ -6,7 +6,7 @@
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_187754.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_187754.jpgsave_picture_187754.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Microsoft Windows 10.0.19043.2251, Version 21H1 (Updated November 2022) - Ори
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187755.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187755.jpgsave_picture_187755.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:C193B5D85C71C19AFBB1168960B6C671E9ADF3C0
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187756.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187756.jpgsave_picture_187756.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Logic Pro X 10.7.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187757.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187757.jpgsave_picture_187757.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:E8EC37BCE035B6E7A1B5B7BCFDAD6E16E119020B
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_187758.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_187758.jpgsave_picture_187758.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:1D4E4A50292DB7D35F0D868E67FC0854904D763B
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187759.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187759.jpgsave_picture_187759.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Microsoft Windows 10.0.19044.2251, Version 21H2 (Updated November 2022) - Ори
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187760.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187760.jpgsave_picture_187760.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ A.O.M. Total Bundle 1.15.4 VST, VST3, AAX, CLAP (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187761.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187761.jpgsave_picture_187761.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Google Chrome 117.0.5938.89 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187762.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187762.jpgsave_picture_187762.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:6E59C92605865F4F1F115E0D883F494809F32019
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187763.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187763.jpgsave_picture_187763.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Four80East - Gonna Be Alright (2023) [FLAC|Lossless|image + .cue] <Nu Jazz, Acid
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187764.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187764.jpgsave_picture_187764.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ magnet:?xt=urn:btih:9261892E2FCD4DC1206AB9FB67AF74DCDE1B9AF4
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187765.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187765.jpgsave_picture_187765.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ magnet:?xt=urn:btih:7548E47C3B4A1F4F34553ED9E00D351169E3B41B
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187767.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187767.jpgsave_picture_187767.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Process Lasso Pro 12.0.0.24 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187768.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187768.jpgsave_picture_187768.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Glary Disk Cleaner 5.0.1.295 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187769.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187769.jpgsave_picture_187769.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Thirty Seconds to Mars - It’s The End Of The World But It’s A Beautiful Day 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187770.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187770.jpgsave_picture_187770.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ ISO Workshop 11.6 Pro RePack (& Portable) by FC Portables [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187771.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187771.jpgsave_picture_187771.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ magnet:?xt=urn:btih:D7B2AD01FFF7258180DDA5B3EF4BBA18823311FB
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187772.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187772.jpgsave_picture_187772.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ magnet:?xt=urn:btih:7E3AD84ADEF39F95FC57B01D9D27221A9CED7B81
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187773.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187773.jpgsave_picture_187773.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ magnet:?xt=urn:btih:8B2A7F7AC5818A22725A8BAEFC305CE1C761A82F
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187774.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187774.jpgsave_picture_187774.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Kiive Audio - ADC1 Compressor 1.0.1 VST 3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187775.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187775.jpgsave_picture_187775.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ magnet:?xt=urn:btih:A08733400D11F643FB97862E1B67D8FDB6B70939
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187776.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187776.jpgsave_picture_187776.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ magnet:?xt=urn:btih:3D4FC25233F5A5E136C152392E0DA9E9637FE793
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187777.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187777.jpgsave_picture_187777.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:CEFA811B47AEFE812B7AC7C9303CEFB0E3808114
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187778.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187778.jpgsave_picture_187778.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ magnet:?xt=urn:btih:842C5045ECE599805DBCEA215595D73BA2A1E1B8
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187779.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187779.jpgsave_picture_187779.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ VA - FSOE 800 - Top 10 (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187780.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187780.jpgsave_picture_187780.jpg" />
 </div>
 
 

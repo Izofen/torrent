@@ -6,7 +6,7 @@ Belonoga - Through The Eyes Of The Sun (2013) [FLAC|Lossless|image + .cue] <Folk
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166673.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166673.jpgsave_picture_166673.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:F79238C47CAB9BCA631BA8ED427C4203D9EF5952
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166674.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166674.jpgsave_picture_166674.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ VA - Alter Ego Records - Best of 2022 [FLAC|Lossless|WEB-DL|tracks] <Uplifting T
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166675.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166675.jpgsave_picture_166675.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:6E0FF9D7D912D918B1F3D911B6926A1BFB4BF77A
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166676.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166676.jpgsave_picture_166676.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Grids for Instagram 5.9.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166677.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166677.jpgsave_picture_166677.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ magnet:?xt=urn:btih:A5655E40CECED76E9EE662EFDF0455075DAC4814
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166678.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166678.jpgsave_picture_166678.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:3ADA584611CABD1562A92C693BD0313F6F367D4B
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166679.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166679.jpgsave_picture_166679.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:60A4425EB8C6F63CB75EC5D0CD3B9B361E6A8C06
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166680.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166680.jpgsave_picture_166680.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:47FB487535B85C7A0E78FD9159148B5197C0DCDF
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166681.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166681.jpgsave_picture_166681.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ Yves Brouqui - Live At Smalls (2002) Elabeth [FLAC|Lossless|image + .cue] <Hard 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166682.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166682.jpgsave_picture_166682.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ VA - Anjunadeep The Remixes 2022 (2022) Mixed [FLAC|Lossless|WEB-DL|tracks] <Mel
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166683.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166683.jpgsave_picture_166683.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ SIV (System Information Viewer) 5.54 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166684.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166684.jpgsave_picture_166684.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ magnet:?xt=urn:btih:EC123BDC1F7D525053E0F95E921216214A7265E1
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166685.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166685.jpgsave_picture_166685.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ Skynet 2019.1.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166686.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166686.jpgsave_picture_166686.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ magnet:?xt=urn:btih:B66B7A4BD7A95D4CCE1487FB3A2B948DE32EBB60
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166687.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166687.jpgsave_picture_166687.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ EIZO Japan - EIZO Japan 3 (2010) [WavPack|Lossless|image + .cue] <Heavy Metal>
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166688.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166688.jpgsave_picture_166688.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Starlite Campbell Band - The Language of Curiosity (2021) [FLAC|Lossless|WEB-DL|
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166689.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166689.jpgsave_picture_166689.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ WhatsApp 2.2049.9.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166690.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166690.jpgsave_picture_166690.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ VA - Grum Presents: 20 Years Of Anjunabeats (2020) DJ Mix [FLAC|Lossless|WEB-DL|
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166691.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166691.jpgsave_picture_166691.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Movavi PDF Editor 3.0.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166692.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166692.jpgsave_picture_166692.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ magnet:?xt=urn:btih:2EED4CAB8A2963055F4A28D691A4A35295238D29
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166693.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166693.jpgsave_picture_166693.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ magnet:?xt=urn:btih:5F3DEB0CF4785D7E104E219B4E9165C1C686EDF1
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166694.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166694.jpgsave_picture_166694.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ magnet:?xt=urn:btih:BFA073C9F3AA6BB325F0488ED19011423F05A4EB
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166695.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166695.jpgsave_picture_166695.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Glorious Bankrobbers - Glorious Bankrobbers (2017) [FLAC|Lossless|image + .cue] 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166696.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166696.jpgsave_picture_166696.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ magnet:?xt=urn:btih:C85DDD8FFF60AB196FBC796B2ED687AA5564EA1F
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166697.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166697.jpgsave_picture_166697.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ magnet:?xt=urn:btih:8259948BDF6EF9F4DEF791F0EA24A889C95CEE21
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166698.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166698.jpgsave_picture_166698.jpg" />
 </div>
 
 

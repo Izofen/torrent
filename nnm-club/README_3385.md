@@ -6,7 +6,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108371.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108371.jpgsave_picture_108371.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Idol Throne - A Clarion Call (2024) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108372.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108372.jpgsave_picture_108372.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Pungent Stench - Been Caught Buttering (1991) Remastered, 2024, Dissonance Produ
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108373.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108373.jpgsave_picture_108373.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Scott Hamilton, Jake Hanna, Dave McKenna - Major League (1986) Concord Jazz [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108374.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108374.jpgsave_picture_108374.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Blackwelder - Survival Of The Fittest (2015) [FLAC|Lossless|image + .cue] <Power
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108375.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108375.jpgsave_picture_108375.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ The Scott Hamilton Quintet - The Second Set (1983) 1993, Concord Jazz [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108376.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108376.jpgsave_picture_108376.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Duality - Elektron (2016) [MP3|320 Kbps] <Death Metal, Progressive Metal, Experi
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108377.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108377.jpgsave_picture_108377.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Ten Ton Slug - Colossal Oppressor (2024) [FLAC|Lossless|WEB-DL|tracks] <sludge m
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108378.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108378.jpgsave_picture_108378.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ The Crypt - The Crypt (2024) [FLAC|Lossless|WEB-DL|tracks] <Doom Heavy Metal, Ha
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108379.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108379.jpgsave_picture_108379.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Kreator - Terrible Certainty (1987) [FLAC|24/192|image + .cue|Vinyl-Rip] <Thrash
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108380.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108380.jpgsave_picture_108380.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ The Charlie Byrd Trio & Ken Peplowski - The Bossa Nova Years (1991) 2003, Concor
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108381.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108381.jpgsave_picture_108381.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ The Charlie Byrd Trio & Guests - Byrd At The Gate: At The Villiage Gate (1963) 1
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108382.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108382.jpgsave_picture_108382.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ VA - Rockeate (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108383.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108383.jpgsave_picture_108383.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ VA - Lounge Rendezvous, Vol. 2 (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chi
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108384.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108384.jpgsave_picture_108384.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ magnet:?xt=urn:btih:713ECDFE4C7EE3DEB85C645E6BCC8B2726510969
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108385.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108385.jpgsave_picture_108385.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ VA - DJ Hits 29 (1995) [OGG Vorbis|480 Kbps] <Electronic, Pop, Euro House>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108386.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108386.jpgsave_picture_108386.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ VA - Rock Solid (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108387.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108387.jpgsave_picture_108387.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ Alberto Rigoni - Unexpected Lullabies (2024) [MP3|320 Kbps] <Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108388.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108388.jpgsave_picture_108388.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ VA - Acid Jazz Summer Grooves Pure Acid Jazz 2024 (2024) [FLAC|Lossless|WEB-DL|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108389.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108389.jpgsave_picture_108389.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ VA - Slow Funk 3 (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Funk>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108390.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108390.jpgsave_picture_108390.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Dreamcarnation - Dreamcarnation (2024) [MP3|320 Kbps] <Progressive, Symphonic Ro
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108391.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108391.jpgsave_picture_108391.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Channel Zero - Studio Albums (8 releases) (1992-2017) hand made [restored, decli
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108392.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108392.jpgsave_picture_108392.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ The Charlie Byrd Trio with Scott Hamilton - It's A Wonderful World (1989) Concor
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108393.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108393.jpgsave_picture_108393.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ VA - Dream-Like Exquisite Relaxing Lounge Chill Playlist (2024) [FLAC|Lossless|W
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108394.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108394.jpgsave_picture_108394.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ magnet:?xt=urn:btih:9534869EE1524203D18281ABB6E7245160DA3B7D
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108395.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108395.jpgsave_picture_108395.jpg" />
 </div>
 
 
@@ -676,7 +676,7 @@ VA - Exquisite Dream-Like Relaxing Soothing Jazz Tunes to Chill (2024) [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108396.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108396.jpgsave_picture_108396.jpg" />
 </div>
 
 

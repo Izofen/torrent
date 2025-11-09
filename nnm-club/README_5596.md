@@ -6,7 +6,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172488.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172488.jpgsave_picture_172488.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Allavsoft Video Downloader Converter 3.26.0.8691  [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172489.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172489.jpgsave_picture_172489.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:B0B501EE069262FE62A6916B33A494604E7283B8
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172490.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172490.jpgsave_picture_172490.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:3FAB10357AADF37E7F17C20791E436DFC12AF108
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172491.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172491.jpgsave_picture_172491.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Storyist 4 v.4.3.3 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172492.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172492.jpgsave_picture_172492.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Blocs 5.1.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172493.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172493.jpgsave_picture_172493.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:7505FEB43CBC69B402B7417BA45DE94822485F16
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172494.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172494.jpgsave_picture_172494.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ TurboCollage 7 v.7.2.10 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172495.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172495.jpgsave_picture_172495.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ Texifier 1.9.23 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172496.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172496.jpgsave_picture_172496.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ NCH DreamPlan Plus 8.09 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172497.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172497.jpgsave_picture_172497.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ SoundSource 5.6.3 fc1 Beta [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172498.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172498.jpgsave_picture_172498.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Toshiko Akiyoshi - New York Sketch Book (2004) Ninety-One [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172499.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172499.jpgsave_picture_172499.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Psychework - The Dragon's Year (2016) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Powe
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172500.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172500.jpgsave_picture_172500.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Tembo 3.1.1 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172501.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172501.jpgsave_picture_172501.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ HoudahSpot 6 v.6.4.1 U2B [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172502.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172502.jpgsave_picture_172502.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Yoink 3.6.88  [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172503.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172503.jpgsave_picture_172503.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Crypta - Shades of Sorrow (2023) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172504.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172504.jpgsave_picture_172504.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ magnet:?xt=urn:btih:99CA238F711EA735DDD949DF5F75730673D23574
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172505.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172505.jpgsave_picture_172505.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Repix Pro 2.3 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172506.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172506.jpgsave_picture_172506.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Somnus Aeternus - A Nightmare Lit by a Dying Star (2023) [FLAC|Lossless|WEB-DL|t
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172507.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172507.jpgsave_picture_172507.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Acorn 7 v.7.4.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172508.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172508.jpgsave_picture_172508.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ TG Pro (Temperature Gauge Pro) 2.84 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172509.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172509.jpgsave_picture_172509.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Cardhop 2.2.13 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172510.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172510.jpgsave_picture_172510.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Rocket Typist Pro 3.0.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172511.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172511.jpgsave_picture_172511.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Coming soon 3 v.3.19 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172512.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172512.jpgsave_picture_172512.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Grant Green - The Holy Barbarian, St. Louis (1959, 1960) 2012, Uptown Jazz [FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172513.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172513.jpgsave_picture_172513.jpg" />
 </div>
 
 

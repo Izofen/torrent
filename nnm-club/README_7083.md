@@ -6,7 +6,7 @@
 >>Новости
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242734.jpgsave_picture_242734.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242735.jpgsave_picture_242735.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Bryan Adams - Classic (2022) [AAC|~324 Kbps] <Rock>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242743.jpgsave_picture_242743.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Wheel - Resident Human (2021) [MP3|320 Kbps] <Progressive Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242780.jpgsave_picture_242780.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Viber 19.8.0.7 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242785.jpgsave_picture_242785.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:9F286F788D36BF3D463E1367F2E91518CAD53602
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242797.jpgsave_picture_242797.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:1D1D679AE700DF559E6245332CDBED5B6A87C4E3
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242801.jpgsave_picture_242801.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ PrivaZer 3.0.92 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242802.jpgsave_picture_242802.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Band of Spice - By the Corner of Tomorrow (2021) [MP3|320 Kbps] <Hard Rock, Ston
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242803.jpgsave_picture_242803.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ magnet:?xt=urn:btih:8294A4DCC9DD0366D8E8DED93B5E997763979098
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242805.jpgsave_picture_242805.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ magnet:?xt=urn:btih:C538E57A7871B79E90C08774F4961A200A21215D
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242806.jpgsave_picture_242806.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ Skillshare, Aniket Rawat | Complete Guide to Substance Painter 2022 (2022) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242808.jpgsave_picture_242808.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ Cinderheart - I Want To Feel Okay (2022) [FLAC|Lossless|WEB-DL|tracks] <Psychede
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242810.jpgsave_picture_242810.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ As Everything Unfolds - Within Each Lies the Other (2021) [MP3|320 Kbps] <Post-H
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242812.jpgsave_picture_242812.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ magnet:?xt=urn:btih:36139B0208BFF0D1758D342F63C67609F207E70B
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242813.jpgsave_picture_242813.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ Guy Barker - Timeswing (1996) 2000, Universal[FLAC|Lossless|tracks + .cue] <Main
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242815.jpgsave_picture_242815.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ magnet:?xt=urn:btih:8031FDF864A8FFD57A9312F8DFCCBC385182F523
 >>Звездный путь / Star Trek; Орвилл / The Orville
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242816.jpgsave_picture_242816.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ magnet:?xt=urn:btih:9B9FE940C1F5ED3809E13E4AB1DF5CA7F98DE6BA
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242817.jpgsave_picture_242817.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ magnet:?xt=urn:btih:E58BBC408CC07A7FF51FD65A815B9A6B7A4770C1
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242818.jpgsave_picture_242818.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ magnet:?xt=urn:btih:943EDEE2F6415CC8E8F0162B194B31FB8507B1B9
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242822.jpgsave_picture_242822.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ magnet:?xt=urn:btih:6CED25CF0035CAF40356EAEE8AF915DDC16F9DA3
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242823.jpgsave_picture_242823.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Celtic Hills - Huldufolk (2022) [FLAC|Lossless|WEB-DL|tracks] <Power, Thrash Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242824.jpgsave_picture_242824.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ VA - Шансон Весна (2022) [MP3|320 Kbps] <Шансон>
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242827.jpgsave_picture_242827.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Paul Gonsalves - Gettin' Together! (1960) 1987, Original Jazz Classics[FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242828.jpgsave_picture_242828.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ XYplorer 20.80.0100 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242829.jpgsave_picture_242829.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ magnet:?xt=urn:btih:18827E3BFCBD974A36E23EA56FDA36D94124F8A0
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242830.jpgsave_picture_242830.jpg" />
 </div>
 
 

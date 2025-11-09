@@ -6,7 +6,7 @@
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20085.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20085.jpgsave_picture_20085.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ World of Goo 2 v1.0.25042604 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20110.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20110.jpgsave_picture_20110.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Chaplin: The Missing Pieces v4.0.3 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20509.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20509.jpgsave_picture_20509.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Total War: EMPIRE v1.6.4RC3 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20547.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20547.jpgsave_picture_20547.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ Prince of Persia: Lost Crown v1.0.0f [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20571.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20571.jpgsave_picture_20571.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ GRID™ Legends: Deluxe Edition v1.1.4RC7 (arm64-v8a) [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20653.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20653.jpgsave_picture_20653.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:12C17B8B9D10EE039A97FBA647E172BD6CC4D06D
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21652.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21652.jpgsave_picture_21652.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:B6C5B97CAEAB230DB539E7AD1333B6A4F6134C4C
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23990.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23990.jpgsave_picture_23990.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ Rail Rush v1.9.24 Mod by vadj [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24079.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24079.jpgsave_picture_24079.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ Jewel Match Dragon v1.59.6 Mod by vadj [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24082.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24082.jpgsave_picture_24082.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ magnet:?xt=urn:btih:E073D79B122D2C2111846415A5ADB982A24E2A75
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24591.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24591.jpgsave_picture_24591.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ Bad North: Jotunn Edition v2.00.20 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25529.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25529.jpgsave_picture_25529.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ Dandara: Trials of Fear v1.5.21 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25532.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25532.jpgsave_picture_25532.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ Snufkin Melody of Moominvalley v0.9.2 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25542.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25542.jpgsave_picture_25542.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Misguided Never Back Home v1.46 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25545.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25545.jpgsave_picture_25545.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ StudyGe - География мира v2.3.1 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25572.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25572.jpgsave_picture_25572.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ Alien: Isolation v1.4.1RC1 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25606.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25606.jpgsave_picture_25606.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Fruit Ninja Classic+ v1.0.1 Mod by Alex.Strannik [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25635.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25635.jpgsave_picture_25635.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Lara Croft: Guardian of Light v1.2.1RC14 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25711.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25711.jpgsave_picture_25711.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Little Misfortune v2.2 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25928.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25928.jpgsave_picture_25928.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Life Gallery v2.1.1 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25960.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25960.jpgsave_picture_25960.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Cat Museum v1.2.2 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25963.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25963.jpgsave_picture_25963.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Fran Bow v1.0.2 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25964.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25964.jpgsave_picture_25964.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Dad's Monster House v1.0.17 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25965.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25965.jpgsave_picture_25965.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Oddmar v0.111 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25968.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25968.jpgsave_picture_25968.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ One Way: The Elevator v1.0.37 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26087.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26087.jpgsave_picture_26087.jpg" />
 </div>
 
 

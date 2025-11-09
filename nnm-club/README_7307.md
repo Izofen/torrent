@@ -6,7 +6,7 @@ FiLMiC Pro: Mobile Cine Camera 6.17.8 Mod by Timozhai [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250019.jpgsave_picture_250019.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ NetLimiter 5.2.3.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250020.jpgsave_picture_250020.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Unfiltered Audio Plugins 2023.3 VST, VST 3, AAX RePack by TCD [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250021.jpgsave_picture_250021.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:43A2E9E9AB6C8EEED2F2D05E589C71649776FA6E
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250022.jpgsave_picture_250022.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ VA - Русские Хиты 3 2022 [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250023.jpgsave_picture_250023.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ RegCool 1.330 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250024.jpgsave_picture_250024.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:9E7EEC7DBF3461FC85271F80EE9BB090F55A62F9
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250025.jpgsave_picture_250025.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:EBF5BCB5AC58C7EC216D9E2BBBC07851AFBEFFEC
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250026.jpgsave_picture_250026.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:621002D0C5EC097BDDC2ED53C21EBD435991A9B9
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250027.jpgsave_picture_250027.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ Telegram Desktop 3.6.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250028.jpgsave_picture_250028.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ AOMEI Partition Assistant Technician Edition 9.8.1 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250029.jpgsave_picture_250029.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ magnet:?xt=urn:btih:1D26B31C52EEC6DCC997A5F28312ABCFFBC435D8
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250030.jpgsave_picture_250030.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Topaz Photo AI 1.2.6 (x64) Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250031.jpgsave_picture_250031.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Windows 11 Manager 1.1.2 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250032.jpgsave_picture_250032.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ AllDup 4.5.37 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250033.jpgsave_picture_250033.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ VA - Motivation Mix 2 (2022) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250034.jpgsave_picture_250034.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ magnet:?xt=urn:btih:02EBCD2444BFB5BF76549D6716648D03303E6ED2
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250035.jpgsave_picture_250035.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Pablo Munoz Gomez | A Guide To: ZBrush Comic Style Render / Руководств
 >>3D графика
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250036.jpgsave_picture_250036.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ magnet:?xt=urn:btih:674D39DA819F25FE485E657FE6481717F175AA62
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250037.jpgsave_picture_250037.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Van Morrison - Moving On Skiffle (2023) [MP3|320 Kbps] <Jazz, Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250038.jpgsave_picture_250038.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Windows Server 2022 LTSC, Version 21H2 Build 20348.587 (Updated March 2022) - О
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250039.jpgsave_picture_250039.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Rebelway, Urban Bradesko | Free Houdini Plugin: Using the Axiom Solver in Houdin
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250040.jpgsave_picture_250040.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Thinknetica Pro, Алексей Наумов | Внутреннее устрой
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250041.jpgsave_picture_250041.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ magnet:?xt=urn:btih:B8EFABA14DD73687302AAD62E0FA56A97989E56A
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250042.jpgsave_picture_250042.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ Rebelway, Nick Chamberlain | 8 Essential Compositing Techniques: Free Webinar (2
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250043.jpgsave_picture_250043.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ magnet:?xt=urn:btih:82D86957DFB86F0F3B1DA825D9089CFE1AEBAA3B
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250044.jpgsave_picture_250044.jpg" />
 </div>
 
 

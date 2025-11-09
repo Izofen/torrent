@@ -6,7 +6,7 @@
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65672.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65672.jpgsave_picture_65672.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:70E26A2FCEA3B95D9DA09A2BB7443245318C7F98
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65673.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65673.jpgsave_picture_65673.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:C97078BDF631234A0C6352C069BDE479EAF3FE9C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65674.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65674.jpgsave_picture_65674.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:ED9423773811CA37F4950E94E6DF600BB33D2462
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65675.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65675.jpgsave_picture_65675.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Vhäldemar - XX Anniversary - Live At BEC Barakaldo (2025) 2XCD, Recorded 19.04.
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65676.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65676.jpgsave_picture_65676.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Tommy Baldwin - Nappy Headed White Boy (2025) [FLAC 24/96|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65677.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65677.jpgsave_picture_65677.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ Steve Marriner - Hear My Heart (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65678.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65678.jpgsave_picture_65678.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ The Slime - Crab-Walk to Oblivion (2025) [MP3|320 Kbps] <Thrash Metal, Crossover
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65679.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65679.jpgsave_picture_65679.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ magnet:?xt=urn:btih:AD161A21E0CE681CD6648D8578FC75AC739D66C2
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65680.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65680.jpgsave_picture_65680.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ Shiver. - Topsfield Fair (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65681.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65681.jpgsave_picture_65681.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ Qbiq - Endless Universe (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65682.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65682.jpgsave_picture_65682.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ Mute Balloon - Out of the Red (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65683.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65683.jpgsave_picture_65683.jpg" />
 </div>
 
 
@@ -315,7 +315,7 @@ PowerDirector – Video Editor v15.4.0 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65684.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65684.jpgsave_picture_65684.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ Orianthi - Some Kind of Feeling (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blue
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65685.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65685.jpgsave_picture_65685.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ VA - A Tribute to the King of Zydeco (2025) [FLAC|Lossless|WEB-DL|tracks] <Rhyth
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65686.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65686.jpgsave_picture_65686.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ magnet:?xt=urn:btih:B7911CB4FAF914F48A5A9EA3150685C39238883F
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65687.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65687.jpgsave_picture_65687.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ magnet:?xt=urn:btih:D7806685C1583283D3971AFF117E13070C506F02
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65688.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65688.jpgsave_picture_65688.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ Black Adder - Hellraiser (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65689.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65689.jpgsave_picture_65689.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Tiffany Kills - World On Fire (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65690.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65690.jpgsave_picture_65690.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Adrian Quesada - Boleros Psicodelicos II (2025) [FLAC 24/48|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65691.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65691.jpgsave_picture_65691.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Paul Brown - So Much To Say (2025) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65692.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65692.jpgsave_picture_65692.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Sonic Mood - Sunny Guitars - Neo Jazz LoFi (2025) [FLAC 24/48|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65693.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65693.jpgsave_picture_65693.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Nathan East & Noah East - Father Son (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65694.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65694.jpgsave_picture_65694.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Zig Zags - Deadbeat At Dawn (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard R
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65695.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65695.jpgsave_picture_65695.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ magnet:?xt=urn:btih:72605DCB9B4C7DEABF5AB2AD744BB8B31E7F603A
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65696.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65696.jpgsave_picture_65696.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ magnet:?xt=urn:btih:833CB6316441DFE755311D8C240706420B969E34
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65697.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65697.jpgsave_picture_65697.jpg" />
 </div>
 
 

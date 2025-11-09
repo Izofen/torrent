@@ -6,7 +6,7 @@
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17217.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17217.jpgsave_picture_17217.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:E6AF7990A09A88434E9CDEDD281978B676480DC4
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17218.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17218.jpgsave_picture_17218.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:4E57564EAA3C40ED42F883662EE3C7F970A14264
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17219.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17219.jpgsave_picture_17219.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:8A3958577636FFB47581DF3CECAB64A9A7F02F13
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17220.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17220.jpgsave_picture_17220.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:C3F5B8B5765E169EE79B12D65623326989E6421F
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17221.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17221.jpgsave_picture_17221.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:8949C24AEDA176DFE903A4EB0D056EC557C79F31
 >>Звездные войны / Star Wars (сериалы по франшизе)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17222.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17222.jpgsave_picture_17222.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Wi-Fi Scanner 25.05 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17223.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17223.jpgsave_picture_17223.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:949CF9B34E85ECC9DC0082B25F27CC9199A30F34
 >>Звездные войны / Star Wars (сериалы по франшизе)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17224.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17224.jpgsave_picture_17224.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Armored Core VI Fires of Rubicon (2023) [Ru/Multi] (1.09.1/dlc) Repack Let'sРla
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17225.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17225.jpgsave_picture_17225.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:228D27780FCE275627BD71133BA0AE1DF0667768
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17226.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17226.jpgsave_picture_17226.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Blades of Fire (2025) [Ru/Multi] (1.0.0.1) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17227.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17227.jpgsave_picture_17227.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Another Crab's Treasure (2024) [Ru/Multi] (2.0.000.5) Repack Let'sРlay [Deluxe 
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17228.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17228.jpgsave_picture_17228.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ magnet:?xt=urn:btih:D31ADE0408BA97FFC2B306BFE766DFA987E74374
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17229.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17229.jpgsave_picture_17229.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ magnet:?xt=urn:btih:D31ADE0408BA97FFC2B306BFE766DFA987E74374
 >>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17230.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17230.jpgsave_picture_17230.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Gunsmith Simulator (2023) [Ru/Multi] (1.3.10/dlc) Repack seleZen
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17231.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17231.jpgsave_picture_17231.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ magnet:?xt=urn:btih:286C5EB1140BFCA543F21159BCC4F92BD513D114
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17232.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17232.jpgsave_picture_17232.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ magnet:?xt=urn:btih:0DD28D0CAFF1ACF7C48176E915723AE1539F4FC0
 >>Звездные войны / Star Wars (сериалы по франшизе)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17233.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17233.jpgsave_picture_17233.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ magnet:?xt=urn:btih:E4FC1FDFECC89BF90A3D65D6857AEA9631936D3F
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17234.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17234.jpgsave_picture_17234.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ magnet:?xt=urn:btih:3E3D6C7B5E139DCD43C750D96183153D1C7B2A3D
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17235.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17235.jpgsave_picture_17235.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ Morcheeba - Escape The Chaos (2025) [MP3|320 Kbps] <Electronic, Downtempo, Trip 
 >>Downtempo, Trip-Hop, Lounge
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17236.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17236.jpgsave_picture_17236.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ magnet:?xt=urn:btih:018D9FD0988AF49F7F7B47C56D65764DBAF04DD5
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17237.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17237.jpgsave_picture_17237.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:6B6F0D527E3FABB95A5BEA4C8FC0FD7DF6A8D919
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17238.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17238.jpgsave_picture_17238.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ magnet:?xt=urn:btih:D981CE0075476C8FBC54F5B7672AB5219BA84A45
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17239.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17239.jpgsave_picture_17239.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ magnet:?xt=urn:btih:3BA0DD3251228BB19B56C811AF7AFB653A72F24B
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17240.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17240.jpgsave_picture_17240.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ magnet:?xt=urn:btih:7F893D28DC9252AE46740A15D58DE32E2FA4DEC3
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17241.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17241.jpgsave_picture_17241.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ magnet:?xt=urn:btih:310B4256341B471EE29D0D16FFFD04814CD707DB
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17242.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17242.jpgsave_picture_17242.jpg" />
 </div>
 
 

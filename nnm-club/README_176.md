@@ -6,7 +6,7 @@ VA - Новые хитовые песни 2025, Часть 9 (2025) [FLAC|Lossle
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4630.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4630.jpgsave_picture_4630.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - 50 лучших хитов, Часть 4 (2025) [FLAC|Lossless|WEB-DL|track
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4631.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4631.jpgsave_picture_4631.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - Magic Deep-House, Vol. 2 (2025) [MP3|320 Kbps] <House, Deep House, Dance, C
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4632.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4632.jpgsave_picture_4632.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:2253D389B3F84C7375C6E069BBF71A44197F7DE8
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4633.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4633.jpgsave_picture_4633.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ VA - Русская 30-ка хитов 16 (Новые русские песни)
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4634.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4634.jpgsave_picture_4634.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ VA - Лучшая дискотека шансона - 20 (2025) [FLAC|Lossless|W
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4635.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4635.jpgsave_picture_4635.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ magnet:?xt=urn:btih:4F05FCEA8F810D89AE66D92210669B11CDE2C4D4
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4636.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4636.jpgsave_picture_4636.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ VA - Новые хитовые песни 2025, Часть 8 (2025) [FLAC|Lossle
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4637.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4637.jpgsave_picture_4637.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ VA - Brisa (mixed by Dj V) (2025) [MP3|320 Kbps] <Club House, Afro House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4638.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4638.jpgsave_picture_4638.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ magnet:?xt=urn:btih:78E2F4785FEA15C6EA3F63FBF6DD1A77CBA335BF
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4639.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4639.jpgsave_picture_4639.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Linkin Park - The Hunting Party (2014) Australia, 9362493698 [FLAC|Lossless|imag
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4640.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4640.jpgsave_picture_4640.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ magnet:?xt=urn:btih:F290F8465F828F83377EACA2301A70C0F374255C
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4641.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4641.jpgsave_picture_4641.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ magnet:?xt=urn:btih:25FE483252BE994F64034F83C67C06DB20F5BAB3
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4642.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4642.jpgsave_picture_4642.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Insania - The Great Apocalypse (2025) Japanese Edition [FLAC|Lossless|image + .c
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4643.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4643.jpgsave_picture_4643.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ VA - Новые хитовые песни 2025, Часть 7 (2025) [FLAC|Lossle
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4644.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4644.jpgsave_picture_4644.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ VA - Redux Selection, Vol. 9 / 2025 (2025) [MP3|320 Kbps] <Trance, Uplifting Tra
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4645.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4645.jpgsave_picture_4645.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ magnet:?xt=urn:btih:E4F65F2127FEACC2D626CEC04619EEAEF929442B
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4646.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4646.jpgsave_picture_4646.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ Hans Koller - Minor Meetings (1958) 2014, Sonorama Records [FLAC|Lossless|image 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4647.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4647.jpgsave_picture_4647.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ magnet:?xt=urn:btih:BD47D61BA080AD686E066D8180BBE8E15AA7321A
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4648.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4648.jpgsave_picture_4648.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ magnet:?xt=urn:btih:2FF0BCA0C551BAD84BD79A1492869299A30E061B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4649.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4649.jpgsave_picture_4649.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ magnet:?xt=urn:btih:C5EB0FBCA1A520F64FF856204BFBD8D779422C90
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4650.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4650.jpgsave_picture_4650.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ magnet:?xt=urn:btih:80C6029247861D5F4B3C33EE4AFBAC2B9BB49685
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4651.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4651.jpgsave_picture_4651.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ magnet:?xt=urn:btih:2C27A6638FD675049F9A64C8290F8C45894EE692
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4652.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4652.jpgsave_picture_4652.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Anna Zueva - Favorites Collection Part 2 (2025) [MP3|320 Kbps] <Easy Listening, 
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4653.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4653.jpgsave_picture_4653.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ VA - Musical kaleidoscope part 52 Assorted (2025) [MP3|320 Kbps] <Electronic, Ea
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4654.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4654.jpgsave_picture_4654.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ magnet:?xt=urn:btih:BA017B798950FD3D4FA009F0E5D453F4E400861D
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4655.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4655.jpgsave_picture_4655.jpg" />
 </div>
 
 

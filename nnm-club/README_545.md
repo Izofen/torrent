@@ -6,7 +6,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14479.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14479.jpgsave_picture_14479.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14480.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14480.jpgsave_picture_14480.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:9A3DCA987150CCFA83849F02A11946C075E4FDF7
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14481.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14481.jpgsave_picture_14481.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:9A3DCA987150CCFA83849F02A11946C075E4FDF7
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14482.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14482.jpgsave_picture_14482.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:9A3DCA987150CCFA83849F02A11946C075E4FDF7
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14483.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14483.jpgsave_picture_14483.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ Suzerain (2020) [En] (3.1.0.1.137/dlc) License GOG [Expanded Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14484.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14484.jpgsave_picture_14484.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ magnet:?xt=urn:btih:0015FC3DAE9089EA98E2824CEF35AE8D88F19508
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14486.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14486.jpgsave_picture_14486.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ magnet:?xt=urn:btih:8F248281D5C4A48E2D46741C4B8917F694469C6A
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14487.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14487.jpgsave_picture_14487.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ Heading Out (2024) [Ru/Multi] (1.040) Scene Rune
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14488.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14488.jpgsave_picture_14488.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ magnet:?xt=urn:btih:42B10020269B57303B9FF0D9761E294320D6CFD8
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14489.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14489.jpgsave_picture_14489.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ magnet:?xt=urn:btih:CF6A085D3D8BDEC2BF51B07D7BCDAF59AD222E73
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14490.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14490.jpgsave_picture_14490.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ Clair Obscur: Expedition 33 (2025) [Ru/Multi] (1.3.1/dlc) Scene Rune [Deluxe Edi
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14491.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14491.jpgsave_picture_14491.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ magnet:?xt=urn:btih:8E7FE3986C37A7BF792AF2A89CE224A84669F368
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14492.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14492.jpgsave_picture_14492.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ magnet:?xt=urn:btih:8E7FE3986C37A7BF792AF2A89CE224A84669F368
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14493.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14493.jpgsave_picture_14493.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ magnet:?xt=urn:btih:CB7FAE65FB26C2B9245CAE0C1F5809E3339869D6
 >>Старые Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14494.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14494.jpgsave_picture_14494.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ magnet:?xt=urn:btih:D4F38E500A01B5101A6F9115762B06BDBEDCBE77
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14495.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14495.jpgsave_picture_14495.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ magnet:?xt=urn:btih:1974978DD63053ADAFE871D7EB1DC64DF4C39390
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14496.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14496.jpgsave_picture_14496.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ magnet:?xt=urn:btih:1974978DD63053ADAFE871D7EB1DC64DF4C39390
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14497.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14497.jpgsave_picture_14497.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ magnet:?xt=urn:btih:4C79C82E0D7B8D75ED751130B2EFDF96F9A26EBE
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14498.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14498.jpgsave_picture_14498.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Beyblade Burst QuadStrike | Бейблэйд Взрыв — Квадроудар
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14499.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14499.jpgsave_picture_14499.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ magnet:?xt=urn:btih:783E08BE99D262B21D783CA20734CD8B3A6ED275
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14500.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14500.jpgsave_picture_14500.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:DEEC409E88720FB849CC7D3D976FB312FDEB710F
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14501.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14501.jpgsave_picture_14501.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ VA - Some Great 90s Hits (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14502.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14502.jpgsave_picture_14502.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ magnet:?xt=urn:btih:5DB00A67CA451A8808BB3670007D3C4A46892883
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14503.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14503.jpgsave_picture_14503.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ BBC. Легендарные тигры Индии / Легендарні тиг�
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14504.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14504.jpgsave_picture_14504.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Firefox Browser ESR 128.11.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14505.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14505.jpgsave_picture_14505.jpg" />
 </div>
 
 

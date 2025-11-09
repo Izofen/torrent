@@ -6,7 +6,7 @@ VA - Soft Rock Greatest Hits (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24597.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24597.jpgsave_picture_24597.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Jethro Tull - Curious Ruminant = キュリアス・ルミナント (2025) Japane
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24806.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24806.jpgsave_picture_24806.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Pig - Wrecked (1996) Remastered, 2024, Metropolis Records [FLAC|Lossless|WEB-DL|
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24872.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24872.jpgsave_picture_24872.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ The Doors - 3 Live Albums (1970) Remastered, 2025, Homespun, DMG[FLAC|Lossless|W
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24875.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24875.jpgsave_picture_24875.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Tobias Sammet's Avantasia - Here Be Dragons (2025) 3 x CD, Deluxe Edition, Limit
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24879.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24879.jpgsave_picture_24879.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Black Label Society - Unblackened (2013) Reissue, 2021, Ear Music Classics [FLAC
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24991.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24991.jpgsave_picture_24991.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Meshuggah - Chaosphere (1998) SHM-CD, Japanese Edition, Reissue, Remastered, 202
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24993.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24993.jpgsave_picture_24993.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Lumen - Три пути. 20 лет (Live) (2025) [FLAC|Lossless|WEB-DL|tracks] <
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25103.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25103.jpgsave_picture_25103.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:2013DFB3A158CBDB1A50041E0DCB7972BA7578A0
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25304.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25304.jpgsave_picture_25304.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:16B78DFAD1B5A9648B7B93E7D1F31A171BF73B25
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25321.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25321.jpgsave_picture_25321.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Lacrimosa - Lament (2025) [MP3|320 Kbps] <Gothic Rock, Darkwave>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25414.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25414.jpgsave_picture_25414.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Kiss - Creatures Of The Night 40th Anniversary Super Deluxe Edition (1982) 5 x C
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25505.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25505.jpgsave_picture_25505.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:419ACA4DD4D95F167529BDBB4B56E23764913ED2
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25526.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25526.jpgsave_picture_25526.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Talisman - 10 альбомов, 21 CD (1990 - 2013) [FLAC|image+.cue|tracks+.cue
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25602.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25602.jpgsave_picture_25602.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Angeline - Rhythm of One (2025) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25618.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25618.jpgsave_picture_25618.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ magnet:?xt=urn:btih:E742599B9445022E572524E9293447E7D695B866
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25629.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25629.jpgsave_picture_25629.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Blue Ambition - Seduction of the Innocent (2025) [FLAC|Lossless|WEB-DL|tracks] <
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25727.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25727.jpgsave_picture_25727.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Venamoris, Dave Lombardo - To Cross or To Burn (2025) [FLAC|Lossless|WEB-DL|trac
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25730.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25730.jpgsave_picture_25730.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Owlbear and Katy Scary - Feather and Claw (2025) [FLAC|Lossless|WEB-DL|tracks] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25736.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25736.jpgsave_picture_25736.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Far Beyond - An Angel's Requiem (2017) [FLAC|Lossless|WEB-DL|tracks] <Symphonic 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25754.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25754.jpgsave_picture_25754.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ The Smashing Pumpkins - 13 Studio Albums, 1 Live, 4 Compilation, 5 EP, 1 Box Set
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25808.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25808.jpgsave_picture_25808.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Helloween - March Of Time (The Best Of 40 Years) (2025) 3 x CD [MP3|320 Kbps] <H
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25935.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25935.jpgsave_picture_25935.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ Dee Snider - 12 albums (1992-2021) [FLAC|Lossless|image + .cue | tracks +.cue] <
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25991.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25991.jpgsave_picture_25991.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ Dirkschneider - Balls To The Wall Reloaded (2025) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26256.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26256.jpgsave_picture_26256.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ UFO (U.F.O.) - 33 Albums, 7 Box-sets, 107 CD (1970-2024) [FLAC|Lossless|image + 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26648.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26648.jpgsave_picture_26648.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ magnet:?xt=urn:btih:8B00B45EF4288C1DE475A8A215C7647A804CD2BC
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26671.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26671.jpgsave_picture_26671.jpg" />
 </div>
 
 

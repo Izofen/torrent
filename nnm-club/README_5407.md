@@ -6,7 +6,7 @@
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167473.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167473.jpgsave_picture_167473.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ TechSmith Camtasia 2022 Studio 2022.5.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167474.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167474.jpgsave_picture_167474.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:787B8E9B728ABA88447CE113C8ED48BE91C43E32
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167475.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167475.jpgsave_picture_167475.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Opera 93.0.4585.64 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167476.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167476.jpgsave_picture_167476.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:BCCD5FF5E7C444A7D1600E427708627327BD40CE
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167477.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167477.jpgsave_picture_167477.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:C1E468BA19023DDC61A656917E6D0C81EED76142
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167478.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167478.jpgsave_picture_167478.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:07CFF5E5A8318E8AC669FF32D7469C05902C2C27
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167479.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167479.jpgsave_picture_167479.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:637C82098C2C92491FE8AAF7E75882ADE30B40DA
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167480.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167480.jpgsave_picture_167480.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:B7D24FFBFB751168B801C76D242AA1ED644F6776
 >>Мобильное Видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167481.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167481.jpgsave_picture_167481.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Alfred PowerPack 5.0.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167482.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167482.jpgsave_picture_167482.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ BELOFF [dp] 2020.12.1
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167483.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167483.jpgsave_picture_167483.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ magnet:?xt=urn:btih:6D679BE9890142BC514AAA55B9369ABE9C2C2EB3
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167484.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167484.jpgsave_picture_167484.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Mac FoneLab iOS Unlocker 1.0.32 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167485.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167485.jpgsave_picture_167485.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ magnet:?xt=urn:btih:8C00B7E3FBCF01DACC49731AFDD472166333D6FB
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167486.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167486.jpgsave_picture_167486.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ The Fermi Paradox (2021) [En] (0.70.v.2) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167487.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167487.jpgsave_picture_167487.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Allavsoft Video Downloader Converter 3.21.0.7286 RePack (& Portable) by elchupac
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167488.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167488.jpgsave_picture_167488.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ magnet:?xt=urn:btih:4A45584B30FAF6788D18A10BEBBB8182F2223F7C
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167489.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167489.jpgsave_picture_167489.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ magnet:?xt=urn:btih:73A31890C7683A9E68EDC25A550A9A4D925BA844
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167490.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167490.jpgsave_picture_167490.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ magnet:?xt=urn:btih:8341E99505F91354366E3549D5D39398E4C4D35D
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167491.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167491.jpgsave_picture_167491.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Suicide Squad: Special Ops / Отряд самоубийц: Спецназ v1.1.
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167492.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167492.jpgsave_picture_167492.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ magnet:?xt=urn:btih:99F8967090DD0D81327340CBCF0791031C2DE8FD
 >>Сверхъестественное / Supernatural
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167493.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167493.jpgsave_picture_167493.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:01DADC6A434619E62D6BCB17CE35B2AB4565DFFE
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167494.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167494.jpgsave_picture_167494.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ magnet:?xt=urn:btih:365776506390931C760909A3C49CDF5015FCAAD3
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167495.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167495.jpgsave_picture_167495.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Light Image Resizer 6.1.0.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167496.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167496.jpgsave_picture_167496.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Stray Souls (2023) [Ru/Multi] (1.0.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167497.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167497.jpgsave_picture_167497.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ magnet:?xt=urn:btih:4E3B27F6DEF50D40E1AF744DD1B6B65EAA542467
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167498.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167498.jpgsave_picture_167498.jpg" />
 </div>
 
 

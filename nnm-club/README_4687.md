@@ -6,7 +6,7 @@
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146722.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146722.jpgsave_picture_146722.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ VA - Christmas Blues Rock (2021) [MP3|320 Kbps] <Blues, Blues Rock>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146723.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146723.jpgsave_picture_146723.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:BFB822F11DAE55D1D1DAB00D70B0BAD0BC15126B
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146724.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146724.jpgsave_picture_146724.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:DF6D9F4AE474D83637522724B1200A25C57B4911
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146725.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146725.jpgsave_picture_146725.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:D455BA470AE1F5C415B1F2C72A3216C1E9C6DE65
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146726.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146726.jpgsave_picture_146726.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ magnet:?xt=urn:btih:D455BA470AE1F5C415B1F2C72A3216C1E9C6DE65
 >>Хоккей. Чемпионаты мира
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146727.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146727.jpgsave_picture_146727.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ magnet:?xt=urn:btih:DBF2C809FE293062ED9AA3AC53168930C6E6989C
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146728.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146728.jpgsave_picture_146728.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ magnet:?xt=urn:btih:B7D6AD35E84627E8C169554348238ADF5BEC2016
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146729.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146729.jpgsave_picture_146729.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Joe Bonamassa - Merry Christmas Blues (2016) [MP3|320 Kbps] <Blues, Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146730.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146730.jpgsave_picture_146730.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Total Commander 11.02 Portable by wincmd64 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146731.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146731.jpgsave_picture_146731.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ magnet:?xt=urn:btih:AB5762057FCA87B370CBA43EFF55B00B7D16C6D0
 >>Хоккей. Чемпионаты мира
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146732.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146732.jpgsave_picture_146732.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ The 3rd And The Mortal - Tears Laid In Earth (1994) [WavPack|Lossless]<Avantgard
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146733.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146733.jpgsave_picture_146733.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ The 3rd And The Mortal - Tears Laid In Earth (1994) [WavPack|Lossless]<Avantgard
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146734.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146734.jpgsave_picture_146734.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ magnet:?xt=urn:btih:4D3DFF76AAFB9AE13CBA657BD7F202860055EFA9
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146735.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146735.jpgsave_picture_146735.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ SamDrivers 21.12 LAN [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146736.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146736.jpgsave_picture_146736.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ magnet:?xt=urn:btih:3A4CFE9598C9E382B910FECBC56585A0804169F8
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146738.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146738.jpgsave_picture_146738.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ MORTEN - Live @ TESstudio954, United States (2020-12-23) [MP3|320 Kbps] <Electro
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146739.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146739.jpgsave_picture_146739.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Sexy Girls Wallpapers (14.12.12) [Wallpapers 16+]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146740.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146740.jpgsave_picture_146740.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ magnet:?xt=urn:btih:8D257969FB6B6B27D144BA8DF5E907ECF559B93A
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146741.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146741.jpgsave_picture_146741.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ magnet:?xt=urn:btih:983170772B30555128842806A38ED7DD1B24B6DF
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146743.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146743.jpgsave_picture_146743.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ magnet:?xt=urn:btih:5D7591D0F99C9C601D09644562DF59FE07343F15
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146744.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146744.jpgsave_picture_146744.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ magnet:?xt=urn:btih:A1E318FA63D337D64596FEBBD1DC3ACBBCA5388F
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146745.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146745.jpgsave_picture_146745.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ Gilrs Wallpaper (14.12.12) [Wallpapers 16+]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146746.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146746.jpgsave_picture_146746.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ magnet:?xt=urn:btih:C7DB4CE79F85FE26021A99E709444575608F83B3
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146747.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146747.jpgsave_picture_146747.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ magnet:?xt=urn:btih:8CC7464183137014BB86AF4AE7911017F35F2138
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146748.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146748.jpgsave_picture_146748.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ magnet:?xt=urn:btih:17EB13B5D14AF51DC4E698D95FE3B76FFE54F699
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146749.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146749.jpgsave_picture_146749.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_211.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_211.jpgsave_picture_211.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Jacob and The Melody Drivers - Jacob and The Melody Drivers (2025) [FLAC 24/96|L
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_212.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_212.jpgsave_picture_212.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Clockers - Il Broccolino (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_213.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_213.jpgsave_picture_213.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Headstones - Burn All The Ships (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_214.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_214.jpgsave_picture_214.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Betschart Transport AG - Griffin Overdrive (2025) [FLAC 24/192|Lossless|WEB-DL|t
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_215.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_215.jpgsave_picture_215.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Bill Laurance - Lumen (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_216.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_216.jpgsave_picture_216.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Armando Alonso - Problemas con el gas (2025) [FLAC 24/48|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_217.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_217.jpgsave_picture_217.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ magnet:?xt=urn:btih:2A636C6D18946AFFBA8F178F05CA874BA69A6DD4
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_218.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_218.jpgsave_picture_218.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ magnet:?xt=urn:btih:55E367936EACDFB1C5E1E46367FD4575D6416C78
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_219.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_219.jpgsave_picture_219.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ magnet:?xt=urn:btih:A97E3AAEBDA63E2F8A2D63C04BBDA18529E5E79D
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_220.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_220.jpgsave_picture_220.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ Vicious Rumors - The Devil's Asylum (2025) [FLAC|Lossless|image + .cue] <Heavy M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_221.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_221.jpgsave_picture_221.jpg" />
 </div>
 
 
@@ -291,7 +291,7 @@ magnet:?xt=urn:btih:270C9BC036F49A7EC66E88350DE8FB10E477BB3C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_222.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_222.jpgsave_picture_222.jpg" />
 </div>
 
 
@@ -315,7 +315,7 @@ magnet:?xt=urn:btih:2D0AD9E0644D3DE17EAEF3C84B8BF25CF7527F3A
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_223.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_223.jpgsave_picture_223.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ magnet:?xt=urn:btih:B152F87BE65BDFE298DF96C7E52300D6B59F501B
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_224.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_224.jpgsave_picture_224.jpg" />
 </div>
 
 
@@ -365,7 +365,7 @@ magnet:?xt=urn:btih:1432167B2833E53CA9E7C0E7D1B120B0D501540E
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_225.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_225.jpgsave_picture_225.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ magnet:?xt=urn:btih:C50220E5C653EF4A9170FD7319849E58915A5850
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_226.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_226.jpgsave_picture_226.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ Nathan Mitchell - The Legacy Project (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_227.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_227.jpgsave_picture_227.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Dust and Echoes - Whispers on the Wire (2025) [FLAC 24/44.1|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_228.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_228.jpgsave_picture_228.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ magnet:?xt=urn:btih:25CD4755CDD0917C777F1A93FF539D91E72885C7
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_229.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_229.jpgsave_picture_229.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ magnet:?xt=urn:btih:C8C2BF8D80AEF12EC647E82180D165C6664CAA03
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_230.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_230.jpgsave_picture_230.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Biffy Clyro - Futique (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_231.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_231.jpgsave_picture_231.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ magnet:?xt=urn:btih:6CD2FEE326B91CE9B33853287C87A4B405F0BD01
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_232.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_232.jpgsave_picture_232.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ magnet:?xt=urn:btih:7DFB06947B67721CBA0FB9486BDF76A0DEDF393B
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_233.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_233.jpgsave_picture_233.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Angelwreck - Pieces Of My Heart (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Ro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_234.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_234.jpgsave_picture_234.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ Devil of a Woman - Last Call for Freedom (2025) [FLAC 24/44.1|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_235.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_235.jpgsave_picture_235.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ Willow Suns - All out of Time (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blue
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_236.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_236.jpgsave_picture_236.jpg" />
 </div>
 
 

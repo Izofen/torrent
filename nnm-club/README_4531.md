@@ -6,7 +6,7 @@
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141760.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141760.jpgsave_picture_141760.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:4A08207696D02EB9F80FBCD8115BB525A7D16100
 >>Футажи
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141761.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141761.jpgsave_picture_141761.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:82B6EA3A656F47C4290EC11C0840158754D8B36A
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141762.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141762.jpgsave_picture_141762.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Movavi Video Suite 18.1.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141763.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141763.jpgsave_picture_141763.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Amnesia: The Dark Descent / Амнезия. Призрак прошлого (201
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141764.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141764.jpgsave_picture_141764.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Tenchi Muyou! Ryououki Dai Yon-ki / Тэнти - лишний! Рё-о-ки 4 [2
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141766.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141766.jpgsave_picture_141766.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Syhunt Sandcat Browser 5.2.0.1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141767.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141767.jpgsave_picture_141767.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:05934131EFA8C2DC175AFB69C7FFD9FF4EE17001
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141768.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141768.jpgsave_picture_141768.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ Garmin: Дороги России Топо 6.29 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141769.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141769.jpgsave_picture_141769.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:1126DA7786864E80FEA350A49995D47383E84320
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141770.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141770.jpgsave_picture_141770.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Karen Silver - Hold On I'm Comin' (1979) LP [MP3|320 Kbps] <Electronic, Disco, F
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141771.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141771.jpgsave_picture_141771.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:14801F482BFA7603069CDF7DC2B67122813A2351
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141772.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141772.jpgsave_picture_141772.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ OmniPlan Pro 3 v3.10.3 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141773.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141773.jpgsave_picture_141773.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:001C950FEEAA1F1A32A3A5E963E2E241037A6985
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141774.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141774.jpgsave_picture_141774.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ magnet:?xt=urn:btih:DD7A5A3BE018A981F67A853671C26224D6B9BED5
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141775.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141775.jpgsave_picture_141775.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:4E20CB15601A27E83D3011AB308D0D156C04EC87
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141776.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141776.jpgsave_picture_141776.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ magnet:?xt=urn:btih:2F90F58B9BD455D2BF849A62CEF4D95B310F8D5F
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141777.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141777.jpgsave_picture_141777.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ magnet:?xt=urn:btih:9B408FBDA403AA97C5DCBB7109B0897BFCF78DD6
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141778.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141778.jpgsave_picture_141778.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ magnet:?xt=urn:btih:DE7571DC566BD866D93DEA7D91566E8206C96A34
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141780.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141780.jpgsave_picture_141780.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Adobe Illustrator CC 2019 23.0.1.540 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141781.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141781.jpgsave_picture_141781.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ magnet:?xt=urn:btih:C472B7E9DB122FDE048D70BE60E49E1119CB56D0
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141782.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141782.jpgsave_picture_141782.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Vivy: Fluorite Eye's Song | Виви: Песнь флюоритового гла
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141783.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141783.jpgsave_picture_141783.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ magnet:?xt=urn:btih:7BE3C18E3357EDEC2C49F6F72EA67A85D74A30C8
 >>Картинки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141784.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141784.jpgsave_picture_141784.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ magnet:?xt=urn:btih:4B8C422EA9304F3066D48559594A02D5E2131FB0
 >>Native *Nix Games
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141788.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141788.jpgsave_picture_141788.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ magnet:?xt=urn:btih:CB3D620FAF8A619E65EA892927592B726BFCA599
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141789.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141789.jpgsave_picture_141789.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Softorino YouTube Converter 2 v2.1.12 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141790.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141790.jpgsave_picture_141790.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175619.jpgsave_picture_175619.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:F57915F9A2AB7D0A7F3499DA5542E5667607C41C
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175621.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175621.jpgsave_picture_175621.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:9F5B0834C964D3109A71713EEA22C029521CF927
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175622.jpgsave_picture_175622.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:DCA925EDB4D5D4159203BE3A33FB32E52AE4158A
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175623.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175623.jpgsave_picture_175623.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:A063F10B589EBD76DC5A1621BF157661FB83DDFD
 >>Картинки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175625.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175625.jpgsave_picture_175625.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:A71E2BB4041F2161EDB066244ABDAF02ACEDC4E3
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175626.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175626.jpgsave_picture_175626.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ Udemy, Vinoth Selvaraj | Selenium WebDriver и Паттерны Проектир
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175627.jpgsave_picture_175627.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:04FF7C8AD0A40471256436CCA8F43075B6DDC9ED
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175629.jpgsave_picture_175629.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ AIMP 5.11 Build 2436 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175630.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175630.jpgsave_picture_175630.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ NOFX - Double Album (2022) [FLAC|Lossless|WEB-DL|tracks] <Punk Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175631.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175631.jpgsave_picture_175631.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ magnet:?xt=urn:btih:D15D621125081770A457DA589DC34698B96D076A
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175633.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175633.jpgsave_picture_175633.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ Udemy, Zoran Horvat | Рефакторинг под паттерны проек�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175634.jpgsave_picture_175634.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ magnet:?xt=urn:btih:732F23DBE2D6D2F02B6EF690A0E974FEF2850AA3
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175635.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175635.jpgsave_picture_175635.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ magnet:?xt=urn:btih:FF13963553A7A342B32B0A7E04F93F8D656D62AA
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175637.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175637.jpgsave_picture_175637.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ magnet:?xt=urn:btih:9C1B1C899FA591EDDDEA09BC19FF4F6DC780AEA7
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175638.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175638.jpgsave_picture_175638.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ magnet:?xt=urn:btih:4CD12140B030F116E0D4C5B556138F8C32AB9CBE
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175639.jpgsave_picture_175639.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ magnet:?xt=urn:btih:7673C88C0DC1D3805DBBC6D027C818B4A23E29E4
 >>Сериалы Marvel Comics
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175641.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175641.jpgsave_picture_175641.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ magnet:?xt=urn:btih:2C576B213F3C75F2317D3C13F7A3AD217C721C28
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175642.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175642.jpgsave_picture_175642.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ magnet:?xt=urn:btih:3B288AA94A68D523F6C6EB532CF6937C531D2C77
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175643.jpgsave_picture_175643.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Shakra - 19 Albums (1992-2023) [FLAC|Lossless|image + .cue | tracks + .cue] <Har
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175645.jpgsave_picture_175645.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ Debian GNU/Linux 10.7.0 + nonfree Buster [amd64] 4xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175646.jpgsave_picture_175646.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ magnet:?xt=urn:btih:ED9FF2508F0E5598A7B0DFB2785D2712D8D66754
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175647.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175647.jpgsave_picture_175647.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Defiant - No More Heart (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175649.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175649.jpgsave_picture_175649.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ magnet:?xt=urn:btih:801E98189282F12ADBC4FC097669DF11A6A4B2E1
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175650.jpgsave_picture_175650.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ magnet:?xt=urn:btih:700F0A97F1D608E88B85B8DF527E1A87EE06771C
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175651.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175651.jpgsave_picture_175651.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ magnet:?xt=urn:btih:6BC19B16DB9A20E01EBDD743FA7FF2A6B5797003
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175653.jpgsave_picture_175653.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146814.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146814.jpgsave_picture_146814.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:DBCBE91D177D57E18DD2CD9853ECCDAF6BCBA76A
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146815.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146815.jpgsave_picture_146815.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:8FABAB18CE7E60DE9E41A910C78F21C53E449FA1
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146816.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146816.jpgsave_picture_146816.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ John Aise - House Energy 11 (2012) [MP3|320 кб/с]<Club \ Electro House>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146818.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146818.jpgsave_picture_146818.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Kryder - Kryteria Radio 270 (2020 Label Showcase) (2020-12-23) [MP3|192 Kbps] <H
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146819.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146819.jpgsave_picture_146819.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ magnet:?xt=urn:btih:781B897CDDF7173A36F882B17923C29432D4DA12
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146820.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146820.jpgsave_picture_146820.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ magnet:?xt=urn:btih:1CF0A9421D089B9A56C2A936C4820D601C5DCBC8
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146821.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146821.jpgsave_picture_146821.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ Telegram Desktop 1.5.4 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146822.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146822.jpgsave_picture_146822.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ magnet:?xt=urn:btih:33C1EC36A95462E72F8AB575C28D99AB023973FC
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146823.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146823.jpgsave_picture_146823.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ magnet:?xt=urn:btih:3602A62DA3FA138E6E29DC0336F2D8742931E8C2
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146825.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146825.jpgsave_picture_146825.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ magnet:?xt=urn:btih:EB3C073B82A8C799BB7F351598815963BF592DC9
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146826.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146826.jpgsave_picture_146826.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ Werner Laemmerhirt - SaitenZauber (1999) [MP3|320 кб/с]<Folk, Blues>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146827.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146827.jpgsave_picture_146827.jpg" />
 </div>
 
 
@@ -316,7 +316,7 @@ magnet:?xt=urn:btih:938F09C359F7BA6C685B6F9D1EF7DAEC3DD0D6F5
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146828.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146828.jpgsave_picture_146828.jpg" />
 </div>
 
 
@@ -340,7 +340,7 @@ Smooze 1.9.11 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146829.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146829.jpgsave_picture_146829.jpg" />
 </div>
 
 
@@ -364,7 +364,7 @@ Austin Wintory - The Sound Of Assassin's Creed Syndicate (2015) Limited Edition,
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146830.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146830.jpgsave_picture_146830.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ Hetman Photo Recovery 4.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146831.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146831.jpgsave_picture_146831.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ Zомбилэнд: Контрольный выстрел / Zombieland: Double Ta
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146832.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146832.jpgsave_picture_146832.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ magnet:?xt=urn:btih:A795856E05FB9966294166A2E21AAB293EBE239F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146834.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146834.jpgsave_picture_146834.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Multitouch 1.21.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146835.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146835.jpgsave_picture_146835.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ VA - Vocal Trance 2016 New York (2016) [MP3|320 Kbps] <Uplifting Trance, Vocal T
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146836.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146836.jpgsave_picture_146836.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ VA - Reload #6 (2012) [MP3|320 кб/с]<House, Progressive House>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146837.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146837.jpgsave_picture_146837.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ magnet:?xt=urn:btih:A38F6B88D746AC3C99E9C3EAEEBDCB70A83851FF
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146838.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146838.jpgsave_picture_146838.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ NewWeather 2.3 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146839.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146839.jpgsave_picture_146839.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ magnet:?xt=urn:btih:7853E6F49389C62FF893A8D17B40AA6F6D58EBF0
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146840.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146840.jpgsave_picture_146840.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ magnet:?xt=urn:btih:67B709E2DC7B8E982B0208F5E875A0D0811A9068
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146841.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146841.jpgsave_picture_146841.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ magnet:?xt=urn:btih:06F95AB45EA50007CDA80CED40AA1F3FC2C23F8D
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146842.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146842.jpgsave_picture_146842.jpg" />
 </div>
 
 

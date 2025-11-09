@@ -6,7 +6,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38471.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38471.jpgsave_picture_38471.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Steinberg - Retrologue 2 2.4.0 VSTi 3, AAX (x64) + Content [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38472.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38472.jpgsave_picture_38472.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:297FF419E80C5F8E771AAB7D1A1A7ABBD0BC2D15
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38473.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38473.jpgsave_picture_38473.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:384356EDAA8CCB6A01803EE8068F9C704753047D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38474.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38474.jpgsave_picture_38474.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:CDCDF29C04AE725A358B72A01658A9E78227C0FD
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38475.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38475.jpgsave_picture_38475.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:12F7607778551C96E4E93E02D5A971871FC85A43
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38476.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38476.jpgsave_picture_38476.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:837AFB0B1E3754961097131A24947D21FE4D997B
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38477.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38477.jpgsave_picture_38477.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:09A56FDCA135287E1B55DDCF19F91A3EB6480ED4
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38478.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38478.jpgsave_picture_38478.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:1A5950887F9A14F4C94239DF4E602E299BBEBBD0
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38479.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38479.jpgsave_picture_38479.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:D5AE18ECCA8AD48FD608110903FC00FC67B2B3E0
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38480.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38480.jpgsave_picture_38480.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:FCEDF698E75BFEE30EC52A832398803A164D75A8
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38481.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38481.jpgsave_picture_38481.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Power Music Workout - Workout Top Songs 2024 - Fall Edition [FLAC|Lossless|WEB-D
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38482.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38482.jpgsave_picture_38482.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:21AD26079F09D765723291766728DFD60620DAC8
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38483.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38483.jpgsave_picture_38483.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ VA - Easy Morning Tunes: Chillout Your Mind (2024) [FLAC|Lossless|WEB-DL|tracks]
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38484.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38484.jpgsave_picture_38484.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ magnet:?xt=urn:btih:63CCC01315A7009E1E704931B6CF52807BE92C66
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38485.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38485.jpgsave_picture_38485.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Escape with Romeo - Suspicious Bliss (2024) [FLAC|Lossless|WEB-DL|tracks] <New W
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38486.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38486.jpgsave_picture_38486.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ magnet:?xt=urn:btih:D989B94DCDBDD0F9E4FC8CED8F2762AAB995C53D
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38487.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38487.jpgsave_picture_38487.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ magnet:?xt=urn:btih:1553621675A647260660021FAA423C3A7096BF92
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38488.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38488.jpgsave_picture_38488.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ magnet:?xt=urn:btih:8CEC278A84A9E39CF0D292DE91F23DA9D16C07A0
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38489.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38489.jpgsave_picture_38489.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ VA - Uplifting Only Top 15: November 2024 (Extended Mixes) (2024) [MP3|320 Kbps]
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38490.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38490.jpgsave_picture_38490.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ HARDY - 3 Альбома (2017) [MP3|320 Kbps] <Heavy Metal>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38491.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38491.jpgsave_picture_38491.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ BlackBeer - Trapped In The Sin City (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard R
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38492.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38492.jpgsave_picture_38492.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Klokwise - Klok in. (2024) [FLAC|Lossless|WEB-DL|tracks] <Rapcore, Nu-Metal>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38493.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38493.jpgsave_picture_38493.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Skillet - Studio Albums (13 releases) (1996-2024) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38494.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38494.jpgsave_picture_38494.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ VA - ЕвроХит Топ 40 Europa Plus 01.11.2024 [MP3|320 Kbps] <Pop, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38495.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38495.jpgsave_picture_38495.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ XLN Audio - Addictive Drums 2 Complete 2.5.2.1 STANDALONE, VSTi, VSTi 3, AAX (x6
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38496.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38496.jpgsave_picture_38496.jpg" />
 </div>
 
 

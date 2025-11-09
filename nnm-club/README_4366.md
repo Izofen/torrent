@@ -6,7 +6,7 @@
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136542.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136542.jpgsave_picture_136542.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:9301899CB2D9C0CF25C94C9ACFA6A6F2687F8FE1
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136543.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136543.jpgsave_picture_136543.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Mistabishi - Skum (2012) [MP3|320 кб/с]<Drum & Bass>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136547.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136547.jpgsave_picture_136547.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Antropomorphia - Evangelivm Nekromantia (2012) [MP3|320 кб/с]<Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136550.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136550.jpgsave_picture_136550.jpg" />
 </div>
 
 
@@ -120,7 +120,7 @@ magnet:?xt=urn:btih:363A4CDA1FFE456E73BAE16B132D2F4BF97D21CA
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136552.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136552.jpgsave_picture_136552.jpg" />
 </div>
 
 
@@ -144,7 +144,7 @@ magnet:?xt=urn:btih:5420B83FF978A221644B4C64602F4BD4A84588CA
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136557.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136557.jpgsave_picture_136557.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Skillbox, Валентин Пановский и др. | Профессия Data
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136560.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136560.jpgsave_picture_136560.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Golden Kamuy (2020) / Золотое божество [ТВ-3] [2020, TV, 12 ep]
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136561.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136561.jpgsave_picture_136561.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ magnet:?xt=urn:btih:86A5504FCA8F6B87AEAEA00D0DAB8BB85A5999BA
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136562.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136562.jpgsave_picture_136562.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ magnet:?xt=urn:btih:BA516BA223D9AA0A36BA44C385EC47E6F9CD9B50
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136563.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136563.jpgsave_picture_136563.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Encased: A Sci-Fi Post-Apocalyptic RPG (2019) [Ru/En] (0.20.1222.1605/dlc) Repac
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136564.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136564.jpgsave_picture_136564.jpg" />
 </div>
 
 
@@ -291,7 +291,7 @@ magnet:?xt=urn:btih:47A5715719416EC1F9DBE81FEBA2EC9B4436E2EB
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136565.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136565.jpgsave_picture_136565.jpg" />
 </div>
 
 
@@ -315,7 +315,7 @@ magnet:?xt=urn:btih:D6239D7665A988AF735DEF13B45BECBF5170433C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136566.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136566.jpgsave_picture_136566.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ magnet:?xt=urn:btih:93E45B7167541F0A7677CB8E932C269A72AE3D9A
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136567.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136567.jpgsave_picture_136567.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ magnet:?xt=urn:btih:1F9DB2BB258F93D09A57B0780688A07A58102A49
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136568.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136568.jpgsave_picture_136568.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ Need for Speed: Heat Deluxe Edition (2019) [PS4] [EUR] 5.05 [HEN] [License / 1.0
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136569.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136569.jpgsave_picture_136569.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ magnet:?xt=urn:btih:AA02798359EB35B2FF69511F65250E53103DE8A7
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136570.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136570.jpgsave_picture_136570.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ magnet:?xt=urn:btih:D3EEF6B08EE3F804DA6CDAABE7FB76A0F69522F6
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136571.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136571.jpgsave_picture_136571.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ magnet:?xt=urn:btih:3A5827EB03BBAA3651C6170516E53BDC5C3A97C1
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136572.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136572.jpgsave_picture_136572.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ magnet:?xt=urn:btih:05F89DA24AC44DF773910CA917F81BB680161021
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136573.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136573.jpgsave_picture_136573.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ AOMEI Partition Assistant Technician Edition 9.1.0 [DC 31.12.2020] RePack by Kpo
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136574.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136574.jpgsave_picture_136574.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ magnet:?xt=urn:btih:008D9D16EBEBC1EBB7DC576313648D1B1E636419
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136575.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136575.jpgsave_picture_136575.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Munou na Nana | Talentless Nana | Бездарная Нана [2020, TV, 13 эп
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136576.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136576.jpgsave_picture_136576.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ magnet:?xt=urn:btih:30C509B43A9A38EB2B029D15B3861342AE65841C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136577.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136577.jpgsave_picture_136577.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ magnet:?xt=urn:btih:DE05A191582FA814E8C87FD2CA96C22771043A29
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136578.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136578.jpgsave_picture_136578.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ R-Studio Network Edition 8.15 Build 180125 RePack (& portable) by KpoJIuK [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136579.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136579.jpgsave_picture_136579.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Hinder - Welcome To The Freakshow (2012) [MP3|320 кб/с]<alternative rock, pos
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134160.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134160.jpgsave_picture_134160.jpg" />
 </div>
 
 
@@ -39,7 +39,7 @@ WinTools.net 23.12.1 Classic / Professional / Premium RePack (& Portable) by Try
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134161.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134161.jpgsave_picture_134161.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ magnet:?xt=urn:btih:15A38DA2E8FB4165A0F71CFA9975BB8E915729EC
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134163.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134163.jpgsave_picture_134163.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:39208F0270B241DF1F66E4439C7AFCB478ED7740
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134164.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134164.jpgsave_picture_134164.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ magnet:?xt=urn:btih:B2DF510DE9A76D73F0C376840352C5B6F79FAC3E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134165.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134165.jpgsave_picture_134165.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ Level 1 Dakedo Unique Skill de Saikyou Desu | My Unique Skill Makes Me OP Even a
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134167.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134167.jpgsave_picture_134167.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:7C9AAE707430F5B9ADD2A041F7D0D52B7DA23A22
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134168.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134168.jpgsave_picture_134168.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:06F3B2DB5AD9C12E7C185C6A2699C77850FCBB32
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134169.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134169.jpgsave_picture_134169.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ Light Image Resizer 4.3.4.2 + by PortableAppZ [Multi(Rus)]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134170.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134170.jpgsave_picture_134170.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ James Reinders, Ben Ashbaugh | Data Parallel C++, 2nd Edition (2023) [PDF, EPUB]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134171.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134171.jpgsave_picture_134171.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ magnet:?xt=urn:btih:5800FE1F66D6348AD99868F0E0873B4B301CD02D
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134172.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134172.jpgsave_picture_134172.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ magnet:?xt=urn:btih:3AB3B06D22984F6F047AAA1AD228CF1B021D9BB8
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134173.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134173.jpgsave_picture_134173.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ magnet:?xt=urn:btih:FC7F58672C26DA4204A6BBFBA6937D9C2E23E04C
 >>История
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134175.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134175.jpgsave_picture_134175.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ Chromium-Gost 119.0.6045.159 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134177.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134177.jpgsave_picture_134177.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ VA - Twenties Rock Fifty Bangers (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134179.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134179.jpgsave_picture_134179.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ magnet:?xt=urn:btih:D3171C566643114041F12FB69712DAA424FF292F
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134180.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134180.jpgsave_picture_134180.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ Infected Mushroom - Part of the Dream (2023) [MP3|320 Kbps] <Psy-Trance, Electro
 >>Psychedelic, psytrance, fullon
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134181.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134181.jpgsave_picture_134181.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ magnet:?xt=urn:btih:1BA346AB53615DDBB44B215689F369BB291CA7B0
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134182.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134182.jpgsave_picture_134182.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ magnet:?xt=urn:btih:543DB51AF060925FA8B95DB86F90443C5AA4BF5D
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134183.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134183.jpgsave_picture_134183.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ magnet:?xt=urn:btih:41D924C5C690904922CCCCAB228421FAC219B561
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134184.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134184.jpgsave_picture_134184.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ VA - Chillout For Peace Of Mind (2023) [MP3|320 Kbps] <Chillout, Lounge, Relaxin
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134185.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134185.jpgsave_picture_134185.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ BitComet 2.05 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134186.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134186.jpgsave_picture_134186.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ HQ Wallpapers for a desktop (24.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134187.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134187.jpgsave_picture_134187.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ magnet:?xt=urn:btih:1F45ADC7F2B148AAC4DB966FDE007CDFEE63B247
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134189.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134189.jpgsave_picture_134189.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Computer Desktop Wallpapers Collection (25.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134192.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134192.jpgsave_picture_134192.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ magnet:?xt=urn:btih:0B5AF0937FC293867507C77B91EAFBDBABD6384D
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134193.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134193.jpgsave_picture_134193.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Façade (Facade) & Locus Amoenus - (2018) Split [FLAC|Lossless|image + .cue] <Do
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_180948.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_180948.jpgsave_picture_180948.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ David Knopfler - Skating On The Lake (2022) [FLAC|Lossless|WEB-DL|tracks] <Rock,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180960.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180960.jpgsave_picture_180960.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:67AE5F36C7E1774888B17B046C392491F4B0E17C
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180973.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180973.jpgsave_picture_180973.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:7BCEDBDBFB60004E6EF5733373FEA5BBCFE271F7
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181016.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181016.jpgsave_picture_181016.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ magnet:?xt=urn:btih:478FA6D25EE63099868322406A24520586B9E82F
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181041.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181041.jpgsave_picture_181041.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ magnet:?xt=urn:btih:E60BB8C562F72919A6E7FFD35B118C43EC9A03F3
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181061.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181061.jpgsave_picture_181061.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ The Cure - Wish (1992) 30th Anniversary Edition - Remastered, 2022, Fiction Reco
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181062.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181062.jpgsave_picture_181062.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Asia - Astra (1985) Japanese Edition, Reissue, 2022, Universal [FLAC|Lossless|im
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181096.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181096.jpgsave_picture_181096.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Asia - Then & Now (1990) Japanese Edition, Reissue, 2022, Universal [FLAC|Lossle
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181126.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181126.jpgsave_picture_181126.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Elder - Innate Passage (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Psych, Stoner
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181139.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181139.jpgsave_picture_181139.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Tom Petty And The Heartbreakers - Live at the Fillmore (1997) Deluxe Edition, 20
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181141.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181141.jpgsave_picture_181141.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Bad Sister - 2 Albums (2009-2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181159.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181159.jpgsave_picture_181159.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Leather - We Are The Chosen (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181165.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181165.jpgsave_picture_181165.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ SpiritWorld - Deathwestern (2022) [FLAC|Lossless|WEB-DL|tracks] <Death Metal, Th
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181177.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181177.jpgsave_picture_181177.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Skarlett Roxx - Skarlett's Web (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181179.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181179.jpgsave_picture_181179.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ In the Woods... - Diversum (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181189.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181189.jpgsave_picture_181189.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Jordsjo - Jord Sessions (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181197.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181197.jpgsave_picture_181197.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Burnt Out Wreck - Stand and Fight (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Roc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181201.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181201.jpgsave_picture_181201.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Gods of Ancient - Historia Mali et Lucis (2022) [FLAC|Lossless|WEB-DL|tracks] <D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181206.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181206.jpgsave_picture_181206.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ WITCHROT - Live In The Hammer (2022) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181213.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181213.jpgsave_picture_181213.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Judicator - The Majesty Of Decay (2022) [FLAC|Lossless|WEB-DL|tracks] <Power Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181217.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181217.jpgsave_picture_181217.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Ciminero - Shadows Digging the Grave (2022) [FLAC|Lossless|WEB-DL|tracks] <Doom 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181223.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181223.jpgsave_picture_181223.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Sword - III (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181225.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181225.jpgsave_picture_181225.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ LVA - Ας αρχισει η τελετη (2020) [FLAC|Lossless|WEB-DL|tracks] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181245.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181245.jpgsave_picture_181245.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Slade - 70's Hits (2023) [MP3|320 Kbps] <Rock, Glam Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181311.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181311.jpgsave_picture_181311.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Till Lindemann - Zunge (2023) Single [MP3|320 Kbps] <Industrial metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181314.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181314.jpgsave_picture_181314.jpg" />
 </div>
 
 

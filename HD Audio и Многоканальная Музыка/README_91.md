@@ -6,7 +6,7 @@ Vendetta - Geetroit Wolves (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy R
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71966.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71966.jpgsave_picture_71966.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:57D15B6AA73452AB2F6868C986C8EA312BC0BE2C
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77439.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77439.jpgsave_picture_77439.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:BC4A9FA24BB4C818CD26C35ADF767FE609435E84
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77641.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77641.jpgsave_picture_77641.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ Ennio Morricone - Live in Venice (2007) Upmix [DTS 5.1|44.1/24 WAVE|tracks] <Ins
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83197.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83197.jpgsave_picture_83197.jpg" />
 </div>
 
 
@@ -117,7 +117,7 @@ Esperanza Spalding - Radio Music Society (2012) [FLAC 2.0 24/96|tracks (WEB-DL)]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84364.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84364.jpgsave_picture_84364.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Europe - The Final Countdown (1986)  [APE 2.0 24/48 | tracks (VinylRip)]<hard ro
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85522.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85522.jpgsave_picture_85522.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ VA - Lonely Shepherd (2001) [DTS 5.1 | image (Upmix)]<Instrumental, Classical>
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85626.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85626.jpgsave_picture_85626.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Scorpions - 2 альбома (1974-1975)  [FLAC 2.0 24/192 | tracks (VinylRip)]<
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87423.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87423.jpgsave_picture_87423.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:2CB315CD2F2FB1839040EE4CCCCAD22B83C2C343
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88403.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88403.jpgsave_picture_88403.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ magnet:?xt=urn:btih:E14E85105F90560DED479EC47FD0AEE807526CF9
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88635.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88635.jpgsave_picture_88635.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ Red Hot Chili Peppers – Californication (1999) [FLAC 2.0 24/192 | image (Vinyl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88881.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88881.jpgsave_picture_88881.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ Wednesday - Bleeds (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91155.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91155.jpgsave_picture_91155.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ Kylie Minogue - Tension Tour Live 2025 (2025) [FLAC 24/48|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91156.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91156.jpgsave_picture_91156.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ Sleazy Sweet - Sleazy Party (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Glam Met
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91157.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91157.jpgsave_picture_91157.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ Elisabeth Elektra - Hypersigil (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Syn
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91158.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91158.jpgsave_picture_91158.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ magnet:?xt=urn:btih:82981C5124CACCCCBB38EC0E497664D4ACACCE95
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91159.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91159.jpgsave_picture_91159.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Warren Haynes - Tales of Ordinary Madness (Remix 2025) (1993) [FLAC 24/96|Lossle
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91282.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91282.jpgsave_picture_91282.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Till Lindemann - Zunge 2025 (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Indust
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91286.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91286.jpgsave_picture_91286.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ Aphex Twin - Surfing On Sine Waves (1993) Expanded Edition, 2025, Warp Records [
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91287.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91287.jpgsave_picture_91287.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ magnet:?xt=urn:btih:77B9822268D120332DCC7F8679087F06B1932A26
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91288.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91288.jpgsave_picture_91288.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ Skid Row - Studio Albums (8 releases) (1989-2022) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94694.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94694.jpgsave_picture_94694.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Hypocrisy (Peter Tagtgren) - Studio Albums (19 releases) (1992-2025) hand made [
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94726.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94726.jpgsave_picture_94726.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ Carter Faith - Cherry Valley (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Pop>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98589.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98589.jpgsave_picture_98589.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ Lemongrass - Journey Backwards (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Lou
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98591.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98591.jpgsave_picture_98591.jpg" />
 </div>
 
 
@@ -685,7 +685,7 @@ Taylor Swift - The Life of a Showgirl (2025) [FLAC 24/48|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98593.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98593.jpgsave_picture_98593.jpg" />
 </div>
 
 
@@ -712,7 +712,7 @@ Lola Young - I’m Only F**king Myself (2025) [FLAC 24/48|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98601.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98601.jpgsave_picture_98601.jpg" />
 </div>
 
 

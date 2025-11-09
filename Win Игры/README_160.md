@@ -6,7 +6,7 @@ CYGNI: All Guns Blazing (2024) [Ru/Multi] (1.01) Scene Rune
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47285.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47285.jpgsave_picture_47285.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ MARS 2120 (2022) [Multi] (1.0.2) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47289.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47289.jpgsave_picture_47289.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ VLADiK BRUTAL (2024) [Ru/Multi] (Build 15319585) Scene Doge
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47311.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47311.jpgsave_picture_47311.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Zombie Police: Christmas Dancing with Police Zombies (2024) [Multi] (1.0) Scene 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47359.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47359.jpgsave_picture_47359.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ PIGROMANCE (2022) [Multi] (1.0.1) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47360.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47360.jpgsave_picture_47360.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Mystical Riddles 5: Haunted Portraits / Мистические загадки 5:
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47370.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47370.jpgsave_picture_47370.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Thalassa: Edge of the Abyss (2024) [Ru/Multi] (1.0.0-012215) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47388.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47388.jpgsave_picture_47388.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Arranger: A Role-Puzzling Adventure (2024) [Multi] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47395.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47395.jpgsave_picture_47395.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ STAR WARS: Bounty Hunter (2024) [Ru/Multi] (Build 15125379) Repack FitGirl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47414.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47414.jpgsave_picture_47414.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ MeteoHeroes (2022) [Multi] (1.0) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47428.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47428.jpgsave_picture_47428.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Kanon (2024) [Multi] (1.2.0.3) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47460.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47460.jpgsave_picture_47460.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Tour de France 2024 (2024) [Multi] (1.7.2.924/dlc) Scene Rune
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47462.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47462.jpgsave_picture_47462.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ World of Goo (2008) [Ru/Multi] (1.53a) Repack dixen18
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47466.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47466.jpgsave_picture_47466.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ The Troop (2023) [Multi] (Build 15201092) Scene Tenoke
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47488.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47488.jpgsave_picture_47488.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Bee Island (2023) [Ru/Multi] (20240805) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47493.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47493.jpgsave_picture_47493.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Motordoom (2024) [Ru/Multi] (Build 15256500) Scene TiNYiSO
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47499.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47499.jpgsave_picture_47499.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Highrise City (2022) [Multi] (2.0/dlc) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47504.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47504.jpgsave_picture_47504.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Contraband Police (2023) [Ru/Multi] (1.0.5.0) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47505.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47505.jpgsave_picture_47505.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Dakar Desert Rally (2022) [Multi] (2.3.0/dlc) Scene Rune
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47508.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47508.jpgsave_picture_47508.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ The Callisto Protocol (2022) [Ru/Multi] (14745831/dlc) Repack Decepticon [Digita
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47511.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47511.jpgsave_picture_47511.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Nine Noir Lives (2022) [Multi] (1.0.3.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47512.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47512.jpgsave_picture_47512.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Age of Empires IV (4) (2021) [Ru/Multi] (11.0.0782.0/dlc) Repack dixen18 [Annive
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47517.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47517.jpgsave_picture_47517.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Cursed Bet (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47538.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47538.jpgsave_picture_47538.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ SCHiM (2024) [Ru/Multi] (1.0.3.a) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47548.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47548.jpgsave_picture_47548.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Etera (2024) [En] (1.0.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47549.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47549.jpgsave_picture_47549.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Conscript (2024) [Ru/Multi] (1.0.0.2/dlc) Repack FitGirl [Officer Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47559.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47559.jpgsave_picture_47559.jpg" />
 </div>
 
 

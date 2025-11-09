@@ -6,7 +6,7 @@
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6370.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6370.jpgsave_picture_6370.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:6D26EAFBAD78C1E70ACF6C3DA92AA4A90A3A8F0F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6371.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6371.jpgsave_picture_6371.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:9CC4469A09B68A4A22C31047311F6C6AD922F2A8
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6372.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6372.jpgsave_picture_6372.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:58273C92525BD10C4086C005183AEBECD2738169
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6373.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6373.jpgsave_picture_6373.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:E0D10CB25076FFD6B75D7189947AA5EF431A06B6
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6374.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6374.jpgsave_picture_6374.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:BDF2462CF1F91FB019F4F2404C0BE19AF20A7B6E
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6375.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6375.jpgsave_picture_6375.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Adobe Photoshop 2025 26.10.0.7 RePack by KpoJIuK [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6376.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6376.jpgsave_picture_6376.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ JDM: Japanese Drift Master (2025) [Ru/Multi] (1.1.40.1) Repack Let'sРlay
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6377.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6377.jpgsave_picture_6377.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:E8C07EF92E1D6BEEFBFC15D9D8B2BEC339225200
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6378.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6378.jpgsave_picture_6378.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ AI Limit (2025) [Ru/Multi] (1.1.001/dlc) Repack Let'sРlay [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6379.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6379.jpgsave_picture_6379.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Last Epoch (2024) [Ru/Multi] (1.3) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6380.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6380.jpgsave_picture_6380.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Van Halen - 12 Studio Albums, 3 Live, 2 Compilation, 8 EPs, Singles, 3 Box Set (
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6381.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6381.jpgsave_picture_6381.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:74B2A3E10E18727639556B46031C18EA58729CA4
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6382.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6382.jpgsave_picture_6382.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ magnet:?xt=urn:btih:EDEE50780BEE363E43023E7F3B24A1392F05E955
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6383.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6383.jpgsave_picture_6383.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ magnet:?xt=urn:btih:DD434655419596561C90274B88464B3042662EEA
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6385.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6385.jpgsave_picture_6385.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ magnet:?xt=urn:btih:DD434655419596561C90274B88464B3042662EEA
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6386.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6386.jpgsave_picture_6386.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ magnet:?xt=urn:btih:7EE63504D50F23A4B67F7883D18DBBDAF07865CF
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6387.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6387.jpgsave_picture_6387.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ magnet:?xt=urn:btih:51109CB77EFBFA7C471160EA768354FB4F861645
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6388.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6388.jpgsave_picture_6388.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ magnet:?xt=urn:btih:C358E54C6ADB0B3AEEAF9BDA9FB935B9A704D3B4
 >>Отечественные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6389.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6389.jpgsave_picture_6389.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ magnet:?xt=urn:btih:6FDEAD99B1854E32A39AE0B2BAA491A86190FF50
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6390.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6390.jpgsave_picture_6390.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ VoWiFi позволяет совершать и принимать голосо�
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6391.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6391.jpgsave_picture_6391.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ Meshuggah - Immutable (2022) Reissue, Remastered, 2024, Reigning Phoenix Music [
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6392.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6392.jpgsave_picture_6392.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ magnet:?xt=urn:btih:6ECCA02B7FE9E9D2AD6A8295249319EA9C7EE805
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6393.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6393.jpgsave_picture_6393.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Patristic - Catechesis (2025) [FLAC|Lossless|image + .cue] <Black Metal, Death M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6394.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6394.jpgsave_picture_6394.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ magnet:?xt=urn:btih:D6772C69B2ABA22C87925FC11E72FBC4DBC7585B
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6395.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6395.jpgsave_picture_6395.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ Jack The Joker - The Devil To Pay In The Backlands (2025) [FLAC 24/96|Lossless|W
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6396.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6396.jpgsave_picture_6396.jpg" />
 </div>
 
 

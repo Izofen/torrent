@@ -6,7 +6,7 @@ Blackwind (2022) [Multi] (1.0.1.0) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129893.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129893.jpgsave_picture_129893.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:42D9646900CCE7656C53F7663B213AE47C676606
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129894.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129894.jpgsave_picture_129894.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:3B8C133631D1021B466F02C6ECC67B273C7A7D02
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129895.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129895.jpgsave_picture_129895.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Soul Browser v1.2.93 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129896.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129896.jpgsave_picture_129896.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Kaspersky Security Cloud 21.3.10.391 (f) Repack by LcHNextGen (17.01.2022) [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129897.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129897.jpgsave_picture_129897.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ magnet:?xt=urn:btih:E49356A7AB188F85B3DC06A8CB3C542EF5007B96
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129898.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129898.jpgsave_picture_129898.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ VA - Dance The Annual 2024 (2023) [MP3|320 Kbps] <Dance, Club, House, Electronic
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129899.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129899.jpgsave_picture_129899.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ magnet:?xt=urn:btih:8EB25CE998002C7563EC118978DEB4AD5971ED5D
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129901.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129901.jpgsave_picture_129901.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ magnet:?xt=urn:btih:CA4D6F6179805C52555EFA41FCEBA43AC0124544
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129902.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129902.jpgsave_picture_129902.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ magnet:?xt=urn:btih:BFEDE110D6BC35FC6E68BE50904D4133BA9B104E
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129905.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129905.jpgsave_picture_129905.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ magnet:?xt=urn:btih:A13B8AFA15073B69DAF5D10D13A65A33D4CBB60C
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129906.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129906.jpgsave_picture_129906.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ magnet:?xt=urn:btih:4B044351DE694BB81185BEB96278F51105EA5DC6
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129907.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129907.jpgsave_picture_129907.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:C7E32C8907C6E75E1FB81AFAF1F3B39A79C6113A
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129908.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129908.jpgsave_picture_129908.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:BBD626B4DC99A3B608C2527617BD50A7034E301A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129909.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129909.jpgsave_picture_129909.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Kylie Minogue - Extension (2023) The Extended Mixes [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129911.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129911.jpgsave_picture_129911.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ magnet:?xt=urn:btih:5D5A25312A6C5E1AE98A97CABC1713BA464492B8
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129912.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129912.jpgsave_picture_129912.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Hanging Doll - The Sacred and Profane (2012) [MP3|320 кб/с]<Symphonic / Dark 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129914.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129914.jpgsave_picture_129914.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ magnet:?xt=urn:btih:43F3380D92606279C26AF82E6CFEA0D011D5C3D1
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129915.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129915.jpgsave_picture_129915.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ VA - Top Club Hits Vol.2 (2012) [MP3|320 кб/с]<Dance, Club>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129919.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129919.jpgsave_picture_129919.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ VA - Танцевальная Сенсация Русский выпуск (2012
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129921.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129921.jpgsave_picture_129921.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ magnet:?xt=urn:btih:73275F1E5B67932D34F26A535313312AF12B1250
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129922.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129922.jpgsave_picture_129922.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ VA - Anjunabeats Worldwide04 mixed by Maor Levi & Nitrous Oxide (2012) [MP3|~245
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129923.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129923.jpgsave_picture_129923.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ VA - Music News vol.322 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129924.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129924.jpgsave_picture_129924.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Einherjer - Norron (2011) [MP3|320 кб/с]<Viking Metal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129925.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129925.jpgsave_picture_129925.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ Duran Duran - A Hollywood High: Live In Los Angeles (2022) BDRip [H.265/1080p] [
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129926.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129926.jpgsave_picture_129926.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ magnet:?xt=urn:btih:985A845DF4FB92260AB545145B758E34F3F7BA6B
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129928.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129928.jpgsave_picture_129928.jpg" />
 </div>
 
 

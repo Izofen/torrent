@@ -6,7 +6,7 @@ Airtool 2 v2.3.4 [En]
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129483.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129483.jpgsave_picture_129483.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Airtool 2 v2.3.4 [En]
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129484.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129484.jpgsave_picture_129484.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Absolva - Side By Side (2020) [FLAC|Lossless|tracks + .cue] <Heavy Metal>
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129485.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129485.jpgsave_picture_129485.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ Absolva - Side By Side (2020) [FLAC|Lossless|tracks + .cue] <Heavy Metal>
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129486.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129486.jpgsave_picture_129486.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ PaintCode 3 v3.5.3 [En]
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129487.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129487.jpgsave_picture_129487.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ PaintCode 3 v3.5.3 [En]
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129488.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129488.jpgsave_picture_129488.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ NETGATE Registry Cleaner 3.0.805.0 Portable x32/x64 [Многоязычный + 
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129489.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129489.jpgsave_picture_129489.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - Colours of Lounge, Vol. 2 (2022) [AAC|~324 Kbps] <Chill Out, Lounge, Downte
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129490.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129490.jpgsave_picture_129490.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ Mirror for Beko TV 3.5.3 [Multi]
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129492.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129492.jpgsave_picture_129492.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ VA - Stil vor Talent 300, Pt. 3 (2021) [AAC|~326 Kbps] <Melodic House, Progressi
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129494.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129494.jpgsave_picture_129494.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ VA - Reggaeton Nocturno, Vol. 3 (2022) [AAC|~309 Kbps] <Reggae, Dancehall>
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129496.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129496.jpgsave_picture_129496.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ Mirror for TCL TV 3.7.3 [En]
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129498.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129498.jpgsave_picture_129498.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ Pieno Lazeriai (Milky Laser) - Voyage (2005) [APE|Lossless]<Acid Jazz, Downtempo
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129499.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129499.jpgsave_picture_129499.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ FastScripts 3.0.6 [En]
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129500.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129500.jpgsave_picture_129500.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ Cisdem AppCrypt 6.6.0 [En]
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129501.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129501.jpgsave_picture_129501.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ Cisdem AppCrypt  - несложная  утилита, которая дает �
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129502.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129502.jpgsave_picture_129502.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ App Tamer 2 v2.6.5 [En]
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129503.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129503.jpgsave_picture_129503.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ App Tamer 2 v2.6.5 [En]
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129504.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129504.jpgsave_picture_129504.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ VA - Ibiza Chillout (2022) [AAC|~295 Kbps] <Lounge, Chill Out, Downtempo>
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129505.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129505.jpgsave_picture_129505.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ VA - My Electronic Kitchen, Vol. 4 (2018) [AAC|~314 Kbps] <Lounge, Chill Out, Do
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129508.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129508.jpgsave_picture_129508.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ VA - Enhanced Recordings 100 (2011) Mixed By Will Holland /2CD/ [FLAC|Lossless]<
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129509.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129509.jpgsave_picture_129509.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ File List Export 2.7.1 [En]
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129510.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129510.jpgsave_picture_129510.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ VA - Reggaeton Nocturno, Vol. 2 (2022) [AAC|~315 Kbps] <Reggae, Dancehall>
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129512.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129512.jpgsave_picture_129512.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ VA - Reggaeton World, Vol. 4 (2022) [AAC|~309 Kbps] <Reggae, Dancehall>
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129513.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129513.jpgsave_picture_129513.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Guenter Haas - Famous People (2020) [AAC|~335 Kbps] <Lounge, Chill Out, Downtemp
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129515.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129515.jpgsave_picture_129515.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ VA - Reggaeton World, Vol. 5 (2022) [AAC|~315 Kbps] <Reggae, Dancehall>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129518.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129518.jpgsave_picture_129518.jpg" />
 </div>
 
 

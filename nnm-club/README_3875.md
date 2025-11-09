@@ -6,7 +6,7 @@
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121179.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121179.jpgsave_picture_121179.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Photomator for Mac 3.2.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121180.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121180.jpgsave_picture_121180.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Topaz Gigapixel AI 7.0.0 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121181.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121181.jpgsave_picture_121181.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Topaz Gigapixel AI 7.0.1 Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121182.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121182.jpgsave_picture_121182.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Google Chrome 121.0.6167.86 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121183.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121183.jpgsave_picture_121183.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Slimjet 42.0.3.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121184.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121184.jpgsave_picture_121184.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ macOS 13 Ventura 13.6.4 (Installer) [Multi/Ru]
 >>macOS (Apple)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121185.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121185.jpgsave_picture_121185.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:C134DCD90E3B72A3D103227FF39A3D1D6DDAD504
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121186.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121186.jpgsave_picture_121186.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ Carista OBD2 v8.2.2 Mod by Timozhai [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121187.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121187.jpgsave_picture_121187.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Apex Heroines (2024) [Multi] (1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121188.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121188.jpgsave_picture_121188.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Topaz Gigapixel AI 7.0.1 RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121189.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121189.jpgsave_picture_121189.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ magnet:?xt=urn:btih:EF2689CEAEDF36D60FE2B154EF1AFB3B6B0A6A57
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121191.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121191.jpgsave_picture_121191.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Topaz Video AI 4.1.1 (x64) Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121192.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121192.jpgsave_picture_121192.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ magnet:?xt=urn:btih:59DC118DCE29010ED2C3B49FE4CF8A6885658515
 >>Зарубежные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121193.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121193.jpgsave_picture_121193.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ NVIDIA GeForce Desktop Game Ready 551.23 WHQL + DCH [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121194.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121194.jpgsave_picture_121194.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ magnet:?xt=urn:btih:2EF3435E06DC94F9B188336A859A6E66D9BC9DA6
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121195.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121195.jpgsave_picture_121195.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ magnet:?xt=urn:btih:5D032A8D70924B74F618E5F9A1B454EE99128610
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121196.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121196.jpgsave_picture_121196.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ magnet:?xt=urn:btih:DCD4C0F3D12FF1B01F1674582ECE6405B60F242C
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121197.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121197.jpgsave_picture_121197.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ Suzume no Tojimari | Судзумэ закрывает двери [2022, Movie] 
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121198.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121198.jpgsave_picture_121198.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ MacroDroid v 5.40.4 Pro/Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121200.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121200.jpgsave_picture_121200.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ magnet:?xt=urn:btih:0902B5DE1865AD68C2FE99E19C85C3953302A33B
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121201.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121201.jpgsave_picture_121201.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ PDF-XChange Editor Plus 10.2.1.385 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121202.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121202.jpgsave_picture_121202.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ magnet:?xt=urn:btih:978385729CBF4F398C3BF79D3615A4E97FBE3E0D
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121203.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121203.jpgsave_picture_121203.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ magnet:?xt=urn:btih:F9D94A5C58C25076DC1DA7605D46AC798D4551C2
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121204.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121204.jpgsave_picture_121204.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ magnet:?xt=urn:btih:7662238A4AC1130352B32AC1D141E7FCB2A29666
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121205.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121205.jpgsave_picture_121205.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ magnet:?xt=urn:btih:565D6F43FAD476310D7BCF9B2130DC12BCA212F8
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121206.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121206.jpgsave_picture_121206.jpg" />
 </div>
 
 

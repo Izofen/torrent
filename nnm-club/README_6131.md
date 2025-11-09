@@ -6,7 +6,7 @@ Demoniac - Nube Negra (2023) [FLAC|Lossless|WEB-DL|tracks] <Blackened Thrash Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192782.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192782.jpgsave_picture_192782.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Spiral Shades - Revival (2023) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal, Heavy 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192783.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192783.jpgsave_picture_192783.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:C9C9537A0359B318167FEC38A8D5DF78A37D8A49
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192784.jpgsave_picture_192784.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ ArtStation, Daniel Peres | Creating Vegetation for Games (2022) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192785.jpgsave_picture_192785.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Celestial Sanctuary - Insatiable Thirst for Torment (2023) [FLAC|Lossless|WEB-DL
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192786.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192786.jpgsave_picture_192786.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Ricky Loud - Kaming Out (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192787.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192787.jpgsave_picture_192787.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ magnet:?xt=urn:btih:104C83BE4A21EEDF282D72B0348E87BC23570FB5
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192788.jpgsave_picture_192788.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ magnet:?xt=urn:btih:DFEA97FF899B2EF370A9B020B7E1FD647D843860
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192789.jpgsave_picture_192789.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ magnet:?xt=urn:btih:A605D6D95DCA3CFFEC37D2DD96B78E7D84426D0D
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192790.jpgsave_picture_192790.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ magnet:?xt=urn:btih:97865BD50127FE95079B5074B76D9DEA0F1D51D9
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192791.jpgsave_picture_192791.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ magnet:?xt=urn:btih:2BA6A9CC3468B5985AEDFCF098B186BCFADC56F0
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192792.jpgsave_picture_192792.jpg" />
 </div>
 
 
@@ -289,7 +289,7 @@ magnet:?xt=urn:btih:5A76EE74800EF376B2DEB6D4919C0B9E86C73D93
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192793.jpgsave_picture_192793.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ magnet:?xt=urn:btih:B5A4073793DA3B567C6864ACD963316982993071
 >>КВН
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192794.jpgsave_picture_192794.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ Eyes of the Oak - The Stone Vortex (2023) [FLAC|Lossless|WEB-DL|tracks] <Stoner,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192795.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192795.jpgsave_picture_192795.jpg" />
 </div>
 
 
@@ -364,7 +364,7 @@ magnet:?xt=urn:btih:23950F9735B4432D265825DA06E158DFCCD457BE
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192796.jpgsave_picture_192796.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ Till The Dirt - Outside The Spiral (2023) [FLAC|Lossless|WEB-DL|tracks] <Death M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192797.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192797.jpgsave_picture_192797.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ Vortex Unit - The Bringer of Sun (2020) [FLAC|Lossless|WEB-DL|tracks] <Black, De
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192798.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192798.jpgsave_picture_192798.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Pearls and Flames - Reliance (2022) [FLAC|Lossless|image + .cue] <Melodic Rock, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192799.jpgsave_picture_192799.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ magnet:?xt=urn:btih:5F9913670450F78BAA802AA49201E2C6D0FAF1D6
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192800.jpgsave_picture_192800.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ magnet:?xt=urn:btih:D0FA08B7BA40DFE41BD28C5EA010319FA92F769E
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192801.jpgsave_picture_192801.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:9EC94E7F0C1946C669453BD342A8F6E2A41C81DB
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192802.jpgsave_picture_192802.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ magnet:?xt=urn:btih:BCE5163D8B9BC2067AEFD78041F8049C6E495CAB
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192803.jpgsave_picture_192803.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ magnet:?xt=urn:btih:C69DD9E24E5FD7E70D4AE3520CACABFFA90740AD
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192804.jpgsave_picture_192804.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ magnet:?xt=urn:btih:8CD5F1E9F482A7EC9AA740B263C2A3DADFAF4657
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192805.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192805.jpgsave_picture_192805.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ magnet:?xt=urn:btih:477BD21C9C24A03C3CB6C2CD30D29B416B3816C0
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192806.jpgsave_picture_192806.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ magnet:?xt=urn:btih:59B558AA23154855F5AF99D68870AC695E9E2C17
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192807.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192807.jpgsave_picture_192807.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84350.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84350.jpgsave_picture_84350.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:EE89826C5DECF37A46C84B9488ABFB31C1E2253B
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84353.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84353.jpgsave_picture_84353.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:4A3A0E72D8CE3D2246418B860BFFE9707A364135
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84355.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84355.jpgsave_picture_84355.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:32079E6395317BEEDC37560088BC6C2ACDD4394E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84356.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84356.jpgsave_picture_84356.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:B6F997946A8A4C6587152263C6291262497571F2
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84358.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84358.jpgsave_picture_84358.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ CyberLink PowerDVD Ultra 11.0.2608 RePack Lite by qazwsxe [Русский / Ан
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84359.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84359.jpgsave_picture_84359.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ CyberLink PowerDVD - один из самых лучших современны�
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84363.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84363.jpgsave_picture_84363.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ Esperanza Spalding - Radio Music Society (2012) [FLAC 2.0 24/96|tracks (WEB-DL)]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84364.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84364.jpgsave_picture_84364.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ VA - Armin van Buuren - A State Of Trance 2012 (2012) [FLAC|Lossless]<Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84366.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84366.jpgsave_picture_84366.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ CD 1 - On The Beach
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84368.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84368.jpgsave_picture_84368.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ magnet:?xt=urn:btih:DEFDEE28386B87B5CF619A5F91E10CFA3826DFA2
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84370.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84370.jpgsave_picture_84370.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ Sonic Academy - ANA 1.0.2.38 VSTi x86 x64 by ASSiGN [английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84371.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84371.jpgsave_picture_84371.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ Sonic Academy ANA - синтезатор, специально разработ�
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84372.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84372.jpgsave_picture_84372.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ AKB48 - 6 альбомов + 20 синглов (2006-2011) [MP3|320 kbps]<j-pop>
 >>Asian Pop
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84373.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84373.jpgsave_picture_84373.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ magnet:?xt=urn:btih:E4C0041D2C2599DFBE23CF69CCDF2ED39824EBCD
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84375.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84375.jpgsave_picture_84375.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ Autodesk AutoCAD Architecture 2013 (x64) (Английский)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84376.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84376.jpgsave_picture_84376.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ VA - I Love ZYX Italo Disco Collection Vol.1-13 (2002-2012) [MP3|320 кб/с]<Di
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84378.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84378.jpgsave_picture_84378.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ magnet:?xt=urn:btih:F05D74473EE1D4761D96D0C8667C00864590FDE2
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84379.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84379.jpgsave_picture_84379.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ magnet:?xt=urn:btih:40C53F23B2DE921392D615108C10D6A9AC2DA7CC
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84380.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84380.jpgsave_picture_84380.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ magnet:?xt=urn:btih:D4163D5D842844C8CF749FC0FA4B7124025AEE1F
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84381.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84381.jpgsave_picture_84381.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ magnet:?xt=urn:btih:D4163D5D842844C8CF749FC0FA4B7124025AEE1F
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84382.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84382.jpgsave_picture_84382.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ WinHelper 1.4.0 Portable [Русский]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84384.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84384.jpgsave_picture_84384.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Winhelper - выручит если вы столкнетесь с пробле�
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84386.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84386.jpgsave_picture_84386.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ magnet:?xt=urn:btih:1E1EEA3186B656DC6B20D00E8FADBC2212FBA638
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84387.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84387.jpgsave_picture_84387.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ magnet:?xt=urn:btih:1E1EEA3186B656DC6B20D00E8FADBC2212FBA638
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84388.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84388.jpgsave_picture_84388.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ Shinedown - Amaryllis (2012) [FLAC|Lossless]<Alternative Rock, Post-Grunge>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84389.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84389.jpgsave_picture_84389.jpg" />
 </div>
 
 

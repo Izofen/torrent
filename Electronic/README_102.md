@@ -6,7 +6,7 @@ VA - Myon Presents: 20 Years Of Anjunabeats (2020) DJ Mix [FLAC|Lossless|WEB-DL|
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154653.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154653.jpgsave_picture_154653.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ VA - Disco Christmas 2017 (2016) [MP3|320 Kbps] <Funky, Club House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154674.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154674.jpgsave_picture_154674.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ VA - Disco House 2k17 (2016) [MP3|320 Kbps] <Funky, Club House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154807.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154807.jpgsave_picture_154807.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Michael Cassette - Temporarity (2020) 10th Anniversary Deluxe Edition [FLAC|Loss
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154879.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154879.jpgsave_picture_154879.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ VA - Black Hole Recordings: Best Of 2017 (2017) [FLAC|Lossless|WEB-DL|tracks] <P
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155194.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155194.jpgsave_picture_155194.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Current Value - SENEX LP (2019) MethLab Recordings [FLAC|Lossless|WEB-DL|tracks]
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155433.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155433.jpgsave_picture_155433.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ VA - Chill Out 2018 Top 40 Hits (Yoga, Chill Dub, Ambient, EDM, Psychill, Trip H
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155467.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155467.jpgsave_picture_155467.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Interstellar Sequence - Out Of The Deeps (2017) [FLAC|Lossless|WEB-DL|tracks] <E
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155543.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155543.jpgsave_picture_155543.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ VA - Chill Out 2018 Top 40 Hits (2017) [FLAC|Lossless|WEB-DL|tracks] <Electronic
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155586.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155586.jpgsave_picture_155586.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Future Synth - Drone (2022) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Spacesynth,
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155650.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155650.jpgsave_picture_155650.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Lali Puna - Two Windows (2017) [FLAC|Lossless|tracks + .cue] <Electropop, Downte
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155721.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155721.jpgsave_picture_155721.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ VA - Hidden Paradise (2023) [MP3|320 Kbps] <Deep House, Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155730.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155730.jpgsave_picture_155730.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ VA - Silk Music Pres. Shingo Nakamura 02 (2017) [MP3|320 Kbps] <House, Progressi
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155750.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155750.jpgsave_picture_155750.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Trance Wax & Genix - Live @ Anjunakitchen London, United Kingdom 2019-12-13 [MP3
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155791.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155791.jpgsave_picture_155791.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ VA - Lounge Music 1.0 (2018) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Downtempo, C
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155817.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155817.jpgsave_picture_155817.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ VA - Alpine Grooves Easy Beats 1 (Kristallhutte) (2017) [FLAC|Lossless|WEB-DL|tr
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155827.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155827.jpgsave_picture_155827.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ Forma Tadre - Discography 4 Releases (1997-2017) Off Beat [FLAC|Lossless|tracks+
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155836.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155836.jpgsave_picture_155836.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Armada Music - Trance Year Mix (2021-12-18) [MP3|320 Kbps] <Trance>
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155848.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155848.jpgsave_picture_155848.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ The Dreamhouse Orkestra - Synthesizer Dreamhouse Greatest Vol. 1 (1997) [MP3|320
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155858.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155858.jpgsave_picture_155858.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Skye | Ross - Skye | Ross (2016) [FLAC|Lossless|tracks + .cue] <Trip Hop, Downte
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155874.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155874.jpgsave_picture_155874.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ VA - Inner Harmony Vol.1 (Find The Inner Peace With These Super Calm Electronic 
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155928.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155928.jpgsave_picture_155928.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ VA - Infrasonic: The Best Of 2018 (Mixed by Solis & Sean Truby) (2018) [MP3|320 
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155962.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155962.jpgsave_picture_155962.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ VA - Nick Warren - The Soundgarden - Volume One (2014) Hope Recordings [FLAC|Los
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155974.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155974.jpgsave_picture_155974.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ VA - Christmas & Chill, Vol. 2 (Have Yourself A Little Deep House Hangout) (2018
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155998.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155998.jpgsave_picture_155998.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ VA - Anjunabeats Volume 12 (Mixed by Above and Beyond) (2015) [MP3|320 кб/с] 
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156353.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156353.jpgsave_picture_156353.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ VA - Christmas Dance Party 2018-2019 (Best of Dance, House & Electro) (2018) [MP
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156408.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156408.jpgsave_picture_156408.jpg" />
 </div>
 
 

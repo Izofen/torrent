@@ -6,7 +6,7 @@
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43673.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43673.jpgsave_picture_43673.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Black Hole Trance Music 09-24 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43674.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43674.jpgsave_picture_43674.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Various Artists - 80s Radio Hits (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop/Rock>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43675.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43675.jpgsave_picture_43675.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:BA928CF13D61303458B5B6B729E37FFB207DBCE6
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43676.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43676.jpgsave_picture_43676.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Xenonauts: On The Edge / Ксенонавты: на грани (2015) [Ru] (4.0)
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43677.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43677.jpgsave_picture_43677.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ VA - 80's Disco Reworked (2024) [FLAC|Lossless|WEB-DL|tracks] <Euro Dance/Pop Da
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43678.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43678.jpgsave_picture_43678.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ magnet:?xt=urn:btih:755690ED875AD18BDA62D1A05B96D961F57D254F
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43679.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43679.jpgsave_picture_43679.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ magnet:?xt=urn:btih:A976ECD91C6413CA31EFAA81F20DA35268338C94
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43680.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43680.jpgsave_picture_43680.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ VA - Самые душевные песни русского шансона 2 (2
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43681.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43681.jpgsave_picture_43681.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ Text Edit Plus 14.7 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43682.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43682.jpgsave_picture_43682.jpg" />
 </div>
 
 
@@ -265,7 +265,7 @@ magnet:?xt=urn:btih:3493FB1B7B35AC14CC4537EECAB0AD5E2C99F77D
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43683.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43683.jpgsave_picture_43683.jpg" />
 </div>
 
 
@@ -289,7 +289,7 @@ magnet:?xt=urn:btih:D6332009AAA59008A7796E3B3D5D8212F636B6E7
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43684.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43684.jpgsave_picture_43684.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ VA - Summer Green Dancefloor (2024) [MP3|320 Kbps] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43685.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43685.jpgsave_picture_43685.jpg" />
 </div>
 
 
@@ -340,7 +340,7 @@ Calibre 7.18.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43686.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43686.jpgsave_picture_43686.jpg" />
 </div>
 
 
@@ -364,7 +364,7 @@ magnet:?xt=urn:btih:B0B9B61065146309AB438424CE2789CE5EE3B2A4
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43687.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43687.jpgsave_picture_43687.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ magnet:?xt=urn:btih:DF6A5C812362B76207FF5181C7927061E4D385FD
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43688.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43688.jpgsave_picture_43688.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ magnet:?xt=urn:btih:DF6A5C812362B76207FF5181C7927061E4D385FD
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43689.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43689.jpgsave_picture_43689.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ magnet:?xt=urn:btih:5E1B709CC60B1457A4A8ECC6A3EE03DD5D06B607
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43690.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43690.jpgsave_picture_43690.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ magnet:?xt=urn:btih:4444506D21B5EFBF4A831774260E3F801690B3B4
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43691.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43691.jpgsave_picture_43691.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ magnet:?xt=urn:btih:4444506D21B5EFBF4A831774260E3F801690B3B4
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43692.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43692.jpgsave_picture_43692.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Eminem - The Death of Slim Shady (Coup De Grace) (2024) Expanded Mourner’s Edi
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43693.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43693.jpgsave_picture_43693.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ VA - Hits of the 90s, 00s, 10s (2024) [MP3|320 Kbps] <Pop, Dance, Rock, RnB, Hip
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43694.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43694.jpgsave_picture_43694.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ magnet:?xt=urn:btih:4DFEB058BC1D68D91F2EF5D257AB51587AAE04E2
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43695.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43695.jpgsave_picture_43695.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ magnet:?xt=urn:btih:29B3D2ED900B1F3D96CFC75A06C47418FFFDF7D6
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43696.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43696.jpgsave_picture_43696.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Caravan SandWitch (2024) [Multi] (1.12.71.00/dlc) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43697.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43697.jpgsave_picture_43697.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Sunrise GP (2024) [Multi] (1.0) Scene Tenoke
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43698.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43698.jpgsave_picture_43698.jpg" />
 </div>
 
 

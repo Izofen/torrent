@@ -6,7 +6,7 @@
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115873.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115873.jpgsave_picture_115873.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:C08A55DB312460ABFD4173EE93EA1FFD3C0E2E5C
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115874.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115874.jpgsave_picture_115874.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Industrial Destruction - Indifference (2024) [FLAC 24/44.1|Lossless|WEB-DL|track
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115875.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115875.jpgsave_picture_115875.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ magnet:?xt=urn:btih:A9B14F9A3C7CFD3ED443783B2F657A9E97A050E6
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115876.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115876.jpgsave_picture_115876.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ magnet:?xt=urn:btih:CED2AC5EBD7478C9EDD1BE2929CC15A26DD26816
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115877.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115877.jpgsave_picture_115877.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Sexual Music Collection, Cuban Latin Collection - Erótica Nights: Sensual Latin
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115878.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115878.jpgsave_picture_115878.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ magnet:?xt=urn:btih:C1E9D39BE6A8D0EAFFC2B903A5BFFC5E48B0EA7C
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115879.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115879.jpgsave_picture_115879.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ magnet:?xt=urn:btih:7E9E8B118B01AB587E25B31CF6A5DDCC21CC2AA6
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115880.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115880.jpgsave_picture_115880.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Gekijouban Psycho-Pass: Providence | Психопаспорт: Провиден�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115881.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115881.jpgsave_picture_115881.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ magnet:?xt=urn:btih:18D202496F435F8F47B90E5DD220C520741467C2
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115882.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115882.jpgsave_picture_115882.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ WPS Office + PDF v18.7.3 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115883.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115883.jpgsave_picture_115883.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ magnet:?xt=urn:btih:642C1D52C49638E11A38F8145B3B54A817596E56
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115884.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115884.jpgsave_picture_115884.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ Tondemo Skill de Isekai Hourou Meshi | Campfire Cooking in Another World with My
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115885.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115885.jpgsave_picture_115885.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ Duplicate Files Search & Link (Duplicate Searcher) 10.4.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115886.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115886.jpgsave_picture_115886.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ magnet:?xt=urn:btih:5C70C88238D482F5304A119DAA5A8187A6B52F0B
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115887.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115887.jpgsave_picture_115887.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ TreeSize Professional 9.1.2.1873 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115888.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115888.jpgsave_picture_115888.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ OneCommander Pro 3.69.3.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115889.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115889.jpgsave_picture_115889.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ KiCad 7.0.11 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115890.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115890.jpgsave_picture_115890.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ VA - Music News vol.345 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115891.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115891.jpgsave_picture_115891.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ magnet:?xt=urn:btih:2E29B18510F800B252F18385FA6FA7AC646550B4
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115892.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115892.jpgsave_picture_115892.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ magnet:?xt=urn:btih:9B2029CC71E66C774B945CA35F117554A8012C37
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115893.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115893.jpgsave_picture_115893.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Ace Frehley - Studio Albums (6 releases) (2009-2024) hand made [restored, declip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115894.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115894.jpgsave_picture_115894.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Tsundere Akuyaku Reijou Liselotte to Jikkyou no Endou-kun to Kaisetsu no Kobayas
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115895.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115895.jpgsave_picture_115895.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ magnet:?xt=urn:btih:1549DFA8E7540261DFCA4EF9DC9CD8177EA38227
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115896.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115896.jpgsave_picture_115896.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ RedNotebook 2.32 Portable by PortableApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115897.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115897.jpgsave_picture_115897.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Plus Messenger (Telegram+) v10.8.1.0 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115898.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115898.jpgsave_picture_115898.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Emurasoft EmEditor Professional 24.1.2 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57073.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57073.jpgsave_picture_57073.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:D5109B0CDB8DD6A5DE7DBE000521E8BDC0DFF888
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57074.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57074.jpgsave_picture_57074.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:28D5FAE6592C9BF9136F6853641EAA3A8557D3CD
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57075.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57075.jpgsave_picture_57075.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:81B2F565E66BF05E692711EC60533C780801DA8E
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57076.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57076.jpgsave_picture_57076.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:6F08D6605BCE4DCA0530CE14964962658EE7D338
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57077.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57077.jpgsave_picture_57077.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ PDF-XChange PRO 10.3.0.386 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57078.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57078.jpgsave_picture_57078.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ magnet:?xt=urn:btih:26E746BB99B8CFAD9D464E56F61BE15EFA367A38
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57079.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57079.jpgsave_picture_57079.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:50F6B304230A7C16D86BA39B2A044E3784CD4779
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57080.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57080.jpgsave_picture_57080.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:C0532C8E6ED78F69D59D7861256B052036D09F70
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57081.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57081.jpgsave_picture_57081.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:170561CA68E890B0EB50BE8BEE79DF2D0391CAFE
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57082.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57082.jpgsave_picture_57082.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:658CE96391B17D820C7F2E56DF8BDDD817E44702
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57083.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57083.jpgsave_picture_57083.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ magnet:?xt=urn:btih:03490C6FC5D25C21BD908D798C32CDE0B23F7129
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57084.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57084.jpgsave_picture_57084.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Gloom - дискография: 3 альбома (2006-2020) [FLAC|Lossless|WEB-
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57085.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57085.jpgsave_picture_57085.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ magnet:?xt=urn:btih:D1E78BEEABDA9595E08290E222588FD404B9D71E
 >>Ноты и обучение музыке
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57086.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57086.jpgsave_picture_57086.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Grasser, Алёна Ижак | Курс по пошиву нижнего бел�
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57087.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57087.jpgsave_picture_57087.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ magnet:?xt=urn:btih:059491836CC5D2B4A4AC7D9518B2FD7E286A332C
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57088.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57088.jpgsave_picture_57088.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ magnet:?xt=urn:btih:BCABD73DF81ABE7EE929B869681C01CFE227866B
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57089.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57089.jpgsave_picture_57089.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ magnet:?xt=urn:btih:BCABD73DF81ABE7EE929B869681C01CFE227866B
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57090.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57090.jpgsave_picture_57090.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ magnet:?xt=urn:btih:477B0D940346AC82B10CA32B733816263775B625
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57091.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57091.jpgsave_picture_57091.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ simplewall 3.8.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57092.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57092.jpgsave_picture_57092.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ magnet:?xt=urn:btih:B799CF60209F9223FF6949DDEE83741A472CA702
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57093.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57093.jpgsave_picture_57093.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ magnet:?xt=urn:btih:2391AF8691BE45C3746C5AD154DF1C429A626366
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57094.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57094.jpgsave_picture_57094.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ magnet:?xt=urn:btih:4849A3770569D8CD30CF9F7A9E32E1C01B26CB76
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57095.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57095.jpgsave_picture_57095.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ magnet:?xt=urn:btih:3AAA11A6C5630FBBAC15C0B7A1B276B914FDDEB7
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57096.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57096.jpgsave_picture_57096.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ magnet:?xt=urn:btih:E3EC2BB1531E5A9C46F00297A5C51D2A7B002F63
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57097.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57097.jpgsave_picture_57097.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ Process Lasso Pro 14.0.3.16 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57098.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57098.jpgsave_picture_57098.jpg" />
 </div>
 
 

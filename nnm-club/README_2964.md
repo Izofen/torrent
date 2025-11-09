@@ -6,7 +6,7 @@
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88087.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88087.jpgsave_picture_88087.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:BA8A7580A762DA55521115CF75B5F8A70D1CA01F
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88088.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88088.jpgsave_picture_88088.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:77EF642165F363A9B2A2B838F6FD5FB6F54F1800
 >>Зарубежные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88093.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88093.jpgsave_picture_88093.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:72F67BFBF496BD932B7B1F13BD6F7573CC9BB2E0
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88097.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88097.jpgsave_picture_88097.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:45C591E95ED47DD4A1A8E36E3C37F0DB1B243378
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88107.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88107.jpgsave_picture_88107.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Legend of Grimrock [En] (L) 2012
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88110.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88110.jpgsave_picture_88110.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Rise and Fall: Civilizations at War / Rise & Fall: Война цивилизац
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88112.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88112.jpgsave_picture_88112.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:B9558B2F457F680233A835D683E75CD66C9EEC73
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88114.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88114.jpgsave_picture_88114.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:B9558B2F457F680233A835D683E75CD66C9EEC73
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88115.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88115.jpgsave_picture_88115.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Windows 7x86x64 Professional UralSOFT v.4.3.12 (2012) (Rus)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88117.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88117.jpgsave_picture_88117.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Windows 7x86x64 Professional UralSOFT v.4.3.12 (2012) (Rus)
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88120.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88120.jpgsave_picture_88120.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:857E99A36D1E28E1ED14AAEDE0BD255C124099F1
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88121.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88121.jpgsave_picture_88121.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ Google Chrome 18.0.1025.162 Stable [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88122.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88122.jpgsave_picture_88122.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Google Chrome - веб-браузер производства Google с отк�
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88125.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88125.jpgsave_picture_88125.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ magnet:?xt=urn:btih:A99B1D9D6DA53E9EC4E4F5C436AB27903713580B
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88126.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88126.jpgsave_picture_88126.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ magnet:?xt=urn:btih:A99B1D9D6DA53E9EC4E4F5C436AB27903713580B
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88127.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88127.jpgsave_picture_88127.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ magnet:?xt=urn:btih:AD3BA6CBB2263F094D81B41BF3DF4AEFA3C09A30
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88128.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88128.jpgsave_picture_88128.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ magnet:?xt=urn:btih:781A171CAC9979914B46272DF133756810B67E00
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88129.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88129.jpgsave_picture_88129.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Select And Dismember - Annihilation Foretold (2012) [MP3|320 кб/с]<Technical 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88133.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88133.jpgsave_picture_88133.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ magnet:?xt=urn:btih:4F9706A991C3C782D22A75A57CB918E3242377F1
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88135.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88135.jpgsave_picture_88135.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ VA - The Next Generation - Compiled by Hypersonic (2006) [FLAC|Lossless]<Psyched
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88138.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88138.jpgsave_picture_88138.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Data Flow Accelerator 3.4.2.26 Beta + Portable [русский, английск
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88139.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88139.jpgsave_picture_88139.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Paul Wardingham - Assimilate Regenerate (2011) [MP3|320 кб/с]<Progressive Met
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88140.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88140.jpgsave_picture_88140.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ magnet:?xt=urn:btih:4E0826ED6ACB243232500497F019C2C36B58F9ED
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88142.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88142.jpgsave_picture_88142.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ CIFRAmagazine.com | Электронный журнал CIFRAmagazine №01 [201
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88143.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88143.jpgsave_picture_88143.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ CIFRAmagazine.com | Электронный журнал CIFRAmagazine №03 [201
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88144.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88144.jpgsave_picture_88144.jpg" />
 </div>
 
 

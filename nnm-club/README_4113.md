@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127513.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127513.jpgsave_picture_127513.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:E008FF79438A4264B270B51EF81CA0E1BFE6E39A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127514.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127514.jpgsave_picture_127514.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:FC8C6B2BD1CEA0970F532FCCCF89B87E70169D8E
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127515.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127515.jpgsave_picture_127515.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:34686DDE02B34031DE00E9F72DF4DC643EF2F806
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127516.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127516.jpgsave_picture_127516.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Udemy, Lucas Bazilio | The Complete Lua Programming Course: From Zero to Expert!
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127517.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127517.jpgsave_picture_127517.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:8B794290C4643E63E25A59490FF7E23BBAF1B88D
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127518.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127518.jpgsave_picture_127518.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:A988C18E4CAB410C894F0DF266A1743B86A0DCEA
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127519.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127519.jpgsave_picture_127519.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Microsoft Office LTSC 2021 Professional Plus / Standard + Visio + Project 16.0.1
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127520.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127520.jpgsave_picture_127520.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:2DC6E19EB1BF044944B55954CC80CA5211AF418B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127521.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127521.jpgsave_picture_127521.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:EF3C73B3E51FA8B254383ECE34DDBBAA5DA69D11
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127522.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127522.jpgsave_picture_127522.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Banners of Ruin (2021) [Ru/Multi] (1.4.69/dlc) License GOG [Supporter Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127523.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127523.jpgsave_picture_127523.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:AB3CDEA353630CDBC8FCA347CCF0E3C648B71984
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127524.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127524.jpgsave_picture_127524.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Wo Long: Fallen Dynasty (2023) [Ru/Multi] (1.300/dlc) Repack dixen18
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127525.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127525.jpgsave_picture_127525.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ magnet:?xt=urn:btih:B002BBB81B9ECC47DC74BF9EA8F35288A9A41049
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127526.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127526.jpgsave_picture_127526.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Need for Speed: Undercover (2008) [Ru/Multi] (252136/dlc) Repack Decepticon [Col
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127527.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127527.jpgsave_picture_127527.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ God of War: Ragnarok - Deluxe Edition (2022) PS4 [EUR] 9.0 (Backport до 5.05) 
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127528.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127528.jpgsave_picture_127528.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ God of War: Ragnarok - Deluxe Edition (2022) PS4 [EUR] 9.0 (Backport до 5.05) 
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127529.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127529.jpgsave_picture_127529.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ WordPress plugin - Oxygen 4.8 [PHP, SVG, CSS, JS]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127530.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127530.jpgsave_picture_127530.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ magnet:?xt=urn:btih:60E4D23A96805ABBA4CB6B11BA53D77AC5124C77
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127531.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127531.jpgsave_picture_127531.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Boushoku no Berserk / Berserk of Gluttony / Ненасытный берсерк 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127532.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127532.jpgsave_picture_127532.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ WordPress plugin - Advanced Custom Fields PRO 6.2.4 [PHP, CSS, JS]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127533.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127533.jpgsave_picture_127533.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ magnet:?xt=urn:btih:57083F29F3602C3350B7C4A5D09C69F1DA060D44
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127534.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127534.jpgsave_picture_127534.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ LEGO 2K Drive (2023) [Multi] (12823980/dlc) Repack dixen18
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127535.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127535.jpgsave_picture_127535.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ magnet:?xt=urn:btih:FFAC80DC91E2950458B4D679807CB5B195544D96
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127536.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127536.jpgsave_picture_127536.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Need for Speed: Hot Pursuit 2 (2002) [Ru/En] (2.42) Repack Decepticon
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127537.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127537.jpgsave_picture_127537.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ WordPress plugin - Rank Math SEO PRO 3.0.49 [PHP, CSS, JS]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127538.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127538.jpgsave_picture_127538.jpg" />
 </div>
 
 

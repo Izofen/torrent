@@ -6,7 +6,7 @@ Boku no Kokoro no Yabai Yatsu | The Dangers in My Heart | Опасность в 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_196747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196747.jpgsave_picture_196747.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:6C0DD3EBEFB97BE18C3BB8F5CD6D303F0133B456
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196748.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196748.jpgsave_picture_196748.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:41DF200424B82FC64BF20E9D0D479EEA8C7E796C
 >>История
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_196749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196749.jpgsave_picture_196749.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:165B1FE613ECC141F4ED8F4E4EA35A60B5DA9205
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196750.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196750.jpgsave_picture_196750.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:C4108006A6D7DA722749AA85A24E68DC08926A14
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196751.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196751.jpgsave_picture_196751.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Epubor Ultimate 3.0.15.425 [En]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196752.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196752.jpgsave_picture_196752.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Driver Easy Pro 5.8.1.41398 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196753.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196753.jpgsave_picture_196753.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ OBS Studio 29.1.3 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196754.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196754.jpgsave_picture_196754.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ FurMark 1.35.0.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196755.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196755.jpgsave_picture_196755.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ GPU-Z 2.54.0 RePack by druc [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196756.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196756.jpgsave_picture_196756.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Microsoft Windows 11 [10.0.22621.1848], Version 22H2 (Updated June 2023) - Ор�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196757.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196757.jpgsave_picture_196757.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Psiphon 3 build 179 (21.06.2023) Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196758.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196758.jpgsave_picture_196758.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ magnet:?xt=urn:btih:EECE448482047522FC07901F5BAF575D84F3B2DC
 >>Мультимедийные справочники, Энциклопедии
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196759.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196759.jpgsave_picture_196759.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Mystery Case Files 25: The Dalimar Legacy / За семью печатями 25:
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196760.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196760.jpgsave_picture_196760.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Microsoft Windows 10.0.19045.3086, Version 22H2 (Updated June 2023) - Ориги
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196761.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196761.jpgsave_picture_196761.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ magnet:?xt=urn:btih:449C4CA01142770066BF22CD5DB3BCD829821791
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196762.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196762.jpgsave_picture_196762.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ Skip to Loafer | Skip and Loafer | Долой безделье! [2023, TV, 12 э
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_196763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196763.jpgsave_picture_196763.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ Kizuna no Allele | Аллель Кидзуны [2023, TV, 12 эп.] WEBRip 720p 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_196764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196764.jpgsave_picture_196764.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ magnet:?xt=urn:btih:46D62C93F75CBCC0AD5C3F311EBB96C3267153EF
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196765.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196765.jpgsave_picture_196765.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ magnet:?xt=urn:btih:60E823DC11CD36985A0CACFBD50F6031088AD73D
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196766.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196766.jpgsave_picture_196766.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ magnet:?xt=urn:btih:461C244EBF3B6C1D618F69F2A12CA22414201803
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196767.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196767.jpgsave_picture_196767.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ Tales of Vogar - Lost Descendants (2023) [En] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196768.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196768.jpgsave_picture_196768.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Microsoft Windows 10.0.19044.3086, Version 21H2 (Updated June 2023) - Ориги
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196769.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196769.jpgsave_picture_196769.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ DiskDigger 1.79.61.3389 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196770.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196770.jpgsave_picture_196770.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ magnet:?xt=urn:btih:4F6A2E251BF97D1D01E6A2E51E7C1D5C78028AB8
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196771.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196771.jpgsave_picture_196771.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ magnet:?xt=urn:btih:C0F4834BDECD0B40C83072CA9AF50966C42871EB
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196772.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196772.jpgsave_picture_196772.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58529.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58529.jpgsave_picture_58529.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:7566F2A0871619AD70E8D333D7703C19B7CBE1DA
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58530.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58530.jpgsave_picture_58530.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:2CB9F92CE3F037E24C3B9BDAACD8A55A232CAA46
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58531.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58531.jpgsave_picture_58531.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:C41E44BE18DCB4E17F666C7010CF2FF7836DA043
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58532.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58532.jpgsave_picture_58532.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:AD3351CDAAF14CB545CBD28784D7A39F5A099B0E
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58533.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58533.jpgsave_picture_58533.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ History Channel. Заговор НЛО: в поисках правды / UFO Con
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58534.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58534.jpgsave_picture_58534.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:BF24486AD64B534F1FA3A1EBB688DF813C9CF255
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58535.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58535.jpgsave_picture_58535.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:66BFE984E0E9454212D0DD2DC861610CA22F8CDE
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58536.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58536.jpgsave_picture_58536.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:ECE17464C11DF0A2A2550CDEFEF40BA10B2987B4
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58537.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58537.jpgsave_picture_58537.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:74BB51D339A590C8A0CF7F77ED2C0ABC33083217
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58538.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58538.jpgsave_picture_58538.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Once a Tale (2024) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58539.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58539.jpgsave_picture_58539.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ magnet:?xt=urn:btih:9BBC6A5649CAB913553A98EC0A51315ABAC0040E
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58540.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58540.jpgsave_picture_58540.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ magnet:?xt=urn:btih:64E447B6023090559FF7E156684B8B162FB24366
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58541.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58541.jpgsave_picture_58541.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Internet Download Manager 6.42 Build 9 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58542.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58542.jpgsave_picture_58542.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ magnet:?xt=urn:btih:A16004130F24B82BF461EAC650206A9CD8F37EC1
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58543.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58543.jpgsave_picture_58543.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ magnet:?xt=urn:btih:F0220AB7D80EEEF9FB0A349381B2E3B72FF274B0
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58544.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58544.jpgsave_picture_58544.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ DVDFab 13.0.1.6 x64 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58545.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58545.jpgsave_picture_58545.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ magnet:?xt=urn:btih:7342CDA18FDC226481E3801B1429878B8E70B4AA
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58546.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58546.jpgsave_picture_58546.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Patephone / Патефон v10.11.17 Mod by vl80k747 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58547.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58547.jpgsave_picture_58547.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ magnet:?xt=urn:btih:A4072E1FB44D7F861D4FC88450B66EB40A0D4CB7
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58548.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58548.jpgsave_picture_58548.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ magnet:?xt=urn:btih:47E8BDD343606796453D45AAAEB5DCE20AAD68DA
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58549.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58549.jpgsave_picture_58549.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Pet Shop Boys - Nonetheless (2024) [FLAC|Lossless|WEB-DL|tracks] <SynthPop>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58550.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58550.jpgsave_picture_58550.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ magnet:?xt=urn:btih:A4FCF0ECD52069BD42D4B26F84B8A6D257027610
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58551.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58551.jpgsave_picture_58551.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ magnet:?xt=urn:btih:86EC09B29C6546F4EEA5038C402EB5981CDAB5DA
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58552.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58552.jpgsave_picture_58552.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ MADievals - The rise of Rusty Steelknee (2023) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58553.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58553.jpgsave_picture_58553.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ magnet:?xt=urn:btih:CCADF74E61AB27784958AD173AE3F43D1004EF0B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58554.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58554.jpgsave_picture_58554.jpg" />
 </div>
 
 

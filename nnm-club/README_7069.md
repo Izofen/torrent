@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242046.jpgsave_picture_242046.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Arctic Rain - Unity (2023) Japanese Edition [FLAC|Lossless|image + .cue] <Melodi
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242047.jpgsave_picture_242047.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ AIMP 5.11 Build 2428 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242048.jpgsave_picture_242048.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ VA - Female Pop Hits (2020) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242050.jpgsave_picture_242050.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ magnet:?xt=urn:btih:78E25960509CC2223B7904AC7BF6D69199D7ED4D
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242051.jpgsave_picture_242051.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ magnet:?xt=urn:btih:4984CA6CB596DD15F6CCD26603D15E08B26D9BD7
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242052.jpgsave_picture_242052.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ magnet:?xt=urn:btih:B6946C17E6AA14DBA2A5E33F8EDB71F4CCE741BB
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242053.jpgsave_picture_242053.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ Siena Root - Revelation (2022) [FLAC|Lossless|WEB-DL|tracks] <Prog Rock, Psychod
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242054.jpgsave_picture_242054.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ VA - Sunday Afternoon, Vol. 3 (20 Lovely Lounge Cookies) (2017) [AAC|~332 Kbps] 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242055.jpgsave_picture_242055.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ Ernie And The Automatics - Low Expectations (2009) [FLAC|Lossless|image + .cue] 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242056.jpgsave_picture_242056.jpg" />
 </div>
 
 
@@ -262,7 +262,7 @@ magnet:?xt=urn:btih:153238ACBD2155BFEAB519A9DD9174749C844E04
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242058.jpgsave_picture_242058.jpg" />
 </div>
 
 
@@ -289,7 +289,7 @@ Radiant Photo 1.1.1.263 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242059.jpgsave_picture_242059.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ magnet:?xt=urn:btih:7E0D8C9D29622CD3AD780C4ECDBEFB77469D6966
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242060.jpgsave_picture_242060.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ magnet:?xt=urn:btih:9C3567CB99255A847D2B78584A18EC0FCF125139
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242061.jpgsave_picture_242061.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ Omni Recover 3 v3.3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242062.jpgsave_picture_242062.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ Imperial State Electric - Pop War (2012) [FLAC|Lossless|image + .cue] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242063.jpgsave_picture_242063.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ magnet:?xt=urn:btih:47B57ACEA24FEDA8B9E9E6D2440FE1C1ACFABECF
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242064.jpgsave_picture_242064.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Majesties - Vast Reaches Unclaimed (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242065.jpgsave_picture_242065.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Affinity Designer 1.9.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242067.jpgsave_picture_242067.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:D99C8E5804F7B7906B30BC177929712E359FC5AF
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242068.jpgsave_picture_242068.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ VA - Armin van Buuren - A State Of Trance 1115 (2023) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242069.jpgsave_picture_242069.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ VA - Uplifting Only Orchestral Trance Year Mix 2016 (Mixed by Ori Uplift) (20.02
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242070.jpgsave_picture_242070.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Artstudio Pro 4.0.11 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242071.jpgsave_picture_242071.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ MassTube Plus 16.5.4.659 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242072.jpgsave_picture_242072.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Nightrider - Nightrider (1979) Reissue, 1992, Musea Records [MP3|320 Kbps] <Heav
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242073.jpgsave_picture_242073.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ Leonid Agutin - La Vida Cosmopolita (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, L
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242074.jpgsave_picture_242074.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Ocenaudio 3.14.4 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104019.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104019.jpgsave_picture_104019.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ SnapEdit - AI photo editor v6.9.0 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104020.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104020.jpgsave_picture_104020.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:626783A5DE791FEA3B385FC47B773D01EFAD5749
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104021.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104021.jpgsave_picture_104021.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ FileZilla Server 1.9.1.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104022.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104022.jpgsave_picture_104022.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:FBB53A28FA693F32C8AC60A2FFDB276717C97834
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104023.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104023.jpgsave_picture_104023.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ VA - compilation musical kaleidoscope part 4 (2024) [MP3|320 Kbps] <electro swin
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104024.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104024.jpgsave_picture_104024.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:3E58D19F4F0F123BFFF41A4144A67CE16AB4D191
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104026.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104026.jpgsave_picture_104026.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:8036C49B80E9AE1B429B22691F992D2150F3A3F2
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104027.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104027.jpgsave_picture_104027.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:A4B23F3491BF8FCAC35319EB3E00FFDF1EE03FBF
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104028.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104028.jpgsave_picture_104028.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ magnet:?xt=urn:btih:384090EB5336E51965384C7C1474124DB5F7D9D8
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104029.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104029.jpgsave_picture_104029.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ BBC: Горизонт. Каковы размеры Вселенной? / Horizon
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104030.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104030.jpgsave_picture_104030.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ magnet:?xt=urn:btih:281FEEEB97DD35072F6AADFE379F0AEE1F450B10
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104031.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104031.jpgsave_picture_104031.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ SnapEdit - AI photo editor v6.9.0 Mod by Oflarm [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104032.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104032.jpgsave_picture_104032.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ magnet:?xt=urn:btih:47191B2EAEE36559D202A504DDC3E02D29AF5689
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104033.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104033.jpgsave_picture_104033.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ StartAllBack 3.8.10 build 5173 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104034.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104034.jpgsave_picture_104034.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ VA - Dance Classics - The Remixes Volume 2 (1989) [FLAC|Lossless|tracks + .cue] 
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104035.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104035.jpgsave_picture_104035.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ magnet:?xt=urn:btih:E608385EC132492CCB811DF2ABFBF6EFBB3F3693
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104036.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104036.jpgsave_picture_104036.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ magnet:?xt=urn:btih:C5A157BEC9BEA8AAEFBB45B433BF9FD136A23C72
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104037.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104037.jpgsave_picture_104037.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ magnet:?xt=urn:btih:394A6FA200DBA17E3964BDD9B366B65692ADA11F
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104038.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104038.jpgsave_picture_104038.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ LeadBreaker - Overdrive (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104039.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104039.jpgsave_picture_104039.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Armored Saint - Studio Albums (4 releases) (2000-2020) hand made [restored, decl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104040.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104040.jpgsave_picture_104040.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Whisky of Blood - Diablesse Of Revolution (2024) [FLAC|Lossless|WEB-DL|tracks] <
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104041.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104041.jpgsave_picture_104041.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Whisky of Blood - Diablesse Of Revolution (2024) [FLAC 24/44.1|Lossless|WEB-DL|t
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104042.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104042.jpgsave_picture_104042.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ magnet:?xt=urn:btih:D444BDEA9EF7BD5D79EC7E7E52998B6D382381F8
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104043.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104043.jpgsave_picture_104043.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ magnet:?xt=urn:btih:0A094901F49DF9D14B7AEE2EC747F7DAE79AFAFA
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104044.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104044.jpgsave_picture_104044.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ magnet:?xt=urn:btih:BDB1323F558FF3A0B8A0F5B44209209B4B0763AF
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104045.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104045.jpgsave_picture_104045.jpg" />
 </div>
 
 

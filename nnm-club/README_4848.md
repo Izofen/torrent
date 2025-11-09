@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151675.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151675.jpgsave_picture_151675.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:AD3883888DEF17DF004C9679C01349915A410357
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151677.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151677.jpgsave_picture_151677.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:0D1F6203394DF21C1BA01E46417023A3D8CB066A
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151678.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151678.jpgsave_picture_151678.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:912319209E82D5740AABCF5956C495EDDBDEC0B9
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151680.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151680.jpgsave_picture_151680.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Movavi Screen Recorder 5.1.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151681.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151681.jpgsave_picture_151681.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ VA - Lo-Fi to Chill: Chillout Your Mind (2021) [AAC|~306 Kbps] <Lounge, Chill Ou
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151682.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151682.jpgsave_picture_151682.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:BE32BE816CB51000058F9D4B902BB56FDA6DBF2D
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151683.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151683.jpgsave_picture_151683.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:BE32BE816CB51000058F9D4B902BB56FDA6DBF2D
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151684.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151684.jpgsave_picture_151684.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:E4E78256FD2C0BD72BD4025106DC06364A39C941
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151685.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151685.jpgsave_picture_151685.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ VA - 60 minutes. Old School Dance Music vol.28 (mixed by Dj V) (2024) [MP3|320 K
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151687.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151687.jpgsave_picture_151687.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:A29F2AE1E70200ECD0598688869C7A349CFED4C0
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151688.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151688.jpgsave_picture_151688.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:ABA1EEA2446D75F928C68911983C12C68E53E2E7
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151689.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151689.jpgsave_picture_151689.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:84211DA82F0E03D80BA9FF517B7E042B52608E8E
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151690.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151690.jpgsave_picture_151690.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:1063F8A8BDDDFBF838424BB17F809102763D1340
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151691.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151691.jpgsave_picture_151691.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ magnet:?xt=urn:btih:B80BBC1B3FC6C12FE31069B24DEC48AF37CEE966
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151692.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151692.jpgsave_picture_151692.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ magnet:?xt=urn:btih:657434F8C523E45DA566E41341E88503C02416DC
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151693.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151693.jpgsave_picture_151693.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Romantic Dreams - Favorites Collection Part 5 (2025) [MP3|320 Kbps] <Italodisco,
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151694.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151694.jpgsave_picture_151694.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ VA - Taj Mah Lounge, Ambient Grooves, Vol. 3 (2021) [AAC|~330 Kbps] <Lounge, Chi
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151697.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151697.jpgsave_picture_151697.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ magnet:?xt=urn:btih:287E4B7D77F5AAF42D7B93E46C0E45375309EA60
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151698.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151698.jpgsave_picture_151698.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ magnet:?xt=urn:btih:1C77CC63FFBD645E0BD393F854F253B4F2992FD4
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151699.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151699.jpgsave_picture_151699.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ Avast Premium Security 23.11.6090 RePack by xetrin [Multi/Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151700.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151700.jpgsave_picture_151700.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ magnet:?xt=urn:btih:2DDDE6ED18098A79DC127C6232813B99F3860DBC
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151701.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151701.jpgsave_picture_151701.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ magnet:?xt=urn:btih:7BF79963B0D707EB6E59272119701A9E419B38CB
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151702.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151702.jpgsave_picture_151702.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Pixelmator Pro 1.5.4 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151703.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151703.jpgsave_picture_151703.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ magnet:?xt=urn:btih:B095C0A7DE8405B3BE23726812865307CFA9698D
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151704.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151704.jpgsave_picture_151704.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ VA - CLUBWRK - Best of 2021 (2021) [AAC|~332 Kbps] <House, Trance>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151706.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151706.jpgsave_picture_151706.jpg" />
 </div>
 
 

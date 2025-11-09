@@ -6,7 +6,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_173782.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_173782.jpgsave_picture_173782.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Creedence Clearwater Revival - 1968-1969 (1978) 2LP [FLAC 2.0|192/24|image + .cu
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173783.jpgsave_picture_173783.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:7CFCC2E0C2D272E01C5CF01265553FCC60E3C261
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173784.jpgsave_picture_173784.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:94A40E137769FD32CA94FECAE33049C8A2BB1AC2
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173785.jpgsave_picture_173785.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Papers, Please 1.1.65 (2013) [Multi/Ru] [macOS Native game]
 >>Strategy, RPG для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173786.jpgsave_picture_173786.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ magnet:?xt=urn:btih:0DE55D0491F593FC1FB796AF44A02F482F50B0F8
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173787.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173787.jpgsave_picture_173787.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ magnet:?xt=urn:btih:3491C6D60C43E34784FFD6DCC104F2DB0B39DA84
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173788.jpgsave_picture_173788.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ VA - Music News vol.305 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173789.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173789.jpgsave_picture_173789.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ magnet:?xt=urn:btih:182FCDDECC2A6993E2FC6F3BA5C8F7F0D4717930
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173790.jpgsave_picture_173790.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ magnet:?xt=urn:btih:D4BD77C2C468FF877CDDD5481DBDAA6DE47A055B
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173791.jpgsave_picture_173791.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ magnet:?xt=urn:btih:D2363E642219BD39D766ADA113F4918931021F3B
 >>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173792.jpgsave_picture_173792.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ magnet:?xt=urn:btih:9F0062ED9A82D705F72113A4C20B6965B4400EFD
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173793.jpgsave_picture_173793.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ magnet:?xt=urn:btih:18E8A56305BAC62903EC6910ECE2DE3307A7EE2E
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_173794.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_173794.jpgsave_picture_173794.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Text Editor Pro 27.7.1 + Portable + Bonus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_173795.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_173795.jpgsave_picture_173795.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ magnet:?xt=urn:btih:0BA6EB23E71EC7FEFEF38663380DDA39EF0D06E1
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173796.jpgsave_picture_173796.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ VA - Rock Christmas 2022 - The Very Best Of (2022) [FLAC|Lossless|WEB-DL|tracks]
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_173797.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_173797.jpgsave_picture_173797.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ magnet:?xt=urn:btih:914741E9D01B8501B4E31E36FE701CC4F0F027C0
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173798.jpgsave_picture_173798.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Eye 2 Eye - The Wish (2011) [FLAC|Lossless|image + .cue] <Neo-Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173799.jpgsave_picture_173799.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ magnet:?xt=urn:btih:AA63315D845C378A6E416F1AE9239E851C9B07E4
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173800.jpgsave_picture_173800.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Reveal - Overlord (2019) Japanese Edition [FLAC|Lossless|image + .cue] <Heavy, P
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173801.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173801.jpgsave_picture_173801.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ magnet:?xt=urn:btih:8F042D356D174569FC1AD3B95D2506C58DCBF063
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173802.jpgsave_picture_173802.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ magnet:?xt=urn:btih:035AE662F582AC777BE0FF1901F519AC1751B1AD
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173803.jpgsave_picture_173803.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ magnet:?xt=urn:btih:80D12F94A42A9B1C162A93A291A40D8DDF82504C
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173804.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173804.jpgsave_picture_173804.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ magnet:?xt=urn:btih:DF8B375DF1700107FE30FE93ED6A424A4E582E9A
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_173805.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_173805.jpgsave_picture_173805.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ magnet:?xt=urn:btih:81F3E419CB2EBDFAFEFE59B7F5CF9DC65339CF0E
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173806.jpgsave_picture_173806.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ Auslogics BoostSpeed Pro 11.2.0.4 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173807.jpgsave_picture_173807.jpg" />
 </div>
 
 

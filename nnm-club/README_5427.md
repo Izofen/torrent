@@ -6,7 +6,7 @@
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168003.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168003.jpgsave_picture_168003.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:2DFCCE0F20E42D470CE7470C6E2AC59D4EF112ED
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168004.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168004.jpgsave_picture_168004.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ PerfectTUNES for Mac 3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168005.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168005.jpgsave_picture_168005.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Hydra 4.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168006.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168006.jpgsave_picture_168006.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ SimpleMind Pro 1.25.0 Full Edition [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168007.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168007.jpgsave_picture_168007.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:1E306D609316D7B26BF50A2C8377E98F288A4447
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168008.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168008.jpgsave_picture_168008.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ Reverso Translation Dictionary / Переводной словарь Reverso 11.
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168009.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168009.jpgsave_picture_168009.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:560CABF2E4B8B973E4985C6697DD6F22AE3C113F
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168010.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168010.jpgsave_picture_168010.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ KEVU - Live @ Rave Culture Liveset, Dr. Magalhães Pessoa Stadium, Portugal (202
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168011.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168011.jpgsave_picture_168011.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ Erroll Garner - 1944, Vol.3 (1995) Classics [FLAC|Lossless|tracks + .cue] <Swing
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168012.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168012.jpgsave_picture_168012.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ The Ocean Collective - Phanerozoic II - Mesozoic - Cenozoic (2020) [FLAC|Lossles
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168013.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168013.jpgsave_picture_168013.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ FastScripts 3.0.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168014.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168014.jpgsave_picture_168014.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ VA - Hit News Vol. 5 (1993) [OGG Vorbis|480 Kbps] <Electronic, Italodance, Euro 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168015.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168015.jpgsave_picture_168015.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ magnet:?xt=urn:btih:EFD7E132C9426C7704A345D7EBEC5143D9ADB4F5
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168016.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168016.jpgsave_picture_168016.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ magnet:?xt=urn:btih:03C150DC4064E7534AF8FCEE2397F9B2703A9FBF
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168017.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168017.jpgsave_picture_168017.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Neverland In Ashes - 2 CD (2017-2020) [FLAC|Lossless|WEB-DL|tracks + .cue] <Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168018.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168018.jpgsave_picture_168018.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Invisible 2.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168019.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168019.jpgsave_picture_168019.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ Fields Of The Nephilim - From Gehenna To Here (2001) [FLAC|Lossless|image + .cue
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168020.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168020.jpgsave_picture_168020.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Media Player Classic - Black Edition (MPC-BE) 1.6.5.3 Stable RePack (& Portable)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168021.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168021.jpgsave_picture_168021.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ ImageRanger Pro Edition 1.7.8.1679 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168022.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168022.jpgsave_picture_168022.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ magnet:?xt=urn:btih:0602E06184179601B7004D2869E503CE66AB4EDE
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168023.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168023.jpgsave_picture_168023.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Thunder Tier One (2021) [Ru/Multi] (1.0) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168024.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168024.jpgsave_picture_168024.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Alarm Clock Pro 13 v13.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168025.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168025.jpgsave_picture_168025.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ magnet:?xt=urn:btih:C66FF0248879BEA2BFF7205E5537C4657AAAEF1C
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168026.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168026.jpgsave_picture_168026.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Mad Max (2015) [Ru/Multi] (1.0.3.0/dlc) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168027.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168027.jpgsave_picture_168027.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Cisdem ContactsMate 5 v5.6.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168028.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168028.jpgsave_picture_168028.jpg" />
 </div>
 
 

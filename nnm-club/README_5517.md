@@ -6,7 +6,7 @@ VA - Psygressive Vol. 6 (2019) [MP3|320 Kbps] <Psy-Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170410.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170410.jpgsave_picture_170410.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:2049ACDBE91DB0511C31972AD7A89A6126905A63
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170411.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170411.jpgsave_picture_170411.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:39F5982AF2786F7F12CF7885F58BF15C62929DF6
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170412.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170412.jpgsave_picture_170412.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Topaz DeNoise AI 2.3.6 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170413.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170413.jpgsave_picture_170413.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:38C4C73908025B71E106283BE6B6C79D0140841D
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170414.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170414.jpgsave_picture_170414.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:638776CBF136C9675B45C48DC17FFA1D2140D121
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170415.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170415.jpgsave_picture_170415.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ VA - Workout 2  I Get Back In Shape (2019) [MP3|320 Kbps] <Hip-Hop, Rap, Other>
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170416.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170416.jpgsave_picture_170416.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:310E04BCE5BC9F16E18512C8A633A48C4ED97E44
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170417.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170417.jpgsave_picture_170417.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:6B31F52948336402C0DF324AB002BF64BB23921F
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170418.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170418.jpgsave_picture_170418.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ Hypocrisy - Worship (2021) [FLAC|Lossless|image + .cue] <Melodic Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170419.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170419.jpgsave_picture_170419.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ BBEdit 14.6.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170420.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170420.jpgsave_picture_170420.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ magnet:?xt=urn:btih:2C624D65F5C52E4C321D54EF828B5C8A78B89E70
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170421.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170421.jpgsave_picture_170421.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ magnet:?xt=urn:btih:712A0B993487F4771C33F0234E78148D213F5FB6
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170422.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170422.jpgsave_picture_170422.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Shinnobu - The Trilogy (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age, Enigmatic,
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170423.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170423.jpgsave_picture_170423.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Download Shuttle Pro for Mac 1.9 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170424.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170424.jpgsave_picture_170424.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Deep Purple - Turning to Crime (2021) [AAC|~328 Kbps] <Rock>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170425.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170425.jpgsave_picture_170425.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ magnet:?xt=urn:btih:5F5B7046C4BCD49C2033E3B8CD16842396152C49
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170426.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170426.jpgsave_picture_170426.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ magnet:?xt=urn:btih:866D484BC5AF5D58766F53DB7A630107B198FCAA
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170427.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170427.jpgsave_picture_170427.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ VA - Disco House Party (2019) [MP3|320 Kbps] <Disco House, Funky House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170428.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170428.jpgsave_picture_170428.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Funke and The Two Tone Baby - Reacclimate (2023) [FLAC|Lossless|WEB-DL|tracks] <
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170429.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170429.jpgsave_picture_170429.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ magnet:?xt=urn:btih:0EA279EB7B71782BDCAA60A7A136D1E2042DBA94
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170430.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170430.jpgsave_picture_170430.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ magnet:?xt=urn:btih:921ADDCD99A9756FCD4817B37F2DEDA608C7CC5A
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170431.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170431.jpgsave_picture_170431.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ magnet:?xt=urn:btih:30BC7BA0FB75785136E41382C06B8AD7E48FC4D5
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170432.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170432.jpgsave_picture_170432.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ David Knopfler - Shooting for the Moon (2021) [AAC|~306 Kbps] <Rock, Folk>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170433.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170433.jpgsave_picture_170433.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ VA - Silent Shore Trance - Essential Classics Vol. 3 (2023) [MP3|320 Kbps] <Tran
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170434.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170434.jpgsave_picture_170434.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ Groundbreaker - Soul To Soul (2021) Japan [FLAC|Lossless|image + .cue] <AOR>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170435.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170435.jpgsave_picture_170435.jpg" />
 </div>
 
 

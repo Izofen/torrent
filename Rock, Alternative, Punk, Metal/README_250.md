@@ -6,7 +6,7 @@
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159746.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159746.jpgsave_picture_159746.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ King Crimson - In The Court Of The Crimson King (King Crimson At 50 A Film By To
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159767.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159767.jpgsave_picture_159767.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:BF236D598B56483A2D890E813F43FA13FC2E36BD
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159779.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159779.jpgsave_picture_159779.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:33698BF6D45BB187C64FD3162BA84BE7CEF1F589
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159799.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159799.jpgsave_picture_159799.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Status Quo - It's Christmas Time (2022) EP [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159810.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159810.jpgsave_picture_159810.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Maneskin - Rush! (Are U Coming?) (2023) [FLAC|Lossless|WEB-DL|tracks] <Glam-rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159824.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159824.jpgsave_picture_159824.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Runelord - Doomsday Script (2022) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159861.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159861.jpgsave_picture_159861.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Cabernet Deneuve - Смерти нет (2022) [MP3|320 Kbps] <Ska>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159867.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159867.jpgsave_picture_159867.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Sophie Lloyd - Imposter Syndrome (2023) [FLAC|Lossless|WEB-DL|tracks] <Modern Ha
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159872.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159872.jpgsave_picture_159872.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Oliver Tree - Cowboy Tears Drown the World in a Swimming Pool of Sorrow (2022) D
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159873.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159873.jpgsave_picture_159873.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:F35A2340D0735A76C85C6607ABB9A8C73927160B
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159876.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159876.jpgsave_picture_159876.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:4352622058D07ABD043FAE3149DCD971B7774EE8
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159881.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159881.jpgsave_picture_159881.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Witness - The Hell List (2022) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159887.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159887.jpgsave_picture_159887.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Posthuman Abomination - Mankind Recall (2022) [FLAC|Lossless|image + .cue] <Brut
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159891.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159891.jpgsave_picture_159891.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Diviner - Avaton (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159892.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159892.jpgsave_picture_159892.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Palefroid - Palefroid (2022) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159893.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159893.jpgsave_picture_159893.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ magnet:?xt=urn:btih:AD425F01FC1EF339F1936EF2E092579C29129304
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159894.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159894.jpgsave_picture_159894.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Witticism - Once upon a War (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Black,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159897.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159897.jpgsave_picture_159897.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Monje - Culto al fin de los tiempos (2023) [MP3|320 Kbps] <Stoner, Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159900.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159900.jpgsave_picture_159900.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Fates Warning - Inside Out (1994) 2CD [FLAC|Lossless|image + .cue] <Progressive 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159932.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159932.jpgsave_picture_159932.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ Moonlight Agony - Silent Waters (2007) [FLAC|Lossless|image + .cue] <Progressive
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159948.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159948.jpgsave_picture_159948.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Seven Witches - Year Of The Witch (2004) [FLAC|Lossless|image + .cue] <Heavy Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159950.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159950.jpgsave_picture_159950.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ Moonlight Agony - Echoes Of A Nightmare (2004) [FLAC|Lossless|image + .cue] <Pro
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159952.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159952.jpgsave_picture_159952.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ Seven Witches - Passage To The Other Side (2003) [FLAC|Lossless|image + .cue] <H
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159954.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159954.jpgsave_picture_159954.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ Seven Witches - Amped (2005) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159958.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159958.jpgsave_picture_159958.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ Seven Witches - Xiled To Infinity And One (2002) [FLAC|Lossless|image + .cue] <H
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159962.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159962.jpgsave_picture_159962.jpg" />
 </div>
 
 

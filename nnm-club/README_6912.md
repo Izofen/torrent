@@ -6,7 +6,7 @@ Icecream Ebook Reader Pro 5.31 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237509.jpgsave_picture_237509.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:F16D8176A85FA65F8D8540F6A0F4255A2CABDBAC
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237510.jpgsave_picture_237510.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:0089E23BA65B43EC5E3035138E3F87311717968E
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237511.jpgsave_picture_237511.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:AD8662703BF135F3610FBC51C512D9DA16C8CD1C
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237512.jpgsave_picture_237512.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:FD9184F42D75BF5AD8DA32636043BD5AF100A817
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237513.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237513.jpgsave_picture_237513.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ VA - Buddhatronic - the Compilation, Vol. 6 (2021) [AAC|~299 Kbps] <Downtempo, L
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237514.jpgsave_picture_237514.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:03DBF7EACAD6A0144BA315DC18871453C43ECCDD
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237515.jpgsave_picture_237515.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:5B5998F38A1AB181BC1A068F823EB2C83657FFC8
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237516.jpgsave_picture_237516.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ Paul Bley Trio - Closer (1965) 2008, ESP Disk [FLAC|Lossless|tracks + .cue] <Ava
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237517.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237517.jpgsave_picture_237517.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ magnet:?xt=urn:btih:7FB1EC6002E0B97B21EB7F40D0DA8E63293C060F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237518.jpgsave_picture_237518.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ magnet:?xt=urn:btih:F7C8D358F651EDC845AD90554F215CAF97A6537A
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237519.jpgsave_picture_237519.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ magnet:?xt=urn:btih:238AB80F75C5D07E3E0EB38DB10909C9A439F79C
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237520.jpgsave_picture_237520.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ Opera Magna - Of Love and Other Demons (2023) Compilation [FLAC|Lossless|WEB-DL|
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237521.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237521.jpgsave_picture_237521.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ Hostage - Black Sky Calling (1994) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237522.jpgsave_picture_237522.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ magnet:?xt=urn:btih:A2E2525020FEA0ADFC704C30F089F1EC32B2B81C
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237523.jpgsave_picture_237523.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ magnet:?xt=urn:btih:8FF0D3C81DCB9261FFAC5D5C2BB506C3D615F514
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237524.jpgsave_picture_237524.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ VA - Café Deluxe Chillout - Nu Jazz / Lounge (2013) [AAC|~316 Kbps] <Easy Liste
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237525.jpgsave_picture_237525.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ magnet:?xt=urn:btih:80DC55306FEF6871BE47E7826FDFBE677F5EE468
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237526.jpgsave_picture_237526.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ Audacity 3.3.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237527.jpgsave_picture_237527.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Vic (Victor) Feldman - On Vibes (1957) 1993, V.S.O.P. Records [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237528.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237528.jpgsave_picture_237528.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ magnet:?xt=urn:btih:91A33348ED00437F40275370AD25D2718951A98A
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237529.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237529.jpgsave_picture_237529.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ magnet:?xt=urn:btih:9B1B0321889F828C521ACD805A3A78703772E4E5
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237530.jpgsave_picture_237530.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ magnet:?xt=urn:btih:F273BDF155B657866A8F6990EA046C54DB41A28D
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237531.jpgsave_picture_237531.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Natalie Merchant - Keep Your Courage (2023) [FLAC|Lossless|tracks + .cue] <Folk-
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237532.jpgsave_picture_237532.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ magnet:?xt=urn:btih:DE57A20B2848A6ACF950E4FB903FEA2FE2AC34B3
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237533.jpgsave_picture_237533.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Dee D. Jackson - Thunder & Lightning (1980) [FLAC 2.0|192/24|image + .cue|Vinyl-
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237534.jpgsave_picture_237534.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ JUG Ru Group | Mobius 2024 Autumn. Конференция для мобильн�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70467.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70467.jpgsave_picture_70467.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:CC8E44B93CAA82DD34C77D504ED27D4C009A73E4
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77819.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77819.jpgsave_picture_77819.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Scott Kelby, Dave Cross, Matt Kloskowski (NAPP) | Photoshop User TV - Уроки
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77849.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77849.jpgsave_picture_77849.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:87349A1060C22A8C175FBD83DD5DE960DB998071
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78860.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78860.jpgsave_picture_78860.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:C6D1DDF418D61FFE1B00D5FE683ED38CAF54AF8A
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78894.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78894.jpgsave_picture_78894.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ hochuchu | Использование функции ReWire в Adobe Audition 3.
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80261.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80261.jpgsave_picture_80261.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ magnet:?xt=urn:btih:E5865EB7CE043464A05E1FDC5CE409E7A42778B0
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81958.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81958.jpgsave_picture_81958.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ magnet:?xt=urn:btih:7664F5A5C5E22A6FB5F6C2AF2B44FCD9C62D3D03
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84188.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84188.jpgsave_picture_84188.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ magnet:?xt=urn:btih:0497A069DE7607093FFE5124AD978A6B1A164496
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85821.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85821.jpgsave_picture_85821.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:F1DD268BF93ABF360D15728BCAB4A2E699C1794B
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88724.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88724.jpgsave_picture_88724.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ magnet:?xt=urn:btih:514967078600F02F05D8731B23A715E9D3494BBC
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89756.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89756.jpgsave_picture_89756.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ Slurm (Слёрм), Виталий Лихачев | Golang-разработчи�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91237.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91237.jpgsave_picture_91237.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ CyberYozh Academy, Евгений Ивченков, Павел Хавский | 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91277.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91277.jpgsave_picture_91277.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ magnet:?xt=urn:btih:7F142C0FE06FE1C37F6C0EDA29FDCA98D5B84712
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99137.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99137.jpgsave_picture_99137.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ magnet:?xt=urn:btih:0871FE9052B6B6B7804CA75C466FA2B37979E01A
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99922.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99922.jpgsave_picture_99922.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ Skill Issue, Skill Issue | Подготовка к Golang собеседован
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100900.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100900.jpgsave_picture_100900.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Kobezzza, Дмитрий Холстинин | Сборка во Frontend (2025) 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100926.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100926.jpgsave_picture_100926.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ TeachVideo | Всё о Windows® 8. Обучающий видеокурс [2012]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101916.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101916.jpgsave_picture_101916.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ magnet:?xt=urn:btih:3DFED575C52DDA9713F46DA47471ED62A4634931
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102346.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102346.jpgsave_picture_102346.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ karpov.courses, Виктор Кузнецов | Инженер данных (202
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104434.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104434.jpgsave_picture_104434.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ karpov.courses, Валерий Бабушкин и др. | Хардкорный 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104436.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104436.jpgsave_picture_104436.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ magnet:?xt=urn:btih:B7DEEBC4E47CAF07821E6284F60F23570C6E0611
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104443.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104443.jpgsave_picture_104443.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ magnet:?xt=urn:btih:45841B71233CCCB46F94A66EFFD572B6AC1F457F
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104445.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104445.jpgsave_picture_104445.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Karpov.courses, Нерсес Багиян, Алексей Кожарин, Ник
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112355.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112355.jpgsave_picture_112355.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Udemy, Brad Traversy | Next.js From Scratch 2024 (2024) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114945.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114945.jpgsave_picture_114945.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ Podlodka | Podlodka PHP Crew #3 (2023) WEB-DL [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115243.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115243.jpgsave_picture_115243.jpg" />
 </div>
 
 

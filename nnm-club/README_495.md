@@ -6,7 +6,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13138.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13138.jpgsave_picture_13138.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Coolutils Total Outlook Converter Pro 5.1.1.579 RePack (& Portable) by elchupaca
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13139.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13139.jpgsave_picture_13139.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:771C1A8DE629DC3FAB2E053F7712FF939306E1F7
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13140.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13140.jpgsave_picture_13140.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Queen - Riffs (Remastered 2011) (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock, Pop 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13141.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13141.jpgsave_picture_13141.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:C2CC6B92978F735791D24D3657FAFDEAC7671110
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13142.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13142.jpgsave_picture_13142.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:777CCE6A038A49997F106E9A489894BFA19968B2
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13143.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13143.jpgsave_picture_13143.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:0CD311AF1E7FF58FBFA4640FAD096192663457FD
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13144.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13144.jpgsave_picture_13144.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:616824143F196C23B3E81583CF33E81A72C20591
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13145.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13145.jpgsave_picture_13145.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:50FFD458D82951014C8103DAA38C98BA2E5022F3
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13146.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13146.jpgsave_picture_13146.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Steinberg - SpectraLayers Pro 11 11.0.70 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13147.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13147.jpgsave_picture_13147.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ THEMIS (2025) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13148.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13148.jpgsave_picture_13148.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:18CC08E43E7EC392EBD3A1FE81DF498360F12D33
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13149.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13149.jpgsave_picture_13149.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:C56CC5338D1CE05C1117E345D0C655D3DD772A03
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13150.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13150.jpgsave_picture_13150.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ CoolUtils Total Mail Converter Pro 11.1.0.698 RePack (& Portable) by elchupacabr
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13151.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13151.jpgsave_picture_13151.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ VA - National Pop Dance Music Vol.112 (2025) [MP3|320 Kbps] <Pop, Folk, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13152.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13152.jpgsave_picture_13152.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ magnet:?xt=urn:btih:DF5518C40C5EF0272AC42DCCB955B64E78CCC90B
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13153.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13153.jpgsave_picture_13153.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ CPU-Z v1.51 Mod by Alex.Strannik [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13154.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13154.jpgsave_picture_13154.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Tex Murphy: Overseer (1998) [En] (2.0.0.21) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13155.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13155.jpgsave_picture_13155.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ magnet:?xt=urn:btih:2F1EA50BA19C89AC801975CA58613289C68FC3FB
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13156.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13156.jpgsave_picture_13156.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Magic Eraser / Магический ластик v2.22.3 Mod by Maximoff⁠ [Ru/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13157.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13157.jpgsave_picture_13157.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ magnet:?xt=urn:btih:CE37D3ECBAA6492F7FF9E7E45A87ADB65DF5E81C
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13158.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13158.jpgsave_picture_13158.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Electrical Calculations Pro / Электрические расчеты v10.5.0 
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13159.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13159.jpgsave_picture_13159.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ magnet:?xt=urn:btih:AD5375D95A94CCD6D48DEE5CEDB924955B6CDEC5
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13160.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13160.jpgsave_picture_13160.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ magnet:?xt=urn:btih:A4D7701D0F9BB41791DF20B64A2929FABA183C99
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13161.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13161.jpgsave_picture_13161.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Planetary Annihilation: TITANS (2015) [Ru/Multi] (124610) Repack FitGirl
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13162.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13162.jpgsave_picture_13162.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ magnet:?xt=urn:btih:561B2EC17EE96F2E1AB0B13E9B82D0C470F824F8
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13163.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13163.jpgsave_picture_13163.jpg" />
 </div>
 
 

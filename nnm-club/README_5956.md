@@ -6,7 +6,7 @@ VA - Хочу замуж (к\ф «Хочу замуж» официальный �
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187518.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187518.jpgsave_picture_187518.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:7211B53D3667D85CCB7901567C997BC6BE28C99E
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187519.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187519.jpgsave_picture_187519.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:2CA7BB639030D387F23917D837DF97BE5A262DCA
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187520.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187520.jpgsave_picture_187520.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:3E7A769F4770127590739DED30ABE44A2D29D8CA
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187521.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187521.jpgsave_picture_187521.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:3907F1EEE096DFE3F52F89B9C637126E127B9B02
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187522.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187522.jpgsave_picture_187522.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:EDE57DE7858FBC869963AE726494D9FA8A44A00C
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187523.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187523.jpgsave_picture_187523.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ FileZilla 3.62.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187524.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187524.jpgsave_picture_187524.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:60E54B78F4093F9DA274C66606694CFE5ED2D458
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187525.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187525.jpgsave_picture_187525.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Stygian Fair - Aradia (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Hard Ro
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187526.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187526.jpgsave_picture_187526.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ magnet:?xt=urn:btih:74885585CB26C7B6A2D078662DB3354E8B001089
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187527.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187527.jpgsave_picture_187527.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ Firefox Browser ESR 102.5.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187528.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187528.jpgsave_picture_187528.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ magnet:?xt=urn:btih:6E2F1A23324858B214F5927A4C877284CA455000
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187529.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187529.jpgsave_picture_187529.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Timo Tolkki's Avalon - Angels of the Apocalypse (2014) [FLAC|24/96|tracks|Vinyl-
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187530.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187530.jpgsave_picture_187530.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:B08F578F930294AF66E5AA2A0E22A33857C88674
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187531.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187531.jpgsave_picture_187531.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Taine - Chaos and Contemplation (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressiv
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187532.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187532.jpgsave_picture_187532.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Sick - Cannibalistic Torment (2012) EP [FLAC|Lossless|image + .cue] <Brutal Deat
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187533.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187533.jpgsave_picture_187533.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ VA - Sea & Waves: Chillout Your Mind (2022) [FLAC|Lossless|WEB-DL|tracks] <Balea
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187534.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187534.jpgsave_picture_187534.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ magnet:?xt=urn:btih:C05CA98C64270AA6CFA90300D258B12BD15091B3
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187535.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187535.jpgsave_picture_187535.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ magnet:?xt=urn:btih:16A6688C27ABE08DE35260F1C3EBB38B6393EC04
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187536.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187536.jpgsave_picture_187536.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ Dirt Poor Robins - Queen of the Night (Soundtrack) (2022) [FLAC|Lossless|WEB-DL|
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187537.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187537.jpgsave_picture_187537.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ magnet:?xt=urn:btih:26C8587D737857D219F7900B12A0D9614F462233
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187538.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187538.jpgsave_picture_187538.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Tony Bennett - Sings For You: 40 All-Time Favorites! (1960, 1962) 2CD, 1993, Son
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187541.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187541.jpgsave_picture_187541.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Heike Monogatari | The Heike Story | Повесть о доме Тайра [2021
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187542.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187542.jpgsave_picture_187542.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ magnet:?xt=urn:btih:30E7D0F1566AED0FD21BADF6F41423B499318882
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187544.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187544.jpgsave_picture_187544.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Microsoft Office 2016 Pro Plus + Visio Pro + Project Pro 16.0.5413.1000 VL (x86)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187545.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187545.jpgsave_picture_187545.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Leather Factory - Black Dog Otis (2022) [FLAC|Lossless|WEB-DL|tracks] <Punk Blue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187546.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187546.jpgsave_picture_187546.jpg" />
 </div>
 
 

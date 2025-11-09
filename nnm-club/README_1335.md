@@ -6,7 +6,7 @@ Megami-ryou no Ryoubo-kun. | Mother of the Goddess' Dormitory | Комендан
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35065.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35065.jpgsave_picture_35065.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ v2rayN 7.3.0 portable pre-release [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35066.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35066.jpgsave_picture_35066.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Euro Truck Simulator 2 / С грузом по Европе 3 (2013) [Ru/Multi] (
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35067.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35067.jpgsave_picture_35067.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:AACBA7E3F7F86C74385A7472381472EF276D716C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35068.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35068.jpgsave_picture_35068.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:941C30CAF6C7F1CF514D35DA18180A5E7451502F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35069.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35069.jpgsave_picture_35069.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:611C2F614949F1141FA88875C0B225E6CBBF00B2
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35070.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35070.jpgsave_picture_35070.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:AAE471F0D6CCF969FADA5F2D62ABD668AAF6FC12
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35071.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35071.jpgsave_picture_35071.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:413EBF993AE40333A2EF9D5DAE94905CA68D8E60
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35072.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35072.jpgsave_picture_35072.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:4B58ED5F93F051FCD021CC1E4C1EB8038A13464D
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35073.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35073.jpgsave_picture_35073.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Dragon Age: Origins (2010) [Ru/Multi] (1.05 gog 0.8/dlc) License GOG [Ultimate E
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35074.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35074.jpgsave_picture_35074.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:74192BEDA26C2DFD4B010648E93390F8292C7901
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35075.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35075.jpgsave_picture_35075.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:06FA7AC64B2F488B91B80219C0C5170B3A535E39
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35076.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35076.jpgsave_picture_35076.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:5A54D5EF41F63360AE87C32D1DA5245A83D633BD
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35077.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35077.jpgsave_picture_35077.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ magnet:?xt=urn:btih:6E2E2D928BB0EBB22B839D6D321B148158062C0E
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35078.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35078.jpgsave_picture_35078.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ magnet:?xt=urn:btih:D21DE1997C0D93C37E0DD593FB0F0AA4FD95E0D9
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35079.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35079.jpgsave_picture_35079.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:049EB121643327D79AAB9BCDE165FC00A570760C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35080.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35080.jpgsave_picture_35080.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ magnet:?xt=urn:btih:7EB1E6DC482A7258AA8AE64264D454C1540ECC40
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35081.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35081.jpgsave_picture_35081.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ magnet:?xt=urn:btih:E50EFA4D7248C48B38D4BAE63A1118584C99A237
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35082.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35082.jpgsave_picture_35082.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:E50EFA4D7248C48B38D4BAE63A1118584C99A237
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35083.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35083.jpgsave_picture_35083.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Indiana Jones and the Great Circle (2024) [Ru/Multi] (1.1.18.0/dlc) Scene Razor1
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35084.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35084.jpgsave_picture_35084.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:506AD314D84105F70B3518991E6752054AE9B8F4
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35085.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35085.jpgsave_picture_35085.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ magnet:?xt=urn:btih:1F6EDA45371DAE31A1F8F19D462EF65E6113542C
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35086.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35086.jpgsave_picture_35086.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ WinRAR 7.10 Beta 2 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35087.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35087.jpgsave_picture_35087.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ magnet:?xt=urn:btih:614BE1404945C69715720178D51AA6650422756C
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35088.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35088.jpgsave_picture_35088.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ magnet:?xt=urn:btih:8F7EBAF2CB5A4CC909364FEC34427FD2AB6B6346
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35089.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35089.jpgsave_picture_35089.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Steinberg - Cubase Pro 14 14.0.10 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35090.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35090.jpgsave_picture_35090.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Adobe Character Animator 2022 22.4.0.52 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235636.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235636.jpgsave_picture_235636.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Abel Sequera - Soundscapes (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235637.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235637.jpgsave_picture_235637.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:E574799815918A5C4080D76516FCB84BB4BFAF21
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235638.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235638.jpgsave_picture_235638.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Sea of Disorder - Sea of Disorder (2012) [FLAC|Lossless|image + .cue] <Post Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235639.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235639.jpgsave_picture_235639.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Affinity Publisher 1.9.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235640.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235640.jpgsave_picture_235640.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ magnet:?xt=urn:btih:393667D0F87C0BB61BB0E9C3BD4700322769EE7F
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235641.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235641.jpgsave_picture_235641.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ AquaSoft Stages 14.2.06 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235642.jpgsave_picture_235642.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ People Like Us - In Heaven (1997) Koch Jazz [FLAC|Lossless|tracks + .cue] <Mains
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235643.jpgsave_picture_235643.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ Revlin Project - Trascender (2021) [MP3|320 Kbps] <Melodic Rock, AOR>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235644.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235644.jpgsave_picture_235644.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ magnet:?xt=urn:btih:8B607E8F127DD4B1640D077C8B082C038BFE0F2E
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235645.jpgsave_picture_235645.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ Hordagaard - Djeveldyrkar (2007) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235646.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235646.jpgsave_picture_235646.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ VA - House Doze, Vol. 1 (2021) [AAC|~319 Kbps] <Deep House, Chill House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235647.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235647.jpgsave_picture_235647.jpg" />
 </div>
 
 
@@ -315,7 +315,7 @@ Exhibeo 2 v2.0.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235648.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235648.jpgsave_picture_235648.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ magnet:?xt=urn:btih:599DE7F38B6CB91D2C0F3E9C323450225F1BCC52
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235649.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235649.jpgsave_picture_235649.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ Image Tuner Pro 9.7 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235650.jpgsave_picture_235650.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ Purity - Animus (2021) EP [MP3|320 Kbps] <Nu-Metal>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235651.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235651.jpgsave_picture_235651.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Embargo - High Seas (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Psychedelic, Har
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235652.jpgsave_picture_235652.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Enshrined - The Grand Failure (2023) [FLAC|Lossless|WEB-DL|tracks] <Death, Thras
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235653.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235653.jpgsave_picture_235653.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ magnet:?xt=urn:btih:8D4D3569FADDE37661DA70CFBABCC6F713943D60
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235654.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235654.jpgsave_picture_235654.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Strigampire - Where Torments Drown (2009) [FLAC|Lossless|image + .cue] <Black Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235655.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235655.jpgsave_picture_235655.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:EA2B9BC0A1D6A7A6B3CD064745968D1346AB1427
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235656.jpgsave_picture_235656.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Smultron 12.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235657.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235657.jpgsave_picture_235657.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ magnet:?xt=urn:btih:D838869931F18FE877F467F8054FFA29B49C90C4
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235658.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235658.jpgsave_picture_235658.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ magnet:?xt=urn:btih:29E20E48DBA50FEEEC9FE728FC5C10E7521FFFBE
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235659.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235659.jpgsave_picture_235659.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ Deceiver of the Blind - Heaven's Vengeance Boils in My Heart Part. I-II (2020-20
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235660.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235660.jpgsave_picture_235660.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ Glary Utilities Pro 5.207.0.236 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235661.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235661.jpgsave_picture_235661.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Audacity 3.6.0 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49601.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49601.jpgsave_picture_49601.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Plugin Boutique - Scaler EQ 1.1.2 Standalone, VST, VST 3, AAX (x86/x64) RePack b
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49602.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49602.jpgsave_picture_49602.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Al Di Meola - Twentyfour (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz Rock, 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49603.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49603.jpgsave_picture_49603.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ U.F.O. - You Are Here (2004) Deluxe Edition, 2024, Cleopatra Records [FLAC|Lossl
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49604.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49604.jpgsave_picture_49604.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ magnet:?xt=urn:btih:39836FAF7F0153BF871639FEAE8A2EA69E6CD06B
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49605.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49605.jpgsave_picture_49605.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ Land Of Talk - Applause Cheer Boo Hiss (3CD) (2007) The Definitive Edition, 2024
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49606.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49606.jpgsave_picture_49606.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ Al Di Meola - Twentyfour (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Fusion>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49607.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49607.jpgsave_picture_49607.jpg" />
 </div>
 
 
@@ -187,7 +187,7 @@ Falcon Trails - Coming Home (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49608.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49608.jpgsave_picture_49608.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ PrivaZer Pro 4.0.90 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49609.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49609.jpgsave_picture_49609.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Babbba - Groovy Things (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz, Swing>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49610.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49610.jpgsave_picture_49610.jpg" />
 </div>
 
 
@@ -265,7 +265,7 @@ Palace - Reckless Heart (2024) [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49611.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49611.jpgsave_picture_49611.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Babbba - Extended Cabaret (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz, Swin
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49612.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49612.jpgsave_picture_49612.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Marc Almond - I'm Not Anyone (2024) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop, Sy
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49613.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49613.jpgsave_picture_49613.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Sexual Music Collection, Romantic Piano Ambient - Forbidden Jazz for Night Pleas
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49614.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49614.jpgsave_picture_49614.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ PrivaZer Pro 4.0.90 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49615.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49615.jpgsave_picture_49615.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Babbba - Cabaret III (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz, Swing>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49616.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49616.jpgsave_picture_49616.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ magnet:?xt=urn:btih:9E59EDFE5FC2C3463B7728643866157EF60FF96B
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49617.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49617.jpgsave_picture_49617.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Media Player Classic Home Cinema (MPC-HC) 2.3.3.0 + Portable (unofficial) [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49618.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49618.jpgsave_picture_49618.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ magnet:?xt=urn:btih:EE311AAB68D73DED042EF298C279A9966D8E330C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49619.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49619.jpgsave_picture_49619.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Ashampoo Music Studio 11.0.3.4 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49620.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49620.jpgsave_picture_49620.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ UltraSearch Professional 4.3.0.974 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49621.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49621.jpgsave_picture_49621.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ magnet:?xt=urn:btih:82F75ED18AB1AA44AC50F2E340609E00EDE5411E
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49622.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49622.jpgsave_picture_49622.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ magnet:?xt=urn:btih:459D1F04E057214C556521BEBFEF97DB9EB23E61
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49623.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49623.jpgsave_picture_49623.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ magnet:?xt=urn:btih:3C1BE14898F7A7113DDF0E3CE95ACD7DA7EEE9D4
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49624.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49624.jpgsave_picture_49624.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ magnet:?xt=urn:btih:78F0B873302B4A00D08F687D841A834E3D4F78C2
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49625.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49625.jpgsave_picture_49625.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ DP Animation Maker 3.5.30 RePack (& Portable) by TryRooM [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49626.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49626.jpgsave_picture_49626.jpg" />
 </div>
 
 

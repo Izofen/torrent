@@ -6,7 +6,7 @@ Relax Rain: sleeping sounds v6.7.3 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176683.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176683.jpgsave_picture_176683.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ PrivaZer 4.0.15 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_176684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176684.jpgsave_picture_176684.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:4206C9ABB8CC9EA421BD75520452A4EEF8593E7D
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_176685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176685.jpgsave_picture_176685.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ VA - Female pop rock part  11 Compilation (2022) [MP3|320 Kbps] <Pop Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176686.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176686.jpgsave_picture_176686.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:BA495EC5235C354CDB248517B74998C54C6230E6
 >>Релакс / Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_176687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176687.jpgsave_picture_176687.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:C5AB218B5AF9A81934ADF9147DD1DE8AB6A0864F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176695.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176695.jpgsave_picture_176695.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:C5AB218B5AF9A81934ADF9147DD1DE8AB6A0864F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176699.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176699.jpgsave_picture_176699.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:C5AB218B5AF9A81934ADF9147DD1DE8AB6A0864F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176704.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176704.jpgsave_picture_176704.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:C5AB218B5AF9A81934ADF9147DD1DE8AB6A0864F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176707.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176707.jpgsave_picture_176707.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ magnet:?xt=urn:btih:C5AB218B5AF9A81934ADF9147DD1DE8AB6A0864F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176711.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176711.jpgsave_picture_176711.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ magnet:?xt=urn:btih:C5AB218B5AF9A81934ADF9147DD1DE8AB6A0864F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176716.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176716.jpgsave_picture_176716.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ R-Wipe & Clean 20.0.2424 RePack (& Portable) by elchupacabra [Ru/En]
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176724.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176724.jpgsave_picture_176724.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ R-Wipe & Clean - программа для невосстановимого уд
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176732.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176732.jpgsave_picture_176732.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ R-Wipe & Clean - программа для невосстановимого уд
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176735.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176735.jpgsave_picture_176735.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Registry Finder 2.58 + Portable [Multi/Ru]
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176742.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176742.jpgsave_picture_176742.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Registry Finder - простая в использовании утилита д
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176753.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176753.jpgsave_picture_176753.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Registry Finder - простая в использовании утилита д
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176755.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176755.jpgsave_picture_176755.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ JRiver Media Center 31.0.68 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176757.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176757.jpgsave_picture_176757.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ JRiver Media Center — мощный мультимедийный центр, о
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176759.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176759.jpgsave_picture_176759.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ Dream Theater - Lost Not Forgotten Archives: The Making Of Scenes From A Memory 
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176762.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176762.jpgsave_picture_176762.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Dream Theater - Lost Not Forgotten Archives: The Making Of Scenes From A Memory 
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176774.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176774.jpgsave_picture_176774.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ Alt SwitchER 20.1 BETA Portable [Ru]
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176778.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176778.jpgsave_picture_176778.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ Alt SwitchER - программа для автоматического испр
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176783.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176783.jpgsave_picture_176783.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Paramore - Re: This Is Why (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alt. Ro
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176788.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176788.jpgsave_picture_176788.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ Paramore - Re: This Is Why (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alt. Ro
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176791.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176791.jpgsave_picture_176791.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ Paramore - Re: This Is Why (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alt. Ro
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176795.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176795.jpgsave_picture_176795.jpg" />
 </div>
 
 

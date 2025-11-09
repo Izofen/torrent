@@ -6,7 +6,7 @@ Psiphon 3 build 180 (15.11.2023) Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152407.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152407.jpgsave_picture_152407.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:E525E16D009D1491383A3C261B24736A62E52523
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152408.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152408.jpgsave_picture_152408.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Yuukoku no Moriarty | Moriarty the Patriot | Патриотизм Мориарт
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152409.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152409.jpgsave_picture_152409.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:2529C69943DA760D8CDBB554E86BD3E819B82DB3
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152410.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152410.jpgsave_picture_152410.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ SmartOffice - View & Edit MS Office files & PDFs v3.12.14 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152411.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152411.jpgsave_picture_152411.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ NeoFinder Business 7.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152413.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152413.jpgsave_picture_152413.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:DECE0B8C6B234E75ECACACD35BBB611AF253A2F2
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152414.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152414.jpgsave_picture_152414.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:49206C753FD285785563F1C00AB96FEE3AC94BD6
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152415.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152415.jpgsave_picture_152415.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:3384D4B1D2E85F41BCF1011C12EEAE40933B5641
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152416.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152416.jpgsave_picture_152416.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:4F2AA41F3028F3E98C841DB89616B92E8F70C851
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152417.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152417.jpgsave_picture_152417.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:7BAF8BDF743EF6222403E9AE27C886083B82094E
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152418.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152418.jpgsave_picture_152418.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:8924BCA5CAD05808BFAF59503B31828DFC6A3E58
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152420.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152420.jpgsave_picture_152420.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:3EBB2AA473890F5BF880EBC70139BB005B2EC090
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152421.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152421.jpgsave_picture_152421.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Adware Zap Pro 2.7.0.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152422.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152422.jpgsave_picture_152422.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ ASCOMP Secure Eraser Pro 6.004 RePack (& Portable) by elchupacabra [Ru/En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152423.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152423.jpgsave_picture_152423.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ HWiNFO 7.16 Build 4650 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152425.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152425.jpgsave_picture_152425.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Miss Li - The best (2006-2017) Compilation Album [MP3|320 Kbps] <Music Hall, Ind
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152426.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152426.jpgsave_picture_152426.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Promises - Promises (1978) LP [MP3|320 Kbps] <Electronic, Pop Rock, Disco>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152427.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152427.jpgsave_picture_152427.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ EtreCheck Pro 6.1.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152429.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152429.jpgsave_picture_152429.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Contrse, Дарья Калугина | Левитация: еда в движе�
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152430.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152430.jpgsave_picture_152430.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ magnet:?xt=urn:btih:525D03FE7B8F19B7FB23876BFD692C3FE46E52CE
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152431.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152431.jpgsave_picture_152431.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ magnet:?xt=urn:btih:98A2F861EDFB219571C726409B66CF5458D5F558
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152432.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152432.jpgsave_picture_152432.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ magnet:?xt=urn:btih:C55731E04D641083D9FF6CD1553240D79F287454
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152433.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152433.jpgsave_picture_152433.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ magnet:?xt=urn:btih:01755F2322D5FF8716CAF7B531DD73080ECD32EB
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152435.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152435.jpgsave_picture_152435.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Lord of the Lost - Blood & Glitter (2022) [MP3|320 Kbps] <Gothic, Industrial, Sy
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152436.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152436.jpgsave_picture_152436.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ VA - Xmas Hits (2018) [MP3|320 Kbps] <Dance, Pop, Ambient, New Age>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152437.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152437.jpgsave_picture_152437.jpg" />
 </div>
 
 

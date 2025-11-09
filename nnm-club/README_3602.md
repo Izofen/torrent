@@ -6,7 +6,7 @@ Walter Trout - Broken (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] < Blues Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114027.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114027.jpgsave_picture_114027.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ V.A. - Chill Out Cafe Jazz (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop Jazz, Nu Ja
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114028.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114028.jpgsave_picture_114028.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:B8F89B1E0E9C17D3A507B4481E5EC6A155BE21E5
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114029.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114029.jpgsave_picture_114029.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ VA - Live @ RAI, Amsterdam Dance Event (2023) [MP3|320 Kbps] <Melodic House, Pro
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114030.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114030.jpgsave_picture_114030.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ Empty Frame - Underdogs (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative & Indi
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114031.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114031.jpgsave_picture_114031.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ Ivo Linna - Поёт Иво Линна (1983) [FLAC 24/192|Lossless|tracks] <Pop
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114032.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114032.jpgsave_picture_114032.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ Jimmy Goings & Santa Esmeralda - Green Talisman (1982) [FLAC 24/192|Lossless|tra
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114033.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114033.jpgsave_picture_114033.jpg" />
 </div>
 
 
@@ -196,7 +196,7 @@ Silveroller - At Dawn (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock, Blu
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114034.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114034.jpgsave_picture_114034.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ magnet:?xt=urn:btih:167F3D827BBBD93CC3F6394FA8EBD36C5AFE983B
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114035.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114035.jpgsave_picture_114035.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Opera One 108.0.5067.20 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114036.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114036.jpgsave_picture_114036.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Firefox Browser 123.0.1 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114037.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114037.jpgsave_picture_114037.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ IObit Uninstaller Pro 13.4.0.2 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114038.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114038.jpgsave_picture_114038.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Cars & Brides - The 1st Album (2024) [FLAC|Lossless|WEB-DL|tracks] <Euro-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114039.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114039.jpgsave_picture_114039.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Comodo Dragon 121.0.6167.140 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114040.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114040.jpgsave_picture_114040.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Zakk Sabbath - Doomed Forever Forever Doomed (2024) 2 x CD [FLAC|Lossless|tracks
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114041.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114041.jpgsave_picture_114041.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ magnet:?xt=urn:btih:86172170E3DEB7FA4F6527DB0602C43C3150DAC5
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114042.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114042.jpgsave_picture_114042.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ DxO PhotoLab 6 ELITE Edition 6.15.0 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114043.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114043.jpgsave_picture_114043.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ Misutenaide Daisy | Don't Leave Me Alone, Daisy | Не покидай меня, 
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114044.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114044.jpgsave_picture_114044.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ magnet:?xt=urn:btih:25A4C6E035C3148B38BB1050E60741E0377CACCA
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114045.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114045.jpgsave_picture_114045.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ Music Collection 3.6.4.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114046.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114046.jpgsave_picture_114046.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:47ECD880760630F9E720B56C56C049BC8F5CE59C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114047.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114047.jpgsave_picture_114047.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Vivaldi 6.6.3271.48 include standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114048.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114048.jpgsave_picture_114048.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ magnet:?xt=urn:btih:0D8BF9CF8D81EFF08C90001FE0F924D5AFE14FCC
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114049.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114049.jpgsave_picture_114049.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ magnet:?xt=urn:btih:66163556EB990744FF0918EE7AF1D172A1EE0236
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114050.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114050.jpgsave_picture_114050.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ magnet:?xt=urn:btih:3BC3FC9DE376394222A3CC29D2F5CAF9F7A21D01
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114051.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114051.jpgsave_picture_114051.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Adobe Photoshop 2024 25.5.1.408 Light (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114052.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114052.jpgsave_picture_114052.jpg" />
 </div>
 
 

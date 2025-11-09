@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34883.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34883.jpgsave_picture_34883.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34884.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34884.jpgsave_picture_34884.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Eminem - Survival (2013) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bit] [hand made Up
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34885.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34885.jpgsave_picture_34885.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:E89D2EBF8A3BAFF67CA08B0FAC993878C210A714
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34886.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34886.jpgsave_picture_34886.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:3E53840CFAF42BA06F08AC749DA7785295A3B6B5
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34887.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34887.jpgsave_picture_34887.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Alder's Blood: Prologue (2020) [En] (1.0.20a) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34888.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34888.jpgsave_picture_34888.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Sexual Music Collection - Jazz SEXtet: Sexy Sounding Jazz for Couples in Love (2
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34889.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34889.jpgsave_picture_34889.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Dua Lipa - Dua Lipa Live from the Royal Albert Hall (2024) [FLAC 24/48|Lossless|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34890.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34890.jpgsave_picture_34890.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:0BEFDF2D47DDECE8C9A7773844C3A60655E32C0E
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34891.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34891.jpgsave_picture_34891.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:06E0A4F06B60A6B5E49F89011EC251903331C5DD
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34892.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34892.jpgsave_picture_34892.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ VA - Musical kaleidoscope part 15 Electronic, Instrumental, Easy listening (2024
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34893.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34893.jpgsave_picture_34893.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ magnet:?xt=urn:btih:12A64C039B999F63B3F19EC88583D4BFF653DCB5
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34894.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34894.jpgsave_picture_34894.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Marilyn Manson (2024) WEB-DL [H.264/1080p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34895.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34895.jpgsave_picture_34895.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ The Weeknd feat. Daft Punk - Starboy (2016) WEB-DLRip [H.265/2160p] [4K, SDR, 10
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34896.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34896.jpgsave_picture_34896.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ magnet:?xt=urn:btih:EDE355B27D34209B92B4C20BADC9BEFC5D69F16D
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34897.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34897.jpgsave_picture_34897.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ magnet:?xt=urn:btih:EE823D814FAD129F4047216624C8A77189DE1DA9
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34898.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34898.jpgsave_picture_34898.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ magnet:?xt=urn:btih:BC5B293C40B61637F72950C846C80324830C6FB0
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34899.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34899.jpgsave_picture_34899.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ VA - Music News For Forum vol.050 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34900.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34900.jpgsave_picture_34900.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Calvin Harris feat. Katy Perry, Pharrell Williams, Big Sean - Feels (2017) WEB-D
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34901.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34901.jpgsave_picture_34901.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Enrique Iglesias feat. Nicole Scherzinger - Heartbeat (2010) WEB-DLRip [H.265/21
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34902.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34902.jpgsave_picture_34902.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ magnet:?xt=urn:btih:14805A04C9BC51C0BC68F0146641865273794E32
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34903.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34903.jpgsave_picture_34903.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ magnet:?xt=urn:btih:10074868D32DC2CF221A1720C7610BA0BCD50C5A
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34904.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34904.jpgsave_picture_34904.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ magnet:?xt=urn:btih:80490FB8E337BFA2BA8F4CEB6E6BF96691BB1DB5
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34905.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34905.jpgsave_picture_34905.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ DJ Lava - Continuation Compilation (2024) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34906.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34906.jpgsave_picture_34906.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ Hurts - Wonderful Life (2010) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bit] [hand ma
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34907.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34907.jpgsave_picture_34907.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ Eminem feat. Rihanna - The Monster (2013) WEB-DLRip [H.265/2160p] [4K, SDR, 10-b
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34908.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34908.jpgsave_picture_34908.jpg" />
 </div>
 
 

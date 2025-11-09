@@ -6,7 +6,7 @@ VA - The Orient Collective: Agharta (2023) [FLAC|Lossless|WEB-DL|tracks] <World,
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180108.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180108.jpgsave_picture_180108.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Slurm (Слёрм), Николай Колядко | Чистая архитек�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180110.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180110.jpgsave_picture_180110.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - The Orient Collective: Ethereal Odyssey (2023) [FLAC|Lossless|WEB-DL|tracks
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180112.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180112.jpgsave_picture_180112.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:6BCD4FB9AC4E8D48B4ACA98A7AD6C4A6766E99FB
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180113.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180113.jpgsave_picture_180113.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Kylie Minogue - Tension (2023) hand made [restored, declipped] [FLAC|Lossless|tr
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180116.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180116.jpgsave_picture_180116.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ magnet:?xt=urn:btih:050ECBFE7C7D63B3138ABA625EB15FBF32DBA005
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180117.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180117.jpgsave_picture_180117.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ LEX LIVE 10 2022 v.22.10.25 RC FIX 12 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180119.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180119.jpgsave_picture_180119.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ magnet:?xt=urn:btih:D0D7FE5A795B76996C7963DB54234D378B923342
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180121.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180121.jpgsave_picture_180121.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ MX Player Pro 1.51.8 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180125.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180125.jpgsave_picture_180125.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ NetLimiter 5.3.4.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180126.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180126.jpgsave_picture_180126.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ ACDSee Photo Studio Ultimate 2023 16.0.3.3188 Portable by NNM [Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180128.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180128.jpgsave_picture_180128.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ Topaz Video AI 3.5.1 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180130.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180130.jpgsave_picture_180130.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ magnet:?xt=urn:btih:F9E6E4C54826C1BD84209E88904C8A7240BECE52
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180131.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180131.jpgsave_picture_180131.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ OCCT 12.1.8 Final Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180134.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180134.jpgsave_picture_180134.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ magnet:?xt=urn:btih:70FAAE643BCDB42A5824639A9A42D90F6129672B
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180137.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180137.jpgsave_picture_180137.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ magnet:?xt=urn:btih:8476DA984894EF172C4539F624D5B3AE1367ED2C
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180138.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180138.jpgsave_picture_180138.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ qBittorrent 4.5.0 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180140.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180140.jpgsave_picture_180140.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ magnet:?xt=urn:btih:7A27936C616FC94FAA55D439EFBFF33DF45D6E1E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180144.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180144.jpgsave_picture_180144.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ magnet:?xt=urn:btih:2F78C9F6CC6C5DE96ABA166D8543C7FAC44AC521
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180149.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180149.jpgsave_picture_180149.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ VA - The Orient Collective: Vimana (2023) [FLAC|Lossless|WEB-DL|tracks] <World, 
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180151.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180151.jpgsave_picture_180151.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ magnet:?xt=urn:btih:AF685A32DF8AA8E5105DCABEFB069D79EE72DC00
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_180155.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_180155.jpgsave_picture_180155.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ IceCream Ebook Reader Pro 6.37 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_180158.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_180158.jpgsave_picture_180158.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ magnet:?xt=urn:btih:6AEAF0D414D50569B05B8A27A22BFA6C89BB1AF7
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180159.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180159.jpgsave_picture_180159.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ Wham! - The Singles: Echoes from the Edge of Heaven (2023) Expanded Edition [FLA
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_180161.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_180161.jpgsave_picture_180161.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ magnet:?xt=urn:btih:AA5EE587B10702756A82C1C378FE9F6FBD039009
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180163.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180163.jpgsave_picture_180163.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ Fobia - St. Dinfna Hotel (2022) [Ru/Multi] (01.02 Build 9460237) License DOGE
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180164.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180164.jpgsave_picture_180164.jpg" />
 </div>
 
 

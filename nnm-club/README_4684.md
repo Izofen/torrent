@@ -6,7 +6,7 @@ Wallpapers Sexy Girls (14.12.12) [Wallpapers 16+]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146627.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146627.jpgsave_picture_146627.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:889F87388872292B0832D221C507864D10FB0E25
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146628.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146628.jpgsave_picture_146628.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ YouTube и "Яндекс.Видео" готовятся заблокироват
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146629.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146629.jpgsave_picture_146629.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ YouTube и "Яндекс.Видео" готовятся заблокироват
 >>DailyTechInfo
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146630.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146630.jpgsave_picture_146630.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ YouTube и "Яндекс.Видео" готовятся заблокироват
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146632.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146632.jpgsave_picture_146632.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:B9ED8C2E84B6CDB4233D9439D55DF8C14E29BC02
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146633.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146633.jpgsave_picture_146633.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:CC6A7F7134477E6140146EEAF50C2E575DC361CB
 >>Отечественное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146634.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146634.jpgsave_picture_146634.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:3FAE6817771501F318F9C29277DA86DC06E3E91E
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146636.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146636.jpgsave_picture_146636.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ akaEasyMoney 1.0.8 Portable [Multi/Ru] (Авторская раздача)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146637.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146637.jpgsave_picture_146637.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ magnet:?xt=urn:btih:C64394483043AC911305A789BB5247A953EA2885
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146638.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146638.jpgsave_picture_146638.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Sentouin, Haken Shimasu! | Combatants Will Be Dispatched! | Бойцы буду�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146640.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146640.jpgsave_picture_146640.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ magnet:?xt=urn:btih:33A11D817D2C53E52C73BFC615AAF048EEE44966
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146641.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146641.jpgsave_picture_146641.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ magnet:?xt=urn:btih:C916F99B2C90AF2E329A6EB486CA3169B38F39B3
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146642.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146642.jpgsave_picture_146642.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ magnet:?xt=urn:btih:22D8EB9455B64EC864ADA4FE1FF75A21CD964985
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146643.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146643.jpgsave_picture_146643.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ magnet:?xt=urn:btih:BC65B378B22D13D92D67E7C7BB8F8F0B633EC277
 >>Хоккей. Чемпионаты мира
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146645.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146645.jpgsave_picture_146645.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Christine And The Queens - Chaleur Humaine (2014) 2016, Because Music [FLAC|Loss
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146646.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146646.jpgsave_picture_146646.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ magnet:?xt=urn:btih:70DACF8C670EF44AC3E32FA53FF75F78133025F7
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146647.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146647.jpgsave_picture_146647.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Kumo Desu ga, Nanika? | So I'm a Spider, So What? | Да, я паук, и что
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146648.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146648.jpgsave_picture_146648.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ magnet:?xt=urn:btih:0A109AD9939FF799FCB5520702B9195101E0F744
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146649.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146649.jpgsave_picture_146649.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ magnet:?xt=urn:btih:51ABCFCEF30A71630C858EF0D8A4CD67A39389E6
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146651.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146651.jpgsave_picture_146651.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ AC/DC - Bon Scott Hits (2015) [MP3|320 кб/с] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146652.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146652.jpgsave_picture_146652.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ iLock 3.2.0 [Mulri/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146653.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146653.jpgsave_picture_146653.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ Gilrs Wallpaper Collection (15.12.12) [Wallpapers 16+]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146654.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146654.jpgsave_picture_146654.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ magnet:?xt=urn:btih:814A584821118F7F8BCF28D9184ECE9574F56FDC
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146655.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146655.jpgsave_picture_146655.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ PotPlayer 231113 (1.7.22038) RePack (& portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146656.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146656.jpgsave_picture_146656.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ Truecaller: определитель номера и запись звонков
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146657.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146657.jpgsave_picture_146657.jpg" />
 </div>
 
 

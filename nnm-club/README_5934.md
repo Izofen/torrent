@@ -6,7 +6,7 @@
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186881.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186881.jpgsave_picture_186881.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:3F8AE399DF4E8083DB5A09A9B389A49693C6A0A3
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186882.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186882.jpgsave_picture_186882.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Death Dealer Union - Initiation (2023) [FLAC|Lossless|WEB-DL|tracks] <Modern Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186883.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186883.jpgsave_picture_186883.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:D47067C27005F6E7EEF8074294F06FC44BDD54EA
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186884.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186884.jpgsave_picture_186884.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ magnet:?xt=urn:btih:62D25053144C944B786D357167C306157D299055
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186885.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186885.jpgsave_picture_186885.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ magnet:?xt=urn:btih:482356C4954579681A1A91AD01CBF5D1B902383B
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_186886.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_186886.jpgsave_picture_186886.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ Gravestone - Creating A Monster (1986) 2005 Reissue, Remastered [FLAC|Lossless|i
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186887.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186887.jpgsave_picture_186887.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ VA - Black Hole Trance Music 11-22 (2022) [MP3|320 Kbps] <Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186888.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186888.jpgsave_picture_186888.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ Vision Master - Sceptre (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186889.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186889.jpgsave_picture_186889.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ magnet:?xt=urn:btih:7262A1C32B75F8D1846909C386147F0D2EA142C8
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186890.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186890.jpgsave_picture_186890.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ magnet:?xt=urn:btih:7113F5775C1587F6E936A23ECEB97A105E4F875A
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186891.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186891.jpgsave_picture_186891.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ Aortha - Monolit (2023) [FLAC|Lossless|WEB-DL|tracks] <power-metal, thrash-metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186892.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186892.jpgsave_picture_186892.jpg" />
 </div>
 
 
@@ -314,7 +314,7 @@ Tubby Hayes - Three Classic Albums Plus (1955 - 1960) 2CD, 2010, Avid Jazz [FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186893.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186893.jpgsave_picture_186893.jpg" />
 </div>
 
 
@@ -341,7 +341,7 @@ magnet:?xt=urn:btih:8E51FEB89F5B41BF0F9EE574A34338FBC0619017
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186894.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186894.jpgsave_picture_186894.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ magnet:?xt=urn:btih:8D7E899644B21FD16D7FA8C685D813429E3A8AC0
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186895.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186895.jpgsave_picture_186895.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ Palace Of Black - Palace Of Black (2002) 2003 CD-Maximum [FLAC|Lossless|image + 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186896.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186896.jpgsave_picture_186896.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ magnet:?xt=urn:btih:B7FB04D131840A8D61DF83DE65561D4966C56E39
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186897.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186897.jpgsave_picture_186897.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ magnet:?xt=urn:btih:935DF86BC674CD29D1A6827D56E9DE9ED7EAB555
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186898.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186898.jpgsave_picture_186898.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ magnet:?xt=urn:btih:E26FE039DE41F866EE44183D09B5CA28548489D4
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186899.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186899.jpgsave_picture_186899.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Udemy, Bogdan Stashchuk | Python - Полный Курс по Python, Django, Da
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186900.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186900.jpgsave_picture_186900.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ Ahmad Jamal (Ahmad Jahal) & Wynton Marsalis - Modern Jazz (2005) KM Internationa
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186901.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186901.jpgsave_picture_186901.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ Microsoft Windows 10.0.19045.3448, Version 22H2 (Updated September 2023) - Ор�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186902.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186902.jpgsave_picture_186902.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ magnet:?xt=urn:btih:2902D654ABD596C762F631AED3658AB9C11D2494
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186903.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186903.jpgsave_picture_186903.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ magnet:?xt=urn:btih:4DFB07341632F9D4084B7E2C854AD3B88879051D
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186904.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186904.jpgsave_picture_186904.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ magnet:?xt=urn:btih:3F8B149119B82E8697919FD47F18B1EC0435BFA4
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186905.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186905.jpgsave_picture_186905.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ magnet:?xt=urn:btih:E37B6C597B14887F9F9D10AADA7F59B08265DF33
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186908.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186908.jpgsave_picture_186908.jpg" />
 </div>
 
 

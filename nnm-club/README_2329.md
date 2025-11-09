@@ -6,7 +6,7 @@ StartAllBack 3.7.8 (DC 02.04.2024) StartIsBack++ 2.9.20 (2.9.1) StartIsBack + 1.
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60921.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60921.jpgsave_picture_60921.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:1276AC2C3ED877CD2D7521935A94728DAFABAC16
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60922.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60922.jpgsave_picture_60922.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:48FD07736F441EF93CDC72802D52066F1E210714
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60923.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60923.jpgsave_picture_60923.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ BBC. Горы - жизнь над облаками / Mountain: Life at the Extre
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60924.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60924.jpgsave_picture_60924.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:3819896263FA099522F1F92189BBCD074C0546BB
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60925.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60925.jpgsave_picture_60925.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:9F9AEC1CB29DC149145FB14E489176EFBE30F48C
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60926.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60926.jpgsave_picture_60926.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ GoodbyeDPI 0.2.2 Launcher 7.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60927.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60927.jpgsave_picture_60927.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:2532E9BCC4EE11815B1D9CEE3D0704AF776FAA22
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60928.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60928.jpgsave_picture_60928.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:A2F01608A154A0C18D69915800B2370B4D267075
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60929.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60929.jpgsave_picture_60929.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ BBC. Византий: сказания о трёх городах / Byzantium: 
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60930.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60930.jpgsave_picture_60930.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ The Bat! Professional 11.1.0.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60931.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60931.jpgsave_picture_60931.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Bloody Ink (2024) [Ru/Multi] (13792199) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60932.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60932.jpgsave_picture_60932.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:38820575289B1959F172669D06A18D4A1D50F4B1
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60933.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60933.jpgsave_picture_60933.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:38820575289B1959F172669D06A18D4A1D50F4B1
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60934.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60934.jpgsave_picture_60934.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ magnet:?xt=urn:btih:1F05C7F00523F0BD48485D57AAA39E48F9381530
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60935.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60935.jpgsave_picture_60935.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:BFB11B83CCEC804C3B46F8DEC47A205486E3454A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60936.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60936.jpgsave_picture_60936.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ magnet:?xt=urn:btih:8EDDAAB433EB5BDE69FE7536371359A67AE38C41
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60937.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60937.jpgsave_picture_60937.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ Judas Priest (Glenn Tipton / KK's Priest) - 60 albums, 4 Box-set, 236 CD (1974-2
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60938.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60938.jpgsave_picture_60938.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ magnet:?xt=urn:btih:9725E3D6E7663333C2BBD31ABAB6EED4EE3082FA
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60939.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60939.jpgsave_picture_60939.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ magnet:?xt=urn:btih:C72A77A53453990C1A24B847C7BEA7A79330DC0E
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60940.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60940.jpgsave_picture_60940.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ magnet:?xt=urn:btih:B6AE306AD9512A497A8E9F7A91A969984F8F9B9F
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60941.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60941.jpgsave_picture_60941.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:FE1212EA3A1DB45EB84A62564A6F3FC324AFBD4D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60942.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60942.jpgsave_picture_60942.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ magnet:?xt=urn:btih:6ABC73D20D1DCFABBB4362E3512633011C86D280
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60943.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60943.jpgsave_picture_60943.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ V-Ray 6.20.06 for 3ds Max 2020-2025 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60944.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60944.jpgsave_picture_60944.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Saxon - 45 Albums, 3 Box Set, 97 CD (1979-2024) [FLAC|Lossless|image + .cue] <He
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60945.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60945.jpgsave_picture_60945.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ magnet:?xt=urn:btih:E49B174D1B7AE16CBE57761F1671BC4E37627C9A
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60946.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60946.jpgsave_picture_60946.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Ken (Kenny) Wheeler & The John Dankworth Orchestra - Windmill Tilter: The Story 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66868.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66868.jpgsave_picture_66868.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:5FFC2174AC39EFFC8118A21F39FC4B2D749AA6A5
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66869.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66869.jpgsave_picture_66869.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ John Primer - Grown in Mississippi (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66870.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66870.jpgsave_picture_66870.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Catfish John Tisdell - Back to the Dirt (2025) [FLAC|Lossless|WEB-DL|tracks] <Bl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66871.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66871.jpgsave_picture_66871.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Aki Kumar - God Bless The USA (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66872.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66872.jpgsave_picture_66872.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ magnet:?xt=urn:btih:210044649865A42C39D38499C4550DFA80A8C6AB
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66873.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66873.jpgsave_picture_66873.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Amos Media Co. | Scott 2020 Standard Postage Stamp Catalogue + Scott New Listing
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66874.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66874.jpgsave_picture_66874.jpg" />
 </div>
 
 
@@ -187,7 +187,7 @@ magnet:?xt=urn:btih:5F898C5970941F979C96D64E6119371D60B19E7B
 >>Растровый клипарт (иллюстрации)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66875.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66875.jpgsave_picture_66875.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ Smart AudioBook Player Pro v11.3.1 Mod by Kirlif' [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66876.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66876.jpgsave_picture_66876.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ magnet:?xt=urn:btih:8F972469683E39B3BF4DBD3035E10E5FB897B8C3
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66877.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66877.jpgsave_picture_66877.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ magnet:?xt=urn:btih:73B9748660C19D9392A08EF85D472D420B137CB5
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66878.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66878.jpgsave_picture_66878.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ Stratcat Willie & the Strays - Don't Slow Down! (2025) [FLAC|Lossless|WEB-DL|tra
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66879.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66879.jpgsave_picture_66879.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ magnet:?xt=urn:btih:83C3B03644AC03FBB29AA61750C5917BD0596E72
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66880.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66880.jpgsave_picture_66880.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ magnet:?xt=urn:btih:39574B1F3CD17C7A2C884A215E5FACAF1BB782A2
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66881.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66881.jpgsave_picture_66881.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ magnet:?xt=urn:btih:309F7146D13AA5AF479CCB8651B0081873E4372C
 >>Растровый клипарт (иллюстрации)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66882.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66882.jpgsave_picture_66882.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ Cottonfield Blues - Rust & Shadows (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66883.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66883.jpgsave_picture_66883.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Ethernal - Esencia (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Female Voc
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66884.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66884.jpgsave_picture_66884.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Dudley Taft - 15 Greatest Hits (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66885.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66885.jpgsave_picture_66885.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Gong - I See You (2014) 10th Anniversary, Mix, 2025, Kscope Music [FLAC 24/48|Lo
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66886.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66886.jpgsave_picture_66886.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Sleep Token - Even In Arcadia (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Prog
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66887.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66887.jpgsave_picture_66887.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Terry Hanck - Grease to Gravy (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66888.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66888.jpgsave_picture_66888.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ Little Feat - Strike Up The Band (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Cla
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66889.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66889.jpgsave_picture_66889.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ magnet:?xt=urn:btih:338810857570CBB678DA803741C7D18DF107503F
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66890.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66890.jpgsave_picture_66890.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ The Kooks - Never-Know (2025) [FLAC 24/44.1,48|Lossless|WEB-DL|tracks] <Alt. Roc
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66891.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66891.jpgsave_picture_66891.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ magnet:?xt=urn:btih:708D30C141E18EB7D5ED937B7C6592FE459187E3
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66892.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66892.jpgsave_picture_66892.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ magnet:?xt=urn:btih:37CAD799DC17D5CBFB145A151C42D24A07E62F33
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66893.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66893.jpgsave_picture_66893.jpg" />
 </div>
 
 

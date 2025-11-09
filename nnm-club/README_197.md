@@ -6,7 +6,7 @@ Tavern Manager Simulator (2024) [Ru/Multi] (1.5.1/dlc) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5187.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5187.jpgsave_picture_5187.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:0656E6DDED7519C6108AF4F98AD81A0F751B4B50
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5188.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5188.jpgsave_picture_5188.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:0343597BDE672CAFC7F87D1A6481F25641CD5C48
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5189.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5189.jpgsave_picture_5189.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Have A Nice Death (2023) [Switch] [EUR] 15.0.1, Atmosphere 1.5.1 [License] [Ru/M
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5190.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5190.jpgsave_picture_5190.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ VA - Music News For Forum vol.131 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5191.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5191.jpgsave_picture_5191.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:CCE99D404A5910CEBCFABF7DF2D10397E6FBFF88
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5192.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5192.jpgsave_picture_5192.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:4B21FAAAD52ACE9BD26D369C398EB6C7C8075991
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5193.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5193.jpgsave_picture_5193.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:8B7510BF8B6FD7A62E1D13A7B506E6E0B37D1C3D
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5194.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5194.jpgsave_picture_5194.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ Karing 1.2.3.857 (Pre-release) [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5195.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5195.jpgsave_picture_5195.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ Stray (2024) [Switch] [EUR] 18.1.0, Atmosphere 1.7.1 [License] [Ru/Multi]
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5196.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5196.jpgsave_picture_5196.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ Wicked West (2025) [En] (1.0) Scene TiNYiSO
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5197.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5197.jpgsave_picture_5197.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ PDF-XChange PRO 10.7.1.399 [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5198.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5198.jpgsave_picture_5198.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ magnet:?xt=urn:btih:41C8A82E56E80E4ED414995D9672B6288C23BB29
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5199.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5199.jpgsave_picture_5199.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ magnet:?xt=urn:btih:F3A558641ED4BE997D3E841F198003DCDCEFBC49
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5200.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5200.jpgsave_picture_5200.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ magnet:?xt=urn:btih:1660EC5692D6DEDC91BB4583FFB8F023C3C337D2
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5201.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5201.jpgsave_picture_5201.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ magnet:?xt=urn:btih:077FCBF06F9B4A3CA6A844E0A46053CF2B0C8285
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5202.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5202.jpgsave_picture_5202.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ magnet:?xt=urn:btih:40EAB73B707D7488FEE98F0356E6B78BB5561C52
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5203.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5203.jpgsave_picture_5203.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Teenage Mutant Ninja Turtles: Splintered Fate (2024) [Switch] [EUR] 18.0.1, Atmo
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5204.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5204.jpgsave_picture_5204.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ magnet:?xt=urn:btih:B693A8C0E725F5C42126C3A9CB0ECB5103385E5F
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5205.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5205.jpgsave_picture_5205.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ magnet:?xt=urn:btih:7B44E24DD50CD3DCB67D8E9336F6D52956802E03
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5206.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5206.jpgsave_picture_5206.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ IsMyLcdOK 5.99 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5207.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5207.jpgsave_picture_5207.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Hotline Miami 2: Wrong Number (2015) [Ru/Multi] (07.12.2017) Repack Wanterlude
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5208.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5208.jpgsave_picture_5208.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ magnet:?xt=urn:btih:07C92417CD6F5CE58671130BAEA89A0456D7B449
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5209.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5209.jpgsave_picture_5209.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ magnet:?xt=urn:btih:4D79D9F846EA6D9F47365731B4DE5148AB1752F9
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5210.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5210.jpgsave_picture_5210.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Dredge: Complete Edition (2023) [Switch] [EUR] 15.0.1, Atmosphere 1.4.1 [License
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5211.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5211.jpgsave_picture_5211.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Act&Create, Tasha Lumi | Всё, что тебе нужно знать для с
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5212.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5212.jpgsave_picture_5212.jpg" />
 </div>
 
 

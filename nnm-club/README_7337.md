@@ -6,7 +6,7 @@
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250898.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250898.jpgsave_picture_250898.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:666F63F241307B6F3DAB38BDEB1C198EAEE5B0D9
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250900.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250900.jpgsave_picture_250900.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:28BF1E02AF2E91A47F862756B0B20EE55EED4D2C
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250902.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250902.jpgsave_picture_250902.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ SysTweak Regclean Pro 6.21.65.2275 Portable by Bommer x32/x64 [Английск�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250903.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250903.jpgsave_picture_250903.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ SysTweak RegClean Pro — программа для исправления за�
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250904.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250904.jpgsave_picture_250904.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:868B054EEFF48E0A7F67F109C33CAD8B38270092
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250906.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250906.jpgsave_picture_250906.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:814DD24803F2E04447CF09AD445123C2826C9214
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250908.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250908.jpgsave_picture_250908.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:A4E9C4875F933052AD91C0878D0E0F78CFE65821
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250911.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250911.jpgsave_picture_250911.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ Syberia - Remastered (2025) [Ru/Multi] (32111015) Scene FairLight
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250913.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250913.jpgsave_picture_250913.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:D2EE68CB3B7D253883668749E521BC2C5187FADE
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250916.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250916.jpgsave_picture_250916.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:431154AFB00E91C8D6E702F632AD1AAF1BC4DF7F
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250919.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250919.jpgsave_picture_250919.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Stormworks: Build and Rescue (2020) [Ru/En] (1.15.5/dlc) Repack Necros
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250921.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250921.jpgsave_picture_250921.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ The Falconeer Revolution Remaster (2025) [Ru/Multi] (32096228) Scene Rune
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250923.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250923.jpgsave_picture_250923.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ MinerSearch 1.4.8.2 Portable [Ru/En]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250924.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250924.jpgsave_picture_250924.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ magnet:?xt=urn:btih:638AC57A7AB18B659845B225296355389D3326B0
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250926.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250926.jpgsave_picture_250926.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ magnet:?xt=urn:btih:9EA0D2ADBC193EEF23CEB85A57E06ECF27CD4DD1
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250929.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250929.jpgsave_picture_250929.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Metal Garden (2025) [Multi] (2.4.0) Repack Necros
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250930.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250930.jpgsave_picture_250930.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ Cats & Cups (2025) [Ru/Multi] (1.0.5) Repack Necros
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250931.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250931.jpgsave_picture_250931.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ BALL x PIT (2025) [Ru/Multi] (build 20625643) Repack Necros
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250932.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250932.jpgsave_picture_250932.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ magnet:?xt=urn:btih:82F506E5EB51A8A6A7117A74BCA581290EA0D3A5
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250933.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250933.jpgsave_picture_250933.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:5A37D257F8E441B1472E25E3E33386DB6B477398
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250934.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250934.jpgsave_picture_250934.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ magnet:?xt=urn:btih:7EF88DAF9F1D1D2CCCD8E55634B7FD86D176E650
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250935.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250935.jpgsave_picture_250935.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ VA - 70s Rewind (Warner Music) (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250936.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250936.jpgsave_picture_250936.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ Snark Busters: High Society / Охотники за Снарком. Высшее
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250939.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250939.jpgsave_picture_250939.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ magnet:?xt=urn:btih:1DDE43BC4F3957E5397B2F234C0BC2B8BCA47B0A
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250941.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250941.jpgsave_picture_250941.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ Astroburn Pro 3.0.0.0172 Portable by Valx [Мульти,Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250942.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250942.jpgsave_picture_250942.jpg" />
 </div>
 
 

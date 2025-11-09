@@ -6,7 +6,7 @@
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250515.jpgsave_picture_250515.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:F8C01511BF2B4A2E18322D3EDAD52F9DD3C01450
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250516.jpgsave_picture_250516.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Smalland: Survive the Wilds (2024) [Ru/Multi] (2.1.1) Repack Necros
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250517.jpgsave_picture_250517.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:73D7549B9A6150EB1F77AE0F2CD1096E7647E037
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250518.jpgsave_picture_250518.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:F107676FFFE280B784846CA39852174C6CDD9EE4
 >>Отечественные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250519.jpgsave_picture_250519.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:E3EC12D1CEACF247067F3F2E41EF8FCBB43967D0
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250520.jpgsave_picture_250520.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:5554200EDC7D7AAA87F7BE8A660D8164080AAC86
 >>Отечественные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250521.jpgsave_picture_250521.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Greg Puciato - 3 Albums (2020-2022) [MP3|320 Kbps] <Alternative Rock, Grunge, In
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250522.jpgsave_picture_250522.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:1AE8C810216F182D266ADAEFBB39742CCB5EE6F6
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250523.jpgsave_picture_250523.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:4FB3C20AF84320B2F9BE466C9C0C5EF4C7AB1469
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250524.jpgsave_picture_250524.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:7A7630A21C414CBD6E03D9D96FA89729D98C07AC
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250525.jpgsave_picture_250525.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:644189F488936D032C22FD50825885273CD15F09
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250526.jpgsave_picture_250526.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:889F41B9750E1C0FE291B3C931B1A10CF20E9C6A
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250527.jpgsave_picture_250527.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Chilled Blues - Dark Blues Ballads Winter Nights with Blues (2025) [MP3|320 Kbps
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250528.jpgsave_picture_250528.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ magnet:?xt=urn:btih:862B01C8AF0D01717FACF8EFD5B48B1371FF198E
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250529.jpgsave_picture_250529.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ magnet:?xt=urn:btih:8E38BA4123AF6EFFC1A8FA390259241AD82E8A29
 >>Элементы (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250530.jpgsave_picture_250530.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ magnet:?xt=urn:btih:F0A1E7F086CA3B14B502426973A652D302F81C1F
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250531.jpgsave_picture_250531.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ magnet:?xt=urn:btih:249C2855066086FA6980222DB78FE74B64262F1E
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250532.jpgsave_picture_250532.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ magnet:?xt=urn:btih:2D1E44C9C6D10C1EFA5A52F7FD5FCC7369A76182
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250533.jpgsave_picture_250533.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ O&O Defrag Professional & Server 30.5 Build 1201 [En/De]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250534.jpgsave_picture_250534.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ White Lies - Night Light (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Alternative
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250535.jpgsave_picture_250535.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ magnet:?xt=urn:btih:15B1BC394974E23E151769019B4827CD0CFFE623
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250536.jpgsave_picture_250536.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ Spectrasonics - Omnisphere 3.0.0d STANDALONE, VST / VSTi, VST 3 / VSTi 3, AAX (x
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250537.jpgsave_picture_250537.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ magnet:?xt=urn:btih:A783E96C137F12A3A3085A47624356096563E063
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250538.jpgsave_picture_250538.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ magnet:?xt=urn:btih:C01A51F886503E9A58275C8BDFDF451B54524622
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250539.jpgsave_picture_250539.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ magnet:?xt=urn:btih:6D5BD0ED220C5C67DE02CFCEBAA58E9419807E14
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250540.jpgsave_picture_250540.jpg" />
 </div>
 
 

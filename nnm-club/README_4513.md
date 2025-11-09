@@ -6,7 +6,7 @@
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141164.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141164.jpgsave_picture_141164.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Big Pharma (2015) [Multi] (1.07.12) License GOG
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141165.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141165.jpgsave_picture_141165.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:0399392FC93D79C45C1D1B13E7F4D3F9A462F898
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141166.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141166.jpgsave_picture_141166.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:8FD0B3A3A4B78D92D77E192CEFEC7AE8A978EAC3
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141168.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141168.jpgsave_picture_141168.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ CoolUtils Total Doc Converter 5.1.0.255 (Repack & Portable) by elchupacabra [Mul
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141169.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141169.jpgsave_picture_141169.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:0FB751064B1EDF17F11886638BD2A6FA6828A327
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141171.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141171.jpgsave_picture_141171.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:BA7264881AA9AD40B0F3A2B13A233ABD1BA137EB
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141172.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141172.jpgsave_picture_141172.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ Isekai wa Smartphone to Tomo ni. | In Another World With My Smartphone | В др
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141173.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141173.jpgsave_picture_141173.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:6EAD3E72656F2D455726D23A73AD7EED1613313E
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141174.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141174.jpgsave_picture_141174.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:66B985E99EEA721C0E69AB474F2BEB0E696EDC45
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141175.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141175.jpgsave_picture_141175.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Microsoft Visual Studio 2019 Enterprise 16.4.1 (Offline Cache, Unofficial) [Ru/E
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141176.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141176.jpgsave_picture_141176.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:D735F97E9C940E241FEC1CA0B5B3669BC6AAB7AC
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141179.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141179.jpgsave_picture_141179.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Alien Shooter 2: Reloaded (2009) [Ru/En] (1.2) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141180.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141180.jpgsave_picture_141180.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ magnet:?xt=urn:btih:050CF2FDB7416AE1D45EEA1A740905E6143279C9
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141181.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141181.jpgsave_picture_141181.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ magnet:?xt=urn:btih:DEA3BF8A88B7778E41DFC7F2A398CDCC088B32F1
 >>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141182.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141182.jpgsave_picture_141182.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ magnet:?xt=urn:btih:818B49BEA2E33CBB3831EB857105E3F0375803EC
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141183.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141183.jpgsave_picture_141183.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ magnet:?xt=urn:btih:C6CC3D9F2F5FCD9167E81A7BC0E09E2DD42DE089
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141185.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141185.jpgsave_picture_141185.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ magnet:?xt=urn:btih:FE538B2D62571539DE26864D7C753CCE4832E27F
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141186.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141186.jpgsave_picture_141186.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ magnet:?xt=urn:btih:DBBE345D31880DB6AD08AA7F45815AA617ADF261
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141188.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141188.jpgsave_picture_141188.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ AdwCleaner 5.027 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141190.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141190.jpgsave_picture_141190.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ magnet:?xt=urn:btih:A6CBE82527D4F92171346521BBCBD77CCA33E691
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141191.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141191.jpgsave_picture_141191.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ Profondita - Ciel (2016) [MP3|320 Kbps] <Psychill, Progressive Chill>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141192.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141192.jpgsave_picture_141192.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ magnet:?xt=urn:btih:999038A88235EDAFF777D35EDF29C06D496A36A9
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141194.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141194.jpgsave_picture_141194.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ magnet:?xt=urn:btih:8E55B8E7F5E4FD69D9C1ACCE633ECC6EE50473E4
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141195.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141195.jpgsave_picture_141195.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Sweet - Isolation Boulevard (2020) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Gla
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141196.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141196.jpgsave_picture_141196.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ magnet:?xt=urn:btih:946AED832547A5519DAA0E9847A866E3D8BD7D3C
 >>Книжная иллюстрация
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141197.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141197.jpgsave_picture_141197.jpg" />
 </div>
 
 

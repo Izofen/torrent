@@ -6,7 +6,7 @@
 >>Теория Большого Взрыва / The Big Bang Theory; Детство Шелдона / Young Sheldon
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252033.jpgsave_picture_252033.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:049044A5D09E50370AD9D8F93951762CED02717B
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252034.jpgsave_picture_252034.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:D22469486AA8DB7CE83AB390D8ADA0B0CB5C4209
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252035.jpgsave_picture_252035.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Adobe Photoshop 2023 24.5.0.500 Light (x64) Portable by 7997 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252036.jpgsave_picture_252036.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:EB2320449247A2040CF699A952CCD695C1ACF28B
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252037.jpgsave_picture_252037.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:A861E371A6121F95BADBACF57493144CEF5B8186
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252038.jpgsave_picture_252038.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Guns n' Roses - 9 альбомов, 1 EP, 2 Box Set (1987 - 2022) 33 CD [FLAC|Lo
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252039.jpgsave_picture_252039.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:D7F8F2F3D23809BBCFDA00772347DC7CEFEFAFAE
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252040.jpgsave_picture_252040.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ itProger |  Профессия Python разработчик (2020) WEB-DL [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252041.jpgsave_picture_252041.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:2D8E87FBDE704DAC6293A55D6D7F910777526D43
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252042.jpgsave_picture_252042.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ NG: Расследования авиакатастроф / Air Crash Investigat
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252043.jpgsave_picture_252043.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:4801252B94830178A8BEA8FB051BCECF4E0FE210
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252044.jpgsave_picture_252044.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:C9E8DBA7B8C05817E89EB732C1DC4EF074CF85C6
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252045.jpgsave_picture_252045.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ magnet:?xt=urn:btih:FD2FCED9898644B0AE37B0B6DFD3B3DBACB1FE6B
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252046.jpgsave_picture_252046.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ magnet:?xt=urn:btih:8CE64E9507E4FBB541EECB5E571E674746C2A7D3
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252047.jpgsave_picture_252047.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ magnet:?xt=urn:btih:9D70BA4C783EE35858CDA8509A6A07924720E117
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252048.jpgsave_picture_252048.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ magnet:?xt=urn:btih:51ACC72B59159AF545FA9F824670778469FB3212
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252049.jpgsave_picture_252049.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ magnet:?xt=urn:btih:19E4710E8089F3FE572E07E4B28332EFC83F1542
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252050.jpgsave_picture_252050.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ Windows 11 Pro 22H2 Build 22621.1702 x64 by SanLex [Lightweight] Ru/En] (2023.05
 >>14
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252051.jpgsave_picture_252051.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Adobe Photoshop 2023 (24.5.0.500) Portable by XpucT [Ru/En]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252052.jpgsave_picture_252052.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:4AA04DD6E73AE1A02A07DD24E06A97872F02D535
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252053.jpgsave_picture_252053.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ magnet:?xt=urn:btih:4AA04DD6E73AE1A02A07DD24E06A97872F02D535
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252054.jpgsave_picture_252054.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Ulbi TV, Тимур Ульби | Продвинутый Frontend. В Production 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252055.jpgsave_picture_252055.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ magnet:?xt=urn:btih:1FA1913582E345E3E4853F5840328CBCCE2A2725
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252056.jpgsave_picture_252056.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ magnet:?xt=urn:btih:753A76D9DB9CC22263E7CEB1B67F5E180B3D6D35
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252057.jpgsave_picture_252057.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ magnet:?xt=urn:btih:2D1471EFDBAE4D4F44CEBDB98EA1DF1F3687B85C
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252058.jpgsave_picture_252058.jpg" />
 </div>
 
 

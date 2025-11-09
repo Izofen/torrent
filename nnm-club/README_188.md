@@ -6,7 +6,7 @@ IMKT - Sooner Or Later (2025) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4953.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4953.jpgsave_picture_4953.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:1DF64EC66EB450AB6ECBA2A9920540D59A283D22
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4954.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4954.jpgsave_picture_4954.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:08DEE65D8F5083FAE47D0332B616A33174A3758A
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4955.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4955.jpgsave_picture_4955.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Sardø - Favorites Collection Part 1 (2025) [MP3|320 Kbps] <Electronic, Vocal>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4956.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4956.jpgsave_picture_4956.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ FontViewOK 8.99 + Portable [Multi/Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4957.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4957.jpgsave_picture_4957.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:B876E4F337DFB6B973FD392DD020AEA360A27902
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4958.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4958.jpgsave_picture_4958.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ magnet:?xt=urn:btih:A9112C63710DA0E97B7E3081876314ECF21282AA
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4959.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4959.jpgsave_picture_4959.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ Jigsawscapes® - Пазлы v4.1.12 Mod by vadj [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4960.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4960.jpgsave_picture_4960.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ magnet:?xt=urn:btih:67AD7B9A466C3C6332BC2D4CC6685278D5F2DF34
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4961.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4961.jpgsave_picture_4961.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ VA - 60 minutes. Old School Dance Music vol.25 (mixed by Dj V) (2024) [MP3|320 K
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4962.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4962.jpgsave_picture_4962.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ Firefox Browser 142.0.1 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4963.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4963.jpgsave_picture_4963.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ magnet:?xt=urn:btih:7012A7E1DE7FC0ED6345B01F609E16453537EC7E
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4964.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4964.jpgsave_picture_4964.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ Fast Screen Recorder 2.1.0.15 RePack by Madara [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4965.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4965.jpgsave_picture_4965.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ magnet:?xt=urn:btih:FBE9A9D8A537ED6D7C9199A500EDA58BFDE66296
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4966.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4966.jpgsave_picture_4966.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ magnet:?xt=urn:btih:98F0D5E486B609F1BB38F76D0AAA008BDE842FC5
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4967.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4967.jpgsave_picture_4967.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Frezee - Frezee Favorites Collection Part 1 (2025) [MP3|320 Kbps] <Swing Jazz, N
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4968.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4968.jpgsave_picture_4968.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ V.A. - The Best Female Vocalists (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4969.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4969.jpgsave_picture_4969.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ DJ Moralez & Various Artists - Nrg Colabmix compilation part 3 (2025) [MP3|320 K
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4970.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4970.jpgsave_picture_4970.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ magnet:?xt=urn:btih:D5223ED887B2F748A83EFF1079D295F4CEB9E6CE
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4971.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4971.jpgsave_picture_4971.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ magnet:?xt=urn:btih:E4473681F4EC10C6350AA5E5A840C51C799C9D92
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4972.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4972.jpgsave_picture_4972.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ VA - Compilation Part 188 Electronic, Vocal (2025) [MP3|320 Kbps] <Electronic, V
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4973.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4973.jpgsave_picture_4973.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Veil of the Skies (2025) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4974.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4974.jpgsave_picture_4974.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Anna Zueva - Favorites Collection Part 1 (2025) [MP3|320 Kbps] <Easy Listening, 
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4975.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4975.jpgsave_picture_4975.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ magnet:?xt=urn:btih:CE11E762F331A99D2199AA7B5A3D79B7B8755761
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4976.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4976.jpgsave_picture_4976.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ magnet:?xt=urn:btih:F26240074E40DF08310DB01A6EC77C517C1E9F82
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4977.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4977.jpgsave_picture_4977.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ magnet:?xt=urn:btih:B2A42569566C2810B24A793FA8BB075691D7CD3F
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4978.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4978.jpgsave_picture_4978.jpg" />
 </div>
 
 

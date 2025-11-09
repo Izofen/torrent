@@ -6,7 +6,7 @@ Among These Ashes - Embers of Elysium (2024) [FLAC|Lossless|WEB-DL|tracks] <Powe
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100552.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100552.jpgsave_picture_100552.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Rick Fowler Band - RFB (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100553.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100553.jpgsave_picture_100553.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ John Di Martino - Passion Flower: The Music Of Billy Strayhorn (2020) Sunnyside 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100554.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100554.jpgsave_picture_100554.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Leavin' Trunk - The River (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100555.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100555.jpgsave_picture_100555.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Juanma Torres - Swing City Sessions #3 (2024) [FLAC 24/48|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100556.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100556.jpgsave_picture_100556.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ A Plane To Catch - Soul Piece (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100557.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100557.jpgsave_picture_100557.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Bump2Soul - Bump2Soul Live Vol. 1 (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Ja
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100558.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100558.jpgsave_picture_100558.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Candleman: The Complete Journey (2018) [Ru/Multi] (1.1.0) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100559.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100559.jpgsave_picture_100559.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ magnet:?xt=urn:btih:031C03E68C982F5733D00AD3CEBD4B2C4F769342
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100560.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100560.jpgsave_picture_100560.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Queen - Innuendo (1991) Japanese Edition, SHM-CD, Reissue, Remastered, Repress, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100561.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100561.jpgsave_picture_100561.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Steel Rain (2015) [Multi] (1.9.0b) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100562.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100562.jpgsave_picture_100562.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Queen - The Works (1984) Japanese Edition, SHM-CD, Reissue, Remastered, Repress,
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100563.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100563.jpgsave_picture_100563.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ magnet:?xt=urn:btih:E29DCEC253F2A1D730F97740045A92C97B49D57A
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100564.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100564.jpgsave_picture_100564.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ magnet:?xt=urn:btih:F801C157BB76CCE385D0CEC3D40CA42A4F4DF037
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100565.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100565.jpgsave_picture_100565.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ magnet:?xt=urn:btih:AC90642C70B1AA1B98776583C63BD61A8A73A31E
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100566.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100566.jpgsave_picture_100566.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ magnet:?xt=urn:btih:05A212B692269E935FEE6C18A312AEDBEA0587E8
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100567.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100567.jpgsave_picture_100567.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ Filmora - Редактор видео с AI v14.3.61 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100568.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100568.jpgsave_picture_100568.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ magnet:?xt=urn:btih:6782AE5C528A57C9DE69B11A2002ABE7B821CFAF
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100569.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100569.jpgsave_picture_100569.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ magnet:?xt=urn:btih:42CD321AF1F8634EE946A19E975E63B1794C7748
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100570.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100570.jpgsave_picture_100570.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ magnet:?xt=urn:btih:17EC9246B93EDDDABB02B583B076A035909F77C6
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100571.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100571.jpgsave_picture_100571.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ magnet:?xt=urn:btih:AD1F475FFD8CA315642D508A414FF7284793D4C6
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100572.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100572.jpgsave_picture_100572.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ magnet:?xt=urn:btih:3F1505D3D7324F37A3FD58CA0DCD90DD968C14D0
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100573.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100573.jpgsave_picture_100573.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ magnet:?xt=urn:btih:4521F08F11B77809B783F11A2523B3DDE41B9C86
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100574.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100574.jpgsave_picture_100574.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ magnet:?xt=urn:btih:F1E034F1E049A07B556AADD30D7E6C073E6D07C1
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100575.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100575.jpgsave_picture_100575.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ magnet:?xt=urn:btih:9844D0D5506B00375345337C7D0FDE834BE9A370
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100576.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100576.jpgsave_picture_100576.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Hauma: A Detective Noir Story (2023) [Multi] (1.05) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100577.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100577.jpgsave_picture_100577.jpg" />
 </div>
 
 

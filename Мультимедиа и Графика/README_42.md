@@ -6,7 +6,7 @@ Way Out Ware - Odyssey 1.1.0 Standalone, VSTi, VSTi3, AAX (x64) RePack by R2R [E
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187189.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187189.jpgsave_picture_187189.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Boris FX Sapphire Plug-ins 2023.0 RePack by KpoJIuK [En]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187328.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187328.jpgsave_picture_187328.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ Stepok Recomposit Pro 8.0.0.1 [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187417.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187417.jpgsave_picture_187417.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ A.O.M. Total Bundle 1.15.4 VST, VST3, AAX, CLAP (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187761.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187761.jpgsave_picture_187761.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Kiive Audio - ADC1 Compressor 1.0.1 VST 3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187775.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187775.jpgsave_picture_187775.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ AegisubUE [Unofficial Edition] v2 (3.3.3, 9643) RePack (& Portable) by xetrin [M
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188022.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188022.jpgsave_picture_188022.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Apeaksoft Video Converter Ultimate 2.3.20 RePack (& Portable) by TryRooM [Multi/
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188728.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188728.jpgsave_picture_188728.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Nomad Factory - Integral Studio Pack 3 5.13.5 VST, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188746.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188746.jpgsave_picture_188746.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ reFuse Software - Lowender 1.5.0 VST 3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188795.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188795.jpgsave_picture_188795.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ BLEASS - Megalit 1.0.9 VSTi 3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188823.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188823.jpgsave_picture_188823.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ reFuse Software - Bucketverb 1.1.0 VST 3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188833.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188833.jpgsave_picture_188833.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Positive Grid - BIAS FX 2 Elite Complete 2.5.1 STANDALONE, VST, VST3 , AAX [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189580.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189580.jpgsave_picture_189580.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ iZotope - Vinyl 1.11.0 VST, VST3, NKS, AAX (x64) RePack by R2R [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189916.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189916.jpgsave_picture_189916.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Capture One Pro 22 16.0.0.143 Portable by conservator [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190135.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190135.jpgsave_picture_190135.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Techivation Full Bundle 07.11.2022 VST, VST 3 (x64) RePack by MOCHA [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190294.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190294.jpgsave_picture_190294.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Everyone Piano 2.5.9.4 [Multi/Ru]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190871.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190871.jpgsave_picture_190871.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ iZotope - Insight 2 2.4.0 VST, VST3, AAX (x64) RePack by R2R [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191083.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191083.jpgsave_picture_191083.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ ACDSee Photo Studio Ultimate 2023 16.0.3.3188 Lite RePack by MKN [Ru/En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_191175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191175.jpgsave_picture_191175.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ BluffTitler 16.0.0.1 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_191274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191274.jpgsave_picture_191274.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ iZotope - VocalSynth 2 2.6.0 VST, VST 3, AAX (x64) RePack by R2R [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191466.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191466.jpgsave_picture_191466.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ MediBang Paint Pro 29.1 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191477.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191477.jpgsave_picture_191477.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ E-Phonic - Invader 2 1.0.10 VSTi 3 (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191588.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191588.jpgsave_picture_191588.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ VoosteQ - Material Comp 1.7.1 VST, VST 3, AAX (x64) RePack by MOCHA [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191821.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191821.jpgsave_picture_191821.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ ACDSee Photo Studio Ultimate 2023 16.0.3.3188 [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191929.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191929.jpgsave_picture_191929.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ W.A. Production & K391 - Put Me On Drums 1.0.1 VST, VST3, AAX (x86/x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192008.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192008.jpgsave_picture_192008.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Pineapple Pictures 0.7.2 Portable [Multi/Ru]
 >>Просмотрщики Графики (вьюверы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192091.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192091.jpgsave_picture_192091.jpg" />
 </div>
 
 

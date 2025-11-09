@@ -6,7 +6,7 @@ Stan Getz - 1951 (2003) Classics [FLAC|Lossless|tracks + .cue] <West Coast Jazz,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122876.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122876.jpgsave_picture_122876.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Navicat for Redis on Mac 16.3.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122877.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122877.jpgsave_picture_122877.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Navicat for SQLite on Mac 16.3.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122878.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122878.jpgsave_picture_122878.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ Text Workflow 1.8.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122879.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122879.jpgsave_picture_122879.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ Navicat for Oracle on Mac 16.3.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122880.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122880.jpgsave_picture_122880.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Infant Island - Obsidian Wreath (2024) [FLAC|Lossless|WEB-DL|tracks] <Screamo, H
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122881.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122881.jpgsave_picture_122881.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ Edge Of The Blade - Trick Of The Light (2023) [FLAC|Lossless|image + .cue] <Melo
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122882.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122882.jpgsave_picture_122882.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ Care Of Night - Love Equals War (2018) Japanese Edition [FLAC|Lossless|image + .
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122883.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122883.jpgsave_picture_122883.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ magnet:?xt=urn:btih:6B9542A9D203C8A835DA30C07A74CB402265B70C
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122884.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122884.jpgsave_picture_122884.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ Atlas - Built To Last (2023) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122885.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122885.jpgsave_picture_122885.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ Emil Sigfridsson - Back to Yesterday (2023) [FLAC|Lossless|image + .cue] <Melodi
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122886.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122886.jpgsave_picture_122886.jpg" />
 </div>
 
 
@@ -291,7 +291,7 @@ magnet:?xt=urn:btih:EC90F1DA491D4CE94B28F7EE7320525549E8735B
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122887.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122887.jpgsave_picture_122887.jpg" />
 </div>
 
 
@@ -315,7 +315,7 @@ magnet:?xt=urn:btih:0839C16312B7ABDA5AB05E5EEF12C05C22A9797C
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122888.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122888.jpgsave_picture_122888.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ Ray Noir - Scorpio (2024) [FLAC|Lossless|WEB-DL|tracks] <Industrial Pop>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122889.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122889.jpgsave_picture_122889.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Edge Of Forever - Ritual (2023) Japanese Edition [FLAC|Lossless|image + .cue] <M
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122890.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122890.jpgsave_picture_122890.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ magnet:?xt=urn:btih:69340A79F2725BFFA106526DCCE02418A0AA1DBA
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122891.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122891.jpgsave_picture_122891.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ Crucifer - Hell Is for the Hopeful (2024) [FLAC|Lossless|WEB-DL|tracks] <Death, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122892.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122892.jpgsave_picture_122892.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:43028868F04555452CD5591F86744F95DF5FBF87
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122893.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122893.jpgsave_picture_122893.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ magnet:?xt=urn:btih:3101AB49A11DF18EAB82C921B574529BF688E281
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122894.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122894.jpgsave_picture_122894.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Find Any File (FAF) 2.4.2b4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122895.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122895.jpgsave_picture_122895.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Tagr 5.6.3 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122896.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122896.jpgsave_picture_122896.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ magnet:?xt=urn:btih:6B8F3B0E878515FDCC6EA7B541A4F4B7C82A2189
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122897.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122897.jpgsave_picture_122897.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ dUg Pinnick - Naked (2013) Remastered, 2024, Rat Pak Records [FLAC|Lossless|WEB-
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122898.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122898.jpgsave_picture_122898.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Ritual Earth & Kazak - Turned To Stone Chapter 9 (Split) (2024) [FLAC|Lossless|W
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122899.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122899.jpgsave_picture_122899.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ Navicat Data Modeler Essentials for Mac 3.3.15 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122900.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122900.jpgsave_picture_122900.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ VA - The Battle Of Metal Vol​.​8 (2024) Compilations [FLAC|Lossless|WEB-DL|t
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122901.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122901.jpgsave_picture_122901.jpg" />
 </div>
 
 

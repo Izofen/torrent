@@ -6,7 +6,7 @@ Corel VideoStudio Ultimate X8 18.6.06 SP3 (x64) + Content [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229020.jpgsave_picture_229020.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Killer Kings - Burn For Love (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229022.jpgsave_picture_229022.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:51F92F4161F5602F410CA4433148AC84BEBA9129
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229023.jpgsave_picture_229023.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:B04259DBE9A929AF78434332ABEF200C56E5FD0D
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229025.jpgsave_picture_229025.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:8D686978E79859BD9B22554BFA0D1EB5E5AFFF07
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229026.jpgsave_picture_229026.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:705BCA45446FF0DF0EB3C4CCC76D8494DE267299
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229027.jpgsave_picture_229027.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:D4A006B668DF1D3EE5A3F8AC59CDDB4B72508638
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229029.jpgsave_picture_229029.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ Roxette - Travelling (2012) [OGG Vorbis|480 Kbps] <Rock, Pop>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229030.jpgsave_picture_229030.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ magnet:?xt=urn:btih:E3AECF95FA41521D86A25CFDE0B1275973BB9B4E
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229031.jpgsave_picture_229031.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ Omerta: City of Gangsters (2013) [Ru/En] (1.07/dlc) Repack R.G. Origami [Gold Ed
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229032.jpgsave_picture_229032.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ magnet:?xt=urn:btih:2136357E1EA725CF292FD4CA57839FCD668C8DB3
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229033.jpgsave_picture_229033.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ magnet:?xt=urn:btih:A2721DA513EBFD7119477517880C96FA99B5C4C9
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229036.jpgsave_picture_229036.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ magnet:?xt=urn:btih:2E1D2E6AF6F65024B04E2DB23A2411B501098CB6
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229037.jpgsave_picture_229037.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ Decembre Noir - Pale Serenades (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Doo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229038.jpgsave_picture_229038.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ Scorpions - Blackout (1982) 2018, Remastered, Reissue [FLAC|Lossless|image + .cu
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229039.jpgsave_picture_229039.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ magnet:?xt=urn:btih:5EFC4CF078FA6DA25E4C5E7C1370CE385E491E4F
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229040.jpgsave_picture_229040.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ magnet:?xt=urn:btih:48EF8740979021290F731C327489EA4F49B6A0FC
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229041.jpgsave_picture_229041.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ WinSCP 5.19.5 Build 11933 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229044.jpgsave_picture_229044.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ magnet:?xt=urn:btih:69861CA1518C9985B8F8E13A7500377AE5DF5A98
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229045.jpgsave_picture_229045.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ magnet:?xt=urn:btih:7E624D8E7E5C081AE7F8C809986FD8A3780AE8B0
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229046.jpgsave_picture_229046.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ Artifiction - VIVA (2022) [MP3|320 Kbps] <Progressive Metalcore, Djent>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229047.jpgsave_picture_229047.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Corel PaintShop Pro X8 18.1.0.67 Retail + Ultimate Pack [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229050.jpgsave_picture_229050.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ magnet:?xt=urn:btih:643B201E64907D5BC77D6CF73EB2F4BB1813A82F
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229051.jpgsave_picture_229051.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ magnet:?xt=urn:btih:C55BAF4422EDA0B47E118B9AC041DD1CEE975FA8
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229052.jpgsave_picture_229052.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ magnet:?xt=urn:btih:5D1CF6B3E0B7837F91EA5C896956921E0B2148CB
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229054.jpgsave_picture_229054.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ Grin - Phantom Knocks (2022) [FLAC|Lossless|WEB-DL|tracks] <Sludge Doom, Psych, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229055.jpgsave_picture_229055.jpg" />
 </div>
 
 

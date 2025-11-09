@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_221958.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_221958.jpgsave_picture_221958.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Video Converter X2 for Mac 1.2.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_221963.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_221963.jpgsave_picture_221963.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:BE6FEBDCCAB7A6705B32E55C916BA22F9A72F2FA
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_221972.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_221972.jpgsave_picture_221972.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ VA - DOS Or Die Volume 1 (1994) [FLAC|Lossless|tracks] <Trance, Techno, Hard Tra
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222012.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222012.jpgsave_picture_222012.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ Text Edit Plus 13.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222019.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222019.jpgsave_picture_222019.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Fig Player - play mp4 mkv mp3 for Mac 1.3.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222030.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222030.jpgsave_picture_222030.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ Rhinoceros 7 v.7.32 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222037.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222037.jpgsave_picture_222037.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ Emil Amos - Zone Black (2023) [FLAC|Lossless|WEB-DL|tracks] <Hip-Hop, Rap, Ambie
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222045.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222045.jpgsave_picture_222045.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ magnet:?xt=urn:btih:18CD9185DA2B08C0C900893038EF6A92F122DD51
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222056.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222056.jpgsave_picture_222056.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ Shalamar - 10 Albums (1977-1990) Collection [MP3|320 Kbps] <Electronic, Disco, F
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222065.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222065.jpgsave_picture_222065.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ magnet:?xt=urn:btih:D5EB2B6FFC391D6471F0DEE29C048C78384A820B
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222070.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222070.jpgsave_picture_222070.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ magnet:?xt=urn:btih:37FEB64389ED9E334409800B68068A0557E3B62E
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222078.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222078.jpgsave_picture_222078.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ Freedom - Born Again: The Complete Recordings 1967-1972 (2023) 5CD, 2023, Grapef
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222083.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222083.jpgsave_picture_222083.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ magnet:?xt=urn:btih:F7C8CB185625D59CCD0B9B0625062F8B976A691A
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222091.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222091.jpgsave_picture_222091.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ RAR Extractor  - Unzi‪p‬ 11.20 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222100.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222100.jpgsave_picture_222100.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ WonderPen 2.3.4 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222108.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222108.jpgsave_picture_222108.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ magnet:?xt=urn:btih:49FBA723BB105795B98E6F985CB89D0CDA4CB5DF
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222121.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222121.jpgsave_picture_222121.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Barclay James Harvest - Once Again (1971) 3CD, Expanded & Remastered, 2023, Esot
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222130.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222130.jpgsave_picture_222130.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ MotoGP. Этап 09. Гран-при Великобритании. Гонка (0
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222138.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222138.jpgsave_picture_222138.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ M.A.G.S. (MAGS) - Destroyer (2023) [MP3|320 Kbps] <Alternative & Indie Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222146.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222146.jpgsave_picture_222146.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ magnet:?xt=urn:btih:ACDA32337125229BB4FB24238085536835E1F890
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222156.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222156.jpgsave_picture_222156.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ magnet:?xt=urn:btih:7C777403FF356DB24D5AC4E0D7AA60C7CB20C2E6
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222165.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222165.jpgsave_picture_222165.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ magnet:?xt=urn:btih:4248504233E043B7BC6C90FA7EFD172D395E7451
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222171.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222171.jpgsave_picture_222171.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Mister Wonderful - New Religion (2023) [FLAC|Lossless|image + .cue] <Pop Rock, R
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222218.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222218.jpgsave_picture_222218.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Tobias Sammet's Avantasia - A Paranormal Evening With The Moonflower Society (20
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222231.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222231.jpgsave_picture_222231.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ magnet:?xt=urn:btih:8531F85839FCC922446E845336827E2AE70FF244
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222239.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222239.jpgsave_picture_222239.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Battle Ram - Long Live the Ram (2013) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118084.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118084.jpgsave_picture_118084.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Synesthesia - Worst Case Scenario (2015) [FLAC|Lossless|image + .cue] <Progressi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118085.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118085.jpgsave_picture_118085.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Crying Steel - The Steel Is Back! (2007) [FLAC|Lossless|image + .cue] <Power Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118086.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118086.jpgsave_picture_118086.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Solstice - Lamentations (1994) [FLAC|Lossless|image + .cue] <Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118087.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118087.jpgsave_picture_118087.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ magnet:?xt=urn:btih:1490AE148FAC47FFE69D5AF48015E835A809D079
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118092.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118092.jpgsave_picture_118092.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Heretic - Angelcunts And Devilcocks (2013) [FLAC|Lossless|WEB-DL|tracks] <Hard R
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118094.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118094.jpgsave_picture_118094.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Autumn's Child - Tellus Timeline (2023) Japanese Edition [FLAC|Lossless|image + 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118097.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118097.jpgsave_picture_118097.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ magnet:?xt=urn:btih:9EE17A654800456CC2E65B3FA04D86E4824F5122
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118098.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118098.jpgsave_picture_118098.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Robert Hart - Circus Life (2024) [FLAC|Lossless|image + .cue] <Melodic Rock / AO
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118099.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118099.jpgsave_picture_118099.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Heart Line - Original Seeds (2023) EP [FLAC|Lossless|image + .cue] <Melodic Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118100.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118100.jpgsave_picture_118100.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:AFD11ECBC7BEB9132CDADE1C730BCCF1C6E90C5A
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118101.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118101.jpgsave_picture_118101.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:BED3F14F408F0A51456F53B0CDF167DC83EA09C9
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118102.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118102.jpgsave_picture_118102.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Wisborg - Wisborg (2024) [FLAC|Lossless|WEB-DL|tracks] <Gothic Rock, Darkwave, H
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118103.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118103.jpgsave_picture_118103.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Everrime - One (2024) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118106.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118106.jpgsave_picture_118106.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Distorted Reflection - Doom Rules Eternally (2024) [FLAC|Lossless|WEB-DL|tracks]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118107.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118107.jpgsave_picture_118107.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ magnet:?xt=urn:btih:919748174C51D66374A09F2500060FAE26871092
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118122.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118122.jpgsave_picture_118122.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ Fifth Note - Here We Are (2024) Japanese Edition [FLAC|Lossless|image + .cue] <M
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118127.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118127.jpgsave_picture_118127.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ VA - Митьковские песни. На море танки грохота�
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118129.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118129.jpgsave_picture_118129.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ My Dying Bride - A Mortal Binding (2024) [MP3|320 Kbps] <Gothic, Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118146.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118146.jpgsave_picture_118146.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ Sound Storm - Immortalia (2012) Japanese Edition [FLAC|Lossless|image + .cue] <S
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118228.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118228.jpgsave_picture_118228.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Lord Dying - Clandestine Transcendence (2024) [FLAC|Lossless|WEB-DL|tracks] <Slu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118229.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118229.jpgsave_picture_118229.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Rotting Yellow - Fountains Beneath Hell (2024) [FLAC|Lossless|WEB-DL|tracks] <Dr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118230.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118230.jpgsave_picture_118230.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ The Mountain King - Apostasyn (2024) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118232.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118232.jpgsave_picture_118232.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Temptress - The Time Traveler's Continuum (2024) [FLAC|Lossless|WEB-DL|tracks] <
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118236.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118236.jpgsave_picture_118236.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ Dark Haven - IV (2024) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118240.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118240.jpgsave_picture_118240.jpg" />
 </div>
 
 
@@ -675,7 +675,7 @@ Rollywoodland - Dark Fate For Judgement Day (2024) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118257.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118257.jpgsave_picture_118257.jpg" />
 </div>
 
 

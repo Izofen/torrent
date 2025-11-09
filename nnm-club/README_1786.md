@@ -6,7 +6,7 @@
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46793.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46793.jpgsave_picture_46793.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:72BD7FF4D002E191112BD57CCD51A00D9DFEC256
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46794.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46794.jpgsave_picture_46794.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:5E6A69994BED7EA29793BEE1D820B0ACF5C7AC50
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46795.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46795.jpgsave_picture_46795.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:B01D6D7C17B412C9509CEF7F031BCE553E60D2C3
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46796.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46796.jpgsave_picture_46796.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:0C2586A062961680F99986CA8B774B272BED30AB
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46797.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46797.jpgsave_picture_46797.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ XYplorer 26.30.0200 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46798.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46798.jpgsave_picture_46798.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ VA - The Essentials: Classical Piano Music (2024) [FLAC|Lossless|WEB-DL|tracks] 
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46799.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46799.jpgsave_picture_46799.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:7AE7CB0E4616B63C16FA44CBDEB7ABB400948A07
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46800.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46800.jpgsave_picture_46800.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:2533DC44F84A54DD20413FBBCA77A8562A08ADE2
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46801.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46801.jpgsave_picture_46801.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:876FF43DD30F409F59492611D81427BA6507F8F0
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46802.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46802.jpgsave_picture_46802.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:CF42111940877C62252FB9E185DCFEF501274DD4
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46803.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46803.jpgsave_picture_46803.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Microsoft Visual Studio 2022 Enterprise 17.10.6 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46804.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46804.jpgsave_picture_46804.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:5B371F08E8BBDCA09B34A361D9BBC1424EE34DA8
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46805.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46805.jpgsave_picture_46805.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:7E5FE09F5C0D31E3AE9173448E316563838B1131
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46806.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46806.jpgsave_picture_46806.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Loni Cash - The Album (2013) [FLAC|Lossless|WEB-DL|tracks] <Euro-Disco, Synthpop
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46807.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46807.jpgsave_picture_46807.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ magnet:?xt=urn:btih:F15400D2B96CE542ED37FBEB066E7786F72A3822
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46808.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46808.jpgsave_picture_46808.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ magnet:?xt=urn:btih:FC9BF7C12DF98C7A1EC08417A5F21CCBC217FE8A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46809.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46809.jpgsave_picture_46809.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ VA - It's All About Lounge, Vol. 1 (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge,
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46810.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46810.jpgsave_picture_46810.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ magnet:?xt=urn:btih:09391A962F7C1B01ED3CD846CB22714C44D60E63
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46811.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46811.jpgsave_picture_46811.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ magnet:?xt=urn:btih:700FCCB76DD08C83B3B867B6C9360B3BC5A0599B
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46812.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46812.jpgsave_picture_46812.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ Phantom Vision - 3 Albums (2005-2019) [MP3|320 Kbps] <gothic rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46813.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46813.jpgsave_picture_46813.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ Loni Cash - The Album (2013) [MP3|320 Kbps] <Euro-Disco, Synthpop>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46814.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46814.jpgsave_picture_46814.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Frank Sinatra & Tommy Dorsey - Learn To Croon (1940 - 1942) 1999, Buddha Records
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46815.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46815.jpgsave_picture_46815.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ magnet:?xt=urn:btih:960B7082BA3BEDF263F7AF8BD7EEBBFDD1079014
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46816.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46816.jpgsave_picture_46816.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ magnet:?xt=urn:btih:81627BC6236B54F854A7B47804082D147A6A9473
 >>Экранки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46817.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46817.jpgsave_picture_46817.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Google Chrome 127.0.6533.120 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46818.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46818.jpgsave_picture_46818.jpg" />
 </div>
 
 

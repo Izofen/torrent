@@ -6,7 +6,7 @@
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189438.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189438.jpgsave_picture_189438.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:450B4EA927F7186810700B12FE94A821640E2C57
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189439.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189439.jpgsave_picture_189439.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ magnet:?xt=urn:btih:2C714C19CA7EF9E247BC4F8D05C1F2BB58BE6C03
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189440.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189440.jpgsave_picture_189440.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ Brandi Disterheft Trio With George Coleman - Surfboard (2020) Justin Time [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189442.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189442.jpgsave_picture_189442.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ magnet:?xt=urn:btih:0B4EF2E993EEFBD48A49B9830CCE8A14EB87331A
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189445.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189445.jpgsave_picture_189445.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ Joe "Fingers" Webster & The Swing Fever Big Band - Hooked On Big Bands (1993) K-
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189446.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189446.jpgsave_picture_189446.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ Jimi Tenor - Multiversum (2022) [FLAC|Lossless|tracks + .cue] <Nu Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189448.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189448.jpgsave_picture_189448.jpg" />
 </div>
 
 
@@ -187,7 +187,7 @@ Brandi Disterheft - Blue Canvas (2016) Justin Time [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189450.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189450.jpgsave_picture_189450.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Narkomfin - Нарочито Комедийный Финал (2022) [MP3|320 Kbp
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189453.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189453.jpgsave_picture_189453.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ magnet:?xt=urn:btih:8EC4FCFD55E6C10A7FB442F14C1832E9D1134CDA
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189454.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189454.jpgsave_picture_189454.jpg" />
 </div>
 
 
@@ -265,7 +265,7 @@ The Chapter - 3 Albums (2006-2022) [MP3|320 Kbps] <Doom, Death, Gothic Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189456.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189456.jpgsave_picture_189456.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Black Hole - Whirlwind of Mad Man (2022) [FLAC|Lossless|WEB-DL|tracks] <Progress
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189458.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189458.jpgsave_picture_189458.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Crime - Master Of Illusion (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189465.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189465.jpgsave_picture_189465.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ magnet:?xt=urn:btih:7632114228FB734EE52C1E5ACF925CD2B4ECD628
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189468.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189468.jpgsave_picture_189468.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ magnet:?xt=urn:btih:54AE63968FC6BE10C906DD8442CDA9B3FA5130D3
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189469.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189469.jpgsave_picture_189469.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Kenny Barron, Dave Holland, Johnathan Blake - Without Deception (2020) Dare2 Rec
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189471.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189471.jpgsave_picture_189471.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ WarKings - Morgana (2022) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189474.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189474.jpgsave_picture_189474.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Ethan Iverson Quartet With Tom Harrell - Common Practice (2017) 2019, ECM Record
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189475.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189475.jpgsave_picture_189475.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ magnet:?xt=urn:btih:35E4A5DB89F89310640C35F7F21EC989ADACAA96
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189477.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189477.jpgsave_picture_189477.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Xentrix - Seven Words (2022) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189478.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189478.jpgsave_picture_189478.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Incursion - Blinding Force (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189479.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189479.jpgsave_picture_189479.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ MMXX - Sacred Cargo (2022) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal, Gothic Ric
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189482.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189482.jpgsave_picture_189482.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ magnet:?xt=urn:btih:163992CCA1704A2D2CD0DB0AD87DBBB768DB7CFB
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189483.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189483.jpgsave_picture_189483.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Oak - The Quiet Rebellion Of Compromise (2022) [FLAC|Lossless|WEB-DL|tracks] <Pr
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189485.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189485.jpgsave_picture_189485.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Stratovarius - Will The Sun Rise? (1996) Single, Remastered, T&T [OGG Vorbis|480
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189486.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189486.jpgsave_picture_189486.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ Stratovarius - Hunting High And Low (2000) Single [OGG Vorbis|480 Kbps] <Rock, H
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189487.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189487.jpgsave_picture_189487.jpg" />
 </div>
 
 

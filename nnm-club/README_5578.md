@@ -6,7 +6,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172016.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172016.jpgsave_picture_172016.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:3A177D20A8C2BFE2CE96ABAA0878A6B1FE19BAD0
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172017.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172017.jpgsave_picture_172017.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ magnet:?xt=urn:btih:7FFC431C57E65F5C56A1935948EFC170AD9DBA42
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172018.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172018.jpgsave_picture_172018.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ Adobe Character Animator 2024 24.0.0.46 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172019.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172019.jpgsave_picture_172019.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:F87377E7C9ED011AC6748866C56F41126AAF35CE
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172020.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172020.jpgsave_picture_172020.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ magnet:?xt=urn:btih:8DD3C998A8D78EE84C3B097DD6B926D0D9E1CB83
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172021.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172021.jpgsave_picture_172021.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ magnet:?xt=urn:btih:96E9027898E41B19EA2DDC89F0C4ADA08B9C3B24
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172022.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172022.jpgsave_picture_172022.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ Bish Bash Bots (2023) [Multi] (1.0) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172023.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172023.jpgsave_picture_172023.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ magnet:?xt=urn:btih:30A6FADAC0437B9E24757B9FE8CDCB7C4F691A50
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172024.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172024.jpgsave_picture_172024.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ magnet:?xt=urn:btih:6DAABD2953B03E8E72F9134EA992BDA52F2A5085
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172025.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172025.jpgsave_picture_172025.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ FL Studio 21.1.1.3750 (X64) Portable by 7997 [Multi]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172026.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172026.jpgsave_picture_172026.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ Bizagi Modeler 4.0.0.096 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172027.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172027.jpgsave_picture_172027.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ magnet:?xt=urn:btih:C8ADEB4B5BFF1F9B5D1426972E1D2E5AF4F06D89
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172028.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172028.jpgsave_picture_172028.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ Blender 3.6.5 LTS + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172029.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172029.jpgsave_picture_172029.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ magnet:?xt=urn:btih:ECE099743229C026DCD0F1C16919644CA9D2ADA7
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172030.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172030.jpgsave_picture_172030.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Internet Download Manager 6.41 Build 22 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172031.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172031.jpgsave_picture_172031.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ macOS 13 Ventura 13.6 (Installer) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172032.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172032.jpgsave_picture_172032.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Windows 10 Manager 3.8.7 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172033.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172033.jpgsave_picture_172033.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ MC Вспышкин & Никифоровна - Sex (2004) Reissue, Remastered, 2
 >>Eurodance, Euro-House, Technopop
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172034.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172034.jpgsave_picture_172034.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Serif Affinity Designer 2.2.1.2075 (x64) Portable by 7997 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172035.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172035.jpgsave_picture_172035.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ magnet:?xt=urn:btih:D97C44AE8B1BC012DAAAE4EDF5439873E6631E8F
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172036.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172036.jpgsave_picture_172036.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Topaz Photo AI 2.0.6 (x64) RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172037.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172037.jpgsave_picture_172037.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Night Loops (2023) [En] (1.0) Scene Tenoke [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172038.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172038.jpgsave_picture_172038.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ magnet:?xt=urn:btih:68646221C96A131B2B74F91A2E651003F5208CD7
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172039.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172039.jpgsave_picture_172039.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ magnet:?xt=urn:btih:C31385BBE0F6A85B875566DC52C5F7AF40251229
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172040.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172040.jpgsave_picture_172040.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ ONLYOFFICE 7.5.0.127 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172041.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172041.jpgsave_picture_172041.jpg" />
 </div>
 
 

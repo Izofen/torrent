@@ -6,7 +6,7 @@ Degenerated Sequences - Schism (2023) [FLAC|Lossless|WEB-DL|tracks] <Dark Electr
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236837.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236837.jpgsave_picture_236837.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Degenerated Sequences - Schism (2023) [MP3|320 Kbps] <Dark Electro, EBM, Industr
 >>Industrial, EBM, Dark Electro
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236850.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236850.jpgsave_picture_236850.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ TWO LANES - Duality (2023) [FLAC|Lossless|WEB-DL|tracks] <Chill House, Lo-Fi, De
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237031.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237031.jpgsave_picture_237031.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ AK & Dario Lessing - No More Worries (2021) [FLAC|Lossless|WEB-DL|tracks] <Ambie
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237120.jpgsave_picture_237120.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Decisive Pink - Ticket to Fame (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Elect
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237163.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237163.jpgsave_picture_237163.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ VA - Deep House Summer Paradise Pt. 1 (2023) [MP3|320 Kbps] <Deep House, Deep Te
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237236.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237236.jpgsave_picture_237236.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ VA - We Love Summer Vol. 2 (2023) [MP3|320 Kbps] <Deep House, Deep Tech, Soulful
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237264.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237264.jpgsave_picture_237264.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Elite Force - Modern Primitive (2006) [MP3|320 Kbps] <House, Downtempo, Tech Hou
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237281.jpgsave_picture_237281.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ Daniel[i] - Terra Amica I (2020) Pyramid Blood Recordings [FLAC|Lossless|WEB-DL|
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237313.jpgsave_picture_237313.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Shen - Outlines (2006) Native State Records [FLAC|Lossless|tracks+.cue] <Dub, ID
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237326.jpgsave_picture_237326.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:9675DBF88C2959C23AFB682BA713E5416F7C34C6
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237338.jpgsave_picture_237338.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Poborsk - Plus Minus (2021) Kaer'Uiks [FLAC|Lossless|WEB-DL|tracks] <IDM, Experi
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237393.jpgsave_picture_237393.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ VA - Ultimate Club Tunes (2023) [MP3|320 Kbps] <Euro House, Club, Progressive, T
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237545.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237545.jpgsave_picture_237545.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ VA - 10 Years Of Suanda Music - Mixed by Michael Milov (2023) [MP3|320 Kbps] <Up
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237616.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237616.jpgsave_picture_237616.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ VA - Armin van Buuren - A State Of Trance 1125 (2023) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237633.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237633.jpgsave_picture_237633.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ VA - Nothing But... Trancetopia, Vol. 01 (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237722.jpgsave_picture_237722.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Tim Schaufert - Our Wreckage (feat. Yosie) (2020) [FLAC|Lossless|WEB-DL|tracks] 
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237903.jpgsave_picture_237903.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ Sangam - Until (2016) Sea of Clouds [FLAC|Lossless|WEB-DL|tracks] <Ambient, Expe
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237910.jpgsave_picture_237910.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Gacha Bakradze - Obscure Languages (2021) Lapsus Records [FLAC|Lossless|WEB-DL|t
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237999.jpgsave_picture_237999.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ VA - Markus Schulz & Dan Thompson - Global DJ Broadcast (2021) [MP3|320 Kbps] <T
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238213.jpgsave_picture_238213.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ VA - Night Grooves (House Edition), Vol. 2 (2023) [MP3|320 Kbps] <House, Deep Ho
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238256.jpgsave_picture_238256.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ VA - Fokuz Recordings - 2017 Recap (2017) [FLAC|Lossless|WEB-DL|tracks] <Jungle>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238262.jpgsave_picture_238262.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ VA - This Is Deep House 2023 [MP3|320 Kbps] <Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238266.jpgsave_picture_238266.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Newt - 37 °C (1999) Flatline Records [FLAC|Lossless|tracks+.cue] <IDM, Drum n B
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238271.jpgsave_picture_238271.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ magnet:?xt=urn:btih:316A961315319A67500AF7AC95CD46687B8C958D
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238281.jpgsave_picture_238281.jpg" />
 </div>
 
 
@@ -675,7 +675,7 @@ Newt - Phaseshifting (1998) Quantum Loop [FLAC|Lossless|tracks+.cue] <IDM, Drum 
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238287.jpgsave_picture_238287.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Simply Linux 10.2 (ALT Linux Team) [x64, x32] 4xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117906.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117906.jpgsave_picture_117906.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Zorin OS 17 Pro / Core [x64] 2xDVD
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117907.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117907.jpgsave_picture_117907.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ magnet:?xt=urn:btih:7CAA5C6817C54FC60BCF1B50B3ACF5161C07E2E1
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117908.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117908.jpgsave_picture_117908.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ magnet:?xt=urn:btih:51C6DB6DE53F7A1FF02E3F85805784F41A37A7A6
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117909.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117909.jpgsave_picture_117909.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ magnet:?xt=urn:btih:21BA406A8EFA98CB120F2F5934FF8359A5C33E17
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117910.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117910.jpgsave_picture_117910.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ DAVE THE DIVER v.1.0.2.353 (2022) [Multi] [macOS Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117911.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117911.jpgsave_picture_117911.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ Boinx FotoMagico Pro 6 v.6.5.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117912.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117912.jpgsave_picture_117912.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ EazyDraw 11.5.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117913.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117913.jpgsave_picture_117913.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ FSNotes 6.6.8 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117914.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117914.jpgsave_picture_117914.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ Smokehouse Porter - My Ears Are Ringing (2024) [FLAC|Lossless|WEB-DL|tracks] <Bl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117915.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117915.jpgsave_picture_117915.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ Frankie Boy & The Blues Express - Young Man's Blues (2024) [FLAC|Lossless|WEB-DL
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117916.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117916.jpgsave_picture_117916.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ Mass - When 2 Worlds Collide (2018) Reissue, 2024, Escape Music Ltd [FLAC|Lossle
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117917.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117917.jpgsave_picture_117917.jpg" />
 </div>
 
 
@@ -314,7 +314,7 @@ Iolanda Lomuscio - Jazzscape Harmony (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117918.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117918.jpgsave_picture_117918.jpg" />
 </div>
 
 
@@ -341,7 +341,7 @@ Dropover for Mac 4.13.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117919.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117919.jpgsave_picture_117919.jpg" />
 </div>
 
 
@@ -365,7 +365,7 @@ Crush++ - Power Pleasure (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Post-Hard
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117920.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117920.jpgsave_picture_117920.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ Archie Baker - Carbrook (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117921.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117921.jpgsave_picture_117921.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ Gregory Aigersson - White Morning & Valentine Coffee (2024) [FLAC 24/48|Lossless
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117922.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117922.jpgsave_picture_117922.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ djay - DJ App & AI Mixer 5.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117923.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117923.jpgsave_picture_117923.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Iadora's Journey - Iadora's Journey: Journey 1 (2024) [FLAC|Lossless|WEB-DL|trac
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117924.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117924.jpgsave_picture_117924.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ Soren Andersen - City of Angels (2019) Single [FLAC|Lossless|WEB-DL|tracks] <Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117925.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117925.jpgsave_picture_117925.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ Cookie 7.2.3 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117926.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117926.jpgsave_picture_117926.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Ossian - Angyalok es Emberek (2024) [FLAC|Lossless|WEB-DL|tracks] <Power Metal, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117927.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117927.jpgsave_picture_117927.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Riot - Fire Down Under (1981) Reissue, 2023, Rhino[FLAC 24/192|Lossless|WEB-DL|t
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117928.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117928.jpgsave_picture_117928.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ The Funeral Procession - In Still Silence (2024) [MP3|320 Kbps] <Progressive Dea
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117929.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117929.jpgsave_picture_117929.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ John Coltrane - And The Jazz Giants (1956 - 1958) 1986, Prestige [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117930.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117930.jpgsave_picture_117930.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Strider - Dominion Of Steel (2019) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117931.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117931.jpgsave_picture_117931.jpg" />
 </div>
 
 

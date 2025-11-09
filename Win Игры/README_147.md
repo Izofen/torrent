@@ -6,7 +6,7 @@ Transformers: Fall of Cybertron (2012) [Ru/Multi] (1.0/dlc) Repack FitGirl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42987.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42987.jpgsave_picture_42987.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ ExoCross (2020) [Multi] (2024.8.30.0) Scene Rune
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42994.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42994.jpgsave_picture_42994.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ The Casting of Frank Stone (2024) [Ru/Multi] (Build 15667197/dlc) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43006.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43006.jpgsave_picture_43006.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Subnautica (2018) [Ru/Multi] (71288) Repack dixen18
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43010.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43010.jpgsave_picture_43010.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Crysis 3 (2013) [Ru/En] (1.3) Repack dixen18
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43017.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43017.jpgsave_picture_43017.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ The Plucky Squire / Отважный паж (2024) [Ru/Multi] (1.10.3) Repack Fi
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43023.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43023.jpgsave_picture_43023.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Dawn of the Monsters (2022) [Multi] (1.03/dlc) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43062.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43062.jpgsave_picture_43062.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Kingdom Rush Vengeance (2020) [Ru/Multi] (1.16.0.56/dlc) Repack FitGirl
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43075.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43075.jpgsave_picture_43075.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ The Plucky Squire / Отважный паж (2024) [Ru/Multi] (1.10.3) Scene DOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43099.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43099.jpgsave_picture_43099.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Chains of Fury (2024) [Ru/Multi] (1.0.0.2) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43104.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43104.jpgsave_picture_43104.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Far Cry 4 (2014) [Ru/Multi] (1.10/dlc) Repack dixen18
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43118.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43118.jpgsave_picture_43118.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Far Cry 3 Dilogy (2012-2013) [Ru/En] (1.05/1.02/dlc) Repack dixen18
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43121.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43121.jpgsave_picture_43121.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Everspace 2 (2021) [Ru/Multi] (1.3.42909/dlc) Repack FitGirl [Digital Deluxe Bun
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43171.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43171.jpgsave_picture_43171.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Chains of Fury (2024) [Ru/Multi] (1.0.0.2) Scene SKIDROW
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43195.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43195.jpgsave_picture_43195.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Abnormal1999: The Compass and the Sand / Аномалия1999: Компас и �
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43196.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43196.jpgsave_picture_43196.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Edge of Sanity (2024) [Ru/Multi] (1.1.1/dlc) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43197.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43197.jpgsave_picture_43197.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Frostpunk 2 (2024) [Ru/Multi] (Build 15731711) Scene Rune
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43199.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43199.jpgsave_picture_43199.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Everspace 2 (2021) [Ru/Multi] (1.3.42909/dlc) Repack Other s
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43201.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43201.jpgsave_picture_43201.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ The Ascent (2021) [Ru/Multi] (72946/dlc) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43222.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43222.jpgsave_picture_43222.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Borderlands (2019) [Ru/En] (1.5.0/dlc) Repack xatab [Game of the Year Enhanced]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43226.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43226.jpgsave_picture_43226.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Dicefolk (2024) [Ru/Multi] (Build 15263970/dlc) Repack FitGirl
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43285.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43285.jpgsave_picture_43285.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Fears to Fathom: Woodbury Getaway (2024) [Ru/Multi] (1.3/1.8) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43310.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43310.jpgsave_picture_43310.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Enotria: The Last Song (2024) [Ru/Multi] (1.002.26228) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43323.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43323.jpgsave_picture_43323.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Tactical Breach Wizards (2024) [En] (20240912) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43328.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43328.jpgsave_picture_43328.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Hollow Knight (2017) [Ru/Multi] (1.5.78.11833/dlc) Repack dixen18
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43334.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43334.jpgsave_picture_43334.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Motel Manager Simulator (2024) [Multi] (20240908) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43382.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43382.jpgsave_picture_43382.jpg" />
 </div>
 
 

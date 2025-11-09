@@ -6,7 +6,7 @@ KMS Tools Portable by Ratiborus 01.09.2023 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192465.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192465.jpgsave_picture_192465.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:BE3437A8BC3FA651F4146CF1DDAE69A4CEDC1BB9
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192466.jpgsave_picture_192466.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:AB0867A42BD72A5B9A3302BDE54E291FDEF0EC25
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192467.jpgsave_picture_192467.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:04E4F7DB1AE3FF3DEF6778FACE65ADEFC6D11F34
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192469.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192469.jpgsave_picture_192469.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:694DF19D5FC8F9EA9AC413BF4ACF0DD9F020B8BF
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192470.jpgsave_picture_192470.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Blender Guru, Andrew Price | The Architecture Academy (Blender 2.6-2.7) (2014) P
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192471.jpgsave_picture_192471.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Starfield (2023) [Multi] (1.7.23.0/dlc) Repack DjDI [Premium Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192472.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192472.jpgsave_picture_192472.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:4B551DA421222C619383A66F3A2755C4E6D8F14C
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192473.jpgsave_picture_192473.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:5E1D4B5506E4A6F8AF6533EA346CD5F21F17877B
 >>Сатирики
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192474.jpgsave_picture_192474.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Murder Is Game Over (2022) [En] (2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192475.jpgsave_picture_192475.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Daymare: 1998 (2019) [Ru/Multi] (1.4) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192476.jpgsave_picture_192476.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ OTUS, Александр Ключев | C++ Developer. Professional. Углуб�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192477.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192477.jpgsave_picture_192477.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:F8F3ED3DD14335A4C91592BDD2D605A1F5D6C729
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192478.jpgsave_picture_192478.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ foobar2000 1.5.5 DarkOne + DUIFoon Portable by MC Web (27.05.2023) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192479.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192479.jpgsave_picture_192479.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ magnet:?xt=urn:btih:FEC533B5BA6414D48FDC67651B9453004BBB3ED8
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192480.jpgsave_picture_192480.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ magnet:?xt=urn:btih:CF9F396E369E875CFCCE6C0C630A3048FE6275DC
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192481.jpgsave_picture_192481.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ Fillthegaps, Яковлева Диана | Многопоточное прогр
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192482.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192482.jpgsave_picture_192482.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ magnet:?xt=urn:btih:E3F6AFF12896568915C09D2135ADC3D2FE5AF48B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192483.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192483.jpgsave_picture_192483.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ magnet:?xt=urn:btih:6850B06DC6B34B1D029787C22BCE4A400B358AD4
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192484.jpgsave_picture_192484.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ magnet:?xt=urn:btih:84C387EDD6C0278BAD868219E2EFD0C7005CC5FD
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192485.jpgsave_picture_192485.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ magnet:?xt=urn:btih:C013A0FE6FC67172D51EF9EEAAD5CC1181F4CA1A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192486.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192486.jpgsave_picture_192486.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:8357F7C49EE15E778F42ABCE029FB44A0EA97F11
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192487.jpgsave_picture_192487.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ QA.GURU, Артём Eрошенко, Aлексей Виноградов, Ром�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192488.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192488.jpgsave_picture_192488.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ magnet:?xt=urn:btih:B7478FC62D8B4A479E7B0E5946CD22261A68BFF1
 >>Всё для детей и родителей для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192489.jpgsave_picture_192489.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Udemy, Dzianis Matveyenka (DMdev) | Computer Science on Java for Beginners (2023
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192490.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192490.jpgsave_picture_192490.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ magnet:?xt=urn:btih:86A4B4590119969666ED6AE1D73C958A08537DB3
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192491.jpgsave_picture_192491.jpg" />
 </div>
 
 

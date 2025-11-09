@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147119.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147119.jpgsave_picture_147119.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:6F155EBF58742A0C0BDF101A3203A0D9A5FB80C1
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147120.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147120.jpgsave_picture_147120.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:796E0B52A97979EBEB20283A79063880D95AEDFA
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147121.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147121.jpgsave_picture_147121.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ CyberLink PhotoDirector Ultra 15.0.11.1110 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147122.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147122.jpgsave_picture_147122.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:894CB58AADE57BED52C8789107F22D6721D944A7
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147123.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147123.jpgsave_picture_147123.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:D485091DF2C9114165BEC21D5FA03921D504600C
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147125.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147125.jpgsave_picture_147125.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:1E4D8B9FD16F338656CCFDBF5E90D47D3A5D0DC6
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147126.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147126.jpgsave_picture_147126.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Colibri 2.0.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147127.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147127.jpgsave_picture_147127.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ magnet:?xt=urn:btih:CD3EFD0C7BE342B9F7434FEC5287EDC09E616AF3
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147128.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147128.jpgsave_picture_147128.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ Mac FoneLab iOS Unlocker  1.0.56 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147130.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147130.jpgsave_picture_147130.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:FB73F08CE032E0ECB6DCF2B8969EDDAE356ED264
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147131.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147131.jpgsave_picture_147131.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:55D24BAA3E93B1E10980DB4C2C82511E16EB93B2
 >>Релакс / Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147133.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147133.jpgsave_picture_147133.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Tommy Dorsey And His Orchestra - 1935-1936 (1995) Classics [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147134.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147134.jpgsave_picture_147134.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ magnet:?xt=urn:btih:D9D32A41F970FA0E013D91CFE332F2E8D137D465
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147135.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147135.jpgsave_picture_147135.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ AusLogics BoostSpeed 5.5.0.0 RePack by elchupacabra [Русский / Англи
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147136.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147136.jpgsave_picture_147136.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Auslogics BoostSpeed® - единственная программа, котор
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147137.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147137.jpgsave_picture_147137.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ magnet:?xt=urn:btih:4D0A8426BBB6100CF8D5295BFF4BD6DA5FDFBF6F
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147138.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147138.jpgsave_picture_147138.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Adachi to Shimamura / Adachi and Shimamura / Адати и Симамура [202
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147140.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147140.jpgsave_picture_147140.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ magnet:?xt=urn:btih:1F77AEB9D41761DCE488BA9A6CB2ADF2DB5D76A4
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147141.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147141.jpgsave_picture_147141.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ magnet:?xt=urn:btih:1F77AEB9D41761DCE488BA9A6CB2ADF2DB5D76A4
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147143.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147143.jpgsave_picture_147143.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ magnet:?xt=urn:btih:9054FEB5B44B4D504F27E1712DAF2B22E7C33D57
 >>Звездный путь / Star Trek; Орвилл / The Orville
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147144.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147144.jpgsave_picture_147144.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ magnet:?xt=urn:btih:CAF36855457A3CA63267F83822E54F0D7DE5192F
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147145.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147145.jpgsave_picture_147145.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:595D98C46BDE9163FA44A436637146433596EE59
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147146.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147146.jpgsave_picture_147146.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ magnet:?xt=urn:btih:595D98C46BDE9163FA44A436637146433596EE59
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147147.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147147.jpgsave_picture_147147.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ magnet:?xt=urn:btih:6D4DF30A32C44D5481D07803AD8C0B57878BD37D
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147149.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147149.jpgsave_picture_147149.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ magnet:?xt=urn:btih:DBC80D867B8EB5FB4DD035A69D67EEE0771B69B5
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147150.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147150.jpgsave_picture_147150.jpg" />
 </div>
 
 

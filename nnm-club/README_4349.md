@@ -6,7 +6,7 @@ Photo Studio PRO v2.7.1.2156 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135255.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135255.jpgsave_picture_135255.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:C9581B7DEF0E4AAC334AD6BE5412E290A8B95DAF
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135257.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135257.jpgsave_picture_135257.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:BB0CBC498CAE885C0F43279FFCA3675B91702072
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135258.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135258.jpgsave_picture_135258.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ SQLPro for MSSQL 2023.10 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135261.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135261.jpgsave_picture_135261.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Judy Garland - Classic Duets (2023) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135262.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135262.jpgsave_picture_135262.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Live Wallpaper & Themes 4K Pro for Mac 18.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135263.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135263.jpgsave_picture_135263.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Node Video - Pro Video Editor 6.9.1 Mod by PieMods [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135264.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135264.jpgsave_picture_135264.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ StopMotion for Mac 3.01 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135265.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135265.jpgsave_picture_135265.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ iFunia Video Converter Pro for Mac 7.4.0 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135267.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135267.jpgsave_picture_135267.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:E51B838FF65F8572099CB799BD56CFEBF3CB77EC
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135269.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135269.jpgsave_picture_135269.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:C69DBB65EAD5931612904AB8936AE3D63FC092EF
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135270.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135270.jpgsave_picture_135270.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ Blinker The Star - Animal Math (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Shoeg
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135271.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135271.jpgsave_picture_135271.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ Logo Art for Mac 1.0.5 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135273.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135273.jpgsave_picture_135273.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ PowerDirector – Video Editor v12.7.1 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135275.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135275.jpgsave_picture_135275.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ The Black Owl - The Black Owl Band (2020) [FLAC|Lossless|WEB-DL|tracks] <Classic
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135277.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135277.jpgsave_picture_135277.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ magnet:?xt=urn:btih:D8A7B67FDA29E914A07470027F75C4AA8BD133B2
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135278.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135278.jpgsave_picture_135278.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ magnet:?xt=urn:btih:91E1B90DAF08353E24FBCDD4802F739D5136AA74
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135279.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135279.jpgsave_picture_135279.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ magnet:?xt=urn:btih:6DA9800C707433F3F0E9E87FA58CBA848A387AB0
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135280.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135280.jpgsave_picture_135280.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Secret Rule - Universe (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Power Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135281.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135281.jpgsave_picture_135281.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Trapeze - Lost Tapes, Vol. 1 (2023) [FLAC|Lossless|WEB-DL|tracks] <Classic Hard 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135283.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135283.jpgsave_picture_135283.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ Fabula Rasa - Tome I: The Arrival (2023) [FLAC|Lossless|WEB-DL|tracks] <Folk Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135285.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135285.jpgsave_picture_135285.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ The Black Owl - Let Us Prey (2023) [FLAC|Lossless|WEB-DL|tracks] <Classic Rock, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135287.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135287.jpgsave_picture_135287.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ VA - DubStep Pro V.8 (2012) [MP3|320 кб/с]<DubStep>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135288.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135288.jpgsave_picture_135288.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Shayne Malone - Sacred (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135289.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135289.jpgsave_picture_135289.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ magnet:?xt=urn:btih:34D04B7721E30D9B9838B76BE0890909A0ACFCF6
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135290.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135290.jpgsave_picture_135290.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ magnet:?xt=urn:btih:93851DA4A6FBCC949DDF99FD53A1E3530B5818B1
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135291.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135291.jpgsave_picture_135291.jpg" />
 </div>
 
 

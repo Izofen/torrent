@@ -6,7 +6,7 @@
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55331.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55331.jpgsave_picture_55331.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Queen: Rock Montreal (1981) UHD BDRip [H.265/2160p] [4K, HDR, 10-bit] [EN / EN S
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55332.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55332.jpgsave_picture_55332.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ VA - Best Road Trip Biker Music Rock Songs (2024) [MP3|320 Kbps] <Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55333.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55333.jpgsave_picture_55333.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Venture to the Vile (2024) [Ru/Multi] (1.0.1) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55334.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55334.jpgsave_picture_55334.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:C294A0F87386BA198F4652E92621F9AC1362AD13
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55335.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55335.jpgsave_picture_55335.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:45433DB46CE1D41FDCEAD3700F590573D4AE80BD
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55336.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55336.jpgsave_picture_55336.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ Rutube v29.4.1 Mod by vadj [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55337.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55337.jpgsave_picture_55337.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:C2143E91AEDCF5E90675C9B94407CE8CAB34A876
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55338.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55338.jpgsave_picture_55338.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Queen: Live Aid (1985) BDRemux [H.265/1080p] [10-bit] [EN]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55339.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55339.jpgsave_picture_55339.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ Topaz Video AI 5.1.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55340.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55340.jpgsave_picture_55340.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ magnet:?xt=urn:btih:FC2A4D5754B7742D0F06ECB220FE9497CC70CAC3
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55341.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55341.jpgsave_picture_55341.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ magnet:?xt=urn:btih:50DA753888DC7501FC0E19B59FCC088C3E773476
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55342.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55342.jpgsave_picture_55342.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ magnet:?xt=urn:btih:47F33BB76C942106ED5886E3F0F0C20E4FA11F75
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55343.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55343.jpgsave_picture_55343.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Bandizip Pro 7.35 Build 68031 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55344.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55344.jpgsave_picture_55344.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ SamDrivers 24.6 LAN [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55345.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55345.jpgsave_picture_55345.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ magnet:?xt=urn:btih:F2E6033F88EC30E28923D8BEBC05130C70EF623C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55346.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55346.jpgsave_picture_55346.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ magnet:?xt=urn:btih:60550EA803EFF420691D87FDFF693B5E89FE506C
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55347.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55347.jpgsave_picture_55347.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ magnet:?xt=urn:btih:AC7CB9B74905AE844D48638DB977EA2BF37CD4D9
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55348.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55348.jpgsave_picture_55348.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ magnet:?xt=urn:btih:215353C0AD956E33E8C9E94C3CB0CFE8FF313AE7
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55349.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55349.jpgsave_picture_55349.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ magnet:?xt=urn:btih:C85DC474C04F2B06B5D908EC944E60340C5294B8
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55350.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55350.jpgsave_picture_55350.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ CCleaner 6.24.11060 Free, Professional, Business, Technician Edition RePack (& P
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55351.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55351.jpgsave_picture_55351.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ magnet:?xt=urn:btih:13CA634A33FBAC332A891A094B0372376008B226
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55352.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55352.jpgsave_picture_55352.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ magnet:?xt=urn:btih:F56CAB29D5E0F971B691166236E3C6F5AF1F3F1A
 >>Футажи
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55353.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55353.jpgsave_picture_55353.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Senua’s Saga: Hellblade II (2) (2024) [Ru/Multi] (1.0.0.0.158523) Repack DjDI
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55354.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55354.jpgsave_picture_55354.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ magnet:?xt=urn:btih:F674766F7FBA353A89B729F37719CEC4885A350B
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55355.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55355.jpgsave_picture_55355.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ magnet:?xt=urn:btih:33FD0944146EC7914AD3102646E09014BCFCDAB8
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55356.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55356.jpgsave_picture_55356.jpg" />
 </div>
 
 

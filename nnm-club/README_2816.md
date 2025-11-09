@@ -6,7 +6,7 @@ PhotoInstrument 5.5.551 Portable [Мульти/русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81242.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81242.jpgsave_picture_81242.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ CyberLink PowerDVD Ultra 11.0.2608 RePack by qazwsxe [Русский / Англ�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81243.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81243.jpgsave_picture_81243.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ CyberLink PowerDVD - один из самых лучших современны�
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81244.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81244.jpgsave_picture_81244.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ Kimi ni Todoke 2nd Season / Дотянуться до тебя 2 [2011, TV, 12 �
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81248.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81248.jpgsave_picture_81248.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:5E55CD963043983ADBBDC6DB2C5E602960ADE829
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81249.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81249.jpgsave_picture_81249.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ Nox Arcana - 14 альбомов (2003-2011) [MP3|192-320 kbps]<Neo-Classical, D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81250.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81250.jpgsave_picture_81250.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Nox Arcana - 14 альбомов (2003-2011) [MP3|192-320 kbps]<Neo-Classical, D
 >>Нормативная документация
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81252.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81252.jpgsave_picture_81252.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ magnet:?xt=urn:btih:8D710FF0C34A061ED53A39A3E1E6CBB777B7FAFD
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81253.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81253.jpgsave_picture_81253.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ magnet:?xt=urn:btih:CDC381A50083498233F831D7B769B8C38C2119AD
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81255.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81255.jpgsave_picture_81255.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ magnet:?xt=urn:btih:CDC381A50083498233F831D7B769B8C38C2119AD
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81257.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81257.jpgsave_picture_81257.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Total Commander 7.57а Final [Мульти, есть русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81261.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81261.jpgsave_picture_81261.jpg" />
 </div>
 
 
@@ -290,7 +290,7 @@ Total Commander - популярный файловый менеджер с пр
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81263.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81263.jpgsave_picture_81263.jpg" />
 </div>
 
 
@@ -314,7 +314,7 @@ Total Commander - популярный файловый менеджер с пр
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81266.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81266.jpgsave_picture_81266.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ Total Commander - популярный файловый менеджер с пр
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81270.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81270.jpgsave_picture_81270.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ Total Commander - популярный файловый менеджер с пр
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81273.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81273.jpgsave_picture_81273.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ magnet:?xt=urn:btih:4DF8B7F208F718C171ACF21AF13386FC1B769349
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81275.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81275.jpgsave_picture_81275.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ magnet:?xt=urn:btih:3143A883D3482758A5D73527F4E6C8853AAD471A
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81277.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81277.jpgsave_picture_81277.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ magnet:?xt=urn:btih:BEE1913FF25B61BF483CE23F596DA58A32F80E5A
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81278.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81278.jpgsave_picture_81278.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ magnet:?xt=urn:btih:89D08CD3005F1EEF99D704AC4CAE776F824AE3FF
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81284.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81284.jpgsave_picture_81284.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ magnet:?xt=urn:btih:90805683B1D118BF2AE77B5A484AA331034105A5
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81285.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81285.jpgsave_picture_81285.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ magnet:?xt=urn:btih:90805683B1D118BF2AE77B5A484AA331034105A5
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81286.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81286.jpgsave_picture_81286.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ magnet:?xt=urn:btih:BDCD871B7978C2052FE7F76EF28DD9D7C6608FBD
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81287.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81287.jpgsave_picture_81287.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ magnet:?xt=urn:btih:DB2F414316ED74CB0FD62A03D49C5763F21D78CA
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81288.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81288.jpgsave_picture_81288.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Oracle Database 11g Release 2 11.2.0.3 Linux [ENG]
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81295.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81295.jpgsave_picture_81295.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Oracle Database 11g R2 обеспечивает эффективное, наде
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81296.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81296.jpgsave_picture_81296.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ UFC Personal Trainer: The Ultimate Fitness System [XBOX360] [ENG] (RegionFree) [
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81297.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81297.jpgsave_picture_81297.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41697.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41697.jpgsave_picture_41697.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:72531906ED7DFB33E86FC21935609CAFBE6BBF81
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41698.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41698.jpgsave_picture_41698.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Google Chrome 129.0.6668.90 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41699.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41699.jpgsave_picture_41699.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ VA - The 50 Most Essential Autumn Classics (2024) [FLAC|Lossless|WEB-DL|tracks] 
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41700.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41700.jpgsave_picture_41700.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:EA2C445A8093D5FF46417E474E505E1C96CE18AB
 >>Религия (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41701.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41701.jpgsave_picture_41701.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ VA - Top 10 August 2024 Emotional and Uplifting Trance (2024) [MP3|320 Kbps] <Tr
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41702.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41702.jpgsave_picture_41702.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:7F882051E5C561B308E1B8084DC78BE91AF95CD3
 >>Экранки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41703.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41703.jpgsave_picture_41703.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:EAF277A717C2903CE057FDD4D08B26043F3961C1
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41704.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41704.jpgsave_picture_41704.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:3752A67D3F1DE7F34CC2B87AFE70D1D83E518A14
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41705.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41705.jpgsave_picture_41705.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ VA - 100 Greatest Rock Songs (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41706.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41706.jpgsave_picture_41706.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ Tor Browser Bundle 13.5.6 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41707.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41707.jpgsave_picture_41707.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ Gaia GPS (Topo Maps) v2024.8 b8540 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41708.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41708.jpgsave_picture_41708.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Persona: Бьюти-камера v1.7.1 Mod by Alexey070315 (MustHave) [Ru/Multi
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41709.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41709.jpgsave_picture_41709.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ jetAudio HD Music Player Plus v12.2.1 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41710.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41710.jpgsave_picture_41710.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ magnet:?xt=urn:btih:2CC86AD785A35F669886B388810E1497C8E5A79C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41711.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41711.jpgsave_picture_41711.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ magnet:?xt=urn:btih:2CC86AD785A35F669886B388810E1497C8E5A79C
 >>Экранки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41712.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41712.jpgsave_picture_41712.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Alphaville - Forever! Best Of 40 Years (2024) [MP3|320 Kbps] <Synth-pop>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41713.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41713.jpgsave_picture_41713.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ magnet:?xt=urn:btih:30E118E90767E8E0094267BE308666B41530E6BD
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41714.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41714.jpgsave_picture_41714.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Prison Alone (2024) [Ru/Multi] (1.0.2) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41715.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41715.jpgsave_picture_41715.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ magnet:?xt=urn:btih:CFACF0BCCD0200126DB45083DFB9656B29A026DB
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41716.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41716.jpgsave_picture_41716.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ VA - German Top100 DJ Charts 27.09.2024 (2024) [MP3|320 Kbps] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41717.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41717.jpgsave_picture_41717.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ magnet:?xt=urn:btih:898508F2E2B013D383371A6B524FE542527CAA9D
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41718.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41718.jpgsave_picture_41718.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ magnet:?xt=urn:btih:030BB1606D36C47E87C26035336E402B84C06CC5
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41719.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41719.jpgsave_picture_41719.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:6D402B5F17E1727B86376B7CCF777CFB15B5A0F0
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41720.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41720.jpgsave_picture_41720.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ VA - Summer Pop Coctail Party Vol. 02 (2024) [MP3|320 Kbps] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41721.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41721.jpgsave_picture_41721.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ magnet:?xt=urn:btih:D7849F0D30E834E5D3BFAF98EB9AE50EB14243F3
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41722.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41722.jpgsave_picture_41722.jpg" />
 </div>
 
 

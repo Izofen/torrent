@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79229.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79229.jpgsave_picture_79229.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:45073D733E06A2B5A1FD8055CFC493903259FBAC
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79235.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79235.jpgsave_picture_79235.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:F433226ED86FB8822E4DF6E9D0BA796DADB65BE1
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79239.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79239.jpgsave_picture_79239.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ VA - Топ 100 Dance и Club рингтонов (2012) [MP3|224 кб/с]<Dance,
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79240.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79240.jpgsave_picture_79240.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ VA - Топ 100 Dance и Club рингтонов (2012) [MP3|224 кб/с]<Dance,
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79241.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79241.jpgsave_picture_79241.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Sony-Eriсsson | Sony-Eriсsson. Схемы и сервис-мануалы мо�
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79242.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79242.jpgsave_picture_79242.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:C48B01E3C0C27783C6A2E41A7EB0C0227BB2B0D6
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79249.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79249.jpgsave_picture_79249.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ Nero v11.2.00400 Lite RePack by MKN 11.2.00400 [ Русский/ Английс�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79250.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79250.jpgsave_picture_79250.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ Nero - максимально уменьшенный дистрибутив по
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79253.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79253.jpgsave_picture_79253.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ magnet:?xt=urn:btih:B0822AD86ED0F45AAD477C2E519778571D7B89D0
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79257.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79257.jpgsave_picture_79257.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ magnet:?xt=urn:btih:B0822AD86ED0F45AAD477C2E519778571D7B89D0
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79261.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79261.jpgsave_picture_79261.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ magnet:?xt=urn:btih:C5386A055E1BB78C5DEAB275BB1F3A49B7205E46
 >>Обучающее Видео для родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79266.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79266.jpgsave_picture_79266.jpg" />
 </div>
 
 
@@ -314,7 +314,7 @@ Cracked Steam 26.02.2012. [Ru] [Обновляемая]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79267.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79267.jpgsave_picture_79267.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ Cracked Steam 26.02.2012. [Ru] [Обновляемая]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79268.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79268.jpgsave_picture_79268.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ Cracked Steam 26.02.2012. [Ru] [Обновляемая]
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79271.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79271.jpgsave_picture_79271.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ magnet:?xt=urn:btih:8958CFA7F43B3553B1DB7869EE43402662B0DE3C
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79273.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79273.jpgsave_picture_79273.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ Jasc Paint Shop Pro 9 [Английский,Русский]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79275.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79275.jpgsave_picture_79275.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ Jasc Paint Shop Pro 9 [Английский,Русский]
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79276.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79276.jpgsave_picture_79276.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Jasc Paint Shop Pro 9 [Английский,Русский]
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79278.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79278.jpgsave_picture_79278.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ NANO Антивирус 0.16.12.42871 Beta [Русский/Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79280.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79280.jpgsave_picture_79280.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ NANO Антивирус обеспечивает надежную защиту �
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79282.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79282.jpgsave_picture_79282.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ magnet:?xt=urn:btih:CAB165C3B7C2AFA7DC0A69B1E308418D21A3FC05
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79284.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79284.jpgsave_picture_79284.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Microsoft Office 2010 Standard SP1 ru-RU (x86-x64) 14.0.6112.5000 [Только 
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79285.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79285.jpgsave_picture_79285.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Microsoft Office 2010 Standard SP1 ru-RU (x86-x64) 14.0.6112.5000 [Только 
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79288.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79288.jpgsave_picture_79288.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ magnet:?xt=urn:btih:EFF52F77F7C38E673F06996027CA4C138C4D66D3
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79290.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79290.jpgsave_picture_79290.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Simatic WinCC v7.0 SP3 (Multi)
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79296.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79296.jpgsave_picture_79296.jpg" />
 </div>
 
 

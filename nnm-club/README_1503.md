@@ -6,7 +6,7 @@ Launcher for zapret 1.2 [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39433.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39433.jpgsave_picture_39433.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Alan Wake 2 (2023) [Ru/Multi] (1.2.2/dlc) Repack dixen18 [Deluxe Edition]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39434.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39434.jpgsave_picture_39434.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:F052008C945ABC93C1EB35E4B2C8161600286C1E
 >>Экранки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39435.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39435.jpgsave_picture_39435.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ Europa Universalis IV (4) (2013) [Multi] (1.37.5.0/dlc) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39436.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39436.jpgsave_picture_39436.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:DF3F5DB55D643765903C37640F5DFB26948C2F9C
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39437.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39437.jpgsave_picture_39437.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:E332447F817E52A1B67C51AFBD2049EEB6ACD60B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39438.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39438.jpgsave_picture_39438.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:DD728C40DF40ECE889CE70A7FD55798F678D0F05
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39439.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39439.jpgsave_picture_39439.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:3DE0BA554EF1D4B63EC1EB6C88F24F773AA39934
 >>Экранки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39440.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39440.jpgsave_picture_39440.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:F5661A55EC2C894E148A394EFF5826476FCAB43E
 >>Экранки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39441.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39441.jpgsave_picture_39441.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ magnet:?xt=urn:btih:813D964EFC755E897D5D959AC41015798625D9AC
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39442.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39442.jpgsave_picture_39442.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Talking Translator / Говорящий переводчик v2.7.0 Mod by Alex.
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39443.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39443.jpgsave_picture_39443.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Slave Zero X (2024) [Ru/Multi] (1.05/dlc) License GOG [Digital Deluxe Edition]
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39444.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39444.jpgsave_picture_39444.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Strategic Command: American Civil War (2022) [Multi] (1.10.00/dlc) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39445.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39445.jpgsave_picture_39445.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ remontkv.pro, Александр Смолин | Новейший курс по �
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39446.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39446.jpgsave_picture_39446.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ magnet:?xt=urn:btih:7D464B0DB2993C13D82236BDC8A5DDDBACC1FEF5
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39447.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39447.jpgsave_picture_39447.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ magnet:?xt=urn:btih:7D464B0DB2993C13D82236BDC8A5DDDBACC1FEF5
 >>Экранки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39448.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39448.jpgsave_picture_39448.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ Tor Browser Bundle 14.0.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39449.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39449.jpgsave_picture_39449.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ Harold Halibut (2024) [Ru/Multi] (1.1.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39450.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39450.jpgsave_picture_39450.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Malwarebytes AdwCleaner 8.5.0.574 Beta [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39451.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39451.jpgsave_picture_39451.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ magnet:?xt=urn:btih:C85D3201370D1915103869F8E523D05F68241005
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39452.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39452.jpgsave_picture_39452.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Boney James - Slow Burn (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39453.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39453.jpgsave_picture_39453.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Philhelmon - Into the Mist of Time (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <P
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39454.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39454.jpgsave_picture_39454.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ magnet:?xt=urn:btih:51588E695EEAA44C4EABE46AC321ED670113AC48
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39455.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39455.jpgsave_picture_39455.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Philhelmon - Into the Mist of Time (2024) [FLAC|Lossless|WEB-DL|tracks] <Progres
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39456.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39456.jpgsave_picture_39456.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Steelgar - Collection (2008-2024) hand made [restored, declipped] [FLAC |16/44.1
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39457.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39457.jpgsave_picture_39457.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ Desert - Fortune Favors The Brave (2019) [WavPack|Lossless|image + .cue] <Power 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39458.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39458.jpgsave_picture_39458.jpg" />
 </div>
 
 

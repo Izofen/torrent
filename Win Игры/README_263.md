@@ -6,7 +6,7 @@ Reflections of Life 11: Spindle of Fate (2022) [En] (1.0) Unofficial [Collector'
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189692.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189692.jpgsave_picture_189692.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Samudra (2021) [En] (1.0) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189865.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189865.jpgsave_picture_189865.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Little Witch Nobeta (2022) [Ru/Multi] (1.1.0/dlc) Scene Rune
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189958.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189958.jpgsave_picture_189958.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Demonologist (2023) [Ru/Multi] (0.5.2) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190318.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190318.jpgsave_picture_190318.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ The Fall of the Dungeon Guardians (2015) [Ru/Multi] (1.0k) License PLAZA [Enhanc
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190344.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190344.jpgsave_picture_190344.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Diary of Lucie (2023) [Multi] (1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190434.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190434.jpgsave_picture_190434.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Unsolved Case 4: Above the Law (2023) [Multi] (1.0) Unofficial [Collector's Edit
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190474.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190474.jpgsave_picture_190474.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ DOOM Eternal (2020) [Ru/Multi] (11905845/dlc) Repack dixen18 [Deluxe Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190715.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190715.jpgsave_picture_190715.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ CONVERGENCE: A League of Legends Story (2023) [Ru/Multi] (d3eb3874bbc/dlc) Licen
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190736.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190736.jpgsave_picture_190736.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ The Cosmic Wheel Sisterhood (2023) [Ru/Multi] (1.1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190760.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190760.jpgsave_picture_190760.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ DOOM Eternal (2020) [Ru/Multi] (11905845/dlc) Scene Rune [Deluxe Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191030.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191030.jpgsave_picture_191030.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Isonzo (2022) [Ru/Multi] (1.0) Scene Tenoke
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191043.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191043.jpgsave_picture_191043.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Revenge of ILCOIN (2023) [En] (1.0) Scene Tenoke
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191049.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191049.jpgsave_picture_191049.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Terminal 81 (2023) [Ru/Multi] (1.2.7) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191051.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191051.jpgsave_picture_191051.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Lempo (2023) [Multi] (1.0) Scene FairLight
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191064.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191064.jpgsave_picture_191064.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Mountain Bicycle Rider Simulator (2023) [Ru/Multi] (1.0) Scene Tenoke
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191077.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191077.jpgsave_picture_191077.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ The Darkest Tales (2022) [Ru/Multi] (1.05.1) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_191165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191165.jpgsave_picture_191165.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Lovecraft's Untold Stories 2 (2022) [Ru/Multi] (0.9.049b) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_191169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191169.jpgsave_picture_191169.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Alfred Hitchcock: Vertigo (2021) [Ru/Multi] (2022093001/dlc) License GOG [Digita
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_191182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191182.jpgsave_picture_191182.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Sumatra: Fate of Yandi (2019) [Multi] (1.2) License GOG [Collector's Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191570.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191570.jpgsave_picture_191570.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Royal Romances: Battle of the Woods (2022) [En] (1.0) Unofficial [Collector's Ed
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191586.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191586.jpgsave_picture_191586.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Under The Waves (2023) [Ru/Multi] (Build 11920395) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191651.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191651.jpgsave_picture_191651.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Fort Solis (2023) [Ru/Multi] (Build 11938463) Repack DjDI
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191653.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191653.jpgsave_picture_191653.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Great North Shelter 2 (2023) [Ru/En] (Build 12078048) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191664.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191664.jpgsave_picture_191664.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ MEGA MAN X DiVE Offline (2023) [Multi] (1.0) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191674.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191674.jpgsave_picture_191674.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Parasocial (2023) [Multi] (1.0) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191683.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191683.jpgsave_picture_191683.jpg" />
 </div>
 
 

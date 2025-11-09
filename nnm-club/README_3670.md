@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115795.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115795.jpgsave_picture_115795.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:E2E553CAE25EE6D6E23E1C58169EF42DFF33E382
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115796.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115796.jpgsave_picture_115796.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Dissolving of Prodigy - Lamentations of Innocents (1995) [FLAC|Lossless|image + 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115797.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115797.jpgsave_picture_115797.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ Marian McPartland - At The Hickory House (1955) 1992, Jasmine Records [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115798.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115798.jpgsave_picture_115798.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ Cynic - Uroboric Forms - The Complete Demo Recordings (2017) Compilation [FLAC|2
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115799.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115799.jpgsave_picture_115799.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ MGMT - Loss of Life (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Indie, Psychedel
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115800.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115800.jpgsave_picture_115800.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Video Converter X2 for Mac 1.3.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115801.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115801.jpgsave_picture_115801.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Dark Fortress - Studio Albums (8 releases) (2001-2020) hand made [restored, decl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115802.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115802.jpgsave_picture_115802.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Traveler - Prequel To Madness (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115803.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115803.jpgsave_picture_115803.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Suede - Bloodsports (2013) Deluxe Edition, 2024, Edsel [FLAC 24/44.1|Lossless|WE
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115804.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115804.jpgsave_picture_115804.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ magnet:?xt=urn:btih:4F5B5506082505408D4F2774192EB955F6C11DBE
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115805.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115805.jpgsave_picture_115805.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Mike Zito - Life Is Hard (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Roc
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115806.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115806.jpgsave_picture_115806.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Whiteabbey - Words That Form The Key (2024) [FLAC|Lossless|WEB-DL|tracks] <Symph
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115807.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115807.jpgsave_picture_115807.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Takida - The agony flame (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115808.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115808.jpgsave_picture_115808.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Toxikull - Under The Southern Light (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115809.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115809.jpgsave_picture_115809.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Erika de Casier - Still (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Soul>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115810.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115810.jpgsave_picture_115810.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Dissolving of Prodigy - Time Ruins Also Beauty (1997) [FLAC|Lossless|image + .cu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115811.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115811.jpgsave_picture_115811.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Mac Saturn - Hard to Sell (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115812.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115812.jpgsave_picture_115812.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ JJ Grey & Mofro - Olustee (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Southern R
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115813.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115813.jpgsave_picture_115813.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ Anita O'Day - The Breakfast Show (1964) 2007, Emily Productions [FLAC|Lossless|i
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115814.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115814.jpgsave_picture_115814.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Cynic - The Portal Tapes (2012) Compilation)[FLAC|24/96|image + .cue|Vinyl-Rip] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115815.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115815.jpgsave_picture_115815.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Anita O'Day - At Vine St. Live (1991) DRG Records [FLAC|Lossless|image + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115816.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115816.jpgsave_picture_115816.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Echoes of Swing With Rebecca Kilgore - Winter Days At Schloss Elmau (2018) ACT M
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115817.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115817.jpgsave_picture_115817.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Sullivan Fortner - Aria (2015) Impulse! [FLAC|Lossless|tracks + .cue] <Post-Bop,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115818.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115818.jpgsave_picture_115818.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Text Workflow 1.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115819.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115819.jpgsave_picture_115819.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ Missing Persons - Hollywood Lie (2023) [FLAC|Lossless|WEB-DL|tracks] <New Wave, 
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115820.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115820.jpgsave_picture_115820.jpg" />
 </div>
 
 

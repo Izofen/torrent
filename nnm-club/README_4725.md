@@ -6,7 +6,7 @@
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147873.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147873.jpgsave_picture_147873.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Grand Theft Auto 2 / GTA 2: Беспредел (1999) [Ru/Multi] (11.44) Lossles
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147874.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147874.jpgsave_picture_147874.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ FoneLab Location Changer for Mac 1.0.12 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147875.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147875.jpgsave_picture_147875.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:ED18BD573AB62A1000CEC4AD4DB1CA717991985B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147878.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147878.jpgsave_picture_147878.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Currency Assistant 3.6.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147879.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147879.jpgsave_picture_147879.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:C2666FF829884A27391A5C3561141CE6BB6F7773
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147880.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147880.jpgsave_picture_147880.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:E354CD38248B064659AC8C0F457CEB9AFA51BECB
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147881.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147881.jpgsave_picture_147881.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:643DA8750FF5E875648AE01C594C73AEC6BAE879
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147882.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147882.jpgsave_picture_147882.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ Fallout 3 (2009) [En] (1.7.0.3/dlc) License GOG [Game of the Year Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147885.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147885.jpgsave_picture_147885.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ magnet:?xt=urn:btih:CD37BB188B1EA90426144898BF67D3FB8BB7CC82
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147887.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147887.jpgsave_picture_147887.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ magnet:?xt=urn:btih:DDC480D9A22DD2E89CBF998872A86E9337FA4586
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147888.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147888.jpgsave_picture_147888.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ magnet:?xt=urn:btih:0D44F6C856D7B726D0420B6DF815814A731B4A96
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147889.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147889.jpgsave_picture_147889.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Stefon Harris - African Tarantella: Dances With Duke (2006) Blue Note Records [F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147891.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147891.jpgsave_picture_147891.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ IVONA voices 2 v.1.6.76 + Speech2Go v.1.128 [Multi/Ru]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147892.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147892.jpgsave_picture_147892.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Whos On My WiFi 2.1.1 [Английский + Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147893.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147893.jpgsave_picture_147893.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Grand Theft Auto III (2002) [Ru/Multi] (1.1) Lossless Repack R.G. Origami
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147894.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147894.jpgsave_picture_147894.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ A Day To Remember - For Those Who Have Heart (2007) Remastered, Reissue, 2023, C
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147895.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147895.jpgsave_picture_147895.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ magnet:?xt=urn:btih:661C7A97BB2B756A37C8FC1D90A68EB0B65779B5
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147897.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147897.jpgsave_picture_147897.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ magnet:?xt=urn:btih:33711119CC6CF7C4118787484BE56D0010B20E66
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147900.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147900.jpgsave_picture_147900.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ Iris 1.6.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147901.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147901.jpgsave_picture_147901.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ magnet:?xt=urn:btih:F2956A3B1E1F7C0CD57C47F95FD66B31255A3A59
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147902.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147902.jpgsave_picture_147902.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Reallusion CrazyTalk Pipeline 8.0.1218.2 Retail + Resource Pack [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147903.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147903.jpgsave_picture_147903.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Sound Siphon 3.6.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147904.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147904.jpgsave_picture_147904.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ magnet:?xt=urn:btih:F03260D1CF508B885F7E252B9319C92879C0B491
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147906.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147906.jpgsave_picture_147906.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Gears of War 2 (2009) [Xbox360] [Region Free] FreeBoot [License / 7 DLC] [Ru] [G
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147907.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147907.jpgsave_picture_147907.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Hyperforma Premium v0.9.37 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147908.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147908.jpgsave_picture_147908.jpg" />
 </div>
 
 

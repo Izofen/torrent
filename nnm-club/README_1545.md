@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40526.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40526.jpgsave_picture_40526.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ EARTH DEFENSE FORCE: WORLD BROTHERS 2 (2024) [Multi] (1.0/dlc) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40527.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40527.jpgsave_picture_40527.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ ViewBox v1.8.13 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40528.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40528.jpgsave_picture_40528.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:53F43784A92BD5D973991BAF234BDE29483A940C
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40529.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40529.jpgsave_picture_40529.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ VA - Lounge Empire (25 Afterwork Anthems), Vol 2 (2024) [FLAC|Lossless|WEB-DL|tr
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40530.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40530.jpgsave_picture_40530.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ VA - Lounge Empire (25 Afterwork Anthems) Vol 1 (2024) [FLAC|Lossless|WEB-DL|tra
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40531.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40531.jpgsave_picture_40531.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ PDF-XChange PRO 10.4.2.390 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40532.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40532.jpgsave_picture_40532.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:B9137F607FF1ED6220C688D427A631B5A78BFEF0
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40533.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40533.jpgsave_picture_40533.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Windows Manager 2.0.6.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40534.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40534.jpgsave_picture_40534.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ Bloomtown: A Different Story (2024) [Ru/Multi] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40535.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40535.jpgsave_picture_40535.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:F78EEBCCA752871F8F8716D754CAE95612D6FCB8
 >>Экранки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40536.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40536.jpgsave_picture_40536.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:FF982FE37A1789AB3CFBD1CA23966EFA8A60D864
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40537.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40537.jpgsave_picture_40537.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ magnet:?xt=urn:btih:0B818B7549884BAD2D282D17D716F5778A5C9A0F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40538.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40538.jpgsave_picture_40538.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ magnet:?xt=urn:btih:E4BD23BB899BCC057F37FC76A57E88DDCAAC4CA8
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40539.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40539.jpgsave_picture_40539.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ The Talos Principle 2 (2023) [Ru/Multi] (2.2.0/dlc) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40540.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40540.jpgsave_picture_40540.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ magnet:?xt=urn:btih:986D48B3EB26ADFBFD0EA56EA4E74162335967EF
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40541.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40541.jpgsave_picture_40541.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ magnet:?xt=urn:btih:E78D62CC84D566315D5849A79E8A6B385B4FFB07
 >>Экранки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40542.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40542.jpgsave_picture_40542.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ magnet:?xt=urn:btih:A3547EFA817EDD25686D260A363C2B2929803CCA
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40543.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40543.jpgsave_picture_40543.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ magnet:?xt=urn:btih:E78A3140CA5066879ABAF0D6E4F4FA006C9C9BA4
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40544.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40544.jpgsave_picture_40544.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ magnet:?xt=urn:btih:4E07518C90189D36C1065815B7A40385627A4989
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40545.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40545.jpgsave_picture_40545.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Freedom Planet (2015) [En] (1.21.5) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40546.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40546.jpgsave_picture_40546.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ magnet:?xt=urn:btih:404933E945E69C97D1FBF2CFEB32819CDCB2D46C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40547.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40547.jpgsave_picture_40547.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ magnet:?xt=urn:btih:8FD793D66D98D1EAF715E384DE1CB868F297ED0F
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40548.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40548.jpgsave_picture_40548.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ magnet:?xt=urn:btih:1AD2B1D5A04D4CC5F0061DCA84F73D73B23AF079
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40549.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40549.jpgsave_picture_40549.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ R-Studio Network 9.4 Build 191370 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40550.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40550.jpgsave_picture_40550.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Valve стала дополнительно уведомлять, что в Stea
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40551.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40551.jpgsave_picture_40551.jpg" />
 </div>
 
 

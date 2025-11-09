@@ -6,7 +6,7 @@
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18656.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18656.jpgsave_picture_18656.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:113AD825907E2D24AF25367411EDF1DB1FE18D2D
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18657.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18657.jpgsave_picture_18657.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Laundry & Supermarket Simulator / Laundry Simulator: PowerWash It! (2025) [Ru/Mu
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18658.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18658.jpgsave_picture_18658.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:0B69D766A44B5E7FD0E8EB258B63564F721F84DB
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18659.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18659.jpgsave_picture_18659.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:94CD8F1E607819E42AABC5FDCC220B1950123F23
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18660.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18660.jpgsave_picture_18660.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:C0AABADEC985CF0EC9CA7107AE7F3256542C5083
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18661.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18661.jpgsave_picture_18661.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:9252AB848E1382EA0C74943C1F6190A3F93A0C0E
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18662.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18662.jpgsave_picture_18662.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:F3940587FE99A143D8B6F0B919BE1E4185539CF0
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18663.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18663.jpgsave_picture_18663.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:4E7DC06E7FD28105C59A421435168A75CC6C1F36
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18664.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18664.jpgsave_picture_18664.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:FA3FF55311234ED938490DC170E85FC68DBD94EF
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18665.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18665.jpgsave_picture_18665.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Nik Collection by DxO 8.0.12 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18666.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18666.jpgsave_picture_18666.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:55D08C215068E8043629DF2022733371F797FD21
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18667.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18667.jpgsave_picture_18667.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:C4193039F51F95CFFC3032383BD2A8CD55259CF0
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18668.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18668.jpgsave_picture_18668.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ magnet:?xt=urn:btih:5DA9762869B4CF62ED58324BDE0E496878997EDC
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18669.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18669.jpgsave_picture_18669.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Cash Cleaner Simulator (2025) [Ru/Multi] (1.0.1/dlc) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18670.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18670.jpgsave_picture_18670.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ magnet:?xt=urn:btih:6AFA8BCE0DC81612422B9BA14662F326D0E6BA54
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18671.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18671.jpgsave_picture_18671.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ Total Commander 11.55 RC1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18672.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18672.jpgsave_picture_18672.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ magnet:?xt=urn:btih:E6C6D72F2BA2D91646165D280B4487DE8E1EB907
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18673.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18673.jpgsave_picture_18673.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ Blaze - Виртуальный Камин 4K v1.8.0 Mod by SurvivalHorror [Ru/Mu
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18674.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18674.jpgsave_picture_18674.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ magnet:?xt=urn:btih:979D59AF02D4422EE5C241C5FCC60103C0EBE220
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18675.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18675.jpgsave_picture_18675.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ magnet:?xt=urn:btih:CBEA6007CE2258D8DE85418E0B8A7FB17B8E164E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18676.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18676.jpgsave_picture_18676.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Oil Refinery - The Simulation (2025) [Ru/Multi] (1.1.5) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18677.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18677.jpgsave_picture_18677.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ SlitterHead (2024) [Ru/Multi] (1.02.2-r00065826) Repack Let'sРlay
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18678.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18678.jpgsave_picture_18678.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ LibreOffice 25.2.3.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18679.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18679.jpgsave_picture_18679.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Ultimate Fishing Simulator 2 (2022) [Ru/Multi] (1.25.05.09.3975) Repack FitGirl
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18680.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18680.jpgsave_picture_18680.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Hotel Owner Simulator (2025) [Ru/Multi] (1.0.5.5) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18681.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18681.jpgsave_picture_18681.jpg" />
 </div>
 
 

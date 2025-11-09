@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168453.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168453.jpgsave_picture_168453.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:76FE330BD20A7E50EB4A215620B12B3D6897F60A
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168454.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168454.jpgsave_picture_168454.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ VA - Новый Год 2020 (2019) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168455.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168455.jpgsave_picture_168455.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:0808A15A02CC6A176D3DE6463EF5239C6FCF5637
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168456.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168456.jpgsave_picture_168456.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ FontBook 5.3.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168457.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168457.jpgsave_picture_168457.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:092E769D8E015AF0CAB4A7D7522F6E60776D2E27
 >>Сериалы Marvel Comics
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168458.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168458.jpgsave_picture_168458.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:2BD5AC23C40F190D390D9610264E70C95A991E2C
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168459.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168459.jpgsave_picture_168459.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:9045A87DC9B08152A0F9FEB5AB72EDA0A1FA00AA
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168460.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168460.jpgsave_picture_168460.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:A51039B0B40D432FA367805E8C47DC6838C3D80F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168461.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168461.jpgsave_picture_168461.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Rob Arnold - Magnitude (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Death, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168462.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168462.jpgsave_picture_168462.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:111374867E4938E96F40B74AEBD911189E896106
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168463.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168463.jpgsave_picture_168463.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:21BE5CCE0EEEA226CBC04CAD9CA280F250CD26A4
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168464.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168464.jpgsave_picture_168464.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Shadow Warrior - Cyberblade (2020) Japanese Edition [FLAC|Lossless|image + .cue]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168465.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168465.jpgsave_picture_168465.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ magnet:?xt=urn:btih:17D87D56B0D89D208A8A5FFEA6FDC8835EB78BAD
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168466.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168466.jpgsave_picture_168466.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ VA - Deepalma Ibiza Winter Moods, Vol. 3 (2021) [AAC|~326 Kbps] <Disco, House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168467.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168467.jpgsave_picture_168467.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ magnet:?xt=urn:btih:F91ECCD67B4D1FB0ED18A9210861A50DFA443CEC
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168468.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168468.jpgsave_picture_168468.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Music For Sleep - La coesione tra i due mondi (2021) [AAC|~291 Kbps] <Meditation
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168469.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168469.jpgsave_picture_168469.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ magnet:?xt=urn:btih:664555D5C27A9664C1FF3A4D7FDD83818922508F
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168470.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168470.jpgsave_picture_168470.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Cardhop 2.2.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168471.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168471.jpgsave_picture_168471.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Adobe Photoshop 2020 21.0.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168472.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168472.jpgsave_picture_168472.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Scrutiny 12 v.12.6.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168473.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168473.jpgsave_picture_168473.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Visual Studio Code 1.52.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168475.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168475.jpgsave_picture_168475.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ magnet:?xt=urn:btih:9433B66467516612D10FFDF17ABF08C9645A5291
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168476.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168476.jpgsave_picture_168476.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ VA - Gate to Eternity: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168477.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168477.jpgsave_picture_168477.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ magnet:?xt=urn:btih:79E864E607472A2970AB64BF232042A85CB996F1
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168478.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168478.jpgsave_picture_168478.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ magnet:?xt=urn:btih:CEF362FC0AEDFC8DCBC6A8F85F9E53EC43513AC3
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168479.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168479.jpgsave_picture_168479.jpg" />
 </div>
 
 

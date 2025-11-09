@@ -6,7 +6,7 @@ Maitreya Bland - Tranquility (1999) [FLAC|Lossless|tracks + .cue] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154696.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154696.jpgsave_picture_154696.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Capture One 20 Pro 13.0.1.19 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154697.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154697.jpgsave_picture_154697.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ magnet:?xt=urn:btih:D897482A82F133B29D084D4E85CC61E22946306A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154698.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154698.jpgsave_picture_154698.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ LaunchBar 6.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154699.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154699.jpgsave_picture_154699.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ magnet:?xt=urn:btih:1704ACADAE6E08E86B495026853D59149D638C34
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154700.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154700.jpgsave_picture_154700.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ magnet:?xt=urn:btih:14C1FF5A556E8AC678D8A8F1CA94DFE5D2344C74
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154701.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154701.jpgsave_picture_154701.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ magnet:?xt=urn:btih:C69FA7188273662497709D0CCCC4DD38F280368D
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154702.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154702.jpgsave_picture_154702.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ magnet:?xt=urn:btih:7342CCE8CF8C388D438C58A32D6B147752C092DE
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154703.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154703.jpgsave_picture_154703.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ AOMEI Partition Assistant Technician Edition 8.6 RePack (& Portable) by elchupac
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154704.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154704.jpgsave_picture_154704.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ Willis Jackson - Nuther'n Like Thuther'n (1963, 1964) 2002, Prestige [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154705.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154705.jpgsave_picture_154705.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ Gare du Nord - Lifesexy: Live in Holland (2012) [FLAC|Lossless|tracks + .cue] <J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154706.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154706.jpgsave_picture_154706.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ BAS, Павел Дуглас | Курс по BAS (2022) WEB-DL [AD] [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154707.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154707.jpgsave_picture_154707.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ VA - Sensitive Deep House (2016) [MP3|320 Kbps] <Deep House, Electro, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154708.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154708.jpgsave_picture_154708.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ magnet:?xt=urn:btih:8310BF6F013BC92BE6B4CAD185FDE9CBA7C4D600
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154709.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154709.jpgsave_picture_154709.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ magnet:?xt=urn:btih:D783A9E7B99C77B0AF89C90CCD532C8AAD4D87D4
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154711.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154711.jpgsave_picture_154711.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ magnet:?xt=urn:btih:CD5D3048E1A43F0F230536153B98FAB9186AAE77
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154712.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154712.jpgsave_picture_154712.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ NCH VideoPad Pro 9.06 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154713.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154713.jpgsave_picture_154713.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ magnet:?xt=urn:btih:BC3E4BF0E96083927473D129E309F3536F1380C6
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154714.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154714.jpgsave_picture_154714.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ magnet:?xt=urn:btih:45C0863EC7FF047F75C3F0C0AEFFB5B3FCB8C88E
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154715.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154715.jpgsave_picture_154715.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ Revo Uninstaller Pro 4.5.3 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154716.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154716.jpgsave_picture_154716.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ magnet:?xt=urn:btih:78A9F0E96C0AB97202D2BCF7AEA0BC9EFE051261
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154717.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154717.jpgsave_picture_154717.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ OS Looper - 2022 (2016) [FLAC|Lossless|Web-DL|tracks] <Abstract Hip-Hop, Bass Mu
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154718.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154718.jpgsave_picture_154718.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ devtodev | Введение в геймдев (2019) PCRec [H.264/720p-LQ]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154719.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154719.jpgsave_picture_154719.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Windows 7 (6.1.7601.25796) x64 (4in1) by Brux [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154720.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154720.jpgsave_picture_154720.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ VA - Hit News Vol. 3/95 (1995) [OGG Vorbis|480 Kbps] <Electronic, Euro House, It
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154721.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154721.jpgsave_picture_154721.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ Sublime Text 3.2.2 Build 3211 RePack by DeLtA [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154722.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154722.jpgsave_picture_154722.jpg" />
 </div>
 
 

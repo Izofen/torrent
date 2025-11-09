@@ -6,7 +6,7 @@ Erik's Iridescent Tent - Peter Piper Pepperidge Farm at the Gates of Dawn Deterg
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180032.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180032.jpgsave_picture_180032.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Rocket Boy - Resolute (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180038.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180038.jpgsave_picture_180038.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Manthus - Sentenced to Rock (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180045.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180045.jpgsave_picture_180045.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Paterikon - 2 Albums (2022) [FLAC|Lossless|WEB-DL|tracks] <Doom Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180048.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180048.jpgsave_picture_180048.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Trillion Ton Beryllium Ships - TTBS (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180051.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180051.jpgsave_picture_180051.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Afghan Haze - 2 Albums, 1 EP (2019-2022) [FLAC|Lossless|WEB-DL|tracks] <Stoner, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180055.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180055.jpgsave_picture_180055.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ VA - Rock: The Classics (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180099.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180099.jpgsave_picture_180099.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Sotiria - Hallo Leben (2018) Box Set 2CD [FLAC|Lossless|image + .cue] <Rock, Got
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180273.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180273.jpgsave_picture_180273.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Brave New Worlds - Aisongs (2023) [MP3|320 Kbps] <Progressive Rock, Neo-Prog>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180276.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180276.jpgsave_picture_180276.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Dead Man's Whiskey - In The Storm (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Roc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180301.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180301.jpgsave_picture_180301.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Avril Lavigne - Love Sux (2022) Deluxe [FLAC|Lossless|WEB-DL|tracks] <Alternativ
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180307.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180307.jpgsave_picture_180307.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Dario Mollo / Tony Martin - The Third Cage (2011) Japanese Edition [FLAC|Lossles
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180314.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180314.jpgsave_picture_180314.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:AD91B76AA507C274DC89F2825E2797313D9AD723
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180327.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180327.jpgsave_picture_180327.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Asia - Fantasia (Live In Tokyo) (2007) 2xCD, Japanese Edition, Remastered, SHM-C
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180328.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180328.jpgsave_picture_180328.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Fraise - The Fifth Sun, Pt. II (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180330.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180330.jpgsave_picture_180330.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Soluna - Synesthesia (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive-Metalcore
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180349.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180349.jpgsave_picture_180349.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Nurcry - Destino, yo te busco (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180351.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180351.jpgsave_picture_180351.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Fatal - Soul Burning Still - A Fatal Retrospective (2017) Compilation [FLAC|Loss
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180364.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180364.jpgsave_picture_180364.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Scaffold - Codex Gigas (2021) [FLAC|Lossless|image + .cue] <Death Metal, Thrash 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180376.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180376.jpgsave_picture_180376.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Chris Rea - Whatever Happened to Benny Santini? (1978) Reissue, 1991, EastWest [
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180439.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180439.jpgsave_picture_180439.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Tom Petty & The Heartbreakers - Live at the Fillmore (1977) 2022, Warner Records
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180443.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180443.jpgsave_picture_180443.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Brain for the Masses - Monachopsis (2022) EP [FLAC|Lossless|WEB-DL|tracks] <Meta
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180450.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180450.jpgsave_picture_180450.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ David Maxim Micic - BILO IV (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180453.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180453.jpgsave_picture_180453.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Lari Basilio - The Sound of My Room (2015) [FLAC|Lossless|image + .cue] <Instrum
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180463.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180463.jpgsave_picture_180463.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ magnet:?xt=urn:btih:51A84971B0552CF1D70C86199CA4F6F3018AE4A7
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180485.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180485.jpgsave_picture_180485.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Malamorte - God Needs Evil (2020) [FLAC|Lossless|WEB-DL|tracks] <Black Heavy Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180487.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180487.jpgsave_picture_180487.jpg" />
 </div>
 
 

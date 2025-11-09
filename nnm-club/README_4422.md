@@ -6,7 +6,7 @@ Daum PotPlayer 1.6.57875 Stable + Portable (x86/x64) by SamLab [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138172.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138172.jpgsave_picture_138172.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:83249D4AAC3C5A9F89C3243E2D19EC7AF2AE21A7
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138173.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138173.jpgsave_picture_138173.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ VA - Steyoyoke Gems Nocturnal 10 (2021) [AAC|~330 Kbps] <Progressive House, Deep
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138174.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138174.jpgsave_picture_138174.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Call of Duty Black Ops 2/II (2012) [Ru] (1.0.0.1 upd3) RePack Fenixx [Digital De
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138175.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138175.jpgsave_picture_138175.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Windows 10 Enterprise LTSB 2016 v1607 (x86/x64) by LeX_6000 [27.12.2018] [Ru/En]
 >>22
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138176.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138176.jpgsave_picture_138176.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:E86DB092B6C8832ECE45EA06D55089725F1B225E
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138177.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138177.jpgsave_picture_138177.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:06BA16F5407398D3C602D04DD6992C9ED213746C
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138178.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138178.jpgsave_picture_138178.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:14B676E691A0E0F5CEA69810F0739B52E7436F92
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138180.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138180.jpgsave_picture_138180.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ magnet:?xt=urn:btih:EF4363ECB79913BD1CD9C76FEABA5AC16E84AAAF
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138182.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138182.jpgsave_picture_138182.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ VA - New Day: Urban Chillout Vibes (2021) [AAC|~327 Kbps] <Lounge, Chill Out, Do
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138183.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138183.jpgsave_picture_138183.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ magnet:?xt=urn:btih:3CD0BCAFCA98FAC54FB4B775C01E5BE2E1A9F676
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138184.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138184.jpgsave_picture_138184.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ magnet:?xt=urn:btih:91BB52760798C9ED5F2F9F16A840808A158D587A
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138185.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138185.jpgsave_picture_138185.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ magnet:?xt=urn:btih:A7AC56759FC60DDAABAB5E13EFA881E5C84FA5D0
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138186.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138186.jpgsave_picture_138186.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ VA - The Soundgarden: Winter Collection (2020) Compilation [FLAC|Lossless|WEB-DL
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138187.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138187.jpgsave_picture_138187.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ magnet:?xt=urn:btih:17D511DC2D84AEE0D3C64A496CB27AB7B4462665
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138188.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138188.jpgsave_picture_138188.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ magnet:?xt=urn:btih:3FEA6E4512B412605ACEE92569083EBF315F304C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138189.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138189.jpgsave_picture_138189.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Call of Duty Black Ops 2/II (2012) [Ru] (1.0.0.1 upd3) Rip Fenixx
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138190.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138190.jpgsave_picture_138190.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ VSO ConvertXtoDVD 5.3.0.43 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138192.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138192.jpgsave_picture_138192.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Kingsman: Золотое кольцо / Kingsman: The Golden Circle (2017) BDRip
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138193.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138193.jpgsave_picture_138193.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ VA - Blufin Loves Amsterdam 11 (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138194.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138194.jpgsave_picture_138194.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ magnet:?xt=urn:btih:AA79C557672A072D289AD8B5C0C9842D471B27B7
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138199.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138199.jpgsave_picture_138199.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ magnet:?xt=urn:btih:76ADBFDD6B00FA428ED6AD2F69EDBA00E24E6B90
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138200.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138200.jpgsave_picture_138200.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ magnet:?xt=urn:btih:4985532AD2790DD93B637406DA570C07ED0CEAFD
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138201.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138201.jpgsave_picture_138201.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ Ummet Ozcan - The Final Bang Year Mix 2019 (2019-12-27) [MP3|320 Kbps] <Electro 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138202.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138202.jpgsave_picture_138202.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ Comedy Woman. Новогодний (2017.12.31) SATRip
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138203.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138203.jpgsave_picture_138203.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ magnet:?xt=urn:btih:EAC3CFD5A18962BD268D6BDA28101AD940324B3F
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138206.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138206.jpgsave_picture_138206.jpg" />
 </div>
 
 

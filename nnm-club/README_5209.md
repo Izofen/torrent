@@ -6,7 +6,7 @@ Eiga K-On! / Кэйон! (фильм) [2011, MV] BDrip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162186.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162186.jpgsave_picture_162186.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Combo Cleaner Premium 1.3.7 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162187.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162187.jpgsave_picture_162187.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:7FC358A45FA2991D1C933038C8CBAEB565607506
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162188.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162188.jpgsave_picture_162188.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Wondershare PDFelement 10.1.5.2527 RePack by elchupacabra + OCR Plugin [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162189.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162189.jpgsave_picture_162189.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Voodoo Room - Tension City Blues (2020) [FLAC|Lossless|tracks + .cue] <Classic R
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162190.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162190.jpgsave_picture_162190.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ Stats 2.8.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162191.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162191.jpgsave_picture_162191.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:DAA2983706CC90DB56C5937539D576D04C8854BD
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162192.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162192.jpgsave_picture_162192.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:94843AF78565BA25A2A7650A82A00BF1D3E52C39
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162193.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162193.jpgsave_picture_162193.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ Telegram Desktop 4.11.3 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162194.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162194.jpgsave_picture_162194.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:043C124F3BB7DD782F6DD654B2034E51C949010A
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162195.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162195.jpgsave_picture_162195.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ Northern Flame - Twisted Reality (2020) [MP3|320 Kbps] <Melodic Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162196.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162196.jpgsave_picture_162196.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ magnet:?xt=urn:btih:457DFFCDEAA5B5C6021D802E157FB536C9294E0A
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162197.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162197.jpgsave_picture_162197.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ BusyContacts 2022.4.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162198.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162198.jpgsave_picture_162198.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Tone Generator PRO v3.50 Mod by Alex.Strannik, papasha55 [En/Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162199.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162199.jpgsave_picture_162199.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Rhinoceros 7 v7.13 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162200.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162200.jpgsave_picture_162200.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Justin Johnson - Rough Edges (2020) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162201.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162201.jpgsave_picture_162201.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ magnet:?xt=urn:btih:812EC81B93EF9AB2CE082C691C10C1CD579C9D41
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162202.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162202.jpgsave_picture_162202.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ VA - Music News vol.312 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162203.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162203.jpgsave_picture_162203.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ magnet:?xt=urn:btih:575C20ACD34BFD7B26F1E2391DCD7BFCA5A9C54A
 >>Прочие зимние виды спорта
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162204.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162204.jpgsave_picture_162204.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ magnet:?xt=urn:btih:F4B933140CFBFEF602C4B8329942547A65064132
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162205.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162205.jpgsave_picture_162205.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ iShot Pro-ScreenShot Recording 2.2.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162206.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162206.jpgsave_picture_162206.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ VA - Автоклуб шансона. Хиты в дорогу. 100 (2025) [FLAC
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162207.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162207.jpgsave_picture_162207.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Atreyu - A Torch In The Dark (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative R
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162208.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162208.jpgsave_picture_162208.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ GraphicConverter 11 v.11.7.1 beta [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162209.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162209.jpgsave_picture_162209.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ VA - Новые хитовые песни 2025, Часть 10 (2025) [FLAC|Lossl
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162210.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162210.jpgsave_picture_162210.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ magnet:?xt=urn:btih:B580EDDCB14541C0CDECD151E2F6EA4420EAA105
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162211.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162211.jpgsave_picture_162211.jpg" />
 </div>
 
 

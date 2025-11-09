@@ -6,7 +6,7 @@ PhotoTune - Улучшитель фото v4.4.8 Mod by Raju054 [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122954.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122954.jpgsave_picture_122954.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:4A7BE5970D18773B80EBB59713881D749A3648EC
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122955.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122955.jpgsave_picture_122955.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:CB4495378CD50B1FA95B53415622F5E4872B33BB
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122956.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122956.jpgsave_picture_122956.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:2F391E9A197273813ECE310B6D8630C0202C673B
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122957.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122957.jpgsave_picture_122957.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ XMind Pro 2024 24.01 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122958.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122958.jpgsave_picture_122958.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:5D28F9EBD66592DCE1EE493D117FE71344E4B0D6
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122959.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122959.jpgsave_picture_122959.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Michael Cretu - 5 Albums (1979-1992) LP [MP3|320 Kbps] <Electronic, Pop, Disco, 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122960.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122960.jpgsave_picture_122960.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:1FF9DBA75AA60DDFD43AAC81E81EC03A62441523
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122961.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122961.jpgsave_picture_122961.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:AE0468F8AC86E8ABF53D91B48F5201A0129B7D27
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122962.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122962.jpgsave_picture_122962.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:F8D79B8DFE6A1456865F9E8304BE42D017069FB6
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122963.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122963.jpgsave_picture_122963.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:EC944B2CCB335E26B0616FA0016B82E981D5340E
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122964.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122964.jpgsave_picture_122964.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ magnet:?xt=urn:btih:BC23A8F73951BE7F18227540502047E81F31F5DA
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122965.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122965.jpgsave_picture_122965.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:135A05DF8222CE905D14837D3EA0A0D1EEFEEE27
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122966.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122966.jpgsave_picture_122966.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:C220A15CF957AE52D3309A9D36018A7420C255B1
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122967.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122967.jpgsave_picture_122967.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ magnet:?xt=urn:btih:F7F2CB2BE0E32DB250EC4E1B584AF48731F90E08
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122968.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122968.jpgsave_picture_122968.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ NIUBI Partition Editor 9.9.2 Technician Edition RePack (& Portable) by elchupaca
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122969.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122969.jpgsave_picture_122969.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ magnet:?xt=urn:btih:C6E9790B71131BC6D17035FF86E911309A3664AA
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122970.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122970.jpgsave_picture_122970.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ magnet:?xt=urn:btih:C6E9790B71131BC6D17035FF86E911309A3664AA
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122971.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122971.jpgsave_picture_122971.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ magnet:?xt=urn:btih:25F663BB2800D36D77513718AEE801784101029B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122972.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122972.jpgsave_picture_122972.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ magnet:?xt=urn:btih:25F663BB2800D36D77513718AEE801784101029B
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122973.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122973.jpgsave_picture_122973.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ V.A. - ITALO DISCO 90's remember (2024) [FLAC|Lossless|WEB-DL|tracks] <Eurodance
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122974.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122974.jpgsave_picture_122974.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ magnet:?xt=urn:btih:025B2FF5883D27D3134F5E5DE45A1C9C9E979800
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122975.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122975.jpgsave_picture_122975.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:AD7A29E3AC5EA16AF8218C94C9F5EABE90C24F98
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122976.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122976.jpgsave_picture_122976.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ magnet:?xt=urn:btih:08E3218E704AF7647270957D0B4B5421E7A67DE2
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122977.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122977.jpgsave_picture_122977.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ magnet:?xt=urn:btih:08E3218E704AF7647270957D0B4B5421E7A67DE2
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122978.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122978.jpgsave_picture_122978.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ magnet:?xt=urn:btih:5230B0F05932A6F2A0F092A04F1C50F682AA285C
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122979.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122979.jpgsave_picture_122979.jpg" />
 </div>
 
 

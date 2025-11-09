@@ -6,7 +6,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25570.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25570.jpgsave_picture_25570.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25571.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25571.jpgsave_picture_25571.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ StudyGe - География мира v2.3.1 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25572.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25572.jpgsave_picture_25572.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:46B262CD9661372631A51765EEBDF0E90E1E20F6
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25573.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25573.jpgsave_picture_25573.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ Vovsoft Speech to Text Converter 5.5 [En]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25574.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25574.jpgsave_picture_25574.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:193E90BF2571F8BA03EC10BF071E3862EA3256BD
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25575.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25575.jpgsave_picture_25575.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Tor Browser Bundle 14.0.7 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25576.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25576.jpgsave_picture_25576.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ Windows 10 (v22h2) x64 HSL/PRO by KulHunter v23 (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25577.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25577.jpgsave_picture_25577.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ Knights in Tight Spaces (2025) [Ru/Multi] (1.0.18525) Repack FitGirl [Collector'
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25578.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25578.jpgsave_picture_25578.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ Vovsoft Text to MP3 Converter 4.1 [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25579.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25579.jpgsave_picture_25579.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:F4DC1AE3FD03B5063FB94AFA3BB7780465FC2B38
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25580.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25580.jpgsave_picture_25580.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Aiarty Image Enhancer 3.3 RePack (& Portable) by elchupacabra [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25581.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25581.jpgsave_picture_25581.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:C450C0D0663E9D925685F5422C3D25D734020C54
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25582.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25582.jpgsave_picture_25582.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Microsoft  Visual C++ Runtimes AIO v0.88.0 x86-x64 Repack by abbodi1406 [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25583.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25583.jpgsave_picture_25583.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Microsoft Visual C++ 2015-2022 Redistributable 14.44.34918.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25584.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25584.jpgsave_picture_25584.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Final Fantasy XVI (2024) [Ru/Multi] (1.03/dlc) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25585.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25585.jpgsave_picture_25585.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ magnet:?xt=urn:btih:9388FF962F7B094AF605F3B5EA87F1D84A22E35B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25586.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25586.jpgsave_picture_25586.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ magnet:?xt=urn:btih:9EB3A46415E99E4E040FBD1853521816ACFFEFDE
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25587.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25587.jpgsave_picture_25587.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ magnet:?xt=urn:btih:A2DA0B9E0C34654504091A17D62FC12DD0518568
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25588.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25588.jpgsave_picture_25588.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ magnet:?xt=urn:btih:A2DA0B9E0C34654504091A17D62FC12DD0518568
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25589.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25589.jpgsave_picture_25589.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ magnet:?xt=urn:btih:8B44DE2E3B644D36DFD9B33A373A072631031C4A
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25590.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25590.jpgsave_picture_25590.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ magnet:?xt=urn:btih:7390731CFE56E220ECA56A5FC1CAC35D3C2ED926
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25591.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25591.jpgsave_picture_25591.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ SoftEther VPN Gate, или — неубиваемая Великим Китай�
 >>Бесплатные VPN сервисы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25592.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25592.jpgsave_picture_25592.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ The Pegasus Expedition (2022) [Ru/Multi] (2025 mar01 patch) License GOG [Grand A
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25593.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25593.jpgsave_picture_25593.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ magnet:?xt=urn:btih:484F06B9FA65A6B86A3ECEFFE369670A44F4CADD
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25594.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25594.jpgsave_picture_25594.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Slay the Princess (2023) [Ru/Multi] (1.4a) License GOG [The Pristine Cut]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25595.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25595.jpgsave_picture_25595.jpg" />
 </div>
 
 

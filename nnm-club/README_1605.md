@@ -6,7 +6,7 @@
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42087.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42087.jpgsave_picture_42087.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Mechabellum (2023) [Ru/Multi] (1.0.0.4.1366) Repack FitGirl
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42088.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42088.jpgsave_picture_42088.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Mylene Farmer - Nevermore (2024) Live [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42089.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42089.jpgsave_picture_42089.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:2768C3395C25DC545B4361E884B85017F7884D71
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42090.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42090.jpgsave_picture_42090.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ GOAL! The Club Manager (2022) [Multi] (0.8.0.1) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42091.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42091.jpgsave_picture_42091.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ Moon+ Reader Pro v9.6 (b906001) Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42092.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42092.jpgsave_picture_42092.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ E-Rotic - Level Up (2024) [FLAC|Lossless|WEB-DL|tracks] <Eurodance>
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42093.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42093.jpgsave_picture_42093.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ magnet:?xt=urn:btih:9C992FC5167A5551BE172596E6B6E4CFC097E58E
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42094.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42094.jpgsave_picture_42094.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ magnet:?xt=urn:btih:73D0FCA41292E133DFD27E748503D5B3A12EF127
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42095.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42095.jpgsave_picture_42095.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ magnet:?xt=urn:btih:73D0FCA41292E133DFD27E748503D5B3A12EF127
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42096.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42096.jpgsave_picture_42096.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ magnet:?xt=urn:btih:7B85E2B7953CF7BE7736BA50833D707478951E69
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42097.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42097.jpgsave_picture_42097.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ magnet:?xt=urn:btih:7213DCDCF522D2BD1AA0C08DE2D2C027ADCCD6F0
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42098.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42098.jpgsave_picture_42098.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ magnet:?xt=urn:btih:2AB8EBE83534E97E636BC92D2C6D60D85EAEA758
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42099.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42099.jpgsave_picture_42099.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Dada: коллаж и стикеры на фото v1.2.8 Mod by Alex.Strannik [
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42100.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42100.jpgsave_picture_42100.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ E-Rotic - Level Up (2024) [MP3|320 Kbps] <Eurodance>
 >>Eurodance, Euro-House, Technopop
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42101.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42101.jpgsave_picture_42101.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ magnet:?xt=urn:btih:19FA69C3682BFE56613ECE197D7DCF964295E9B5
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42102.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42102.jpgsave_picture_42102.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ magnet:?xt=urn:btih:41F4A7923F3C98F3DABA54F6CC53FF3BA9FB1F53
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42103.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42103.jpgsave_picture_42103.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Tiny Glade (2024) [Ru/Multi] (1.8.0a) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42104.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42104.jpgsave_picture_42104.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ Farewell North (2024) [Multi] (1.1.2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42105.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42105.jpgsave_picture_42105.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ magnet:?xt=urn:btih:6131F1F654FCCFFAE20537F7AE3965793027943B
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42106.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42106.jpgsave_picture_42106.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ magnet:?xt=urn:btih:39B753EB7E42F85C884682DD8948CC03FE8A7A27
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42107.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42107.jpgsave_picture_42107.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ magnet:?xt=urn:btih:75E5E72BDDBB015D9934892EEE04F9BF81FB6490
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42108.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42108.jpgsave_picture_42108.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ magnet:?xt=urn:btih:A43CB8B86DE847DF5ACC41F63A28727F429C0CAF
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42109.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42109.jpgsave_picture_42109.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ magnet:?xt=urn:btih:82E336AF0F0721F1B4C97271345EEF7CF08A4EDC
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42110.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42110.jpgsave_picture_42110.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ magnet:?xt=urn:btih:82E336AF0F0721F1B4C97271345EEF7CF08A4EDC
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42111.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42111.jpgsave_picture_42111.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ magnet:?xt=urn:btih:3E6CC9D082C08A6C41E581CB9B6440E90513CAD8
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42112.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42112.jpgsave_picture_42112.jpg" />
 </div>
 
 

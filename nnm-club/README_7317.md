@@ -6,7 +6,7 @@ Cosmic Gate - MOSAIIK Chapter Two (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250279.jpgsave_picture_250279.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:A28FF85108793F532748196A5683D9636A7E40C6
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250280.jpgsave_picture_250280.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ FBackup 9.8.734 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250281.jpgsave_picture_250281.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:503CA771484373B02CA226A312EA361F385420A9
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250282.jpgsave_picture_250282.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:A2863ADC9A5195453336A55EA9A4C012F8C9DD47
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250283.jpgsave_picture_250283.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ RegCool 1.326 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250284.jpgsave_picture_250284.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Windows 10 (v21h2) x64 HSL/PRO by KulHunter v4.1 (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250285.jpgsave_picture_250285.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:19576C9A3003474767FE28887062D83A74BC97DE
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250286.jpgsave_picture_250286.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:2251CDE4A23B5CBA75068ABBC7A82C2D99A711E6
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250287.jpgsave_picture_250287.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:D20A4542108F6F3DCA3E78BEAD0FAE70558E460E
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250288.jpgsave_picture_250288.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Genesis - BBC Broadcasts (1978-1992) 5CD Box Set, Compilation, (2023) UMR/EMI [M
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250289.jpgsave_picture_250289.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ magnet:?xt=urn:btih:A0AF1259BC80316A6F25DE5F1521C2E9CCD493F2
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250290.jpgsave_picture_250290.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:97E56552B7C41D1107BEF429BD2B533476FAD41C
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250291.jpgsave_picture_250291.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:3509935AFC901FFDB9F5DC048C529EBB1CEE0047
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250292.jpgsave_picture_250292.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Serj Tankian - Perplex Cities (2022) EP [FLAC|Lossless|WEB-DL|tracks] <Rock, Alt
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250293.jpgsave_picture_250293.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Halo Of Catastrophe - Symphony From Ruin (2022) [FLAC|Lossless|WEB-DL|tracks] <M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250294.jpgsave_picture_250294.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ magnet:?xt=urn:btih:DD2D765800559AAB0807075A3C5B9EEF5A667DDF
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250295.jpgsave_picture_250295.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ Motorhead - Bad Magic: Seriously Bad Magic (2015) 2CD (Reissued-2023) [FLAC|Loss
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250296.jpgsave_picture_250296.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ magnet:?xt=urn:btih:F83084A33056A3D3DF715F8C38C73FA73004C10F
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250297.jpgsave_picture_250297.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ magnet:?xt=urn:btih:F83084A33056A3D3DF715F8C38C73FA73004C10F
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250298.jpgsave_picture_250298.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ magnet:?xt=urn:btih:F1C17BA41305FF793F494F03155CF72B641DC3A8
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250299.jpgsave_picture_250299.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Steve Santello, Alan R. Stagner | Building an RPG with Unreal / Построен
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250300.jpgsave_picture_250300.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Cardinal Black - January Came Close (2022) Scene [FLAC|Lossless|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250301.jpgsave_picture_250301.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ magnet:?xt=urn:btih:3A6A3C479B4FA60FC052E85694AAF51C07A1C0A6
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250302.jpgsave_picture_250302.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Cosmic Gate - MOSAIIK Chapter One (2021) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250303.jpgsave_picture_250303.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ magnet:?xt=urn:btih:272294E7E63244A510D47AA6EF0C39DABF3D96F6
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250304.jpgsave_picture_250304.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Password Repository 4 v.4.3.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112597.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112597.jpgsave_picture_112597.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:955CA7DCAC0CE9468F37B4DA2826C728A6BD2E88
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112598.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112598.jpgsave_picture_112598.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ MediaInfo for Mac 24.03 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112599.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112599.jpgsave_picture_112599.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ EF Commander 24.04 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112600.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112600.jpgsave_picture_112600.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Polarr v6.9.0 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112601.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112601.jpgsave_picture_112601.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:B1AC61C1BD4E34621CB638EF2FAAEA97D24246CF
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112602.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112602.jpgsave_picture_112602.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:C288660342CC56893888880C23BE3BF526391412
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112603.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112603.jpgsave_picture_112603.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:021F372F11727B5B435F19D6D01277E80279DE67
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112604.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112604.jpgsave_picture_112604.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:6357C6DDF8C478C68EE54234A3F5E28CF5B7A8F1
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112605.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112605.jpgsave_picture_112605.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Sum 41 - Heaven :x: Hell (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop-punk,
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112606.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112606.jpgsave_picture_112606.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Wondershare UniConverter for Mac 15.5.4 Intel/ARM [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112607.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112607.jpgsave_picture_112607.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ CherryTree 1.1.1.0 (x64) + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112608.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112608.jpgsave_picture_112608.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:0DB89087CD110F3F762C706EAEC5A42EB36C0B9A
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112609.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112609.jpgsave_picture_112609.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ XnView MP 1.7.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112610.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112610.jpgsave_picture_112610.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Native Instruments Kontakt 7 for Mac v.7.9.0 U2B [Multi]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112611.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112611.jpgsave_picture_112611.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ magnet:?xt=urn:btih:A4F8E6EEB3533DBCF3830FE6A3DC7095BD385543
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112612.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112612.jpgsave_picture_112612.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ HDCleaner 2.067 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112613.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112613.jpgsave_picture_112613.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Macrorit Data Wiper 7.0.2 Unlimited Edition RePack (& Portable) by elchupacabra 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112614.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112614.jpgsave_picture_112614.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ BurnAware Professional 17.6 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112615.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112615.jpgsave_picture_112615.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Slayer - Reign In Blood (1986) Reissue, 2024, American Recordings Catalog P&D [F
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112616.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112616.jpgsave_picture_112616.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ magnet:?xt=urn:btih:7779567F8DFA422E0C0C0ED08585CF4EF20D914D
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112617.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112617.jpgsave_picture_112617.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ PopClip 2024.3.2 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112618.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112618.jpgsave_picture_112618.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ magnet:?xt=urn:btih:1C0A78FA24042844C101C4EECA815F0D1EE10D9D
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112619.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112619.jpgsave_picture_112619.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Vidmore Video Fix for Mac 1.0.10 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112620.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112620.jpgsave_picture_112620.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Brave Browser 1.64.113 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112621.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112621.jpgsave_picture_112621.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ DeskWidgets: Custom Desktop for Mac 1.5.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112622.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112622.jpgsave_picture_112622.jpg" />
 </div>
 
 

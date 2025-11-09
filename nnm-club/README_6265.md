@@ -6,7 +6,7 @@
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196451.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196451.jpgsave_picture_196451.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:D099CB0796794F94811C89EDA6E9ECA21AB35F5E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196452.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196452.jpgsave_picture_196452.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Before Your Eyes (2021) [Multi] (1.2.6.9) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196453.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196453.jpgsave_picture_196453.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:D3E1AB3067EFBDC83436CB072C4D973590033564
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196454.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196454.jpgsave_picture_196454.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:35693390CB9591F7FDE9D5E7D9BA0EEC8E486220
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_196455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196455.jpgsave_picture_196455.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Uninstall Tool 3.7.2 Build 5703 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196456.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196456.jpgsave_picture_196456.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ OnionFruit Connect 2023.626 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196457.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196457.jpgsave_picture_196457.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ PhotoDiva Pro 5.0 Portable by 7997 [Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196459.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196459.jpgsave_picture_196459.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:DA4B756E2C89AB863D91535E657ADD3F2C768BA7
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196460.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196460.jpgsave_picture_196460.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Warhammer 40,000: Dawn of War (2006) [En] (0.19) License GOG [Master Collection]
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196461.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196461.jpgsave_picture_196461.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ magnet:?xt=urn:btih:52BD46115E34F7903C94228810A220A117BD4270
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196462.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196462.jpgsave_picture_196462.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ magnet:?xt=urn:btih:4C3C06E345B824DF52D9C81863A382E2EB7669BB
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_196463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196463.jpgsave_picture_196463.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ magnet:?xt=urn:btih:EAE426CB9EAAD927D18902FAE3B5A7BBED500769
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196464.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196464.jpgsave_picture_196464.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ magnet:?xt=urn:btih:F3D55F1DB7827BE6018BE0A1417896031BC27E14
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196465.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196465.jpgsave_picture_196465.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ magnet:?xt=urn:btih:6A4675F734BD60335D10D3037D9A0D3CEC4675BB
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196466.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196466.jpgsave_picture_196466.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ magnet:?xt=urn:btih:A954004BD23B52B83076EA1867081990F4991F0D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196467.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196467.jpgsave_picture_196467.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ magnet:?xt=urn:btih:484514A535BB28625A88E05E202C6A8198268618
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196468.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196468.jpgsave_picture_196468.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ magnet:?xt=urn:btih:52E0771BF6A299259818C6E9B9463FF59C90EDD6
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196469.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196469.jpgsave_picture_196469.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ magnet:?xt=urn:btih:2822525C4E1337F3EDEB95B0E015791EE52B6B05
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196470.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196470.jpgsave_picture_196470.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ magnet:?xt=urn:btih:46F6F42413C28F5D0A8E82FBF202B36CB6E3675F
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_196471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196471.jpgsave_picture_196471.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ NoMachine 8.6.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196472.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196472.jpgsave_picture_196472.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ magnet:?xt=urn:btih:246E8821F4C761CABE54E94304D72A8363BB5283
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196473.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196473.jpgsave_picture_196473.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ HWiNFO 7.50 Build 5150 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196474.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196474.jpgsave_picture_196474.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Modern Tweaker 1.8 (25.06.2023) Final Portable [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196475.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196475.jpgsave_picture_196475.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Sense V2 Flip Clock & Weather 6.29.0 Mod by youarefinished [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196476.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196476.jpgsave_picture_196476.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ magnet:?xt=urn:btih:A5DFE2C0463224C873D4450E61175890C75847A7
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196477.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196477.jpgsave_picture_196477.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ VA - Trance Fusion Vol. 02 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110384.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110384.jpgsave_picture_110384.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Opera Trance Featuring Emma Shapplin - Spente Le Stelle (The Remixes - Part One)
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110389.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110389.jpgsave_picture_110389.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ KAAZE - Live @ Illuzion Phuket, Thailand (2024-04-20) [MP3|320 Kbps] <Dance, Ele
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110411.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110411.jpgsave_picture_110411.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - Lounge Sexiest Ladies, Vol. 2 (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge,
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110426.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110426.jpgsave_picture_110426.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Sash! Feat. Sir Danny Cool & C'Hantal - The Ultimate Seduction (Olly James remix
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110429.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110429.jpgsave_picture_110429.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Niels van Gogh - Rave All Night (2023) [FLAC|Lossless|tracks] <EDM, Future House
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110457.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110457.jpgsave_picture_110457.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Niels van Gogh - The Rebel (2023) [FLAC|Lossless|WEB-DL|tracks] <Club House, Har
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110459.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110459.jpgsave_picture_110459.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Niels van Gogh - Miami (2023) [FLAC|Lossless|tracks] <EDM, Club House, Dance-Pop
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110480.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110480.jpgsave_picture_110480.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ VA - Ibiza Hits 2024 (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110496.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110496.jpgsave_picture_110496.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Sara Landry - Live @ All Night Long, Knockdown Center New York, United States (2
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110503.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110503.jpgsave_picture_110503.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ VA - Ethernal Motion Downtempo: Chillout Your Mind (2024) [FLAC|Lossless|WEB-DL|
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110507.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110507.jpgsave_picture_110507.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ VA - Uplifting Only Top 15: April 2024 (Extended Mixes) (2024) [MP3|320 Kbps] <T
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110510.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110510.jpgsave_picture_110510.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Syst3m Glitch - The Brave Ones (2024) [MP3|320 Kbps] <Synthwave, Retrowave>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110573.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110573.jpgsave_picture_110573.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Sacrothorn - Та сторона (2024) [FLAC|Lossless|WEB-DL|tracks] <Dark Elec
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110576.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110576.jpgsave_picture_110576.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Markus Schulz - Global DJ Broadcast In Bloom (Vocal Dance Mix) (2024-04-25) [MP3
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110577.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110577.jpgsave_picture_110577.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ VA - Eosella Music One Year Anniversary (2024) [MP3|320 Kbps] <Trance, Progressi
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110587.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110587.jpgsave_picture_110587.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Nora En Pure - Purified Radio 400 (Drakensberg, South Africa) (2024-04-21) [MP3|
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110589.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110589.jpgsave_picture_110589.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ Miss Monique - Tomorrowland Friendship Mix (2024-04-25) [MP3|320 Kbps] <Progress
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110597.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110597.jpgsave_picture_110597.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ VA - Anjunabeats presents: Earth Day 2024 (DJ Mix) (2024) [MP3|320 Kbps] <Trance
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110735.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110735.jpgsave_picture_110735.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ VA - Armin van Buuren - A State Of Trance 1170 (Top 1000 2024: Top 50) (2024) [M
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110750.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110750.jpgsave_picture_110750.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ VA - 11 Years Of Suanda Music (2024) [MP3|320 Kbps] <Trance, Vocal Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110756.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110756.jpgsave_picture_110756.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Andromeda Dreams - Hyperion (2024) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Ret
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110800.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110800.jpgsave_picture_110800.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ VA - Ocean Experience: Chillout Your Mind (2024) [FLAC|Lossless|WEB-DL|tracks] <
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110832.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110832.jpgsave_picture_110832.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Astropilot - LIMITLESS (2024) [FLAC|Lossless|WEB-DL|tracks] <House, Downtempo>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110866.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110866.jpgsave_picture_110866.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Pet Shop Boys - Nonetheless (2024) [MP3|320 Kbps] <Synthpop>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110898.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110898.jpgsave_picture_110898.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ Christian Löffler - A Life (2024) [FLAC|Lossless|WEB-DL|tracks] <Tech House, De
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110941.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110941.jpgsave_picture_110941.jpg" />
 </div>
 
 

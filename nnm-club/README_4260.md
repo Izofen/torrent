@@ -6,7 +6,7 @@ Skillbox, Арсений Батыров и др. | Профессия Инжен
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132157.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132157.jpgsave_picture_132157.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:0274BA2596131DD1557406CFB48A60657B8AF9F3
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132159.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132159.jpgsave_picture_132159.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ The Paul deLay Band - Heavy Rotation [HDCD] (2001) [WavPack|Lossless]<Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132160.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132160.jpgsave_picture_132160.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ The Walking Dead: Destinies (2023) [Multi] (1.2.0.6) Repack DjDI
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132161.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132161.jpgsave_picture_132161.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ magnet:?xt=urn:btih:61B1C7B417879ED7948816C009DA577ABE04F1AA
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132162.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132162.jpgsave_picture_132162.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ magnet:?xt=urn:btih:F5BF1453D533C7EA0311B3BE639780C79D53056C
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132163.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132163.jpgsave_picture_132163.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ magnet:?xt=urn:btih:A6314098310DF94E18FC58F4B0604D0DF5BC1F95
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132165.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132165.jpgsave_picture_132165.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ magnet:?xt=urn:btih:37DEDC83D19224BF065E3CC22BB2B3F5C869B8C2
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132167.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132167.jpgsave_picture_132167.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ magnet:?xt=urn:btih:106AEC8E5DAB20655F116FCFCBEB9052E6EDCB90
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132168.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132168.jpgsave_picture_132168.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ New year wallpapers 2013 (28.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132169.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132169.jpgsave_picture_132169.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ Super Mario Bros Wonder (2023) [Switch] [USA] 17.0.0 [NSP] [License / 1.0.1] [Ru
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132170.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132170.jpgsave_picture_132170.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ magnet:?xt=urn:btih:1849B8609A4C07988E90C23E762302884B70E55A
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132171.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132171.jpgsave_picture_132171.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ Best HD Wallpapers Pack (29.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132172.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132172.jpgsave_picture_132172.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ AIDA64 Extreme | Engineer | Business Edition | Network Audit 7.00.6700 Final ReP
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132173.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132173.jpgsave_picture_132173.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ magnet:?xt=urn:btih:DEB860998468A09BCD93B207985D2AA700E6D100
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132175.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132175.jpgsave_picture_132175.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ GeoGebra 4.9.82 Beta [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132176.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132176.jpgsave_picture_132176.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ GeoGebra — свободно распространяемая (GPL) динам�
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132177.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132177.jpgsave_picture_132177.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ magnet:?xt=urn:btih:877BBDE635098A3C5EB0FBCE2E13AF3DA3E82FD1
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132178.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132178.jpgsave_picture_132178.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ magnet:?xt=urn:btih:5D8FD76597C12498C2BA8EA667803616E26DBE4F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132179.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132179.jpgsave_picture_132179.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ magnet:?xt=urn:btih:A3627015DCDBE2EA7334C3847D15CD47D49818F8
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132180.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132180.jpgsave_picture_132180.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ magnet:?xt=urn:btih:A3627015DCDBE2EA7334C3847D15CD47D49818F8
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132181.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132181.jpgsave_picture_132181.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Plants vs. Zombies (2009) [Ru/En] (1.2.0.1096) Repack dixen18 [Game of the Year 
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132182.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132182.jpgsave_picture_132182.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ magnet:?xt=urn:btih:538A432924BDAD88F9672DFD7E2FCBE09F911388
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132183.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132183.jpgsave_picture_132183.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ magnet:?xt=urn:btih:2A17353E8A789BAE53D60B19962DDB6B7795D5B4
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132184.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132184.jpgsave_picture_132184.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ magnet:?xt=urn:btih:95ECC7880518D2FD014EDB81C8B23BCFAA6C151E
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132185.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132185.jpgsave_picture_132185.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ magnet:?xt=urn:btih:E4D33BDB547A15959B410A40A4F1A6EA4E4816AE
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132186.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132186.jpgsave_picture_132186.jpg" />
 </div>
 
 

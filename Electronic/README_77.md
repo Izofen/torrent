@@ -6,7 +6,7 @@ Madis - Live in Krakow (2023) [MP3|320 Kbps] <Electronic Techno>
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114521.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114521.jpgsave_picture_114521.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Lee Mvtthews - Exit (2024) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114647.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114647.jpgsave_picture_114647.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - Mandarin Chill Out, Vol. 3 (2024) [MP3|320 Kbps] <Chillout, Lounge, Downtem
 >>Downtempo, Trip-Hop, Lounge
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114651.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114651.jpgsave_picture_114651.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Sultan And Shepard - Endless, Dawn (2024) [FLAC|Lossless|WEB-DL|tracks] <Tech Ho
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114653.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114653.jpgsave_picture_114653.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ VA - Trance Party 2024 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114666.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114666.jpgsave_picture_114666.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ VA - Mandarin Chill Out, Vol. 4 (2024) [MP3|320 Kbps] <Chillout, Lounge, Downtem
 >>Downtempo, Trip-Hop, Lounge
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114686.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114686.jpgsave_picture_114686.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ VA - The Sound of 2024 Mix 2: Santiago (2024) [MP3|320 Kbps] <Trance, Progressiv
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114817.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114817.jpgsave_picture_114817.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ VA - Armin van Buuren - A State Of Trance 1162 (2024) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114819.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114819.jpgsave_picture_114819.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ VA - Uplifting Only Top 15: February 2024 (Extended Mixes) (2024) [MP3|320 Kbps]
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114995.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114995.jpgsave_picture_114995.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ DeFilm - Coming to Your Heart Soon (1987) Reissue, 2004, Parlophone [FLAC|Lossle
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115158.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115158.jpgsave_picture_115158.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ DeFilm - DeFilm (1985) Reissue, 2011, Parlophone [FLAC|Lossless|WEB-DL|tracks] <
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115159.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115159.jpgsave_picture_115159.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Night Runner - Starfighter (2014) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retr
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115190.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115190.jpgsave_picture_115190.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Modern Man - Modern Man (1987) [FLAC|Lossless|WEB-DL|tracks] <Synth-pop, Pop Roc
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115196.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115196.jpgsave_picture_115196.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ FM-84 - Maverick (Atlas B-sides) (2020) [FLAC|Lossless|WEB-DL|tracks] <Dreamwave
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115491.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115491.jpgsave_picture_115491.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ FM-84 - Los Angeles EP (2015) [FLAC|Lossless|WEB-DL|tracks] <Dreamwave, Synthwav
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115500.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115500.jpgsave_picture_115500.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ ShockOne - Organism Algorithm (2024) [MP3|320 Kbps] <drum 'n' bass, dubstep, dru
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115700.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115700.jpgsave_picture_115700.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ ShockOne - Organism Algorithm (2024) [FLAC|Lossless|WEB-DL|tracks] <drum 'n' bas
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115702.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115702.jpgsave_picture_115702.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Max Cruise - Nights at Sunset Beach (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115706.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115706.jpgsave_picture_115706.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ VA - Pure Dreams, Vol. 2 (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115707.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115707.jpgsave_picture_115707.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ VA - Sea Melodies: Chillout Your Mind (2024) [FLAC|Lossless|WEB-DL|tracks] <Bale
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115711.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115711.jpgsave_picture_115711.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ VA - Calm Reflections: Chillout Your Mind (2024) [FLAC|Lossless|WEB-DL|tracks] <
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115712.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115712.jpgsave_picture_115712.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ FM-84 - Atlas (2016) [FLAC|Lossless|WEB-DL|tracks] <Dreamwave, Synthwave>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115714.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115714.jpgsave_picture_115714.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Missing Persons - Hollywood Lie (2023) [FLAC|Lossless|WEB-DL|tracks] <New Wave, 
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115820.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115820.jpgsave_picture_115820.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Max Cruise - Night Cruise (2022) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retro
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115821.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115821.jpgsave_picture_115821.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ VA - Armin van Buuren - A State Of Trance 1161 (2024) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115824.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115824.jpgsave_picture_115824.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Weber & Weber - World In Motion (2024) [FLAC|Lossless|WEB-DL|tracks] <Nu Jazz, C
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115830.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115830.jpgsave_picture_115830.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178053.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178053.jpgsave_picture_178053.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:0A7B1CB4D63FDDB3066B8FB4FA076833D39B837C
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178054.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178054.jpgsave_picture_178054.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Sofia Perhomaa - Temppuja (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178056.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178056.jpgsave_picture_178056.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:BA4E02F45CC55BB0C4DEA9450DC202A52285F415
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178058.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178058.jpgsave_picture_178058.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Nitro Pro 14.14.0.13 Enterprise RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178062.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178062.jpgsave_picture_178062.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Total Commander 11.01 (04.10.2023) Portable by MiG [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_178064.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_178064.jpgsave_picture_178064.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ neowake Biofrequencies - Утренняя мотивация 16 Гц: бинау
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_178067.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_178067.jpgsave_picture_178067.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ V.A. - Vintage Cafe – The Remixes Vol. 1-2 (2023) 2CD [FLAC|Lossless|WEB-DL|tr
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178070.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178070.jpgsave_picture_178070.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ magnet:?xt=urn:btih:1D6A0DE7FE1F380AEA3835FEE5B82D22EB40223E
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178074.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178074.jpgsave_picture_178074.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ Bad Boys Blue - Game Of Love (1990) [OGG Vorbis|650 Kbps] <Electronic, Pop, Disc
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178076.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178076.jpgsave_picture_178076.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ magnet:?xt=urn:btih:4C32B1DFF8D17174B6C58BF1D3A717C9997CE548
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178077.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178077.jpgsave_picture_178077.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ magnet:?xt=urn:btih:FF463796A5A3EB712FD26043073FCF1CF7867483
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178079.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178079.jpgsave_picture_178079.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ VA - Hey You - All New Rock (2022) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178082.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178082.jpgsave_picture_178082.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ Famous Dogs - Famous Dogs (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178083.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178083.jpgsave_picture_178083.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ NIUBI Partition Editor 9.8.0 Technician Edition RePack (& Portable) by elchupaca
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178086.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178086.jpgsave_picture_178086.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ Megahertz - Burning Like Hell (2022) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178087.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178087.jpgsave_picture_178087.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ VA - Rock Love Ballads 2023 [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178089.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178089.jpgsave_picture_178089.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ magnet:?xt=urn:btih:510674FB471754B7E35382E07AFE5D31797C26F1
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178090.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178090.jpgsave_picture_178090.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ The True Blues Band - TBB & Friends (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178092.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178092.jpgsave_picture_178092.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Auslogics File Recovery 11.0.0.3 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178093.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178093.jpgsave_picture_178093.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ magnet:?xt=urn:btih:3F053BB83865CB61916D4A5DEA8AE703452749E6
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178095.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178095.jpgsave_picture_178095.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Steven Taylor - Touch & Go (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178096.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178096.jpgsave_picture_178096.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Bandicam 7.0.0.2117 RePack (& portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178098.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178098.jpgsave_picture_178098.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Alter Bridge - Pawns & Kings (2022) [FLAC|Lossless|tracks + .cue] <Heavy Metal, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178099.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178099.jpgsave_picture_178099.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Gerry Jablonski & The Electric Band - 105 (2022) [FLAC|Lossless|WEB-DL|tracks] <
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178101.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178101.jpgsave_picture_178101.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ magnet:?xt=urn:btih:DDE8FA7CCF32C304A53296F4F38240D3DF4B446D
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178102.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178102.jpgsave_picture_178102.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103915.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103915.jpgsave_picture_103915.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:630F79C7D0C4B31630258BF7FD22253397B4939B
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103916.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103916.jpgsave_picture_103916.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Thomas Stieger - Choices (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz Fusion
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103917.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103917.jpgsave_picture_103917.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Bound To B - Here I am! (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103918.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103918.jpgsave_picture_103918.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ magnet:?xt=urn:btih:9A9EC8BB17A369E53D8E140A71E9601FE8F071F8
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103919.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103919.jpgsave_picture_103919.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Lyberarchelulo - WyndSpring (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103920.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103920.jpgsave_picture_103920.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ magnet:?xt=urn:btih:EC9A43B5C6873BC6575BA33D3094DDB1FAE26961
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103921.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103921.jpgsave_picture_103921.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ magnet:?xt=urn:btih:EC92B41495B4D64D1B7AFCC27375BD8A373FD5F4
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103922.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103922.jpgsave_picture_103922.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ magnet:?xt=urn:btih:C38720D11066020530D2CEB5F352922CE62FD1B9
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103923.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103923.jpgsave_picture_103923.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ magnet:?xt=urn:btih:82755F613C449800F3F2DB53D367CD9FF5AEF265
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103924.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103924.jpgsave_picture_103924.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Joe Spencer - Mistakespeare (2024) [FLAC 24/48, 24/96|Lossless|WEB-DL|tracks] <H
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103925.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103925.jpgsave_picture_103925.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ The Name Droppers - Starshine (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103926.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103926.jpgsave_picture_103926.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Harry James & His Orchestra - Embraceable You (1946) 1987, The Compact Selection
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103927.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103927.jpgsave_picture_103927.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ The Eric Mathews Band - Doc's Blues : An Appreciation of Mike Westbrook (2024) [
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103928.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103928.jpgsave_picture_103928.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Betty Carter - 'Round Midnight (1963) 2012, Atlantic [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103929.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103929.jpgsave_picture_103929.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ magnet:?xt=urn:btih:2BB4E134F6F154F47FE02AD70CB5D49DDBCE2424
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103930.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103930.jpgsave_picture_103930.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ magnet:?xt=urn:btih:71D62CFB19698F3324C9925CA3BA2E5EABF1A928
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103931.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103931.jpgsave_picture_103931.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ magnet:?xt=urn:btih:B24A5919F2BB3D5E3A2D6887F3D7D2D174549171
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103932.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103932.jpgsave_picture_103932.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ magnet:?xt=urn:btih:2D81651E6A823C1FDD9CFC98F28CDEC070468693
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103933.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103933.jpgsave_picture_103933.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ magnet:?xt=urn:btih:4D3AE9BC6AA9890454F17B5A29D048D5C25B422F
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103934.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103934.jpgsave_picture_103934.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ magnet:?xt=urn:btih:46160A333802C88DBBF4B955E48A8EE49AB809C8
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103935.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103935.jpgsave_picture_103935.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ magnet:?xt=urn:btih:B7EB5F14EBE4A1E52CC33AC20A33081F482B8013
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103936.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103936.jpgsave_picture_103936.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Champlin Williams Friestedt - CWF3 (2024) Japanese Edition [FLAC|Lossless|image 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103937.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103937.jpgsave_picture_103937.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ magnet:?xt=urn:btih:B60FFF20578C9C3A1AC19AFB5468D5EA168C3091
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103938.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103938.jpgsave_picture_103938.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ magnet:?xt=urn:btih:FDF1793A1545412F60AD8B26FC286FDE1072C2DC
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103939.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103939.jpgsave_picture_103939.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ magnet:?xt=urn:btih:231E57B667F822B8DB4420AF5CC78CBEDE8C46B8
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103940.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103940.jpgsave_picture_103940.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85405.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85405.jpgsave_picture_85405.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:07063D77620AB7E0616D8B47ABFBBC92CC691D94
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85406.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85406.jpgsave_picture_85406.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ magnet:?xt=urn:btih:07063D77620AB7E0616D8B47ABFBBC92CC691D94
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85407.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85407.jpgsave_picture_85407.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ magnet:?xt=urn:btih:0572D5BC114331EA0D046CB280B4F0679778153D
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85408.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85408.jpgsave_picture_85408.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ magnet:?xt=urn:btih:BEC59083B68BF9BE232DC76CBFCA8EF3E45FD7E7
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85410.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85410.jpgsave_picture_85410.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ magnet:?xt=urn:btih:BEC59083B68BF9BE232DC76CBFCA8EF3E45FD7E7
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85411.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85411.jpgsave_picture_85411.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:2AC9DAB124AA3C547E00ED39FB05D0F6F745FF9A
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85412.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85412.jpgsave_picture_85412.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:1ABC2588047AD27BC6CE186CA3A5A0D5D52439F9
 >>Развивающие Игры для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85414.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85414.jpgsave_picture_85414.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:AD1F2C0AB707938E814F2376EA87CB3974BD2714
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85415.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85415.jpgsave_picture_85415.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ To the Moon (P) [Ru] 2011
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85416.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85416.jpgsave_picture_85416.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ Rayman Origins [Ru/En/Multi8] (L) 2012
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85422.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85422.jpgsave_picture_85422.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ Celemony - Melodyne Editor v.2.0.1.11 x86.x64 by ASSiGN [английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85424.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85424.jpgsave_picture_85424.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ Tropico 4: Modern Times [Ru/En] (RePack/1.5) 2012 l z10yded
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85425.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85425.jpgsave_picture_85425.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ magnet:?xt=urn:btih:E0AB3A14C9F9D9F9A4597FC917770C022C397FA8
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85426.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85426.jpgsave_picture_85426.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ magnet:?xt=urn:btih:3A2214A3EA18FC3B1B6E73F4AE2B47660BB2F3A9
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85429.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85429.jpgsave_picture_85429.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ magnet:?xt=urn:btih:F00210FB0F69FBD36D7FD5CD76D4B1C24D3CC091
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85430.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85430.jpgsave_picture_85430.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Sound Performance Lab - SPL ALL 2012 Bundle v1.0.R2 x86.x64 by ASSiGN [англ�
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85431.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85431.jpgsave_picture_85431.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ East India Company Gold Edition / Ост-Индская компания Зол�
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85433.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85433.jpgsave_picture_85433.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ East India Company Gold Edition / Ост-Индская компания Зол�
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85434.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85434.jpgsave_picture_85434.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ magnet:?xt=urn:btih:D96141128185CA8325FF90002E8B1B62B429DA96
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85437.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85437.jpgsave_picture_85437.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ magnet:?xt=urn:btih:D96141128185CA8325FF90002E8B1B62B429DA96
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85438.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85438.jpgsave_picture_85438.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Men of War: Condemned Heroes / Штрафбат  (L) [Ru] 2012 | R.G. Игром
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85439.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85439.jpgsave_picture_85439.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Men of War: Condemned Heroes / Штрафбат  (L) [Ru] 2012 | R.G. Игром
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85440.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85440.jpgsave_picture_85440.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ ImgBurn 2.5.7.0 [Eng+Rus] + Portable [Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85441.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85441.jpgsave_picture_85441.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ ImgBurn - утилита для записи образов дисков. Эта
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85442.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85442.jpgsave_picture_85442.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ Tsutsu Yume Gunnm / Gunnm / Сны оружия / Боевой Ангел Али
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85443.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85443.jpgsave_picture_85443.jpg" />
 </div>
 
 

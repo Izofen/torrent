@@ -6,7 +6,7 @@ The Kills - God Games (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170384.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170384.jpgsave_picture_170384.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - A'dam After Disco (2023) [MP3|320 Kbps] <Funky, Nu Disco, Indie Dance, Soul
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170385.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170385.jpgsave_picture_170385.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Patricia Kaas - 19 Par Patricia Kaas (2009) Compilation [FLAC|Lossless|tracks + 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170386.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170386.jpgsave_picture_170386.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - Highway Boys - Country for the Road (2022) [FLAC|Lossless|WEB-DL|tracks] <B
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170387.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170387.jpgsave_picture_170387.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ magnet:?xt=urn:btih:BF25A249C9A5B021136886D02A30F7F3FD9FD26B
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170388.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170388.jpgsave_picture_170388.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Picture Collage Maker 3 v3.7.7 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170389.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170389.jpgsave_picture_170389.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Circus of Fools - A Broadcast from GEN .0 (2022) [FLAC|Lossless|WEB-DL|tracks] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170390.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170390.jpgsave_picture_170390.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ magnet:?xt=urn:btih:EB178B30E49784A406DD613A45D32C64087D2B41
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170391.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170391.jpgsave_picture_170391.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ magnet:?xt=urn:btih:50C528F2E67C80ABC53F1B0FDD612770A4F88100
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170392.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170392.jpgsave_picture_170392.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Disk Doctor Pro 1.0.22 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170393.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170393.jpgsave_picture_170393.jpg" />
 </div>
 
 
@@ -262,7 +262,7 @@ Lord Vampyr - De Vampyrica Philosophia (2005) [FLAC|Lossless|Tracks] <Symphonic 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170394.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170394.jpgsave_picture_170394.jpg" />
 </div>
 
 
@@ -289,7 +289,7 @@ Ocenaudio 3.11.18 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170395.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170395.jpgsave_picture_170395.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ magnet:?xt=urn:btih:1E5052FF7BB653CF35A024A3DFA26FAF91C326F0
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170396.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170396.jpgsave_picture_170396.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ Capture One 21 Pro 14.0.1.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170397.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170397.jpgsave_picture_170397.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ Grand Blue / Grand Blue Dreaming / Необъятный океан [2018, TV, 12
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170398.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170398.jpgsave_picture_170398.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ magnet:?xt=urn:btih:6FBC32EBCD1EC1A5AE7CC062FBF216A891825A0D
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170399.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170399.jpgsave_picture_170399.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ C.C.Catch - In The Mix - 80's Best (2002) [OGG Vorbis|480 Kbps] <Electronic, Syn
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170400.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170400.jpgsave_picture_170400.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ magnet:?xt=urn:btih:1274D348E94C5BDB305F4854858380049E7A8A50
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170401.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170401.jpgsave_picture_170401.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ O&O DiskImage Professional 18.2 Build 196 RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170402.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170402.jpgsave_picture_170402.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ magnet:?xt=urn:btih:1DCDF7C727C1AABADF9E2AA1067DE5B98159294D
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170403.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170403.jpgsave_picture_170403.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Mate Translate 8.1.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170404.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170404.jpgsave_picture_170404.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ magnet:?xt=urn:btih:DD651993320FA38AB499B5A61FFF5F55A3F8CFD4
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170405.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170405.jpgsave_picture_170405.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Sumatra PDF 3.2.11582 Pre-release + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170406.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170406.jpgsave_picture_170406.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Modern Jazz Quartet - Milestones Of A Legend (1953 - 1962) 10CD, 2016, The Inten
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170407.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170407.jpgsave_picture_170407.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ VA - Uplifting Only Top 10: October 2023 (2023) [MP3|320 Kbps] <Trance, Upliftin
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170408.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170408.jpgsave_picture_170408.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ magnet:?xt=urn:btih:14ED146EE6D964C2ED93CC0AB9A4DC36C6AC5A50
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170409.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170409.jpgsave_picture_170409.jpg" />
 </div>
 
 

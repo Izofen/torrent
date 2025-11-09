@@ -6,7 +6,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5161.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5161.jpgsave_picture_5161.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:9F52B608A12E2BBE2AF65968FC377A3AF00125AF
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5162.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5162.jpgsave_picture_5162.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:05FB50A6C55F6779DA747E1EA84581FCA40201E5
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5163.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5163.jpgsave_picture_5163.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:6508E1A9EB8158CB4E43355324F81F5E8C30F773
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5164.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5164.jpgsave_picture_5164.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:66989B7F9448B2ACB62A12244DAAEA6658D19739
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5165.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5165.jpgsave_picture_5165.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Storyteller (2023) [Switch] [EUR] 16.0.3, Atmosphere 1.5.4 [License] [Ru/Multi]
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5166.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5166.jpgsave_picture_5166.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:13B41B9C1F50A87D3A06F9A2AF4F15B9485B8475
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5167.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5167.jpgsave_picture_5167.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:5C70011649B277F9F8807CE8BE47EA1263561D91
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5168.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5168.jpgsave_picture_5168.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:8B33D57F34A6DC82CFA1DB67D7F92D1A620E84AE
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5169.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5169.jpgsave_picture_5169.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:C4479038F9A4DAF708DB52860CD9D3E1EB9790C4
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5170.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5170.jpgsave_picture_5170.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:CCF052B1E89ACAA1D63707B394C93B3022B2064D
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5171.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5171.jpgsave_picture_5171.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ magnet:?xt=urn:btih:B5B7FC5EE5ED7160178E33EE0E7CDD4BA74D3444
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5172.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5172.jpgsave_picture_5172.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:2A6643A2EED4A761CB89935CB5CBB7E63B6B730E
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5173.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5173.jpgsave_picture_5173.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ VA - The Best Trance Tunes Of 2025 Vol. 1 - Mixed by Roan Gosling (2025) [MP3|32
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5174.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5174.jpgsave_picture_5174.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ magnet:?xt=urn:btih:5F7054DCC86E804F8F89FA953A1C8A3A6E781D2C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5175.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5175.jpgsave_picture_5175.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ PrivaZer Pro 4.0.110 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5176.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5176.jpgsave_picture_5176.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Green Day - Saviors (2024) edition de luxe, 2025, Reprise [MP3|320 Kbps] <Altern
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5177.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5177.jpgsave_picture_5177.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Purvpn 8.9 [En/Farsi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5178.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5178.jpgsave_picture_5178.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ magnet:?xt=urn:btih:F9C607A09B2DBD8B96127FBEBBE477B548252AE9
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5179.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5179.jpgsave_picture_5179.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Hotline Miami (2012) [Ru/Multi] (gog-8(a)) Repack Wanterlude
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5180.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5180.jpgsave_picture_5180.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Green Day - Saviors (2024) edition de luxe, 2025, Reprise [FLAC 24/48, 24/96|Los
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5181.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5181.jpgsave_picture_5181.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ LEGO Builder's Journey (2021) [Ru/Multi] (4.0.0) Repack FitGirl
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5182.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5182.jpgsave_picture_5182.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ magnet:?xt=urn:btih:B1E8BA6661160891564D369BDCF1714349C79E5C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5183.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5183.jpgsave_picture_5183.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ magnet:?xt=urn:btih:FBF785FBEC1D858F5C86900ED53B184A9F7CB45D
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5184.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5184.jpgsave_picture_5184.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ Miraculous: Rise of the Sphinx (2022) [Ru/Multi] (Build 10128456) Repack Yarosla
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5185.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5185.jpgsave_picture_5185.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ World of Goo 2 (2024) [Switch] [EUR] 18.0.1, Atmosphere 1.7.1 [License] [Ru/Mult
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5186.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5186.jpgsave_picture_5186.jpg" />
 </div>
 
 

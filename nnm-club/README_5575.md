@@ -6,7 +6,7 @@ Steel Rhino - In Rhino We Trust (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171938.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171938.jpgsave_picture_171938.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Artstudio Pro 5.1.19 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171939.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171939.jpgsave_picture_171939.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Devin Townsend - The Puzzle (2021) [FLAC|24/192|image + .cue|Vinyl-Rip] <Progres
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171940.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171940.jpgsave_picture_171940.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:DCAF6C5BCC4FEE2367EDD2848BC8B4A8513AFD78
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171941.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171941.jpgsave_picture_171941.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ Elegy Of Madness - XI (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Gothic Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171942.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171942.jpgsave_picture_171942.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Duff McKagan - Lighthouse (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171943.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171943.jpgsave_picture_171943.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ magnet:?xt=urn:btih:D61F65FBB1E2D3E66EBBB0A3EBA6960AA86D0618
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171944.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171944.jpgsave_picture_171944.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Silence Phobia - Living In Darkness (2023) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171945.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171945.jpgsave_picture_171945.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ magnet:?xt=urn:btih:1DFF5F670EBF8F39DFFB5B25F718D978636D36D1
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171946.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171946.jpgsave_picture_171946.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ magnet:?xt=urn:btih:567A845998AF2BC99969B58EFF050E4398744FEE
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171947.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171947.jpgsave_picture_171947.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Devin Townsend - Snuggles (Beautiful Dream) (2021) [FLAC|24/192|image + .cue|Vin
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171948.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171948.jpgsave_picture_171948.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Fenrir's Scar - Love, Hate, Hope, Despair (2023) [FLAC|Lossless|WEB-DL|tracks] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171949.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171949.jpgsave_picture_171949.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ magnet:?xt=urn:btih:CE2A0653FB6B1F8F6A28ABDCEAA36979EF0CE606
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171950.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171950.jpgsave_picture_171950.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Orrin Evans - The Red Door (2023) Smoke Sessions Records [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171951.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171951.jpgsave_picture_171951.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Silence Phobia - Living in Darkness (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171952.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171952.jpgsave_picture_171952.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Grant Green Quartet - Nigeria (1960, 1962) 2014, Essential Jazz Classics [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171953.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171953.jpgsave_picture_171953.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Anita O'Day - There's Only One... (1978) 2011, Essential Media Group [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171954.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171954.jpgsave_picture_171954.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Anita O'Day - I Get A Kick Out Of You (1975) 1993, Evidence [FLAC|Lossless|image
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171955.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171955.jpgsave_picture_171955.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Anita O'Day - Skylark (1978) 2010, Kayo Stereophonic [FLAC|Lossless|image + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171956.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171956.jpgsave_picture_171956.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Monosphere - Sentience (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metalco
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171957.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171957.jpgsave_picture_171957.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Graham Collier Music - Songs For My Father (1970) 2000, DNA Records [APE|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171958.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171958.jpgsave_picture_171958.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ The Amenta - Plague of Locus (2023) [FLAC|Lossless|WEB-DL|tracks] <Modern Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171959.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171959.jpgsave_picture_171959.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Skull - Epistle 1 Pickin' Up The Pieces (2023) [FLAC|Lossless|WEB-DL|tracks] <He
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171960.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171960.jpgsave_picture_171960.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Anita O'Day - Live At Mingo's (1979) 2004, Kayo Stereophonic [FLAC|Lossless|imag
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171961.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171961.jpgsave_picture_171961.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ magnet:?xt=urn:btih:B900EF64DBC2FFBDB46857FD728CB60345561213
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171962.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171962.jpgsave_picture_171962.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ magnet:?xt=urn:btih:1348E1FB3B2B895589394B55FE31F9D9694BD14D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171963.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171963.jpgsave_picture_171963.jpg" />
 </div>
 
 

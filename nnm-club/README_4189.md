@@ -6,7 +6,7 @@
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129728.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129728.jpgsave_picture_129728.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:464A28845911479FB316D63388CA02C767BBB419
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129729.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129729.jpgsave_picture_129729.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Chamelion - Legends & Lores (2023) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129730.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129730.jpgsave_picture_129730.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:3CC8FBF0B688166B31851815741F1603771498AC
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129732.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129732.jpgsave_picture_129732.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:9B1819B04A1D3D6DDF454EC5D21177F007F5A68A
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129734.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129734.jpgsave_picture_129734.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Void - Jadjow (2023) [FLAC|Lossless|WEB-DL|tracks] <Avant-garde Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129735.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129735.jpgsave_picture_129735.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ Supuration - Promo '91 (1991) Reissue, 2019, Dark Symphonies [FLAC|Lossless|imag
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129737.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129737.jpgsave_picture_129737.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ Mozilla Thunderbird 12.0.1 Final [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129738.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129738.jpgsave_picture_129738.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ Thunderbird - простая и удобная бесплатная програ
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129739.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129739.jpgsave_picture_129739.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ Supuration - 9092 (1995) Compilation [FLAC|Lossless|tracks] <Death, Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129740.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129740.jpgsave_picture_129740.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ Neverland In Ashes - Haunted (2023) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Po
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129741.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129741.jpgsave_picture_129741.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ Rik Emmett - Then Again (2012) Remastered, 2023, Deko Entertainment [FLAC|Lossle
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129744.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129744.jpgsave_picture_129744.jpg" />
 </div>
 
 
@@ -314,7 +314,7 @@ eWeather HDF погода и барометр v8.5.5 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129745.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129745.jpgsave_picture_129745.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ magnet:?xt=urn:btih:97E311BFBAAE185E003699730E45972E114EF2B5
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129746.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129746.jpgsave_picture_129746.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ VA - Офигенное Радио (2012) [MP3|256 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129747.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129747.jpgsave_picture_129747.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ magnet:?xt=urn:btih:895CDA71D4DCCA649394CA92CDC7624D4949F515
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129748.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129748.jpgsave_picture_129748.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ Bad Touch - Bittersweet Satisfaction (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129749.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129749.jpgsave_picture_129749.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ magnet:?xt=urn:btih:5BA0F5ED1761B074E91E05D40DF6D8A0607F77A5
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129750.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129750.jpgsave_picture_129750.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ The Beatles - Abbey Road (1969) remix 2019 remaster [DTS-ES Discrete 6.1 CD-Audi
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129751.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129751.jpgsave_picture_129751.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ magnet:?xt=urn:btih:68EFA62E499BE777B4052C6A83DD7283CFA08C78
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129752.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129752.jpgsave_picture_129752.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ magnet:?xt=urn:btih:E0C62DB8FE6818D04CE3A27C7EF07E0CDF87A577
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129753.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129753.jpgsave_picture_129753.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ magnet:?xt=urn:btih:38433F8A9259557ABD0E64B1FDBAA28999310C88
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129754.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129754.jpgsave_picture_129754.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Buddy Rich - Milestones Of A Jazz Legend (1946 - 1962) 10CD, 2020, The Intense M
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129755.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129755.jpgsave_picture_129755.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ magnet:?xt=urn:btih:138F4B5C829766F3D6B0B9135F7DEEDD8CF85CAD
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129756.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129756.jpgsave_picture_129756.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ magnet:?xt=urn:btih:F63104278A0E54FA13CE27E20AA84F290716AC4F
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129757.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129757.jpgsave_picture_129757.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ Dream Drop - Acne Superstar (2023) [FLAC|Lossless|WEB-DL|tracks] <Alt.Rock, Alt.
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129758.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129758.jpgsave_picture_129758.jpg" />
 </div>
 
 

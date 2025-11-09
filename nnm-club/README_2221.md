@@ -6,7 +6,7 @@ Remnant: From the Ashes (2019) [Ru/Multi] (275.957/dlc) Scene CODEX [Complete Ed
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58113.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58113.jpgsave_picture_58113.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:B4597ADE67270947AEA3D9E90AEC9EF98578F115
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58114.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58114.jpgsave_picture_58114.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Stepik, ImloroYM | Magic Tenses: Полное понимание английс�
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58115.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58115.jpgsave_picture_58115.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ GetAnalyst | Проектирование микросервисов (2024) WEB-
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58116.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58116.jpgsave_picture_58116.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ Phantom Fury (2024) [Ru/Multi] (17276) Scene Tenoke
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58117.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58117.jpgsave_picture_58117.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:4C0FADA96D92BC053EF9E26F3B239D9B6CD7918F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58118.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58118.jpgsave_picture_58118.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:1E32C82193BABA196F549FABEE11DBE97F33A7DA
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58119.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58119.jpgsave_picture_58119.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:BD99C90E1F5355622DDE5C8444F247F350BAB1A9
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58120.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58120.jpgsave_picture_58120.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:DFE094C7E1C08E82E6F907E652E4873B4A122611
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58121.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58121.jpgsave_picture_58121.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:B0F4D925530F74EBC911770A05C4FBB680B0A9C5
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58122.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58122.jpgsave_picture_58122.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:FC14FFE90904FBAFC233C3F37092C720CA20481E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58123.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58123.jpgsave_picture_58123.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:35B9022920C23E5E423AA3255E5DDF334BC9206D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58124.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58124.jpgsave_picture_58124.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:FDFCD911A1FD7B8122555AE23395F031CD953FA7
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58125.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58125.jpgsave_picture_58125.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ magnet:?xt=urn:btih:5E0589CEEDBEEFC0401B159040D76255F531F2AA
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58126.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58126.jpgsave_picture_58126.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ magnet:?xt=urn:btih:B0093639B9BD6B4F720F61B47C2FDF41E6898D68
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58127.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58127.jpgsave_picture_58127.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ magnet:?xt=urn:btih:B0093639B9BD6B4F720F61B47C2FDF41E6898D68
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58128.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58128.jpgsave_picture_58128.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ magnet:?xt=urn:btih:8D8203C5AF0A544F9015B957907ABCD460973B11
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58129.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58129.jpgsave_picture_58129.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ Topaz Gigapixel AI 7.1.2 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58130.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58130.jpgsave_picture_58130.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ Aurora DSP - Rhino 1.6.0 STANDALONE, VST 3, AAX (x64) RePack by TCD [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58131.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58131.jpgsave_picture_58131.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ VA - The Best Classical Pieces (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58132.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58132.jpgsave_picture_58132.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ magnet:?xt=urn:btih:C3FDDFFB92391A1862E8B24CCFC06280E019BB26
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58133.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58133.jpgsave_picture_58133.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ Little Big - Lobster Popstar (2024) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58134.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58134.jpgsave_picture_58134.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ magnet:?xt=urn:btih:658FF12392EF07F4E68E242982190521E2BDBA95
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58135.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58135.jpgsave_picture_58135.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Rod Stewart - The Best Of The Great American Songbook (2011) Japanese Edition, C
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58136.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58136.jpgsave_picture_58136.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ magnet:?xt=urn:btih:760FC36355AC67D427DAAF03635645E28F6D8616
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58137.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58137.jpgsave_picture_58137.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ TikTok 34.5.3 Mod by Dmitry Nechiporenko + Plugin 1.35 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58138.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58138.jpgsave_picture_58138.jpg" />
 </div>
 
 

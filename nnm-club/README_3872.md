@@ -6,7 +6,7 @@ Erik Andresen's Quartet - GIP (1971) 2018, Jazzaggression Records [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121100.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121100.jpgsave_picture_121100.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Carnivore - Carnivore (1995)[FLAC|24/96|tracks|Vinyl-Rip]  <Speed, Thrash Metal,
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121101.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121101.jpgsave_picture_121101.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Akkerhaugen Raid - Red Filipino Viper (2024) [FLAC 24/48|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121102.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121102.jpgsave_picture_121102.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Carnivore - Retaliation (1987) [WavPack|24/96|image + .cue|Vinyl-Rip] <Speed, Th
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121103.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121103.jpgsave_picture_121103.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ magnet:?xt=urn:btih:E4CA29A734E49334A40D6BE2319A9AB39A3F5CA9
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121104.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121104.jpgsave_picture_121104.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ magnet:?xt=urn:btih:382A33127313C070ECDDFFFA8A3437E1614339D0
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121105.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121105.jpgsave_picture_121105.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ VA - Cherry on Top Smooth Late Night Saxophone Jazz for Delightful Moments and P
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121106.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121106.jpgsave_picture_121106.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ magnet:?xt=urn:btih:AD076C0A2A0F594664B8B6BA952E89742309C6D5
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121107.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121107.jpgsave_picture_121107.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ VA - Melodically Trance 01 (2023) [MP3|320 Kbps] <Trance, Progressive, Electroni
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121108.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121108.jpgsave_picture_121108.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ VA - Melodically Trance 02 (2024) [MP3|320 Kbps] <Trance, Progressive, Electroni
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121109.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121109.jpgsave_picture_121109.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ magnet:?xt=urn:btih:6FAFB709E43153DE25F13F21029C837D3A211536
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121110.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121110.jpgsave_picture_121110.jpg" />
 </div>
 
 
@@ -291,7 +291,7 @@ magnet:?xt=urn:btih:1C80CEF538BB5351867631DB823D42C0A899F31F
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121111.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121111.jpgsave_picture_121111.jpg" />
 </div>
 
 
@@ -315,7 +315,7 @@ Omega - Az Arc (1981) Reissue, Remastered, 2004, Hungaroton [APE|Lossless|image 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121112.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121112.jpgsave_picture_121112.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Luca Quattrocchi - Saxophone Bliss (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121113.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121113.jpgsave_picture_121113.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ Gotsu Totsu Kotsu - Studio Albums (6 releases) (2009-2023) hand made [restored, 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121114.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121114.jpgsave_picture_121114.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Tyrannosaurus Rex - A Beard Of Stars (1970) [FLAC 24/44.1|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121115.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121115.jpgsave_picture_121115.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Live Wallpaper & Themes 4K Pro for Mac 19.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121116.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121116.jpgsave_picture_121116.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ VA - Fais-moi attendre Musique de piano sensuelle avec des sons érotiques (2024
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121117.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121117.jpgsave_picture_121117.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ magnet:?xt=urn:btih:7B4D425866ABEB7DADEB1C40A959EB4411B43DD4
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121118.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121118.jpgsave_picture_121118.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ VA - Redux Selection Vol. 2 (2024) [MP3|320 Kbps] <Trance, Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121119.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121119.jpgsave_picture_121119.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Ozgur (Özgür) Hazar - Way Back Home (2024) [FLAC 24/44.1|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121120.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121120.jpgsave_picture_121120.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ magnet:?xt=urn:btih:977A9927C6C51344B1764D3500813DB1BC248EE3
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121121.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121121.jpgsave_picture_121121.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ BlueHarvest 8 v.8.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121122.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121122.jpgsave_picture_121122.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ Nicola Tedescoli - Ephemeral Melodies (2024) [FLAC 24/44.1|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121123.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121123.jpgsave_picture_121123.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ magnet:?xt=urn:btih:C6B5818FE321E85A2FAE1D978E0522A1BCE1A466
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121124.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121124.jpgsave_picture_121124.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ magnet:?xt=urn:btih:E175C2CA11E47CC11A9AE6A8E7577182E5308101
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121125.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121125.jpgsave_picture_121125.jpg" />
 </div>
 
 

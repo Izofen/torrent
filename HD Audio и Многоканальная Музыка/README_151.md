@@ -6,7 +6,7 @@ Little Albert - The Road Not Taken (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111723.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111723.jpgsave_picture_111723.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ The Meteors - 40 Days a Rotting (2024) [FLAC|Lossless|WEB-DL|tracks] <Rockabilly
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111724.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111724.jpgsave_picture_111724.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ The Drums - Jonny (2023) Deluxe, 2024, Anti - Epitaph [FLAC 24/44.1|Lossless|WEB
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111725.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111725.jpgsave_picture_111725.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Modest Mouse - Good News For People Who Love Bad News: (2004) 20th Anniversary E
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111727.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111727.jpgsave_picture_111727.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ VA - Садко 3000 (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rap, Folk Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111745.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111745.jpgsave_picture_111745.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Bobby Lee Springfield - All Fired Up (1987) [FLAC 2.0|24/192|image+.cue|Vinyl-Ri
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111773.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111773.jpgsave_picture_111773.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Axel Rudi Pell - Guardian Angel (2024) Single [FLAC 24/48|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111774.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111774.jpgsave_picture_111774.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Symakya - Project 11: The Landing (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111797.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111797.jpgsave_picture_111797.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Eunuchs - Harbour Century (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Art Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111799.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111799.jpgsave_picture_111799.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ The KVB - Tremors (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <New Wave, Synthw
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111857.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111857.jpgsave_picture_111857.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ The Bravery - Studio Albums (3 releases) (2005-2009) hand made [restored, declip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111867.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111867.jpgsave_picture_111867.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Attic - Return of the Witchfinder (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111882.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111882.jpgsave_picture_111882.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ magnet:?xt=urn:btih:ADF0CC6ACB8F00EFF2D58BD4B24B43E3C5083AC8
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111894.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111894.jpgsave_picture_111894.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Garbage - Bleed Like Me (2005) Remaster, 2024, Liberator Music [FLAC 24/96|Lossl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111895.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111895.jpgsave_picture_111895.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ U2 - Discothèque (1997) Remastered, 2024, UMC [FLAC 24/44.1|Lossless|WEB-DL|tra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111898.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111898.jpgsave_picture_111898.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ The Libertines - All Quiet On The Eastern Esplanade (2024) [FLAC 24/96|Lossless|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111908.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111908.jpgsave_picture_111908.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ Korpiklaani - Rankarumpu (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Folk Meta
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111911.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111911.jpgsave_picture_111911.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ Canned Heat - Finyl Vinyl (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues Rock
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111912.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111912.jpgsave_picture_111912.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Fabiana Palladino - Fabiana Palladino (2024) [FLAC 24/44.1|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111917.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111917.jpgsave_picture_111917.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ Corroded - Studio Albums (6 releases) (2009-2023) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111921.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111921.jpgsave_picture_111921.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Crisix - Studio Albums (8 releases) (2011-2023) hand made [restored, declipped] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111982.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111982.jpgsave_picture_111982.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Erra - Cure (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive Metalcore>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112002.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112002.jpgsave_picture_112002.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Mad Caddies - Arrows Room 117 (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Ska-Pu
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112006.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112006.jpgsave_picture_112006.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ Royal Thunder - Studio Albums (5 releases) (2010-2023) hand made [restored, decl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112128.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112128.jpgsave_picture_112128.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ Rapture - Silent Stage (2005) Limited Edition, Reissue, 2018, Alone Records [FLA
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112151.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112151.jpgsave_picture_112151.jpg" />
 </div>
 
 
@@ -676,7 +676,7 @@ The Disco Biscuits - Revolution in Motion (2024) [FLAC 24/44.1|Lossless|WEB-DL|t
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112164.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112164.jpgsave_picture_112164.jpg" />
 </div>
 
 

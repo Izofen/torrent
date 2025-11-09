@@ -6,7 +6,7 @@ Windows 11 Pro x64 Version 24H2 Build 26100.2605 by Igors_VL [RU]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33531.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33531.jpgsave_picture_33531.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:3DF3E92FB25F0609F566388FC70640F3799616D0
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33532.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33532.jpgsave_picture_33532.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:FBC2792E2E335FC09623F80FED2E9925A38B4C7C
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33533.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33533.jpgsave_picture_33533.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Ashes of the Union (2024) [Ru/Multi] (0.3.5 Hotfix 2) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33534.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33534.jpgsave_picture_33534.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:B984BE60C4990A7F714A40B31D5607CCE72C36A5
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33535.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33535.jpgsave_picture_33535.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:3FD1D54F051363F43FB6880F77D336870C15F1EF
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33536.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33536.jpgsave_picture_33536.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:58519D73C578F3FBF3149D40872165C3C9D6FF39
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33537.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33537.jpgsave_picture_33537.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:58519D73C578F3FBF3149D40872165C3C9D6FF39
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33538.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33538.jpgsave_picture_33538.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:3E48E606328DB91E6004206FA8E252445B7FB24E
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33539.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33539.jpgsave_picture_33539.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Calibre 7.23.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33540.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33540.jpgsave_picture_33540.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:DB1688C62BF5935393DBBDC17BE1DC4EBCE83376
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33541.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33541.jpgsave_picture_33541.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Jixo: The Season of Joy / Jixo: Сезон веселья (2024) [Ru] (1.0) Unof
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33542.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33542.jpgsave_picture_33542.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Alaskan Road Truckers (2023) [Ru/Multi] (1.6/dlc) Repack seleZen
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33543.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33543.jpgsave_picture_33543.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Unsolved Case 6: Ash and Secrets / Нераскрытое дело 6: Пепел
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33544.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33544.jpgsave_picture_33544.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Connected Hearts 5: Hour of the Witch / Связанные сердца 5: Ча�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33545.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33545.jpgsave_picture_33545.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ RedNotebook 2.37.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33546.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33546.jpgsave_picture_33546.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ magnet:?xt=urn:btih:F0A69843249B9AF65E1685F236BB55E548AC5D80
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33547.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33547.jpgsave_picture_33547.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ Laid Back - FOREVERGREEN (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33548.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33548.jpgsave_picture_33548.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ OneCommander Pro 3.94.0.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33549.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33549.jpgsave_picture_33549.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ magnet:?xt=urn:btih:CC457174AF392D79D7AB51A74D30DB77FECCA35F
 >>Отечественные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33550.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33550.jpgsave_picture_33550.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ magnet:?xt=urn:btih:0C28EF6723DAE8D6BA4FEBF87F78187B11245DA7
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33551.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33551.jpgsave_picture_33551.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ StaxRip 2.44.0 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33552.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33552.jpgsave_picture_33552.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ magnet:?xt=urn:btih:56A0A1633ABD2CD49B3B69B923B28F51A1B75D1E
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33553.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33553.jpgsave_picture_33553.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ KORG - Opsix Native 1.3.1 Standalone, VSTi 3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33554.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33554.jpgsave_picture_33554.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ magnet:?xt=urn:btih:EAAF29068C73B6CB787A963FA2B2171F29D256BF
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33555.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33555.jpgsave_picture_33555.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Ebenezer and the Invisible World (2023) [Ru/Multi] (1.2.0.1) Repack Let'sРlay [
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33556.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33556.jpgsave_picture_33556.jpg" />
 </div>
 
 

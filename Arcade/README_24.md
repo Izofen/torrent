@@ -6,7 +6,7 @@ SpongeBob SquarePants: Battle for Bikini Bottom - Rehydrated (2020) [Ru/Multi] (
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196785.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196785.jpgsave_picture_196785.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ SpongeBob SquarePants: The Cosmic Shake (2023) [Ru/Multi] (1.0.3.0) Repack dixen
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196789.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196789.jpgsave_picture_196789.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Chronicles of Galdurvale (2023) [Multi] (1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196854.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196854.jpgsave_picture_196854.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Contra Anniversary Collection (2019) [En] (1.1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197001.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197001.jpgsave_picture_197001.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Project Lazarus (2023) [Ru/Multi] (7.0) Scene DARKSIDERS
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197007.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197007.jpgsave_picture_197007.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ We Love Katamari REROLL+ Royal Reverie (2023) [Multi] (1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197330.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197330.jpgsave_picture_197330.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Batora: Lost Haven (2022) [Ru/Multi] (rc14 shipping 3) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197459.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197459.jpgsave_picture_197459.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Kao the Kangaroo / Кенгуренок Као (2022) [Ru/Multi] (1.6.0/dlc) Lic
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_197555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197555.jpgsave_picture_197555.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Unalive 010 (2023) [Ru/Multi] (1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198136.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198136.jpgsave_picture_198136.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Solomon Snow: First Contact (2023) [Multi] (1.1.413) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198838.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198838.jpgsave_picture_198838.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ RC Cars (2002) [Ru/Multi] (1.0.138) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202068.jpgsave_picture_202068.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Neon Abyss (2020) [Ru/Multi] (1.5.0.0src.1/dlc) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202170.jpgsave_picture_202170.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Grim Guardians: Demon Purge (2023) [Multi] (1.0) Scene TiNYiSO
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202291.jpgsave_picture_202291.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Void Scrappers (2022) [Multi] (1.32) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202346.jpgsave_picture_202346.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Terminus: Zombie Survivors (2021) [Ru/Multi] (1.2.0.108/dlc) Repack FitGirl [Com
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202372.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202372.jpgsave_picture_202372.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ SENRAN KAGURA SHINOVI VERSUS (2016) [Multi] (6) License GOG [18+]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202569.jpgsave_picture_202569.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Clone Drone in the Danger Zone (2021) [Ru/Multi] (1.1.0.56) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203785.jpgsave_picture_203785.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ The friends of Ringo Ishikawa (2018) [Ru/Multi] (1.0.1) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204407.jpgsave_picture_204407.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Mortal Kombat 11 (2019) [Ru/Multi] (0.384-34-CL237394/dlc) Repack Necros [Ultima
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205629.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205629.jpgsave_picture_205629.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Baby Storm (2023) [Multi] (2.12.4) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206366.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206366.jpgsave_picture_206366.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Bandits: Phoenix Rising / Бандиты: Безумный Маркс (2002) [Ru
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207047.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207047.jpgsave_picture_207047.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Koa and the Five Pirates of Mara (2023) [Multi] (1.2.1s) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207143.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207143.jpgsave_picture_207143.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Bleak Sword DX (2023) [Ru/Multi] (0.3072001) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216573.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216573.jpgsave_picture_216573.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ My Memory of Us (2018) [Ru/Multi] (1.3057) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_228910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228910.jpgsave_picture_228910.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Alekon (2021) [En] (1.3) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_230723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230723.jpgsave_picture_230723.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Astalon: Tears of the Earth (2021) [Ru/Multi] (1.1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233373.jpgsave_picture_233373.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202350.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202350.jpgsave_picture_202350.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:014B1B2DC2743B8692B86EFE5FD9D0247CA311DC
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202351.jpgsave_picture_202351.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ TVGuide v4.0.6 Premium Mod by Alex.Strannik [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202352.jpgsave_picture_202352.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:92A4AA711B0FBE0E7C9DA9BB8FE1CD2FD14F2627
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202353.jpgsave_picture_202353.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:54A8E1559201D379009BE722CF7564ADF41F856A
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202354.jpgsave_picture_202354.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:1A647A145CE9BF7952DD53C3C435A43B6614675B
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202355.jpgsave_picture_202355.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:BB495A5386BC76C8B39043DDA3CBEB0EDEA326CA
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202356.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202356.jpgsave_picture_202356.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:ABD67083674FBFF51A120B1DEB6152A555668521
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202357.jpgsave_picture_202357.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:398A0E77A4CE29179DFC34E326A53152FFE6E89D
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202358.jpgsave_picture_202358.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:EC02A75936FF9A7E3FFCCE9FC6ACA7F01AB93FA3
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202359.jpgsave_picture_202359.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:367D601A26CE0C7FB65DEE23307719011E3E446D
 >>Теория Большого Взрыва / The Big Bang Theory; Детство Шелдона / Young Sheldon
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202360.jpgsave_picture_202360.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Mundfish | Артбук по игре Atomic Heart / The World of Atomic Heart (
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202361.jpgsave_picture_202361.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:814E65E702064409423182596C59BC9861BD64D2
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202362.jpgsave_picture_202362.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:B3B2BD06F8E70CCEE4AAA28AA693ABC667734DEE
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202363.jpgsave_picture_202363.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ magnet:?xt=urn:btih:6111751374C82E131B35780B2A5A7227D21CB409
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202364.jpgsave_picture_202364.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ magnet:?xt=urn:btih:8C9E53707F9249B02C45A8BD99445225CAF0743F
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202365.jpgsave_picture_202365.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ magnet:?xt=urn:btih:BF6AB827FFB706FBF06DE3FB7AFF289BF8D09CDC
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202366.jpgsave_picture_202366.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ WinRAR 6.21 Final (x86-x64) RePack by ivandubskoj [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202367.jpgsave_picture_202367.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ Plus Messenger (Telegram+) v10.0.1.0 Mod by Alex.Strannik [Ru/Multi]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202368.jpgsave_picture_202368.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Adobe Media Encoder 2023 23.2.1.2 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202369.jpgsave_picture_202369.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ magnet:?xt=urn:btih:F17F921B014C5453264AACB40A0189DBC61405DE
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202370.jpgsave_picture_202370.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ The Outer Worlds 2 (2025) [Ru/Multi] (1.0.3.0/dlc) Repack Other s
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202371.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202371.jpgsave_picture_202371.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Terminus: Zombie Survivors (2021) [Ru/Multi] (1.2.0.108/dlc) Repack FitGirl [Com
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202372.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202372.jpgsave_picture_202372.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ magnet:?xt=urn:btih:0348FA4CBDD7506D014C93460DCA3065736FEF78
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202373.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202373.jpgsave_picture_202373.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Arturia - Pigments 6.0.4 STANTALONE, VSTi, VSTi 3 (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202374.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202374.jpgsave_picture_202374.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ GODBREAKERS (2025) [Ru/Multi] (Build 20302905/dlc) Repack Let'sРlay [Juice Edit
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202375.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202375.jpgsave_picture_202375.jpg" />
 </div>
 
 

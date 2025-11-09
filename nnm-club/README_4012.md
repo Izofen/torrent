@@ -6,7 +6,7 @@ Haunter - Tales of the Seven Seas (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy, P
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124867.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124867.jpgsave_picture_124867.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ The Boatsmen - Hard Livin' (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124868.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124868.jpgsave_picture_124868.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Demondrug - All Departures (2023) [FLAC|Lossless|WEB-DL|tracks] <Modern Metal, P
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124869.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124869.jpgsave_picture_124869.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:A3AA25D223456131D6A6F6F0D37BC250AEE7EA5F
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124870.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124870.jpgsave_picture_124870.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ magnet:?xt=urn:btih:18516060B23374858DBB92162C558EDAA75A4328
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124871.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124871.jpgsave_picture_124871.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ SkyEye - Soldiers Of Light (2021) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124872.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124872.jpgsave_picture_124872.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ magnet:?xt=urn:btih:16FD6BEEB47E1B8006AB3C23A7BE5860C113074E
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124873.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124873.jpgsave_picture_124873.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ magnet:?xt=urn:btih:AE2C54815AB4C92428B2A802E36CD293C764D640
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124874.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124874.jpgsave_picture_124874.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ Colorfy PLUS - Coloring Book v3.24 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124875.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124875.jpgsave_picture_124875.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ magnet:?xt=urn:btih:3112D4F30BBB3958AE28CC7B21EA6D86B1A4190C
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124876.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124876.jpgsave_picture_124876.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ The Disco Biscuits - Live from Austin, TX (September 16, 2023) (2023) [MP3|320 K
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124877.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124877.jpgsave_picture_124877.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ magnet:?xt=urn:btih:70042118FEF11AF583BC129B78763E914BFF83D2
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124878.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124878.jpgsave_picture_124878.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ The Fusion Syndicate - A Speedway On Saturn's Rings (2023) [FLAC|Lossless|WEB-DL
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124879.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124879.jpgsave_picture_124879.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ magnet:?xt=urn:btih:1870DC612AF7CF2AA4C7BB7112754EC51CBDBB46
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124880.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124880.jpgsave_picture_124880.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ magnet:?xt=urn:btih:6457F6473D076E1C895BF506224D08B47651E428
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124881.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124881.jpgsave_picture_124881.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ AndroVid Pro Video Editor v6.7.4.3 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124882.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124882.jpgsave_picture_124882.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ magnet:?xt=urn:btih:DC39E8E199DC20535FE58AFE66C3BA3ACE1FFFD8
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124883.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124883.jpgsave_picture_124883.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ Blank & Jones - Chilltronica EP 8 (2023) [FLAC|Lossless|WEB-DL|tracks] <Electron
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124884.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124884.jpgsave_picture_124884.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ Neil Young - Before and After (2023) [FLAC|Lossless|tracks + .cue] <Classic Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124885.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124885.jpgsave_picture_124885.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ VA - Smooth Jazz Christmas Serenade (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124886.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124886.jpgsave_picture_124886.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ magnet:?xt=urn:btih:243F12BA3143718D4963AB5550CC00BF198E5E80
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124887.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124887.jpgsave_picture_124887.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ VivaVideo Video Editor v9.13.0 Mod by maxi123444 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124888.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124888.jpgsave_picture_124888.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ magnet:?xt=urn:btih:79C68D3C1A0BBCD415787864F4656712E2CAE3AE
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124889.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124889.jpgsave_picture_124889.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ magnet:?xt=urn:btih:8F83D4911A0D608F52CA6F636A3B1218B9FEDC93
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124890.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124890.jpgsave_picture_124890.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ magnet:?xt=urn:btih:338610C3BA3C1C504DE80FC9F3AA8D0F54E60A76
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124891.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124891.jpgsave_picture_124891.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ magnet:?xt=urn:btih:6821CB83F46B848BDE9B6200F55B58A398A2F278
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124892.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124892.jpgsave_picture_124892.jpg" />
 </div>
 
 

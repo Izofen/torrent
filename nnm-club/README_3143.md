@@ -6,7 +6,7 @@ VA - The Orient Collective: Skylands (2024) [FLAC|Lossless|WEB-DL|tracks] <World
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101295.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101295.jpgsave_picture_101295.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:5FED498FA70FA3B38E35B48E0E0A0A357D4100E9
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101296.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101296.jpgsave_picture_101296.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:1005FB74786F2AEA1284067F8ED552F8F05AB9C5
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101297.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101297.jpgsave_picture_101297.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Gotus - Gotus (2024) Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101298.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101298.jpgsave_picture_101298.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ VA - Redux Presents: The Finest Selection (Mixed by DJ Jayel) (2024) [MP3|320 Kb
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101299.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101299.jpgsave_picture_101299.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Mason - I Can't Wait (2024) [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101300.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101300.jpgsave_picture_101300.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ The LA Cowboys - Endless Summer (1993) Reissue, Remastered, 2024, Pride & Joy Mu
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101301.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101301.jpgsave_picture_101301.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Ultraboss - Slow Motion Rider (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Synt
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101302.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101302.jpgsave_picture_101302.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Lionville - Supernatural (2024) Japanese Edition [FLAC|Lossless|image + .cue] <M
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101303.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101303.jpgsave_picture_101303.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Brinker - Alloy Rock (1986) Reissue, Remastered, 2023, MelodicRock Classics [FLA
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101304.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101304.jpgsave_picture_101304.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:1ADF6700E0CA182D2A17030B3A648CA003DD6423
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101305.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101305.jpgsave_picture_101305.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Daytona - Garder La Flamme (2024) Japanese Edition [FLAC|Lossless|image + .cue] 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101306.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101306.jpgsave_picture_101306.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Atom Stone - Take Me To The Fire (2023) [FLAC|Lossless|image + .cue] <Melodic Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101307.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101307.jpgsave_picture_101307.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Pleasureland - Pleasureland (2024) [FLAC|Lossless|image + .cue] <Melodic Rock, A
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101308.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101308.jpgsave_picture_101308.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Mr Mountain - Mr Mountain (Remixed & Remastered 2024) (2024) [FLAC 24/192|Lossle
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101309.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101309.jpgsave_picture_101309.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Heart 2 Heart - Alley Of Dreams (2024) [FLAC|Lossless|image + .cue] <Melodic Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101310.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101310.jpgsave_picture_101310.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Balabolka 2.15.0.884 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101311.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101311.jpgsave_picture_101311.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ Purple Disco Machine - Club Paradise (2024) [MP3|320 Kbps] <Electronic, Disco, N
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101312.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101312.jpgsave_picture_101312.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ magnet:?xt=urn:btih:4F26D8D62F2C1F204BB1E6C4F06E5E156DB79BD7
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101313.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101313.jpgsave_picture_101313.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Lunacy Audio - BEAM 1.3.4 VST 3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101314.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101314.jpgsave_picture_101314.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ magnet:?xt=urn:btih:6F1DD9DFC49F1D2E30D5116CE11EEAF1E685E228
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101315.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101315.jpgsave_picture_101315.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Purple Disco Machine - Club Paradise (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101316.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101316.jpgsave_picture_101316.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Sleep Monitor: Sleep Tracker v2.8.1.1 Premium Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101317.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101317.jpgsave_picture_101317.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ magnet:?xt=urn:btih:D1C980DC227ACF4E9C93B0E596F10AE6CD736C05
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101318.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101318.jpgsave_picture_101318.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ Sunstorm - Restless Fight (2024) Japanese Edition [FLAC|Lossless|image + .cue] <
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101319.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101319.jpgsave_picture_101319.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ magnet:?xt=urn:btih:62C0F7B738216114A076FA85E5A2CB2A1BA50D26
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101320.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101320.jpgsave_picture_101320.jpg" />
 </div>
 
 

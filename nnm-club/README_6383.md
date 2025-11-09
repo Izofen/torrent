@@ -6,7 +6,7 @@
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202615.jpgsave_picture_202615.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:91C2C55A9A7A199487BB11FE240FD66A3A3E269E
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202616.jpgsave_picture_202616.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Microsoft Office 2013 Pro Plus + Visio Pro + Project Pro + SharePoint Designer S
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202617.jpgsave_picture_202617.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:24F0B94A65AFDDE4967A6576172ADF9AF582097F
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202618.jpgsave_picture_202618.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Adobe Acrobat Pro 2022.003.20322 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202619.jpgsave_picture_202619.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:7A3EC9663C3C947C56175E8BF7CD0D3EF07B4A65
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202620.jpgsave_picture_202620.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:82E7BB61FEBD373BA3437153AB21CDEFF1AB4E41
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202621.jpgsave_picture_202621.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:E92271A525FCD7084CDB668C40ACF528017748AA
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202622.jpgsave_picture_202622.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:C6CC06E7E0413A483B02FCC5BE5C8461A753EBC8
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202623.jpgsave_picture_202623.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:18E82B9901067743053CCF651184334AD7B48F9A
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202624.jpgsave_picture_202624.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:536D690CADC4EF815DFA074A51F1FC13403C761E
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202625.jpgsave_picture_202625.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ PhotoRoom v4.2.4 Mod by KirillCXV [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202626.jpgsave_picture_202626.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:1127F33136E0387277F267F5FF9BE355D1A8EED0
 >>Картинки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202627.jpgsave_picture_202627.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ magnet:?xt=urn:btih:BD4D1B7729B843708BE01C465ED23BB66D4ECA5F
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202628.jpgsave_picture_202628.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ magnet:?xt=urn:btih:62B9F68CED493260CA034E4555F9C6BE0A60C211
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202629.jpgsave_picture_202629.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ LaScala - Forte (2013) [FLAC|image + .cue|Lossless] <Alternative Rock, Female Vo
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202630.jpgsave_picture_202630.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ magnet:?xt=urn:btih:3995F42D4286E63C7A63E8E623F8C1D126AB6DB3
 >>Картинки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202631.jpgsave_picture_202631.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ magnet:?xt=urn:btih:A6A628C4131C7EA9F86C4BB16C80F61AB8B392D8
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202632.jpgsave_picture_202632.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Armitage III: Dual Matrix | Армитаж: Двойная матрица [2002,
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202633.jpgsave_picture_202633.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ WinToUSB Technician 7.8 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202634.jpgsave_picture_202634.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ Reg Organizer 9.11 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202635.jpgsave_picture_202635.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ Microsoft Edge 110.0.1587.49 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202636.jpgsave_picture_202636.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:7970DE0602CCE0EB1FED695C14D3BF903F611C00
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202637.jpgsave_picture_202637.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ magnet:?xt=urn:btih:91A6213B690A473534CE8BEC4AD23A7B67D164E4
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202638.jpgsave_picture_202638.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ magnet:?xt=urn:btih:575E1D5EBAD3679BFF956FABD1EFA00EADC39B5E
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202639.jpgsave_picture_202639.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ magnet:?xt=urn:btih:EB15D71D359DF4368B693DB5D721DBDE66B6CEF6
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202640.jpgsave_picture_202640.jpg" />
 </div>
 
 

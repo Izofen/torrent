@@ -6,7 +6,7 @@
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69000.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69000.jpgsave_picture_69000.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:12DDFF8E92E103D343E413802F3775C14B45C159
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69001.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69001.jpgsave_picture_69001.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ magnet:?xt=urn:btih:9185065C227F11A2D406EBC1AA9AA613D51B8522
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69002.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69002.jpgsave_picture_69002.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:2ED587DA2CB47CA30DCBA430F53212C500B54312
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69003.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69003.jpgsave_picture_69003.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ magnet:?xt=urn:btih:EC477152299096D9FA2E8C05C0792236E4E60DEF
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69004.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69004.jpgsave_picture_69004.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ magnet:?xt=urn:btih:D90D5988D67050F28296FD5F93D990DC49D95E5E
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69005.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69005.jpgsave_picture_69005.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ magnet:?xt=urn:btih:33B30E02D2049A9369C6740D968751F4E5F6BCAB
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69006.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69006.jpgsave_picture_69006.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ magnet:?xt=urn:btih:6429E00EEDC0D6CAD933E38ACF6DEDE46ABC451F
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69007.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69007.jpgsave_picture_69007.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ magnet:?xt=urn:btih:E63E5FA61ED5E5BA603EB34461DABA7F9BCA82B0
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69008.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69008.jpgsave_picture_69008.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ magnet:?xt=urn:btih:11D10E0CA93456A2F5824E0041829388FBEC39E5
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69009.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69009.jpgsave_picture_69009.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ High Spirits - Hard to Stop (2020) [FLAC|24/192|image + .cue|Vinyl-Rip] <Hard Ro
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69010.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69010.jpgsave_picture_69010.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Accu§er (Accuser; ex-Breaker; ex-Scartribe) - Studio Albums (15 releases) (1985
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69011.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69011.jpgsave_picture_69011.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Herbie Hancock - My Point Of View (1963) 2024,Universal [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69012.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69012.jpgsave_picture_69012.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Project G-7 - Tribute to Wes Montgomery, Vol.2 (1993) Evidence [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69013.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69013.jpgsave_picture_69013.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Project G-7 - Tribute to Wes Montgomery, Vol.1 (1993) Evidence [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69014.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69014.jpgsave_picture_69014.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ magnet:?xt=urn:btih:5C7DBEED32EDB0103C46A5FBD91EDE271629F10C
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69015.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69015.jpgsave_picture_69015.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Bestial Warlust - Blood & Valour (1995) Reissue, 2005, Black Ace Records [FLAC|2
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69016.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69016.jpgsave_picture_69016.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ magnet:?xt=urn:btih:F066AEAE3B7C97DAE60EAB82A8A2AE427BAB073F
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69017.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69017.jpgsave_picture_69017.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Digitalo - Love Dance Cosmos (2024) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, 
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69018.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69018.jpgsave_picture_69018.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ magnet:?xt=urn:btih:8D41C7CBAF0AF371257813C6C9118137DD48B946
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69019.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69019.jpgsave_picture_69019.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ magnet:?xt=urn:btih:B83B3B9019484857D19DF357977885C1CB0FE7B3
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69020.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69020.jpgsave_picture_69020.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ magnet:?xt=urn:btih:0DF8BE3C675BB878406349EE68C3143839A391C6
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69021.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69021.jpgsave_picture_69021.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Grateful Dead - Greatest Hits Live Broadcast Collection (2025) [MP3|320 Kbps] <R
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69022.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69022.jpgsave_picture_69022.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ magnet:?xt=urn:btih:01076B990961A075963A2D1B9B7AD477B382CB01
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69023.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69023.jpgsave_picture_69023.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ magnet:?xt=urn:btih:1BB532919AB760C5D222C451F2FA39CE32E7ADDA
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69024.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69024.jpgsave_picture_69024.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ magnet:?xt=urn:btih:0657A3C4F8EF99110DFB0628D9E7A92DC768A2AC
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69025.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69025.jpgsave_picture_69025.jpg" />
 </div>
 
 

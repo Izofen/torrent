@@ -6,7 +6,7 @@ Stalemate - Greatest Hits (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193151.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193151.jpgsave_picture_193151.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Black Rock Shooter: Dawn Fall | Стрелок с Черной скалы [ТВ-
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_193152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193152.jpgsave_picture_193152.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ The Fires Below - Masquerade (2023) EP [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193153.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193153.jpgsave_picture_193153.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Orphalis - As The Ashes Settle (2023) [FLAC|Lossless|WEB-DL|tracks] <Technical B
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193154.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193154.jpgsave_picture_193154.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Mind Swell - Mind Swell (2023) EP [FLAC|Lossless|WEB-DL|tracks] <Beatdown, Death
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193155.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193155.jpgsave_picture_193155.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Spider Kitten - A Pound for the Peacebringer (2023) [FLAC|Lossless|WEB-DL|tracks
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193156.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193156.jpgsave_picture_193156.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Gwar - Battle Maximus (2013) 10th Anniversary Edition, 2023 [FLAC|Lossless|WEB-D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193157.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193157.jpgsave_picture_193157.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Vak - The Islands (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Sludge Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193158.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193158.jpgsave_picture_193158.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ magnet:?xt=urn:btih:EB4CCCB28698585EFA65E5A799AF43535B627C65
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_193159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193159.jpgsave_picture_193159.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Voices of Ruin - Path to Immortality (2020) [FLAC|Lossless|WEB-DL|tracks] <Melod
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193160.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193160.jpgsave_picture_193160.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ magnet:?xt=urn:btih:003974A4F19C3E6B0E2EE3F728E3B692333A2233
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_193161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193161.jpgsave_picture_193161.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Weird Tales - Second Coming, Second Crucifixion (2023) [FLAC|Lossless|WEB-DL|tra
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193162.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193162.jpgsave_picture_193162.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Brave Browser 1.45.116 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_193163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193163.jpgsave_picture_193163.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Fierce Atmospheres - The Speed of Dreams (2021) Int. Edition, 2023, Sliptrick Re
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193164.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193164.jpgsave_picture_193164.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ VA - ЕвроХит Топ 40 Europa Plus 28.10.2022 [MP3|320 Kbps] <Pop, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_193165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193165.jpgsave_picture_193165.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ CADbro 2023 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_193166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193166.jpgsave_picture_193166.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ magnet:?xt=urn:btih:E2EEE97B5E19A65DE9B257DF6E3DA5CC50888A24
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193167.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193167.jpgsave_picture_193167.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ magnet:?xt=urn:btih:FFEBF37DF00FC37B1A833595277822790CFBB314
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193168.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193168.jpgsave_picture_193168.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ Electric Light Orchestra - Eldorado (1974) (2022) [DSD 128|image+.cue (Vinyl-Rip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193169.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193169.jpgsave_picture_193169.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ magnet:?xt=urn:btih:0C7274A0D8310CC1689F5E60331B3A2A35F21212
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193170.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193170.jpgsave_picture_193170.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ magnet:?xt=urn:btih:B8212E75581E801E5E6DAA27AF68B6CFD4B885B6
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193171.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193171.jpgsave_picture_193171.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ magnet:?xt=urn:btih:9FF96ECA9A7550EAF90E4FC534E548DE076310D1
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193172.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193172.jpgsave_picture_193172.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ magnet:?xt=urn:btih:C1BC90B735D97ECB73548D9A948BF658FB6DC560
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193173.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193173.jpgsave_picture_193173.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ magnet:?xt=urn:btih:9CDE6AFFE42CD63AC4E3206F1EDF70922D2397F1
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193174.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193174.jpgsave_picture_193174.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ magnet:?xt=urn:btih:D98CF362C2C51DED765B7A004D346BD2A614C09C
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193175.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193175.jpgsave_picture_193175.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ Microsoft Edge WebView2 Runtime 1.3.169.31 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193176.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193176.jpgsave_picture_193176.jpg" />
 </div>
 
 

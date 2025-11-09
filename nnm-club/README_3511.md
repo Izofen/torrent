@@ -6,7 +6,7 @@ Wondershare PDFelement 10.3.7.2718 + OCR Plugin (x64) Portable by 7997 [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111647.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111647.jpgsave_picture_111647.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Ascold Flow | Божественность вызывает привыкание
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111648.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111648.jpgsave_picture_111648.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Charlie Parr - Little Sun (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues, Fol
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111649.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111649.jpgsave_picture_111649.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Hubert Dorigatti - The Nashville Sessions (2024) [FLAC 24/44.1|Lossless|WEB-DL|t
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111650.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111650.jpgsave_picture_111650.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Jo Stafford - Jo + Jazz (1960) 2004, Corinthian [FLAC|Lossless|tracks + .cue] <V
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111651.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111651.jpgsave_picture_111651.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ The Dirty Nil - Free Rein To Passions (2023) Deluxe, 2024, Dine Alone Records [F
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111652.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111652.jpgsave_picture_111652.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ The Mind Sweepers - All This Too Shall Pass (2024) [FLAC 24/44.1|Lossless|WEB-DL
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111653.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111653.jpgsave_picture_111653.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Harold Alexander - Are You Ready? (1971) 2018, Solid Records [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111654.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111654.jpgsave_picture_111654.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ magnet:?xt=urn:btih:C8691ADCAB5FFC56C8A4BB0DE408D17C739CC830
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111655.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111655.jpgsave_picture_111655.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Brainslug - Brainslug (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111656.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111656.jpgsave_picture_111656.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ magnet:?xt=urn:btih:09296E38F70639C0A4189215C1A6199905FAE3B8
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111657.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111657.jpgsave_picture_111657.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ RJ TextEd 16.16 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111658.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111658.jpgsave_picture_111658.jpg" />
 </div>
 
 
@@ -317,7 +317,7 @@ magnet:?xt=urn:btih:7FAB7495D36665DDEC7016FD9462E21B270A4655
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111659.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111659.jpgsave_picture_111659.jpg" />
 </div>
 
 
@@ -341,7 +341,7 @@ Soul Browser 1.4.14 Mod by AnBo39 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111660.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111660.jpgsave_picture_111660.jpg" />
 </div>
 
 
@@ -365,7 +365,7 @@ magnet:?xt=urn:btih:FCA05A3E301645C4CEE0B70FBCAD5EC856826D32
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111661.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111661.jpgsave_picture_111661.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ Soul Browser 1.4.14 Mod by ateuffel [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111662.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111662.jpgsave_picture_111662.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ Storm - Nordavind (1995) [WavPack|32/192|image + .cue|Vinyl-Rip] <Viking, Folk M
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111663.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111663.jpgsave_picture_111663.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ magnet:?xt=urn:btih:803909040C1D0BD7241CE5C5CCE490680BBB9E53
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111664.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111664.jpgsave_picture_111664.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ magnet:?xt=urn:btih:EB8F11910E6F3140174A206D0A90BA81FC3DE0DF
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111665.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111665.jpgsave_picture_111665.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ Sam Morrow - On The Ride Here (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Roots 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111666.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111666.jpgsave_picture_111666.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ Skype 8.117.0.202 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111667.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111667.jpgsave_picture_111667.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ magnet:?xt=urn:btih:3DE5330F2322746D2896A71407FBE675DE36B3CC
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111668.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111668.jpgsave_picture_111668.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ VA - Nothing But... Trancetopia Vol. 13 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111669.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111669.jpgsave_picture_111669.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Sebastian Hardie - Four Moments (1975) Reissue, Remastered, 2004, Polydor [FLAC|
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111670.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111670.jpgsave_picture_111670.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ Oceans of Night - Mindstorm (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111671.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111671.jpgsave_picture_111671.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ Blaze Bayley - Circle Of Stone (2024) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111672.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111672.jpgsave_picture_111672.jpg" />
 </div>
 
 

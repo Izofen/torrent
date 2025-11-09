@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165543.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165543.jpgsave_picture_165543.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:4EC1CB98F628E88A3AFCBBF712E8A1A66975836D
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165544.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165544.jpgsave_picture_165544.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Serial Box & SerialSeeker 10-2023 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165545.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165545.jpgsave_picture_165545.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:F1D818F8661B3F25A1CC1F83C4FEA5398AE6BC1B
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165546.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165546.jpgsave_picture_165546.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:6D9E336932E7D250BD72CE5E0E90729E1E80DD28
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165547.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165547.jpgsave_picture_165547.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:AB41F5A23DA601DA669A5E99A46292AD1EB2AA8D
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165548.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165548.jpgsave_picture_165548.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Inkubus Sukkubus - She of a Thousand Names (2023) [FLAC|Lossless|WEB-DL|tracks] 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165549.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165549.jpgsave_picture_165549.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:28147FAC7164C3528A429C7ED5DD59CD1F974D7D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165550.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165550.jpgsave_picture_165550.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:3E17853EC9812C71F259ABCC632CE85E8DDD2675
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165551.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165551.jpgsave_picture_165551.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ magnet:?xt=urn:btih:D8F1D5D889C0DC45FC6F0FB691A515EE2776315F
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165552.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165552.jpgsave_picture_165552.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ kobezzza.channel, Андрей Кобец | Интенсив ‌«‌ООП В J
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165553.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165553.jpgsave_picture_165553.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:ECDB62874DE8AB318C9DF9C525B0321B12FC8201
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165554.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165554.jpgsave_picture_165554.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ magnet:?xt=urn:btih:3A25C9070F3FAE25488106DB99AF7D46C0CF50CC
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165555.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165555.jpgsave_picture_165555.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ magnet:?xt=urn:btih:8BFFCBF8208CC529F3D29EE3AF5213C4C87E464F
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165556.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165556.jpgsave_picture_165556.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ magnet:?xt=urn:btih:E1B4A20CDB341B93E2B8B39F2DF707C883CBF03E
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165557.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165557.jpgsave_picture_165557.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ magnet:?xt=urn:btih:B0FEC10AA952C9A064CE7E04F8F8E854E60EA6B2
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165558.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165558.jpgsave_picture_165558.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ VA - Old Disco Drive (2020) [MP3|320 Kbps] <Disco>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165559.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165559.jpgsave_picture_165559.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Ivory - Alien Nation (2023) [FLAC|Lossless|WEB-DL|tracks] <Power/Progressive Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165560.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165560.jpgsave_picture_165560.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ magnet:?xt=urn:btih:62428536DCACA28BD0FAD58966753EE49A238E47
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165561.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165561.jpgsave_picture_165561.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ magnet:?xt=urn:btih:9D3FAAE4456BFB0FEBD589273C2096B42F7E3256
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165562.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165562.jpgsave_picture_165562.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ magnet:?xt=urn:btih:EDB8117B2B8BC725DDFAD0222495F9C4EED91F49
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165563.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165563.jpgsave_picture_165563.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ magnet:?xt=urn:btih:8ACA0BE9AD44886F964B49754BF2ADEFEA8B67F6
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165564.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165564.jpgsave_picture_165564.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ AnyGo 6.6.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165565.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165565.jpgsave_picture_165565.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:AA5739BFD17F42CE8EBF4C08D94543C8B59340B6
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165567.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165567.jpgsave_picture_165567.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ magnet:?xt=urn:btih:A4222C6B17B459FE2610602D1F6DC8CE20B1DF90
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165568.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165568.jpgsave_picture_165568.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ kobezzza.channel, Андрей Кобец | Интенсив ‌‌‌«РЕГУ
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165569.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165569.jpgsave_picture_165569.jpg" />
 </div>
 
 

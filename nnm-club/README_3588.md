@@ -6,7 +6,7 @@
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113663.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113663.jpgsave_picture_113663.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Jackie DeShannon - Little Bit Of Heaven: The 1964 Metric Music Demos (2023) [FLA
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113664.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113664.jpgsave_picture_113664.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Boxy SVG 4.26.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113665.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113665.jpgsave_picture_113665.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ Alice Cooper - The Sound Of A (2018) EP [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113666.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113666.jpgsave_picture_113666.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ Steve Baxter - Crusade Blvd (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113667.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113667.jpgsave_picture_113667.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Indigo Flood - You To Me Are The Blues (2024) [FLAC 24/48|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113668.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113668.jpgsave_picture_113668.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ The Rolling Stones - Let It Bleed (Пусть льется кровь) (1969) 19
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113669.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113669.jpgsave_picture_113669.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ VA - Игра в четыре руки. Песни Аркадия Укупник
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113670.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113670.jpgsave_picture_113670.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ magnet:?xt=urn:btih:C57324459DB32E1B7E0B60D2FAE394596B7F6D6B
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113671.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113671.jpgsave_picture_113671.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Bex Marshall - Fortuna (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues, Blue
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113672.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113672.jpgsave_picture_113672.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Wondershare UniConverter for Mac 15.5.2 Intel/ARM [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113673.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113673.jpgsave_picture_113673.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ magnet:?xt=urn:btih:E15A8944494F44786B83B712CB37AE570A290740
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113674.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113674.jpgsave_picture_113674.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ VA - Harmony in Hush: Chillout Your Mind (2024) [FLAC|Lossless|WEB-DL|tracks] <B
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113675.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113675.jpgsave_picture_113675.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Soft Cell - Bedsitter E.P. (2024) [FLAC|Lossless|WEB-DL|tracks] <New Wave, Synth
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113676.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113676.jpgsave_picture_113676.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ HWiNFO 7.73 Build 5385 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113677.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113677.jpgsave_picture_113677.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ magnet:?xt=urn:btih:C42CA05A3A6025AD8B75F0D4139A6BCD75DCE22C
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113678.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113678.jpgsave_picture_113678.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ These Wicked Rivers - Force of Nature (2024) [FLAC|Lossless|WEB-DL|tracks] <Clas
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113679.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113679.jpgsave_picture_113679.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Invoices for Mac 3.5.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113680.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113680.jpgsave_picture_113680.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ magnet:?xt=urn:btih:A26AF16945FEF14AA1CF40C1A3A022BE02CF30BB
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113681.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113681.jpgsave_picture_113681.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ KeyCue 10.2 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113682.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113682.jpgsave_picture_113682.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ GeoGebra 6.0.830.0 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113683.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113683.jpgsave_picture_113683.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ Discovery Zone - Quantum Web (2024) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, New
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113684.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113684.jpgsave_picture_113684.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ magnet:?xt=urn:btih:40E098552EDBDDE55C626B4AC664A2662953010C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113685.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113685.jpgsave_picture_113685.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ EditReady 24.1 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113686.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113686.jpgsave_picture_113686.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ The Wicked Lo-Down - Out Of Line (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blu
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113687.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113687.jpgsave_picture_113687.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ Whorehouse Love - Whorehouse Love (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Roc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113688.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113688.jpgsave_picture_113688.jpg" />
 </div>
 
 

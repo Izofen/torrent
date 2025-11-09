@@ -6,7 +6,7 @@
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24441.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24441.jpgsave_picture_24441.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:B83F94B685F4F60B677110CF88C01FB803AE719D
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24442.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24442.jpgsave_picture_24442.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Learning Factory (2021) [Ru/Multi] (1.1.4a) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24443.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24443.jpgsave_picture_24443.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:E096EFB8C90C2B813EFFADE9B06E38D42B1C895A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24444.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24444.jpgsave_picture_24444.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:4EFF172DB453B0D4AADBE594BA5EE6971E3B2608
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24445.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24445.jpgsave_picture_24445.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:D4230886754A22870174588DE9FC07E6D9A1CE84
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24446.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24446.jpgsave_picture_24446.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Command & Conquer (2020) [Ru/Multi] (1.153.11.25007) Repack Let'sРlay [Remaster
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24447.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24447.jpgsave_picture_24447.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:BE2D8A2D098E0B10756975B8A9E940DAB6D08A2A
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24448.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24448.jpgsave_picture_24448.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:8D47FB1F3B5E93955C6C50EFB5AFE885FC622B5F
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24449.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24449.jpgsave_picture_24449.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:C58ECD5B991AB384B81E455F739F0664FBEFD8BE
 >>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24450.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24450.jpgsave_picture_24450.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ magnet:?xt=urn:btih:1846EAB96111D90E8DFAB8EE3E19ADB57AEA67BB
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24451.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24451.jpgsave_picture_24451.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ VA - Record Super Chart 15.03.2025 [MP3|320 Kbps] <Pop, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24452.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24452.jpgsave_picture_24452.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ magnet:?xt=urn:btih:484A4E61BE4A180E9EA64B5786B6EDE1FCA6134D
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24453.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24453.jpgsave_picture_24453.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ magnet:?xt=urn:btih:B774EB2E5E5CACA1FC96FFE982A449F2B96222F0
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24454.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24454.jpgsave_picture_24454.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ magnet:?xt=urn:btih:DB0C945999C193B435D6B9D95DB0909D0D45C6A0
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24455.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24455.jpgsave_picture_24455.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:EB64FEEF750A353B5B9EC135FCA923D1D669065F
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24456.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24456.jpgsave_picture_24456.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Elisabeth Vincentelli | Артбук по мультсериалу Аркейн 
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24457.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24457.jpgsave_picture_24457.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ Genius Art: Image AI Generator v1.2.5 Mod by vadj [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24458.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24458.jpgsave_picture_24458.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ magnet:?xt=urn:btih:A5EBB2BE594FBBB9931C6A6C6B93242A6E2404FC
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24459.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24459.jpgsave_picture_24459.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ One Military Camp (2023) [Ru/Multi] (1.1.0.38/dlc) Repack Other s
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24460.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24460.jpgsave_picture_24460.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ DjVu Reader & Viewer (читалка) v1.0.126 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24461.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24461.jpgsave_picture_24461.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ magnet:?xt=urn:btih:8559C848A4D597A1F7FAE72368F47085453F1DA4
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24462.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24462.jpgsave_picture_24462.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Control (2020) [Ru/Multi] (Build 17677094/dlc) Repack Decepticon [Ultimate Editi
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24463.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24463.jpgsave_picture_24463.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ magnet:?xt=urn:btih:44654DA8030F0809E7610382D37C210AE217039C
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24464.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24464.jpgsave_picture_24464.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Ventusky: Прогноз погоды v41.0 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24465.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24465.jpgsave_picture_24465.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ magnet:?xt=urn:btih:01A44D53A275DF9330DB4F1D805D079E73B09607
 >>Зарубежные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24466.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24466.jpgsave_picture_24466.jpg" />
 </div>
 
 

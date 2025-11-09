@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50225.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50225.jpgsave_picture_50225.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50226.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50226.jpgsave_picture_50226.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:51C3A7C7B5B06E4835B392C884A9293D302E489C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50227.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50227.jpgsave_picture_50227.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ EssentialPIM Pro 12.0.3 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50228.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50228.jpgsave_picture_50228.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ W.A Production - XTT by VINAI 1.1.2 VST, VST 3, AAX (x86/x64) RePack by TCD [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50229.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50229.jpgsave_picture_50229.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Calibre 7.14.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50230.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50230.jpgsave_picture_50230.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:ECFDA9645FE31E829D3CAFAF71681FC7505A7D1D
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50231.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50231.jpgsave_picture_50231.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ VA - Pure Workout, Vol. 1 (2024) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Synt
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50232.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50232.jpgsave_picture_50232.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:5FF1BACDD1552160C3ECCF1C06D543B7003841A8
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50233.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50233.jpgsave_picture_50233.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:5FF1BACDD1552160C3ECCF1C06D543B7003841A8
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50234.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50234.jpgsave_picture_50234.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ magnet:?xt=urn:btih:34D23E371D33E4F5684EB8051B75B277CC168E55
 >>Аниме хардсаб
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50235.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50235.jpgsave_picture_50235.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ magnet:?xt=urn:btih:93D5AC3AFD66DB24091033BCEEBF3ED9583557DF
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50236.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50236.jpgsave_picture_50236.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Perfectly Clear Workbench 4.6.1.2671 + AddonsPack Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50237.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50237.jpgsave_picture_50237.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ ApowerREC 1.7.1.10 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50238.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50238.jpgsave_picture_50238.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ YT Downloader 9.9.5 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50239.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50239.jpgsave_picture_50239.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ MediaHuman YouTube to MP3 Converter 3.9.9.93 (0711) RePack (& Portable) by elchu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50240.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50240.jpgsave_picture_50240.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ magnet:?xt=urn:btih:3950CA695A8B2F567DA057340E80A176E01EC0DC
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50241.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50241.jpgsave_picture_50241.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Eminem - The Death of Slim Shady (Coup De Grace) (2024) [FLAC|Lossless|WEB-DL|tr
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50242.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50242.jpgsave_picture_50242.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ magnet:?xt=urn:btih:35F44D36010E488729FA2F81D4BC2948C3099F5A
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50243.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50243.jpgsave_picture_50243.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ magnet:?xt=urn:btih:7FB8F9D83DDC84BF328FF79ED4C20D98E1DD5CB6
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50244.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50244.jpgsave_picture_50244.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ magnet:?xt=urn:btih:A1A995EBB75F2F4D429A538C4192CB4A7E9257D7
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50245.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50245.jpgsave_picture_50245.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ SunnySide (2024) [Multi] (1.15.11) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50246.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50246.jpgsave_picture_50246.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ Topaz Photo AI 3.1.0 (x64) RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50247.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50247.jpgsave_picture_50247.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ magnet:?xt=urn:btih:378B8199D3E44B99255C01E1ABBF8749BE89D6B5
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50248.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50248.jpgsave_picture_50248.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ Eminem - The Death of Slim Shady (Coup De Grâce) (2024) [FLAC 24/96|Lossless|WE
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50249.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50249.jpgsave_picture_50249.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ Mozilla Thunderbird 128.0esr [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50250.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50250.jpgsave_picture_50250.jpg" />
 </div>
 
 

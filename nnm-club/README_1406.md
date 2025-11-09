@@ -6,7 +6,7 @@ The Oregon Trail (2022) [Ru/Multi] (1.0.33/dlc) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36911.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36911.jpgsave_picture_36911.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Image to text - Text scanner / OCR сканер текста v1.5.8 Premium Mod 
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36912.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36912.jpgsave_picture_36912.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:41341473EE05711E4B02743D173DF6611FD82CA8
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36913.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36913.jpgsave_picture_36913.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Download Master 7.1.3.1733 RePack (&Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36914.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36914.jpgsave_picture_36914.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ VED (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36915.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36915.jpgsave_picture_36915.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:FB30AB8A5A2EC18D48C080FE9427F024EBE326EC
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36916.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36916.jpgsave_picture_36916.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:21F4CEDAE0B362FE5014FCA9C187293842A22677
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36917.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36917.jpgsave_picture_36917.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ PDF-XChange Editor Plus 10.4.4.392 Portable + RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36918.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36918.jpgsave_picture_36918.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ Internet Download Manager 6.42 Build 25 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36919.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36919.jpgsave_picture_36919.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ magnet:?xt=urn:btih:660C10F0AD57B4E79D71B5921881AB75B598C4B7
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36920.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36920.jpgsave_picture_36920.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Jetbrains WebStorm 2024.3 (x64-arm64) Repack by Sitego [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36921.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36921.jpgsave_picture_36921.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Wolcen: Lords of Mayhem (2020) [Ru/Multi] (1.1.7.16.12/dlc) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36922.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36922.jpgsave_picture_36922.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Topaz Photo AI 3.3.2 RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36923.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36923.jpgsave_picture_36923.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Luminar Neo 1.21.2.13959 RePack (& Portable) by elchupacabra [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36924.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36924.jpgsave_picture_36924.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ magnet:?xt=urn:btih:1BB5C2DF8C4186A9C9DD704DDA49CA16EDFDEB30
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36925.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36925.jpgsave_picture_36925.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ JetBrains GoLand 2024.3 (x64-arm64) Repack by Sitego [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36926.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36926.jpgsave_picture_36926.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ magnet:?xt=urn:btih:C494D83242CEF5D050218451A41C84784DDE532A
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36927.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36927.jpgsave_picture_36927.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ PDF-XChange PRO 10.4.4.392 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36928.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36928.jpgsave_picture_36928.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ magnet:?xt=urn:btih:3F62316F2C7EE16392DF8E031F6DE50B276D3FFF
 >>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36929.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36929.jpgsave_picture_36929.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ JetBrains Rider 2024.3 (x64-arm64) Repack by Sitego [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36930.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36930.jpgsave_picture_36930.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ magnet:?xt=urn:btih:5BDF92A0216EDC249B38CD3AFCE83EB3F9349C88
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36931.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36931.jpgsave_picture_36931.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Duolingo: изучай языки 6.7.3 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36932.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36932.jpgsave_picture_36932.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ magnet:?xt=urn:btih:67E939CAFC15FC1E669534B223FB02139BC9D77A
 >>Дискуссионный клуб
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36933.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36933.jpgsave_picture_36933.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ magnet:?xt=urn:btih:67E939CAFC15FC1E669534B223FB02139BC9D77A
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36934.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36934.jpgsave_picture_36934.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ magnet:?xt=urn:btih:B8A2F593042AE235B5B7B190E8C9188DB6B4AAF3
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36935.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36935.jpgsave_picture_36935.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ magnet:?xt=urn:btih:30D7DE67B5B970ACA02F1A31D36AB45614090AA2
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36936.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36936.jpgsave_picture_36936.jpg" />
 </div>
 
 

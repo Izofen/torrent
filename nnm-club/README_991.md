@@ -6,7 +6,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26116.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26116.jpgsave_picture_26116.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:8D4ED20CE050EF0B9D259D1215A9A6F2E9F07F5E
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26117.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26117.jpgsave_picture_26117.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ Hogwarts Legacy (2023) [Ru/Multi] (1117238 Build 10461750/dlc) Repack dixen18 [D
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26118.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26118.jpgsave_picture_26118.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:C7F9BC06E9514E8458C6761D66F0FDE3544B196A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26119.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26119.jpgsave_picture_26119.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ ACDSee Photo Studio Ultimate 2025 18.1.0.4072 Full / Lite RePack by KpoJIuK [Ru/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26120.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26120.jpgsave_picture_26120.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:ABD905EDC5DC88442FA3DE59C355F26E414DDBA4
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26121.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26121.jpgsave_picture_26121.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Dr.Web CureIt! (01.03.2025) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26122.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26122.jpgsave_picture_26122.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:1B7FA0654745AFA125AA6005854FBFBB3AC720EC
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26123.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26123.jpgsave_picture_26123.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Looney Tunes: Космическое вторжение / The Day the Earth Blew
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26124.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26124.jpgsave_picture_26124.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:F7F6E013DBA38C8447B9D5DFA31D2399511C28D3
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26125.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26125.jpgsave_picture_26125.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:A8D6706334FD4F5CD64203E7696D3D8E828EEF88
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26126.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26126.jpgsave_picture_26126.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ StarCraft: Remastered (2017) [Ru] (1.23.9.10756) Repack EXROW
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26127.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26127.jpgsave_picture_26127.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:29B3FC78EC0739935B00AE7CBD3B32D0EE7C8E17
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26128.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26128.jpgsave_picture_26128.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ magnet:?xt=urn:btih:F11A646E3D4AA4A5C0F38E5655B98A026B25A498
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26129.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26129.jpgsave_picture_26129.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Tomb Raider IV-VI Remastered (2025) [Ru/Multi] (1.0.0) License GOG [Darkness Tri
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26130.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26130.jpgsave_picture_26130.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ magnet:?xt=urn:btih:FF4A447E70C18BBB95BDE61F0883D29A4EC31218
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26131.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26131.jpgsave_picture_26131.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ magnet:?xt=urn:btih:3E537A956AC5874FF137BFA5832AA68E5B4C3DCF
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26132.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26132.jpgsave_picture_26132.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ magnet:?xt=urn:btih:5E4E94487ACD8114BFFD09F9887C2BC83B629573
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26133.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26133.jpgsave_picture_26133.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ magnet:?xt=urn:btih:270016B7EA260682D897001CDB63F1A03C53BFE6
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26134.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26134.jpgsave_picture_26134.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ FanControl V215 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26135.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26135.jpgsave_picture_26135.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Slime Rancher (2017) [Ru/Multi] (1.4.4) Repack EXROW
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26136.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26136.jpgsave_picture_26136.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ magnet:?xt=urn:btih:D4E80DCFB886F5F24BBAC64ED30E922EEAEA3222
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26137.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26137.jpgsave_picture_26137.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ BalenaEtcher 2.1.0 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26138.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26138.jpgsave_picture_26138.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ magnet:?xt=urn:btih:B9C89B8BF7B2C5D5C5DB43B9AA2A98B23C8EE294
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26139.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26139.jpgsave_picture_26139.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ magnet:?xt=urn:btih:80A94F49AA6DCAF35CBA4E26AD75527BD29B6825
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26140.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26140.jpgsave_picture_26140.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ magnet:?xt=urn:btih:7B8AF10AE62F8BDAD5CC7A709AA14A649CC43254
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26141.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26141.jpgsave_picture_26141.jpg" />
 </div>
 
 

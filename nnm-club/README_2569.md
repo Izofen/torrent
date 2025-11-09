@@ -6,7 +6,7 @@
 >>Folk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67544.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67544.jpgsave_picture_67544.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:E8845381C81404F61255A48B4FEB21CCC9BC8665
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67545.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67545.jpgsave_picture_67545.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ VA - Trancendence, Vol. 01 (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67546.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67546.jpgsave_picture_67546.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Blue Foundation - Close To The Knife (2025) [FLAC 16,24/44.1,48|Lossless|WEB-DL|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67547.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67547.jpgsave_picture_67547.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ magnet:?xt=urn:btih:1B6C77E9D4532C43CF23A120C32FFE76A036474B
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67548.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67548.jpgsave_picture_67548.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ VA - Uplifting Only Top 15: April 2025 (Extended Mixes) (2025) [MP3|320 Kbps] <T
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67549.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67549.jpgsave_picture_67549.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ magnet:?xt=urn:btih:AABDFBE57E001B211CB2FD79F10DC22DCC590F7E
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67550.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67550.jpgsave_picture_67550.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Brave Hearts Factory - Love Never Dies (2025) [FLAC|Lossless|WEB-DL|tracks] <Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67551.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67551.jpgsave_picture_67551.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ magnet:?xt=urn:btih:EBDAC069CF576EB2B361098949B0ECD9C3495FDB
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67552.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67552.jpgsave_picture_67552.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ magnet:?xt=urn:btih:AF7EC786B721B53BFAE578F5604EC3C0DEB840DB
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67553.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67553.jpgsave_picture_67553.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Imperial Triumphant - Vile Luxury(redux 1924) (2018) Remastered, Remixed, 2024, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67554.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67554.jpgsave_picture_67554.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Roy Eldridge & Charlie Shavers - Swing Trumpets (2024) Circle Records [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67555.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67555.jpgsave_picture_67555.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Robin Trower - Come And Find Me (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blue
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67556.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67556.jpgsave_picture_67556.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ magnet:?xt=urn:btih:88AC8ACD4A45BB151F6EDE3AE66A2349156B8543
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67557.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67557.jpgsave_picture_67557.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ magnet:?xt=urn:btih:E6B60257BDE4D01E3347521BA0934B84C3754110
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67558.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67558.jpgsave_picture_67558.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ magnet:?xt=urn:btih:500D09CA1D3C24B694E60B649DEB28C2ED85EED8
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67559.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67559.jpgsave_picture_67559.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ magnet:?xt=urn:btih:4461F250D340AAF1ED1165E2CCC2380E3790FB3B
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67560.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67560.jpgsave_picture_67560.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ magnet:?xt=urn:btih:BF93B64BC744EA7D77405D952E38A7A5150F40DD
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67561.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67561.jpgsave_picture_67561.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ magnet:?xt=urn:btih:BF93B64BC744EA7D77405D952E38A7A5150F40DD
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67562.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67562.jpgsave_picture_67562.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ magnet:?xt=urn:btih:2793069DC73C3C44031C1DD5A216FD5EC70E40D5
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67563.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67563.jpgsave_picture_67563.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ magnet:?xt=urn:btih:859653423DAB19D4DB5611C5021EAA3D6F0F38A3
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67564.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67564.jpgsave_picture_67564.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Party Pupils - Virtual Clarity (2025) Deluxe [FLAC 24/48|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67565.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67565.jpgsave_picture_67565.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Bucky Pizzarelli - Renaissance: A Journey From Classical To Jazz (2015) Arbors R
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67566.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67566.jpgsave_picture_67566.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ magnet:?xt=urn:btih:6E29804AAA54BC0EEFBAAE1955B1F8B950B89E9E
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67567.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67567.jpgsave_picture_67567.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ Digital Life Project (DLP) - Digital Life (2025) [FLAC|Lossless|WEB-DL|tracks] <
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67568.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67568.jpgsave_picture_67568.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ magnet:?xt=urn:btih:A41AF7E7779C9D375A0835DC23C30A5830049A7B
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67569.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67569.jpgsave_picture_67569.jpg" />
 </div>
 
 

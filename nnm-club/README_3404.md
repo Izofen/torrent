@@ -6,7 +6,7 @@ Opera GX 109.0.5097.100 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108865.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108865.jpgsave_picture_108865.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Reegonetti Band - Songs From The Ravens Nest (2024) [FLAC|Lossless|WEB-DL|tracks
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108866.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108866.jpgsave_picture_108866.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ magnet:?xt=urn:btih:7250D0CCB94D4F7DED89B5C4223E42D085920019
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108867.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108867.jpgsave_picture_108867.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ magnet:?xt=urn:btih:2353733CB6A649CD13EECDA291871F52E023DA54
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108868.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108868.jpgsave_picture_108868.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ magnet:?xt=urn:btih:071162A8E8324A48CBE2CF6CFA8961236B797240
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108869.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108869.jpgsave_picture_108869.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ magnet:?xt=urn:btih:1B02098F8F687C105F32310FC89C9BAEC7A67D4F
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108870.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108870.jpgsave_picture_108870.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ magnet:?xt=urn:btih:4152D9689E7F85D9D51643BE2BF1860C40F8128F
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108871.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108871.jpgsave_picture_108871.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ magnet:?xt=urn:btih:D7394126A1C21BCC7D81367CA9457AA9E2659201
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108872.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108872.jpgsave_picture_108872.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ MotoGP. Этап 06 из 21. Гран-при Каталонии. Гонка (26.
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108873.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108873.jpgsave_picture_108873.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ magnet:?xt=urn:btih:5C8B256FE277AF3E341BC1C428F9A7963FB5F7A5
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108874.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108874.jpgsave_picture_108874.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ VA - The Orient Collective: Red Carpet (2024) [FLAC|Lossless|WEB-DL|tracks] <Wor
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108875.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108875.jpgsave_picture_108875.jpg" />
 </div>
 
 
@@ -290,7 +290,7 @@ magnet:?xt=urn:btih:0784070B69AEA5FAC2865C87AF9103FC45E15884
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108876.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108876.jpgsave_picture_108876.jpg" />
 </div>
 
 
@@ -314,7 +314,7 @@ magnet:?xt=urn:btih:7ADD3C1C50F5B51B8436A7B1DC3120D140E86983
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108877.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108877.jpgsave_picture_108877.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ magnet:?xt=urn:btih:6679AD32A735C57B8A1D3798D0C46235F32AB39E
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108878.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108878.jpgsave_picture_108878.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ Process Lasso Pro 14.1.0.20 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108879.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108879.jpgsave_picture_108879.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ VA - Best Of Zara Taylor (2024) [FLAC|Lossless|tracks] <Trance, Vocal Trance, El
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108880.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108880.jpgsave_picture_108880.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ magnet:?xt=urn:btih:8825FABEB325698F417C89C211929C6A8F7F7D88
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108881.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108881.jpgsave_picture_108881.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Marty Friedman - Drama (2024) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108882.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108882.jpgsave_picture_108882.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ magnet:?xt=urn:btih:979FD02EB747716760F5393F0C67EEE8189172E2
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108883.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108883.jpgsave_picture_108883.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ magnet:?xt=urn:btih:979FD02EB747716760F5393F0C67EEE8189172E2
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108884.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108884.jpgsave_picture_108884.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ VA - Chillout Melodies of the Outgoing Summer, Vol. 2 (2022) [MP3|320 Kbps] <Lou
 >>Downtempo, Trip-Hop, Lounge
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108885.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108885.jpgsave_picture_108885.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ magnet:?xt=urn:btih:B7CAAD3A4F07506526530C1D07D3C9D8A8EC9B9A
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108886.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108886.jpgsave_picture_108886.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ magnet:?xt=urn:btih:281F6E6B6181F4106A3A263F5AA04D6E7D545148
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108887.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108887.jpgsave_picture_108887.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Suck Brick Kid - The End Is What I Want (2024) [FLAC 24/48|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108888.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108888.jpgsave_picture_108888.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ magnet:?xt=urn:btih:E49DE1AB03AC60D015B4340743EE19E8A5B979D7
 >>Кинолетопись Страны Советской
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108889.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108889.jpgsave_picture_108889.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ The Korea - Мёд (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative Met
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108890.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108890.jpgsave_picture_108890.jpg" />
 </div>
 
 

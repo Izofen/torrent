@@ -6,7 +6,7 @@
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65568.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65568.jpgsave_picture_65568.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:13AB8B4885520735AB75CC101B08B8AE4E471B06
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65569.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65569.jpgsave_picture_65569.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:09F0F01593A74F4C71D2EABDF848A63693116634
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65570.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65570.jpgsave_picture_65570.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:BFE37EBC998ED75CDD65607EBA80CA00F1341F66
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65571.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65571.jpgsave_picture_65571.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:CE6E33B6A63FBA6A4FEA617DB5062AAC3863D365
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65572.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65572.jpgsave_picture_65572.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:C826F73E04BC6BAC31E721C74341DBABA0582294
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65573.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65573.jpgsave_picture_65573.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ VA - Cool Jazz Music (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65574.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65574.jpgsave_picture_65574.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Doro - Fear No Evil (2009) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65575.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65575.jpgsave_picture_65575.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:66675D6D9A279D350B7B7F91394AB8DB737795E6
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65576.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65576.jpgsave_picture_65576.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ VA - Sunset Jazz Mood (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65577.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65577.jpgsave_picture_65577.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ magnet:?xt=urn:btih:2D7E1DA0F48A68900010633AC579F10168651331
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65578.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65578.jpgsave_picture_65578.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ magnet:?xt=urn:btih:36250938312A661B0F2A9B23377A5580038C0B0E
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65579.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65579.jpgsave_picture_65579.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ TJ Edit - Disco Funk Archive (2025) [FLAC|Lossless|WEB-DL|tracks] <Funk>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65580.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65580.jpgsave_picture_65580.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Passengers In Panic - Amnesia (2025) [FLAC|Lossless|WEB-DL|tracks] <Folk Metal, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65581.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65581.jpgsave_picture_65581.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Trick or Treat - Ghosted (2025) [MP3|320 Kbps] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65582.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65582.jpgsave_picture_65582.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ magnet:?xt=urn:btih:2CFC716B6EEB4F8EAF394FD5C4C2F3578F1D71AE
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65583.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65583.jpgsave_picture_65583.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Funk Windows - Funk Tape (2025) [FLAC|Lossless|WEB-DL|tracks] <Funk>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65584.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65584.jpgsave_picture_65584.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ magnet:?xt=urn:btih:F164EA685C5B92981B2291D37E3362B4A54AB42F
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65585.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65585.jpgsave_picture_65585.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ magnet:?xt=urn:btih:79C9A70B2C2591C283F5A4C8DA63EE08804A9110
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65586.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65586.jpgsave_picture_65586.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ Sun Haven (2023) [Ru/Multi] (2.5.1E/dlc) Repack FitGirl [Ultra Bundle]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65587.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65587.jpgsave_picture_65587.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ magnet:?xt=urn:btih:75B6A34CA6CB5895D5140610CE7E95FFE57E26A2
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65588.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65588.jpgsave_picture_65588.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ magnet:?xt=urn:btih:60D9B66A07B0FE56F2DBC303C9D795F9FB748278
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65589.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65589.jpgsave_picture_65589.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ magnet:?xt=urn:btih:47E9E3E91A79ED41B141860A93F5869FE3D488AF
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65590.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65590.jpgsave_picture_65590.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ magnet:?xt=urn:btih:8E10E4E90F28DF42BB71D9958FD1F0948EF4EE60
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65591.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65591.jpgsave_picture_65591.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ magnet:?xt=urn:btih:8679F864BF69BEBB5F289DFC967162B577D24B6E
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65592.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65592.jpgsave_picture_65592.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ magnet:?xt=urn:btih:E05A94A0008A4C529D62DBA13721567D88322463
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65593.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65593.jpgsave_picture_65593.jpg" />
 </div>
 
 

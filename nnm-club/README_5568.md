@@ -6,7 +6,7 @@ Lana Lane - Ballad Collection (2000) Special Edition, 2CD [FLAC|Lossless|image +
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171755.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171755.jpgsave_picture_171755.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Evian Christ - Revanchist (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Experime
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171756.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171756.jpgsave_picture_171756.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Bloodred Hourglass - How's The Heart? (2023) [FLAC|Lossless|WEB-DL|tracks] <Melo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171757.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171757.jpgsave_picture_171757.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Lana Lane - Red Planet Boulevard (2007) [FLAC|Lossless|image + .cue] <Symphonic 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171758.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171758.jpgsave_picture_171758.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Lana Lane - Love Is An Illusion (2001) Special Edition, 2CD [FLAC|Lossless|image
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171759.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171759.jpgsave_picture_171759.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Lana Lane - Queen Of The Ocean (1999) [FLAC|Lossless|image + .cue] <Symphonic Pr
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171760.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171760.jpgsave_picture_171760.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Howard Alden + George Van Eps - 13 Strings (1991) Concord [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171761.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171761.jpgsave_picture_171761.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ n-Track Studio Suite 10.0.0 Intel/ARM [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171762.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171762.jpgsave_picture_171762.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ magnet:?xt=urn:btih:2D96FDF6749D8BD8857D6DDBF8E9A96BBBBB677B
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171763.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171763.jpgsave_picture_171763.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ magnet:?xt=urn:btih:62DAAB7A29AE7989E9D2C1E63D1E7ADAEE56FEA7
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171764.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171764.jpgsave_picture_171764.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Stahlhammer - Eisenherz (2002) [FLAC|Lossless|image + .cue] <Industrial Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171765.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171765.jpgsave_picture_171765.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Lana Lane - Curious Goods (2002)Special Edition, 2CD [FLAC|Lossless|image + .cue
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171766.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171766.jpgsave_picture_171766.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ magnet:?xt=urn:btih:57FFAB03BA6068E572E42B849420AE345D1EF17A
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171767.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171767.jpgsave_picture_171767.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Jack Out - X Salvarsi (2023) Special Edition [FLAC|Lossless|WEB-DL|tracks] <Pop 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171768.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171768.jpgsave_picture_171768.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Johnny Griffin Meets Horace Parlan - Close Your Eyes (2000) Minor Music [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171769.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171769.jpgsave_picture_171769.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Howard Roberts - Good Pickin's (1959) 1999, Verve [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171770.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171770.jpgsave_picture_171770.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Lana Lane - Project Shangri-La (2002) [FLAC|Lossless|image + .cue] <Symphonic Pr
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171771.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171771.jpgsave_picture_171771.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Stahlhammer - Opera Noir (2006) [FLAC|Lossless|image + .cue] <Industrial Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171772.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171772.jpgsave_picture_171772.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Solar Sons - Subliminal Criminal (2019) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Pr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171773.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171773.jpgsave_picture_171773.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ Bill Evans - Nardis (1965 - 1972) 2003, Absord Music [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171774.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171774.jpgsave_picture_171774.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Hippie Death Cult - Helichrysum (2023) [FLAC|Lossless|WEB-DL|tracks] <Stoner/Doo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171775.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171775.jpgsave_picture_171775.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ John Pizzarelli - Stage & Screen - Stage & Screen (2021) 2023, Palmetto Records 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171776.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171776.jpgsave_picture_171776.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Grant Green - Sunday Mornin' (1961) 1996, Blue Note [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171777.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171777.jpgsave_picture_171777.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ iShowU Instant (Advanced) 1.4.16 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171778.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171778.jpgsave_picture_171778.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Anita O'Day - My Ship (1975) 2003, Kayo Stereophonic [FLAC|Lossless|image + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171779.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171779.jpgsave_picture_171779.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ Anita O'Day - In a Mellow Tone (1989) DRG Records [FLAC|Lossless|image + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171780.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171780.jpgsave_picture_171780.jpg" />
 </div>
 
 

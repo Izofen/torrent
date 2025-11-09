@@ -6,7 +6,7 @@
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38705.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38705.jpgsave_picture_38705.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ VA - Blues And Rock Blues Fusion (2024) [MP3|320 Kbps] <Blues, Rock Folk, Rock B
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38706.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38706.jpgsave_picture_38706.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:254F486A16F816A3CAAF8E4E48F70DA966223FF5
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38707.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38707.jpgsave_picture_38707.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Maou no Ore ga Dorei Elf o Yome ni Shitanda ga, Dou Medereba Ii? | Madome | Ка
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38708.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38708.jpgsave_picture_38708.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:494E715EDD712B5B2461EA43A805964BD5A85537
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38709.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38709.jpgsave_picture_38709.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:ADFB69A88CDB6D08F4DE267AA78DB0596DEB67DD
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38710.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38710.jpgsave_picture_38710.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ Cleaner for WhatsApp / Очиститель для WhatsApp v2.9.6 Mod by sserra
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38711.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38711.jpgsave_picture_38711.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ Wave Alchemy - Tapewave 1.0.0 VST 3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38712.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38712.jpgsave_picture_38712.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ Vivaldi 7.0.3495.10 include standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38713.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38713.jpgsave_picture_38713.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ ToonApp: AI Cartoon Photo Editor, Cartoon Yourself v2.6.94 Mod by Mixroot [Ru/Mu
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38714.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38714.jpgsave_picture_38714.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ VA - Music News For Forum vol.037 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38715.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38715.jpgsave_picture_38715.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ VA - Blues for Autumn Time (2024) [MP3|320 Kbps] <Blues>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38716.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38716.jpgsave_picture_38716.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ magnet:?xt=urn:btih:0C28DBCAE7007B79955921E47B37F13320007452
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38717.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38717.jpgsave_picture_38717.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ XYplorer 26.60.0000 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38718.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38718.jpgsave_picture_38718.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Danekoo1 - Compilation (2024) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38719.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38719.jpgsave_picture_38719.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ magnet:?xt=urn:btih:0D9F953015789996CAF85AAD7C96E4E5B847CAD5
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38720.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38720.jpgsave_picture_38720.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Power Music Workout - Xtreme Cardio Mix 40 (2024) [FLAC|Lossless|WEB-DL|tracks] 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38721.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38721.jpgsave_picture_38721.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ magnet:?xt=urn:btih:0EEF3D4785FB469D26882F09EA1BD6E81AB369D1
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38722.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38722.jpgsave_picture_38722.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Reface: Face Swap AI Generator v5.0.0 Mod by Mixroot [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38723.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38723.jpgsave_picture_38723.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Unity of Command II (2019) [Ru/Multi] (Update 29/dlc) Repack FitGirl
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38724.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38724.jpgsave_picture_38724.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Don't Be Afraid 2 (2024) [Ru/Multi] (1.0.1) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38725.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38725.jpgsave_picture_38725.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ magnet:?xt=urn:btih:C770446D6B8AFE53365B5C94CC39B48D50E9F76A
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38726.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38726.jpgsave_picture_38726.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ magnet:?xt=urn:btih:9BEC98D778A287F23501A9424EAB1A0DB219EECD
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38727.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38727.jpgsave_picture_38727.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ Shop Simulator: Supermarket (2024) [Ru/Multi] (1.0.3.1) Repack Pioneer
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38728.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38728.jpgsave_picture_38728.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ magnet:?xt=urn:btih:DF2D1541BFB284CC6375D65C5CA05A7482FF53B0
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38729.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38729.jpgsave_picture_38729.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ iZotope - Neutron 5 v5.0.0 VST 3, AAX (x64) RePack by R2R [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38730.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38730.jpgsave_picture_38730.jpg" />
 </div>
 
 

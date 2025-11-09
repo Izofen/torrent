@@ -6,7 +6,7 @@ UltraISO Premium Edition 9.7.6.3860 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247067.jpgsave_picture_247067.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ UltraISO Premium Edition 9.7.6.3860 RePack (& Portable) by elchupacabra [Multi/R
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247068.jpgsave_picture_247068.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:604599E25F63D20E00FAA484E347BB936108313F
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247069.jpgsave_picture_247069.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:604599E25F63D20E00FAA484E347BB936108313F
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247070.jpgsave_picture_247070.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Fedora может получить встроенные механизмы сб�
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247071.jpgsave_picture_247071.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Udemy, Rob Tuytel | Creating a fir and pine forest in Blender (2023) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247072.jpgsave_picture_247072.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:4BE187F167F83811782C4B28195D5ECC9C7BD7CA
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247073.jpgsave_picture_247073.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ PotPlayer 230707 (1.7.21953) RePack (& portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247074.jpgsave_picture_247074.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:0C97463772CD9466971CF33ABC7CFB947FC7A685
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247075.jpgsave_picture_247075.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:2B3016B8333BACA53C5AD666B5768AFF7FEDBCA6
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247076.jpgsave_picture_247076.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ WinPE 11-10-8 Sergei Strelec (x86/x64/Native x86) 2023.07.05 [Ru]
 >>14
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247077.jpgsave_picture_247077.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Smart Tools v2.1.10 /  Smart Tools 2 v1.1.5  [Ru/Multi]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247078.jpgsave_picture_247078.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ magnet:?xt=urn:btih:16A82EE0802C45A58BEDD3124F78C4EC6B968C5A
 >>Кости / Bones
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247079.jpgsave_picture_247079.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ magnet:?xt=urn:btih:7FA1079F4AC44BA2BC769FA837E21DE4C9E307F1
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247080.jpgsave_picture_247080.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ I Am Alive (2012) [Ru] (1.01/dlc/tr) Repack Other s
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247081.jpgsave_picture_247081.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ jetAudio HD Music Player Plus v11.2.5 [Ru/Multi]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247082.jpgsave_picture_247082.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ magnet:?xt=urn:btih:E35C35BADD6837B56E1496812C405E808676E5F3
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247083.jpgsave_picture_247083.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ magnet:?xt=urn:btih:20C95BD02A5481C0736A2371E043A5D53D8F3DC6
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247084.jpgsave_picture_247084.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ magnet:?xt=urn:btih:FA52EEA58F38E4D2650E2D7A1EA28BCBCDB2FEAD
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247085.jpgsave_picture_247085.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ magnet:?xt=urn:btih:9B157CBFCE2E136D320870992D6E5B3ECA2B7DDB
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247086.jpgsave_picture_247086.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ magnet:?xt=urn:btih:E0C3658E89BD5A60130B0CCC02FEB7637602081B
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247087.jpgsave_picture_247087.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ magnet:?xt=urn:btih:45C3E921061012AC190D4693AE329E42E3454FAB
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247088.jpgsave_picture_247088.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ magnet:?xt=urn:btih:7A1508E9FC61443DB4AE1D73F5EC90F9223528A6
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247089.jpgsave_picture_247089.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ magnet:?xt=urn:btih:006337D06BE80B04D7242FA09A97595307A8E92F
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247090.jpgsave_picture_247090.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Kaminaki Sekai no Kamisama Katsudou | Дeятeльнoсть Бoгa в мирe б
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247091.jpgsave_picture_247091.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ A Total War Saga: Thrones of Britannia (2018) [Ru/En] (1.2.3/dlc) Repack dixen18
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247092.jpgsave_picture_247092.jpg" />
 </div>
 
 

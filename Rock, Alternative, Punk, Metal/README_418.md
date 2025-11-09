@@ -6,7 +6,7 @@ Miss Fortune - Gravity's Rainbow (2023) [FLAC|Lossless|WEB-DL|tracks] <Alt. Rock
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235569.jpgsave_picture_235569.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Nightmares - The Dark Hold (2023) EP [FLAC|Lossless|WEB-DL|tracks] <Metalcore>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235574.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235574.jpgsave_picture_235574.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Animal House - Living in Black and White (2021) [FLAC|Lossless|WEB-DL|tracks] <H
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235575.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235575.jpgsave_picture_235575.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Zulu - A New Tomorrow (2023) [FLAC|Lossless|WEB-DL|tracks] <Experimental, Hardco
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235581.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235581.jpgsave_picture_235581.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Molly & The Heymakers - Live Wires (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235582.jpgsave_picture_235582.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Stigma - When Midnight Strikes (2008) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235585.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235585.jpgsave_picture_235585.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Fracturus - Versus the Void (2023) EP [FLAC|Lossless|WEB-DL|tracks] <Deathcore>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235588.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235588.jpgsave_picture_235588.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Spearhead - Decrowning The Irenarch (2007) [FLAC|Lossless|image + .cue] <Death M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235591.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235591.jpgsave_picture_235591.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Andromida - Hellscape (2021) [MP3|320 Kbps] <Progressive Metal, Djent>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235593.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235593.jpgsave_picture_235593.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ dEMOTIONAL - Scandinavian Aftermath (2021) Deluxe Edition, 2023, Relapse Records
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235597.jpgsave_picture_235597.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ ISGHERURD MORTH - Hellrduk (2021) [FLAC|Lossless|Web-DL|tracks] <Avantgarde Blac
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235598.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235598.jpgsave_picture_235598.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Woab - Для этого мира (2020) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235605.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235605.jpgsave_picture_235605.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Toledo Steel - Heading For The Fire (2021) [FLAC|Lossless|image + .cue] <Heavy M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235606.jpgsave_picture_235606.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Byron - The Omega Evangelion (2021) [FLAC|Lossless|WEB-DL|tracks] <Stoner Rock, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235607.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235607.jpgsave_picture_235607.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Autumnblaze - Welkin Shores Burning (2020) [FLAC|Lossless|image + .cue] <Gothic 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235608.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235608.jpgsave_picture_235608.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Prevail in Darkness - Inferno (2023) [MP3|320 Kbps] <Melodic Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235612.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235612.jpgsave_picture_235612.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Nuclear Cthulhu - Desecration (2016) [FLAC|Lossless|WEB-DL|tracks] <Black Metal,
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235613.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235613.jpgsave_picture_235613.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Skyliner - Outsiders (2014) [FLAC|Lossless|image + .cue] <Power Metal, Progressi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235617.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235617.jpgsave_picture_235617.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Novembers Doom - Hamartia (2017) [FLAC|Lossless|image + .cue] <Melodic Doom, Dea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235622.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235622.jpgsave_picture_235622.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Breaths - Lined in Silver (2021) 2CD [MP3|320 Kbps] <Blackgaze, Post-Hardcore, P
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235624.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235624.jpgsave_picture_235624.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Orphans of Dusk - Spleen (2023) [FLAC|Lossless|WEB-DL|tracks] <Gothic, Doom Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235626.jpgsave_picture_235626.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Needle Grey - Seasons Past (2023) EP [FLAC|Lossless|WEB-DL|tracks] <Modern Metal
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235629.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235629.jpgsave_picture_235629.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Seasons of the Wolf - Seasons of the Wolf (1996) [FLAC|Lossless|image + .cue] <P
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235631.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235631.jpgsave_picture_235631.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Death from Above 1979 - Is 4 Lovers (2021) [MP3|320 Kbps] <Alternative, Indie Ro
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235633.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235633.jpgsave_picture_235633.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Abel Sequera - Soundscapes (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235637.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235637.jpgsave_picture_235637.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Sea of Disorder - Sea of Disorder (2012) [FLAC|Lossless|image + .cue] <Post Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235639.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235639.jpgsave_picture_235639.jpg" />
 </div>
 
 

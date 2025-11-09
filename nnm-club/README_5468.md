@@ -6,7 +6,7 @@
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169095.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169095.jpgsave_picture_169095.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Doc Holliday - Compilation (2022) [MP3|320 Kbps] <Rock, Southern Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169096.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169096.jpgsave_picture_169096.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Windows 10 Manager 3.5.8 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169097.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169097.jpgsave_picture_169097.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Hookshot 1.15 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169098.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169098.jpgsave_picture_169098.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:E837B8CEE2E91B4D75245B2A49015F7C9037720B
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169099.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169099.jpgsave_picture_169099.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:A8EFDDD7AFE4A382E0FAA4A5FB89190B2CA2A564
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169100.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169100.jpgsave_picture_169100.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:533EF7F494E5DC63BDB2507BA76227941F68B1FD
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169101.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169101.jpgsave_picture_169101.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ VA - Acoustic Christmas (2019) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169102.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169102.jpgsave_picture_169102.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:CA086D2A20EA38C341B64649530075046EA11629
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169103.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169103.jpgsave_picture_169103.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ Taylor Swift - 1989 (2014) Taylor's Version, 2023, Taylor Swift [MP3|320 Kbps] <
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169104.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169104.jpgsave_picture_169104.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ PowerDirector – Video Editor v15.8.0 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169105.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169105.jpgsave_picture_169105.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ magnet:?xt=urn:btih:74C9167BBC73DC0A1C34F5F18658C571B08B8DC4
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169106.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169106.jpgsave_picture_169106.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:616856C0B9D9986FB018E90EC0B81C8A8AC7CD29
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169107.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169107.jpgsave_picture_169107.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Teorex Inpaint 10.2.2 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169108.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169108.jpgsave_picture_169108.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ DxO ViewPoint 4 v.4.1.0 U2B [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169109.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169109.jpgsave_picture_169109.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Extreme Picture Finder 3.65.10.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169110.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169110.jpgsave_picture_169110.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Volume2 1.1.7.441 Beta + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169111.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169111.jpgsave_picture_169111.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ magnet:?xt=urn:btih:B85929FBCA47B8CE3D6857A8394AB36293142712
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169112.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169112.jpgsave_picture_169112.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ VA - House 2023 (2022) [MP3|320 Kbps] <Deep-House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169113.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169113.jpgsave_picture_169113.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ magnet:?xt=urn:btih:35523F8C98036C9A94C8632DF6A5260572BE55CF
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169114.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169114.jpgsave_picture_169114.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ magnet:?xt=urn:btih:60907A2933D44A11857B44A1EE790D5162A3265A
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169115.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169115.jpgsave_picture_169115.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ magnet:?xt=urn:btih:5ED1F18A6774F620D01F6DF205F70976A0194787
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169118.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169118.jpgsave_picture_169118.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ magnet:?xt=urn:btih:E411C21BDA0E831055373AB591404DC7A4176BB6
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169119.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169119.jpgsave_picture_169119.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Wink ATV Ultimate v1.16.1 (ревизия 2.7) Mod [Ru] (обновляемая)
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169120.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169120.jpgsave_picture_169120.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ magnet:?xt=urn:btih:C777C8F107E0544D57C605567C94BB348E0437B9
 >>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169121.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169121.jpgsave_picture_169121.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Ghosts of Atlantis - Riddles of the Sycophants (2023) [FLAC 24/44.1|Lossless|WEB
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169122.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169122.jpgsave_picture_169122.jpg" />
 </div>
 
 

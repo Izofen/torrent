@@ -6,7 +6,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124727.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124727.jpgsave_picture_124727.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:7C7AA3ADB7739F6CC5A18F166F7B3864AE3D8293
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124758.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124758.jpgsave_picture_124758.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:DB3EF137B5070A8704455AEE428F735FDD3114F2
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124777.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124777.jpgsave_picture_124777.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:CE22196E630A01FFB870F7FB1E1EB294BE009594
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124785.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124785.jpgsave_picture_124785.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:6A21AF08DCDD44523F52C434564859231120949B
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124786.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124786.jpgsave_picture_124786.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:A63E3CAF1815DEE55CDC70302F29464A2EE56E41
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124789.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124789.jpgsave_picture_124789.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:667F320F1E9359C1941AB65854EEBD0D91E43272
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124811.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124811.jpgsave_picture_124811.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:B1E991034FCD42AAA1E788311259D02DD4B0DEBB
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124818.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124818.jpgsave_picture_124818.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ magnet:?xt=urn:btih:9F48992140BAD4B3F53FD441F10EF137678C9995
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124889.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124889.jpgsave_picture_124889.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ magnet:?xt=urn:btih:8F83D4911A0D608F52CA6F636A3B1218B9FEDC93
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124960.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124960.jpgsave_picture_124960.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ magnet:?xt=urn:btih:CD24104519F9834FD988C0112534E9F34D45CFEF
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124965.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124965.jpgsave_picture_124965.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ magnet:?xt=urn:btih:D976CDC40E17BA9592682B2342B133B75E34A6F0
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124995.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124995.jpgsave_picture_124995.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ magnet:?xt=urn:btih:FCDBF08883840185DFB76B847B5E8AAA7C9F5909
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125022.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125022.jpgsave_picture_125022.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ magnet:?xt=urn:btih:41CEB3E09AE8C5F7CD91D0FFD6086E0D1156BBD3
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125032.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125032.jpgsave_picture_125032.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ magnet:?xt=urn:btih:564053DAB6C0A3BC001B94FC8F4502261B251A1F
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125070.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125070.jpgsave_picture_125070.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ magnet:?xt=urn:btih:B83774820715B749AF19EBEC26D868FE0954B4F0
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125301.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125301.jpgsave_picture_125301.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ magnet:?xt=urn:btih:AE871A99E51C071CB2889C075F6A62E8F36C8E3C
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125302.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125302.jpgsave_picture_125302.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ magnet:?xt=urn:btih:2A88A383386696582BD6B2CBE4D52FBFF70096DF
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125372.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125372.jpgsave_picture_125372.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ magnet:?xt=urn:btih:106AA9C1C7C869B1924E23EDD3EC1CC88DADC71C
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125386.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125386.jpgsave_picture_125386.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ magnet:?xt=urn:btih:F52AE7033680269D5A7EED87BEF5BF1BA7757C19
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125423.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125423.jpgsave_picture_125423.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ magnet:?xt=urn:btih:46568E155DC50FE1054382AF839DAC92EA650B79
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125452.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125452.jpgsave_picture_125452.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ magnet:?xt=urn:btih:1A744733FA6975874C65EE97AE64893B65B044F3
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125486.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125486.jpgsave_picture_125486.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ magnet:?xt=urn:btih:F2A149A3F9450FBA6192954C76E846B1084879BF
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125489.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125489.jpgsave_picture_125489.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ magnet:?xt=urn:btih:F36B156522986949C3B0C1D9CAF669AEEC8F5DC4
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125502.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125502.jpgsave_picture_125502.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ magnet:?xt=urn:btih:8999BEE5BCAD6759BE416426734EDC69BD7957EB
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125503.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125503.jpgsave_picture_125503.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ magnet:?xt=urn:btih:6FB0238F64B7BF68DC8D1CC04B3968F48D9D2DDD
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125504.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125504.jpgsave_picture_125504.jpg" />
 </div>
 
 

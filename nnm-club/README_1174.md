@@ -6,7 +6,7 @@
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30879.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30879.jpgsave_picture_30879.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:AEAB1439534B86CD2E8BF5014D184809340B005F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30880.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30880.jpgsave_picture_30880.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ I Am Future: Cozy Apocalypse Survival (2023) [Ru/Multi] (1.1.0.006r) Repack FitG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30881.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30881.jpgsave_picture_30881.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:7023C4824113B92ABBF9CC3697ABE0AE92F67850
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30882.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30882.jpgsave_picture_30882.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Kdenlive 24.12.1 + Standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30883.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30883.jpgsave_picture_30883.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:66F031220F98043078976EA4BCAEDFAE9991F969
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30884.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30884.jpgsave_picture_30884.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Issa Batarseh, Ahmad Harb | Power Electronics: Circuit Analysis and Design (2017
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30885.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30885.jpgsave_picture_30885.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:A44618C5D5C1C380AF9C5CAC4EC6AFF0A58AEABA
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30886.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30886.jpgsave_picture_30886.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:1DE2EEAAC1C938B49D28DCAAFC81FE9A35113019
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30887.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30887.jpgsave_picture_30887.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ VA - EDM Audioholics Vol. 03 (2025) [MP3|320 Kbps] <Dance, Club, House, Electro>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30888.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30888.jpgsave_picture_30888.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:144CED057FD0084FA9BBB933D60BDDD8F26F8E0B
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30889.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30889.jpgsave_picture_30889.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:43FDF9B42B93D260360355E59616EFBEC1DF2881
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30890.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30890.jpgsave_picture_30890.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:A5E4E7496FC207A62B46642C13C01BF199E052BF
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30891.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30891.jpgsave_picture_30891.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ magnet:?xt=urn:btih:B94882949F75A56FFE2D6C05D3E7518875423B22
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30892.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30892.jpgsave_picture_30892.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ magnet:?xt=urn:btih:2963FB5961ED5AE773F84BE21B7E905EEFA89C58
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30893.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30893.jpgsave_picture_30893.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ magnet:?xt=urn:btih:1D2ED89343B7A412042E034BF6B393311674B06E
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30894.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30894.jpgsave_picture_30894.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ Project Wingman (2020) [Ru/Multi] (2.1.1a) License GOG [VR]
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30895.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30895.jpgsave_picture_30895.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ magnet:?xt=urn:btih:A146FEEDAA7AFAFD5D65EABA7A350B629B80007F
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30896.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30896.jpgsave_picture_30896.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Blade Runner: Enhanced Edition (2022) [Ru/Multi] (1.2.1075) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30897.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30897.jpgsave_picture_30897.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ DriverEasy 6.1.2.29728 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30898.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30898.jpgsave_picture_30898.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ magnet:?xt=urn:btih:7F02F3A3F2BD4D464C43F2190502CA1E34C4ED5D
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30899.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30899.jpgsave_picture_30899.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ magnet:?xt=urn:btih:8C3720885607768AB8C9E9D97D47A9DAC38457C0
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30900.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30900.jpgsave_picture_30900.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ magnet:?xt=urn:btih:162E2585C255E848E1EAAAD48CA483FFEB201759
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30901.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30901.jpgsave_picture_30901.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ magnet:?xt=urn:btih:873F0A14572F9EC03B687D84CBCF7DBA6CFDFF34
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30902.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30902.jpgsave_picture_30902.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ magnet:?xt=urn:btih:470839ED5059B351DFE3712F35C642970DE292FE
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30903.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30903.jpgsave_picture_30903.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ SoftPerfect RAM Disk 4.4.3 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30904.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30904.jpgsave_picture_30904.jpg" />
 </div>
 
 

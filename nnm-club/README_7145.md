@@ -6,7 +6,7 @@
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244717.jpgsave_picture_244717.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:4A7B3F494D02DFC11D925786D903C090DE803575
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244718.jpgsave_picture_244718.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ SmartTube Next 15.30 + 15.62 (Beta) Mod by armanych [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244719.jpgsave_picture_244719.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Dzetta - 5 Albums (2018-2020) [MP3|320 Kbps] <Electronic Rock, Rap Rock, Male & 
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244720.jpgsave_picture_244720.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ VA - Evidence Of Intense Beauty (2016) [MP3|320 Kbps] <Ambient, Drone>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244721.jpgsave_picture_244721.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:641E0E75A6D3612280252F439400CACF1C2425E2
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244722.jpgsave_picture_244722.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ Spotify 1.2.7.1277 (Repack & Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244723.jpgsave_picture_244723.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:EB23A6700F9223E4372E9D5BCF39230EEDBA7F36
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244724.jpgsave_picture_244724.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ Peter Pearson - Discography 53 Releases (2010-2022) [MP3|320 Kbps] <Chillout, Sm
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244725.jpgsave_picture_244725.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ CrystalDiskInfo 8.17.5 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244726.jpgsave_picture_244726.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ VA - Winter Clubbing Techno Set (2021) [MP3|320 Kbps] <Club, Techno, Electro, Te
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244727.jpgsave_picture_244727.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ VA - Edelweiss: Alpine Chill to Unwind (2022) [AAC|~316 Kbps] <Lounge, Chill Out
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244728.jpgsave_picture_244728.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ magnet:?xt=urn:btih:7363D61498A3C4053A62172E6FA1D3D7ECD1ADCA
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244729.jpgsave_picture_244729.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ magnet:?xt=urn:btih:3587DDDCEA64E2E857505D5510743D665325BF9B
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244730.jpgsave_picture_244730.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ VA - 10 Years Of Suanda Music - Mixed by Roman Messer (2023) [MP3|320 Kbps] <Upl
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244731.jpgsave_picture_244731.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ Comodo Dragon 109.0.5414.120 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244732.jpgsave_picture_244732.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ magnet:?xt=urn:btih:5E3FC355BAE898C9CD3937BE98FD05B0AB95A9F6
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244733.jpgsave_picture_244733.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ magnet:?xt=urn:btih:34D498822F5F933D3C8E436D1F61F4ED5AEFCF65
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244734.jpgsave_picture_244734.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ magnet:?xt=urn:btih:872F814C72EEC0B933BB069B95E44E266D9AFC6E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244735.jpgsave_picture_244735.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ magnet:?xt=urn:btih:377CDA1EDF3364768DFCEFF005EED6FE344BC9FF
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244736.jpgsave_picture_244736.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ Lester Young - Four Classic Albums: Second Set (1943 - 1957) 2CD, 2020, Avid Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244737.jpgsave_picture_244737.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ magnet:?xt=urn:btih:606FABE549C035978849ED1ED95171FAE76E3F9A
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244738.jpgsave_picture_244738.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ VA - Fresh Country (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues, Country, Folk>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244739.jpgsave_picture_244739.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Altair Activate 2022.2.1 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244740.jpgsave_picture_244740.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ VA - Winter EDM Party (2021) [MP3|320 Kbps] <Tech House, Techno, Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244741.jpgsave_picture_244741.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ Tipard Screen Capture 2.0.60 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244742.jpgsave_picture_244742.jpg" />
 </div>
 
 

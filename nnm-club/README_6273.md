@@ -6,7 +6,7 @@
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196666.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196666.jpgsave_picture_196666.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:4DBE9C231B49CE4A7F53682125547A4170E71953
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_196667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196667.jpgsave_picture_196667.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Psiphon Pro 382 Mod by DEXUNPACKER [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196668.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196668.jpgsave_picture_196668.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Adobe Acrobat Reader 23.003.20215.0 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196669.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196669.jpgsave_picture_196669.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ OGWhatsApp 17.45 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196670.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196670.jpgsave_picture_196670.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:6CBBBAE5AE3ADAEFA94DC86447E14577AAC0CA84
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196671.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196671.jpgsave_picture_196671.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Sons Of Apollo | The Winery Dogs - 6 albums, 10 CD (2013-2023) [FLAC|Lossless|im
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_196672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196672.jpgsave_picture_196672.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:6C57521BB3A91E585558C1B18114D3943F5DE1C7
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196673.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196673.jpgsave_picture_196673.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:95FEE5A51EF935F00D1758522F68D4E4DA00F62A
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196674.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196674.jpgsave_picture_196674.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ Watashi no Yuri wa Oshigoto Desu! / Yuri Is My Job! / Юри — это моя �
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_196675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196675.jpgsave_picture_196675.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:F473791F9EAA5EE2DE91080B94FB205D613886E5
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196676.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196676.jpgsave_picture_196676.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ Adobe Acrobat Pro 23.003.20215.0 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196678.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196678.jpgsave_picture_196678.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ magnet:?xt=urn:btih:44BE8348BF1F022625E70A7ECB707FB8FC249717
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196679.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196679.jpgsave_picture_196679.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ magnet:?xt=urn:btih:53BDEA43AB43CA7475A04695A77BDB2D08CA3B22
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196680.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196680.jpgsave_picture_196680.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ DAEMON Tools Lite 11.2.0.2086 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196681.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196681.jpgsave_picture_196681.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ magnet:?xt=urn:btih:5951F4257EAD88B64E4622B9171B11F00B2D41EF
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196682.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196682.jpgsave_picture_196682.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ magnet:?xt=urn:btih:E561EFABFA2BEC44E25B05A6707033ECF0F33763
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196684.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196684.jpgsave_picture_196684.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ magnet:?xt=urn:btih:2A3AFDECFA30C593EE2F22B8C93C6FBB4B786B9D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196685.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196685.jpgsave_picture_196685.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ magnet:?xt=urn:btih:E2777688312631AC663E6B8CD839E53C36177DFC
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_196686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196686.jpgsave_picture_196686.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ macOS 13 Ventura 13.4.1 (Installer) [Multi/Ru]
 >>macOS (Apple)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196687.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196687.jpgsave_picture_196687.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ magnet:?xt=urn:btih:E13BAF7AF2F75B6C6CB022F11CDB96E60511FAAB
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_196688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196688.jpgsave_picture_196688.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ magnet:?xt=urn:btih:436BF9563DD21529185A865DD6ECA9AE4D6D427D
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196689.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196689.jpgsave_picture_196689.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ magnet:?xt=urn:btih:6AC25443B47640FC9121DEB4EC45821214D2DF95
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196690.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196690.jpgsave_picture_196690.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Spriters, Hopes Blooming Dawn (2023) [En] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196691.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196691.jpgsave_picture_196691.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ magnet:?xt=urn:btih:74B5823AD387E782623FFC35E4136D05A08DA147
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_196692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196692.jpgsave_picture_196692.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ magnet:?xt=urn:btih:2A5C43CED2B6E5F35100202D2B6A032B01A57B0B
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196693.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196693.jpgsave_picture_196693.jpg" />
 </div>
 
 

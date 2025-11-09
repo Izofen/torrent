@@ -6,7 +6,7 @@ PilotEdit Lite & Pro 19.0.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104311.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104311.jpgsave_picture_104311.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:A04941EF776CB1DCD026A4C1434F2DF4039E7A9E
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104312.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104312.jpgsave_picture_104312.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:9C70B31B2219EACAA28C12C475A59171E72B6B43
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104313.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104313.jpgsave_picture_104313.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ GeoGebra 6.0.857.0 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104314.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104314.jpgsave_picture_104314.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:FFF70997EA06E08C7136AD71003A59590F874F53
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104315.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104315.jpgsave_picture_104315.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:39EE856CF3FB99EC5D7ADCB0BA937D7C1143DED5
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104316.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104316.jpgsave_picture_104316.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Motorpsycho - Neigh!! (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104317.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104317.jpgsave_picture_104317.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:3CDB4DED3B4FB31346A7CA1CE4D61F1E293C0CD5
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104318.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104318.jpgsave_picture_104318.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:A3591136FDE574C4AFDDC41C2AE3955C47F21DEE
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104319.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104319.jpgsave_picture_104319.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:DE2AB1778B56043B1D14FCF2C5C9625D3CB3C8DF
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104320.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104320.jpgsave_picture_104320.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ Rogga Johansson - Otherworld (2024) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104321.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104321.jpgsave_picture_104321.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ Horcas - El Diablo (2024) [FLAC|Lossless|WEB-DL|tracks] <Thrash, Groove Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104322.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104322.jpgsave_picture_104322.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ Deceased - Children of the Morgue (2024) [FLAC|Lossless|WEB-DL|tracks] <Death, T
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104323.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104323.jpgsave_picture_104323.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ Oceano - Living Chaos (2024) [FLAC|Lossless|WEB-DL|tracks] <Deathcore>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104324.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104324.jpgsave_picture_104324.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ Agrypnie - Erg (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal, Black Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104325.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104325.jpgsave_picture_104325.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ A Killer's Confession - Victim 1 (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <A
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104326.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104326.jpgsave_picture_104326.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ Snow Patrol - The Forest Is The Path (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104327.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104327.jpgsave_picture_104327.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ Victory - Circle of Life (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104328.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104328.jpgsave_picture_104328.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ magnet:?xt=urn:btih:32949240780BD1665426EC3546823C84AE8C2F1E
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104329.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104329.jpgsave_picture_104329.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ magnet:?xt=urn:btih:B5AC9CDF7EC6750BF7BE8AEB49D72B6C8DA2514B
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104330.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104330.jpgsave_picture_104330.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ VA - DJ Hits Vol. 1000 (1997) [OGG Vorbis|480 Kbps] <Electronic, Pop, Eurodance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104331.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104331.jpgsave_picture_104331.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ Sam Smith - Gloria (2023) (Special Edition) [FLAC 24/48|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104332.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104332.jpgsave_picture_104332.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ magnet:?xt=urn:btih:1D499D5BED89D8E8CA2DC5FA72DDF05F6F4CA580
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104333.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104333.jpgsave_picture_104333.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ In Extremo - Wolkenschieber (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Folk M
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104334.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104334.jpgsave_picture_104334.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ Busted - Greatest Hits 2.0 (Another Present For Everyone) (2024) [MP3|320 Kbps] 
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104335.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104335.jpgsave_picture_104335.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ Neil Young - Global Citizen Festival (2012) Live, 2024, Unicorn [MP3|320 Kbps] <
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104336.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104336.jpgsave_picture_104336.jpg" />
 </div>
 
 

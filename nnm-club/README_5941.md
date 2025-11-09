@@ -6,7 +6,7 @@
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187090.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187090.jpgsave_picture_187090.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:F51A12CDCBB86BDAABB75C6C943B4CEC373B00B3
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187091.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187091.jpgsave_picture_187091.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ IObit Uninstaller Pro 13.1.0.3 Portable by  FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187092.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187092.jpgsave_picture_187092.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Viber 21.0.0.0 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_187093.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_187093.jpgsave_picture_187093.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:1FB9CBA0339BBC51EDEECE6E05DAF8EB03CC7A0D
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187094.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187094.jpgsave_picture_187094.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Zoner Photo Studio X 19.2309.2.490 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187095.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187095.jpgsave_picture_187095.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:94B652154DD5C05BD29D347E7E4E8B9A3843841B
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187096.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187096.jpgsave_picture_187096.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Moon+ Reader Pro v8.4 (build 804002) Mod by Balatan, Mixroot,  Lucky Las [Ru/Mul
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187097.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187097.jpgsave_picture_187097.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:EEB9F029D0FD8457C46B0A213E7D4293CFBED564
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187098.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187098.jpgsave_picture_187098.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ TweakNow WinSecret Plus! 4.9.6 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187099.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187099.jpgsave_picture_187099.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Ant Download Manager Pro 2.8.2 Build 83236 (Giveaway) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187100.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187100.jpgsave_picture_187100.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Windows Update Viewer 0.5.21.0 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187101.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187101.jpgsave_picture_187101.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Zoner Photo Studio X 19.2209.2.409 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187102.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187102.jpgsave_picture_187102.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ magnet:?xt=urn:btih:3D2194A13B8CEB436E251CAC28F79C9413B4217D
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187103.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187103.jpgsave_picture_187103.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ magnet:?xt=urn:btih:D5B59582B7A654F6F0339EBCB4AA6FF4B33E5EF2
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187104.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187104.jpgsave_picture_187104.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Glary Utilities Pro 5.211.0.240 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_187105.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_187105.jpgsave_picture_187105.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ Windows and Office Genuine ISO Verifier 11.11.33.22 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187106.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187106.jpgsave_picture_187106.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ magnet:?xt=urn:btih:01A9FD4A8A1B0276EC5C39AF05F8DA63DA8656BF
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187107.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187107.jpgsave_picture_187107.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ LOUNA - Рубикон (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187109.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187109.jpgsave_picture_187109.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ magnet:?xt=urn:btih:1B5428DADEABD167DBBDE515B97068107F8898AB
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187110.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187110.jpgsave_picture_187110.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ magnet:?xt=urn:btih:284AEFF74E030611ADDB7827473F81512A90C700
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187111.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187111.jpgsave_picture_187111.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ MediaHuman YouTube Downloader 3.9.9.85 (1509) RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187112.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187112.jpgsave_picture_187112.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ LOUNA - Рубикон (2022) [MP3|320 Kbps] <Alternative>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187113.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187113.jpgsave_picture_187113.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ magnet:?xt=urn:btih:240EDF9F490D0E90DD0E845FD366E8CA7E8737E9
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187114.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187114.jpgsave_picture_187114.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ magnet:?xt=urn:btih:AB5FA279604613325B0557AEEF73F539E754DDBF
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187115.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187115.jpgsave_picture_187115.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ D.White & DimaD. - The Butterfly Effect (2022) [FLAC|Lossless|WEB-DL|tracks] <It
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187116.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187116.jpgsave_picture_187116.jpg" />
 </div>
 
 

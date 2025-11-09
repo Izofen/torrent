@@ -6,7 +6,7 @@ Warcraft Adventures: Lord of the clans (1998) [Ru] (3.1) Repack Necros
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170947.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170947.jpgsave_picture_170947.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:6191B91FD343355D5F64493AD9700AC244DA8F90
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170948.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170948.jpgsave_picture_170948.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:20189764FC5D50CF37170CBB75ADD0E856BBD435
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170949.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170949.jpgsave_picture_170949.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:29022A3AA4A3A467C39210E61F8C7C21E3D3FB98
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170950.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170950.jpgsave_picture_170950.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:E6C63CF5808EC663DEBFF04741C760AA1276C834
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170951.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170951.jpgsave_picture_170951.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ Sardø - Favorites Collection Part 5 (2025) [MP3|320 Kbps] <Electronic, Vocal>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170952.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170952.jpgsave_picture_170952.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ magnet:?xt=urn:btih:25C1882BE7AE98FBAA80779188AFAB2BF9A65609
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170953.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170953.jpgsave_picture_170953.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:341578507AC9C5F4026DEE0E1D2D218AD9A3D4D4
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170954.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170954.jpgsave_picture_170954.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ Vanced Tube v5.5.80.106 Mod by TRUMods [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170955.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170955.jpgsave_picture_170955.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ Daff Moon Phase (Фазы Луны) v3.49 Mod by shv7net [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170956.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170956.jpgsave_picture_170956.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ Lectera, Lectera | Развитие внимания: как фокусиров�
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170957.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170957.jpgsave_picture_170957.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ Dictionary / Словарь PRO v16 Paid [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170958.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170958.jpgsave_picture_170958.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Gary Bradley | Mastering Adobe Photoshop 2026 (2025) [PDF] [EN]
 >>2D графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170959.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170959.jpgsave_picture_170959.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ magnet:?xt=urn:btih:5E3E292D17AD7447F8089D32CC1A3FE2D404B387
 >>Сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170960.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170960.jpgsave_picture_170960.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ magnet:?xt=urn:btih:D2C17FF52CFF8C6C2BA4C8A5F7B2112C391186D6
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170961.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170961.jpgsave_picture_170961.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Skill.Im, Екатерина Нечипоренко | Visual Basic for Applicati
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170962.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170962.jpgsave_picture_170962.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ MotoGP. Этап 19 из 22. Гран-при Австралии. Гонка (19.
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170963.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170963.jpgsave_picture_170963.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ magnet:?xt=urn:btih:B1DDEAC45207D1C3F91E2B2060ACA77A728ACB7D
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170964.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170964.jpgsave_picture_170964.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ magnet:?xt=urn:btih:C221E77884C86C2EEA5F2109B188AA3DE37B7227
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170965.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170965.jpgsave_picture_170965.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Auslogics BoostSpeed 13.0.0.6 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170966.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170966.jpgsave_picture_170966.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ magnet:?xt=urn:btih:B3EC24816E539EFD06377E54F8EB43E0FBF14276
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170967.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170967.jpgsave_picture_170967.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ VA - Hit News Vol. 1 (1993) [OGG Vorbis|480 Kbps] <Electronic, Euro House>
 >>Eurodance, Euro-House, Technopop
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170968.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170968.jpgsave_picture_170968.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ VA - Sensual Sexy Songs (2023) [MP3|320 Kbps] <Pop, R&b, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170969.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170969.jpgsave_picture_170969.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ ProfiCAD 12.3.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170970.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170970.jpgsave_picture_170970.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ Queen - The Game (1980) 2CD Deluxe Edition, Remaster, 2011, EMI [FLAC|Lossless|W
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170971.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170971.jpgsave_picture_170971.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ Opera One 104.0.4944.33 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170972.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170972.jpgsave_picture_170972.jpg" />
 </div>
 
 

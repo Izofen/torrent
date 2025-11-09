@@ -6,7 +6,7 @@
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177367.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177367.jpgsave_picture_177367.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:C43AB00D5F60CC59DD7C944C44767480C506F955
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177370.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177370.jpgsave_picture_177370.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:C8EB50ACF53E84B7BFC025698C2FCBE573B09B8C
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177372.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177372.jpgsave_picture_177372.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Plus Messenger (Telegram+) v10.1.1.1 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177374.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177374.jpgsave_picture_177374.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:9D3DDCC361D04029623683E8C29A17D6328B68C0
 >>Футбол. Чемпионаты мира
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177375.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177375.jpgsave_picture_177375.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ Photo Lab PRO v3.12.72 Mod by Mixroot, maxi123444 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177378.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177378.jpgsave_picture_177378.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ Money Pro - Personal Finance 2.8.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177380.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177380.jpgsave_picture_177380.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ VA - Music News vol.304 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177382.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177382.jpgsave_picture_177382.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ Seventh Wonder - The Testament (2022) [FLAC|Lossless|image + .cue] <Progressive 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177383.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177383.jpgsave_picture_177383.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ RisohEditor 5.7.8 + portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177387.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177387.jpgsave_picture_177387.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ Drovnin (Юрий Дровнин) - Vintage Circus Heroes (2022) [FLAC|Lossless|
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177388.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177388.jpgsave_picture_177388.jpg" />
 </div>
 
 
@@ -291,7 +291,7 @@ Ellefson-Soto - Vacation In The Underworld (2022) [FLAC|Lossless|image + .cue] <
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177389.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177389.jpgsave_picture_177389.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ magnet:?xt=urn:btih:B0A93981317AB6AED6062D181E74B732178640F2
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177392.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177392.jpgsave_picture_177392.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ magnet:?xt=urn:btih:51134A487A55056CAA523337C31F7E7D8FD8236A
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177393.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177393.jpgsave_picture_177393.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ magnet:?xt=urn:btih:06FFBEF4A8400CE805004DF597DE655635AAAACE
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177396.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177396.jpgsave_picture_177396.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ Art Text 4 v.4.2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177398.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177398.jpgsave_picture_177398.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ Task Office 8.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177400.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177400.jpgsave_picture_177400.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Rainbow - Osaka Live (1978) Broudcast, 2023, Leftfield media [MP3|320 Kbps] <Har
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177402.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177402.jpgsave_picture_177402.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ TapinRadio 2.15.96.6 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177404.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177404.jpgsave_picture_177404.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ magnet:?xt=urn:btih:AA10474FACE30A82E274E6629942FB21A8594E1D
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177405.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177405.jpgsave_picture_177405.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:785BDCB69D98416676E298A8D9CD95FD6D73C461
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177407.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177407.jpgsave_picture_177407.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ magnet:?xt=urn:btih:0EDEA79956DF610319BEB5E7AA5B100C4DC7E825
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177408.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177408.jpgsave_picture_177408.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Gothminister - Empire Of Dark Salvation (2005) [FLAC|Lossless|image + .cue] <Ind
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177410.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177410.jpgsave_picture_177410.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Ant Download Manager Pro 2.10.5 Build 86416 RePack (& Portable) by elchupacabra 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177412.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177412.jpgsave_picture_177412.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ magnet:?xt=urn:btih:434346141A85AFA9593758ACD4F3FADFD0054E7A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177414.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177414.jpgsave_picture_177414.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ magnet:?xt=urn:btih:02814698F06D5E9F23D178B7DCD29E071FCC04B6
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177416.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177416.jpgsave_picture_177416.jpg" />
 </div>
 
 

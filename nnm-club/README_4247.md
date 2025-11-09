@@ -6,7 +6,7 @@ Jorn - Dukebox (2009) [MP3|320 кб/с]<Hard`n`Heavy>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131714.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131714.jpgsave_picture_131714.jpg" />
 </div>
 
 
@@ -39,7 +39,7 @@ Kanista - The Sunlight Channel (2012) [MP3|320 кб/с]<Breakcore, Noise>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131715.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131715.jpgsave_picture_131715.jpg" />
 </div>
 
 
@@ -72,7 +72,7 @@ magnet:?xt=urn:btih:277A4772B49899B0194586B960FF32DA350DCCB5
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131716.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131716.jpgsave_picture_131716.jpg" />
 </div>
 
 
@@ -96,7 +96,7 @@ magnet:?xt=urn:btih:1D28FD521AF74BDAAD72407EFAD83DE2FB4DA4D9
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131717.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131717.jpgsave_picture_131717.jpg" />
 </div>
 
 
@@ -124,7 +124,7 @@ Deep Forest - Burning (2023) [MP3|320 Kbps] <New Age, Electro>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131718.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131718.jpgsave_picture_131718.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Macrorit Disk Scanner 6.7.0 Unlimited Edition RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131720.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131720.jpgsave_picture_131720.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Skogen - 3 Альбома (2009-2012) Дискография [FLAC|Lossless]<Atm
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131721.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131721.jpgsave_picture_131721.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ Skogen - 3 Альбома (2009-2012) Дискография [FLAC|Lossless]<Atm
 >>Зарубежная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131722.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131722.jpgsave_picture_131722.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ magnet:?xt=urn:btih:208AA58A923A19A07866B0CBC05C4B44D6D52F78
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131724.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131724.jpgsave_picture_131724.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ magnet:?xt=urn:btih:2875916E3246F747523B2DB95902A1C40FCA3329
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131725.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131725.jpgsave_picture_131725.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ magnet:?xt=urn:btih:7E97970BC2FA1FC18138B7F30B612B2818E6F49B
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131726.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131726.jpgsave_picture_131726.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ magnet:?xt=urn:btih:7ADF602C13ED042BFC048E9B93EF7B1652D85D56
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131728.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131728.jpgsave_picture_131728.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ magnet:?xt=urn:btih:0E8ABF8EBC8949F74973655A264DB0F294A6B826
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131730.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131730.jpgsave_picture_131730.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Powerage - Branded Skin (1994) [MP3|320 кб/с]<Classic Rock & Hard Rock>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131731.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131731.jpgsave_picture_131731.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ magnet:?xt=urn:btih:B8972A837B79492BDFD3360B1E5351DA30FE4FDC
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131732.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131732.jpgsave_picture_131732.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ magnet:?xt=urn:btih:ED39F67F1958C5922128091E74245B5DEA666750
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131734.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131734.jpgsave_picture_131734.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ magnet:?xt=urn:btih:ED39F67F1958C5922128091E74245B5DEA666750
 >>Звуковые дорожки и субтитры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131735.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131735.jpgsave_picture_131735.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ Jixipix Watercolor Studio 1.4.17 (х64) Portable by Spirit Summer [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131736.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131736.jpgsave_picture_131736.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ magnet:?xt=urn:btih:D11E6B57135136612873BB68001021CCAB5B182B
 >>КВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131737.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131737.jpgsave_picture_131737.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ magnet:?xt=urn:btih:D11E6B57135136612873BB68001021CCAB5B182B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131738.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131738.jpgsave_picture_131738.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Windows 11 Manager 1.3.4 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131740.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131740.jpgsave_picture_131740.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ magnet:?xt=urn:btih:052641447CC62849F6C2E5A10111E96D6791ADB1
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131742.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131742.jpgsave_picture_131742.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ magnet:?xt=urn:btih:4967F46EE122A69D78194E019D6AAFC58A417EB0
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131744.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131744.jpgsave_picture_131744.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ FIFA Manager 13 [Ru/En] (RePack/1.02) 2012 l R.G. Catalyst
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131745.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131745.jpgsave_picture_131745.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ StartAllBack 3.7.0 StartIsBack++ 2.9.19 (2.9.1 for 1607) StartIsBack+ 1.7.6 Star
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131746.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131746.jpgsave_picture_131746.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ Udemy, Samantha Dabrowski | Become a Graphic Designer in the Film Industry (2023
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131748.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131748.jpgsave_picture_131748.jpg" />
 </div>
 
 

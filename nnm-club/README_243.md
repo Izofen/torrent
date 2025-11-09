@@ -6,7 +6,7 @@ Vindicator - Whispers Of Death (2025) [FLAC|Lossless|WEB-DL|tracks] <Thrash Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6397.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6397.jpgsave_picture_6397.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:7B1126EDAB3056D933FC5ED29069AE2FEAE05F56
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6398.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6398.jpgsave_picture_6398.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Benefactor Decease - Abnormal Attachments (2025) [FLAC|Lossless|WEB-DL|tracks] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6399.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6399.jpgsave_picture_6399.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:B8D26A9C2904ED2BBA64DCD767B9EEFB8DB18BF2
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6400.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6400.jpgsave_picture_6400.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:664EC78903A744F63C49A8CEC0D7332509FEE6B9
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6401.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6401.jpgsave_picture_6401.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ magnet:?xt=urn:btih:19B543D674C6F8F810631EE3BA5C3A177F4CB2AA
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6402.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6402.jpgsave_picture_6402.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ magnet:?xt=urn:btih:0293383D72CB42FF1EEA7CA0AAAE3F4187B30486
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6403.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6403.jpgsave_picture_6403.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ Feuerschwanz - Knightclub (2025) Deluxe Version, 2025, Napalm Records Handels Gm
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6404.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6404.jpgsave_picture_6404.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ magnet:?xt=urn:btih:410C9BB79B00317ACE9E090950882357C2121406
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6405.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6405.jpgsave_picture_6405.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ VA - Armin van Buuren - A State Of Trance 1239 (2025) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6406.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6406.jpgsave_picture_6406.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ magnet:?xt=urn:btih:DE698948C1E87727AE8E7660827A277BF951DC82
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6407.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6407.jpgsave_picture_6407.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ magnet:?xt=urn:btih:36441831927CA9E2E3FC0501CF801FE2BBCC7150
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6408.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6408.jpgsave_picture_6408.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ GAEREA - Coma (2024) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6409.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6409.jpgsave_picture_6409.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ magnet:?xt=urn:btih:E3431A328356E61C27962424F30B03CB0EA0CB65
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6410.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6410.jpgsave_picture_6410.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ magnet:?xt=urn:btih:AA988C333C1BA6E5E241F3D25B58DCD1949851DF
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6411.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6411.jpgsave_picture_6411.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ magnet:?xt=urn:btih:30A0FFCFB5CFA1D68826FF2CAE1BFBF20AE22011
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6412.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6412.jpgsave_picture_6412.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Feuerschwanz - Knightclub (2025) Deluxe Version, 2025, Napalm Records Handels Gm
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6413.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6413.jpgsave_picture_6413.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ Rise Against - Ricochet (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Punk Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6414.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6414.jpgsave_picture_6414.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Myrath - Reflections: Best Of (2025) [FLAC 24/44.1, 24/48|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6415.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6415.jpgsave_picture_6415.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Scott LaFaro - Deep In A Dream: Live In 1958 (2012) Pacific Delights [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6416.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6416.jpgsave_picture_6416.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ magnet:?xt=urn:btih:01AE875989B45A189A29B10BDF52262289DAF0F4
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6417.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6417.jpgsave_picture_6417.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ magnet:?xt=urn:btih:D6DD903C767162470D609F67C8DB801BB86B1398
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6418.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6418.jpgsave_picture_6418.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ VA - Ori Uplift - Uplifting Only Episode 654 (2025) [MP3|320 Kbps] <Trance, Upli
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6419.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6419.jpgsave_picture_6419.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ VA - Summer Is Calling - Summer Is Calling, Vol. 1 (2025) [MP3|320 Kbps] <House,
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6420.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6420.jpgsave_picture_6420.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ magnet:?xt=urn:btih:7000E757448400F62DCD6F8B345F236F4D5AD318
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6421.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6421.jpgsave_picture_6421.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ magnet:?xt=urn:btih:E584ED63F0D184E85A2A1C16178717317CB034D7
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6422.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6422.jpgsave_picture_6422.jpg" />
 </div>
 
 

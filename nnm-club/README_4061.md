@@ -6,7 +6,7 @@ Skillbox, Евгений Дмитриев | DevOps-инженер. Docker (2022-
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126161.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126161.jpgsave_picture_126161.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Dead Mount Death Play | Смертельная игра мёртвой горы 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126162.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126162.jpgsave_picture_126162.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:151588AB9375103E93244F382FE35F27CD30FC19
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126163.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126163.jpgsave_picture_126163.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:4669268989BB1ED015D38D1AA756B3F69FBA1A48
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126164.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126164.jpgsave_picture_126164.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:E4655B65C2A120AB6E63F96B00D2C4DA4B8E7EC0
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126165.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126165.jpgsave_picture_126165.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Skillbox, Александр Крупин, Евгений Дмитриев | Dev
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126166.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126166.jpgsave_picture_126166.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ magnet:?xt=urn:btih:D10FC7A666D8BFC2CA75155FC7CA1BC1D4FC1337
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126167.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126167.jpgsave_picture_126167.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ Zom 100: Zombie ni Naru made ni Shitai 100 no Koto | 100 дел, которые 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126168.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126168.jpgsave_picture_126168.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ Skillbox, Илья Феоктистов, Дмитрий Зайцев | Инфр�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126169.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126169.jpgsave_picture_126169.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ magnet:?xt=urn:btih:1E03C1F435D83B178EA5B749FAD9AE901005BE29
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126170.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126170.jpgsave_picture_126170.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ magnet:?xt=urn:btih:D12699AD6B482E9AA2A4CAB1CB10B7880533F3FC
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126171.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126171.jpgsave_picture_126171.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ uTorrent Pro 3.6.0 Build 46984 Stable RePack (& Portable) by Dodakaedr [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126172.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126172.jpgsave_picture_126172.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ magnet:?xt=urn:btih:286EA0CF9B9D5A6F279C9610098D3813BBB7D708
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126173.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126173.jpgsave_picture_126173.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Shah - Fire And Brimstone Collection (2022) [FLAC|Lossless|image + .cue] <Thrash
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126174.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126174.jpgsave_picture_126174.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Junkyard Heights - Junkyard Heights (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126175.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126175.jpgsave_picture_126175.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Nightrider - Into the Future (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126176.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126176.jpgsave_picture_126176.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Horace Silver - 12 Classic Albums (1953 - 1962) 6CD, 2014, Enlightenment [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126177.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126177.jpgsave_picture_126177.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Michel Petrucciani - Date With Time (1991) 1981, Owl Records [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126178.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126178.jpgsave_picture_126178.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ Franco Ambrosetti - Nora (2022) Enja Records [FLAC|Lossless|tracks + .cue] <Post
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126179.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126179.jpgsave_picture_126179.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Critical Heartbeat - Revolution (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <He
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126180.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126180.jpgsave_picture_126180.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Bjorko - Heartrot (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Heavy, Progressi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126181.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126181.jpgsave_picture_126181.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Starchild - Magic Well (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Heavy, Power 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126182.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126182.jpgsave_picture_126182.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Shropshire Collective - For the Children (2023) [FLAC 24/44.1|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126183.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126183.jpgsave_picture_126183.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Shallow Rivers - The Tales Told Under the Willow (2022) [FLAC|Lossless|image + .
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126184.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126184.jpgsave_picture_126184.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ Pedro Botero - Mas Sabe el Diablo (2023) [FLAC|Lossless|WEB-DL|tracks] <AOR, Hea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126185.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126185.jpgsave_picture_126185.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ Simple Stone - Through This Dark (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Har
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126186.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126186.jpgsave_picture_126186.jpg" />
 </div>
 
 

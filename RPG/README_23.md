@@ -6,7 +6,7 @@ Vaporum: Lockdown (2020) [Ru/Multi] (Patch 5) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36536.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36536.jpgsave_picture_36536.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Beloved Rapture (2024) [En] (1.1.8) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36714.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36714.jpgsave_picture_36714.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ V Rising (2024) [Ru/Multi] (1.0.10.1/dlc) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36716.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36716.jpgsave_picture_36716.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Astor: Blade of the Monolith (2024) [Ru/Multi] (1.0) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36804.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36804.jpgsave_picture_36804.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Dragon's Dogma 2 (2024) [Ru/Multi] (1.0.0.1) Repack DjDI
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36832.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36832.jpgsave_picture_36832.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Dread Dawn (2024) [Ru/Multi] (2024.11.17.1029) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36896.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36896.jpgsave_picture_36896.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Wolcen: Lords of Mayhem (2020) [Ru/Multi] (1.1.7.16.12/dlc) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36922.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36922.jpgsave_picture_36922.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Populous™: The Beginning (1998) [En] (1.02/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37056.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37056.jpgsave_picture_37056.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Dawn of the Ashen Queen (2024) [En] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37430.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37430.jpgsave_picture_37430.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Warhammer 40,000: Inquisitor - Martyr (2018) [Ru/Multi] (2.9.4/dlc) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37450.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37450.jpgsave_picture_37450.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Warm Snow (2022) [Ru/Multi] (3.1.0.1/dlc) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37489.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37489.jpgsave_picture_37489.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Deathbound (2024) [Ru/Multi] (1.2.0gf) License GOG [Ultimate Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37531.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37531.jpgsave_picture_37531.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Dustland Delivery (2024) [Multi] (1.20.757) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37643.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37643.jpgsave_picture_37643.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Dungeon Defenders (2011) [Multi] (9.6.1/dlc) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37672.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37672.jpgsave_picture_37672.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ MasterQuest Fantasy (2024) [En] (1.0.5b) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37692.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37692.jpgsave_picture_37692.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ The Life and Suffering of Sir Brante (2021) [Ru/En] (1.05.1) License GOG [Digita
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37731.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37731.jpgsave_picture_37731.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Dust to the End (2020) [Ru/Multi] (1.0.4.3) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37798.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37798.jpgsave_picture_37798.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Sengoku Dynasty (2023) [Ru/Multi] (1.0) Repack seleZen
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37928.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37928.jpgsave_picture_37928.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Atlas Fallen: Reign Of Sand (2023) [Ru/Multi] (1.119040/dlc) Repack LetsPlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38221.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38221.jpgsave_picture_38221.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Dragon Age: The Veilguard (2024) [Ru/Multi] (1.0.0.0/dlc) Repack Other s [Deluxe
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38249.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38249.jpgsave_picture_38249.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Horizon Zero Dawn Remastered (2024) [Ru/Multi] (1.0.38.0) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38466.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38466.jpgsave_picture_38466.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Chrono Ark (2024) [Multi] (1.1) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38515.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38515.jpgsave_picture_38515.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Farmagia (2024) [Multi] (1.0.1/dlc) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38523.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38523.jpgsave_picture_38523.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Horizon Zero Dawn Remastered (2024) [Ru/Multi] (1.0.37.0/1.0.38.0) Repack FitGir
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38550.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38550.jpgsave_picture_38550.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Horizon Zero Dawn Remastered (2024) [Ru/Multi] (1.0.37.0) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38649.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38649.jpgsave_picture_38649.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Dragon Age: The Veilguard (2024) [Ru/Multi] (Build 16179329/dlc) Scene Rune [Del
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38653.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38653.jpgsave_picture_38653.jpg" />
 </div>
 
 

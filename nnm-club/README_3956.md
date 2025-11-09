@@ -6,7 +6,7 @@
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123355.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123355.jpgsave_picture_123355.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Dragon Quest Treasures (2023) [Multi] (20240111/dlc) Scene Tenoke [Digital Delux
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123356.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123356.jpgsave_picture_123356.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:D67FDCF4C7B5E3E21E8A3147FA8EFB443FAF44E9
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123357.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123357.jpgsave_picture_123357.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ EasyUEFI Technician 5.2 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123358.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123358.jpgsave_picture_123358.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:96AF04E5072C46ECAA1DC2B994131D46A9CA182A
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123359.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123359.jpgsave_picture_123359.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:75183ED614917E34E8723C44C5AEB12A948219D0
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123360.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123360.jpgsave_picture_123360.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ MobaXterm 23.6 build 5186 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123361.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123361.jpgsave_picture_123361.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:AEA520AFD407259850F38EA56F8B07E7FFA81417
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123362.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123362.jpgsave_picture_123362.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:E3964C6C6867F84C2A86587F56994E8B34A88705
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123363.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123363.jpgsave_picture_123363.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ Death March kara Hajimaru Isekai Kyousoukyoku | Death March to the Parallel Worl
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123364.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123364.jpgsave_picture_123364.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ ESET Endpoint Antivirus / ESET Endpoint Security 11.0.2032.0 (28.11.2023) RePack
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123365.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123365.jpgsave_picture_123365.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Windows 11 23H2 (22631.3007) x64 (3in1) by Brux [Ru]
 >>Сборки Windows 11
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123368.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123368.jpgsave_picture_123368.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ magnet:?xt=urn:btih:355C5CFE6C2FAA739192CE5B2F038562AEB60978
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123371.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123371.jpgsave_picture_123371.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ magnet:?xt=urn:btih:6F376D468A15A7CF95E2BF7F740B54696D6B77A6
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123372.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123372.jpgsave_picture_123372.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Space Rangers / Космические рейнджеры (2002) [Ru] (1.6) Repa
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123373.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123373.jpgsave_picture_123373.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Pro Cycling Manager 2023 (2023) [Multi] (1.9.0.443) Scene Skidrow
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123374.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123374.jpgsave_picture_123374.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ magnet:?xt=urn:btih:4184572A50CDEDDA05F47CA76991C5B4383E289E
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123376.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123376.jpgsave_picture_123376.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ magnet:?xt=urn:btih:BC163718D78E4E933E22B918E355CD3547BA1F5D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123377.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123377.jpgsave_picture_123377.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ Office Tool Plus 10.6.2.0 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123378.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123378.jpgsave_picture_123378.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Windows 11 Debloater 2.0.1 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123379.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123379.jpgsave_picture_123379.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ magnet:?xt=urn:btih:D5F8A5C5AA313866E6EBF31E8D31A5167C1AEF66
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123381.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123381.jpgsave_picture_123381.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ MiniTool Power Data Recovery 11.8 Full (Standard-Deluxe-Enterprise-Technician) R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123382.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123382.jpgsave_picture_123382.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ magnet:?xt=urn:btih:A86AF988204F49CB6D9476F19026BC473A312F68
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123383.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123383.jpgsave_picture_123383.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ magnet:?xt=urn:btih:C3D724E5911CC52D9CED846BFA54F48EFFDC2DD2
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123384.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123384.jpgsave_picture_123384.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Kruger - Агония (2024) [MP3|320 Kbps] <Thrash Metal>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123385.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123385.jpgsave_picture_123385.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ RJ TextEd 16.10 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123386.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123386.jpgsave_picture_123386.jpg" />
 </div>
 
 

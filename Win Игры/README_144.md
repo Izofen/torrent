@@ -6,7 +6,7 @@ Shadows of Doubt (2024) [Ru/Multi] (39.07) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42054.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42054.jpgsave_picture_42054.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Batbarian: Testament of the Primordials (2020) [Ru/Multi] (1.4.4) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42058.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42058.jpgsave_picture_42058.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Train Sim World 5 (2024) [Ru/Multi] (Build 283/dlc) Repack FitGirl [Special Edit
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42063.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42063.jpgsave_picture_42063.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Remnant II (2) (2023) [Ru/Multi] (444.163/dlc) Repack FitGirl [Ultimate Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42070.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42070.jpgsave_picture_42070.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Isles of Sea and Sky (2024) [Ru/Multi] (1.2a) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42077.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42077.jpgsave_picture_42077.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Paper Ghost Stories: Third Eye Open (2024) [Multi] (1.4) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42079.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42079.jpgsave_picture_42079.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Mechabellum (2023) [Ru/Multi] (1.0.0.4.1366) Repack FitGirl
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42088.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42088.jpgsave_picture_42088.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ GOAL! The Club Manager (2022) [Multi] (0.8.0.1) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42091.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42091.jpgsave_picture_42091.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Tiny Glade (2024) [Ru/Multi] (1.8.0a) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42104.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42104.jpgsave_picture_42104.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Farewell North (2024) [Multi] (1.1.2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42105.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42105.jpgsave_picture_42105.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ magnet:?xt=urn:btih:6131F1F654FCCFFAE20537F7AE3965793027943B
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42119.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42119.jpgsave_picture_42119.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Disney Epic Mickey: Rebrushed (2024) [Multi] (15745129/dlc) Scene FairLight
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42125.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42125.jpgsave_picture_42125.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Star Trucker (2024) [Ru/Multi] (1.0.41.0/dlc) Repack Wanterlude
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42130.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42130.jpgsave_picture_42130.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Ravenswatch (2023) [Ru/Multi] (1.00.01.01.25883) Scene Rune
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42134.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42134.jpgsave_picture_42134.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Iron Meat (2024) [Ru/Multi] (1.0.2) Scene SKIDROW
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42142.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42142.jpgsave_picture_42142.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Frontier Hunter: Erza's Wheel of Fortune / Пограничный охотник
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42147.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42147.jpgsave_picture_42147.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Creatures of Ava (2024) [Ru/Multi] (1.0.2.2/dlc) License GOG [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42152.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42152.jpgsave_picture_42152.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Last Epoch (2024) [Ru/Multi] (1.1.7.4/dlc) Repack Wanterlude
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42158.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42158.jpgsave_picture_42158.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Mechabellum (2023) [Ru/Multi] (1.0.0.4.1366) Scene Rune
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42159.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42159.jpgsave_picture_42159.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Lords and Villeins (2021) [Ru/Multi] (1.6.14/dlc) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42170.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42170.jpgsave_picture_42170.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ The Casting of Frank Stone (2024) [Ru/Multi] (Build 15770319/dlc) Repack Decepti
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42171.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42171.jpgsave_picture_42171.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Hadean Tactics (2023) [Multi] (1.1.13) Scene Tenoke
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42172.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42172.jpgsave_picture_42172.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ NARUTO X BORUTO Ultimate Ninja STORM CONNECTIONS (2023) [Ru/Multi] (1.50/dlc) Sc
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42173.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42173.jpgsave_picture_42173.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Broken Sword 5: The Serpent's Curse (2014) [Ru/Multi] (3.0.5) License GOG [Episo
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42176.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42176.jpgsave_picture_42176.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Plank Builders (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42213.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42213.jpgsave_picture_42213.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Ara: History Untold (2024) [Ru/Multi] (1.0.0.316/dlc) Repack Wanterlude
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42313.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42313.jpgsave_picture_42313.jpg" />
 </div>
 
 

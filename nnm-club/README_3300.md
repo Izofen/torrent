@@ -6,7 +6,7 @@ PrivaZer Pro 4.0.91 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106161.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106161.jpgsave_picture_106161.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ VA - Rock Klassiker (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106162.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106162.jpgsave_picture_106162.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ VA - Armin van Buuren - A State Of Trance 1183 (2024) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106163.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106163.jpgsave_picture_106163.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ VA - Don't Stop the Rock! (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106164.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106164.jpgsave_picture_106164.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ magnet:?xt=urn:btih:E21AF164535184E967D56CE8155FE8E63B08620B
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106165.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106165.jpgsave_picture_106165.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ magnet:?xt=urn:btih:9307BD0CF48AF71E78649D94FD040A65963B1F50
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106166.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106166.jpgsave_picture_106166.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ Schwarzer Engel - Höhere Gewalt (2024) [FLAC|Lossless|WEB-DL|tracks] <Industria
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106167.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106167.jpgsave_picture_106167.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ Status Quo - Official Archive Series Vol. 3: Live at Westonbirt Arboretum 2008  
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106168.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106168.jpgsave_picture_106168.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ magnet:?xt=urn:btih:A26AFAF68F8F406E839610E55A8B48A83604897D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106169.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106169.jpgsave_picture_106169.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ VA - Top Summer Uplifting 2024 (2024) [MP3|320 Kbps] <Trance, Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106170.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106170.jpgsave_picture_106170.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ VA - Golf Cart Mixtape: Classic Rock (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106171.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106171.jpgsave_picture_106171.jpg" />
 </div>
 
 
@@ -291,7 +291,7 @@ magnet:?xt=urn:btih:CF7A663019E81E7AA7D67BE48DBFBF699354086D
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106172.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106172.jpgsave_picture_106172.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Nautilus - Pacific Voyage (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106173.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106173.jpgsave_picture_106173.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Soulbound - obsYdian (2024) [FLAC|Lossless|WEB-DL|tracks] <Industrial Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106174.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106174.jpgsave_picture_106174.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Bill Evans - New Conversations (1978) 2014, Warner [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106175.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106175.jpgsave_picture_106175.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Sugar Bytes - DrumComputer 1.3.4 Standalone, VSTi, VSTi 3, AAX (x64) RePack by T
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106176.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106176.jpgsave_picture_106176.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Perfectly Clear Workbench 4.6.1.2680 + AddonsPack Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106177.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106177.jpgsave_picture_106177.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Ghost - Rite Here Rite Now (2024) Original Motion Picture Soundtrack [FLAC 24/48
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106178.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106178.jpgsave_picture_106178.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Draw.io 24.7.5 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106179.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106179.jpgsave_picture_106179.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ VA - Adventurous Moments Serenity and Charm Vacation Playlist (2024) [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106180.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106180.jpgsave_picture_106180.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ PrivaZer Pro 4.0.91 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106181.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106181.jpgsave_picture_106181.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ Radiant Photo 1.4.1.501 Portable by 7997 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106182.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106182.jpgsave_picture_106182.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ Green Grey - Greatest Hits (2014) [WavPack|Lossless|image + .cue] <Alternative R
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106183.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106183.jpgsave_picture_106183.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ Stratovarius - Heroes (2024) EP [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Metal, Sy
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106184.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106184.jpgsave_picture_106184.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ magnet:?xt=urn:btih:AAEDAF59FBB2E20FF5B6396E9BB5C5964AD032B6
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106185.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106185.jpgsave_picture_106185.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ VA - Balatonica Chillout: Summer Edition 2024 (2024) [MP3|320 Kbps] <Downtempo, 
 >>Downtempo, Trip-Hop, Lounge
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106186.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106186.jpgsave_picture_106186.jpg" />
 </div>
 
 

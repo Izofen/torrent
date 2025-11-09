@@ -6,7 +6,7 @@ JetBrains PyCharm Professional 2024.3 (x64-arm64) Repack by Sitego [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36938.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36938.jpgsave_picture_36938.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Sublime Text 4 Build 4180 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42391.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42391.jpgsave_picture_42391.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Microsoft .NET 6.0.33 Runtime [Ru/En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44236.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44236.jpgsave_picture_44236.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Microsoft .NET 8.0.8 Runtime [Ru/En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44253.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44253.jpgsave_picture_44253.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ JetBrains Aqua 2024.2 Repack by Sitego [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44256.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44256.jpgsave_picture_44256.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Resource Tuner Business 2.24 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51413.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51413.jpgsave_picture_51413.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Resource Tuner Business 2.24 Portable by FC Portables [Multi/Ru]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53771.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53771.jpgsave_picture_53771.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ Microsoft .NET 7.0.20 Runtime [Ru/En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55003.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55003.jpgsave_picture_55003.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ Microsoft Edge WebView2 Runtime 1.3.187.37 [Ru]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55051.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55051.jpgsave_picture_55051.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ Java SE Development Kit 17.0.11 LTS [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59182.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59182.jpgsave_picture_59182.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ Java SE Development Kit 21.0.3 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59208.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59208.jpgsave_picture_59208.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ Java SE Development Kit 22.0.1 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59229.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59229.jpgsave_picture_59229.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Interbase 2020 Update 5 14.5.0.864 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61856.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61856.jpgsave_picture_61856.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Borland InterBase 7.5.1 SP1 [English]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81545.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81545.jpgsave_picture_81545.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ CodeVisionAVR V2.05.3 [Английский]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84014.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84014.jpgsave_picture_84014.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ Bascom AVR 2.0.7.1 [Английский и Русский]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84215.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84215.jpgsave_picture_84215.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ JetBrains GoLand 2025.2.3 (x64-arm64) Repack by Sitego [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94626.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94626.jpgsave_picture_94626.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ JetBrains DataGrip 2025.2.4 (x64-arm64) Repack by Sitego [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94627.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94627.jpgsave_picture_94627.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Jetbrains IntelliJ IDEA Ultimate 2025.2.3 (x64-arm64) Repack by Sitego [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94628.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94628.jpgsave_picture_94628.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ JetBrains PhpStorm 2025.2.3 (x64-arm64) Repack by Sitego [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94631.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94631.jpgsave_picture_94631.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ JetBrains PyCharm Professional 2025.2.3 (x64-arm64) Repack by Sitego [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94633.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94633.jpgsave_picture_94633.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ JetBrains RubyMine 2025.2.3 (x64-arm64) Repack by Sitego [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94635.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94635.jpgsave_picture_94635.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Jetbrains WebStorm 2025.2.3 (x64-arm64) Repack by Sitego [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_94637.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_94637.jpgsave_picture_94637.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ JetBrains CLion 2025.2.3 Repack by Sitego [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94639.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94639.jpgsave_picture_94639.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ SQL Dynamite 2.5.2.4 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101649.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101649.jpgsave_picture_101649.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ FileMaker 20.3.2.201 [Multi/Ru]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116245.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116245.jpgsave_picture_116245.jpg" />
 </div>
 
 

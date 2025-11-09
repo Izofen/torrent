@@ -6,7 +6,7 @@ Badery - Reminiscence (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162582.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162582.jpgsave_picture_162582.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Angel Tyrs - Lost (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162584.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162584.jpgsave_picture_162584.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - Metal Love Songs (2022) [FLAC|Lossless|WEB-DL|tracks] <Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162606.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162606.jpgsave_picture_162606.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Carnifex - Necromanteum (2023) [FLAC|Lossless|tracks + .cue] <Deathcore>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162613.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162613.jpgsave_picture_162613.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ VA - Rock/Metal (2022) [FLAC|Lossless|WEB-DL|tracks] <Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162620.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162620.jpgsave_picture_162620.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Black Hornet - Remove Before Flight (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard R
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162621.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162621.jpgsave_picture_162621.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ VA - The Metal Rock Summer Festival (2022) [FLAC|Lossless|WEB-DL|tracks] <Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162622.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162622.jpgsave_picture_162622.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Acceso Norte - Shadows of Pain (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162624.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162624.jpgsave_picture_162624.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Sonic Dynamite - Another World (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Har
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162626.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162626.jpgsave_picture_162626.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Cirkus Prutz - Blues Revolution (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock,
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162640.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162640.jpgsave_picture_162640.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Balls Gone Wild - Stay Wild (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162648.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162648.jpgsave_picture_162648.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Elle King - Love Stuff + The Elle King EP (2016)  [FLAC|Lossless|tracks + .cue] 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162656.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162656.jpgsave_picture_162656.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Masser - Chain Of Gifts (2022) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162689.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162689.jpgsave_picture_162689.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Cage - Science Of Annihilation: Re-Annihilated (2019) [FLAC|Lossless|image + .cu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162750.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162750.jpgsave_picture_162750.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Chris Norman - Just A Man (2021) [FLAC|Lossless|image + .cue] <Pop-Rock, Soft Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162830.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162830.jpgsave_picture_162830.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Beartooth - Aggressive (2016) Remixed, Remastered, 2020, Red Bull Records [MP3|3
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162852.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162852.jpgsave_picture_162852.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ VA - Anthologie Du Twist Francais 1961-1962 (2017) 3CD [MP3|320 Kbps] <Rock, Pop
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162869.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162869.jpgsave_picture_162869.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Sweet - Isolation Boulevard (2020) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162885.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162885.jpgsave_picture_162885.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:09A656996ABACA69F595203FFE46E33E869A0C3C
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162901.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162901.jpgsave_picture_162901.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Paul McCartney - McCartney III (2020) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162907.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162907.jpgsave_picture_162907.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ ADX - Etranges Visions (2021) [WavPack|Lossless|image + .cue] <Heavy Metal, Spee
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162981.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162981.jpgsave_picture_162981.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Dire Straits - Live 1978 - 1992 (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163025.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163025.jpgsave_picture_163025.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ magnet:?xt=urn:btih:84E8804374FD5C9144C00F2257B0296659E39F80
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163051.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163051.jpgsave_picture_163051.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Bring Me the Horizon - Live at the Royal Albert Hall (2020) [FLAC|Lossless|track
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163059.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163059.jpgsave_picture_163059.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ Till Lindemann - Zunge (2023) [FLAC|Lossless|WEB-DL|tracks] <Industrial Metal, n
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163064.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163064.jpgsave_picture_163064.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ A Sound of Thunder - Parallel Eternity (2020) [MP3|320 Kbps] <Symphonic-Power-He
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163120.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163120.jpgsave_picture_163120.jpg" />
 </div>
 
 

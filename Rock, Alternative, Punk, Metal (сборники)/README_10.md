@@ -6,7 +6,7 @@ Deep Purple - Live Archive 1972 Vol. 1 (1972) 7CD  [MP3|320 Kbps] <Rock, Hard Ro
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237715.jpgsave_picture_237715.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Rock Classics (2022) [MP3|320 Kbps] <Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239872.jpgsave_picture_239872.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Gary Moore - Compilation (2022) [MP3|320 Kbps] <Rock, Blues Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240837.jpgsave_picture_240837.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Rainbow - The Platinum Collection (2019) 3CD [MP3|320 Kbps] <Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241512.jpgsave_picture_241512.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ VA - Flower Power - Children of Flowers Best Of (2023) [MP3|320 Kbps] <Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242220.jpgsave_picture_242220.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ VA - Советская Психоделика 1970-80х (1988) [MP3|320 Kbps] <
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243867.jpgsave_picture_243867.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Kingdom Come - Collection (2022) [MP3|320 Kbps] <Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243938.jpgsave_picture_243938.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Europe - Collection (2022) [MP3|320 Kbps] <Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244896.jpgsave_picture_244896.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Cinderella - Collection (2022) [MP3|320 Kbps] <Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245764.jpgsave_picture_245764.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:2E845487F04B56F49F73E7403BD3F010135420C7
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249280.jpgsave_picture_249280.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ Bryan Adams - Collection (2022) [MP3|320 Kbps] <Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249622.jpgsave_picture_249622.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ VA - Best Russian Echoes of Screamo.vol. 14 (2025) Compilation [MP3|320 Kbps] <A
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250603.jpgsave_picture_250603.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ magnet:?xt=urn:btih:CDFC5E56497C547F2C4DEA79309EF35486EDEC38
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250653.jpgsave_picture_250653.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ magnet:?xt=urn:btih:F057434F057F677D8107B69F24090CEB80D64192
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251013.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251013.jpgsave_picture_251013.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ magnet:?xt=urn:btih:555654EC7AB70C759C0068163217B79FB602F218
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251061.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251061.jpgsave_picture_251061.jpg" />
 </div>
 
 

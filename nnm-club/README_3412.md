@@ -6,7 +6,7 @@ Lenny Kravitz - Blue Electric Light (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109073.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109073.jpgsave_picture_109073.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Lenny Kravitz - Blue Electric Light (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109074.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109074.jpgsave_picture_109074.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:CAEBE026D6CFF565251A6261D605EB41193D8415
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109075.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109075.jpgsave_picture_109075.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ VA - Organica 2024 (Compiled by Marga Sol) [FLAC|Lossless|WEB-DL|tracks] <Organi
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109076.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109076.jpgsave_picture_109076.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ magnet:?xt=urn:btih:392B7DC26A414F78005231283DCFCA3DB24FA2C4
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109077.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109077.jpgsave_picture_109077.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ puzzlebrain, Ильгизар Зинатов | Как подготовить р�
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109078.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109078.jpgsave_picture_109078.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:AF9C0A9B9FDBFF920CCDF7E693B5D018D44D2360
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109079.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109079.jpgsave_picture_109079.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ Big Special - Postindustrial Hometown Blues (2024) [FLAC 24/44.1|Lossless|WEB-DL
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109080.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109080.jpgsave_picture_109080.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ Rusthead - Gear Up (2024) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109081.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109081.jpgsave_picture_109081.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ PhotoRoom 4.9.6 (b1403) Mod by derrin [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109082.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109082.jpgsave_picture_109082.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ Moon Shot - The Power (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109083.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109083.jpgsave_picture_109083.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ This - Impulsive (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109084.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109084.jpgsave_picture_109084.jpg" />
 </div>
 
 
@@ -315,7 +315,7 @@ magnet:?xt=urn:btih:070BE442D77C03CAC3474AEAECC0374EDB5FFD35
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109085.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109085.jpgsave_picture_109085.jpg" />
 </div>
 
 
@@ -340,7 +340,7 @@ Simon Lasky Group - For the Dreamers (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109086.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109086.jpgsave_picture_109086.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ Ricky Ford - Hot Brass (1992) Candid [FLAC|Lossless|tracks + .cue] <Post-Bop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109087.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109087.jpgsave_picture_109087.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ Malachi Thompson - 47th Street (1997) Delmark Records [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109088.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109088.jpgsave_picture_109088.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ Superblue - Superblue (1989) Blue Note [FLAC|Lossless|tracks + .cue] <Post-Bop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109089.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109089.jpgsave_picture_109089.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ A Bad Think - X (2022) Remaster, 2024, Windmark Records [FLAC 24/96|Lossless|WEB
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109090.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109090.jpgsave_picture_109090.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ magnet:?xt=urn:btih:F35F81A2C96DD52A0C81FA8644D9EAA2F4306B53
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109091.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109091.jpgsave_picture_109091.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ BurnAware Free 17.8 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109092.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109092.jpgsave_picture_109092.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ VA - EDM Deejay Compilation 2024 (2024) [MP3|320 Kbps] <Dance, Club, House, Elec
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109093.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109093.jpgsave_picture_109093.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ Jazz L’Amour - Erotic Jazz 2024 [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109094.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109094.jpgsave_picture_109094.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ magnet:?xt=urn:btih:CC9347583DCC926BB9CE9EB7CE707F55584AA9DE
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109095.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109095.jpgsave_picture_109095.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ VA - Fulltime Production Electro 80, Vol. 3 (2013) [FLAC|Lossless|WEB-DL|tracks]
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109096.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109096.jpgsave_picture_109096.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ magnet:?xt=urn:btih:81148E9CE6B6087666CADE3872EA5A36D3EC0C97
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109097.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109097.jpgsave_picture_109097.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ Soul Browser 1.4.21 Mod by youarefinished [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109098.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109098.jpgsave_picture_109098.jpg" />
 </div>
 
 

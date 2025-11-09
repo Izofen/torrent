@@ -6,7 +6,7 @@ The Vintage Caravan - The Monuments Tour (2023) [FLAC 24/44.1|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173251.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173251.jpgsave_picture_173251.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Heavy Load - Riders of the Ancient Storm (2023) [FLAC 24/96|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173252.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173252.jpgsave_picture_173252.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Creeper - Sanguivore (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Britpop, Glam R
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173254.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173254.jpgsave_picture_173254.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Seal - Studio Albums (10 releases) (1991-2017) hand made [restored, declipped] [
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173410.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173410.jpgsave_picture_173410.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Creedence Clearwater Revival - 1968-1969 (1978) 2LP [FLAC 2.0|192/24|image + .cu
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173783.jpgsave_picture_173783.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ magnet:?xt=urn:btih:7CFCC2E0C2D272E01C5CF01265553FCC60E3C261
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173817.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173817.jpgsave_picture_173817.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ magnet:?xt=urn:btih:E42C9CABBE7ABF5E978735361F8B64F80FACE9D6
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173820.jpgsave_picture_173820.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ John Lennon - Imagine (1971) The Elements Mixes, 2023, UMC [FLAC 24/96|Lossless|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173945.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173945.jpgsave_picture_173945.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ John Lennon - Imagine (1971) The Raw Studio Mixes, 2023, UMC [FLAC 24/96|Lossles
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173960.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173960.jpgsave_picture_173960.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Ronnie Atkins - Trinity (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174070.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174070.jpgsave_picture_174070.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Living Dead Girl - Exorcism (2021) Deluxe Edition, 2023, Buried Alive Records [F
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174097.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174097.jpgsave_picture_174097.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Fraction - Moon Blood (1971) Reissue, 2023, RidingEasy Records [FLAC 24/44.1|Los
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174113.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174113.jpgsave_picture_174113.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ VA - Ленинградский Рок-клуб (1988) Записи 1986 - 1987 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174233.jpgsave_picture_174233.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ magnet:?xt=urn:btih:03F9CAB8636D6D22AA648427F2C0004401111BE3
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174595.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174595.jpgsave_picture_174595.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Arabs In Aspic - Arabs In Aspic - 4 Albums (2020-2022) [FLAC 24/44.1/48|Lossless
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175276.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175276.jpgsave_picture_175276.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Tardigrade Inferno - Burn the Circus (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175321.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175321.jpgsave_picture_175321.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ magnet:?xt=urn:btih:1340F88A08569D9138EB509C75138F9238CC1D03
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175328.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175328.jpgsave_picture_175328.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Trivium - Vengeance Falls (2013) Remaster, 2023, Road Runner Entertainment [FLAC
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175367.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175367.jpgsave_picture_175367.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Behind the Scenery - Studio Albums (3 releases) (1997-2004) hand made [restored,
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175410.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175410.jpgsave_picture_175410.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Extrema - Tension At The Seams (2007) 30th Anniversary Edition, 2023, Extrematea
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175449.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175449.jpgsave_picture_175449.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ Dismember - Death Metal (1997) Remaster, 2023, Nuclear Blast Records [FLAC 24/44
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175455.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175455.jpgsave_picture_175455.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Puhdys - Puhdys 11: Computer-Karriere (1983) [FLAC 2.0|192/24|image +.cue|Vinyl-
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175788.jpgsave_picture_175788.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ magnet:?xt=urn:btih:70E8ADA202400372300268E368776B0D80B8EE7C
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175816.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175816.jpgsave_picture_175816.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ magnet:?xt=urn:btih:F4F53475C29521308E5A9B4D730B069AD716F07D
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175880.jpgsave_picture_175880.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Joe Lynn Turner - Studio Albums (11 releases) (1985 - 2022) hand made [restored,
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176042.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176042.jpgsave_picture_176042.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Vanishing Twin - Afternoon X (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Indie
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176068.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176068.jpgsave_picture_176068.jpg" />
 </div>
 
 

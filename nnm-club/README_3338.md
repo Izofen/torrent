@@ -6,7 +6,7 @@
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107149.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107149.jpgsave_picture_107149.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:DC6790624DF3D6CBF4952CD336EF3F886E53AB96
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107150.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107150.jpgsave_picture_107150.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:8FDF3DFB2F7CDCCE127324ED2FC2F8357B45B7DC
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107151.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107151.jpgsave_picture_107151.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ VA - NOW That's What I Call A Summer Party (2024)  4CD [MP3|320 Kbps] <Pop, Rock
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107152.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107152.jpgsave_picture_107152.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ RadioMaximus 2.33.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107153.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107153.jpgsave_picture_107153.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:253D189F47B93DC81B9842437645DEFE4965A519
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107154.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107154.jpgsave_picture_107154.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ RAM Saver Professional 24.7 Portable by FC Portables [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107155.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107155.jpgsave_picture_107155.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ HDCleaner 2.075 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107156.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107156.jpgsave_picture_107156.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ VA - DJ Hits Vol. 133 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Euro
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107157.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107157.jpgsave_picture_107157.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ Billie Piper - Something Deep Inside (2020) Remaster, 2024, Virgin Records[FLAC|
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107158.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107158.jpgsave_picture_107158.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ Altered Five Blues Band - Testifyin' (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107159.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107159.jpgsave_picture_107159.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ Karen Lawrence - The Blues Is Back (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107160.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107160.jpgsave_picture_107160.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ Grand Causse - Sauvages Celestes (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107161.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107161.jpgsave_picture_107161.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ BRTHR - Brother (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues, Soul>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107162.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107162.jpgsave_picture_107162.jpg" />
 </div>
 
 
@@ -365,7 +365,7 @@ magnet:?xt=urn:btih:FC0234D017DE9CF29675FEF6DB82458E09226055
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107163.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107163.jpgsave_picture_107163.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ Kaipa - Sommargryningsljus (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Symphon
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107164.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107164.jpgsave_picture_107164.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ Berk Jodoin - Fly Away (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107165.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107165.jpgsave_picture_107165.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ Knut Nordhagen & Bluepack - Maximum R & B (2024) [FLAC|Lossless|WEB-DL|tracks] <
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107166.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107166.jpgsave_picture_107166.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ Daniele Perrino - The Soot Songs (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107167.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107167.jpgsave_picture_107167.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ magnet:?xt=urn:btih:029E69CE76B71C2FCC0DD2313C22577D8B4A2BB1
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107168.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107168.jpgsave_picture_107168.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ Gena Lanette - Hell or High Winds (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107169.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107169.jpgsave_picture_107169.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Corey Harris - Chicken Man (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107170.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107170.jpgsave_picture_107170.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Cole & Ward - Blues and Other Truths (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107171.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107171.jpgsave_picture_107171.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Lennie Tristano, Lee Konitz & Warne Marsh - The Complete Atlantic Recordings (19
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107172.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107172.jpgsave_picture_107172.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ magnet:?xt=urn:btih:25C5713FA0F83F351E010E1E0A1CEA752F67323D
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107173.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107173.jpgsave_picture_107173.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ magnet:?xt=urn:btih:6A0AA15C41F80AA8AF4DDF027D76E5BC920C3734
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107174.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107174.jpgsave_picture_107174.jpg" />
 </div>
 
 

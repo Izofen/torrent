@@ -6,7 +6,7 @@ Sonic Symphony - (4CD) (2009-2012) [MP3|320 кб/с]<Trailer music,Soundtrack, I
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83357.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83357.jpgsave_picture_83357.jpg" />
 </div>
 
 
@@ -39,7 +39,7 @@ magnet:?xt=urn:btih:E44A8893E22327219CBD73947863553AC8378133
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83358.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83358.jpgsave_picture_83358.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ magnet:?xt=urn:btih:E44A8893E22327219CBD73947863553AC8378133
 >>Кинолетопись Страны Советской
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83359.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83359.jpgsave_picture_83359.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ VA - Русская плясовая (2012) [MP3|320 кб/с]<folk/dance/instrum
 >>Folk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83360.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83360.jpgsave_picture_83360.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ magnet:?xt=urn:btih:AC57F6485DD00661DB4E54EB43629161E41EB41B
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83361.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83361.jpgsave_picture_83361.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ magnet:?xt=urn:btih:FDCB6BBA7105F157AE4C4ED2D22F0E78EC149E7D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83363.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83363.jpgsave_picture_83363.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Dustforce [En] (RePack) 2012 | Anonymous
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83364.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83364.jpgsave_picture_83364.jpg" />
 </div>
 
 
@@ -187,7 +187,7 @@ Counter-Strike 1.6 [Ru] (RePack/20.03.2012) 2000 | NetTomsk
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83365.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83365.jpgsave_picture_83365.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ magnet:?xt=urn:btih:CB9EEA37D23B1FFD599701E60E30A48F98B38EE1
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83366.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83366.jpgsave_picture_83366.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ Microsoft Windows 7 AIO SP1 x64 Integrated March 2012 Russian - CtrlSoft (Rus) (
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83368.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83368.jpgsave_picture_83368.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ Microsoft Windows 7 AIO SP1 x64 Integrated March 2012 Russian - CtrlSoft (Rus) (
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83369.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83369.jpgsave_picture_83369.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ magnet:?xt=urn:btih:AFC372892E78F3FAE43BFD414DA4B7EDE60521B6
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83370.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83370.jpgsave_picture_83370.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ magnet:?xt=urn:btih:A57F910E1F65663F7DD7213C205EE3701E3BD59B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83371.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83371.jpgsave_picture_83371.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ magnet:?xt=urn:btih:A57F910E1F65663F7DD7213C205EE3701E3BD59B
 >>Рыбалка и Охота
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83372.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83372.jpgsave_picture_83372.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ magnet:?xt=urn:btih:6FA22C981AE324C02A6CCED1423F84650122E200
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83373.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83373.jpgsave_picture_83373.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ Microsoft.Windows.7.AIO.SP1.x86.Integrated.March.2012.Russian - CtrlSoft (Rus) (
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83374.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83374.jpgsave_picture_83374.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Microsoft.Windows.7.AIO.SP1.x86.Integrated.March.2012.Russian - CtrlSoft (Rus) (
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83376.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83376.jpgsave_picture_83376.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Mabinogi Fantasy Life (L) [En] 2008
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83378.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83378.jpgsave_picture_83378.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ magnet:?xt=urn:btih:7FA19CDA7C6A21B4A6BC46457AA802691D7D180C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83379.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83379.jpgsave_picture_83379.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ magnet:?xt=urn:btih:D929A6D04EAF669F6289AFDCF589E8166E7A225A
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83381.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83381.jpgsave_picture_83381.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ magnet:?xt=urn:btih:FC64F5E325C20B070A6EFF0A9FFA2C20475C8069
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83382.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83382.jpgsave_picture_83382.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ magnet:?xt=urn:btih:FC64F5E325C20B070A6EFF0A9FFA2C20475C8069
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83383.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83383.jpgsave_picture_83383.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Keywords: дневник, app, diary, note, memo, journal, secure, notepad.(   �
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83384.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83384.jpgsave_picture_83384.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Keywords: дневник, app, diary, note, memo, journal, secure, notepad.(   �
 >>18
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83385.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83385.jpgsave_picture_83385.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Allods Online Astral Demons / Аллоды Онлайн Astral Demons [Ru] (P) 2
 >>Online (MMO)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83386.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83386.jpgsave_picture_83386.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ magnet:?xt=urn:btih:11901EA3DCE89B6DD8731862F45164536E10BA08
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83388.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83388.jpgsave_picture_83388.jpg" />
 </div>
 
 

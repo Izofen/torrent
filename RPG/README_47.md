@@ -6,7 +6,7 @@ Darkest Dungeon II (2023) [Ru/Multi] (2.04.80648/dlc) Repack Necros
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230618.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230618.jpgsave_picture_230618.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Birthright: The Gorgon's Alliance / Страна Героев (1997) [Ru] (1.3) 
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233314.jpgsave_picture_233314.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Birthright: The Gorgon's Alliance / Право на Жизнь: Союз Гор�
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233451.jpgsave_picture_233451.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Legend of Grimrock 2 (2014) [En] (2.2.4) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234642.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234642.jpgsave_picture_234642.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Eldest Souls (2021) [Ru/Multi] (1.1.23f2-master) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237068.jpgsave_picture_237068.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ The Swindle (2015) [En] (1.061) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243869.jpgsave_picture_243869.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ The Valiant (2022) [Ru/Multi] (1.5c) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246737.jpgsave_picture_246737.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ God of War (2022) [Ru/Multi] (1.0.13) Repack dixen18
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246956.jpgsave_picture_246956.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Out There: Oceans of Time (2022) [Ru/Multi] (1.2.1.2) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247446.jpgsave_picture_247446.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Citizen Sleeper 2 Starward Vector (2025) [Ru/Multi] (1.2.21/dlc) Repack Let'sРl
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248545.jpgsave_picture_248545.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Those Who Rule (2025) [En] (1.4.2) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250339.jpgsave_picture_250339.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Smalland: Survive the Wilds (2024) [Ru/Multi] (2.1.1) Repack Necros
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250517.jpgsave_picture_250517.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ DELTARUNE (2025) [Ru/Multi] (1.04) Repack Necros
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251701.jpgsave_picture_251701.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Rise Eterna II (2) (2025) [Multi] (20251003) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_251789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251789.jpgsave_picture_251789.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ The Lord of the Rings: Gollum (2023) [Ru/Multi] (0.2.51064) Scene FAIRLIGHT
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251836.jpgsave_picture_251836.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Star Wars: Knights of the Old Republic 2 (II): The Sith Lords (2005) [Multi] (1.
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251879.jpgsave_picture_251879.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ The Lord of the Rings: Gollum (2023) [Ru/Multi] (0.2.51064/dlc) Repack DjDI [Pre
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252004.jpgsave_picture_252004.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Greedventory (2023) [Multi] (1.0.2) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252123.jpgsave_picture_252123.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ The Witcher 2: Assassins of Kings / Ведьмак 2: Убийцы короле�
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252171.jpgsave_picture_252171.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Sunless Sea (2015) [En] (2.2.11.3212/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252252.jpgsave_picture_252252.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Mortal Sin (2023) [Ru/Multi] (1.02) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252274.jpgsave_picture_252274.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ HYKE: Northern Light(s) (2025) [Ru/Multi] (1.0.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252288.jpgsave_picture_252288.jpg" />
 </div>
 
 

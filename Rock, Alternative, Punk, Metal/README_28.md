@@ -6,7 +6,7 @@ Nevergreen - Harag es remeny (2024) [FLAC|Lossless|WEB-DL|tracks] <Gothic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37296.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37296.jpgsave_picture_37296.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Billy Idol - Rebel Yell 2.0 - The Remixes (1983) Remixes, 2024, UME [FLAC|Lossle
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37308.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37308.jpgsave_picture_37308.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Ahab - Collection (2006 - 2023) 6 CD [FLAC|Lossless|image + .cue] <Funeral Doom 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37332.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37332.jpgsave_picture_37332.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Rick Wakeman - Yessonata (2024) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Progres
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37360.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37360.jpgsave_picture_37360.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Valkaryus - Metamorphosis (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37374.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37374.jpgsave_picture_37374.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ The Alan Parsons Project - Pyramid (1978) Reissue, Remastered, 2024, Cooking Vin
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37480.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37480.jpgsave_picture_37480.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ magnet:?xt=urn:btih:9063480F93D51269B15BEF081F265A266CFAEE0A
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37568.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37568.jpgsave_picture_37568.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Bay City Rollers - Keep On Rollin (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock, Po
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37574.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37574.jpgsave_picture_37574.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ A Poets Dream - The Spirit Never Sleeps (2024) [MP3|320 Kbps] <Progressive Rock,
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37575.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37575.jpgsave_picture_37575.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Blood Feast - Infinite Evolution (2024) [FLAC|Lossless|WEB-DL|tracks] <Thrash Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37582.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37582.jpgsave_picture_37582.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ VA - Странные скачки (2023) [MP3|320 Kbps] <Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37590.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37590.jpgsave_picture_37590.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Marillion - 4 Albums (1991-2024) [FLAC|Lossless|WEB-DL|tracks] <Prog Rock, Pop R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37598.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37598.jpgsave_picture_37598.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ magnet:?xt=urn:btih:4ED36378B72CD50E7AFAFF7C4237458E0970BB06
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37603.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37603.jpgsave_picture_37603.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ magnet:?xt=urn:btih:316204AD238CD76754157F31656CE5606EF4DA49
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37773.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37773.jpgsave_picture_37773.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ magnet:?xt=urn:btih:A7D5A58134EC51AA895CE32FCCD39928850D3FAC
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37865.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37865.jpgsave_picture_37865.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Powerflo - Gorilla Warfare (2024) [FLAC|Lossless|WEB-DL|tracks] <Rap Metal, Hard
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37871.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37871.jpgsave_picture_37871.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ Racey - The Best Of (1993) (Australia) [FLAC|Lossless|tracks + .cue] <Pop-Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37880.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37880.jpgsave_picture_37880.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ Bonnie Tyler - The Best (1993) (Austria) [FLAC|Lossless|tracks + .cue] <Pop-Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37888.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37888.jpgsave_picture_37888.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ AC/DC - 3 Lives Albums (1978-1988) HQ Remastered, 2024, DMG [MP3|320 Kbps] <Heav
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37964.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37964.jpgsave_picture_37964.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ Nirvana - 3 Lives Albums (1989-1992) HQ Remastered, 2024, BFD [MP3|320 Kbps] <Al
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37968.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37968.jpgsave_picture_37968.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Guns N Roses - 3 Lives Albums (1991-1993) HQ Remastered, 2024, DMG [MP3|320 Kbps
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37978.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37978.jpgsave_picture_37978.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Flashbaggers - Visions of Utopia (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressi
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38171.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38171.jpgsave_picture_38171.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ magnet:?xt=urn:btih:FE4D8E1189265367E3E872C5AFE86F2C0781EE93
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38177.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38177.jpgsave_picture_38177.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ magnet:?xt=urn:btih:22999E13DD926513DE74B2CE9AA15F42A290FE8B
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38184.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38184.jpgsave_picture_38184.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ Windrow - Deus Universi (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Power
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38197.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38197.jpgsave_picture_38197.jpg" />
 </div>
 
 
@@ -676,7 +676,7 @@ magnet:?xt=urn:btih:C6D67E7E4F39024C3CEF6F575468165748F07109
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38261.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38261.jpgsave_picture_38261.jpg" />
 </div>
 
 

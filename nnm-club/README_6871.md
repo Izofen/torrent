@@ -6,7 +6,7 @@ Busuu - изучение языков 30.8.2(600127) Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235925.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235925.jpgsave_picture_235925.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ UctoX 2 v2.8.10 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_235926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_235926.jpgsave_picture_235926.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ KeePass Password Safe 2.52 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_235927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_235927.jpgsave_picture_235927.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:4B005D558342C67F1E4B870EB0D9DD1E2167F0B9
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235928.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235928.jpgsave_picture_235928.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ Blud Red Roses - Fall to the Hate (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Roc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235929.jpgsave_picture_235929.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ magnet:?xt=urn:btih:3395CAAF095E3BA9F05D227C0763500C6B42A1D2
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_235930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_235930.jpgsave_picture_235930.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ magnet:?xt=urn:btih:ECED2C66EBBF2B452DE38A5DE08C4CE1C89F1714
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_235931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_235931.jpgsave_picture_235931.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Dexter Gordon - Our Man In Paris (1963) 1986, Toshiba-EMI [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235932.jpgsave_picture_235932.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ Kuturlat - Necroritual (2005) [APE|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_235934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_235934.jpgsave_picture_235934.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ magnet:?xt=urn:btih:6A2CC0DDCCF26F8D297AA71059164E8E04F84ED0
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235935.jpgsave_picture_235935.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ magnet:?xt=urn:btih:FC6831CECA4E151210E026A6B3192FC6A6F80754
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235936.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235936.jpgsave_picture_235936.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ Beast Eagle - Beast Eagle (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235937.jpgsave_picture_235937.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ Dais Dark - Poweramp v3 Skin 1.3.6 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235938.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235938.jpgsave_picture_235938.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ magnet:?xt=urn:btih:3A3A2EACEABCBF325C72436C207C635502421665
 >>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_235939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_235939.jpgsave_picture_235939.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ magnet:?xt=urn:btih:FE44B03F396D56AE272BAA31359D146553381BC7
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235940.jpgsave_picture_235940.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ magnet:?xt=urn:btih:B7BC87B5BD65ADFDBF909929AAC61804AFD3689D
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_235942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_235942.jpgsave_picture_235942.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ magnet:?xt=urn:btih:9F29884D11659F906A01ABA8BF10149B1DFFF691
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235944.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235944.jpgsave_picture_235944.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ The Silent Rage - Nuances Of Life (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy, P
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235945.jpgsave_picture_235945.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ Udemy, Руслан Брантов | Курс по CorelDRAW: теория, пр
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_235946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_235946.jpgsave_picture_235946.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ VA - Gymnopedie Chilled Piano Music (2023) [FLAC|Lossless|WEB-DL|tracks] <Classi
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235947.jpgsave_picture_235947.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ Stepson - Help Me, Help You (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hardco
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_235948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_235948.jpgsave_picture_235948.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Cinderella - 20th Century Masters: The Millennium Collection: Best Of Cinderella
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235949.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235949.jpgsave_picture_235949.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ MailWasher Pro 7.12.139 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235950.jpgsave_picture_235950.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ magnet:?xt=urn:btih:C4BD52E9B1CBB11FC03D677250077BA13BE152AC
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_235952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_235952.jpgsave_picture_235952.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Udemy, Sergey Dragunov | Android Studio и Firebase - "Доска Объявле
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_235953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_235953.jpgsave_picture_235953.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ VA - Rock'n'roll Party (2023) [MP3|320 Kbps] <Rock n Roll, Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235954.jpgsave_picture_235954.jpg" />
 </div>
 
 

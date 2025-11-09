@@ -6,7 +6,7 @@ Vega - Grit Your Teeth (2020) [FLAC|Lossless|image + .cue] <Hard Rock, Melodic H
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164348.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164348.jpgsave_picture_164348.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Easy Data Transform 1.44.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164349.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164349.jpgsave_picture_164349.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:92CFC3CA33E35B5A0FA90C8F3E0E98F10E829F25
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164350.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164350.jpgsave_picture_164350.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ magnet:?xt=urn:btih:9294146ABB30A3212DB262544A862DEA9CA47FD2
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164351.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164351.jpgsave_picture_164351.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ magnet:?xt=urn:btih:839AFAAD03374BE3410B5A5846DC78396F583448
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164352.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164352.jpgsave_picture_164352.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ iStatistica 6.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164353.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164353.jpgsave_picture_164353.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ magnet:?xt=urn:btih:8D98DE2FAF0BF298EF9C3EABC9DE17FC27DB77B3
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164354.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164354.jpgsave_picture_164354.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ magnet:?xt=urn:btih:2901A9EF07972497E1C4F15DA73429B0996D7417
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164355.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164355.jpgsave_picture_164355.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ magnet:?xt=urn:btih:FCD032147E66406D35F97999C4280A014C5A43C9
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164356.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164356.jpgsave_picture_164356.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ SuperDuper! 3.7.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164357.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164357.jpgsave_picture_164357.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ magnet:?xt=urn:btih:DD1DB00398DDEDF78A3D563D430CC454D3F652C9
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164358.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164358.jpgsave_picture_164358.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ magnet:?xt=urn:btih:2E65BA780DFD6C6C45BEAFE9432355681043DEB0
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164359.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164359.jpgsave_picture_164359.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ HWiNFO 7.65 Build 5255 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164360.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164360.jpgsave_picture_164360.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ magnet:?xt=urn:btih:CBF62EBF48FD716A1447D8CCDAA2C8D048DEEC54
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164361.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164361.jpgsave_picture_164361.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Peach Boy Riverside | Персиковый мальчик с того берег
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164362.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164362.jpgsave_picture_164362.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Native Instruments Traktor Pro Plus 3 for Mac v.3.10.1.16 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164363.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164363.jpgsave_picture_164363.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ magnet:?xt=urn:btih:E0DD590D074EE410B3FB0FE43C1244E40294843A
 >>Прочие зимние виды спорта
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164364.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164364.jpgsave_picture_164364.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ magnet:?xt=urn:btih:6ECAFCFB64C5DF09E69B61C7FF603917369CABB6
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164365.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164365.jpgsave_picture_164365.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ magnet:?xt=urn:btih:D2C83004BE3C2DEBE74747AA74F684F165F3FCBF
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164366.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164366.jpgsave_picture_164366.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Bootstrap Studio 5.5.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164367.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164367.jpgsave_picture_164367.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ magnet:?xt=urn:btih:964F64AE17D463B6BB3A26B6FA83F18FC585EABA
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164368.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164368.jpgsave_picture_164368.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ magnet:?xt=urn:btih:0010F9920976C8D61CFDCF137DB462FAB1C0E605
 >>Отечественное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164369.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164369.jpgsave_picture_164369.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ Sanguine Hum - А Тrасе Оf Меmоrу (2020) [FLAC|Lossless|image + .cue] <
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164370.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164370.jpgsave_picture_164370.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ magnet:?xt=urn:btih:3103290B85227EA88AD256140B7E8BE9DF980C1A
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164371.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164371.jpgsave_picture_164371.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ Tone2 - Electra 2.8.0 STANDALONE, VSTi (x64) RePack by R2R [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164372.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164372.jpgsave_picture_164372.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ magnet:?xt=urn:btih:348B64C304F73864D8AC0FA8C0B382E5AE371D72
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164373.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164373.jpgsave_picture_164373.jpg" />
 </div>
 
 

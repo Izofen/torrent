@@ -6,7 +6,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116965.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116965.jpgsave_picture_116965.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:CAD6C268070B5694DF70C23FE9D9E3EFF96B4807
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116966.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116966.jpgsave_picture_116966.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:CAD6C268070B5694DF70C23FE9D9E3EFF96B4807
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116967.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116967.jpgsave_picture_116967.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ DRAGON QUEST BUILDERS (2024) [Multi] (1.0/dlc) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116968.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116968.jpgsave_picture_116968.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Adobe Illustrator for Mac 2024 v.28.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116969.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116969.jpgsave_picture_116969.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:0731FA3C4636010FC7462CBF7D44B020B9FDF0F2
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116970.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116970.jpgsave_picture_116970.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Mishkie, Артём Морозов | PowerPoint (2021) WEB-DL [AD] [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116971.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116971.jpgsave_picture_116971.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:1FCF7D4DA58D82AD1EA1E3A43C9B03C515F72590
 >>Ищу/Предлагаю детское
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116972.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116972.jpgsave_picture_116972.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ Atomic Heart (2023) [Ru/En] (DEV Build) Repack dixen18
 >>28
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116973.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116973.jpgsave_picture_116973.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:7F3CB760AD77DB6B56950F99E7CCC3E396559F34
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116974.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116974.jpgsave_picture_116974.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Hearts of Iron / День Победы (2002-2009) [Ru] (1.06c/1.3b/1.3a/1.2/1.1
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116975.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116975.jpgsave_picture_116975.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:DF0973350B6802221C2EB19114E70AF3C72C8C08
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116976.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116976.jpgsave_picture_116976.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:1DC9E84D19A1D7292663D51D7BDFAEF540D4BBD5
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116977.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116977.jpgsave_picture_116977.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Google стал активно продвигать свою настольну�
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116978.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116978.jpgsave_picture_116978.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ ESET Endpoint Antivirus / ESET Endpoint Security 9.1.2071.0 (10.02.2024) RePack 
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116979.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116979.jpgsave_picture_116979.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:EE7963B423E5943E3421F64BF29F058374A319BB
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116980.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116980.jpgsave_picture_116980.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ magnet:?xt=urn:btih:AE2C66280F3042F24BB04D8A917C4F6391218B3B
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116981.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116981.jpgsave_picture_116981.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ magnet:?xt=urn:btih:7FE80445A3FD8279DC406D1EB4838CA24FB2CBA0
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116982.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116982.jpgsave_picture_116982.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ VMware Workstation 17 Pro 17.5.0 Build 22583795 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116983.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116983.jpgsave_picture_116983.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Gromov-PLC, Дмитрий Громов | HMI Язык C++ в среде Qt Crea
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116984.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116984.jpgsave_picture_116984.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ magnet:?xt=urn:btih:4E929FE349DB8285B659741FCC1A4DCC4554E975
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116985.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116985.jpgsave_picture_116985.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:6D4BAB577EE159BC08011053640B077F4271E174
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116986.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116986.jpgsave_picture_116986.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ magnet:?xt=urn:btih:224692D051DF1962F731DDA23E3155C67972A089
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116987.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116987.jpgsave_picture_116987.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Udemy, Elchin Jamalov | Windows Server 2016 (70-741) полный видеоку
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116988.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116988.jpgsave_picture_116988.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Try to Survive Today / Попробуй выжить сегодня (2023) [Ru] 
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116989.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116989.jpgsave_picture_116989.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ magnet:?xt=urn:btih:29AF84021325FEBADE22F70D328B1C6067ADECB3
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116990.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116990.jpgsave_picture_116990.jpg" />
 </div>
 
 

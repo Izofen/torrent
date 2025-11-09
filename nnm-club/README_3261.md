@@ -6,7 +6,7 @@
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105147.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105147.jpgsave_picture_105147.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ R-Studio Network 9.4 Build 191349 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105148.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105148.jpgsave_picture_105148.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:A4341173B1B0F53AB13AE19F944EFC24BDE61BE0
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105149.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105149.jpgsave_picture_105149.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:F065CA03646167BBA2D41B0FEFD6D4E2DE2A233A
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105150.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105150.jpgsave_picture_105150.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:655B73DF3711035330BD4CAD498283072FE65202
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105151.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105151.jpgsave_picture_105151.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:6F6370BD106E745EA025FF32262F9A5802A8F0E2
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105152.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105152.jpgsave_picture_105152.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ NetLimiter 5.3.17.0 (x64) RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105153.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105153.jpgsave_picture_105153.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ KORG - ARP 2600 1.0.6 Standalone, VSTi 3, AAX (x64) RePack by TCD [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105154.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105154.jpgsave_picture_105154.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ CrystalDiskInfo 9.4.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105155.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105155.jpgsave_picture_105155.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Human Fall Flat (2016) [Ru/Multi] (20240605) Scene TinyISO
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105156.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105156.jpgsave_picture_105156.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Madeleine Peyroux - Let's Walk (2024) [FLAC|Lossless|image + .cue] <Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105157.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105157.jpgsave_picture_105157.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Jon Anderson Feat. The Band Geeks - True (2024) [FLAC 24/96|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105158.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105158.jpgsave_picture_105158.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Furnace - Trojan Hearse (2024) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105159.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105159.jpgsave_picture_105159.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Peoria Jazzband - In a Jam (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105160.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105160.jpgsave_picture_105160.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Meital Waldmann - Between Worlds (2024) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <V
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105161.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105161.jpgsave_picture_105161.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Andrea Giuditta - Code-258 (2019) [FLAC|Lossless|tracks] <Techno, Peak Time Tech
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105162.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105162.jpgsave_picture_105162.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Nate Najar - Meet The Graingers (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Cont
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105163.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105163.jpgsave_picture_105163.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ magnet:?xt=urn:btih:628AC6D1BFC26A890CF2D8597A8391FF91365BA0
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105164.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105164.jpgsave_picture_105164.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ Delta Heavy - Midnight Forever (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Dru
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105165.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105165.jpgsave_picture_105165.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ VA - The Orient Collective: Alchemy (2024) [FLAC|Lossless|WEB-DL|tracks] <World,
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105166.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105166.jpgsave_picture_105166.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ VA - Balearic Bar & Beach Tunes (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Ch
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105167.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105167.jpgsave_picture_105167.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Static-X (Wayne Static) - Studio Albums (10 releases) (1999-2024) hand made [res
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105168.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105168.jpgsave_picture_105168.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ magnet:?xt=urn:btih:CF90C96A3C362A316F5209825AA81ACAD0830347
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105169.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105169.jpgsave_picture_105169.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ magnet:?xt=urn:btih:0545C2CB06C931FC5CEA12CC392FC937E29C4BBF
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105170.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105170.jpgsave_picture_105170.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ magnet:?xt=urn:btih:BD2978B87B45223EEDF23A679DBC5835DB883CFF
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105171.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105171.jpgsave_picture_105171.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ PhotoRoom v5.2.6 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105172.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105172.jpgsave_picture_105172.jpg" />
 </div>
 
 

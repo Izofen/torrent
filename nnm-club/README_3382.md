@@ -6,7 +6,7 @@ Tanerélle (Tanerelle) - Electric Honey (2024) [FLAC 24/44.1|Lossless|WEB-DL|tra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108293.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108293.jpgsave_picture_108293.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Nightmare - Encrypted (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108294.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108294.jpgsave_picture_108294.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Mosimann - Axtone House Party (2024-06-07) [MP3|320 Kbps] <House, Tech House>
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108295.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108295.jpgsave_picture_108295.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ Soul Browser 1.4.23 Mod by derrin [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108296.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108296.jpgsave_picture_108296.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ magnet:?xt=urn:btih:3C3749B2D737AE9698DDA9DA830A2757862D910D
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108297.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108297.jpgsave_picture_108297.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ AllTrails: Hike, Bike & Run 19.1.1 Mod by AppModz [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108298.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108298.jpgsave_picture_108298.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ Endangered Reign - The Forester Awakens (2024) [FLAC|Lossless|WEB-DL|tracks] <Po
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108299.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108299.jpgsave_picture_108299.jpg" />
 </div>
 
 
@@ -187,7 +187,7 @@ magnet:?xt=urn:btih:43EC884B45A00030970F9D01B71CAD1FC79631E3
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108300.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108300.jpgsave_picture_108300.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ magnet:?xt=urn:btih:4EDA9DB38F7C716AC762408F022C60655A97829F
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108301.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108301.jpgsave_picture_108301.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ magnet:?xt=urn:btih:1CCF4E23B999F27831BA7F1FCE69203C4BD4AC06
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108302.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108302.jpgsave_picture_108302.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ magnet:?xt=urn:btih:B0A8B27B63DE8193F5411D89091EF60416C1AA1C
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108303.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108303.jpgsave_picture_108303.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ magnet:?xt=urn:btih:3545750F992145247583EB1CBF94F9D10E441030
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108304.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108304.jpgsave_picture_108304.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ Mahou Shoujo ni Akogarete | Gushing Over Magical Girls | Восхищаясь д
 >>Аниме OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108305.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108305.jpgsave_picture_108305.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ Nightwish - Perfume Of The Timeless (2024) Single [FLAC 24/96|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108306.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108306.jpgsave_picture_108306.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ magnet:?xt=urn:btih:3829C6B657F3D4F7A1F4D9CEDD1DA7DCF14B1ADC
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108307.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108307.jpgsave_picture_108307.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Lucky Patcher 11.4.2 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108308.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108308.jpgsave_picture_108308.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ magnet:?xt=urn:btih:F2DF94B364765D3BFAFE14C4BB895D6A0694375C
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108309.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108309.jpgsave_picture_108309.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ Elton John - Captain Fantastic And The Brown Dirt Cowboy (1975) Reissue, 1995, R
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108310.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108310.jpgsave_picture_108310.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ Alastair Greene - Standing out Loud (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108311.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108311.jpgsave_picture_108311.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Dede Priest and Johnny Clark's Outlaws - Best Pieces (2024) [FLAC|Lossless|WEB-D
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108312.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108312.jpgsave_picture_108312.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ Issa - Another World (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Melodic Rock, T
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108313.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108313.jpgsave_picture_108313.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Jesse Redwing - Trim the Fat (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108314.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108314.jpgsave_picture_108314.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Lake Effect - Drifting (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108315.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108315.jpgsave_picture_108315.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Holy Mother - Rise (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Power Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108316.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108316.jpgsave_picture_108316.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Blues People - The Skin I'm In (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108317.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108317.jpgsave_picture_108317.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ Big Harp George - Cooking with Gas (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108318.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108318.jpgsave_picture_108318.jpg" />
 </div>
 
 

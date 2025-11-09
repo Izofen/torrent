@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241937.jpgsave_picture_241937.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:595DD83A3DB46926AAF76CC33DFEA3E278BA7B12
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241938.jpgsave_picture_241938.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:3B7D1FF96AF4C08F596F8D4B61F48D1DFDB40952
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241939.jpgsave_picture_241939.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:71716A8A8F9656C7D076E57E0328392F6159D7E3
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241940.jpgsave_picture_241940.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Breakdowns At Tiffany's - Eternal Lords (2020) [MP3|320 Kbps] <Metalcore>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241941.jpgsave_picture_241941.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ Section Brain - Hospital of Death (1993) [FLAC|Lossless|image + .cue] <Technical
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241942.jpgsave_picture_241942.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ Any Video Downloader 8.2.0 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241943.jpgsave_picture_241943.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:2B7F74468B42FE43B8F9668856E383B80C4501BD
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241944.jpgsave_picture_241944.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ Microsoft Office 2013 Professional Plus / Standard + Visio + Project 15.0.5441.1
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241945.jpgsave_picture_241945.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ Free Hex Editor Neo 7.25.03.8473 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241947.jpgsave_picture_241947.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ Directory List & Print Pro 4.23 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241948.jpgsave_picture_241948.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ magnet:?xt=urn:btih:20F096F3B4DD7B4450260D4226B4FA52E1756C20
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241949.jpgsave_picture_241949.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ magnet:?xt=urn:btih:AA4BC550D3FB321531455139ED1986E0A555DD80
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241950.jpgsave_picture_241950.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Opera GX 85.0.4341.72 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241951.jpgsave_picture_241951.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Aara - Triade III: Nyx (2023) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Black M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241952.jpgsave_picture_241952.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ iCollections 6 v6.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241953.jpgsave_picture_241953.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ magnet:?xt=urn:btih:28556D1F876AABF031D144B81E719A83BE39B43A
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241954.jpgsave_picture_241954.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Biopsyhoz (Биопсихоз) - 2 Albums (2019-2021) [FLAC|Lossless|WEB-DL|trac
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241956.jpgsave_picture_241956.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ VA - Вечеринка от радио Шансон. Сборник № 3 (2017
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241957.jpgsave_picture_241957.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Venkata Keerti Kotaru | Building Offline Applications with Angular (2022) [PDF][
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241958.jpgsave_picture_241958.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ magnet:?xt=urn:btih:453F9C8F2B0611E3B6C5472684E4789AE9942CD4
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241959.jpgsave_picture_241959.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ magnet:?xt=urn:btih:1439FFE096550C19E86316F2ABC7A43FD619C5B3
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241960.jpgsave_picture_241960.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ magnet:?xt=urn:btih:AF7D3D1011980EECC4CE81BF3FE416A2D0779C86
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241961.jpgsave_picture_241961.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ This White Mountain - Finality (2020) [FLAC|Lossless|WEB-DL|tracks] <Black Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241962.jpgsave_picture_241962.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ magnet:?xt=urn:btih:DCBA72A8A1818F275CD8C2047D9C1F698D164790
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241964.jpgsave_picture_241964.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ NG. Акрополь: тайны древней крепости / The Acropolis
 >>История
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241965.jpgsave_picture_241965.jpg" />
 </div>
 
 

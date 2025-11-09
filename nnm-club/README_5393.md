@@ -6,7 +6,7 @@ Soul Remnants - Raising The Sacrificial Dagger (2021) [FLAC|Lossless|WEB-DL|trac
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167101.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167101.jpgsave_picture_167101.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ LuLu 2.0.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167102.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167102.jpgsave_picture_167102.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:17E1DCC02EB58D288ECF579031733652AB1D28C0
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167103.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167103.jpgsave_picture_167103.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ VA - Large Music Best of 2021 (2021) [AAC|~330 Kbps] <Deep House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167104.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167104.jpgsave_picture_167104.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ VA - Annual 2021 (Selected by D-Formation) (2021) [AAC|~339 Kbps] <House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167105.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167105.jpgsave_picture_167105.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ magnet:?xt=urn:btih:3762D96C347FF61F4F2EE7AEA276F43BFB44D78F
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167106.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167106.jpgsave_picture_167106.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Skeletal Remains - Devouring Mortality (2018) [FLAC|Lossless|image + .cue] <Deat
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167107.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167107.jpgsave_picture_167107.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ magnet:?xt=urn:btih:ED56701BF54DB11DB9FCA95B04D6132652179A31
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167108.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167108.jpgsave_picture_167108.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Frozen Rain - One Mile From Heartsville (2023) [FLAC|Lossless|WEB-DL|tracks] <AO
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167109.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167109.jpgsave_picture_167109.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ magnet:?xt=urn:btih:74EC6B550AE7EDE0ED8CA65EA1A8C304C2FA1AD6
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167110.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167110.jpgsave_picture_167110.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ DiskTrix UltimateDefrag 6.0.50.0 RePack (& portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167111.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167111.jpgsave_picture_167111.jpg" />
 </div>
 
 
@@ -291,7 +291,7 @@ magnet:?xt=urn:btih:4A2F8C60119A61E7A5CF75A5CC6077F8C10FE1BA
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167112.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167112.jpgsave_picture_167112.jpg" />
 </div>
 
 
@@ -315,7 +315,7 @@ Laibach - Wirtschaft Ist Tot (2023) [FLAC|Lossless|WEB-DL|tracks] <Industrial, N
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167113.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167113.jpgsave_picture_167113.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Any Video Converter  6.3.7 Professional RePack (& Portable) by TryRooM [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167114.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167114.jpgsave_picture_167114.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ magnet:?xt=urn:btih:501D183ECC2D65BC53159CC078BF161ADE9ADDA9
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167115.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167115.jpgsave_picture_167115.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ magnet:?xt=urn:btih:FB645E325BAF68444A7852CE1BB3852AF00C16BC
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167116.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167116.jpgsave_picture_167116.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ Shinnobu - The Enigma IV (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age, Spiritua
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167117.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167117.jpgsave_picture_167117.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ magnet:?xt=urn:btih:4484B29915FA23F8D5ABF186D299F439AEEC9662
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167118.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167118.jpgsave_picture_167118.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Slade - Live and Loud! (2023) [MP3|320 Kbps] <Glam Rock, Hard Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167119.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167119.jpgsave_picture_167119.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ magnet:?xt=urn:btih:6517C5476713E79D1363C0E1E84E0918B90542F2
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167120.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167120.jpgsave_picture_167120.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ magnet:?xt=urn:btih:6C522F2C6B881D03ED2D9CFA9F7FE897DD660981
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167121.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167121.jpgsave_picture_167121.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ Wondershare PDFelement 10.1.4.2521 + OCR Plugin (x64) Portable by 7997 [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167122.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167122.jpgsave_picture_167122.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ magnet:?xt=urn:btih:B2C9953C97541562F28565E9AAE1C82CC2E52E2A
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167123.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167123.jpgsave_picture_167123.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ magnet:?xt=urn:btih:42639F303C46F4BDE62A3F1810E4AFF402AB26F9
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167124.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167124.jpgsave_picture_167124.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ magnet:?xt=urn:btih:D78FC2D1BC28DB73794D35E8E63633E7C2BF9CCF
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167125.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167125.jpgsave_picture_167125.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ magnet:?xt=urn:btih:2C300EE948458752A01C964B4AF7E09F2508E249
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167126.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167126.jpgsave_picture_167126.jpg" />
 </div>
 
 

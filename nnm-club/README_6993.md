@@ -6,7 +6,7 @@ Bill Evans - Live At Ronnie Scott's (1968) 2CD, 2020, Resonance Records [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239978.jpgsave_picture_239978.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:3D473D768423485F24B78F798300D90AD8A5D2C9
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239979.jpgsave_picture_239979.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Arrival Of Autumn - Kingdom Undone (2023) [FLAC|Lossless|WEB-DL|tracks] <Metalco
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239980.jpgsave_picture_239980.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Fancy - Sail Away (2020) [AAC|~329 Kbps]<Pop, Disco>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239981.jpgsave_picture_239981.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Rainlendar Lite 2.19.2 Build 174 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239982.jpgsave_picture_239982.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ magnet:?xt=urn:btih:76FBDE1B69113B6126A3D6F75914FF06D8E27777
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239983.jpgsave_picture_239983.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Cloud Outliner 2 Pro: Outline your Ideas & Plans 2.5.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239984.jpgsave_picture_239984.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ Colossal Order | Артбук по игре Cities: Skylines / Cities: Skylines 
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239985.jpgsave_picture_239985.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ Pixelmator Classic 3.9.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239986.jpgsave_picture_239986.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ magnet:?xt=urn:btih:1D9C9E85A3A6D583E765B929DBBF049A01C5BC6C
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239987.jpgsave_picture_239987.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ magnet:?xt=urn:btih:26C3107E66711BDF9B8DA11E87274C0B4733BD0F
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239988.jpgsave_picture_239988.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ Xubuntu 22.04 Jammy Jellyfish LTS [amd64] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239989.jpgsave_picture_239989.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ John Goldsby - Viewpoint (2001) [FLAC|Lossless|tracks + .cue] <Post-Bop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239990.jpgsave_picture_239990.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ magnet:?xt=urn:btih:05D989E98749D620B6017E44F336B8EB1875BEB4
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239991.jpgsave_picture_239991.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ Róisín Murphy - Róisín Machine (Deluxe) (2020) [AAC|~321 Kbps]<Electronic, P
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239992.jpgsave_picture_239992.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ magnet:?xt=urn:btih:B7317886BAFB6EE5265C21B2B5DBB222D0425D07
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239993.jpgsave_picture_239993.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ magnet:?xt=urn:btih:6DACE89384B66AB73E1BE09DBCFC7047E0D901FB
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239994.jpgsave_picture_239994.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ magnet:?xt=urn:btih:E6813D3EB9F6A5D628C09D12F24A171D3BD57AC2
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239995.jpgsave_picture_239995.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ EazyDraw 10.5.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239996.jpgsave_picture_239996.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ magnet:?xt=urn:btih:DE3493E3648EBD548E582067487F75C52A0298CD
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239997.jpgsave_picture_239997.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ NIUBI Partition Editor 9.4.1 Technician Edition Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239998.jpgsave_picture_239998.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Black Sabbath - Live Evil (1982) 2023, 4CD, 40th Anniversary Super Deluxe, Sanct
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239999.jpgsave_picture_239999.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ magnet:?xt=urn:btih:4F63AFAF9BB8826FC1EC79A05875CECE051BF179
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240000.jpgsave_picture_240000.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ VA - The Rock Collection: 80s Rock (1993) 2CD Compilation [FLAC|Lossless|tracks]
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240001.jpgsave_picture_240001.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ TreeSize Professional 8.3.2.1665 (x64) RePack (& Portable) by elchupacabra [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240002.jpgsave_picture_240002.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Lucky Thompson - 1944 - 1947 (2000) Classics [FLAC|Lossless|tracks + .cue] <Bop,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240003.jpgsave_picture_240003.jpg" />
 </div>
 
 

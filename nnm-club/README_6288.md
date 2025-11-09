@@ -6,7 +6,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197079.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197079.jpgsave_picture_197079.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:341A8340873E79FCEDE02AC37D5EC94F2D5B1829
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197080.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197080.jpgsave_picture_197080.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:F870C118C29D967CFC5EBD26027C293E73E553EE
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197081.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197081.jpgsave_picture_197081.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:D7D5426479D0E68494F4858C51320EE74A4E482B
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197082.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197082.jpgsave_picture_197082.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ ZWCAD 2024 SP0 Professional [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197083.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197083.jpgsave_picture_197083.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Wingfox, Pierre Schiller | Stylized 2D Toon Shader in Blender (2021) PCRec [EN /
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197084.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197084.jpgsave_picture_197084.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:E22B77D64D56BA692E953BADC944EB28BA9FF3FF
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197085.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197085.jpgsave_picture_197085.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:10443AD22F1C6371863F6681E44F73830143D0F4
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197086.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197086.jpgsave_picture_197086.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ Udemy, Yassine Larayedh | Create Realistic Highlands in Blender (2023) PCRec [EN
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197087.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197087.jpgsave_picture_197087.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:F1DA08F31A6FF4874F1198A663B106A61B390C6E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197088.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197088.jpgsave_picture_197088.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:B19A48675BFD29726C6B85983DA64C40BC7FA4D5
 >>Мультимедийные материалы для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197089.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197089.jpgsave_picture_197089.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:84FF55694DE6FC054446C2BA3751F3BAD395F42D
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197090.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197090.jpgsave_picture_197090.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:EAF8E2EA2DABC873AB48E5E85EAB87CF0105FFDC
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197091.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197091.jpgsave_picture_197091.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Start11 Version 1.45 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197092.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197092.jpgsave_picture_197092.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ HiPER Scientific Calculator v10.2.3 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_197093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197093.jpgsave_picture_197093.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Microsoft Office 2013 Pro Plus + Visio Pro + Project Pro + SharePoint Designer S
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197094.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197094.jpgsave_picture_197094.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ magnet:?xt=urn:btih:CDB65C826BD00BE6A4B5878F514D4D8B1204CF05
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197095.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197095.jpgsave_picture_197095.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ CCleaner 6.13.10517 Free / Professional / Business / Technician Edition RePack (
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197096.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197096.jpgsave_picture_197096.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:0157A487BB494D85BF08F4E96174F283921DF4BD
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197097.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197097.jpgsave_picture_197097.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ uTorrent Pack 1.2.3.70 Repack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197098.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197098.jpgsave_picture_197098.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ magnet:?xt=urn:btih:49EE4EE970A057A123F8969EF9D04C69FB189340
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197099.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197099.jpgsave_picture_197099.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:ED50B41BBC84FA18E5ABD415FB30BE4E7E66CB8D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197100.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197100.jpgsave_picture_197100.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Wingfox, Jose Moreno | Stylized Texturing for Video Games with Blender (2023) PC
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197101.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197101.jpgsave_picture_197101.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ magnet:?xt=urn:btih:4FA041E30009FD1919BFCF4FCB2BA5D850F7A446
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197102.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197102.jpgsave_picture_197102.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ magnet:?xt=urn:btih:CBA94AD1761068647D92F21EBC72BBB494CA243E
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197103.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197103.jpgsave_picture_197103.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ GoldMemory PRO 7.98 [En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197104.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197104.jpgsave_picture_197104.jpg" />
 </div>
 
 

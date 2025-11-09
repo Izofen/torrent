@@ -6,7 +6,7 @@
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106213.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106213.jpgsave_picture_106213.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:D2EB82C048526841F2D3B146758ACD03BFA197CD
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106214.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106214.jpgsave_picture_106214.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:9C17989BABC98BD60D2F4E65999245FAE9566259
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106215.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106215.jpgsave_picture_106215.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:EDC67202B518309A2D88E6B077987D40F8613AE5
 >>RnB, Reggae (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106216.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106216.jpgsave_picture_106216.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ Animal Джаz - Ян (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternative Ro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106217.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106217.jpgsave_picture_106217.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ Pat Metheny - MoonDial (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Jazz Fusion, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106218.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106218.jpgsave_picture_106218.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ magnet:?xt=urn:btih:D81F0E8F0FCAFAD220EE081E1726E4FDA8840FC9
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106219.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106219.jpgsave_picture_106219.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ Firefox Browser 128.0.2 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106220.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106220.jpgsave_picture_106220.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ The Cosmic Trip Advisors - One for the road - Make it a double (2024) [FLAC|Loss
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106221.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106221.jpgsave_picture_106221.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ magnet:?xt=urn:btih:7681B38537BCD4023DD0A323C5FB0EAD25CF294F
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106222.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106222.jpgsave_picture_106222.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ Billy Barnett Band - Hey It's Me (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106223.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106223.jpgsave_picture_106223.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ magnet:?xt=urn:btih:3802CB92139E2C10C8C5B58288221319418F1615
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106224.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106224.jpgsave_picture_106224.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ Sonata Arctica - Clear Cold Beyond (2024) [FLAC|Lossless|image + .cue] <Heavy Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106225.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106225.jpgsave_picture_106225.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ Geegun - The Best Of (2008) [WavPack|Lossless|image + .cue] <Thug Rap, Gangsta, 
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106226.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106226.jpgsave_picture_106226.jpg" />
 </div>
 
 
@@ -364,7 +364,7 @@ VA - Music News For Forum vol.004 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106227.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106227.jpgsave_picture_106227.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ magnet:?xt=urn:btih:F739ACB4395CEBA17024605EAC8460D4478BAD70
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106228.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106228.jpgsave_picture_106228.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ magnet:?xt=urn:btih:3EE32E762E10E91AB2A7595C9ECC05D4C730E3AA
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106229.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106229.jpgsave_picture_106229.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ YT Downloader 9.9.9 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106230.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106230.jpgsave_picture_106230.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ magnet:?xt=urn:btih:0C8A7983B7018FF1DAA1DA72EA18EB5AADE8B791
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106231.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106231.jpgsave_picture_106231.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ Powerwolf - Wake Up The Wicked (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Power
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106232.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106232.jpgsave_picture_106232.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ magnet:?xt=urn:btih:5F4E5CB84418AB20F3F5C1B16ED23F0A0D16C7FE
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106233.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106233.jpgsave_picture_106233.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Dream Evil - Metal Gods (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy-Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106234.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106234.jpgsave_picture_106234.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ magnet:?xt=urn:btih:BD97DBF8FE1FD487E42266B1DA63397330C55A44
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106235.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106235.jpgsave_picture_106235.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ magnet:?xt=urn:btih:4EDE962744766EC042B8B8240A184D0AED3405CD
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106236.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106236.jpgsave_picture_106236.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ IObit Smart Defrag Pro 10.0.0.374 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106237.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106237.jpgsave_picture_106237.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ KeepStreams 1.2.3.0 Repack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106238.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106238.jpgsave_picture_106238.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192331.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192331.jpgsave_picture_192331.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:940BD467DFC50F65BB497102E2A22E2A4C9F881F
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192332.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192332.jpgsave_picture_192332.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ VA - Generation Rave Vol. 2 - 90s Dance Classics Only (2020) CD, Compilation [MP
 >>Eurodance, Euro-House, Technopop
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192333.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192333.jpgsave_picture_192333.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:B990DB4438F5156C797DABF33900C13A4A681830
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192334.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192334.jpgsave_picture_192334.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ WinUtilities Professional 15.81 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192335.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192335.jpgsave_picture_192335.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:3DA43E19AA3C8FD589AEC4519DB629769419D2C8
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192336.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192336.jpgsave_picture_192336.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:C513781EC926F8514015ABFD1207B382198FCC9E
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192337.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192337.jpgsave_picture_192337.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ Windows 10 (v22h2) x64 HSL/PRO by KulHunter v11 (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192338.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192338.jpgsave_picture_192338.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ magnet:?xt=urn:btih:6BA2823D599028B5D433624B52485426F802E4F8
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192339.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192339.jpgsave_picture_192339.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ magnet:?xt=urn:btih:6BA2823D599028B5D433624B52485426F802E4F8
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192340.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192340.jpgsave_picture_192340.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ iZotope - VocalSynth 2 2.5.0 VST, VST3, AAX (x64) RePack by R2R [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192342.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192342.jpgsave_picture_192342.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ magnet:?xt=urn:btih:7C7E2A17DE741D384990B45D38DA55DF6A4F7CD4
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192343.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192343.jpgsave_picture_192343.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ iZotope - Relay 1.3.0 VST, VST3, AAX (x64) RePack by R2R [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192344.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192344.jpgsave_picture_192344.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ magnet:?xt=urn:btih:340A1FA276CA463EE61C4BD44AFDA9095EB37415
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192345.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192345.jpgsave_picture_192345.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ magnet:?xt=urn:btih:34750958AE7CB9B9107167B498BDBDC373B19E57
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192346.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192346.jpgsave_picture_192346.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ magnet:?xt=urn:btih:582E716A86A99F342E0390898BBD4430B015CEDC
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192347.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192347.jpgsave_picture_192347.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Google Earth Pro 7.3.6.9275 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192348.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192348.jpgsave_picture_192348.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ magnet:?xt=urn:btih:18A56046D947BAEFB576600CB764CFA99E749159
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192349.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192349.jpgsave_picture_192349.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ magnet:?xt=urn:btih:5B8323AB7A1D09E9B2EEE4DEA72407984A0FCD4B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192350.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192350.jpgsave_picture_192350.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ magnet:?xt=urn:btih:CC8A526B7386B160B6BAA400CE5A55213CC83AB7
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192351.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192351.jpgsave_picture_192351.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ iZotope - Insight 2 2.3.0 VST, VST3, AAX (x64) RePack by R2R [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192352.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192352.jpgsave_picture_192352.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ magnet:?xt=urn:btih:68238886070B9F715535415BE3B01B0E90817FC3
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192353.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192353.jpgsave_picture_192353.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:459E1E9452FCF9BCCEA12214483F76C04C97AA09
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192354.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192354.jpgsave_picture_192354.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ magnet:?xt=urn:btih:EF512FC7E77050B1DC8ED2E6AA803560EE074444
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192355.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192355.jpgsave_picture_192355.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Elvis Presley - Live 1969 (2019) [FLAC|Lossless|tracks + .cue] < Rock & Roll, Po
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192356.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192356.jpgsave_picture_192356.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ magnet:?xt=urn:btih:FC6CAF6BD6E9DD0CB526339C1DB0CB5F94488BBC
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192357.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192357.jpgsave_picture_192357.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Chrysis - Borderline (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122348.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122348.jpgsave_picture_122348.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:8E65E9D2A941854749A13FF38DD1AD4FFE02EF37
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122349.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122349.jpgsave_picture_122349.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ VideoProc Converter 6.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122350.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122350.jpgsave_picture_122350.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:15C38524631A7DEE2CE8033A832F0CBA281A7FF5
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122351.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122351.jpgsave_picture_122351.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Fort Firewall 3.10.12 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122352.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122352.jpgsave_picture_122352.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Battery Indicator for Mac 2.17.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122353.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122353.jpgsave_picture_122353.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:CC1D8325C07B377E1A549B456D642FB058411AD5
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122354.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122354.jpgsave_picture_122354.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:6D973DAF2ED7D8AA30AFE0F4CFFA378CFF0F4578
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122355.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122355.jpgsave_picture_122355.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Unclutter 2.2.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122356.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122356.jpgsave_picture_122356.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ Aiseesoft Mac FoneTrans 9.2.28 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122357.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122357.jpgsave_picture_122357.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:65B6E494BD4F12CF601884B6C5257B064E42E6BC
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122358.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122358.jpgsave_picture_122358.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ Chain - Study & Workout Timer 10.1 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122359.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122359.jpgsave_picture_122359.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Subsonica - Realta Aumentata (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative R
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122360.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122360.jpgsave_picture_122360.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ VA - Top 8 December 2023 Emotional and Uplifting Trance (2024) [MP3|320 Kbps] <T
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122361.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122361.jpgsave_picture_122361.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ magnet:?xt=urn:btih:2B28E3AD889D8820F7B3315B598B12845580A35C
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122362.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122362.jpgsave_picture_122362.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ DirEqual 5.8 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122363.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122363.jpgsave_picture_122363.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ FSNotes 6.6.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122364.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122364.jpgsave_picture_122364.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Holy Dragons - Fortress (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy/Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122365.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122365.jpgsave_picture_122365.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ VideoProc Converter 4K 6.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122366.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122366.jpgsave_picture_122366.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ magnet:?xt=urn:btih:59F573BF993D52603F3BBB6813718A4C91C83D03
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122367.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122367.jpgsave_picture_122367.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ PDF Checkpoint 1.9.20 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122368.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122368.jpgsave_picture_122368.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ FontLab 8 v.8.3.0.8766.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122369.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122369.jpgsave_picture_122369.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Google Chrome 120.0.6099.225 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122370.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122370.jpgsave_picture_122370.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ magnet:?xt=urn:btih:684B1304926618604BE2D5113E070B51159F26A3
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122371.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122371.jpgsave_picture_122371.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ magnet:?xt=urn:btih:16B2FB828C21DE4ADC896825B7586F3A4A3867F9
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122372.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122372.jpgsave_picture_122372.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Chris Rea - Santo Spirito Blues (2011) [OGG Vorbis|480 Kbps] <Blues Rock, Soft R
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122373.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122373.jpgsave_picture_122373.jpg" />
 </div>
 
 

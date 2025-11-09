@@ -6,7 +6,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50667.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50667.jpgsave_picture_50667.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:9ABF1D5F52C08170FE3B392CBB7A6D8AB0016247
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50668.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50668.jpgsave_picture_50668.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:80BEECEAD1263A36FE34D5D7ABBDC00975A18C07
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50669.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50669.jpgsave_picture_50669.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ WhyNotWin11 2.6.1.0 Portable [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50670.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50670.jpgsave_picture_50670.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Luke Goodhue | Обработка пиломатериалов от чернов
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50671.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50671.jpgsave_picture_50671.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:68D8BBB8FF91EF82EB6DE2C2730DCDA2B553EE66
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50672.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50672.jpgsave_picture_50672.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ HiBit Uninstaller 3.2.30 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50673.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50673.jpgsave_picture_50673.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ PanoramaStudio 4.0.9.419 Pro RePack (& Portable) by TryRooM [Ru/En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50674.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50674.jpgsave_picture_50674.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ Fort Firewall 3.13.4 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50675.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50675.jpgsave_picture_50675.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Optimizer 16.6 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50676.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50676.jpgsave_picture_50676.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ HiBit Startup Manager 2.6.45 + Portable [Multi]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50677.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50677.jpgsave_picture_50677.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:FB79A2D5F5DA975030D29DB757CF9CBD681A4479
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50678.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50678.jpgsave_picture_50678.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:28132B0C443E78DBCB2ED7C773AD657DB2C1559F
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50679.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50679.jpgsave_picture_50679.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ DLNow Video Downloader 1.53.2024.07.06 RePack (& Portable) by elchupacabra [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50680.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50680.jpgsave_picture_50680.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ AIMP 5.30 Build 2555 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50681.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50681.jpgsave_picture_50681.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Godrop (2024) [Ru/Multi] (1.34/dlc) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50682.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50682.jpgsave_picture_50682.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ Hex Editor Neo Ultimate 7.46.00.8715 + Portable [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50683.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50683.jpgsave_picture_50683.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ Topaz Gigapixel AI 7.2.2 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50684.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50684.jpgsave_picture_50684.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:638C72F82E929F333736A190DF2A29C3D425B713
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50685.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50685.jpgsave_picture_50685.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Glarysoft Malware Hunter PRO 1.186.0.808 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50686.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50686.jpgsave_picture_50686.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ AR Ruler App: Линейка Рулетка v2.8.4 Mod by srajawwal09 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50687.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50687.jpgsave_picture_50687.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:50A474025667EF4568441B19EC68667CBEE93B55
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50688.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50688.jpgsave_picture_50688.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ J.W. Rohen, C. Yokochi | Anatomy: A Photographic Atlas. Еighth edition (2016) [
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50689.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50689.jpgsave_picture_50689.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ REVEIL (2024) [Ru/Multi] (1.1.1/dlc) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50690.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50690.jpgsave_picture_50690.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ magnet:?xt=urn:btih:F4679B711CAFDD3BC5EB930E42B3DEA2416F6460
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50691.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50691.jpgsave_picture_50691.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ George Barnes & Carl Kress - Guitars, Anyone? Why Not Start at the Top? & Swing,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50692.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50692.jpgsave_picture_50692.jpg" />
 </div>
 
 

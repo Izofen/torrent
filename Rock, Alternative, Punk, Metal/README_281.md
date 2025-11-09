@@ -6,7 +6,7 @@ Journey - Frontiers (1983) Remastered, 2023, Columbia [FLAC|Lossless|WEB-DL|trac
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170370.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170370.jpgsave_picture_170370.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:83EC3B9256A22AF00612E59B54918C1818759C41
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170376.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170376.jpgsave_picture_170376.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Circus of Fools - A Broadcast from GEN .0 (2022) [FLAC|Lossless|WEB-DL|tracks] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170390.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170390.jpgsave_picture_170390.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Lord Vampyr - De Vampyrica Philosophia (2005) [FLAC|Lossless|Tracks] <Symphonic 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170394.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170394.jpgsave_picture_170394.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Hypocrisy - Worship (2021) [FLAC|Lossless|image + .cue] <Melodic Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170419.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170419.jpgsave_picture_170419.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Funke and The Two Tone Baby - Reacclimate (2023) [FLAC|Lossless|WEB-DL|tracks] <
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170429.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170429.jpgsave_picture_170429.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Groundbreaker - Soul To Soul (2021) Japan [FLAC|Lossless|image + .cue] <AOR>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170435.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170435.jpgsave_picture_170435.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Memoria Avenue - Memoria Avenue (2021) Japanese Edition [FLAC|Lossless|image + .
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170442.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170442.jpgsave_picture_170442.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ End - The Sin of Human Frailty (2023) [FLAC|Lossless|WEB-DL|tracks] <Blackened H
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170449.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170449.jpgsave_picture_170449.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Slugdge - Esoteric Malacology (2018) [WavPack|Lossless|image + .cue] <Technical 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170461.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170461.jpgsave_picture_170461.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:28C19DBC00454B036B251BCE2D756FC50AB79253
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170479.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170479.jpgsave_picture_170479.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Jeff Berlin - Jack Songs (2022) [FLAC 2.0|96/24|tracks|WEB-DL] <Progressive Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170483.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170483.jpgsave_picture_170483.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:9002FB1B5A5EDF4601C55FB2F1D1CE49DB15D9F9
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170496.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170496.jpgsave_picture_170496.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Sabu - Banshee (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170500.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170500.jpgsave_picture_170500.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ magnet:?xt=urn:btih:CE10BDD647814DE0B27C59856785FEEF58B2CB44
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170502.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170502.jpgsave_picture_170502.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Angelus Apatrida - Aftermath (2023) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170508.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170508.jpgsave_picture_170508.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Lich King - Necromantic Maelstrom (2007) [WavPack|Lossless|image + .cue] <Thrash
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170509.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170509.jpgsave_picture_170509.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Lich King - Born of the Bomb (2012) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170513.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170513.jpgsave_picture_170513.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:2A427F3B700F90D9997F37BDDB2DDC3D2291E012
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170517.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170517.jpgsave_picture_170517.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Manbryne - O Udrece Ciala I Tulaczce Duszy (2021) [FLAC|Lossless|WEB-DL|tracks] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170522.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170522.jpgsave_picture_170522.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:0ACD846E787DD3F3F30B5AD3932F57D83CB55032
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170523.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170523.jpgsave_picture_170523.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ IT'sALIE - Emosphere (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170525.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170525.jpgsave_picture_170525.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Lich King - World Gone Dead (2010) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170530.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170530.jpgsave_picture_170530.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ I, the Oracle - 2 Albums, 2 EP (2015-2022) [FLAC|Lossless|WEB-DL|tracks] <Metalc
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170533.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170533.jpgsave_picture_170533.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Viogression - Expound and Exhort (1991) [FLAC|Lossless|image + .cue] <Death Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170534.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170534.jpgsave_picture_170534.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Endseeker - Global Worming (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170541.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170541.jpgsave_picture_170541.jpg" />
 </div>
 
 

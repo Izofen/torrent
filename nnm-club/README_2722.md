@@ -6,7 +6,7 @@ Bonfire - Higher Ground (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71522.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71522.jpgsave_picture_71522.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:43FBEAA36DC4C9B4974FD5B8EC91BAEAAFD33CC8
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71523.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71523.jpgsave_picture_71523.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:5098E3B93AE5CFC2D7C034FBAEC185DC9399E5D4
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71524.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71524.jpgsave_picture_71524.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:FE81BA07C33422CDCB75784A5CF2E212976395C5
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71525.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71525.jpgsave_picture_71525.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:D79EAC3EDCABD079405BB985DBBEAC1C3CD76A91
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71526.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71526.jpgsave_picture_71526.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ VA - Deep-House Hunters, Vol. 2 (2024) [MP3|320 Kbps] <House, Deep House, Dance,
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71527.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71527.jpgsave_picture_71527.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ Visions Of Atlantis - Armada LIVE Over Europe - Pt. 1 (2024) [FLAC 24/48|Lossles
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71528.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71528.jpgsave_picture_71528.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ magnet:?xt=urn:btih:72131AA442F277FCB9F7D6F1C5BFA43507FE94B3
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71529.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71529.jpgsave_picture_71529.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ magnet:?xt=urn:btih:C04D986CFBB44D58B899E51AF43E3D6441DF9C64
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71530.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71530.jpgsave_picture_71530.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ VA - Blue Notes, Vol.1: The Essence Of Modern Jazz (1953 - 1962) 10CD, 1999, The
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71531.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71531.jpgsave_picture_71531.jpg" />
 </div>
 
 
@@ -262,7 +262,7 @@ Witchwood (ex-Buttered Bacon Biscuits) - Studio Albums (4 releases) (2009-2020) 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71532.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71532.jpgsave_picture_71532.jpg" />
 </div>
 
 
@@ -289,7 +289,7 @@ Stephen Kellogg and the Sixers - Bulletproof Heart (2004) [FLAC|Lossless|tracks 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71533.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71533.jpgsave_picture_71533.jpg" />
 </div>
 
 
@@ -316,7 +316,7 @@ Pete Yorn - Day I Forgot (2003) CD, Album, Club Edition [FLAC|Lossless|tracks + 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71534.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71534.jpgsave_picture_71534.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ Kariny Phonsy - CHECKMATE (2024) Super Deluxe, 2025, Kariny Phonsy [FLAC 24/44.1
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71535.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71535.jpgsave_picture_71535.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ VA - Italo Disco - The Lost Legends Vol. 16 (2018) [AAC|320 Kbps] <Electronic, I
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71536.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71536.jpgsave_picture_71536.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ magnet:?xt=urn:btih:36A92A5C5398167646378855B26D0E9B42B6CB4C
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71537.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71537.jpgsave_picture_71537.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ The New Roses - Attracted To Danger (2024) [FLAC|Lossless|image + .cue] <Hard Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71538.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71538.jpgsave_picture_71538.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Afterlife - Timelines 2 (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Ambient>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71539.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71539.jpgsave_picture_71539.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ VA - Uplifting Only Top 15: January 2025 (Extended Mixes) (2025) [MP3|320 Kbps] 
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71540.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71540.jpgsave_picture_71540.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ magnet:?xt=urn:btih:8D67EA0974A8C9985108BBA60F531B6BEB5E087B
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71541.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71541.jpgsave_picture_71541.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ magnet:?xt=urn:btih:DFBAA8E7BB3B40732CAC1797C6FD0AB8E3536026
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71542.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71542.jpgsave_picture_71542.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Daath - The Deceivers (2024) [FLAC|Lossless|image + .cue] <Industrial, Melodic D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71543.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71543.jpgsave_picture_71543.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Vintage Culture - One World Radio Residency 038 (2025-01-17) [MP3|320 Kbps] <Tec
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71544.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71544.jpgsave_picture_71544.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ magnet:?xt=urn:btih:2270CADD78909FB9AB0ED2AD5B069F9A876D34AF
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71545.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71545.jpgsave_picture_71545.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ magnet:?xt=urn:btih:424A1A877047EDE28E2EDF06F34249E03426A550
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71546.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71546.jpgsave_picture_71546.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ magnet:?xt=urn:btih:88E49EF26F323387757F8F012475677AE0BC2619
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71547.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71547.jpgsave_picture_71547.jpg" />
 </div>
 
 

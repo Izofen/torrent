@@ -6,7 +6,7 @@
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118192.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118192.jpgsave_picture_118192.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ SD Maid v5.6.3 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118193.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118193.jpgsave_picture_118193.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:BE116EE5F2AF3DF06D87A0AE3AEBE06D7DE42593
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118194.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118194.jpgsave_picture_118194.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Realms of Arkania: Blade of Destiny (Remake) (2013) [Multi] (1.36) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118195.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118195.jpgsave_picture_118195.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:D772D773F98CE5C06428D7751F7310A7E17F1332
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118196.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118196.jpgsave_picture_118196.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:F8CD3914D5826BFEF0092483B4686AFA012FDBA7
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118197.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118197.jpgsave_picture_118197.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:F8CD3914D5826BFEF0092483B4686AFA012FDBA7
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118198.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118198.jpgsave_picture_118198.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:9EA0B55F919B9A0BE464BDD5FA393F40EDAFBF66
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118199.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118199.jpgsave_picture_118199.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ Master of Magic (2022) [Multi] (1.09.13/dlc) Scene Rune
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118200.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118200.jpgsave_picture_118200.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ magnet:?xt=urn:btih:45ACD6EAB64FF588E72935823E7FDE9EB809AA21
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118201.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118201.jpgsave_picture_118201.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ magnet:?xt=urn:btih:1E4997F354FFA9BAC5433555ED265FCBA3AF99BA
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118202.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118202.jpgsave_picture_118202.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ My Recycling Center (2024) [Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118203.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118203.jpgsave_picture_118203.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:1014EB4F275DE7775709683E9A6EAB5924E12BC4
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118204.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118204.jpgsave_picture_118204.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ magnet:?xt=urn:btih:1014EB4F275DE7775709683E9A6EAB5924E12BC4
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118205.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118205.jpgsave_picture_118205.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ magnet:?xt=urn:btih:FAB4E18B7FA5ECC74128354BDD1013ABBC704E21
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118206.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118206.jpgsave_picture_118206.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ magnet:?xt=urn:btih:FAB4E18B7FA5ECC74128354BDD1013ABBC704E21
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118207.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118207.jpgsave_picture_118207.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ God of War (2022) [Ru/En] (1.0.475.7534) Repack Decepticon
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118208.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118208.jpgsave_picture_118208.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ magnet:?xt=urn:btih:8D3A3675807BC0B1A9BF98FB5A87880AB0E7CEAD
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118209.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118209.jpgsave_picture_118209.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ magnet:?xt=urn:btih:0E33CCFF8343343E10A5D991079FA541AD7C7814
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118210.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118210.jpgsave_picture_118210.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ magnet:?xt=urn:btih:F94CCDE969CCE385D49B6103DE12E0AFA3AA4A4F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118211.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118211.jpgsave_picture_118211.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Heretic + Heretic 2 (1994, 1998) [Ru/En] (1.0) Repack/Rip Pilotus
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118212.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118212.jpgsave_picture_118212.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ magnet:?xt=urn:btih:11ED2680544B58BD2BC3C9BB72516B27B475984B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118213.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118213.jpgsave_picture_118213.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ magnet:?xt=urn:btih:FC4EC214B6CE01FB4139D935EE6861D24F93ED94
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118214.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118214.jpgsave_picture_118214.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ GSClient Counter-Strike 1.6 (2003) [Ru/En] (1.1.2.7/pv49/b9830) Repack 1nomok
 >>Online Action (MMO)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118215.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118215.jpgsave_picture_118215.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ magnet:?xt=urn:btih:04E1C7B41E8CD45EB7CCC5BB374C0B5D43438225
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118216.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118216.jpgsave_picture_118216.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Rise to Ruins (2019) [En] (2d) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118217.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118217.jpgsave_picture_118217.jpg" />
 </div>
 
 

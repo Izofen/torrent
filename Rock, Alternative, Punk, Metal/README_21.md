@@ -6,7 +6,7 @@ Leprous - Melodies Of Atonement (2024) 2xCD, Deluxe Edition, Limited Edition [FL
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30741.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30741.jpgsave_picture_30741.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Whom Gods Destroy - Insanium (2024) 2 x CD [FLAC|Lossless|image + .cue] <Progres
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30743.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30743.jpgsave_picture_30743.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Anfitrite - Clitemnestra (2025) [MP3|320 Kbps] <Symphonic Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30828.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30828.jpgsave_picture_30828.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Crimson Storm - Livin' On The Bad Side (2025) [FLAC|Lossless|WEB-DL|tracks] <Hea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30843.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30843.jpgsave_picture_30843.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Iron Jaw - Cursed (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30845.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30845.jpgsave_picture_30845.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Exorddium - Observador das Eras (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30846.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30846.jpgsave_picture_30846.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ VA - 40 Songs Rock Workout (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30939.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30939.jpgsave_picture_30939.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ magnet:?xt=urn:btih:813FCD62FADA1D5758252A3830B6904B4DF92880
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30953.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30953.jpgsave_picture_30953.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Pink Floyd - The Dark Side Of The Moon - Live At Wembley 1974 (2023) Master [MP3
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30964.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30964.jpgsave_picture_30964.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ VA - Absolute Classic Rock (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30973.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30973.jpgsave_picture_30973.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Echolyn - Time Silent Radio vii II (2025) 2 x CD [MP3|320 Kbps] <Progressive Roc
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31041.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31041.jpgsave_picture_31041.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Clouds - Desprins (2025) [MP3|320 Kbps] <Melodic  Funeral Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31044.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31044.jpgsave_picture_31044.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Anabasi Road - Ecce Homo (2025) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31055.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31055.jpgsave_picture_31055.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Conniption - The Theatre of Invention (2025) [FLAC|Lossless|WEB-DL|tracks] <Heav
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31058.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31058.jpgsave_picture_31058.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ magnet:?xt=urn:btih:81DE54F771DBED915968E2B01D66F7391626BC38
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31072.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31072.jpgsave_picture_31072.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ magnet:?xt=urn:btih:89B607C87CBD92236DDAC4AD66AD979C26FEAD6D
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31084.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31084.jpgsave_picture_31084.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ magnet:?xt=urn:btih:91DDD1179FBB0F5827262FDEAF960518C99281CB
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31108.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31108.jpgsave_picture_31108.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ magnet:?xt=urn:btih:C32A88105B98BB8224B6BE95A7108875F275686A
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31144.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31144.jpgsave_picture_31144.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Eagles - To The Limit: The Essential Collection (2024) Japanese Edition, 3 x CD,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31273.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31273.jpgsave_picture_31273.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Queen - Flash Gordon (Original Soundtrack Music) (1980) Japanese Edition, SHM-CD
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31350.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31350.jpgsave_picture_31350.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:37AB6DB5F9CF50AFF1BA2308139B897D53A44151
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31352.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31352.jpgsave_picture_31352.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Jethro Tull - The Jethro Tull Christmas Album (Fresh Snow At Christmas) (2024) 4
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31359.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31359.jpgsave_picture_31359.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Broken Silence - Last Man Standing (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31368.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31368.jpgsave_picture_31368.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Blind Golem - Wunderkammer (2025) [FLAC|Lossless|WEB-DL|tracks] <Progressive Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31470.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31470.jpgsave_picture_31470.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Marta Prell - Versus Songs (2012) [MP3|320 Kbps] <Chaotic Hardcore, Post Hardcor
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31471.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31471.jpgsave_picture_31471.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ My Arrival - Lost 3mbers (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31475.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31475.jpgsave_picture_31475.jpg" />
 </div>
 
 

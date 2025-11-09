@@ -6,7 +6,7 @@ Level 1 Dakedo Unique Skill de Saikyou Desu | My Unique Skill Makes Me OP Even a
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115561.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115561.jpgsave_picture_115561.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ David Knopfler - Crow Gifts (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock, Soft Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115562.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115562.jpgsave_picture_115562.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:DA1B6BDA3519C579C835AE411E00EFDA62CD98B3
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115563.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115563.jpgsave_picture_115563.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Street Fighter II: The Animated Movie | Уличный боец II [1994, Movie]
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115564.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115564.jpgsave_picture_115564.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Book Travelers 2: A Royal Story / Книжные странники 2: Коро�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115565.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115565.jpgsave_picture_115565.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Psiphon 3 build 181 (25.02.2024) Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115566.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115566.jpgsave_picture_115566.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:CA55C25748621903B40520EAAD9195DAD13C8A24
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115567.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115567.jpgsave_picture_115567.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:8835B64F81C71D66D809D2FB382E7020656A73CF
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115568.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115568.jpgsave_picture_115568.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ VA - Best  Instrumental Jazz and Bossa Nova (2024) [MP3|320 Kbps] <Smooth Jazz, 
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115569.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115569.jpgsave_picture_115569.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ magnet:?xt=urn:btih:27FCB8C84649913F3C2CBC545A9D7186008F3EBB
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115570.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115570.jpgsave_picture_115570.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:27FCB8C84649913F3C2CBC545A9D7186008F3EBB
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115571.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115571.jpgsave_picture_115571.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:4BB9E08E8862134B0C0D64626227575997A47FA4
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115572.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115572.jpgsave_picture_115572.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ magnet:?xt=urn:btih:DB8388BD7692EE4A95DE104E1547B3E3A4D4E0FC
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115573.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115573.jpgsave_picture_115573.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ magnet:?xt=urn:btih:B354FCE4BF8041121B8C68AE921B2A38C924ADE0
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115574.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115574.jpgsave_picture_115574.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ NVIDIA GeForce Desktop Game Ready 551.61 WHQL + DCH [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115575.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115575.jpgsave_picture_115575.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Tensei Kizoku no Isekai Boukenroku: Jichou o Shiranai Kamigami no Shito | Пут
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115576.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115576.jpgsave_picture_115576.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ magnet:?xt=urn:btih:66250C4DDFFBB3E692025A0AA5DC6678FAE44B1D
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115577.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115577.jpgsave_picture_115577.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ Desktop.Calendar.Tray.OK 4.04 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115578.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115578.jpgsave_picture_115578.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ magnet:?xt=urn:btih:239DBF4ADB5671674C9A886DA12CFC33EB63EAC2
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115579.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115579.jpgsave_picture_115579.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ AntiPlagiarism.NET 4.130.0.0 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115580.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115580.jpgsave_picture_115580.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ magnet:?xt=urn:btih:2BEEDFCE62744E7EE5E7ACF58B616C692FAECBDD
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115581.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115581.jpgsave_picture_115581.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ VA - Record Super Chart 24.02.2024 [MP3|320 Kbps] <Pop, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115582.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115582.jpgsave_picture_115582.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ magnet:?xt=urn:btih:D6CBB230CB8B3E5F21E0667FF8FBA1DE624D74B3
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115583.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115583.jpgsave_picture_115583.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ magnet:?xt=urn:btih:288AA7EE50220A707DD7963C649EF24F89454BDA
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115584.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115584.jpgsave_picture_115584.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ TechSmith Camtasia 23.4.3 (Build 51546) RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115585.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115585.jpgsave_picture_115585.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Udemy, Meritshot Academy | Statistics and Hypothesis Testing for Data science (2
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115586.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115586.jpgsave_picture_115586.jpg" />
 </div>
 
 

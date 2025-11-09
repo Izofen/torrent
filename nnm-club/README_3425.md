@@ -6,7 +6,7 @@ Zelenaya - Folk Songs (2024) [FLAC|Lossless|WEB-DL|tracks] <doom metal, fusion, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109411.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109411.jpgsave_picture_109411.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Ricky Ford - Saxotic Stomp (1988) Muse Records [FLAC|Lossless|tracks + .cue] <Ha
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109412.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109412.jpgsave_picture_109412.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Cardiac Arrest - Cadaverous Presence (2008) [FLAC|Lossless|image + .cue] <Death 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109413.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109413.jpgsave_picture_109413.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Wycliffe Gordon - Somebody New (2015) Blues Back Records [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109414.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109414.jpgsave_picture_109414.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Cardiac Arrest - Morgue Mutilations (2006) [FLAC|Lossless|image + .cue] <Death M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109415.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109415.jpgsave_picture_109415.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ VA - Silent Shore Trance - Essential Classics Vol. 4 (2024) [MP3|320 Kbps] <Tran
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109416.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109416.jpgsave_picture_109416.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Seb Zito - Dialled In LP (2024) [FLAC|Lossless|WEB-DL|tracks] <deep house, progr
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109417.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109417.jpgsave_picture_109417.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ magnet:?xt=urn:btih:3445CED25C6A50E8BADC3AB31B7089FD7C3112E3
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109418.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109418.jpgsave_picture_109418.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ VA - Dance Anthems Spring 2024 (2024) [MP3|320 Kbps] <Dance, Club, House, Electr
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109419.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109419.jpgsave_picture_109419.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ The Yum Yums - Poppin' Up Again (2024) [FLAC|Lossless|WEB-DL|tracks] <Power-Pop,
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109420.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109420.jpgsave_picture_109420.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ VA - Nothing But... Trancetopia Vol. 14 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109421.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109421.jpgsave_picture_109421.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Night Hearth - La noche de los sueños perdidos (2024) [MP3|320 Kbps] <Power Met
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109422.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109422.jpgsave_picture_109422.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ The Neal Morse Band - Innocence & Danger (2021) [FLAC|Lossless|tracks + .cue] <P
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109423.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109423.jpgsave_picture_109423.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ magnet:?xt=urn:btih:1F2FEC41D8790CEAD5AD2152F1CF3961431CDB37
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109424.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109424.jpgsave_picture_109424.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ VA - Metal Massacre 02 (1982) [FLAC|24/192|image + .cue|Vinyl-Rip] <Thrash, Glam
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109425.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109425.jpgsave_picture_109425.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Demon - Invincible (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Hard Rock>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109426.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109426.jpgsave_picture_109426.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Stonehand - Алхимия (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109427.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109427.jpgsave_picture_109427.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ Charlie Byrd, Barney Kessel, Herb Ellis - Great Guitars At The Winery (1980) 199
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109428.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109428.jpgsave_picture_109428.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Charlie Byrd, Barney Kessel, Herb Ellis - Great Guitars At Charlie's Georgetown 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109429.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109429.jpgsave_picture_109429.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Winifred Atwell - The Best of Winifred Atwell (1999) Spectrum Music [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109430.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109430.jpgsave_picture_109430.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Wayne Shorter - The Soothsayer (1965) 1990, Blue Note [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109431.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109431.jpgsave_picture_109431.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Shokran - Duat (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metalcore>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109432.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109432.jpgsave_picture_109432.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Luther Vandross - Luther (1976) Remaster, 2024, Legacy Recordings [MP3|320 Kbps]
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109433.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109433.jpgsave_picture_109433.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ Kalac - Odyssee (2024) [FLAC|Lossless|WEB-DL|tracks] <space rock, fuzz, kraut>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109434.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109434.jpgsave_picture_109434.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ George Shearing - Mellow Moods (1989) Pair Records [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109435.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109435.jpgsave_picture_109435.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ QuickEdit Text Editor Pro 1.11.0 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109436.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109436.jpgsave_picture_109436.jpg" />
 </div>
 
 

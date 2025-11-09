@@ -6,7 +6,7 @@ XnView Classic 2.51.3 (Minimal-Standard-Extended) + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191828.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191828.jpgsave_picture_191828.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ B.B. King - Forever Gold (1999) 2CD [FLAC|Lossless|image + .cue] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191829.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191829.jpgsave_picture_191829.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:05AF4ED6CAF6BAEF29DE230EC6634CE19520D668
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191830.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191830.jpgsave_picture_191830.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:3E205A4FB45FC6D20FD02758F3B8278051A82A35
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191831.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191831.jpgsave_picture_191831.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ Sabotage - See the World (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191832.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191832.jpgsave_picture_191832.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ White Skies - Black Tide (2022) [MP3|320 Kbps] <Melodic Rock, AOR>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191833.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191833.jpgsave_picture_191833.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ magnet:?xt=urn:btih:6E70366F3B2AAFEAFACD13532E8288793E6641BD
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191834.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191834.jpgsave_picture_191834.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ Jon Bon Jovi - Destination Anywhere (1997) Reissue, 2013, Mercury [OGG Vorbis|48
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191835.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191835.jpgsave_picture_191835.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ HomeBank 5.7 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191836.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191836.jpgsave_picture_191836.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ magnet:?xt=urn:btih:D9B49234200B69CA6BAC16DA3BDC2DD6058FAD63
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191837.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191837.jpgsave_picture_191837.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ Geekbench Free 6.1.0 [En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191838.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191838.jpgsave_picture_191838.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ Yan Cui | AppSync Masterclass (Premium) (2023) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191839.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191839.jpgsave_picture_191839.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ Transparent clock & weather / Прозрачные часы и погода 6.36
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191840.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191840.jpgsave_picture_191840.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ magnet:?xt=urn:btih:2D17231977F91435C97544D22F888C47C2D097D9
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191841.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191841.jpgsave_picture_191841.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ magnet:?xt=urn:btih:5C907D0F525D697A1F5228692713F58F05B723E7
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_191842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191842.jpgsave_picture_191842.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Araxis Merge Pro 2023.5916 (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191843.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191843.jpgsave_picture_191843.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ magnet:?xt=urn:btih:1143C7264655FAAF0B31E81C9D4801003CEBDA02
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191844.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191844.jpgsave_picture_191844.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ magnet:?xt=urn:btih:6BE24475514EDD7B57219C00FA572C16457EDEA3
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191845.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191845.jpgsave_picture_191845.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ Equilibrium - Renegades (2019) [FLAC|Lossless|image + .cue] <Melodic Death Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191846.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191846.jpgsave_picture_191846.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ magnet:?xt=urn:btih:340B83E79CA98ACB61FF0FF834FB46F09911D882
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191847.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191847.jpgsave_picture_191847.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Julius Rodriguez - Let Sound Tell All (2022) [FLAC|Lossless|tracks + .cue] <Post
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191848.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191848.jpgsave_picture_191848.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ White Skull - Metal Never Rusts (2022) [FLAC|Lossless|image + .cue] <Heavy, Powe
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191849.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191849.jpgsave_picture_191849.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ magnet:?xt=urn:btih:9150F17937997B07351B6A43DBA8C54552DED25D
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191850.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191850.jpgsave_picture_191850.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ WPS Office + PDF 18.1.1 Mod by ImanAlien [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191851.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191851.jpgsave_picture_191851.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ magnet:?xt=urn:btih:ACB2E03307ED2C8B8BF7260BE960A807A0841EB3
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191852.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191852.jpgsave_picture_191852.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Blodhemn - Mot ein evig ruin (2019) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191853.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191853.jpgsave_picture_191853.jpg" />
 </div>
 
 

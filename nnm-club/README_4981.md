@@ -6,7 +6,7 @@
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155627.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155627.jpgsave_picture_155627.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Vivaldi 2.2.1388.37 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155630.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155630.jpgsave_picture_155630.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:767B05BAC8771464F18C039D723F64E9648D22E0
 >>Мир будущего
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155631.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155631.jpgsave_picture_155631.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:C830D30682E184463532D917EEDD24DF8D296900
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155632.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155632.jpgsave_picture_155632.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:49CA5D9F3F1BC8A10D8DBEAD7A3FAA2222B50753
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155633.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155633.jpgsave_picture_155633.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:B0E3494E5FDAF031ADA6E9324C1961CE428E95C1
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155634.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155634.jpgsave_picture_155634.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:3CBEB69658463F4E3C68B2914E4EAE90E4667ED6
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155637.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155637.jpgsave_picture_155637.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ Sonible - smart:limit 1.1.3 VST, VST3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155638.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155638.jpgsave_picture_155638.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ Purple Disco Machine - Club Exotica (2021) [AAC|~343 Kbps] <House, Dance, Disco,
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155639.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155639.jpgsave_picture_155639.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ magnet:?xt=urn:btih:A6615AE4F5785B1FFF82DF0FC68457CEA4302D81
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155640.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155640.jpgsave_picture_155640.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ magnet:?xt=urn:btih:B20312A58727831EA2424A9FB6341685B6E71E18
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155641.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155641.jpgsave_picture_155641.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ magnet:?xt=urn:btih:090023FFF9895792F0F117C4A9B3707F9D4B471B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155643.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155643.jpgsave_picture_155643.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ magnet:?xt=urn:btih:ABF33D90B5C1E81D39C75B78BF27A96F4FC9C72E
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155645.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155645.jpgsave_picture_155645.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ magnet:?xt=urn:btih:009AE7650F65DEAB6AFE8E62DC9568D278247AB0
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155646.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155646.jpgsave_picture_155646.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ magnet:?xt=urn:btih:4BE61600EDD0F76F61A245D5EA8A5909A58D4246
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155648.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155648.jpgsave_picture_155648.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ magnet:?xt=urn:btih:05A2AC7659550B73188542D22BBD5DC04792EB3F
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155649.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155649.jpgsave_picture_155649.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ Future Synth - Drone (2022) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Spacesynth,
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155650.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155650.jpgsave_picture_155650.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ magnet:?xt=urn:btih:4A15B5EAA653FDB9E86CE79DCF19DD8F5DC71017
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155651.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155651.jpgsave_picture_155651.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ magnet:?xt=urn:btih:2D5D48AEAF6F544A1D545ED5F2950309928A697F
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155652.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155652.jpgsave_picture_155652.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ magnet:?xt=urn:btih:DD7EE982E8C1A1778F898F3AA215989575222ABB
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155653.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155653.jpgsave_picture_155653.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Skarlett Riot - Tear Me Down (2013) [MP3|320 Kbps] <Alternative Rock, Hard Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155654.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155654.jpgsave_picture_155654.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ magnet:?xt=urn:btih:A28D28F90F81677DA4C5E58C15B8C51D7D3B96FA
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155655.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155655.jpgsave_picture_155655.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ magnet:?xt=urn:btih:598210E9087D06388640FB1700A146AF5E316EFF
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155656.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155656.jpgsave_picture_155656.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Purple Disco Machine - Exotica (2021) [AAC|~335 Kbps] <Dance, Nu Disco>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155657.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155657.jpgsave_picture_155657.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ magnet:?xt=urn:btih:530B7EE40EA81114E2D11207D4FD8AC0C71E369F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155658.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155658.jpgsave_picture_155658.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ TechSmith Snagit 2020.1.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155659.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155659.jpgsave_picture_155659.jpg" />
 </div>
 
 

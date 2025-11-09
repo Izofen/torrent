@@ -6,7 +6,7 @@
 >>Детские (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233334.jpgsave_picture_233334.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:C7B334FA56AE8EE395FCC58442CB768662FF4F04
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233335.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233335.jpgsave_picture_233335.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:2771F403C1518DE4B2AB4A38C4BBC789A0A9E0AA
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_233336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233336.jpgsave_picture_233336.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:F76BB2067F92963FF82EE6B03B32AC14AAE1F05E
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233338.jpgsave_picture_233338.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ Behemoth - Opvs Contra Natvram (2022) [FLAC|Lossless|WEB-DL|tracks] <Blackened D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233339.jpgsave_picture_233339.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ Mnemic - Studio Albums (5 releases) (2003-2012) hand made [restored, declipped] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233340.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233340.jpgsave_picture_233340.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ magnet:?xt=urn:btih:C09456FDADFAF80160FCB36C5A51FCEC1A07BAD7
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233341.jpgsave_picture_233341.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ Genesis - BBC Broadcasts (2023) Бокс-сет, 5 x CD, Compilation [FLAC|Lossl
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_233342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233342.jpgsave_picture_233342.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Wondershare PDFelement 9.5.7.2260 + OCR Plugin (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_233343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233343.jpgsave_picture_233343.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ magnet:?xt=urn:btih:5EA99F4EF6029CD87BDCA320771F9F956E2E5511
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233345.jpgsave_picture_233345.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ The Sonce - Rising with the Moon (2023) [MP3|320 Kbps] <Heavy Rock, Psych, Stone
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233346.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233346.jpgsave_picture_233346.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ UniBook - Аудиокниги v0.6.8 [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_233347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233347.jpgsave_picture_233347.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ magnet:?xt=urn:btih:4D9C68A9C39A418118E3F6B7A7FE2FDCDFACBE02
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233348.jpgsave_picture_233348.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ magnet:?xt=urn:btih:820FD82AC508D308AAA6B69949D288C6F4014C55
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233349.jpgsave_picture_233349.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Kim Dotcom - Good Times (2014) [MP3|320 Kbps] <Electronic, Dance, Pop>
 >>Eurodance, Euro-House, Technopop
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_233350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233350.jpgsave_picture_233350.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Honey Revenge - Retrovision (2023) [FLAC|Lossless|WEB-DL|tracks] <Alt.Rock, Pop-
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233351.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233351.jpgsave_picture_233351.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Spectrasonics Keyscape 1.3.3d Standalone, VSTi, VSTi 3 (x64) + Library [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233352.jpgsave_picture_233352.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ VueScan Pro 9.8.01 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_233353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233353.jpgsave_picture_233353.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ Omophagia - 3 Albums (2016-2022) [FLAC|Lossless|WEB-DL|tracks] <Technical Modern
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233354.jpgsave_picture_233354.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ magnet:?xt=urn:btih:28B9D86334823748E4FE2645E045DE040589FBFE
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233355.jpgsave_picture_233355.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Rites of Sin - Rites of Sin (2023) [FLAC|Lossless|WEB-DL|tracks] <Gothic Metal, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233356.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233356.jpgsave_picture_233356.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ magnet:?xt=urn:btih:6F19118E20DEB668A4B7C353F810500267A52BE3
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_233357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233357.jpgsave_picture_233357.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ magnet:?xt=urn:btih:967C6BB19AA2D373946B06E029472EA18491AE69
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233358.jpgsave_picture_233358.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Rain City Drive - Rain City Drive (2022) Deluxe Edition, 2023, Thriller Records 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233359.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233359.jpgsave_picture_233359.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ magnet:?xt=urn:btih:E7634D5824DEAE7CA13396FB5F1CD794D2DB81FE
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233360.jpgsave_picture_233360.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Paint.NET 5.0.4 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_233361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233361.jpgsave_picture_233361.jpg" />
 </div>
 
 

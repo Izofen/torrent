@@ -6,7 +6,7 @@ Opera GX 100.0.4815.82 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231314.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231314.jpgsave_picture_231314.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Keep It 2.2.10 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231315.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231315.jpgsave_picture_231315.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:42550D8DFBBE84D38296428F9AC2846BAAD531DD
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231316.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231316.jpgsave_picture_231316.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ Landscape - Xcursions 2 Other Versions (2023) [MP3|320 Kbps] <New Wave, Synthpop
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231317.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231317.jpgsave_picture_231317.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ LTI / Контролируемый кризис и подвижная оборо
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_231319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231319.jpgsave_picture_231319.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ magnet:?xt=urn:btih:8F3D10A05B88219DE4CEDCB8C1A8696C9C024841
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231320.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231320.jpgsave_picture_231320.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ FileSeek Pro 6.8.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231322.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231322.jpgsave_picture_231322.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ CADintosh X 8.8.5 Beta [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231323.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231323.jpgsave_picture_231323.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ Cavalera Conspiracy - 2 Albums (2023) [FLAC|Lossless|WEB-DL|tracks] <Groove Thra
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231324.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231324.jpgsave_picture_231324.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ magnet:?xt=urn:btih:FF58E9DE82946672492F3B4218C2A98E29A3BAC6
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231325.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231325.jpgsave_picture_231325.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ BusyCal 2023.3.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231326.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231326.jpgsave_picture_231326.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ magnet:?xt=urn:btih:0B0506CC2E6A8FFBBE3CD8FEA345C086E9A492B9
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_231327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231327.jpgsave_picture_231327.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ OmniReader Pro for Mac 2.3.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231329.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231329.jpgsave_picture_231329.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ magnet:?xt=urn:btih:2F293CA069A578E758A7227DC2AC5E362E0283BC
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231330.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231330.jpgsave_picture_231330.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Grip - Solstici (2023) [FLAC|Lossless|WEB-DL|tracks] <Doom, Stoner Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231331.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231331.jpgsave_picture_231331.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Screens v.4 4.12.10 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231332.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231332.jpgsave_picture_231332.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Dave Brubeck - Ballads (1956 - 1991) 2015, Sony Music [FLAC|Lossless|image + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231334.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231334.jpgsave_picture_231334.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ magnet:?xt=urn:btih:6F28085EA9D7EE8C5B17EBEDDA6310B9633B9B94
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_231336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231336.jpgsave_picture_231336.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ Clifford Jordan Quartet - Bearcat (1962) 1990, Original Jazz Classics [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231337.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231337.jpgsave_picture_231337.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ Data Guardian 7 v.7.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231338.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231338.jpgsave_picture_231338.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ VA - Yasukuni Terashima Presents: Jazz Bar (2017) Terasima Records [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231339.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231339.jpgsave_picture_231339.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ SplitCam 10.7.13 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231340.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231340.jpgsave_picture_231340.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ World End Man - Suffer Leader (2022) [FLAC|Lossless|WEB-DL|tracks] <Death Metal,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231341.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231341.jpgsave_picture_231341.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ VA - Wonderful Trance Tracks (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231342.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231342.jpgsave_picture_231342.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Photo Supreme 2023.1.2.4898 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_231344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231344.jpgsave_picture_231344.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Codepoint for Mac 1.8 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231345.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231345.jpgsave_picture_231345.jpg" />
 </div>
 
 

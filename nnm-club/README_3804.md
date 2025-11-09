@@ -6,7 +6,7 @@ iTop VPN 5.3.0.5106 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119284.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119284.jpgsave_picture_119284.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:E6D8E7D3D9BAD0F21FDD7F8746DE25BFE701F3E7
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119285.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119285.jpgsave_picture_119285.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:70ABDC5DD32AC40FDFBD48ABFF4A73AA3BCFC427
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119286.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119286.jpgsave_picture_119286.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:3D500E82A22D020C0D161A1A2D2759C3EB7B45B3
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119287.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119287.jpgsave_picture_119287.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Internet Download Manager 6.42 Build 3 RePack by elchupacabra (04.02.2024) [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119288.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119288.jpgsave_picture_119288.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:0665CD5448B7ECEBD1C0B93D36AADA2F23BF9B34
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119289.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119289.jpgsave_picture_119289.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Rugburn - Moon Dive (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz Fusion & Jazz Roc
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119290.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119290.jpgsave_picture_119290.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Savaged - Night Stealer (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119291.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119291.jpgsave_picture_119291.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Graywitch - Children Of Gods (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119292.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119292.jpgsave_picture_119292.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ Kings of Gehenna - Return To Nightmare (2024) [FLAC|Lossless|WEB-DL|tracks] <Mod
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119293.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119293.jpgsave_picture_119293.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ Metralion - The Rest is Silence (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119294.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119294.jpgsave_picture_119294.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ Metralion - Requiem for a Society (2021) [FLAC|Lossless|image + .cue] <Thrash Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119295.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119295.jpgsave_picture_119295.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ Art Blakey & The Jazz Messengers - Straight Ahead (1981) 1990, Concord Jazz [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119296.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119296.jpgsave_picture_119296.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ Oromet - Oromet (2023) [FLAC|Lossless|WEB-DL|tracks] <Funeral Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119297.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119297.jpgsave_picture_119297.jpg" />
 </div>
 
 
@@ -365,7 +365,7 @@ Sore - Gruesome Pillowbook Tales (2007) [FLAC|Lossless|image + .cue] <Death Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119298.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119298.jpgsave_picture_119298.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ Metralion - Quo Vadis / A Mosh In Brazil (2019) Compilation [FLAC|Lossless|image
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119299.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119299.jpgsave_picture_119299.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ Reapter - M.I.N.D (2010) Reissued-2013 [FLAC|Lossless|image + .cue] <Thrash Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119300.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119300.jpgsave_picture_119300.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ Suture - Morbid Sculpture Demonology (2004) [FLAC|Lossless|image + .cue] <Brutal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119301.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119301.jpgsave_picture_119301.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ magnet:?xt=urn:btih:F6784A261BB1AC0E7342C81FEE71D2224B860B36
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119302.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119302.jpgsave_picture_119302.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ Madness - Madness, by Mike (2024) [FLAC|Lossless|WEB-DL|tracks] <Ska, Pop Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119303.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119303.jpgsave_picture_119303.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ magnet:?xt=urn:btih:824E9999D41F613354DA18792BDC55FAC82D6B64
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119304.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119304.jpgsave_picture_119304.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ Shadow - Studio Albums (2 releases) (2001-2008) hand made [restored, declipped] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119305.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119305.jpgsave_picture_119305.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ The Great Alone - Perception (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alter
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119306.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119306.jpgsave_picture_119306.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ magnet:?xt=urn:btih:524140069E745245C4F475777E096CCC3EDE5DA0
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119307.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119307.jpgsave_picture_119307.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ Plantoid - Terrapath (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <progressive roc
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119308.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119308.jpgsave_picture_119308.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ Brian Tarquin & Heavy Friends - Beyond The Warrior's Eyes (2024) [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119309.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119309.jpgsave_picture_119309.jpg" />
 </div>
 
 

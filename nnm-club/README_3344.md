@@ -6,7 +6,7 @@ Rodney Greene - Real Close (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107305.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107305.jpgsave_picture_107305.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Pryne - Gargantuan (2024) [MP3|320 Kbps] <Progressive Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107306.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107306.jpgsave_picture_107306.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Nathan Mitchell - Gentle and Smooth (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107307.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107307.jpgsave_picture_107307.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Laurindo Almeida & Charlie Byrd - Brazilian Soul (1980) 2002, Victor [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107308.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107308.jpgsave_picture_107308.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ magnet:?xt=urn:btih:9BF0CE5F0C7C64C5CC7CE8F4F9597CBC0337482D
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107309.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107309.jpgsave_picture_107309.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Victor Lob - Day Dreaming (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107310.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107310.jpgsave_picture_107310.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Michel Morissette - Quatre (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz Fusion & J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107311.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107311.jpgsave_picture_107311.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Willis Jackson - Single Action (1978) 1995, Muse Records [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107312.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107312.jpgsave_picture_107312.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Phlyndc - Passion (2024) [FLAC|Lossless|WEB-DL|tracks] <Contemporary Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107313.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107313.jpgsave_picture_107313.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ PrivaZer Pro 4.0.88 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107314.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107314.jpgsave_picture_107314.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Anims - Good 'n' Evil (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107315.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107315.jpgsave_picture_107315.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:C76EFCCB317D114153AEEF27FCA77331D785A06B
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107316.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107316.jpgsave_picture_107316.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Fort Firewall 3.13.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107317.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107317.jpgsave_picture_107317.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ VA - Deep House Hits 2024 (2024) [MP3|320 Kbps] <House, Deep House, Dance, Club>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107318.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107318.jpgsave_picture_107318.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:92C76124876EB55F8DFF4E80664B7868BEA5A38D
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107319.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107319.jpgsave_picture_107319.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Skype 8.122.0.205 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107320.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107320.jpgsave_picture_107320.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ magnet:?xt=urn:btih:6BC4679AC290AEE3B1C6F2270B32333D8AF92DE8
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107321.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107321.jpgsave_picture_107321.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ Opera One 111.0.5168.43 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107322.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107322.jpgsave_picture_107322.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ magnet:?xt=urn:btih:4B7EDCCCFE57AAA295F19F9248EBFA3B41203A7B
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107323.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107323.jpgsave_picture_107323.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ magnet:?xt=urn:btih:AED27FE3E4EB3ABBA2370854D94C501443B91E92
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107324.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107324.jpgsave_picture_107324.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ magnet:?xt=urn:btih:AED27FE3E4EB3ABBA2370854D94C501443B91E92
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107325.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107325.jpgsave_picture_107325.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ magnet:?xt=urn:btih:E0CDB58109CF694C439B71DA85A92C8EF0E192E2
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107326.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107326.jpgsave_picture_107326.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ magnet:?xt=urn:btih:1B36C5A2720DED208CC24EC0E988EE475C65DEE1
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107327.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107327.jpgsave_picture_107327.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ magnet:?xt=urn:btih:C49F91670E197F01F452F283A581D959BCC6C5BD
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107328.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107328.jpgsave_picture_107328.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ para bellvm - Это я (2024) [MP3|320 Kbps] <Gothic Rock, Dark Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107329.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107329.jpgsave_picture_107329.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ Yes - Fragile (1971) Super Deluxe Edition, Steven Wilson Remix, 2024, Rhino Atla
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107330.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107330.jpgsave_picture_107330.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Telegram Desktop 5.1.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108527.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108527.jpgsave_picture_108527.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:23B53FA19B3F53AE0D54B90FBCE2E30E0643D530
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108528.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108528.jpgsave_picture_108528.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Erasure - From Moscow to Mars (2019) Remixes, 2019, BMG Company [FLAC|Lossless|W
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108529.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108529.jpgsave_picture_108529.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Antreib & Burning Flag - 2 Albums (2020-2023) [FLAC|Lossless|WEB-DL|tracks] <Har
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108530.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108530.jpgsave_picture_108530.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Interloper - Search Party (2021) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Prog 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108531.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108531.jpgsave_picture_108531.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Stefano Maggio & Alessandro Giordani - Miss Erotica (2017) [FLAC|Lossless|WEB-DL
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108532.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108532.jpgsave_picture_108532.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Arooj Aftab - Night Reign (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Vocal Jazz
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108533.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108533.jpgsave_picture_108533.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Lorekeeper - Lorekeeper (2020) [FLAC 2.0|44/24|WEB-DL|tracks] <Stoner Metal>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108534.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108534.jpgsave_picture_108534.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ Laserdance - Laserdance Orchestra Vol. 2 (1994) Reissue, 2024, ZYX Italo [FLAC|L
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108535.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108535.jpgsave_picture_108535.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Jim Hall - Live In Tokyo (1976) 1991, King Records [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108536.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108536.jpgsave_picture_108536.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ magnet:?xt=urn:btih:2F181484690F97FDE4F9B7855668FD9972022849
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108537.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108537.jpgsave_picture_108537.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Carmen McRae - Great Women Of Song (1955 - 1959) 2024, Universal [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108538.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108538.jpgsave_picture_108538.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Cosmic Jaguar - El Era Del Jaguar (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108539.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108539.jpgsave_picture_108539.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Cloven Hoof - Heathen Cross (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, P
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108540.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108540.jpgsave_picture_108540.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Dead Head - Shadow Soul (2024) EP [FLAC|Lossless|WEB-DL|tracks] <Thrash, Death M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108541.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108541.jpgsave_picture_108541.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ magnet:?xt=urn:btih:31AE3284899A62C870E6E54EA0CB8C60E92EE246
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108542.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108542.jpgsave_picture_108542.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ magnet:?xt=urn:btih:84C7D6CFF4519971A29B409D1D1BF15D4227335B
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108543.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108543.jpgsave_picture_108543.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ magnet:?xt=urn:btih:59F2F9A690153789D7BEACE12C73B5C7A3830CC0
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108544.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108544.jpgsave_picture_108544.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Houston Person & Ron Carter - The Complete Muse Sessions (1989, 1990) 2CD, 1997,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108545.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108545.jpgsave_picture_108545.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ magnet:?xt=urn:btih:6EFC5CB9BEF15F7E079311A79A78A712CC3CA769
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108546.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108546.jpgsave_picture_108546.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Dead Head - Depression Tank (2009) [FLAC|Lossless|image + .cue] <Thrash, Death M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108547.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108547.jpgsave_picture_108547.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Shrapnel - In Gravity (2024) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108548.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108548.jpgsave_picture_108548.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Mary Lou Williams - Solo Recital: Montreux Jazz Festival (1978) 1998, Original J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108549.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108549.jpgsave_picture_108549.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ Bongzilla - Dabbing Rosin in Europe (2024) Live [FLAC|Lossless|WEB-DL|tracks] <S
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108550.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108550.jpgsave_picture_108550.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ Demonic Manifestation - Necrokult (2017) [FLAC|Lossless|image + .cue] <Death Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108551.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108551.jpgsave_picture_108551.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ Dead Head - Swine Plague (2017) [FLAC|Lossless|image + .cue] <Thrash, Death Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108552.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108552.jpgsave_picture_108552.jpg" />
 </div>
 
 

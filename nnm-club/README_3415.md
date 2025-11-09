@@ -6,7 +6,7 @@ PhotoRoom 4.9.6 (b1403) Mod by Maximoff [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109151.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109151.jpgsave_picture_109151.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:166C7323AB3B71A06EEAFBF3AD9986901E3B5EA5
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109152.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109152.jpgsave_picture_109152.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Xavier Cugat And His Orchestra - Latin Best (1988) Nippon Phonogram [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109153.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109153.jpgsave_picture_109153.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ Joe Pass - Better Days (1970 - 1972) 2022, P-Vine Records [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109154.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109154.jpgsave_picture_109154.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ VA - Metal Massacre 06 (1985) [FLAC|24/192|image + .cue|Vinyl-Rip] <Heavy Metal,
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109155.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109155.jpgsave_picture_109155.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Xavier Cugat - The Original Latin Dance King (1940 - 1957) 2002, Columbia [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109156.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109156.jpgsave_picture_109156.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Cistvaen - At Light's Demise (2024) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric B
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109157.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109157.jpgsave_picture_109157.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Howard Alden & George Van Eps - Seven And Seven (1993) Concord Jazz [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109158.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109158.jpgsave_picture_109158.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Cthulhuss - Cthulhu Cult (2019) [FLAC|Lossless|image + .cue] <Death, Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109159.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109159.jpgsave_picture_109159.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ magnet:?xt=urn:btih:05749A1D8BBA29200260E7BFACE7DBB50D47E33D
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109160.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109160.jpgsave_picture_109160.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ The Jack - Tribute to AC/DC - Live (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109161.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109161.jpgsave_picture_109161.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ magnet:?xt=urn:btih:740FE80B7FEC8D76B32CE43E412B8A5C11E47576
 >>Other
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109162.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109162.jpgsave_picture_109162.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Dalton Trance Teleport - Trianta (2024) [FLAC|Lossless|WEB-DL|tracks] <Chillout,
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109163.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109163.jpgsave_picture_109163.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ magnet:?xt=urn:btih:86B1AE415B5B62D5A86E0A2D4709C7A8D3150773
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109164.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109164.jpgsave_picture_109164.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Michael Quatro - Bottom Line (1981) LP [MP3|320 Kbps] <Pop Rock, Disco>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109165.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109165.jpgsave_picture_109165.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ magnet:?xt=urn:btih:6329108BAFC51C5BB7DC9E8ECFE3A24B9A284D93
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109166.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109166.jpgsave_picture_109166.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ magnet:?xt=urn:btih:FECECA0EC26C529486BF23FCC02289603498273E
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109167.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109167.jpgsave_picture_109167.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ VA - Dance Playlist Spring 2024 (2024) [MP3|320 Kbps] <Dance, Club, House, Elect
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109168.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109168.jpgsave_picture_109168.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ VA - Trance Spring 2024 [MP3|320 Kbps] <Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109169.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109169.jpgsave_picture_109169.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Acode - code editor | FOSS 1.10.2 (947) [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109170.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109170.jpgsave_picture_109170.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ magnet:?xt=urn:btih:22D37DEF13B1F0FDCF22E689EAC44C8474A13B05
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109171.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109171.jpgsave_picture_109171.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ magnet:?xt=urn:btih:6DE37CE2DCDA9A9997D0ABDD38BD8561E3C51C3A
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109172.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109172.jpgsave_picture_109172.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:2E5291DAC3A37F16AC05CDCC37357BB15ED66895
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109173.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109173.jpgsave_picture_109173.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Prong - Studio Albums (15 releases) (1987-2023) hand made [restored, declipped] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109174.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109174.jpgsave_picture_109174.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Cthulhuss - Obliteration of Souls (2022) [FLAC|Lossless|image + .cue] <Death, Do
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109175.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109175.jpgsave_picture_109175.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ PhotoRoom 4.9.6 (b1401) Mod by CMAPTOC [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109176.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109176.jpgsave_picture_109176.jpg" />
 </div>
 
 

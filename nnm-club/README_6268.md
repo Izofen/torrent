@@ -6,7 +6,7 @@ NG. Затонувшая субмарина фашистов / Nazi Sunken Sub (
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196531.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196531.jpgsave_picture_196531.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Maxon Cinema 4D Studio 2023.2.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196532.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196532.jpgsave_picture_196532.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Laura Wilde - Charmed + Dangerous (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Roc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196533.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196533.jpgsave_picture_196533.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Fireball Wizard (2023) [Ru/Multi] (1.0.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196534.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196534.jpgsave_picture_196534.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ WinTools.net Premium 23.7.1 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196535.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196535.jpgsave_picture_196535.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Glarysoft Malware Hunter PRO 1.168.0.786 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196537.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196537.jpgsave_picture_196537.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ Windows 10 (v22h2) x64 HSL/PRO by KulHunter v9 (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196538.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196538.jpgsave_picture_196538.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:F1937E9372C54942405D9741DB6816332684609D
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196539.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196539.jpgsave_picture_196539.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:CCDD31CF0B48215A661E6E7BDE2FBC491A9FD87C
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196540.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196540.jpgsave_picture_196540.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ Reverso Translation Dictionary / Переводной словарь Reverso 11.
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196541.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196541.jpgsave_picture_196541.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ magnet:?xt=urn:btih:E0C5D604B3E6D8B6A1DC4415AED6F1AF244E1540
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196542.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196542.jpgsave_picture_196542.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ PDF24 Creator 11.13.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196543.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196543.jpgsave_picture_196543.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ Kyokou Suiri | In/Spectre | Ложные выводы [2020, TV, 24 эп.] BDRip
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_196544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196544.jpgsave_picture_196544.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ ibis Paint X 10.1.3 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196545.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196545.jpgsave_picture_196545.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ World Dai Star / Мир великих звёзд [2023, TV, 12] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_196546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196546.jpgsave_picture_196546.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ magnet:?xt=urn:btih:F728D5EADBD1871080765A1CA753DAC2FAB71DFF
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196547.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196547.jpgsave_picture_196547.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ X-Mouse Button Control 2.20.5 + Portable [Multi/Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196548.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196548.jpgsave_picture_196548.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ VA - The Galactic Symphony (2023) [MP3|320 Kbps] <Synthspace, Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196549.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196549.jpgsave_picture_196549.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Kawaisugi Crisis | Too Cute Crisis | Слишком милый кризис [202
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_196550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196550.jpgsave_picture_196550.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Isekai Shoukan wa Nidome Desu / Summoned to Another World... Again?! / Приз�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_196551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196551.jpgsave_picture_196551.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Kaspersky для Android 11.99.4.9878 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196552.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196552.jpgsave_picture_196552.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ magnet:?xt=urn:btih:C936A7380EE2AF012FB134F96957B530F71F14A6
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196553.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196553.jpgsave_picture_196553.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ Cx Проводник / Cx File Explorer 2.0.0 Mod by guf1990 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196554.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196554.jpgsave_picture_196554.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ magnet:?xt=urn:btih:6352B7D5837F0F25D758270041D5513A620084DB
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196555.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196555.jpgsave_picture_196555.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ magnet:?xt=urn:btih:AA45254F8691DA3E2C912A025DA355A3E3247387
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196556.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196556.jpgsave_picture_196556.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ magnet:?xt=urn:btih:E201A6AD79F8575B419B1A4802C1560E8826A660
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196557.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196557.jpgsave_picture_196557.jpg" />
 </div>
 
 

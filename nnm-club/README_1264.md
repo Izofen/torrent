@@ -6,7 +6,7 @@
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33219.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33219.jpgsave_picture_33219.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33220.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33220.jpgsave_picture_33220.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:E51B4B37489C0843C98D711011EB7C40B1990763
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33221.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33221.jpgsave_picture_33221.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Resident Evil 3 (2000) [Multi] (1.0hf3) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33222.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33222.jpgsave_picture_33222.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Defender Tools 1.15 b10 Portable by Ratiborus [Ru/En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33223.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33223.jpgsave_picture_33223.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:1290562C87E05D9D1A5DA04D76B42C825B3BEB49
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33224.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33224.jpgsave_picture_33224.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:06D452AC698BDF29BD942630FEF2A71F2929C800
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33225.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33225.jpgsave_picture_33225.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:92034D6D2475803370963BA89CBC068282D92FCD
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33226.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33226.jpgsave_picture_33226.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:92034D6D2475803370963BA89CBC068282D92FCD
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33227.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33227.jpgsave_picture_33227.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:C6F4E4505774E9C0696171FB457E289289299E1D
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33228.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33228.jpgsave_picture_33228.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Christmas Stories 13: Clara and the Guiding Star (2024) [En] (1.0) Unofficial [C
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33229.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33229.jpgsave_picture_33229.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:D659374A59E1D5F795B09A166328B242B4979622
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33230.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33230.jpgsave_picture_33230.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ VA - The Best Releases 2024 of High Emotions (2024) [MP3|320 Kbps] <Trance, Upli
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33231.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33231.jpgsave_picture_33231.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Romantica De La Guitarra, Romantic Time - Sensual Jazz (2024) [FLAC 24/44.1|Loss
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33232.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33232.jpgsave_picture_33232.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ magnet:?xt=urn:btih:4C3FD72ADB6B23487C8504A043FF4A632EA5CB54
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33233.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33233.jpgsave_picture_33233.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Diatera - В разных мирах (2016) [MP3|320 Kbps] <Melodic Metal, Gothi
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33234.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33234.jpgsave_picture_33234.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Carlita - Sentimental (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electronic, 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33235.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33235.jpgsave_picture_33235.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ VA - The Best Releases 2024 of Your Melodies (2024) [MP3|320 Kbps] <Trance, Upli
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33236.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33236.jpgsave_picture_33236.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ magnet:?xt=urn:btih:B06B3B4D9FCD535AE4F8CD03A140E6F5DA1FA91B
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33237.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33237.jpgsave_picture_33237.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Rockabilly Steve and Br3 - Lonely Thursday Night (2024) [FLAC|Lossless|WEB-DL|tr
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33238.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33238.jpgsave_picture_33238.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ Nabil Najem - Blues Women (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33239.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33239.jpgsave_picture_33239.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Richie Arndt - Tennessee & Alabama - Songs Along the Road #2 (2024) [FLAC|Lossle
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33240.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33240.jpgsave_picture_33240.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Randy Lee Riviere - Concrete Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues R
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33241.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33241.jpgsave_picture_33241.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Paweł Szymanski - Good Morning Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Blue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33242.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33242.jpgsave_picture_33242.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Russell Ballantine - Delta Days (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33243.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33243.jpgsave_picture_33243.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ Moonset - Dim the Lights and Go (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33244.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33244.jpgsave_picture_33244.jpg" />
 </div>
 
 

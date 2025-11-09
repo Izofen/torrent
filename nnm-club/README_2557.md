@@ -6,7 +6,7 @@ The Absence - Studio Albums (6 releases) (2005-2024) hand made [restored, declip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67232.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67232.jpgsave_picture_67232.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Fenson - Cattitude (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67233.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67233.jpgsave_picture_67233.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ KT Tunstall - Eye To The Telescope (2004) [FLAC|Lossless|tracks + .cue] <Rock, P
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67234.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67234.jpgsave_picture_67234.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Sarah Jane Cion - Summer Night (2001) Naxos [FLAC|Lossless|tracks + .cue] <Post-
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67235.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67235.jpgsave_picture_67235.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Aryoch - The Passage (2025) [MP3|320 Kbps] <Symphonic Black, Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67236.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67236.jpgsave_picture_67236.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Chris Kramer and Paddy Boy Zimmermann - Tales Of Tampa (2025) [FLAC|Lossless|WEB
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67237.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67237.jpgsave_picture_67237.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Corrupter - Gloria in Profundis (2025) [FLAC|Lossless|WEB-DL|tracks] <Death Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67238.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67238.jpgsave_picture_67238.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Samael - Ceremony of Opposites (1994) Released, 2011, Floga Records [FLAC|24/192
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67239.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67239.jpgsave_picture_67239.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Disfuneral - In Horror, Reborn (2025) [FLAC|Lossless|WEB-DL|tracks] <Death Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67240.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67240.jpgsave_picture_67240.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Ausweglos - Ausgestoßen (2025) [MP3|320 Kbps] <Atmospheric Black Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67241.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67241.jpgsave_picture_67241.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Periphery - Periphery II: This Time It's Personal (2012) Released, 2019, Sumeria
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67242.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67242.jpgsave_picture_67242.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ VA - Progressive Frequencies #01 (2025) [MP3|320 Kbps] <Progressive House, Melod
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67243.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67243.jpgsave_picture_67243.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:541791DA01FCCA0099F35405550BC03B435E17D8
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67244.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67244.jpgsave_picture_67244.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ magnet:?xt=urn:btih:9F381344A5A8AFC029432E06D136EF56CF681DFB
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67245.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67245.jpgsave_picture_67245.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ magnet:?xt=urn:btih:1A4292E732C1BD2B7422A0AA30955BA6133C6621
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67246.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67246.jpgsave_picture_67246.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ magnet:?xt=urn:btih:C2DFC74F919F5E9D34C84A809B661DADACF247EA
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67247.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67247.jpgsave_picture_67247.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ magnet:?xt=urn:btih:894AC7E993668D0E35B388236893A1C506316FD9
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67248.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67248.jpgsave_picture_67248.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ The Riven - Visions of Tomorrow (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67249.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67249.jpgsave_picture_67249.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ magnet:?xt=urn:btih:35AB85E0B68DFC37FC9E40644BB3D0487F558114
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67250.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67250.jpgsave_picture_67250.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Katie & The Bad Sign - Revolution (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Ro
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67251.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67251.jpgsave_picture_67251.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Dudley Taft - The Speed of Life (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67252.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67252.jpgsave_picture_67252.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Gurf Morlix - The Taste of Ashes (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues, Fo
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67253.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67253.jpgsave_picture_67253.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Ellen Lebowitz - Invitation to Yesterdays (1998) Rockmoss Records [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67254.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67254.jpgsave_picture_67254.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Lightnin' G-Bird - I Was Fool About You (2025) [FLAC|Lossless|WEB-DL|tracks] <Bl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67255.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67255.jpgsave_picture_67255.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ Michael Bublé - Crazy Love (2009) [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Po
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67256.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67256.jpgsave_picture_67256.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ Prost - Believe Again (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67257.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67257.jpgsave_picture_67257.jpg" />
 </div>
 
 

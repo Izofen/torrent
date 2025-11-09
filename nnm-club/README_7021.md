@@ -6,7 +6,7 @@
 >>История
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240709.jpgsave_picture_240709.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:BAB371019CB8969652A559535FAC0172F764C574
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240710.jpgsave_picture_240710.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ macOS 12 Monterey 12.5.1 (Installer) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240711.jpgsave_picture_240711.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Carcariass - Afterworld (2023) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240712.jpgsave_picture_240712.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:D2DF248A7F60A384F9020E54C3DC2ACEA6CA5CFA
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240713.jpgsave_picture_240713.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ System Toolkit 3.3.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240714.jpgsave_picture_240714.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Yarek Ovich - Introversion (2020) [MP3|320 Kbps] <Depressive Black Metal>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240715.jpgsave_picture_240715.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:DBEB46B6984E91334B5C934EBFD2892B81C0B03A
 >>Новости
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240716.jpgsave_picture_240716.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Davinci Resolve Studio 18.0 Beta 1 U2B [Multi/Rus]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240717.jpgsave_picture_240717.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ Us in Motion - Death Poems (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Po
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240718.jpgsave_picture_240718.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ magnet:?xt=urn:btih:6A1DA2A4F786EA8A30BF69C7F3034A98F4EBAED0
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240719.jpgsave_picture_240719.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ Enigma Project - Living the Dream (2021) [FLAC|Lossless|WEB-DL|tracks] <Progress
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240720.jpgsave_picture_240720.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ Joe Lamont - Secrets You Keep (1985) Reissue, 2010, Yesterrock [MP3|320 Kbps] <A
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240721.jpgsave_picture_240721.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ Tony Coe, Gerard Presencer, Brian Lemon, Dave Green - Dreams (2001) Zephyr Recor
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240722.jpgsave_picture_240722.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ magnet:?xt=urn:btih:C0463E41FECAD5723B620C7E40DE6DF04FA4E676
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240723.jpgsave_picture_240723.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ magnet:?xt=urn:btih:0EA1738C51175958B4B31C7B4AB5C606E3228ACD
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240724.jpgsave_picture_240724.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Knellhound - Knellhound (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240725.jpgsave_picture_240725.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Microsoft Windows 10.0.19044.1645, Version 21H2 (Updated April 2022)  - Ориг
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240726.jpgsave_picture_240726.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ XYplorer 24.30.0000 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240727.jpgsave_picture_240727.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ ZVENTA SVENTANA - Звента Свентана (2023) [MP3|320 Kbps] <Folk, Ele
 >>Folk
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240728.jpgsave_picture_240728.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Desolatae - For Thy Decease (2016) [FLAC|Lossless|image + .cue] <Black, Death, D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240729.jpgsave_picture_240729.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ magnet:?xt=urn:btih:45B9889E5213F05550F5839DFA3E406FF8C91907
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240730.jpgsave_picture_240730.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Taake - Over Bjoergvin Graater Himmerik (2002) [FLAC|Lossless|image + .cue] <Bla
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240731.jpgsave_picture_240731.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Reflections - The Fantasy Effect (2022) Redux [FLAC|Lossless|WEB-DL|tracks] <Alt
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240732.jpgsave_picture_240732.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ Midjungards - From Scandza (2023) [FLAC|Lossless|WEB-DL|tracks] <Folk-Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240733.jpgsave_picture_240733.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ magnet:?xt=urn:btih:8F90B3362A5CA4FA03D0D3AAD8166E7A86A6C76A
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240734.jpgsave_picture_240734.jpg" />
 </div>
 
 

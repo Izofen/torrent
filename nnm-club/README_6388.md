@@ -6,7 +6,7 @@ Diggles The Myth of Fenris (2001) [Ru/Multi] (2.1.1.10/dlc) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202746.jpgsave_picture_202746.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Silent Skies - Dormant (2023) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202747.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202747.jpgsave_picture_202747.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:DC6AD3A3664AA6DFCD5E892A047DFF3D2C31383C
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202748.jpgsave_picture_202748.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ PhotoRoom 4.6.7 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202749.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202749.jpgsave_picture_202749.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ September Mourning - Volume IV (2023) [FLAC|Lossless|WEB-DL|tracks] <Alt.Metal, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202750.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202750.jpgsave_picture_202750.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:45F516C1534E73D1FF019792EBD36A4420FB098D
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202751.jpgsave_picture_202751.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:9FDE5DF27D905B6797A986FF67AE8BCF24461422
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202752.jpgsave_picture_202752.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ PhotoRoom 4.6.7 Mod by 0x7d [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202753.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202753.jpgsave_picture_202753.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Unearth - Concentrated Misery (2023) Compilation, Doomed to Obscurity Records [F
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202754.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202754.jpgsave_picture_202754.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ magnet:?xt=urn:btih:3B89178BD8C5064D0C01049DBB08983BD85B205A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202755.jpgsave_picture_202755.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ magnet:?xt=urn:btih:6B1C1025B32BEA04469D0CE2F768A03F5100109C
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202756.jpgsave_picture_202756.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ The Last Oblation - AESIR (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Melodi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202757.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202757.jpgsave_picture_202757.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ magnet:?xt=urn:btih:ECB73B814A68E990EBE0D8719A9CFDB0CC5653A5
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202758.jpgsave_picture_202758.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Duolingo: изучай языки 5.117.4 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202759.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202759.jpgsave_picture_202759.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ magnet:?xt=urn:btih:17DEFAED13F16C3C2CCFCAC7BAF29D5F43E2AC2A
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202760.jpgsave_picture_202760.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ magnet:?xt=urn:btih:CC775090853CD31C39BD5707650508C558332575
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202761.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202761.jpgsave_picture_202761.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ magnet:?xt=urn:btih:7EDB16F6B74A5F9A1AA835C56518883564289F22
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202762.jpgsave_picture_202762.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Ocenaudio 3.12.6 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202763.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202763.jpgsave_picture_202763.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ magnet:?xt=urn:btih:368A0EC326863941B0595F3689C280C451F936E8
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202764.jpgsave_picture_202764.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Everyone Piano 2.5.8.31 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202765.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202765.jpgsave_picture_202765.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ magnet:?xt=urn:btih:BEA3B08A210310751679B6BEEFE8BDFFC20EFA51
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202766.jpgsave_picture_202766.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ Karmamoi - Strings from the Edge of Sound (2023) [FLAC|Lossless|WEB-DL|tracks] <
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202767.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202767.jpgsave_picture_202767.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ VA - Дискотека 2023 Dance Club Vol. 216 (2023) от NNNB [MP3|320 Kbps]
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202768.jpgsave_picture_202768.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ Primal Fear - Code Red (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Speed,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202769.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202769.jpgsave_picture_202769.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ magnet:?xt=urn:btih:410F18D92C2E6C5E744191CFE7EDCB876BACA049
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202770.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202770.jpgsave_picture_202770.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ magnet:?xt=urn:btih:523D2AFDBD66048F2A09EA34B76477B9094FE316
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202771.jpgsave_picture_202771.jpg" />
 </div>
 
 

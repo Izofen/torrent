@@ -6,7 +6,7 @@ Highlord - Instant Madness (2006) Japanese Edition [FLAC|Lossless|image + .cue] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174171.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174171.jpgsave_picture_174171.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Codepoint for Mac 1.11 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174172.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174172.jpgsave_picture_174172.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Microsoft Visual C++ 14.28.29617 Runtimes AIO (x86-x64) Repack by @burfade [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174173.jpgsave_picture_174173.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ Athentech Perfectly Clear WorkBench for Mac 4.6.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174174.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174174.jpgsave_picture_174174.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ magnet:?xt=urn:btih:3F762E54E735B938FCDB0118A6AA76E9FF41B685
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174177.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174177.jpgsave_picture_174177.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:4D8383B53FB474224A8EB94388AD7F9DD09DA77C
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174178.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174178.jpgsave_picture_174178.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:D47683FA5CAD71180B666AEFBCD80193FE27AA88
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174179.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174179.jpgsave_picture_174179.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Maplesoft Maple 2020.2 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174180.jpgsave_picture_174180.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ magnet:?xt=urn:btih:DAF604C822E9F5F36AB16087A327315A72E96BCF
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174181.jpgsave_picture_174181.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ magnet:?xt=urn:btih:63F915262B59D65C2F59B293C2CE74C841CCF35C
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174183.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174183.jpgsave_picture_174183.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ Necrofobia - Dark, Deep & Eternal (2004) [FLAC|Lossless|image + .cue] <Death Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174184.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174184.jpgsave_picture_174184.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ magnet:?xt=urn:btih:86303E9CD26AA3495A06B1D1934B849FA6EEB737
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174185.jpgsave_picture_174185.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ magnet:?xt=urn:btih:4644D814A3921D6EDEEE19D541A260282FB77411
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174186.jpgsave_picture_174186.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ magnet:?xt=urn:btih:759319A0143024D21EB013854F113415580AC881
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174187.jpgsave_picture_174187.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ magnet:?xt=urn:btih:F50A001FF75157AD102268B413AF2A7ED8D56AB9
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174189.jpgsave_picture_174189.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ WinToHDD 4.8 Release 1 Technician RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174190.jpgsave_picture_174190.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ magnet:?xt=urn:btih:727981710AD3958360D9929A3AB71139BDE0BBB3
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174191.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174191.jpgsave_picture_174191.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ magnet:?xt=urn:btih:4EA9DF956FA40EE2FC472276E187957944961A18
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174192.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174192.jpgsave_picture_174192.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ magnet:?xt=urn:btih:3C8D1E5B6C39CD9107E28F58C9E967BE49E30B6C
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174193.jpgsave_picture_174193.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ magnet:?xt=urn:btih:B5024ADB9558DFC790A3AE59FFBDBB73C0604B1E
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174194.jpgsave_picture_174194.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ WinPE 10-8 Sergei Strelec (x86/x64/Native x86) 2022.12.07 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174196.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174196.jpgsave_picture_174196.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ magnet:?xt=urn:btih:5977E224C448CF8E5A46C9334A32926DC4461A35
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174197.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174197.jpgsave_picture_174197.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ magnet:?xt=urn:btih:C9724EBFFC34301E9A90C72E9D57826B7B499540
 >>Медитации (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174198.jpgsave_picture_174198.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ magnet:?xt=urn:btih:2AFA87354F188AE971363940AD89B4B6ACD4418E
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174199.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174199.jpgsave_picture_174199.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ magnet:?xt=urn:btih:BB4FCADF1598BA4A1C73BAEA8EC1B3482B619EB4
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174200.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174200.jpgsave_picture_174200.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ magnet:?xt=urn:btih:D7D82D1BB8CF60208F2C8B8E9F0C02E778F149F5
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174202.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174202.jpgsave_picture_174202.jpg" />
 </div>
 
 

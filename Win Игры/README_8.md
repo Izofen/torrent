@@ -6,7 +6,7 @@ JETRUNNER (2025) [Ru/Multi] (1.0.4/dlc) Repack Let'sРlay [Founders Edition]
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2417.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2417.jpgsave_picture_2417.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Monster Energy Supercross 25 - The Official Video Game (2025) [Multi] (1585442/d
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2418.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2418.jpgsave_picture_2418.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Five Nights at Freddy's: Secret of the Mimic (2025) [Ru/Multi] (1.0.20250826) Re
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2419.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2419.jpgsave_picture_2419.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ KIBORG (2025) [Ru/Multi] (20 2.50.9_15:1:60) Repack Let'sРlay
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2427.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2427.jpgsave_picture_2427.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Sea of Stars (2023) [Ru/Multi] (2.0.58940/dlc) Repack dixen18
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2430.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2430.jpgsave_picture_2430.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Ravenswatch (2023) [Ru/Multi] (1.03.01.00.26879/dlc) Repack Let'sРlay [Supporte
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2431.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2431.jpgsave_picture_2431.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Crusader Kings III (3) (2020) [Ru/Multi] (1.17.1/dlc) Repack Pioneer [Royal Edit
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2432.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2432.jpgsave_picture_2432.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ American Truck Simulator (2016) [Ru/Multi] (1.56.1.0s/dlc) Repack Other s
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2434.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2434.jpgsave_picture_2434.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Cat Quest II (2019) [Ru/Multi] (1.7.7.3) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2438.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2438.jpgsave_picture_2438.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ JETRUNNER (2025) [Ru/Multi] (1.0.1-dragon-0694/dlc) Repack FitGirl [Founders Edi
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2500.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2500.jpgsave_picture_2500.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Nordic Ashes: Survivors of Ragnarok (2024) [Ru/Multi] (2.0.5.5/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2510.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2510.jpgsave_picture_2510.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Star Fire Eternal Cycle (2025) [Ru/Multi] (1.26.325) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2522.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2522.jpgsave_picture_2522.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Expeditions: A MudRunner Game (2024) [Ru/Multi] (1.741703/dlc) Repack seleZen
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2536.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2536.jpgsave_picture_2536.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Elroy and the Aliens (2025) [Multi] (1.1.3) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2539.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2539.jpgsave_picture_2539.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Monster Prom (2018) [Multi] (8.0/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2552.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2552.jpgsave_picture_2552.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Kitaria Fables (2021) [Ru/Multi] (1.10/dlc) License GOG [Digital Deluxe Edition]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2553.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2553.jpgsave_picture_2553.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ SnowRunner (2020) [Ru/Multi] (38.0/dlc) Repack Wanterlude [4-Year Anniversary Ed
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2555.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2555.jpgsave_picture_2555.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Crusader Kings III (3) (2020) [Ru/Multi] (1.17.0.1/dlc) Repack Wanterlude [Royal
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2565.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2565.jpgsave_picture_2565.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Beyond Sunset (2023) [En] (1.0) License GOG
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2569.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2569.jpgsave_picture_2569.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ The Precinct (2025) [Ru/Multi] (1.9.19872) Repack Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2577.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2577.jpgsave_picture_2577.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Cubic Odyssey (2025) [Ru/Multi] (1.0.3.4) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2578.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2578.jpgsave_picture_2578.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Grand Theft Auto V Enhanced (2025) [Ru/Multi] (Build 889.22 Online 1.71) Repack 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2579.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2579.jpgsave_picture_2579.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Cyberpunk 2077 (2020) [Ru/Multi] (2.31/dlc) Repack Wanterlude [Ultimate Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2583.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2583.jpgsave_picture_2583.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ The Midnight Walk (2025) [Ru/Multi] (Build 18854438) Repack Let'sРlay [VR]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2585.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2585.jpgsave_picture_2585.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ PATAPON 1+2 REPLAY (2025) [Ru/Multi] (1.0.7) Repack Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2587.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2587.jpgsave_picture_2587.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Warhammer 40,000: Rogue Trader (2023) [Ru/Multi] (1.4.1.231/dlc) Repack Wanterlu
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2590.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2590.jpgsave_picture_2590.jpg" />
 </div>
 
 

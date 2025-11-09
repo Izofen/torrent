@@ -6,7 +6,7 @@
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27702.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27702.jpgsave_picture_27702.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:C219F526662DB3602D6EDC3D6D324370E5C408DC
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27703.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27703.jpgsave_picture_27703.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ D-Link | Видеоматериалы про основы сетевых тех�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27704.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27704.jpgsave_picture_27704.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Convert Monster | Яндекс.Метрика (2014) PCRec [H.264/720p-LQ]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27705.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27705.jpgsave_picture_27705.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:880871A084AC44B12F25BA29021DCB353F33A602
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27706.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27706.jpgsave_picture_27706.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Clone Drone in the Danger Zone (2021) [Ru/Multi] (1.6.0.34) Repack EXROW
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27707.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27707.jpgsave_picture_27707.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:07AF15588EFD62EDD5461FC901AFB19E8DA72B33
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27708.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27708.jpgsave_picture_27708.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ VA - Хит FM (Популярные хиты русского радио) (2025
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27709.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27709.jpgsave_picture_27709.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Opera One 117.0.5408.32 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27710.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27710.jpgsave_picture_27710.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Google Chrome 133.0.6943.99 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27711.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27711.jpgsave_picture_27711.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Exif Pilot 6.27.2 + Batchplugin [En]
 >>Просмотрщики Графики (вьюверы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27712.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27712.jpgsave_picture_27712.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:760C28743B989361E2282C263189B39E07E6FC33
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27713.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27713.jpgsave_picture_27713.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:125E72940142B2616DA8A4AF412E78167CCAE1D5
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27714.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27714.jpgsave_picture_27714.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ FreeCommander XE 2025 donor v925 x64 + portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27715.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27715.jpgsave_picture_27715.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ magnet:?xt=urn:btih:71BD1E2BC0382793C3DECD39C05A48B43B3BF9A7
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27716.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27716.jpgsave_picture_27716.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ TreeSize Professional 9.4.1.2001 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27717.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27717.jpgsave_picture_27717.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ TechSmith Camtasia 2025 25.0.0 (Build 7062) (x64) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27718.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27718.jpgsave_picture_27718.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ magnet:?xt=urn:btih:FAFF725D31E41792E958B33EA31734B4C5580E7C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27719.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27719.jpgsave_picture_27719.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ UltraSearch Professional 4.6.2.1105 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27720.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27720.jpgsave_picture_27720.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ magnet:?xt=urn:btih:B92309782A90698C4C394A869C385BF225C27FEB
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27721.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27721.jpgsave_picture_27721.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ magnet:?xt=urn:btih:EF377A5B59980EDD4A496D58C444D9D58B5D5963
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27722.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27722.jpgsave_picture_27722.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ magnet:?xt=urn:btih:B97B842436A16669237CB9796F8675E8F634D82C
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27723.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27723.jpgsave_picture_27723.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ magnet:?xt=urn:btih:1E6C514370E0854B42B17D27031616161225D727
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27724.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27724.jpgsave_picture_27724.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ magnet:?xt=urn:btih:8A93B6F228772C3E022A7C59AAF9254D08BC1904
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27725.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27725.jpgsave_picture_27725.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Mind Echoes: The Lost Mysteries / Эхо разума: Утраченные та
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27726.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27726.jpgsave_picture_27726.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ magnet:?xt=urn:btih:EA7BD4B8DD1D119C2B8F9F1E0D92E04262C884F8
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27727.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27727.jpgsave_picture_27727.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ CoolUtils Total Movie Converter 4.1.0.70 RePack (& Portable) by elchupacabra [Mu
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9331.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9331.jpgsave_picture_9331.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ CoolUtils Total Audio Converter 6.1.0.284 RePack (& Portable) by elchupacabra [M
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9337.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9337.jpgsave_picture_9337.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ CoolUtils Total Image Converter 8.2.0.282 RePack (& Portable) by elchupacabra [M
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9338.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9338.jpgsave_picture_9338.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Adobe Illustrator 2025 v29.7.1 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9348.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9348.jpgsave_picture_9348.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ PreSonus Studio One Pro 7 7.2.2 (x64) + Content [Multi]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9360.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9360.jpgsave_picture_9360.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ PicPick Free+Pro 7.4.0 + Portable [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9409.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9409.jpgsave_picture_9409.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ FastStone Image Viewer 8.1 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Просмотрщики Графики (вьюверы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9542.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9542.jpgsave_picture_9542.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ FastStone Image Viewer 8.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Просмотрщики Графики (вьюверы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9563.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9563.jpgsave_picture_9563.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ Wave Arts - Power Suite 7 2025.7.17 VST, VST 3, AAX (x64) RePack by TCD [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9622.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9622.jpgsave_picture_9622.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ IK Multimedia - T-RackS 6 6.3.0 STANDALONE, VST 3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9634.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9634.jpgsave_picture_9634.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Scaler Music - Scaler 3 3.1.1 Standalone, VSTi, VSTi 3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9636.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9636.jpgsave_picture_9636.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ FreeVimager 9.9.26 + Portable [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9771.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9771.jpgsave_picture_9771.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ AVS4YOU Software AIO Installation Package 6.1.1.181 [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9805.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9805.jpgsave_picture_9805.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Synapse Audio - The Legend HZ 2.0.2 VSTi, VSTi 3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9949.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9949.jpgsave_picture_9949.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Synapse Audio - DUNE 3 3.6.4 VSTi, VSTi 3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9974.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9974.jpgsave_picture_9974.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ VSO ConvertXtoDVD 7.5.0.135 Beta (x64) [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9988.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9988.jpgsave_picture_9988.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ PhotoLine 25.01 + Standalone [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10063.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10063.jpgsave_picture_10063.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ Nik Collection by DxO 8.1.101 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10103.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10103.jpgsave_picture_10103.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ Neuratron Photoscore Ultimate 6.1.0 Retail [Ru/En]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10128.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10128.jpgsave_picture_10128.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Clip Studio Paint EX 4.0.3 [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10296.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10296.jpgsave_picture_10296.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Moho Pro 14.0.20230910 Portable by Spirit Summer [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10303.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10303.jpgsave_picture_10303.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ IconCool Studio Pro 7.70 Build 121108 [Ru/En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10350.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10350.jpgsave_picture_10350.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Photo Supreme 2025.3.0.7956 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Просмотрщики Графики (вьюверы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10367.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10367.jpgsave_picture_10367.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ CyberLink PhotoDirector Ultra 2025 16.6.1915.0 x64 Portable by 7997 [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10412.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10412.jpgsave_picture_10412.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ CyberLink PowerDVD Ultra 24.0.0716.62  (x64) RePack by TheBig [Multi/Ru]
 >>Видео Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10420.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10420.jpgsave_picture_10420.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Irix HDR Pro 2.3.47 Portable by Spirit Summer [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10504.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10504.jpgsave_picture_10504.jpg" />
 </div>
 
 

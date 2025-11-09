@@ -6,7 +6,7 @@ Palomino Duck - Smooth Flight (2021) [AAC|~333 Kbps] <Jazz, Smooth Jazz>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162961.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162961.jpgsave_picture_162961.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:2C567A143F9D0E2281C5979B486D81723A1ADAD8
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162962.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162962.jpgsave_picture_162962.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:4E34F6F2EF64235F1EB262861FAC8DFED2155547
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162963.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162963.jpgsave_picture_162963.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Noumin Kanren no Skill Bakka Agetetara Naze ka Tsuyoku Natta. | Каким-то 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162964.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162964.jpgsave_picture_162964.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ magnet:?xt=urn:btih:ACD486292372E9D1E8359C6BA550D074B3207F5E
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162965.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162965.jpgsave_picture_162965.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ magnet:?xt=urn:btih:9E52E67BB90829A8CE4AF53538CACC7A0CFFA8E2
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162966.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162966.jpgsave_picture_162966.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ Vangarde & Louis Sandoro - The Best Of Lounge: Jazz Lounge (2001) [FLAC|Lossless
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162967.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162967.jpgsave_picture_162967.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ Adobe Zii 2021 - Universal Patcher 6.0.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162968.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162968.jpgsave_picture_162968.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ magnet:?xt=urn:btih:86627AF1E595E7A10D230552CDC9E8ED82B9EEAB
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162969.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162969.jpgsave_picture_162969.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ magnet:?xt=urn:btih:690A7D39C862C5C741033A80CD40225C71CE242E
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162970.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162970.jpgsave_picture_162970.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ magnet:?xt=urn:btih:6803EB3646D229EF749C6AB3100C2DFE38E86091
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162971.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162971.jpgsave_picture_162971.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ VA - Uplifting Only Top 15: December 2021 (Extended Mixes) (2021) [AAC|~332 Kbps
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162972.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162972.jpgsave_picture_162972.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ magnet:?xt=urn:btih:1E01EA5EDE090D95E9026408801AB8CDCDD7A7D2
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162973.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162973.jpgsave_picture_162973.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ magnet:?xt=urn:btih:36C46DE5088BE2E6F2B03E371BCA8F3E3316FD81
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162974.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162974.jpgsave_picture_162974.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ David Gainsford - The Best Of Lounge: The Blue Lounge (2001) [FLAC|Lossless|trac
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162975.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162975.jpgsave_picture_162975.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ magnet:?xt=urn:btih:A61603CD3A0E3638D7CFE772DFB75B2D2CB5AC1D
 >>История
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162976.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162976.jpgsave_picture_162976.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ VA - Lounge Del Mare 3: Chillout Cafe Pearls (2008) [AAC|~344 Kbps] <Electronic,
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162977.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162977.jpgsave_picture_162977.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ magnet:?xt=urn:btih:83344E2ACB65944AED907A4B2940CC4FCCC0EEA6
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162978.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162978.jpgsave_picture_162978.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ magnet:?xt=urn:btih:CFFC82F05A1F86AC79BEF1B14DED152011460264
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162979.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162979.jpgsave_picture_162979.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ magnet:?xt=urn:btih:06FB88B35BAB16030DC209238F1EE0EFECD16BFC
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162980.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162980.jpgsave_picture_162980.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ ADX - Etranges Visions (2021) [WavPack|Lossless|image + .cue] <Heavy Metal, Spee
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162981.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162981.jpgsave_picture_162981.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ magnet:?xt=urn:btih:650F85972B0F2993AADC544BAA595A30A1FAD516
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162982.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162982.jpgsave_picture_162982.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Sketch 70.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162983.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162983.jpgsave_picture_162983.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Nagagutsu Sanjuushi | Return of Pero | Кот в сапогах на Диком 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162984.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162984.jpgsave_picture_162984.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ VA - Lounge Del Mare 2: Chillout Cafe Pearls (2008) [AAC|~343 Kbps] <Electronic,
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162985.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162985.jpgsave_picture_162985.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ magnet:?xt=urn:btih:4F697616AFC7D0DC5980594E9CC98DE59F2939EE
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162986.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162986.jpgsave_picture_162986.jpg" />
 </div>
 
 

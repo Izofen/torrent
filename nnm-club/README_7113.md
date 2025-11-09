@@ -6,7 +6,7 @@
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243873.jpgsave_picture_243873.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Archon Angel - II (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Progressive
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243874.jpgsave_picture_243874.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ VA - 80s Disco - The Ibiza Gold Collection (2000) 2 CD [OGG Vorbis|480 Kbps] <El
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243875.jpgsave_picture_243875.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ magnet:?xt=urn:btih:A05578E8342AB3AC02D0E834A1CB3C559513B1D0
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243876.jpgsave_picture_243876.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ magnet:?xt=urn:btih:A74AEB5F79D5B3B9BC85C8F8A6106BFEFF690353
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243878.jpgsave_picture_243878.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ EditReady 2.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243879.jpgsave_picture_243879.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ magnet:?xt=urn:btih:9299C63692C89CA5E6F15BAD43CAF07FCF51BF82
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243880.jpgsave_picture_243880.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ Strawberry 1.0.16 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243881.jpgsave_picture_243881.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ Lyre le temps - Prohibition Swing (2016) [AAC|~185 Kbps] <Electro Swing, Hip Hop
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243882.jpgsave_picture_243882.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ magnet:?xt=urn:btih:AA1111400573EE9C1A44AD93DDA4AC958F98F8E9
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243883.jpgsave_picture_243883.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ magnet:?xt=urn:btih:EB4C43A087A1A0C5C4D2E04ADEDE0E543EF2F8EE
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243884.jpgsave_picture_243884.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ Tarmat - Out Of The Blue (2022) Japanese Edition [FLAC|Lossless|image + .cue] <M
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243885.jpgsave_picture_243885.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ Where the Sun Comes Down - Necropolis Railway (2023) [FLAC|Lossless|WEB-DL|track
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243886.jpgsave_picture_243886.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ magnet:?xt=urn:btih:9FB90B8934D3DF17E78BACDDAC944E426E7FA673
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243887.jpgsave_picture_243887.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ magnet:?xt=urn:btih:6FEACF3DB3FEF73D848B15AE47DE38D0679BFF67
 >>Футбол
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243888.jpgsave_picture_243888.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ VA - Loungerie (25 Amazing Lounge Tunes), Vol. 1 (2017) [AAC|~314 Kbps] <Lounge,
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243889.jpgsave_picture_243889.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ magnet:?xt=urn:btih:9DA072B448C4F2FFDA87DD1E65ED2085D35B540B
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243890.jpgsave_picture_243890.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ magnet:?xt=urn:btih:010CC835FADEABAEAFB91134F0942BA4EA633C43
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243891.jpgsave_picture_243891.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ MarkMyWords 2.0.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243892.jpgsave_picture_243892.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Remote Viewing - Modern Addictions (2023) [FLAC|Lossless|WEB-DL|tracks] <Sludge 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243893.jpgsave_picture_243893.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ magnet:?xt=urn:btih:C7C43ECF61050985B13E39266BEFBC986281C85D
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243894.jpgsave_picture_243894.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Zebedy - Waiting for the Tide (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243895.jpgsave_picture_243895.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ magnet:?xt=urn:btih:E3DFC15FDE17CD3E88A124B177E24C68265CE7C6
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243896.jpgsave_picture_243896.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ VA - This Is Chillout Jazz, Vol. 3 (Cool Jazzy Sounds in a Lounge Mood) (2015) [
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243897.jpgsave_picture_243897.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ magnet:?xt=urn:btih:AF4C1E98C7A3C9D326381B0152DE5A87D6693DA2
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243898.jpgsave_picture_243898.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ magnet:?xt=urn:btih:E8E9A77687B2FD60A60D6BAB7B5F38B99C5023B7
 >>Общественно-политические и пропагандистские ток-шоу
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243899.jpgsave_picture_243899.jpg" />
 </div>
 
 

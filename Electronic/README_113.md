@@ -6,7 +6,7 @@ VA - Black Hole House Music 10-23 (2023) [MP3|320 Kbps] <House, Progressive Hous
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172647.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172647.jpgsave_picture_172647.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ The Orb & David Gilmour - Metallic Spheres In Colour (2023) [MP3|320 Kbps] <Ambi
 >>Ambient, Experimental, Modern Classical
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172808.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172808.jpgsave_picture_172808.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - Mr Sam Opus Quinto (2022) [FLAC|Lossless|WEB-DL|tracks] <Trance, Progressiv
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172827.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172827.jpgsave_picture_172827.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Cosmic Gate - Live @ Rock Bar Bali Sunset Set, Indonesia (2023-10-06) [MP3|320 K
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173010.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173010.jpgsave_picture_173010.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ VA - Figura Autumn 2023 [MP3|320 Kbps] <Melodic House,Tech House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173011.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173011.jpgsave_picture_173011.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ VA - Redux Chill Out Moments 2023 [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
 >>Downtempo, Trip-Hop, Lounge
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173180.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173180.jpgsave_picture_173180.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Tricky (Adrian Thaws) - Maxinquaye - Reincarnated (1995) 5CD, Remaster, 2023, UM
 >>Dubstep, Future Garage, Bass Music, UK Garage
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173190.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173190.jpgsave_picture_173190.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ VA - Musical Landscape: Chillout Your Mind (2023) [FLAC|Lossless|WEB-DL|tracks] 
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173192.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173192.jpgsave_picture_173192.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Kanga - Under Glass (2023) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Industrial, 
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173199.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173199.jpgsave_picture_173199.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ VA - Black Hole Trance Music 10-23 (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173202.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173202.jpgsave_picture_173202.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Tricky (Adrian Thaws) - Maxinquaye - Reincarnated (1995) 5CD, Remaster, 2023, UM
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173203.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173203.jpgsave_picture_173203.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ The Orb And David Gilmour - Metallic Spheres In Colour (2023) Japanese Edition [
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173351.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173351.jpgsave_picture_173351.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Blank & Jones feat. Coralie Clement - Surround Me with Your Love (2023) 2EP [FLA
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173366.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173366.jpgsave_picture_173366.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ VA - 25 Years Of Anjuna Mixed by Trance Wax (2025) [MP3|320 Kbps] <Trance, Progr
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173522.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173522.jpgsave_picture_173522.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ VA - Vocal Trance Gems: Best Of (2020) [MP3|320 Kbps] <Trance, Vocal Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173658.jpgsave_picture_173658.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ VA - Spacedance, Vol. 5 (2023) [FLAC|Lossless|WEB-DL|tracks] <Spacedance, Spaces
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173883.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173883.jpgsave_picture_173883.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ VA - Markus Schulz - Global DJ Broadcast: Top 20 November (2020) [MP3|320 Kbps] 
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173900.jpgsave_picture_173900.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ VA - Meditative State: Chillout Your Mind (2022) [FLAC|Lossless|WEB-DL|tracks] <
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_173982.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_173982.jpgsave_picture_173982.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ magnet:?xt=urn:btih:6CFA82E5C598991A66218E77D33F8C654BB18627
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173992.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173992.jpgsave_picture_173992.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Cicero - Future Boy (1992) Expanded Edition, 2023, SFE [FLAC|Lossless|WEB-DL|tra
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174044.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174044.jpgsave_picture_174044.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ VA - Top 8 September 2023 Emotional and Uplifting Trance (2023) [MP3|320 Kbps] <
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174050.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174050.jpgsave_picture_174050.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ port-royal - Discography 15 Releases (2005-2020) Resonant, n5MD [FLAC|Lossless|t
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174283.jpgsave_picture_174283.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ VA - DJ Kubikov & Sapunov - 3fATMeN (2006) [MP3|320 Kbps|image+.cue, tracks+.cue
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174324.jpgsave_picture_174324.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ VA - Anjunadeep The Remixes 2020 (2020) Compilation [FLAC|Lossless|WEB-DL|tracks
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174435.jpgsave_picture_174435.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ VA - Remix Rockets (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Tech
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174498.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174498.jpgsave_picture_174498.jpg" />
 </div>
 
 
@@ -676,7 +676,7 @@ Any Second - Enemies (2022) Deluxe [FLAC|Lossless|WEB-DL|tracks] <Dark Electro, 
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175051.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175051.jpgsave_picture_175051.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ VA - Mondo Records: The Best Of (2017) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144400.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144400.jpgsave_picture_144400.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Platipus - Archive 13 (Mixed by Luke Brancaccio) (2018) [MP3|320 Kbps] <Tra
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144427.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144427.jpgsave_picture_144427.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Ohrwert - Fidelis / Blavus (2017) Greyscale [FLAC|Lossless|WEB-DL|tracks] <Dub T
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144431.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144431.jpgsave_picture_144431.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ My_Initials - Twelve (2017) ScanDark Recordings [FLAC|Lossless|WEB-DL|tracks] <T
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144443.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144443.jpgsave_picture_144443.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ VA - Snowflakes IX (2018) Raumklang Music [FLAC 2.0|44.1/24|tracks|WEB-DL] <Indu
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144462.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144462.jpgsave_picture_144462.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Vargo + Stephanie Hundertmark - Discography 26 Releases (2004-2019) [MP3|320 Kbp
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144517.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144517.jpgsave_picture_144517.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ SZMC - Dark Energy (The Album) (2018) [FLAC|Lossless|WEB-DL|tracks] <Spacesynth,
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144630.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144630.jpgsave_picture_144630.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ VA - Tangled Audio: Best Of 2018 (Mixed by Duncan Newell) (2018) [MP3|320 Kbps] 
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144710.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144710.jpgsave_picture_144710.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ VA - The Best Of Suanda True (Mixed By Tycoos & Elite Electronic) (2018) [MP3|32
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144715.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144715.jpgsave_picture_144715.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ VA - The Best of Suanda Progressive (Mixed by LTN) (2018) [MP3|320 Kbps] <Trance
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144729.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144729.jpgsave_picture_144729.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ VA - Tiesto - AFTR:HRS (2016) [MP3|320 Kbps] <Funky, Club House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144748.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144748.jpgsave_picture_144748.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Kobarey - The Four Sides of Orithyia (2018) Lowless [FLAC|Lossless|WEB-DL|tracks
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144800.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144800.jpgsave_picture_144800.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Massimo Vivona - Metromatiko (2018) Headzone Records [FLAC|Lossless|WEB-DL|track
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144809.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144809.jpgsave_picture_144809.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ VA - Liquid Drum & Bass Sessions Vol 14 (2016) [MP3|320 Kbps] <Drum & Bass>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144823.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144823.jpgsave_picture_144823.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ VA - House Anthems (2018) [MP3|320 Kbps] <Minimal, Tech House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144825.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144825.jpgsave_picture_144825.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ BELLATRIX - I Love KOTO - Covers and Remixes (2018) [FLAC|Lossless|WEB-DL|tracks
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145500.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145500.jpgsave_picture_145500.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ VA - Anjunabeats. The Yearbook 2021 (2021) Mixed [FLAC|Lossless|WEB-DL|tracks] <
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145509.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145509.jpgsave_picture_145509.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ VA - Seveneves Best of 2021 (2021) [MP3|320 Kbps] <Funky, Club-House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145529.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145529.jpgsave_picture_145529.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ VA - Space Holidays Vol. 10 (2018) 3CD [FLAC|Lossless|WEB-DL|tracks] <Spacesynth
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145537.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145537.jpgsave_picture_145537.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Duran Duran - The Biggest And The Best (2012) 2CD, Compilation [FLAC|Lossless|tr
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145543.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145543.jpgsave_picture_145543.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Armin van Buuren - A State of Trance 1048 XXL (Top 50 of 2021) (2021-12-23) [MP3
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145551.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145551.jpgsave_picture_145551.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ VA - Space Odyssey: New Year's Voyage 2019 (2018) 2CD [FLAC|Lossless|WEB-DL|trac
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145581.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145581.jpgsave_picture_145581.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ VA - A State of Trance: Year Mix (Mixed by Armin van Buuren) (2018) [MP3|320 Kbp
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145595.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145595.jpgsave_picture_145595.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Jean Mare - Atmospheric Dreams (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Dow
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145654.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145654.jpgsave_picture_145654.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ VA - Chillout 2016 Best of 30 Top Hits (2015) [MP3|320 кб/с] <Downtempo, Chil
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145688.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145688.jpgsave_picture_145688.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ VA - Space Odyssey: New Year's Voyage 2019 (2018) 2CD [MP3|320 Kbps] <Spacesynth
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145693.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145693.jpgsave_picture_145693.jpg" />
 </div>
 
 

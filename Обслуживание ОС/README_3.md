@@ -6,7 +6,7 @@
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19304.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19304.jpgsave_picture_19304.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Reg Organizer 9.71 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20437.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20437.jpgsave_picture_20437.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Files Inspector Pro 4.30 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20612.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20612.jpgsave_picture_20612.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ FolderSizes 9.7.522 Enterprise [En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21620.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21620.jpgsave_picture_21620.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ XtraTools Professional 25.4.1 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21960.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21960.jpgsave_picture_21960.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Red Button 6.3 [Ru/En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22195.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22195.jpgsave_picture_22195.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Duplicate Cleaner Pro 5.25.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22744.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22744.jpgsave_picture_22744.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ IObit Uninstaller Pro 14.2.1.7 Portable by 7997 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22788.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22788.jpgsave_picture_22788.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ Duplicate Cleaner Pro 5.25.0 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22903.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22903.jpgsave_picture_22903.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ CCleaner 6.34.11482 Free / Pro / Business / Technician Edition RePack (& Portabl
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24098.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24098.jpgsave_picture_24098.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ WinTools.net Premium 25.3.1 Premium RePack (& Portable) by elchupacabra [Multi/R
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24187.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24187.jpgsave_picture_24187.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Revo Uninstaller Pro 5.3.7 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24241.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24241.jpgsave_picture_24241.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Windows Repair Toolbox 3.0.4.6 Portable [En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24400.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24400.jpgsave_picture_24400.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ WSCC (Windows System Control Center) 10.0.0.5 + Portable [En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24812.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24812.jpgsave_picture_24812.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Wise Program Uninstaller 3.2.3.266 RePack (& portable) by elchupacabra [Multi/Ru
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25853.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25853.jpgsave_picture_25853.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ Wise Registry Cleaner Pro 11.1.10.725 RePack (& portable) by Dodakaedr [Multi/Ru
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26356.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26356.jpgsave_picture_26356.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ Advanced SystemCare Pro 18.2.0.222 Portable by zeka.k [Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26862.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26862.jpgsave_picture_26862.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ WindowManager 10.21.4 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28059.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28059.jpgsave_picture_28059.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Driver Store Explorer 0.11.114 Portable [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28392.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28392.jpgsave_picture_28392.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ WinTools.net Premium 25.2.1 Classic / Professional / Premium RePack (& Portable)
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28591.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28591.jpgsave_picture_28591.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Windows Manager 2.1.0 (x64) Portable by FC Portables [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28800.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28800.jpgsave_picture_28800.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ RegCool 2.040 + Portable [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29168.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29168.jpgsave_picture_29168.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Auslogics Driver Updater 2.0.1.2 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29253.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29253.jpgsave_picture_29253.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Macrorit Data Wiper 8.2.0 Unlimited Edition RePack (& Portable) by elchupacabra 
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29271.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29271.jpgsave_picture_29271.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Duplicate File Finder Pro 2500 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29728.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29728.jpgsave_picture_29728.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Revo Uninstaller Pro 5.3.5 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30957.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30957.jpgsave_picture_30957.jpg" />
 </div>
 
 

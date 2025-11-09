@@ -6,7 +6,7 @@ VA - Popular Winter Dance Pack (2019) [MP3|320 Kbps] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139703.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139703.jpgsave_picture_139703.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:0C7557FE647F3EA9355E11647E337F8F157C6D88
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140156.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140156.jpgsave_picture_140156.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - Новогоднее настроение в СССР (2CD) (1956-1991) о�
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140600.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140600.jpgsave_picture_140600.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - Зима на Love Radio vol2 (2020) [MP3|320 Kbps] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140831.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140831.jpgsave_picture_140831.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ VA - Народный Микс Новогодний (2015) [MP3|256-320 кб/с]
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140909.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140909.jpgsave_picture_140909.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ magnet:?xt=urn:btih:8223E6F3030DC9DA0AC12859C8163BB0375815D8
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141199.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141199.jpgsave_picture_141199.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ VA - German Top 100 Single Jahrescharts 2018 (2018) [MP3|320 Kbps] <Pop, Rap>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141345.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141345.jpgsave_picture_141345.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ VA - Пацаны - Ваще Ребята! vol.23 (2015) [MP3|128-320 кб/с] <
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141348.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141348.jpgsave_picture_141348.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ VA - Новогодняя Дискотека 50/50 (2012) [MP3|256 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142007.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142007.jpgsave_picture_142007.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ VA - George Michael - Best275z (1984 - 2014) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142120.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142120.jpgsave_picture_142120.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ VA - Unknown 80's (part I) (2016) [MP3|320 Kbps] <Electronic Pop Rock, Synthpop,
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142240.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142240.jpgsave_picture_142240.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ VA - De Top 100 Aller Tijden 1974 (Radio Veronica) (2017) [MP3|320 Kbps] <Pop, R
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142400.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142400.jpgsave_picture_142400.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ VA - German Top 100 Single Charts 29.12.2017 [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142443.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142443.jpgsave_picture_142443.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ VA - Best 50 New Year 2019 Edition (2018) Compiled by mCITY [MP3|320 Kbps] <Euro
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142584.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142584.jpgsave_picture_142584.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ VA - Новая Русская Дискотека (Лучшие 3) (2016) [MP3|2
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142624.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142624.jpgsave_picture_142624.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ VA - Новая Русская Дискотека (Лучшие 2) (2016) [MP3|2
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142681.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142681.jpgsave_picture_142681.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ VA - Свежий Русский Хит от ALEXnROCK часть 8 (2021) [MP3|
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142690.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142690.jpgsave_picture_142690.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ VA - German Top 100 Single Charts 27.12.2019 [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143557.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143557.jpgsave_picture_143557.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ VA - National Pop Dance Music Vol.29 (2021) [MP3|320 Kbps] <Pop, Dance, Schlager
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143669.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143669.jpgsave_picture_143669.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ Jeanette - Compilation (2021) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143679.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143679.jpgsave_picture_143679.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ VA - Shazam Хит-парад World Top 200 Итоговый 2018 [MP3|320 Kbps]
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143829.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143829.jpgsave_picture_143829.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ VA - Новогодние хиты. Песни года Выпуск № 6 (2016
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143946.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143946.jpgsave_picture_143946.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ VA - Shazam Хит-парад Russia Top 200 Новогодний (2019) [MP3|32
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144214.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144214.jpgsave_picture_144214.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ VA - Новогодний Микс 50Х50 (2016) [MP3|256 Kbps] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144370.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144370.jpgsave_picture_144370.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ VA - Happy Dance Hit (2018) [MP3|320 Kbps] <Pop, Dance, Club>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144480.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144480.jpgsave_picture_144480.jpg" />
 </div>
 
 
@@ -687,7 +687,7 @@ VA - Русские свежаки радиостанций. Топ новино
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144643.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144643.jpgsave_picture_144643.jpg" />
 </div>
 
 

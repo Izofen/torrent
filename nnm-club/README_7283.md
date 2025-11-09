@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249395.jpgsave_picture_249395.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Telegram Desktop 4.7.0 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249396.jpgsave_picture_249396.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:2E0257F65A00AEE2B50FE57919C2342D0777F5C1
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249397.jpgsave_picture_249397.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ Schiller - Tag Und Nacht (2005) [FLAC|Lossless|tracks + .cue]<Trance, Downtempo,
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249398.jpgsave_picture_249398.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ RSS Guard 4.2.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249399.jpgsave_picture_249399.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Jimi "Primetime" Smith - The World In A Jug (2023) [FLAC|Lossless|WEB-DL|tracks]
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249400.jpgsave_picture_249400.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:13A648F09EF76A4FAB5C8ED5085F995464D72611
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249401.jpgsave_picture_249401.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ NG. Настольная книга диктатора / The Dictator's Playbook
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249402.jpgsave_picture_249402.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:6969A3A68302875A48D1423ACDF203BF46962592
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249403.jpgsave_picture_249403.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ Getsuyoubi no Tawawa / Tawawa on Monday / Встречи с Тававой по 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249404.jpgsave_picture_249404.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ magnet:?xt=urn:btih:D205835D09EBD079B69BDD58E2C044BCDED4495A
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249405.jpgsave_picture_249405.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ magnet:?xt=urn:btih:8C4F5E47E1442C76661D40C17390EB8D83ECF6B9
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249406.jpgsave_picture_249406.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ Movavi Picverse 1.10.0 RePack (& Portable) by elchupacabra + Content [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249407.jpgsave_picture_249407.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ magnet:?xt=urn:btih:A72707B0B031ABE531A48029EF59C2961F59C79D
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249408.jpgsave_picture_249408.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ magnet:?xt=urn:btih:3585A42FDB1050EDFAF4D6551D1F41DF65CA6A58
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249409.jpgsave_picture_249409.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ magnet:?xt=urn:btih:38231E9331FA9508111D60EA6C22D41CF208411E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249410.jpgsave_picture_249410.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ magnet:?xt=urn:btih:30008A26E482836ADD91DE2CB1150CE49CC5C87F
 >>Новости
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249411.jpgsave_picture_249411.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Adobe Substance 3D Painter 7.4.2 Build 1551 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249412.jpgsave_picture_249412.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ magnet:?xt=urn:btih:A24C21B4FCDD15BAA3A3FBCC3F37A8EDAB296B20
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249413.jpgsave_picture_249413.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ VMware Workstation Player 16.2.4 build-20089737 Free [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249414.jpgsave_picture_249414.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ BBC. Охота на Питера Тобина / The Hunt for Peter Tobin (2025)
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249415.jpgsave_picture_249415.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ magnet:?xt=urn:btih:29671F2053E705146C7934BA3BF78CE53803F091
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249416.jpgsave_picture_249416.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ Far Manager 3.0.6000 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249417.jpgsave_picture_249417.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ magnet:?xt=urn:btih:E55834D58EDB10824FC2F757BA492A599C84432C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249418.jpgsave_picture_249418.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ magnet:?xt=urn:btih:364861F4DBD69F82DEDAFB8DFC5DD91094224ED7
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249419.jpgsave_picture_249419.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ magnet:?xt=urn:btih:3F387E8390ED504DDA24EF18C96C9508C3FF5F0E
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249420.jpgsave_picture_249420.jpg" />
 </div>
 
 

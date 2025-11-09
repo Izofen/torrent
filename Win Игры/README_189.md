@@ -6,7 +6,7 @@ Ruindog (2024) [Ru/Multi] (1.0.03) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56497.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56497.jpgsave_picture_56497.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Undead Inc. (2024) [Ru/Multi] (1.0/dlc) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56521.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56521.jpgsave_picture_56521.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ INDIKA (2024) [Ru/Multi] (14207837) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56523.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56523.jpgsave_picture_56523.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ The Bridge Curse 2: The Extrication / Проклятый мост 2: Эваку�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56569.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56569.jpgsave_picture_56569.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Gift (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56590.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56590.jpgsave_picture_56590.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Bloody Heaven 2 (2024) [Multi] (0.04) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56597.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56597.jpgsave_picture_56597.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ King Arthur: Legion IX (2024) [Ru/Multi] (1.0.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56615.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56615.jpgsave_picture_56615.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Captain Goose (2023) [Ru/En] (1.0) Scene Razor1911
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56698.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56698.jpgsave_picture_56698.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ The Legend of Heroes: Trails of Cold Steel IV (2021) [Multi] (1.2.1/dlc) License
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56731.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56731.jpgsave_picture_56731.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Clive 'N' Wrench (2023) [Multi] (Patch 1.1) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56752.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56752.jpgsave_picture_56752.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Mists of Noyah (2022) [Multi] (1.0.2) Scene Razor1911
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56804.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56804.jpgsave_picture_56804.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Savant - Ascent REMIX (2023) [Ru/Multi] (1.2a03) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56829.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56829.jpgsave_picture_56829.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Alba: A Wildlife Adventure (2020) [Ru/Multi] (0.90) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56893.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56893.jpgsave_picture_56893.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Hand In Hand (2023) [Ru/Multi] (1.0) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56894.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56894.jpgsave_picture_56894.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ City Legends 4: The Witness in the Rye (2024) [Multi] (1.0) Unofficial [Collecto
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56895.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56895.jpgsave_picture_56895.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Battle vs Chess (2011) [Ru/Multi] (1.2/dlc) License GOG [Grandmaster Premium Edi
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56904.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56904.jpgsave_picture_56904.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ The Bridge Curse 2: The Extrication / Проклятый мост 2: Эваку�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56911.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56911.jpgsave_picture_56911.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Strongloween: The Escape (2024) [Multi] (1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56915.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56915.jpgsave_picture_56915.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Ira (2023) [Multi] (1.0.10) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56921.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56921.jpgsave_picture_56921.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Gone Home (2013) [Ru/Multi] (2020-01-28) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56939.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56939.jpgsave_picture_56939.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ MEGATON MUSASHI W: WIRED (2024) [Multi] (3.0.2/dlc) Repack FitGirl [Deluxe Editi
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56943.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56943.jpgsave_picture_56943.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Phantom Fury (2024) [Ru/Multi] (17384) Repack Decepticon
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57020.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57020.jpgsave_picture_57020.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ the Dwarf (2024) [Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57043.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57043.jpgsave_picture_57043.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Last Train Home (2023) [Ru/Multi] (1.0.0.32413) Scene Rune
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57054.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57054.jpgsave_picture_57054.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ King Arthur: Legion IX (2024) [Ru/Multi] (1.0.0) Scene FairLight
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57065.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57065.jpgsave_picture_57065.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Gift (2024) [Ru/Multi] (1.0) Scene Rune
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57102.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57102.jpgsave_picture_57102.jpg" />
 </div>
 
 

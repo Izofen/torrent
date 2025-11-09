@@ -6,7 +6,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_199912.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_199912.jpgsave_picture_199912.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ VA - Armin van Buuren - A State Of Trance 1248 (ADE Special) (2025) [MP3|320 Kbp
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_199915.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_199915.jpgsave_picture_199915.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ PillowView 1.0.0 [En]
 >>Просмотрщики Графики (вьюверы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_199918.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_199918.jpgsave_picture_199918.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ VA - Home Office Chill: Chillout Your Mind (2025) [FLAC|Lossless|WEB-DL|tracks] 
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_199932.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_199932.jpgsave_picture_199932.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:5346FAE334FF46B7DBE504D38F436DC03B2A635D
 >>Сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_199935.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_199935.jpgsave_picture_199935.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:B9E04A829B0B78D3FEBEAB9E8D28598B2481521A
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_199937.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_199937.jpgsave_picture_199937.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ Dead Island 2 (2024) [Ru/Multi] (7.0.0.1243375/dlc) Repack Wanterlude [Ultimate 
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_199940.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_199940.jpgsave_picture_199940.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ reaConverter Pro 8.0.148 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_199941.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_199941.jpgsave_picture_199941.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ Overlord Ultimate Evil Collection (2007-2015) [Ru/Multi] (1.4/1.0/1.0.15.4016/dl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_199944.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_199944.jpgsave_picture_199944.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ magnet:?xt=urn:btih:AC1A347E63700B117D0A54283FB999F858336AC0
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_199954.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_199954.jpgsave_picture_199954.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ Soilwork - Live In The Heart Of Helsinki (2015) 2XCD, Limited Edition [FLAC|Loss
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_199955.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_199955.jpgsave_picture_199955.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ magnet:?xt=urn:btih:5D8BFC7FB647DCE3B5C8AA65198294A2D415BD62
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_199960.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_199960.jpgsave_picture_199960.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ Rosetta Stone: Изучение языков 8.34.3 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_199963.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_199963.jpgsave_picture_199963.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ PowerISO 9.2 RePack by KpoJIuK [Multi/Ru]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_199968.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_199968.jpgsave_picture_199968.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Reg Organizer 9.89 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_199970.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_199970.jpgsave_picture_199970.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ magnet:?xt=urn:btih:5F3370BB7A1FBD7BA0FA7C8DEC8F0C8E37A56D97
 >>Сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_199972.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_199972.jpgsave_picture_199972.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ magnet:?xt=urn:btih:8558479FE84363098CB2762E7F091366C2177086
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_199979.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_199979.jpgsave_picture_199979.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ magnet:?xt=urn:btih:6CBD0E22332B05F33DA8D5644A59777F533D557C
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_199982.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_199982.jpgsave_picture_199982.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ magnet:?xt=urn:btih:DBBA01D13A0617255FABAA87FF34F05E60F719EA
 >>Сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_199985.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_199985.jpgsave_picture_199985.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ LASCALA - Play-Off (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_199986.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_199986.jpgsave_picture_199986.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Plants vs. Zombies: Replanted (2025) [Multi] (1.2) Repack Other s
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_199991.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_199991.jpgsave_picture_199991.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ VA - A State of Trance - Classics Top 10, Vol. 10 (2025) [MP3|320 Kbps] <Trance,
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_200000.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_200000.jpgsave_picture_200000.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ Tormented Souls 2 (2025) [Ru/Multi] (1.2.0/dlc) Scene Rune [Digital Deluxe Editi
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_200002.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_200002.jpgsave_picture_200002.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ Neighbours Back From Hell (2020) [Ru/Multi] (1.2.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_200003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_200003.jpgsave_picture_200003.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ magnet:?xt=urn:btih:77CAA2362EE9EF9A98AA7388AC4037BFB41E16C9
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_200005.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_200005.jpgsave_picture_200005.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ Warhammer 40,000: Dawn of War Soulstorm (2008) [Ru] (1.2) Repack Necros
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_200011.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_200011.jpgsave_picture_200011.jpg" />
 </div>
 
 

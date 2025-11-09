@@ -6,7 +6,7 @@ iReal Pro 2024.2 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114157.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114157.jpgsave_picture_114157.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ AC/DC - For Those About To Rock (We Salute You) (1981) [FLAC|24/192|image + .cue
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114158.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114158.jpgsave_picture_114158.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:D4BB87989B200E364DA2B4AC3BAD71652DCE1772
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114159.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114159.jpgsave_picture_114159.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:C20AFDEFD2E535366CAD27AD618B5548265A273A
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114160.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114160.jpgsave_picture_114160.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ MarginNote 3 Pro v.3.7.25 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114161.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114161.jpgsave_picture_114161.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ SRWare Iron 120.0.6200.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114162.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114162.jpgsave_picture_114162.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ magnet:?xt=urn:btih:E9722845F4FE6C01D1DF0AEB9B5D260FCC5D186D
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114163.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114163.jpgsave_picture_114163.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ CPU Temp 1.6.0.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114164.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114164.jpgsave_picture_114164.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ magnet:?xt=urn:btih:7FE1959A568F17A9D815B32F941CEDFA63E82D5D
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114165.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114165.jpgsave_picture_114165.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ ExamDiff Pro Master Edition 14.0.1.25 + Portable [En]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114166.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114166.jpgsave_picture_114166.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ MediaHuman YouTube Downloader 3.9.9.88 (0305) RePack (& Portable) by Dodakaedr [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114167.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114167.jpgsave_picture_114167.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:2A46BE824CFC6E61281F6CC223AA6C9E0F82C490
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114168.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114168.jpgsave_picture_114168.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Wise Program Uninstaller 3.1.9.263 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114169.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114169.jpgsave_picture_114169.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Fate/Grand Order: First Order | Fate/Grand Order -First Order- | Судьба: �
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114170.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114170.jpgsave_picture_114170.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ magnet:?xt=urn:btih:CC2113A923D79054E26861D12AF818725771DAD1
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114171.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114171.jpgsave_picture_114171.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ magnet:?xt=urn:btih:DFDB2E3FBF6D5FD06D89F2D7B19A15338E1C8C86
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114172.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114172.jpgsave_picture_114172.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ magnet:?xt=urn:btih:EC48E2C0C9EC29EB5B2DD29C6F038FC8D4BA7CB7
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114173.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114173.jpgsave_picture_114173.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ magnet:?xt=urn:btih:EC1803771A77BE5BBE137F9F50AD8F6420468BFC
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114174.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114174.jpgsave_picture_114174.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ PotPlayer 240305 (1.7.22124) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114175.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114175.jpgsave_picture_114175.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ Glary Disk Cleaner 6.0.1.9 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114176.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114176.jpgsave_picture_114176.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ magnet:?xt=urn:btih:706150513AE740CA4F7EB9A7C24F4000153A100D
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114177.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114177.jpgsave_picture_114177.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ Glary Tracks Eraser 6.0.1.8 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114178.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114178.jpgsave_picture_114178.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ magnet:?xt=urn:btih:17DB73E7A25298A26C80E68F79974BDA2BF19F69
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114179.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114179.jpgsave_picture_114179.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Syntheticsax - Silhouettes (2021) [FLAC|Lossless|WEB-DL|tracks] <Alternative, In
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114180.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114180.jpgsave_picture_114180.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Easy Data Transform for Mac 1.46.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114181.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114181.jpgsave_picture_114181.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ magnet:?xt=urn:btih:CC43419E83EECBD36829ADE9E2A5EAC1ED0CD20C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114182.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114182.jpgsave_picture_114182.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ VA - 40 Dance Hits 2024 (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24155.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24155.jpgsave_picture_24155.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Organic Yoga (2025) [FLAC|Lossless|WEB-DL|tracks] <House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24156.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24156.jpgsave_picture_24156.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:312D061C41F49E56B53FFF485D1FC39F34B2352B
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24157.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24157.jpgsave_picture_24157.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Electrical Cost / Стоимость электроэнергии v6.1.1 Mod by 
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24158.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24158.jpgsave_picture_24158.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ VA - Chillhop Essentials Spring (2025) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, C
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24159.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24159.jpgsave_picture_24159.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ Naxatras - V (2025) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic, Stoner, Space Ro
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24160.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24160.jpgsave_picture_24160.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ magnet:?xt=urn:btih:364852446E35E486272C7EF8854D27D449A9362A
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24161.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24161.jpgsave_picture_24161.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ magnet:?xt=urn:btih:3DF7DD7D7F5502DC8340C68A2B8CD1A2A3A5953C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24162.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24162.jpgsave_picture_24162.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ magnet:?xt=urn:btih:E179B487DA363F04FCDF2E91E9158B4F928FB2F9
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24163.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24163.jpgsave_picture_24163.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ Daniel Wallace | Артбук по фильмам Охотники за прив
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24164.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24164.jpgsave_picture_24164.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ magnet:?xt=urn:btih:C61337ADD4491D16ABACE57E514062AB2954AE4B
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24165.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24165.jpgsave_picture_24165.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ magnet:?xt=urn:btih:0BC2283B11678EFA5AF5F8B166E3A2B7F52DDCA6
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24166.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24166.jpgsave_picture_24166.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ FastFlix 5.10.0 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24167.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24167.jpgsave_picture_24167.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ UltraSearch Professional 4.6.3.1106 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24168.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24168.jpgsave_picture_24168.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ Skype 8.138.0.209 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24169.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24169.jpgsave_picture_24169.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ magnet:?xt=urn:btih:ACA8E2C493A2034D51FB6A62022F8F33E430CD29
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24170.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24170.jpgsave_picture_24170.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ Alfa eBooks Manager 9.1.32 Pro & Web [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24171.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24171.jpgsave_picture_24171.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ XtraTools Professional 25.3.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24172.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24172.jpgsave_picture_24172.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Simon Stalenhag | Электрический штат / The Electric State (2018
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24173.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24173.jpgsave_picture_24173.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ magnet:?xt=urn:btih:A0FC9F1DE4D8E18D8AB86A3B2321FE46BB142877
 >>Автомобильная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24174.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24174.jpgsave_picture_24174.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ magnet:?xt=urn:btih:F8F5F6CB923E434398DDA89560737DD8469A24BF
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24175.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24175.jpgsave_picture_24175.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ XYplorer 27.00.0100 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24176.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24176.jpgsave_picture_24176.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ magnet:?xt=urn:btih:AD4742F6E7360535B71D9B7455D51D1C24818AB1
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24177.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24177.jpgsave_picture_24177.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Moby - Everything Is Wrong Non-Stop Dj Mix By Evil Ninja Moby (1996) digital re-
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24178.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24178.jpgsave_picture_24178.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Battery Guru: Monitor & Health v2.3.18 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24179.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24179.jpgsave_picture_24179.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ magnet:?xt=urn:btih:8219329E6032F57D808A5C9C734722D93F2B47F2
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24180.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24180.jpgsave_picture_24180.jpg" />
 </div>
 
 

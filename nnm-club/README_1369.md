@@ -6,7 +6,7 @@
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35949.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35949.jpgsave_picture_35949.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:606EFFC0DCEC7273189DA0C7DE44B364D00FFCAA
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35950.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35950.jpgsave_picture_35950.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:3377417B6BDCA806675AD5FB4A39733EDDE58694
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35951.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35951.jpgsave_picture_35951.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ PilotEdit Lite & Pro 19.4.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35952.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35952.jpgsave_picture_35952.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:B42D12B54FBDEF7E263F70DF88E037A79EA80128
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35953.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35953.jpgsave_picture_35953.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:FCCBA958D5AC34DEDD0953DDA90E062DCB8D2A8A
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35954.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35954.jpgsave_picture_35954.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ Excite Audio - Bloom Drum Machine 1.0.0 STANTALONE, VSTi, VSTi 3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35955.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35955.jpgsave_picture_35955.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ RedNotebook 2.36.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35956.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35956.jpgsave_picture_35956.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ House Flipper (2018) [Ru/Multi] (1.24331/dlc) Scene Rune
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35957.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35957.jpgsave_picture_35957.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Uriah Heep - Living The Dream (2018) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35958.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35958.jpgsave_picture_35958.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:78496E9C9A2D985B5887CBB6541450E8CBFF6715
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35959.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35959.jpgsave_picture_35959.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:D988E0DD70355A210CCD1EEFDDA1B50868714538
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35960.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35960.jpgsave_picture_35960.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Firefox Browser 133.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35961.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35961.jpgsave_picture_35961.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Michael Jackson - Love Never Felt So Good (2014) [FLAC|Lossless|tracks + .cue] <
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35962.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35962.jpgsave_picture_35962.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ magnet:?xt=urn:btih:6E2B95F6FB6EA3BB50A313B5572A00E903EEB48E
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35963.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35963.jpgsave_picture_35963.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ magnet:?xt=urn:btih:4A1F99F0B0D5DBFCF8EC7517D2E00BDD12FC67CF
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35964.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35964.jpgsave_picture_35964.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ magnet:?xt=urn:btih:8BA9F508A8FB10C2EAE3D0E25B6364759FC54740
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35965.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35965.jpgsave_picture_35965.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ magnet:?xt=urn:btih:33ECE5F52DE783EE364CCE2F755B92F5B9B44840
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35966.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35966.jpgsave_picture_35966.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ magnet:?xt=urn:btih:D5DC6F27A1A820FBC242A760F634F6F8090DCC1D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35967.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35967.jpgsave_picture_35967.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ magnet:?xt=urn:btih:0A85884BCC7AEA757E2F3940383718C7808B4D01
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35968.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35968.jpgsave_picture_35968.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ magnet:?xt=urn:btih:D00572CB4D8CE3D2EC15BE65F69B62EE75E46D59
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35969.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35969.jpgsave_picture_35969.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ magnet:?xt=urn:btih:D3AA138780C23380262B1EDD4CEE5985DED84602
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35970.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35970.jpgsave_picture_35970.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ magnet:?xt=urn:btih:681974A4F6E98E2D6EF733CF0D6C15892BE10DD4
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35971.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35971.jpgsave_picture_35971.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ magnet:?xt=urn:btih:B237E13CF1DE4B2ECDA1C8DD9C3262D87BB6A5D7
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35972.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35972.jpgsave_picture_35972.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ DARLING in the FRANXX | Любимый во Франксе [2018, TV, 24 из 24
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35973.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35973.jpgsave_picture_35973.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ VA - Deep Night Deep House 7 (2024) [MP3|320 Kbps] <Deep House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35974.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35974.jpgsave_picture_35974.jpg" />
 </div>
 
 

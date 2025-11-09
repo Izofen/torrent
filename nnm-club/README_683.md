@@ -6,7 +6,7 @@
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18081.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18081.jpgsave_picture_18081.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:304CDF582C126D6CA2C901407C6B0D2F47B97EB5
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18082.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18082.jpgsave_picture_18082.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:A3E4F1B7EA5F5530E89040DE0ED20C53B39EFD5A
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18083.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18083.jpgsave_picture_18083.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:DCD334B6E2FD61E022688C8968F04F3540EC0A9D
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18084.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18084.jpgsave_picture_18084.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ magnet:?xt=urn:btih:0CF0D1C7ED4A47C7804C9A9DE1F31473EF0A821C
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18085.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18085.jpgsave_picture_18085.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ magnet:?xt=urn:btih:8139493D37DCB0DF4A817CB1D1F05F38972E571B
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18086.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18086.jpgsave_picture_18086.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ Scooter - Live at Rock Am Ring festival (2022) WEB-DL [H.265/2160p] [hand made u
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18087.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18087.jpgsave_picture_18087.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ SpellForce: Conquest of Eo (2023) [Ru/Multi] (01.10.31934/dlc) Repack FitGirl [B
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18088.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18088.jpgsave_picture_18088.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ magnet:?xt=urn:btih:8BB154A77F67F88F9397930FE1AA8B53713266B3
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18089.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18089.jpgsave_picture_18089.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ VA - Trance: The Vocal Session 2025 Playlist by ZYX Music (2025) [MP3|320 Kbps] 
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18090.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18090.jpgsave_picture_18090.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ Oxygen Not Included (2019) [Ru/Multi] (U55-663500-SCR/dlc) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18091.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18091.jpgsave_picture_18091.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ magnet:?xt=urn:btih:3928611775B990E938F817A4FA5D1AF402FE03AA
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18092.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18092.jpgsave_picture_18092.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ Scooter - Live in Moscow (2000) VHSRip [H.264/1080p-LQ] [hand made upscale AI]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18093.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18093.jpgsave_picture_18093.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ Avicii - Avicii Forever (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Dance, Clu
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18094.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18094.jpgsave_picture_18094.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ Nicki LaFoille | Сумка с разделителем (2025) WEBRip [EN, RU]
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18095.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18095.jpgsave_picture_18095.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ magnet:?xt=urn:btih:59DA4B0AF01AF665B6147055C7407AD32984A622
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18096.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18096.jpgsave_picture_18096.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ magnet:?xt=urn:btih:D2818B8C83F509DFD526925A6209B194A19EE406
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18097.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18097.jpgsave_picture_18097.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ magnet:?xt=urn:btih:ADE86222E24E08FFA18298DB76BB63539E63F17B
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18098.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18098.jpgsave_picture_18098.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ magnet:?xt=urn:btih:7570937BE13762E47BC6DB3925D20D99D6311B88
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18099.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18099.jpgsave_picture_18099.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ OCCT 14.0.12 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18100.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18100.jpgsave_picture_18100.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ magnet:?xt=urn:btih:36F73F053C8202C7BFFC5323373BFF5D0754BBC8
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18101.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18101.jpgsave_picture_18101.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Everspace 2 (2021) [Ru/Multi] (1.4.47960/dlc) Repack FitGirl [Complete Edition]
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18102.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18102.jpgsave_picture_18102.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ magnet:?xt=urn:btih:978AA283998132CD6EBC6C3E190E9992870D5CA4
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18103.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18103.jpgsave_picture_18103.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ magnet:?xt=urn:btih:DE3BC8836A6AE033E2441F14070F0F365D085660
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18104.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18104.jpgsave_picture_18104.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ Kingsman: Секретная служба / Kingsman: The Secret Service (2014) 
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18105.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18105.jpgsave_picture_18105.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ magnet:?xt=urn:btih:821DBFAF99F6539DDFF50F80975D82D37EEFD1BA
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18106.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18106.jpgsave_picture_18106.jpg" />
 </div>
 
 

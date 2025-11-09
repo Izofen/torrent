@@ -6,7 +6,7 @@
 >>История
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184214.jpgsave_picture_184214.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:27FD133606BC4F681DCFC3A01E34F7FAAC91DA33
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184216.jpgsave_picture_184216.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:FF71F6286101BC3DF07F88CD590116BA0B2CF85F
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184218.jpgsave_picture_184218.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:4DCCD8B8BAADA9C46704A9AA120CC53173E79187
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184220.jpgsave_picture_184220.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:157969E8DB6695BBE75069C3980049B1588A2615
 >>Футбол
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184222.jpgsave_picture_184222.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ magnet:?xt=urn:btih:64E61708231D0ADEA60EBE1025C9F9DCAF19EC19
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184224.jpgsave_picture_184224.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Magnus Larsson | Microservices with Spring Boot 3 and Spring Cloud, 3rd Edition 
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_184226.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_184226.jpgsave_picture_184226.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ magnet:?xt=urn:btih:0ACF5EEC9E8C0D21E9088F7BEFB6841DE14759A3
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184227.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184227.jpgsave_picture_184227.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ Advanced Uninstaller PRO 13.23.0.52 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184228.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184228.jpgsave_picture_184228.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ magnet:?xt=urn:btih:AF526680D76BDFE3FF8027E997A2828E74B83064
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184230.jpgsave_picture_184230.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ AusLogics Disk Defrag Ultimate 4.12.0.4 RePack (& Portable) by TryRooM [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184231.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184231.jpgsave_picture_184231.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ Seedlings (2023) [Multi] (12245758) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184233.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184233.jpgsave_picture_184233.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ Tone2 - Synth Collection 11.2022 STANDALONE, VSTi, VSTi3 (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184234.jpgsave_picture_184234.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ Orion's Reign - Scores Of War (2018) Japanese Edition, 2019, Radtone Music [FLAC
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184237.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184237.jpgsave_picture_184237.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ magnet:?xt=urn:btih:1313D524D7E3C53077FF1DEFD33F1458A272EDD5
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184239.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184239.jpgsave_picture_184239.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ magnet:?xt=urn:btih:41631BF267519D338A84AE48E3D5FCD49F065B42
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184241.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184241.jpgsave_picture_184241.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ magnet:?xt=urn:btih:396EA86D7FED9B12B8E43736DC4A48543B31A8D8
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184242.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184242.jpgsave_picture_184242.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ magnet:?xt=urn:btih:F389B7221B010E083B5D0A2F04A2B49E1AE1073D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184245.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184245.jpgsave_picture_184245.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ magnet:?xt=urn:btih:F3A289F928B5F0E8BB3FFE0298499674A4D462B6
 >>Футбол
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184246.jpgsave_picture_184246.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ magnet:?xt=urn:btih:463CDC320EEDE71ED0DC6839F696DC0CC9BA0BAE
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184247.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184247.jpgsave_picture_184247.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ English With Lucy | The Business English Challenge (2023) WEB-DL [AD] [EN / EN S
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184250.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184250.jpgsave_picture_184250.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ U.D.O. - The Legacy (2022) 2 x CD, Compilation [FLAC|Lossless|image + .cue] <Hea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184251.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184251.jpgsave_picture_184251.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Suzi Quatro - Stumblin' In (2020) Live [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184252.jpgsave_picture_184252.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ magnet:?xt=urn:btih:960D111C53C58C3BAD382D672425E04B6543BD2B
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184255.jpgsave_picture_184255.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ magnet:?xt=urn:btih:5084A22E7C9213CEE013FA74D97191DB8B3036EF
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184256.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184256.jpgsave_picture_184256.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ IK Multimedia - TONEX MAX 1.0.3 STANDALONE, VST, VST3, AAX (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184257.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184257.jpgsave_picture_184257.jpg" />
 </div>
 
 

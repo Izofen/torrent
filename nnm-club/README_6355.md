@@ -6,7 +6,7 @@ Udemy, Peter A | Password Cracking: Brute Forcing (2022) WEB-DL [EN / EN Sub]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_201014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_201014.jpgsave_picture_201014.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:55BC5FA4E7AB1C3652454392968F39DFE3B258F8
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_201015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_201015.jpgsave_picture_201015.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ MetaProducts Offline Explorer Enterprise 8.4.4960 RePack (& Portable) by elchupa
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_201016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_201016.jpgsave_picture_201016.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:0AFCC6DA477958094D78C8883663225D09ACBA79
 >>Старые Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_201017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_201017.jpgsave_picture_201017.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ VA - Organic Dance House (2023) [MP3|320 Kbps] <Deep, House, Electro>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_201018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_201018.jpgsave_picture_201018.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ magnet:?xt=urn:btih:624F9B4F0E25026E3FBB37F838733C03D4D04C1B
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_201019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_201019.jpgsave_picture_201019.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ magnet:?xt=urn:btih:18A3D78A55A5D996FA845D2D1CB6361AEC07D0E8
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_201020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_201020.jpgsave_picture_201020.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ magnet:?xt=urn:btih:A444FDCDE9EF5D7050EAF3616A3CF80E858ABACA
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_201021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_201021.jpgsave_picture_201021.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ magnet:?xt=urn:btih:68D0EB733511E2DE14625597FABC348BD2C300FC
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_201022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_201022.jpgsave_picture_201022.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ VueScan Pro 9.7.99 (20.03.2023) RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_201024.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_201024.jpgsave_picture_201024.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ magnet:?xt=urn:btih:6BA8E59863694D599B359BBD4AD2C70262418086
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_201025.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_201025.jpgsave_picture_201025.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ VA - Winter Trance Session (2023) [MP3|320 Kbps] <Progressive, Trance, Electro>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_201026.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_201026.jpgsave_picture_201026.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ VA - Tech House: Night Play Show (2023) [MP3|320 Kbps] <House, Tech-House, Elect
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_201027.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_201027.jpgsave_picture_201027.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ Microsoft Windows 10.0.19044.2728, Version 21H2 (Updated March 2023) - Ориг�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_201028.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_201028.jpgsave_picture_201028.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ magnet:?xt=urn:btih:1037379E50F2DBC6AEAED4DB9E2D578CA042ECFF
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_201030.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_201030.jpgsave_picture_201030.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ magnet:?xt=urn:btih:9810525AF349BBBF3CF9770279A54553B12C467A
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_201031.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_201031.jpgsave_picture_201031.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ magnet:?xt=urn:btih:F6DA04C0E656F8C3185F471F5EFE7116BCF763AF
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_201751.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_201751.jpgsave_picture_201751.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ magnet:?xt=urn:btih:D05AD69945736544206CD27160DBE74DD9FECE2E
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_201752.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_201752.jpgsave_picture_201752.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ FileMenu Tools 8.6 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_201753.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_201753.jpgsave_picture_201753.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ LosslessCut 3.66.1 Standalone [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_201754.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_201754.jpgsave_picture_201754.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ ScrollNavigator 5.16.1 RePack by KpoJIuK [Ru/En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_201755.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_201755.jpgsave_picture_201755.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Any Video Downloader Pro 9.6.5 RePack (& Portable) by elchupacabra [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_201756.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_201756.jpgsave_picture_201756.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ By Click Downloader Premium 2.4.27 RePack (& Portable) by elchupacabra [Multi/Ru
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_201757.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_201757.jpgsave_picture_201757.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ R-Drive Image Technician 7.3 Build 7312 RePack (& Portable) by KpoJIuK [Multi/Ru
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_201758.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_201758.jpgsave_picture_201758.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ O&O Defrag Professional + Server 30.0 Build 1073 RePack by KpoJIuK [Ru/En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_201759.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_201759.jpgsave_picture_201759.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ magnet:?xt=urn:btih:A3E2A762B1A658DE0958F61A9306A4984A2EE697
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_201760.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_201760.jpgsave_picture_201760.jpg" />
 </div>
 
 

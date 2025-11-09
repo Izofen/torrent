@@ -6,7 +6,7 @@
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164856.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164856.jpgsave_picture_164856.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:6159BF12F50E3D36E5EAF5A790D7B3A3BE989CC0
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164858.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164858.jpgsave_picture_164858.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:DAE827F57A6748B1A198B265819E937B9D91E2BC
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164859.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164859.jpgsave_picture_164859.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:60DD5CF0C1D41E5307F5BD73190D7C030937E1FD
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164860.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164860.jpgsave_picture_164860.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ IAmTimCorey, Tim Corey | Изучение C#: Blazor WebAssembly / Exploring C#:
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164861.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164861.jpgsave_picture_164861.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:4987D6207E846A464A51FDDB90A379659CADDAA1
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164862.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164862.jpgsave_picture_164862.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ DaVinci Resolve Studio 16 v16.1.2.026 [Multi/Rus]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164863.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164863.jpgsave_picture_164863.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ Mailbird Pro 3.0.0.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164864.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164864.jpgsave_picture_164864.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ magnet:?xt=urn:btih:D54521A03DF14E0D88B5E831C4E8F85DE2CE25DA
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164865.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164865.jpgsave_picture_164865.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ magnet:?xt=urn:btih:1D3B79DEFB748FAA5C5EA93C5692EA5051772BA3
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164866.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164866.jpgsave_picture_164866.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ magnet:?xt=urn:btih:BB2038B26AEF553671C22060E45C42B0DF0342FA
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164867.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164867.jpgsave_picture_164867.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ Apple MainStage 3.6.3 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164868.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164868.jpgsave_picture_164868.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ magnet:?xt=urn:btih:FF412E75ED409012AA83E921C78AC0E649ABBA53
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164869.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164869.jpgsave_picture_164869.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:BAF0CA0ABB3984E2841C34ABBE53C1A03816560B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164870.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164870.jpgsave_picture_164870.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Native Instruments Kontakt 7 v.7.1.3 STANDALONE, VSTi, AU [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164871.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164871.jpgsave_picture_164871.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ magnet:?xt=urn:btih:D75489DE71B0E4EC211F13FB76B0E477DBED2690
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164872.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164872.jpgsave_picture_164872.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ magnet:?xt=urn:btih:7CA5F4D2E8EF9555D1ADEAE1432153DD7E017CD5
 >>История
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164873.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164873.jpgsave_picture_164873.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ magnet:?xt=urn:btih:5D952F49811C4B8FC06C0ED0AFEDF3B222B03C47
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164874.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164874.jpgsave_picture_164874.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ VA - Country Rock Hits (2021) [FLAC|Lossless|WEB-DL|tracks] <Country Rock>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164875.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164875.jpgsave_picture_164875.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ magnet:?xt=urn:btih:762807CFB0F83C5A43C8E3ADF77C509D97154F40
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164876.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164876.jpgsave_picture_164876.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ magnet:?xt=urn:btih:2AA43E8CFC6AC92357CB6828F017BE7AC04EC6EA
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164877.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164877.jpgsave_picture_164877.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ magnet:?xt=urn:btih:37CC4C4CA0A94102228DD4695F46C7882F1D94A1
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164878.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164878.jpgsave_picture_164878.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Calibre 6.10.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164879.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164879.jpgsave_picture_164879.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ magnet:?xt=urn:btih:D5C9829F134AF454D1AAA0B4E17CA74EA41F8A06
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164880.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164880.jpgsave_picture_164880.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ VA - 200 mp3  часть 2 (2021) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164881.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164881.jpgsave_picture_164881.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ VA - A State Of Trance Year Mix (Mixed by Armin van Buuren) (2022) 2CD [MP3|320 
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164882.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164882.jpgsave_picture_164882.jpg" />
 </div>
 
 

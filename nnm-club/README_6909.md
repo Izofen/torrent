@@ -6,7 +6,7 @@ LAC - Limbo (2023) [MP3|320 Kbps] <Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237408.jpgsave_picture_237408.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Neko no Ongaeshi | The Cat Returns | Возвращение кота (2002) BDRi
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237411.jpgsave_picture_237411.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Helloween - Легенды Зарубежного Рока (2000) Compilation, U
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237412.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237412.jpgsave_picture_237412.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ MacMagic 1.0.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237413.jpgsave_picture_237413.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Gates of Prophecy - Gates of Prophecy (2023) [FLAC|Lossless|WEB-DL|tracks] <Epic
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237414.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237414.jpgsave_picture_237414.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ DockMate 0.8.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237415.jpgsave_picture_237415.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ AmanVPN 2.3.4.0903 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237416.jpgsave_picture_237416.jpg" />
 </div>
 
 
@@ -187,7 +187,7 @@ magnet:?xt=urn:btih:C9ABC0CC5590A611BA9A4BBDF4459BE9850836C7
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237418.jpgsave_picture_237418.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ Princess Connect! Re:Dive 2 / PriConne 2 / Связь принцесс! Ново
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237419.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237419.jpgsave_picture_237419.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ VA - 80s Dance Hits (2022) CD, Compilation [MP3|320 Kbps] <Soul, Post-Disco, Syn
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237420.jpgsave_picture_237420.jpg" />
 </div>
 
 
@@ -265,7 +265,7 @@ Thergothon - Stream From The Heavens (1994) Reissue, 2009, Peaceville [FLAC|Loss
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237421.jpgsave_picture_237421.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ KCNcrew Pack 10-15-21 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237424.jpgsave_picture_237424.jpg" />
 </div>
 
 
@@ -316,7 +316,7 @@ Matt Tebow - Premonitions (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237425.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237425.jpgsave_picture_237425.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ magnet:?xt=urn:btih:6221C6178815448A1E8993A05180D95CCC1BC97E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237426.jpgsave_picture_237426.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ magnet:?xt=urn:btih:E4BD501ECAB73A45CE472BE47CEFD7F0BF713C69
 >>КВН
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237429.jpgsave_picture_237429.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ Michael Morales - Thump (1991) [FLAC|Lossless|image + .cue] <Melodic Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237430.jpgsave_picture_237430.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ SpamSieve 2.9.46 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237431.jpgsave_picture_237431.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ magnet:?xt=urn:btih:B4F96FD448CDAB7B16F4CF960C29D48467DA3FCC
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237432.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237432.jpgsave_picture_237432.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ NormBreaker (NormBreäker) - The Beginning (2023) [FLAC|Lossless|WEB-DL|tracks] 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237433.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237433.jpgsave_picture_237433.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ magnet:?xt=urn:btih:C7106400EEF5A59F276F3DBA6F9542644EC0ED37
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237435.jpgsave_picture_237435.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ IObit Uninstaller Pro 12.0.0.10 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237438.jpgsave_picture_237438.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ magnet:?xt=urn:btih:4AE04C1E1EC04F1F865F556D965F961CF3932B75
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237440.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237440.jpgsave_picture_237440.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ VA - Playa del Lounge 3 (2012) [AAC|~324 Kbps] <Lounge, Downtempo, Ambient>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237441.jpgsave_picture_237441.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Name Mangler 3 v3.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237442.jpgsave_picture_237442.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Avarice - Avarice (2023) [MP3|320 Kbps] <Melodic Death, Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237445.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237445.jpgsave_picture_237445.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Gumroad, Daniel Thiger | Tree Bark Creation (2019) PCRec [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237447.jpgsave_picture_237447.jpg" />
 </div>
 
 

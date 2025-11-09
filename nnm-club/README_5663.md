@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174341.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174341.jpgsave_picture_174341.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174342.jpgsave_picture_174342.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:C01787878396E12BA5333741F1F4D344E899B036
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174343.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174343.jpgsave_picture_174343.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:F791E029828F477E46A385B1EA4E645141D2760B
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174344.jpgsave_picture_174344.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:22434C4AF512027E9E48EB9F140601E72A1B7B9B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174346.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174346.jpgsave_picture_174346.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:E0EE6E38826683B0F9997A9487E5F443A0E1EE33
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174347.jpgsave_picture_174347.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Microsoft Windows 11 IoT Enterprise [10.0.22621.525], Version 22H2 (Updated Sept
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174349.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174349.jpgsave_picture_174349.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:4116D845CCCA294494E25F2BD4BACA65C3C11DA5
 >>Футбол
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174351.jpgsave_picture_174351.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:E7FE73F810EA62A87636D7E2329B82ED14593AEA
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174352.jpgsave_picture_174352.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:AFC7ACF6F82B7CE2E8AC245F0B51B8FF5F4F219D
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174353.jpgsave_picture_174353.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:4571EAE1FB3280C880F416B08DA252C3BB391398
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174355.jpgsave_picture_174355.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ magnet:?xt=urn:btih:89170FC74E867CDA57E128B2543660E4CCDAF02A
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174357.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174357.jpgsave_picture_174357.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Opera 73.0.3856.257 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174358.jpgsave_picture_174358.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:A79EB2F95575EAE9F7F851061AD145D8D8185F72
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174359.jpgsave_picture_174359.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Thief Simulator 2 (2023) [Ru/Multi] (1.0) Scene Rune
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174362.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174362.jpgsave_picture_174362.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:04BD140EFB59FE636958D3608740F778C2A6EA93
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174364.jpgsave_picture_174364.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ magnet:?xt=urn:btih:BF5AA2CA17AC1627624D116D019E5529C1133868
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174365.jpgsave_picture_174365.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ magnet:?xt=urn:btih:3269679FED650DFB63BF82C3FE00ECC067687E78
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174366.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174366.jpgsave_picture_174366.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ Korn: Live at Montreux 2004 (2008) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174368.jpgsave_picture_174368.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Starri (2023) [Multi] (1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174369.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174369.jpgsave_picture_174369.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Ashampoo UnInstaller 12.00.11 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174370.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174370.jpgsave_picture_174370.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Rhinoceros 7 v7.1.20343 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174371.jpgsave_picture_174371.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ VueScan Pro 9.7.96 (05.12.2022) RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174373.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174373.jpgsave_picture_174373.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Auslogics Disk Defrag Pro 11.0.0.4 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174374.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174374.jpgsave_picture_174374.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ VA - Music News vol.55 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174375.jpgsave_picture_174375.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ magnet:?xt=urn:btih:87B61928B4647C62F2F6EFE3C58A463CBBE664E3
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174377.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174377.jpgsave_picture_174377.jpg" />
 </div>
 
 

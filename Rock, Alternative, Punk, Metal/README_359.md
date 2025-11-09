@@ -6,7 +6,7 @@ Volatile Ways - 2 Albums (2020-2023) [FLAC|Lossless|WEB-DL|tracks] <Beatdown Har
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204889.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204889.jpgsave_picture_204889.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Rising Alma - Awake (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Fema
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204893.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204893.jpgsave_picture_204893.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Seven Ravens - After the Storm (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204898.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204898.jpgsave_picture_204898.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Imperial Night - 3 Albums (2021-2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204903.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204903.jpgsave_picture_204903.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Ofnus - Time Held Me Grey and Dying (2023) [FLAC|Lossless|WEB-DL|tracks] <Atmosp
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204905.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204905.jpgsave_picture_204905.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Red Jasper - 777 (2016) Deluxe Edition, 2023, Universal Records [FLAC|Lossless|W
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204907.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204907.jpgsave_picture_204907.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Lazarvs - Blackest (2023) [FLAC|Lossless|WEB-DL|tracks] <Sludge Metal, Groove Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204910.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204910.jpgsave_picture_204910.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Jorn - 40 albums, 54CD (1994-2022) [FLAC|Lossless|image + .cue |tracks + .cue] <
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204920.jpgsave_picture_204920.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Grateful Dead - Wake of the Flood: The Angel's Share (2023) [MP3|320 Kbps] <Rock
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204921.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204921.jpgsave_picture_204921.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Mountain Of Power - Volume Five (2023) [MP3|320 Kbps] <Hard Rock, Heavy Metal>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204923.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204923.jpgsave_picture_204923.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:101F54A29A27F61BFDBE12E73E993CE7DB8C9190
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204926.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204926.jpgsave_picture_204926.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Seven Ravens - After The Storm (2023) [MP3|320 Kbps] <Hard & Heavy>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204928.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204928.jpgsave_picture_204928.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Metalocalypse: Dethklok - Dethalbum IV (2023) [MP3|320 Kbps] <Melodic Death Meta
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204933.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204933.jpgsave_picture_204933.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Metalocalypse: Dethklok - Dethalbum IV (2023) [FLAC|Lossless|WEB-DL|tracks] <Mel
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204935.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204935.jpgsave_picture_204935.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Steeldown - I Don’t Care What Your Favourite Dinosaur Is (2023) [FLAC|Lossless
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204940.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204940.jpgsave_picture_204940.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Pyramaze - Bloodlines (2023) [FLAC|Lossless|image + .cue] <Power Metal, Rock>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204943.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204943.jpgsave_picture_204943.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ magnet:?xt=urn:btih:F571D7F24DA364B463FAAD6E34B8C4A8EE754E02
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204958.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204958.jpgsave_picture_204958.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ The Cure - Melkweg Amsterdam 1979 (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204999.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204999.jpgsave_picture_204999.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Axe - 10 albums, 19 CD (1979-2019) Discography [FLAC|Lossless|image + .cue] <Har
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_205061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205061.jpgsave_picture_205061.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Mentally Defiled - Aptitude for Elimination (2014) [FLAC|Lossless|image + .cue] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205099.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205099.jpgsave_picture_205099.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Wonders - The Fragments of Wonder (2021) [MP3|320 Kbps] <Melodic Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205110.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205110.jpgsave_picture_205110.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Wonders - Beyond the Mirage (2023) [MP3|320 Kbps] <Melodic Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205115.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205115.jpgsave_picture_205115.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Disturbed - Divisive (2022) [MP3|320 Kbps] <Alternative Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_205123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205123.jpgsave_picture_205123.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Rannoch - Conflagrations (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Death
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205127.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205127.jpgsave_picture_205127.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ Scott Springer - Hello Forever (1993) Reissue, Remastered, 2020, Girder Records 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205129.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205129.jpgsave_picture_205129.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ Ian Elliott - Astride The Pale Horse (2023) [FLAC|Lossless|WEB-DL|tracks] <Melod
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205131.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205131.jpgsave_picture_205131.jpg" />
 </div>
 
 

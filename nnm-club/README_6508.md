@@ -6,7 +6,7 @@
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206572.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206572.jpgsave_picture_206572.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:D0AF1FCD8073218DDF6E09F7F6A4FCF4AFBAD2A7
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206574.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206574.jpgsave_picture_206574.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Microsoft Visual Studio 2019 Enterprise 16.11.29 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206577.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206577.jpgsave_picture_206577.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:BD34B5BE77032FECB09D8AE4494CB45C4C61CA6B
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206578.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206578.jpgsave_picture_206578.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:5D531F2B42B5E60266EB6D79683E0B3F25627F1B
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206581.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206581.jpgsave_picture_206581.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:972630F6230C6DE4B5D722C24BF2B97AFA60DA9E
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206582.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206582.jpgsave_picture_206582.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Natale Vinto, Alex Soto Bueno | GitOps Cookbook (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206587.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206587.jpgsave_picture_206587.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ Primoz Gabrijelcic | Delphi High Performance, 2nd Edition (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206590.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206590.jpgsave_picture_206590.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:83E661A89BEEFDC68DE82533E1169B477E7D0D6D
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206592.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206592.jpgsave_picture_206592.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:BB99FBC7D3029DB1DA18B4173E305FE970A2039A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206594.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206594.jpgsave_picture_206594.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ RustDesk 1.2.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206596.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206596.jpgsave_picture_206596.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:95183FD9BA5562E7C437D62F742F7F3E7AAD8693
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206598.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206598.jpgsave_picture_206598.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:8882A3896AE85D55202F2AA8E6968AEAF3C0F38D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206600.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206600.jpgsave_picture_206600.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ David Bowie - Ziggy Stardust and the Spiders from Mars: The Motion Picture Sound
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206602.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206602.jpgsave_picture_206602.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ magnet:?xt=urn:btih:4A43A5F06527D3C5B26E6C71B4296B5833436B43
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206603.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206603.jpgsave_picture_206603.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ magnet:?xt=urn:btih:A202602CE6DF1A30B6FF939D227B9ECAC3F1CBC2
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206606.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206606.jpgsave_picture_206606.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Scott Duffy | AZ-104 Microsoft Azure Administrator Exam Prep (2021) WEBRip [EN /
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206608.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206608.jpgsave_picture_206608.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ VA - Electronica 2023: Best Dance Music (2023) [MP3|320 Kbps] <Electro Pop, Danc
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206610.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206610.jpgsave_picture_206610.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ magnet:?xt=urn:btih:9AA207C5B21C63D6C9BDA6F05073B1343064A0FE
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206611.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206611.jpgsave_picture_206611.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ magnet:?xt=urn:btih:3835C12BC5F57BD590CCC795D264772CFB5CF152
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206613.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206613.jpgsave_picture_206613.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ magnet:?xt=urn:btih:E8E72D9995FDA9FF4E639647DA4BDF7A6CF8FB08
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206615.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206615.jpgsave_picture_206615.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ XYplorer 24.80.0000 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206616.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206616.jpgsave_picture_206616.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ magnet:?xt=urn:btih:131D33DCD9E639050F120A38CC395235D180B00A
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206620.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206620.jpgsave_picture_206620.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ VA - Best of Electro Pop 2023 (2023) [MP3|320 Kbps] <Electro Pop, Dance, Club, P
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206621.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206621.jpgsave_picture_206621.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ magnet:?xt=urn:btih:F004189AE9B07E4AFD6B372C33B74A000BD381A8
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206623.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206623.jpgsave_picture_206623.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Chris Spheeris & Paul Voudouris - Europa (1995) [FLAC|Lossless|image + .cue] <In
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206626.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206626.jpgsave_picture_206626.jpg" />
 </div>
 
 

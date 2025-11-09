@@ -6,7 +6,7 @@ Nidaros Blueskompani - Live in Nidaros studio (2022) [FLAC|Lossless|WEB-DL|track
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178161.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178161.jpgsave_picture_178161.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Karma Jack - Lights Out Ep. 1 (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178163.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178163.jpgsave_picture_178163.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Wise Auto Shutdown 2.0.4.105 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_178166.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_178166.jpgsave_picture_178166.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ The Blum'S - 2 Albums, 1 EP, 1 Single (2020-2022) [MP3|320 Kbps] <Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178167.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178167.jpgsave_picture_178167.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Jukkis Uotila & The Stockholm Jazz Orchestra - The Music Of Jukkis Uotila (2012)
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178169.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178169.jpgsave_picture_178169.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ magnet:?xt=urn:btih:0AB6D1FDE6A5A00D70BA7B947DA0590961A96174
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178170.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178170.jpgsave_picture_178170.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Syar - Death Before Dishonour (1984) [WavPack|Lossless|image + .cue] <NWOBHM>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178172.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178172.jpgsave_picture_178172.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ ChrisPC Win Experience Index 7.22.06 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178173.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178173.jpgsave_picture_178173.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Vikram - Behind The Mask I (2019) Japanese Edition [FLAC|Lossless|image + .cue] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178175.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178175.jpgsave_picture_178175.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Wondershare PDFelement 10.0.7.2464 RePack by elchupacabra + OCR Plugin [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178176.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178176.jpgsave_picture_178176.jpg" />
 </div>
 
 
@@ -265,7 +265,7 @@ Sandboxie plus 1.11.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_178178.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_178178.jpgsave_picture_178178.jpg" />
 </div>
 
 
@@ -289,7 +289,7 @@ Sobernot - Destroy (2022) [MP3|320 Kbps] <Thrash, Groove Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178179.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178179.jpgsave_picture_178179.jpg" />
 </div>
 
 
@@ -316,7 +316,7 @@ XYplorer 25.00.0100 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178182.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178182.jpgsave_picture_178182.jpg" />
 </div>
 
 
@@ -341,7 +341,7 @@ VA - Doom or be Doomed (2022) [FLAC|Lossless|image + .cue] <Doom Metal, Stoner R
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178183.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178183.jpgsave_picture_178183.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ Hibernus Mortis - The Monoliths of Cursed Slumber (2022) [FLAC|Lossless|WEB-DL|t
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178185.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178185.jpgsave_picture_178185.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ WinCatalog 2024.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_178186.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_178186.jpgsave_picture_178186.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ magnet:?xt=urn:btih:0CD92935A68E3A528AB7D93D0593814104963F3D
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178190.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178190.jpgsave_picture_178190.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ In-Conquered - Nor Rivaled, Nor Equalled (2020) [FLAC|Lossless|WEB-DL|tracks] <B
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178191.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178191.jpgsave_picture_178191.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ VA - Milk & Sugar House Nation Ibiza 2023 [MP3|320 Kbps] <Funky, Club House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178194.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178194.jpgsave_picture_178194.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ magnet:?xt=urn:btih:A3C894A2B0FCEFBAFD9EBAB6B8E25747375F96AD
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178195.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178195.jpgsave_picture_178195.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Memories of a Lost Soul - Redefining Nothingness (2022) [FLAC|Lossless|WEB-DL|tr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178198.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178198.jpgsave_picture_178198.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ magnet:?xt=urn:btih:548FCA58670EAA614FE12498CCCAF9BD448DF967
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178199.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178199.jpgsave_picture_178199.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ magnet:?xt=urn:btih:A66B41601B7B74BA341394359F8B8F4351F108E0
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178201.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178201.jpgsave_picture_178201.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ D. K. - Above The Clouds (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178202.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178202.jpgsave_picture_178202.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ magnet:?xt=urn:btih:CE57EB9838B9A1713304A6F74140629E7910F2FC
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_178206.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_178206.jpgsave_picture_178206.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ In-Conquered - The Wide Path to the Lake of Fire (2022) [FLAC|Lossless|WEB-DL|tr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178207.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178207.jpgsave_picture_178207.jpg" />
 </div>
 
 

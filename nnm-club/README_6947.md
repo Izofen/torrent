@@ -6,7 +6,7 @@ Rammstein - Zeit (2022) [FLAC 2.0|48/24|WEB-DL|tracks] <Industrial-Metal, Neue-D
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238470.jpgsave_picture_238470.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Def Leppard - Vault: Def Leppard Greatest Hits 1980-1995 (1995) [OGG Vorbis|484 
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238471.jpgsave_picture_238471.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:1C9BD54BF9901D410C2EFAA1AE9CA11AE835978A
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238474.jpgsave_picture_238474.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Tenhi - Valkama (2023) [FLAC|Lossless|WEB-DL|tracks] <Nordic Folk, Progressive R
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238475.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238475.jpgsave_picture_238475.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ magnet:?xt=urn:btih:CC0E7087267BD02162C65B48022A1EEFD4C9813D
 >>Новости
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238476.jpgsave_picture_238476.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ magnet:?xt=urn:btih:CC0E7087267BD02162C65B48022A1EEFD4C9813D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238478.jpgsave_picture_238478.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ Tyrant - The Lowest Level (2022) [MP3|320 Kbps] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238479.jpgsave_picture_238479.jpg" />
 </div>
 
 
@@ -187,7 +187,7 @@ photo2movie 2.81 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238482.jpgsave_picture_238482.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ AeroAdmin 4.8 сборка 3612 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238483.jpgsave_picture_238483.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ Queens Of The Stone Age - In Times New Roman​.​.​. (2023) [MP3|320 Kbps] <
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238485.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238485.jpgsave_picture_238485.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ Tankard - Pavlov's Dawgs (2022) [MP3|320 Kbps] <Hard Rock, Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238486.jpgsave_picture_238486.jpg" />
 </div>
 
 
@@ -290,7 +290,7 @@ magnet:?xt=urn:btih:75E9C625016A021FA25CCBD717E4B1E659AAC751
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238487.jpgsave_picture_238487.jpg" />
 </div>
 
 
@@ -314,7 +314,7 @@ magnet:?xt=urn:btih:9DF9B0BCD8546C5EF1DDF971E5CAF28286200D7E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238490.jpgsave_picture_238490.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ batchRESIZE 1.70 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238492.jpgsave_picture_238492.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ magnet:?xt=urn:btih:B581BE60AD117C514A33CFA0E1C7EB4358E00108
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238493.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238493.jpgsave_picture_238493.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ magnet:?xt=urn:btih:F4EBC21B095FE0F328D68963E17DB2D25BE584E2
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238494.jpgsave_picture_238494.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ magnet:?xt=urn:btih:6D78BA28FD720F6334F110BD3A12FDA1F1EC1CC7
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238495.jpgsave_picture_238495.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ magnet:?xt=urn:btih:8EF42B5882C62CDFD06CE51D0E57EE93388C564B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238498.jpgsave_picture_238498.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ magnet:?xt=urn:btih:A1710275DF648BFF0CBADDD836FBFE4311864E04
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238499.jpgsave_picture_238499.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Maxon Cinema 4D Studio R26.014 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238500.jpgsave_picture_238500.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ magnet:?xt=urn:btih:55A6F624A2794BE7BBBBF2F38195E04456E3BB2F
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238501.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238501.jpgsave_picture_238501.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ magnet:?xt=urn:btih:E3FC452F734E61AA1FC4BCC0E419217D695E7310
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238502.jpgsave_picture_238502.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Hexed - Pagans Rising (2022) [MP3|320 Kbps] <Symphonic Metal, Female Vocal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238503.jpgsave_picture_238503.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ batchGIF 1.92 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238504.jpgsave_picture_238504.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ magnet:?xt=urn:btih:12AF589EFE3E3A705A981C8D1D8B42B2D10DDDE0
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238507.jpgsave_picture_238507.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ magnet:?xt=urn:btih:AD7AA124831D25E16F9EB798ACFF33BB542705F2
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238508.jpgsave_picture_238508.jpg" />
 </div>
 
 

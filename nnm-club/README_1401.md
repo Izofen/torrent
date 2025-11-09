@@ -6,7 +6,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36781.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36781.jpgsave_picture_36781.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:3CC53B27E62B160B2D4551FC0F1E0343336A7C0C
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36782.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36782.jpgsave_picture_36782.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:B234DE3CFA9F86E22EE613B2EB5597EF5CE1B773
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36783.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36783.jpgsave_picture_36783.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Paul Van Dyk. Video collection (1994 - 2024) DVDRip, WEBRip [H.264/1080p] [handm
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36784.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36784.jpgsave_picture_36784.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ VA - Best of Electro Swing (2024) [MP3|320 Kbps] <Swing, Nu Jazz, Electro>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36785.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36785.jpgsave_picture_36785.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ JetBrains RubyMine 2024.3 (x64-arm64) Repack by Sitego
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36786.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36786.jpgsave_picture_36786.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ magnet:?xt=urn:btih:CC54F8097481C07894CAA1343A97809CA07FFFFF
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36787.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36787.jpgsave_picture_36787.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ Pumping Simulator 2 (2023) [Ru/Multi] (0.7.2) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36788.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36788.jpgsave_picture_36788.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ WinToHDD 6.6 Free / Pro / Enterprise / Technician RePack (& Portable) by Dodakae
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36789.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36789.jpgsave_picture_36789.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ The Darkness II (2012) [Ru/En] (1.1/dlc) Repack Let'sРlay [Limited Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36790.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36790.jpgsave_picture_36790.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ magnet:?xt=urn:btih:0FB61A08B6AF22FCD5D4D57B7A0A06E81BBF2190
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36791.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36791.jpgsave_picture_36791.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ Men of War II (2) (2024) [Ru/Multi] (1.040/dlc) Scene Rune [Deluxe Edition]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36792.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36792.jpgsave_picture_36792.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ JetBrains DataGrip 2024.3 (x64-arm64) Repack by Sitego
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36793.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36793.jpgsave_picture_36793.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ magnet:?xt=urn:btih:1273AD118747A22DD11475ABACD58CFD389B41A7
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36794.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36794.jpgsave_picture_36794.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ magnet:?xt=urn:btih:D1A8E702A8C842771B9798A33C9C8749969B2A26
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36795.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36795.jpgsave_picture_36795.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ ChessBase 18 (2024) [En] (18.2) License
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36796.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36796.jpgsave_picture_36796.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ magnet:?xt=urn:btih:276D7252D83102B8D6117C1B52DC9A22C70D019D
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36797.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36797.jpgsave_picture_36797.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ magnet:?xt=urn:btih:B098C9736797D54AE8F95900E4D570902A60E06A
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36798.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36798.jpgsave_picture_36798.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ magnet:?xt=urn:btih:32EC30A991DFB7126F26D3AEE49E52E74AC2F1AB
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36799.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36799.jpgsave_picture_36799.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ VA - Союз 8 Альбомов (1994-1997) [MP3|320 Kbps] <Pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36800.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36800.jpgsave_picture_36800.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ magnet:?xt=urn:btih:6DAAA761CE61BF3EEDB89BE7E7FCC4F7314A013D
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36801.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36801.jpgsave_picture_36801.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ magnet:?xt=urn:btih:0608E38C9BE8A4A1C2FF375D88D0672540864B0C
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36802.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36802.jpgsave_picture_36802.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ magnet:?xt=urn:btih:E25B72B4A880958364E884C30D55BB926AB2C57E
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36803.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36803.jpgsave_picture_36803.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Astor: Blade of the Monolith (2024) [Ru/Multi] (1.0) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36804.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36804.jpgsave_picture_36804.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Windows Server [10.0.25398.1251], version 23H2 (Updated November 2024) - Ори�
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36805.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36805.jpgsave_picture_36805.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ magnet:?xt=urn:btih:8C1FB401FCF3F1FE27882BDFAEC45970206F5DF3
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36806.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36806.jpgsave_picture_36806.jpg" />
 </div>
 
 

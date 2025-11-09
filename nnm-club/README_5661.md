@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174272.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174272.jpgsave_picture_174272.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:A8E4F692E7A821A79444323C6FBCBC28E32F6529
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174273.jpgsave_picture_174273.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Windows 7 (3in1) x64 by Updated Edition (11.10.2023) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174275.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174275.jpgsave_picture_174275.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:C0F8E1E75EA5818D10AC3C88F1296D9C1C2C98A1
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174276.jpgsave_picture_174276.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:C95E1987A50544EBD2F18360D99BAEA485F53482
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174278.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174278.jpgsave_picture_174278.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Cent Browser 4.3.9.226 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174279.jpgsave_picture_174279.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:B7EE87E25983FD3242DF9754062A2B60A5E6323B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174280.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174280.jpgsave_picture_174280.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:58E268506168CB05D9B34EBCC231387113214121
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174282.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174282.jpgsave_picture_174282.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ port-royal - Discography 15 Releases (2005-2020) Resonant, n5MD [FLAC|Lossless|t
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174283.jpgsave_picture_174283.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:61AD65391924398F28F5EDA673C23D6F73564304
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174285.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174285.jpgsave_picture_174285.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:38037C561C6A588FD7FAC1E410B50621824496BC
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174286.jpgsave_picture_174286.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ VA - Feeling Blues (2020) [MP3|320 Kbps] <Blues, Soul>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174287.jpgsave_picture_174287.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ App Cleaner & Uninstaller Pro 8.0.3 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174288.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174288.jpgsave_picture_174288.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:8BAE4A01B4BBE19392B56A666819CF974348FFCB
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174290.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174290.jpgsave_picture_174290.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ MapleSoft MapleSim 2020.1 [En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174291.jpgsave_picture_174291.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ magnet:?xt=urn:btih:92E2809BF0E9C8770CDD5DF239B8CB8C17F0037B
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174293.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174293.jpgsave_picture_174293.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ magnet:?xt=urn:btih:80145A4C6211633BCAF42B966F794C61219EE802
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174294.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174294.jpgsave_picture_174294.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ magnet:?xt=urn:btih:C7CDABEFB8E2CF92F377641433D47638F7DFD55A
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174295.jpgsave_picture_174295.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ magnet:?xt=urn:btih:19DB870549984BEFE9F0217A4C5F37A0CB50B9D4
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174297.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174297.jpgsave_picture_174297.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ PotPlayer 221102 (1.7.21833) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174298.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174298.jpgsave_picture_174298.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ magnet:?xt=urn:btih:26A2E14F8BD3B5F1E9456DBF4FC7F434B3EE56DA
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174299.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174299.jpgsave_picture_174299.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ magnet:?xt=urn:btih:32456438239BEC0A00E64D3B7988FEB414E81AD1
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174301.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174301.jpgsave_picture_174301.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ magnet:?xt=urn:btih:F830EF894798A6D1BB80DE570005EB31BD123DC5
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174303.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174303.jpgsave_picture_174303.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Microsoft Office 2021 for Mac LTSC v.16.78 VL [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174304.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174304.jpgsave_picture_174304.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Revo Uninstaller Pro 5.0.8 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174305.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174305.jpgsave_picture_174305.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Psiphon 3 build 176 (DC 06.12.2022) Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174306.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174306.jpgsave_picture_174306.jpg" />
 </div>
 
 

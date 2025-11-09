@@ -6,7 +6,7 @@ Cockos REAPER 6.70 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187781.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187781.jpgsave_picture_187781.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:E97390D50172CFD6564B42A0A218280F16E0847A
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187782.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187782.jpgsave_picture_187782.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:8062FBC38AF45E0873BADB0122F4F2AE76469084
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187783.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187783.jpgsave_picture_187783.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ FreeFileSync 11.28 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187784.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187784.jpgsave_picture_187784.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Saihate no Paladin | The Faraway Paladin | Паладин издалека [ТВ
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187785.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187785.jpgsave_picture_187785.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Firefox Browser 107.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187786.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187786.jpgsave_picture_187786.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:3A05A9AF519F6B20AC904FAC93CA47D4CCF2FB4A
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187787.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187787.jpgsave_picture_187787.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:5A8E4E9E3822463CE4071236768C9E03C51AF368
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187788.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187788.jpgsave_picture_187788.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:4B387A4C4449E0C82A4A099376BFFD89B9417349
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187789.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187789.jpgsave_picture_187789.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:F0E6FB91C2D858993EAA088F166487869246A9B3
 >>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187790.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187790.jpgsave_picture_187790.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ Arnold Klos Trio - A Little Expertise (1989) Expertise [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187791.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187791.jpgsave_picture_187791.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ magnet:?xt=urn:btih:6C2D9E5AE6BAE625C3B57180ADA3AD851A5C3742
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187792.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187792.jpgsave_picture_187792.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ VA - КОСМОС, Vol. 2 (2022) [MP3|320 Kbps] <Rock, Indie Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187793.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187793.jpgsave_picture_187793.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ magnet:?xt=urn:btih:DD2856A59365FE8BA5A5FBA9C78C95042DC9FE5C
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187794.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187794.jpgsave_picture_187794.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ magnet:?xt=urn:btih:9DE660D3C74D56CF2E682848D1C6E6459B7B4F0C
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187795.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187795.jpgsave_picture_187795.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ magnet:?xt=urn:btih:424EB84B4FE9E9F06793FF704858A2899758F020
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187796.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187796.jpgsave_picture_187796.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ magnet:?xt=urn:btih:C965EAB551C4331517710ACC0D9B6B33CD112BF8
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187797.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187797.jpgsave_picture_187797.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ C.C. Catch - Classics (1989) [OGG Vorbis|480 Kbps] <Electronic, Pop, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187798.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187798.jpgsave_picture_187798.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ Bee Gees - Number Ones (2004) [OGG Vorbis|480 Kbps] <Rock, Funk / Soul, Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187799.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187799.jpgsave_picture_187799.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ magnet:?xt=urn:btih:C29287C17711B4486467EA2455B5C49B81E57A23
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187800.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187800.jpgsave_picture_187800.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ magnet:?xt=urn:btih:2046CA98C9CDF61795BC3D5374E6D31F5B56C5B7
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187801.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187801.jpgsave_picture_187801.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ magnet:?xt=urn:btih:E30AF29C0AD34DFE97A22EBF9648C276C9C3AA4C
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187802.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187802.jpgsave_picture_187802.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ magnet:?xt=urn:btih:DD96641048BBC12E05F032EDD5D1E89CAC40DC96
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187803.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187803.jpgsave_picture_187803.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ magnet:?xt=urn:btih:C0673B6839928A700655302987EEADEE9DDB0508
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187804.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187804.jpgsave_picture_187804.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Sirenia - 1977 (2023) [FLAC|Lossless|image + .cue] <Symphonic Gothic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187805.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187805.jpgsave_picture_187805.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ ShadowStrike - Traveler's Tales (2023) [FLAC|Lossless|WEB-DL|image + .cue] <Powe
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187806.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187806.jpgsave_picture_187806.jpg" />
 </div>
 
 

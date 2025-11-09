@@ -6,7 +6,7 @@ Soulfly (Max Cavalera; Sepultura) - Studio Albums (12 releases) (1998-2022) hand
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141592.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141592.jpgsave_picture_141592.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Felix De Luxe - So Weit So Gut (1987) Maxi-Single, 45 RPM [FLAC 2.0|192/24|image
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141802.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141802.jpgsave_picture_141802.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ The Pretty Reckless - Death by Rock and Roll (2021) [DSD128 2.0|tracks|Vinyl-Rip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141809.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141809.jpgsave_picture_141809.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Beth Hart - War in My Mind (2019) [FLAC 2.0|192/24|image+cue|Vinyl-Rip]<Blues-Ro
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142401.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142401.jpgsave_picture_142401.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ VA - До 16 и старше. Выпуск 3 (2000) [FLAC 2.0|48/24|image+.cue|M
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142464.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142464.jpgsave_picture_142464.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Opeth - Still Life (1999) Reissue 2012, Peaceville [FLAC|24/192|image + .cue|Vin
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142479.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142479.jpgsave_picture_142479.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ VA - The Civil War - Original Soundtrack Recording. Traditional American Songs A
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144407.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144407.jpgsave_picture_144407.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ magnet:?xt=urn:btih:93B017F13252E8C329EFA0AF9E569E69CC61BAD0
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144425.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144425.jpgsave_picture_144425.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:B46E827C6AD0E40FC2A61D1F1F05CA9090CBB33D
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145212.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145212.jpgsave_picture_145212.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Vince Neil - Exposed (1993) [FLAC|24/96|tracks|Vinyl-Rip] <Hard Rock, Glam Metal
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146041.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146041.jpgsave_picture_146041.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:AC5352D3FC1302D1FEB52ED3AB839E50F51FB247
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146130.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146130.jpgsave_picture_146130.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ VA - Песни из телефильма ''Тайна Снежной Корол
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146183.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146183.jpgsave_picture_146183.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Barclay James Harvest - Eyes Of The Universe (1979) [FLAC 2.0|192/24|image + .cu
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146511.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146511.jpgsave_picture_146511.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Joanne Shaw Taylor - Reckless Heart (2019) [FLAC 2.0 24/192|image (Vinyl-Rip)]<B
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147033.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147033.jpgsave_picture_147033.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Cliff Richard - The Best Of... (unknown) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Cla
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148620.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148620.jpgsave_picture_148620.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Fine Young Cannibals - Fine Young Cannibals (1985) [FLAC 2.0|48/24|image+.cue|MC
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148714.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148714.jpgsave_picture_148714.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Veli-Matti Jarvenpaa - Sarkijarven Bolero (1992) [FLAC 2.0|48/24|image+.cue|MC-R
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148732.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148732.jpgsave_picture_148732.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ VA - Christmas Country By Country Music Stars 1982 - 2016 (2020) Unofficial Rele
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149216.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149216.jpgsave_picture_149216.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Warfect - Studio Albums (4 releases) (2009-2020) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149430.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149430.jpgsave_picture_149430.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Supertramp - Crime Of The Century (1974) [FLAC 2.0|192/24|tracks|Vinyl-Rip] <Roc
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149756.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149756.jpgsave_picture_149756.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Mariah Carey - Dance Remixes '99 (1999) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Pop,
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149848.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149848.jpgsave_picture_149848.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:BF24C3F763B23B3A0B790DF5625A8AAC862BEDB0
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149897.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149897.jpgsave_picture_149897.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Chuck Berry - St. Louis To Liverpool (1984) [FLAC 2.0|48/24|image+.cue|MC-Rip] <
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149939.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149939.jpgsave_picture_149939.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ The Marshall Tucker Band - Still Holdin' On (1988) [FLAC 2.0|48/24|image+.cue|MC
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149983.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149983.jpgsave_picture_149983.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ VA - Country Gold (1985) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Country Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149995.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149995.jpgsave_picture_149995.jpg" />
 </div>
 
 
@@ -687,7 +687,7 @@ Peter Sellers - The Peter Sellers Collection 1955-1990 (Series EMI Comedy Classi
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150169.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150169.jpgsave_picture_150169.jpg" />
 </div>
 
 

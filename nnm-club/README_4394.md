@@ -6,7 +6,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137299.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137299.jpgsave_picture_137299.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:BC5B8EFA490195B0C2E0D980DD39FB7B1B89BFC5
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137300.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137300.jpgsave_picture_137300.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:3EC78CD1959E11258B2BAFE7A137FA236D0834FA
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137301.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137301.jpgsave_picture_137301.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:6922C6E04F26D444659EE6ED5C11B325CF9C51FE
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137302.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137302.jpgsave_picture_137302.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:61ED8E7ECBDEC91C66D2365498492C0B812FAFE4
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137303.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137303.jpgsave_picture_137303.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:0105B953FA5A82F6A3B8F9A6344C981ECFC05AFA
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137304.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137304.jpgsave_picture_137304.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ DriverPack Solution 16.12 + Драйвер-Паки 16.12.5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137305.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137305.jpgsave_picture_137305.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:5D37CF884328B3580EF9E282C2664A5F2E2FFF43
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137306.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137306.jpgsave_picture_137306.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:3DC70F6EA6A408DB1E79121B869C931535637820
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137307.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137307.jpgsave_picture_137307.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ magnet:?xt=urn:btih:7ADCFC1D09CA4D0DAE30CB689451D16A0BB1441A
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137308.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137308.jpgsave_picture_137308.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Daum PotPlayer 1.7.16291 Stable RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137309.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137309.jpgsave_picture_137309.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ magnet:?xt=urn:btih:41DC9E4E2F9966EA82B28ADC9990236693BE41E7
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137310.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137310.jpgsave_picture_137310.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ magnet:?xt=urn:btih:71B4D33DA619E1507C3A216225DCBA9CB59AB00B
 >>Старые Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137311.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137311.jpgsave_picture_137311.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ SamDrivers 16.12 - Сборник драйверов для Windows [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137312.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137312.jpgsave_picture_137312.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ WinToUSB Free / Pro / Technician 7.5 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137313.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137313.jpgsave_picture_137313.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ Valkyrie Drive: Mermaid / Сила Валькирии: Русалочка [2015,
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137314.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137314.jpgsave_picture_137314.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ magnet:?xt=urn:btih:DD1C87C0CD7FDB4A847CC1C5CCAFE3606C46C8D0
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137315.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137315.jpgsave_picture_137315.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ magnet:?xt=urn:btih:E9D03C8B24EF341A8EDA72A8F4C2A726437DF0C6
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137316.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137316.jpgsave_picture_137316.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Udemy, Bhrugen Patel | Full Stack React Bootcamp with .NET API [2023] [10 Projec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137317.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137317.jpgsave_picture_137317.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ magnet:?xt=urn:btih:430F60A77517927F72E1512272B6D1FE4AC874AC
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137318.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137318.jpgsave_picture_137318.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ magnet:?xt=urn:btih:C68172D82426C30AFFCA5E7F7081BBD5968C4B38
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137319.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137319.jpgsave_picture_137319.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Profileschool | Adobe Lightroom: Практика обработки фотог�
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137320.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137320.jpgsave_picture_137320.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ magnet:?xt=urn:btih:B36CC92628E6F28EEDBA233EFFB170D4D0E2CF2E
 >>Мобильное Видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137321.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137321.jpgsave_picture_137321.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Shokugeki no Souma: Shin no Sara | Food Wars! The Fourth Plate | Кулинар�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137322.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137322.jpgsave_picture_137322.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ magnet:?xt=urn:btih:F6F5E483943B9C2857F865863BD22AF6B2D74087
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137323.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137323.jpgsave_picture_137323.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ AC/DC - Live At River Plate (2011) BDRemux [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137324.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137324.jpgsave_picture_137324.jpg" />
 </div>
 
 

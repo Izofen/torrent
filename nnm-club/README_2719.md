@@ -6,7 +6,7 @@
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71444.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71444.jpgsave_picture_71444.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ VA - Dance Classics Gold 4 (1993) 2 CD [OGG Vorbis|480 Kbps] <Electronic,  Hip H
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71445.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71445.jpgsave_picture_71445.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ magnet:?xt=urn:btih:0E8581698A71D8A2DAC8E01CA358E9F2871F3175
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71446.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71446.jpgsave_picture_71446.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:E5CD9F236762B33B30E273A6809642671A4C59F8
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71447.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71447.jpgsave_picture_71447.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ magnet:?xt=urn:btih:F5E5A4A59983FBD16E4F9D9CDC5E3A06FB74B1F8
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71448.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71448.jpgsave_picture_71448.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ VA - Compilation part 140 Electronic (2025) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71449.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71449.jpgsave_picture_71449.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ TuneIn Radio Pro v37.0 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71450.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71450.jpgsave_picture_71450.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ VA - Musical kaleidoscope part 23 Easy listening (2025) [MP3|320 Kbps] <Electron
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71451.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71451.jpgsave_picture_71451.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ magnet:?xt=urn:btih:DA906D3B2C5ED822B369248A31106A17BA4E1FCD
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71452.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71452.jpgsave_picture_71452.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ magnet:?xt=urn:btih:A18EBB55DD38B5A69BF3E4608B33650E910EF7C7
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71453.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71453.jpgsave_picture_71453.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ magnet:?xt=urn:btih:1236BDBF6A8B1E3417F2A9DE25D7F8AD3A0D3D92
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71454.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71454.jpgsave_picture_71454.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ VA - 100 Greatest Workout Tracks (2025) [MP3|320 Kbps] <House, Dance>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71455.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71455.jpgsave_picture_71455.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ magnet:?xt=urn:btih:535F37024C996E752D922A6E0140DBF98571C162
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71456.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71456.jpgsave_picture_71456.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ magnet:?xt=urn:btih:21437411B4E61C2D5DBBAD3B1C2A30B88ADE038B
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71457.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71457.jpgsave_picture_71457.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ magnet:?xt=urn:btih:3D2A64608E73DCBCC436B4E3314901E6D34246F8
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71458.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71458.jpgsave_picture_71458.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ magnet:?xt=urn:btih:2D917BB2098ABA7B1603782DDEF83F88A50D67E3
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71459.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71459.jpgsave_picture_71459.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ magnet:?xt=urn:btih:8DAD0FB06A891E25CF3F260F6D34500CFE192A1D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71460.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71460.jpgsave_picture_71460.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ Telegram Desktop 5.10.6 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71461.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71461.jpgsave_picture_71461.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ Lighting calculations / Расчеты освещения v6.0.9 Mod by Balatan 
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71462.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71462.jpgsave_picture_71462.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ Keziah Jones - Alive & Kicking (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Soul 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71463.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71463.jpgsave_picture_71463.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Larkin Poe - Bloom (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Country, Blues_
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71464.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71464.jpgsave_picture_71464.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Labÿrinth (Labyrinth) - In The Vanishing Echoes Of Goodbye (2025) [FLAC 24/44.1
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71465.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71465.jpgsave_picture_71465.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Vintage Culture - Live @ Affairs, Green Valley Camboriu, Brazil (2025-01-04) [MP
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71466.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71466.jpgsave_picture_71466.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ VA - Blue Notes, Vol.1: Milestones Of Jazz Legends (1950 - 1962) 10CD, 2022, The
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71467.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71467.jpgsave_picture_71467.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Obsidian Path - Ignite the Fire (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Ro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71468.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71468.jpgsave_picture_71468.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Eric Prydz - Live @ 20 Years Of Pryda, HISTORY Toronto, Canada (2025-01-18) [MP3
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71469.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71469.jpgsave_picture_71469.jpg" />
 </div>
 
 

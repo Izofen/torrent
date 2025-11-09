@@ -6,7 +6,7 @@ Dr.X - Music as Soul Assistance (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178049.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178049.jpgsave_picture_178049.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Hey You - All New Rock (2022) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178082.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178082.jpgsave_picture_178082.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Megahertz - Burning Like Hell (2022) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178087.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178087.jpgsave_picture_178087.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - Rock Love Ballads 2023 [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178089.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178089.jpgsave_picture_178089.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Alter Bridge - Pawns & Kings (2022) [FLAC|Lossless|tracks + .cue] <Heavy Metal, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178099.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178099.jpgsave_picture_178099.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ magnet:?xt=urn:btih:E95897DA5798E374C4170446ACB47BCBF32ACCB2
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178110.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178110.jpgsave_picture_178110.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Hashishian - Hashishian (2022) [MP3|320 Kbps] <Psych, Doom, Stoner, Desert>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178119.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178119.jpgsave_picture_178119.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Kody West - Circles (2022) [MP3|320 Kbps] <Alternative Rock, Post-Grunge>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_178129.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_178129.jpgsave_picture_178129.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ White Wizzard - Infernal Overdrive (2018) Japan [WavPack|Lossless|image + .cue] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178156.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178156.jpgsave_picture_178156.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:31AA48E35350E0DA4E199C2F94C3F3B9C8A236C0
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178157.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178157.jpgsave_picture_178157.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ The Blum'S - 2 Albums, 1 EP, 1 Single (2020-2022) [MP3|320 Kbps] <Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178167.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178167.jpgsave_picture_178167.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Syar - Death Before Dishonour (1984) [WavPack|Lossless|image + .cue] <NWOBHM>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178172.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178172.jpgsave_picture_178172.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Vikram - Behind The Mask I (2019) Japanese Edition [FLAC|Lossless|image + .cue] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178175.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178175.jpgsave_picture_178175.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Sobernot - Destroy (2022) [MP3|320 Kbps] <Thrash, Groove Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178179.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178179.jpgsave_picture_178179.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ VA - Doom or be Doomed (2022) [FLAC|Lossless|image + .cue] <Doom Metal, Stoner R
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178183.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178183.jpgsave_picture_178183.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Hibernus Mortis - The Monoliths of Cursed Slumber (2022) [FLAC|Lossless|WEB-DL|t
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178185.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178185.jpgsave_picture_178185.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ In-Conquered - Nor Rivaled, Nor Equalled (2020) [FLAC|Lossless|WEB-DL|tracks] <B
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178191.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178191.jpgsave_picture_178191.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ magnet:?xt=urn:btih:6601FA9878E91329B8D4C968BBB537631A625AC4
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178195.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178195.jpgsave_picture_178195.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Memories of a Lost Soul - Redefining Nothingness (2022) [FLAC|Lossless|WEB-DL|tr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178198.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178198.jpgsave_picture_178198.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ In-Conquered - The Wide Path to the Lake of Fire (2022) [FLAC|Lossless|WEB-DL|tr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178207.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178207.jpgsave_picture_178207.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:620147134C19969DC6684E66F8D79632C345D924
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178210.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178210.jpgsave_picture_178210.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Brojob - A Very Deathcore Christmas With Brojob (2022) [FLAC|Lossless|WEB-DL|tra
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178218.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178218.jpgsave_picture_178218.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Dr.X - Reborn (2016) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178235.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178235.jpgsave_picture_178235.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ In The Blind - Evolve & Escape (2022) [MP3|320 Kbps] <Alternative Metal, Progres
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178238.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178238.jpgsave_picture_178238.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ In The Blind - Evolve & Escape (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178239.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178239.jpgsave_picture_178239.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Anomaly - Somewhere Within the Pines (2022) [FLAC|Lossless|WEB-DL|tracks] <Death
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178241.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178241.jpgsave_picture_178241.jpg" />
 </div>
 
 

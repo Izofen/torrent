@@ -6,7 +6,7 @@ VA - Compilation  Blues Rock Part 31 (2023) [MP3|320 Kbps] <Rock, Blues Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203472.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203472.jpgsave_picture_203472.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Wildways (ex-Sarah Where Is My Tea) - Коллекция (Дискография
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204243.jpgsave_picture_204243.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ VA - Лучшие песни Наше радио за 2022 год (2023) [MP3|32
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204393.jpgsave_picture_204393.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Danny Bryant - Compilation (2023) [MP3|320 Kbps] <Rock, Blues Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204487.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204487.jpgsave_picture_204487.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ VA - Compilation Female Assorted part 30 (2023) [MP3|320 Kbps] <Rock, Blues>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204551.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204551.jpgsave_picture_204551.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ VA - Compilation Part 28 (2023) [MP3|320 Kbps] <Rock, Blues Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204552.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204552.jpgsave_picture_204552.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ VA - Compilation Part 29 (2023) [MP3|320 Kbps] <Rock, Blues Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204555.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204555.jpgsave_picture_204555.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ VA - Сектор газа. Народный трибьют 1 часть (2022) 
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204846.jpgsave_picture_204846.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ VA - Yacht Rock (2023) [MP3|320 Kbps] <Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207225.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207225.jpgsave_picture_207225.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Ringtone Track Masters - Ringtone Tunes Guitar Riffs (2009) 3CD [MP3|320 Kbps] <
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209168.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209168.jpgsave_picture_209168.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ VA - female rock, blues rock part  24 (2023) [MP3|320 Kbps] <Rock, Blues Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210443.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210443.jpgsave_picture_210443.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ MyTones - Ultimate Queen Tones (2023) [MP3|320 Kbps] <Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210564.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210564.jpgsave_picture_210564.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ VA - Assorted rock, blues rock, ballads part  25 Compilation (2023) [MP3|320 Kbp
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210578.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210578.jpgsave_picture_210578.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ MyTones - Ultimate ACDC Tones (2023) [MP3|320 Kbps] <Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211009.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211009.jpgsave_picture_211009.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ VA - MyTones - Heavy Metal Ringtones (2023) [MP3|320 Kbps] <Rock, Hard Rock, Met
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211027.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211027.jpgsave_picture_211027.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ VA - The Magical Ride (2023) [MP3|320 Kbps] <Rock, Pop Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_231970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231970.jpgsave_picture_231970.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Tinsley Ellis - Compilation (2023) [MP3|320 Kbps] <Rock. Ballads, Blues>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_233024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233024.jpgsave_picture_233024.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Tas Cru - Compilation (2023) [MP3|320 Kbps] <Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_233310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233310.jpgsave_picture_233310.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Rory Gallagher - I'm Not Awake Yet (2023) 2CD Compilation  [MP3|320 Kbps] <Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_233323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233323.jpgsave_picture_233323.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ VA - female rock, blues rock part  27 (2023) [MP3|320 Kbps] <Rock, Blues Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234374.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234374.jpgsave_picture_234374.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ VA - Assorted rock, blues rock compilation part  26 (2023) [MP3|320 Kbps] <Rock,
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234404.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234404.jpgsave_picture_234404.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ VA - Beat It Guitar Solos (2023) [MP3|320 Kbps] <Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234645.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234645.jpgsave_picture_234645.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ VA - Free And Romantic Country (2023) [MP3|320 Kbps] <Country, Folk, Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235903.jpgsave_picture_235903.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ VA - Blues Rock Compilation Part 23 (2023) [MP3|320 Kbps] <Rock, Blues>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237018.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237018.jpgsave_picture_237018.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ Tony Tucker - Compilation (2023) [MP3|320 Kbps] <Rock, Ballads, Blues>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237076.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237076.jpgsave_picture_237076.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ Larry Miller - Compilation (2023) [MP3|320 Kbps] <Rock, Blues>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237128.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237128.jpgsave_picture_237128.jpg" />
 </div>
 
 

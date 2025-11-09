@@ -6,7 +6,7 @@ Outlanders (Tarja Turunen feat. Torsten Stenzel) - Outlanders (2023) [FLAC 2.0|4
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210813.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210813.jpgsave_picture_210813.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Rainover - NOX (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Metal, Country, Vocal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210823.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210823.jpgsave_picture_210823.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Last Times - Last Times (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal with P
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210826.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210826.jpgsave_picture_210826.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:D886DAB0AD86DA27CBC6290C47975E819EBE16AB
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210906.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210906.jpgsave_picture_210906.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ VA - Road Trip Rock (2023) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210984.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210984.jpgsave_picture_210984.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ VA - Rock Ladies (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210999.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210999.jpgsave_picture_210999.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Dio - Holy Diver (1983) 4 x CD, Reissue, Remastered, 2022, Rhino Records [FLAC|L
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211094.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211094.jpgsave_picture_211094.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ King Gizzard & The Lizard Wizard - PetroDragonic Apocalypse; or, Dawn of Eternal
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211114.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211114.jpgsave_picture_211114.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Frozen Land - Out Of The Dark (2023) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211288.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211288.jpgsave_picture_211288.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:9D2E467F0E96FE0838DE609C75E4C80801A91D19
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211291.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211291.jpgsave_picture_211291.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Church Of Misery - Born Under a Mad Sign (2023) [FLAC|Lossless|WEB-DL|tracks] <D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211301.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211301.jpgsave_picture_211301.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Whoopie Cat - Weight In Gold (2023) [MP3|320 Kbps] <Classic Rock, Hard Rock, Blu
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211306.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211306.jpgsave_picture_211306.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:BC2D07BD2CF5E6566FCB514062D2EEA2096F0750
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211308.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211308.jpgsave_picture_211308.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ magnet:?xt=urn:btih:CEDAD4C199E33B38CDE00F5888EADF95CB444E76
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211316.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211316.jpgsave_picture_211316.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Creeping Death - Boundless Domain (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211327.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211327.jpgsave_picture_211327.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Paul Gilber - The Dio Album (2023) [FLAC|Lossless|WEB-DL|tracks] <Instrumental R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211333.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211333.jpgsave_picture_211333.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ magnet:?xt=urn:btih:7912B2F9E5C57ED66C8F771120812AFD1F3EE030
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211386.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211386.jpgsave_picture_211386.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Dynasty - Step By Step (2017) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211511.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211511.jpgsave_picture_211511.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Imminent Reign - The Legend of Prometheus (2023) [FLAC|Lossless|WEB-DL|tracks] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211565.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211565.jpgsave_picture_211565.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ VA - Play - Rock Ballads (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211566.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211566.jpgsave_picture_211566.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Imminent Reign - The Legend of Prometheus (2023) [MP3|320 Kbps] <Epic Heavy Meta
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211575.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211575.jpgsave_picture_211575.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Hellstorm - Into the Mouth of the Dead Reign (2012) [FLAC|Lossless|image + .cue]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211591.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211591.jpgsave_picture_211591.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ VA - Электро Индустрия (Д​о​н​б​а​с​с) (2015-
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211612.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211612.jpgsave_picture_211612.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Poisonous Reflection - Time Is Not on Our Side (2023) [FLAC|Lossless|WEB-DL|trac
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211659.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211659.jpgsave_picture_211659.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ magnet:?xt=urn:btih:560FC7ABEEBC8BCBE32078BC573BACF78141B6F2
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211695.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211695.jpgsave_picture_211695.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Halocene - Maleficent (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211739.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211739.jpgsave_picture_211739.jpg" />
 </div>
 
 

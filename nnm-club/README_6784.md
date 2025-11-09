@@ -6,7 +6,7 @@ Screamer - Phoenix (2013) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233478.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233478.jpgsave_picture_233478.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:1F1B9379BE3833865613D554611B987B7D3841C7
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233479.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233479.jpgsave_picture_233479.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ The Gnomon Workshop, Vitaly Bulgarov | Robotic 3D Design for Entertainment (2018
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233480.jpgsave_picture_233480.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:24690DB4F08E2E519BBF05A66F7A8834C4DFC079
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233481.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233481.jpgsave_picture_233481.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ FastScripts 3.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233482.jpgsave_picture_233482.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:AAE02955EBD2D2BB017F75FBC9BAB60951C4B045
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233483.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233483.jpgsave_picture_233483.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ Revolution Saints - Eagle Flight (2023) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233484.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233484.jpgsave_picture_233484.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ Okwaho - The Usurper Regime (2023) [MP3|320 Kbps] <Doom, Sludge Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233485.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233485.jpgsave_picture_233485.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ magnet:?xt=urn:btih:F58D035E6560C8FB168AAB4A7FC63F226521D30E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233486.jpgsave_picture_233486.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ Manico 2.10 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233487.jpgsave_picture_233487.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ magnet:?xt=urn:btih:7A1F26C483FD35011B6B7959059FFD01A0C16D0C
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233489.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233489.jpgsave_picture_233489.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ magnet:?xt=urn:btih:A44085364337D2EA34C9F8C579D098B90972F792
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233490.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233490.jpgsave_picture_233490.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ magnet:?xt=urn:btih:E67A88FA3D6F77A9BEC26D885BF8A8745459B9BC
 >>История
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233491.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233491.jpgsave_picture_233491.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ magnet:?xt=urn:btih:9BBE130B8435101970FDC42E14ADAACFDE88D6FB
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233492.jpgsave_picture_233492.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ ScreaMachine - ScreaMachine (2021) Japanese Edition [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233493.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233493.jpgsave_picture_233493.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ NetWorker Pro 7.5.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233495.jpgsave_picture_233495.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ magnet:?xt=urn:btih:51F4B86CD19F2B8179E3159F7E014494DB3B21B3
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233496.jpgsave_picture_233496.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ Stray Gods - Olympus (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Power Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233497.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233497.jpgsave_picture_233497.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ magnet:?xt=urn:btih:9C849A2E43FA55F869DC50FDFA63BF134BA84DC3
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233498.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233498.jpgsave_picture_233498.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ magnet:?xt=urn:btih:9B81BB741681ACF09AEF49607DC79F89AFC2CD3A
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233500.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233500.jpgsave_picture_233500.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ ScreaMachine - Borderline (2022) EP [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233501.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233501.jpgsave_picture_233501.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Website Watchman 3.0.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233502.jpgsave_picture_233502.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ magnet:?xt=urn:btih:D670170044804CF60E782783EA0D488B0CF26560
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233503.jpgsave_picture_233503.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Cinderella - Cinderella's Rocked, Wired & Bluesed: The Greatest Hits (2005) [FLA
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233504.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233504.jpgsave_picture_233504.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ magnet:?xt=urn:btih:33DCD250E5CD2425838F91F95991BF64A307B7E4
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233506.jpgsave_picture_233506.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ RTG. Город Юрьевец (2013) HDTV [H.264/1080i]
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233507.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233507.jpgsave_picture_233507.jpg" />
 </div>
 
 

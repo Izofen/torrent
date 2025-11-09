@@ -6,7 +6,7 @@ VA - The Sound of 2024 Mix 1: Medellín (2024) [MP3|320 Kbps] <Trance, Progressi
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119622.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119622.jpgsave_picture_119622.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Guns N' Roses - The Spaghetti Incident? (1993) [FLAC|24/192|image + .cue|Vinyl-R
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119623.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119623.jpgsave_picture_119623.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Guns N' Roses - Chinese Democracy (2008) [FLAC|24/192|image + .cue|Vinyl-Rip] <H
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119624.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119624.jpgsave_picture_119624.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:1334DD2E772241781EFDBD0E1FFA3171C44763B1
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119625.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119625.jpgsave_picture_119625.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Sigma - London Sound (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Drum & Bass>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119626.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119626.jpgsave_picture_119626.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Billie Piper - She Wants You (1998) Remaster, 2024, Virgin Records Limited [FLAC
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119627.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119627.jpgsave_picture_119627.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Dymytry - Five Angry Men (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119628.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119628.jpgsave_picture_119628.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ VA - Trends In Trance, Vol. 1 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119629.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119629.jpgsave_picture_119629.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ magnet:?xt=urn:btih:1E6711924EB48CEB5F87DFFAA59A5F53CC426177
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119630.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119630.jpgsave_picture_119630.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ magnet:?xt=urn:btih:0252C29ECFFE71B9C204B80D5086DF140B2654B0
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119631.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119631.jpgsave_picture_119631.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Reflections of Life 12: The Shattered Timeline (2024) [En] (1.0) Unofficial [Col
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119632.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119632.jpgsave_picture_119632.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ magnet:?xt=urn:btih:69FFC2891FC3C86F11257A19D8852F9F80CDBA7C
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119633.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119633.jpgsave_picture_119633.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ VA - Movement Vol. 1 (Live from Goa - Mixed By James Grant) - 2024 [FLAC|Lossles
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119634.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119634.jpgsave_picture_119634.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ magnet:?xt=urn:btih:A372A0608BF0880CB0CE5160DDB7D9C7D47BE099
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119635.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119635.jpgsave_picture_119635.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ magnet:?xt=urn:btih:62565C5A54E1CE4098D885577BEDDAE84F2CEB7C
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119636.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119636.jpgsave_picture_119636.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ Telegram Desktop 4.14.12 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119637.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119637.jpgsave_picture_119637.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ magnet:?xt=urn:btih:C6EA17604EDA348F76B3236C7DE13FAC18C5E0D8
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119638.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119638.jpgsave_picture_119638.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ Paul Mauriat - Windy (1986) [OGG Vorbis|480 Kbps] <Classical>
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119639.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119639.jpgsave_picture_119639.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ magnet:?xt=urn:btih:B4E5EA0903CA97B4CAB63CBE78C411D56144A906
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119640.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119640.jpgsave_picture_119640.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ VA - Best Of Uplifting Trance 2024 (2024) [MP3|320 Kbps] <Trance, Uplifting Tran
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119641.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119641.jpgsave_picture_119641.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ magnet:?xt=urn:btih:CC3E6A3285C1B958E4FA1B9624B471EDE30085B9
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119642.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119642.jpgsave_picture_119642.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ San Valentin - Valentine's Day (2014) [MP3|320 Kbps] <Instrumental Pop>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119643.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119643.jpgsave_picture_119643.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Skype 8.112.0.206 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119644.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119644.jpgsave_picture_119644.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ Brave Browser 1.62.156 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119645.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119645.jpgsave_picture_119645.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ magnet:?xt=urn:btih:2D548650C4B82A66161B5E2C84CC2F290B44612B
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119646.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119646.jpgsave_picture_119646.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ magnet:?xt=urn:btih:491E5A9CCAA242B7769F10759F6F74B452BBE99E
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119647.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119647.jpgsave_picture_119647.jpg" />
 </div>
 
 

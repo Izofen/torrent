@@ -6,7 +6,7 @@ Starперцы / Last Vegas (2013) BDRip [H264/1080p] [MVO]
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116315.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116315.jpgsave_picture_116315.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:184DD55B3F140B860C24B0C2DEBBCDFD6971D1F3
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116316.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116316.jpgsave_picture_116316.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:FCC100DFB2D83C74C652DA1FF10DB02C78EE6434
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116317.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116317.jpgsave_picture_116317.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:FD57DB70EEF0B0A21B161031F17B05CF818B70C8
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116318.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116318.jpgsave_picture_116318.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:28E2225376353A0568FBB0B84EDEAEF1BDC2E931
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116319.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116319.jpgsave_picture_116319.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Boystown - Angels with Dirty Faces (2005) [FLAC|Lossless|WEB-DL|tracks] <AOR, Ha
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116320.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116320.jpgsave_picture_116320.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ magnet:?xt=urn:btih:E8B694AA0A7B699A599B87A4B4A95225A423E56D
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116321.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116321.jpgsave_picture_116321.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ Jeremy Harry Harris - Walking With My Darkness (2024) [FLAC 24/44.1|Lossless|WEB
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116322.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116322.jpgsave_picture_116322.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ Danielle Hebert & Phil Dwyer - Paris Is For Lovers (2007) Somerset [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116323.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116323.jpgsave_picture_116323.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ Ataraxy - Curse of the Requiem Mass (2010) EP [FLAC|Lossless|image + .cue] <Deat
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116324.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116324.jpgsave_picture_116324.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ magnet:?xt=urn:btih:B1509CB3568FEC32FC8BFF670F3824C7C0BB2EB3
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116325.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116325.jpgsave_picture_116325.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ magnet:?xt=urn:btih:4B1A3DEFD9D68DD01E6EDBEE281627DC81EC54F7
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116326.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116326.jpgsave_picture_116326.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ Grin - Hush (2024) [FLAC|Lossless|WEB-DL|tracks] <Sludge Doom, Psych, Stoner, Oc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116327.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116327.jpgsave_picture_116327.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ DirEqual 5.8 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116328.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116328.jpgsave_picture_116328.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ Texifier 1.9.25 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116329.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116329.jpgsave_picture_116329.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Alan Broadbent Trio - Trio In Motion (2020) Savant Records [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116330.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116330.jpgsave_picture_116330.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ My Darkest Time - The Last (2016) [FLAC|Lossless|WEB-DL|tracks] <Gothic, Doom, D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116331.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116331.jpgsave_picture_116331.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Blue Mitchell - Big 6 (1958) 2007, Universal [FLAC|Lossless|tracks + .cue] <Hard
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116332.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116332.jpgsave_picture_116332.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Ataraxy - Where All Hope Fades (2018) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116333.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116333.jpgsave_picture_116333.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Ataraxy - Revelations of the Ethereal (2012) Reissue, 2020, Dark Descent Records
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116334.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116334.jpgsave_picture_116334.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:B9BF3AA7C8AC2FD5E696128C31594F7F312907F0
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116335.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116335.jpgsave_picture_116335.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ magnet:?xt=urn:btih:754EC7B2300B38BD796B1360EC9DF6A81E7AD458
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116336.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116336.jpgsave_picture_116336.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ magnet:?xt=urn:btih:0F21C7AEAB1B06B15F361F266A581C45A70805CC
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116337.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116337.jpgsave_picture_116337.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ magnet:?xt=urn:btih:9AF74A38FFBF03273941A39D544884CE5DEC9724
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116338.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116338.jpgsave_picture_116338.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ magnet:?xt=urn:btih:21E280E84F6F1312B5A6264BE81F5E689FEA7DC7
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116339.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116339.jpgsave_picture_116339.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ magnet:?xt=urn:btih:D679C53E05EEE91224E9E208CD426617629D2904
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116340.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116340.jpgsave_picture_116340.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Modern Tweaker 2.0 Final (25.01.2024) Portable [Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120919.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120919.jpgsave_picture_120919.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Wise Duplicate Finder Pro 2.1.1.61 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122036.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122036.jpgsave_picture_122036.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ TeraCopy 3.17.0 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123612.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123612.jpgsave_picture_123612.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Process Lasso Pro 16.0.3.1 Beta RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126127.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126127.jpgsave_picture_126127.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Revo Uninstaller Pro 5.4.3 + Portable [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128564.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128564.jpgsave_picture_128564.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Revo Uninstaller Pro 5.4.3 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128567.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128567.jpgsave_picture_128567.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Windows Manager 2.2.0.0 RePack by KpoJIuK [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128825.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128825.jpgsave_picture_128825.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ Revo Uninstaller Pro 5.4.3 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128895.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128895.jpgsave_picture_128895.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ Zentimo xStorage Manager 3.0.5.1299 RePack by KpoJIuK [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130973.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130973.jpgsave_picture_130973.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Duplicate File Remover 3.4.1257 Build 34 [Multi / Русский]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133893.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133893.jpgsave_picture_133893.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Ashampoo WinOptimizer 18.00.18 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136629.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136629.jpgsave_picture_136629.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Auslogics Duplicate File Finder 11.1.1.0 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136692.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136692.jpgsave_picture_136692.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Reg Organizer 9.88 + Portable [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136693.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136693.jpgsave_picture_136693.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Reg Organizer 9.88 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136780.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136780.jpgsave_picture_136780.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Windows Manager 2.2.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136918.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136918.jpgsave_picture_136918.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ Auslogics Duplicate File Finder 11.1.0.0 RePack (& Portable) by elchupacabra [Mu
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136953.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136953.jpgsave_picture_136953.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ EasyBCD 2.4.0.237 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138543.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138543.jpgsave_picture_138543.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ Driver Easy Pro 5.6.8.35406 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138547.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138547.jpgsave_picture_138547.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Password Recovery Bundle 2019 Enterprise Edition 5.2 RePack (& Portable) by elch
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142386.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142386.jpgsave_picture_142386.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ R-Wipe & Clean 20.0.2530 RePack (& Portable) by elchupacabra [Ru/En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150704.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150704.jpgsave_picture_150704.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Reg Organizer 9.88 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150752.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150752.jpgsave_picture_150752.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ ASCOMP BackUp Maker Pro 8.204 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152384.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152384.jpgsave_picture_152384.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ ASCOMP Secure Eraser Pro 6.004 RePack (& Portable) by elchupacabra [Ru/En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152423.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152423.jpgsave_picture_152423.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ ASCOMP Synchredible Pro 8.105 RePack (& Portable) by elchupacabra [Ru/En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152706.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152706.jpgsave_picture_152706.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Advanced SystemCare Pro 16.1.0.106 RePack by OctaneS [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154623.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154623.jpgsave_picture_154623.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Smarty Uninstaller 4.9.6 (SharewareOnSale) [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156451.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156451.jpgsave_picture_156451.jpg" />
 </div>
 
 

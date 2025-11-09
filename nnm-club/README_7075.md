@@ -6,7 +6,7 @@ Axty - Unbreakable (2023) [FLAC|Lossless|WEB-DL|tracks] <Post-Hardcore, Alt.Rock
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242215.jpgsave_picture_242215.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VueScan Pro 9.7.90 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242216.jpgsave_picture_242216.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Dire Straits - Love Over Gold (1982) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <R
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242217.jpgsave_picture_242217.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:5689AEFC2971FB9349215EB5769616E33F1CF2BB
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242218.jpgsave_picture_242218.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Wattagio 1.8 [Multi/Rus]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242219.jpgsave_picture_242219.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ VA - Flower Power - Children of Flowers Best Of (2023) [MP3|320 Kbps] <Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242220.jpgsave_picture_242220.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:C60F2DECF11CF0D401C0E4D4C77F54749B531B79
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242221.jpgsave_picture_242221.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:AFDE55A499B1537BE5C1DAEF4949FD4939A3DF2C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242222.jpgsave_picture_242222.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ OCCT 12.0.0.b5 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242223.jpgsave_picture_242223.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ magnet:?xt=urn:btih:B1B6E1D35F00A1A14D0126CF8522199EC60C103A
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242224.jpgsave_picture_242224.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ Complete Internet Repair 8.1.3.5219 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242225.jpgsave_picture_242225.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ L'Ira Del Baccano - Cosmic Evoked Potentials (2023) [FLAC|Lossless|WEB-DL|tracks
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242226.jpgsave_picture_242226.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ Microsoft PowerToys 0.69.0 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242227.jpgsave_picture_242227.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ Sublime Merge Dev build 2004 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242229.jpgsave_picture_242229.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ The Blues Band - So Long (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242230.jpgsave_picture_242230.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ magnet:?xt=urn:btih:13ACA168B8C4B05AB5E7B978C8672A0254C9A681
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242231.jpgsave_picture_242231.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ magnet:?xt=urn:btih:7106F7C9D8077A14A32BF0E98A70558E2628AC93
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242232.jpgsave_picture_242232.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ magnet:?xt=urn:btih:5D31583919CFA2242B2ABE5217A14DBA37E99FC5
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242233.jpgsave_picture_242233.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ VA - Uplifting Trance: Spring Episode (2023) [MP3|320 Kbps] <Uplifting, Trance, 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242234.jpgsave_picture_242234.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Microsoft Edge 112.0.1722.34 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242235.jpgsave_picture_242235.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ VA - Maretimo Sessions: The Lounge Playlist Vol 1 (2017) [MP3|320 Kbps] <Chillou
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242236.jpgsave_picture_242236.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ magnet:?xt=urn:btih:9ADA5A5532CEFF7E35CC51ADB21648F740EBCBA7
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242238.jpgsave_picture_242238.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ King Satan - Occult Spiritual Anarchy (2022) [FLAC|Lossless|WEB-DL|tracks] <Indu
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242239.jpgsave_picture_242239.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Nightrider - Nightrider (1979) Reissue, 1992, Musea Records [FLAC|Lossless|image
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242240.jpgsave_picture_242240.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ VA - Daniel Kandi Presents: 20 Years Of Anjunabeats (2021) DJ Mix [FLAC|Lossless
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242241.jpgsave_picture_242241.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ magnet:?xt=urn:btih:27C263453A182F60D06446A1F3FDE5429267D077
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242242.jpgsave_picture_242242.jpg" />
 </div>
 
 

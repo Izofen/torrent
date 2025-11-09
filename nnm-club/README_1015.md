@@ -6,7 +6,7 @@ Driver Store Explorer 0.12.30 Portable (Pre-Release) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26740.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26740.jpgsave_picture_26740.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:7BF221D0F52E36CCF42EEC05901A01EAA67C405F
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26741.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26741.jpgsave_picture_26741.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:02F8AA5EDD91DFD9DCE45CF8231B739472DAD824
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26742.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26742.jpgsave_picture_26742.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:074D233331BE2C819561DE6CD8D08DB704955C02
 >>Отечественное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26743.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26743.jpgsave_picture_26743.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Victoria 3 (2022) [Ru/Multi] (1.8.6/dlc) Repack dixen18 [Grand Edition]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26744.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26744.jpgsave_picture_26744.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:75B4A6D93ED95F1AE0F484BCD4C08B795DA8CAA1
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26745.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26745.jpgsave_picture_26745.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ X4: Foundations (2018) [Ru/En] (7.50/dlc) Repack Decepticon [Community of Planet
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26746.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26746.jpgsave_picture_26746.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Arifureta Shokugyou de Sekai Saikyou Season 3 | Arifureta: From Commonplace to W
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26747.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26747.jpgsave_picture_26747.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ Serberg | Видеоурок "Восстановление Windows в счита
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26748.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26748.jpgsave_picture_26748.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ magnet:?xt=urn:btih:46EDEB8214EDA5B555A318B3E4D3572DE7820A75
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26749.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26749.jpgsave_picture_26749.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ magnet:?xt=urn:btih:2FC0B13C5283FE085220E3B369B767DBAFF06F81
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26750.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26750.jpgsave_picture_26750.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:9725739A46EECF8424DFE56F9716400963FD2A96
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26751.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26751.jpgsave_picture_26751.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:C44641A2E7A2FE1717C93CC1B896C7BB9705AC30
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26752.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26752.jpgsave_picture_26752.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ WinRAR 7.10 (x64) Final [En/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26753.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26753.jpgsave_picture_26753.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ magnet:?xt=urn:btih:B3D2C62CFC2F7C94B8E05856E40ED0F99E6FB195
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26754.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26754.jpgsave_picture_26754.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Seelentera | Ajax vs Node.JS (2014) PCRec [H.264/720p-LQ]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26755.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26755.jpgsave_picture_26755.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ SmartMe University | Разработка API с Node.js (2015) PCRec [H.264/720
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26756.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26756.jpgsave_picture_26756.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ magnet:?xt=urn:btih:FB9757B8199D589E1835B29B2E24773B1224B606
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26757.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26757.jpgsave_picture_26757.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ magnet:?xt=urn:btih:1F22B55437CECB5D6028F190A5F365422DAEE18A
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26758.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26758.jpgsave_picture_26758.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ magnet:?xt=urn:btih:A3EF5C1493D240A871A03037BBD034C52AEB01AB
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26759.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26759.jpgsave_picture_26759.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:3D2BE7F5138EAC8E94788A24318D339E2A305F76
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26760.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26760.jpgsave_picture_26760.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ magnet:?xt=urn:btih:C998C2CF2DF7613557C457D191FF875A606A6410
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26761.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26761.jpgsave_picture_26761.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Legacy - Reawakening v1.0.7.3 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26762.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26762.jpgsave_picture_26762.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ magnet:?xt=urn:btih:6AD84FE1C5440F8FDFC24DD6C7496739D1F477D2
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26763.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26763.jpgsave_picture_26763.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ magnet:?xt=urn:btih:00D1D6E10C75D89A0A86B5782750B3FDF2F3E77B
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26764.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26764.jpgsave_picture_26764.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Max Payne 3 (2012) [PS3] [USA] 4.11 [License] [En]
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26765.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26765.jpgsave_picture_26765.jpg" />
 </div>
 
 

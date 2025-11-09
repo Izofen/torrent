@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151997.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151997.jpgsave_picture_151997.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:BF3E8F76426046258BA337819E0F3B44CD8A2519
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151998.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151998.jpgsave_picture_151998.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:78E8F6713B86DE17061E43EB990682ACE5A34E59
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151999.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151999.jpgsave_picture_151999.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:421F4EDF9763355A23C4494F91635C1275AE72A7
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152000.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152000.jpgsave_picture_152000.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:47C966BD4AC67394D336D4B0D06279E339B70AE2
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152001.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152001.jpgsave_picture_152001.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:B9B7A29B1D7D9C3C5FD454B7D16EFC476E31451D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152002.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152002.jpgsave_picture_152002.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:3ADB599775DA439ED34391A3B62B09F7D37D6785
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152003.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152003.jpgsave_picture_152003.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:4199C3C1BD95530D50507705510E2AD051112A5E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152004.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152004.jpgsave_picture_152004.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:6BFA756BE6CB5B8ED8E3A70ED7AD3C8AD1124462
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152005.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152005.jpgsave_picture_152005.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Cisdem Duplicate Finder 5.6.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152006.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152006.jpgsave_picture_152006.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ magnet:?xt=urn:btih:3CBC297DA04CB571DA028F9AAD08DCC1D062A66B
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152007.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152007.jpgsave_picture_152007.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ magnet:?xt=urn:btih:B29C25FAEFF6F6944D0B8500804388BC941C6F73
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152008.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152008.jpgsave_picture_152008.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Bokura wa Minna Kawaisou / Kawaisou / Все мы живем в общежити
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152009.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152009.jpgsave_picture_152009.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ FastStone Image Viewer 6.1 Corporate + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152010.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152010.jpgsave_picture_152010.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Rammstein - XXI (2015) The Vinyl Box Set, Remastered [MP3|320 кб/с] <Industri
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152011.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152011.jpgsave_picture_152011.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ magnet:?xt=urn:btih:37A618CE4575F86CB54B568F5AA87FCFC4ACB99A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152012.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152012.jpgsave_picture_152012.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ VideoSolo DVD Creator 1.1.10 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152013.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152013.jpgsave_picture_152013.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ magnet:?xt=urn:btih:117D2C6BF8463780DF4EEFEF2BEA456ED48427C6
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152014.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152014.jpgsave_picture_152014.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ TheAeroClock 4.04 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152015.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152015.jpgsave_picture_152015.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ magnet:?xt=urn:btih:8383F14BA526715183BBE39389D053C6286EB356
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152017.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152017.jpgsave_picture_152017.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Third Party - Live @ Party People, HERE at Outernet London, United Kingdom (2025
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152018.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152018.jpgsave_picture_152018.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Assassin's Creed Syndicate [patch/dlc] (2015) (1.31)
 >>Patch/Tweak/Trainer/Other для Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152019.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152019.jpgsave_picture_152019.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ magnet:?xt=urn:btih:D7F8F0177EEE9F3F0A63DDA3F9743BB21EE62373
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152020.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152020.jpgsave_picture_152020.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Luminar 3 3.0.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152021.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152021.jpgsave_picture_152021.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Alpina Digital, Артемий Анцупов | Канбан-метод. Как 
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152022.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152022.jpgsave_picture_152022.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ DevID Agent 4.32 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152024.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152024.jpgsave_picture_152024.jpg" />
 </div>
 
 

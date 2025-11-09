@@ -6,7 +6,7 @@ VA - Музыка для машины Vol.31 (2023) [MP3|320 Kbps] <Pop, Dance, 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209256.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209256.jpgsave_picture_209256.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:055B396F685FED18F2673A978E6313CE6E65CA4F
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209257.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209257.jpgsave_picture_209257.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:DCDEB1259B6738F3D32C0B8C1A0BD792819F3F40
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209261.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209261.jpgsave_picture_209261.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:BDD867EE6FEF2B0F729C99B83C89298352784D7B
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209262.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209262.jpgsave_picture_209262.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:336D3CFDBB575FB6DF367B4A272F8892FEE3FCDF
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209263.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209263.jpgsave_picture_209263.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Adrian Benegas - Arcanvm - El mantra secreto de los espíritus (2023) [MP3|320 K
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209266.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209266.jpgsave_picture_209266.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:F46E006D2A513AFBB5D1ABE9FA05332D3DCFC054
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209268.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209268.jpgsave_picture_209268.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ VA - Power Hour (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209270.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209270.jpgsave_picture_209270.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ Auslogics BoostSpeed 13.0.0.4 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209271.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209271.jpgsave_picture_209271.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ VueScan Pro 9.8.11 (07.07.2023) RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209273.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209273.jpgsave_picture_209273.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ Firefox Browser ESR 115.0.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209276.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209276.jpgsave_picture_209276.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ SplitCam 10.7.7 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209277.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209277.jpgsave_picture_209277.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ magnet:?xt=urn:btih:69685F52DAB9ED6A81D339F7DB3893AD4095AF20
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209279.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209279.jpgsave_picture_209279.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ PBS. Охотники за воспоминаниями / Memory Hackers (2016) 
 >>PBS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209280.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209280.jpgsave_picture_209280.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ OneCommander Pro 3.48.1.1 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209283.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209283.jpgsave_picture_209283.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ magnet:?xt=urn:btih:FA1C22C7CE5E02E2E1B0B7E0110CA0B23665D6D8
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209284.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209284.jpgsave_picture_209284.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ magnet:?xt=urn:btih:4B949952763FBD5A76E84EA71639CDB57D137BA6
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209289.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209289.jpgsave_picture_209289.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ magnet:?xt=urn:btih:C4ED112D1865AD7C7512FE9243D3BBCF1E569BD2
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209292.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209292.jpgsave_picture_209292.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ magnet:?xt=urn:btih:77D737BE883820EFDF4852591A690D6AC49978A1
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209294.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209294.jpgsave_picture_209294.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ The Blood Diary - Дневник кровавых историй (2023) [MP3|320
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209296.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209296.jpgsave_picture_209296.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ magnet:?xt=urn:btih:D69D72C3CCF174C1E3AB9AE0BB4FC46786A18D71
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209298.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209298.jpgsave_picture_209298.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Adrian Benegas - The Revenant (2019) Japanese Edition [MP3|320 Kbps] <Melodic He
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209299.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209299.jpgsave_picture_209299.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ magnet:?xt=urn:btih:CA1CC09C6F12A9114A54E477F51B64D4B803A6AD
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209302.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209302.jpgsave_picture_209302.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ YT Downloader 9.0.3 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209305.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209305.jpgsave_picture_209305.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ VA - German Top 100 Single Charts 07.07.2023 [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209308.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209308.jpgsave_picture_209308.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ magnet:?xt=urn:btih:602BC7B897A08143667700273CF1C9844DD2421A
 >>Космос
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209310.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209310.jpgsave_picture_209310.jpg" />
 </div>
 
 

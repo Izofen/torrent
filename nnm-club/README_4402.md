@@ -6,7 +6,7 @@
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137516.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137516.jpgsave_picture_137516.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:6C81823331DBF3B4DEEF8F3CF9F66945BC565544
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137518.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137518.jpgsave_picture_137518.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:286BB81E47FD58B92B165A654C123D2BC42264FC
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137519.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137519.jpgsave_picture_137519.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:CEF6294248DD05352E86BC6B566F4C5B46E94978
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137520.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137520.jpgsave_picture_137520.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Helldorado (2009) [Multi] (2.00) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137521.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137521.jpgsave_picture_137521.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:57DEABBCDFDFE1D3816437CE0E4F42B8A35B8DFB
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137522.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137522.jpgsave_picture_137522.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:F83B72A47EA64099DD5F91D0AFF58C02FB9A882D
 >>Прочие зимние виды спорта
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137523.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137523.jpgsave_picture_137523.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:16298C7ED2C933172EE9188F7105A10B6E25EC6A
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137524.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137524.jpgsave_picture_137524.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:4D2D1CF21A9DF796EFFA15AF534D1C3DFA822B59
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137525.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137525.jpgsave_picture_137525.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:7F1936410D3733BB646D1F859A570C9CD5AAE989
 >>Звуковые дорожки и субтитры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137526.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137526.jpgsave_picture_137526.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:382276D0683A7F4BE9917AC1554FDB2CDA7E9D7C
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137527.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137527.jpgsave_picture_137527.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:3BC04A47C27F771FD7F07531B8764208E0F62A4B
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137528.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137528.jpgsave_picture_137528.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:7B3547782E2C59144AEF1BE1E7EB2BE98E8D189B
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137529.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137529.jpgsave_picture_137529.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ magnet:?xt=urn:btih:C5F5162350D6F8FC41F1ECDD150A553603C38623
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137530.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137530.jpgsave_picture_137530.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ magnet:?xt=urn:btih:66C543CCAE895FE7CF7794A7904B9FE39BB2C20A
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137531.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137531.jpgsave_picture_137531.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Teslagrad (2013) [Ru/Multi] (1.4) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137532.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137532.jpgsave_picture_137532.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ Viber 9.9.5.12 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137533.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137533.jpgsave_picture_137533.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ magnet:?xt=urn:btih:42444AD3A46E60646A97DDD88FD0EC547E1DA796
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137534.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137534.jpgsave_picture_137534.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Luminar Neo 1.16.0 U2B  [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137535.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137535.jpgsave_picture_137535.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ magnet:?xt=urn:btih:97295B1661A0AD5A1E5B1777182FF87B7E4241AA
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137536.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137536.jpgsave_picture_137536.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ magnet:?xt=urn:btih:E70C7529710FAC83DC9B60AA00F5C88CB6580609
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137537.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137537.jpgsave_picture_137537.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ magnet:?xt=urn:btih:44F1E8451CE8A9D8E2C8D86B9486BB01CE05BB9A
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137539.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137539.jpgsave_picture_137539.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Europa Plus TOP 40 декабрь (2017) WEB-DL
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137540.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137540.jpgsave_picture_137540.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ magnet:?xt=urn:btih:9E92943ACBA55A6AF7F1E1CE043FDB8CA6F0A0E6
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137541.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137541.jpgsave_picture_137541.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ SOS, Дед Мороз или Все сбудется! (2015) WEB-DLRip
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137542.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137542.jpgsave_picture_137542.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ magnet:?xt=urn:btih:FDCF3F8CE3E5232876A0F00D52887125768A875C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137544.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137544.jpgsave_picture_137544.jpg" />
 </div>
 
 

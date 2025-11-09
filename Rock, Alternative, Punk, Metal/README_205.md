@@ -6,7 +6,7 @@ Cat Power - Covers (2022) Japanese Edition [FLAC|Lossless|tracks + .cue] <Rock, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130124.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130124.jpgsave_picture_130124.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Loredana Berte - E La Luna Busso (1988) [MP3|320 кб/с]<Rock, Pop-Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130209.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130209.jpgsave_picture_130209.jpg" />
 </div>
 
 
@@ -66,7 +66,7 @@ Exxperior - Escalating Conflicts (2021) [FLAC|Lossless|image + .cue] <Thrash Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130282.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130282.jpgsave_picture_130282.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ magnet:?xt=urn:btih:D9A45D679B46F3052AE0BC761C60356DAC2127ED
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130362.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130362.jpgsave_picture_130362.jpg" />
 </div>
 
 
@@ -120,7 +120,7 @@ Blood Of Kingu - Sun In The House Of The Scorpion (2010) Reissue, 2020, Osmose P
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130415.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130415.jpgsave_picture_130415.jpg" />
 </div>
 
 
@@ -147,7 +147,7 @@ Battle Beast - Circus Of Doom (2022) [MP3|320 Kbps] <Melodic Heavy Metal, Female
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130466.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130466.jpgsave_picture_130466.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Thousand Foot Krutch - The End Is Where We Begin (2012) [FLAC|Lossless]<Alternat
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130694.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130694.jpgsave_picture_130694.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ Bad Company - 25 Albums (1974 - 2018) 47 CD [FLAC|Lossless|image + .cue|tracks +
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130860.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130860.jpgsave_picture_130860.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ Lacuna Coil - Live at Wacken (2007) + Swamped (Single) (2004) [FLAC|Lossless]<Go
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130875.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130875.jpgsave_picture_130875.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ Humble Pie - 23 Albums, 2 Box Set (1969 - 2022) 43 CD [FLAC|Lossless|image + .cu
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130917.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130917.jpgsave_picture_130917.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ Covenant - Nexus Polaris (1998) [WavPack|Lossless]<Melodic Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130978.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130978.jpgsave_picture_130978.jpg" />
 </div>
 
 
@@ -317,7 +317,7 @@ General Surgery - A Collection of Depravation (2012) [MP3|320 кб/с]<Death Met
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131011.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131011.jpgsave_picture_131011.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Guttural Engorgement - The Slow Decay Of Infested Flesh [Digi-Pack Limited Editi
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131018.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131018.jpgsave_picture_131018.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ magnet:?xt=urn:btih:62EB1A848B3A2CACF68FE8657D85AD2AA92D1FB5
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131036.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131036.jpgsave_picture_131036.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Lagooshkee - Live in London Club (2011) [MP3|320 кб/с]<Avant-Punk, Freak-Pop,
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131092.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131092.jpgsave_picture_131092.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ magnet:?xt=urn:btih:2EE7F57AE6F340551B319E4C9DD2F1DB30BB2C2D
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131106.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131106.jpgsave_picture_131106.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ VA - Melodic Rock Throwback (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131109.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131109.jpgsave_picture_131109.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ Atreyu - The Beautiful Dark of Life (2023) [MP3|320 Kbps] <Alternative-Rock, Har
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131110.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131110.jpgsave_picture_131110.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ magnet:?xt=urn:btih:461AC0D527D99F783EE938FCE3E3EC09F4BF6CE3
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131117.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131117.jpgsave_picture_131117.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ Everdawn - Venera (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131118.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131118.jpgsave_picture_131118.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Dawn of Relic - Night on Earth (2005) [WavPack|Lossless]<Dark Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131121.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131121.jpgsave_picture_131121.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Spirits of Fire - Embrace the Unknown (2022) [FLAC|Lossless|image + .cue] <Heavy
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131130.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131130.jpgsave_picture_131130.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ Paul Reed Smith - Eightlock - Lions Roaring in Quicksand (2023) [FLAC|Lossless|W
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131132.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131132.jpgsave_picture_131132.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ Cassidy Paris - New Sensation (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131142.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131142.jpgsave_picture_131142.jpg" />
 </div>
 
 
@@ -690,7 +690,7 @@ magnet:?xt=urn:btih:6B2EF96AF3FF26CD052F3A05ACCECE711DB6EA64
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131151.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131151.jpgsave_picture_131151.jpg" />
 </div>
 
 
@@ -717,7 +717,7 @@ Blue Oyster Cult (Blue Öyster Cult) - First Night (2023) 50th Anniversary Live,
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131153.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131153.jpgsave_picture_131153.jpg" />
 </div>
 
 

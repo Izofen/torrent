@@ -6,7 +6,7 @@
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54499.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54499.jpgsave_picture_54499.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Relaxing Simulator (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54500.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54500.jpgsave_picture_54500.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ ReConnect Exit LOOP (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54501.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54501.jpgsave_picture_54501.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ The KMPlayer 4.2.3.10 repack by cuta (build 5) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54502.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54502.jpgsave_picture_54502.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:ED93A39E32A1C51796A9BC0EC34A2803B37C1BF9
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54503.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54503.jpgsave_picture_54503.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:AFE8B58F41EE8D8B07FFF29493D8ADBA9FE2BA11
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54504.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54504.jpgsave_picture_54504.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:15F336B72C449AD6434B10B8D6397F2599F3DA07
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54505.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54505.jpgsave_picture_54505.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Harvest Hunt (2024) [Multi] (1.0.1) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54506.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54506.jpgsave_picture_54506.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Cent Browser 5.1.1130.122 Stable + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54507.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54507.jpgsave_picture_54507.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:A0E4A33426E207DA3FB5B0431F5A4900C29AF6FB
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54508.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54508.jpgsave_picture_54508.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Assassin's Creed IV: Black Flag (2013) [Ru/Multi] (1.07/dlc) Repack FitGirl [Jac
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54509.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54509.jpgsave_picture_54509.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:F43D07EB35FD83FA0E446C8432A501331E82A05B
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54510.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54510.jpgsave_picture_54510.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:F43D07EB35FD83FA0E446C8432A501331E82A05B
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54511.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54511.jpgsave_picture_54511.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Borderlands 2 (2012) [Ru/En] (1.8.4/dlc) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54512.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54512.jpgsave_picture_54512.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ magnet:?xt=urn:btih:EFD97F660F1A7B94D7CA418B6EA8054D8D905ED1
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54513.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54513.jpgsave_picture_54513.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ BioShock Infinite (2013) [Ru/Multi] (1.1.25.5165/dlc) Repack FitGirl [Complete E
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54514.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54514.jpgsave_picture_54514.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ magnet:?xt=urn:btih:13C84D572ACB00353AF6C6F62F3D2069CA5170DB
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54515.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54515.jpgsave_picture_54515.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ Super Mario 64 HD (1996) [PS3] [EUR] CFW Evilnat 4.91 [Unofficial] [PT]
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54516.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54516.jpgsave_picture_54516.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ magnet:?xt=urn:btih:29991924A049C0C47336514B90D7E3B9423917C7
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54517.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54517.jpgsave_picture_54517.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ magnet:?xt=urn:btih:17D2EB55941208BBC0485674CDF7962BE9243D29
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54518.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54518.jpgsave_picture_54518.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ magnet:?xt=urn:btih:42EB64E0449F7D81884C5B27E65A2D09FED5DF43
 >>Сериалы Marvel Comics
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54519.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54519.jpgsave_picture_54519.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ RIPOUT (2024) [Ru/Multi] (1.0:01) Scene Rune
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54520.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54520.jpgsave_picture_54520.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ magnet:?xt=urn:btih:186466CF1388484970B125CF734D08B2EB048FAA
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54521.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54521.jpgsave_picture_54521.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Schwarz & Funk - Terrace Sessions, Vol. 1 (2024) [FLAC|Lossless|WEB-DL|tracks] <
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54522.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54522.jpgsave_picture_54522.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ magnet:?xt=urn:btih:013BADB1C107DE196947B8F9FEF1AA8013555A7D
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54523.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54523.jpgsave_picture_54523.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ magnet:?xt=urn:btih:CCAA80869D445AAB4146F816745EF7A3423FE50F
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54524.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54524.jpgsave_picture_54524.jpg" />
 </div>
 
 

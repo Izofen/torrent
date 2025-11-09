@@ -6,7 +6,7 @@
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86697.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86697.jpgsave_picture_86697.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ VA - Топ 100 NRJ 11 50/50 (2012) [MP3|256 kbps]<Club>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86699.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86699.jpgsave_picture_86699.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ magnet:?xt=urn:btih:0A6282032E3E72BC63676F2F9797D312934B8439
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86701.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86701.jpgsave_picture_86701.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ uTorrent 3.1.3 Stable (build 26994) [Мульти, Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86703.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86703.jpgsave_picture_86703.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Wise Disk Cleaner v7.18 build 475 Final + Portable [Multi(Rus)]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86704.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86704.jpgsave_picture_86704.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Fugu the Blowfish (P) [En] 2008
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86707.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86707.jpgsave_picture_86707.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ magnet:?xt=urn:btih:D05042CB879D0CD6D9747D9E4CD8FFA88764F6CF
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86711.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86711.jpgsave_picture_86711.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ magnet:?xt=urn:btih:9E6114CD44482E7550F14C793BD754A106BB772A
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86716.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86716.jpgsave_picture_86716.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ VA - Малина Красная №12 Весна (2012) [MP3|128 kbps]<Шанс
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86718.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86718.jpgsave_picture_86718.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ magnet:?xt=urn:btih:9E1C1549C629EB81902E3103B9F85716D97C47D0
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86725.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86725.jpgsave_picture_86725.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ magnet:?xt=urn:btih:9E1C1549C629EB81902E3103B9F85716D97C47D0
 >>Космос
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86731.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86731.jpgsave_picture_86731.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ magnet:?xt=urn:btih:AEDB9A7C6C342B78F61F2D3BAE9AB3D094B0D0D9
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86732.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86732.jpgsave_picture_86732.jpg" />
 </div>
 
 
@@ -317,7 +317,7 @@ magnet:?xt=urn:btih:45C17A1946D9DE6088388F5EE2CD89BCAE19FE81
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86733.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86733.jpgsave_picture_86733.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ VA - Взгляд назад (2012) [MP3|320 кб/с]<Рок>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86734.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86734.jpgsave_picture_86734.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Marc Bolan & T. Rex - The Essential Collection (2002) [FLAC|Lossless]<Glam Rock>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86736.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86736.jpgsave_picture_86736.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Marc Bolan & T. Rex - The Essential Collection (2002) [FLAC|Lossless]<Glam Rock>
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86739.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86739.jpgsave_picture_86739.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Marc Bolan & T. Rex - The Essential Collection (2002) [FLAC|Lossless]<Glam Rock>
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86741.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86741.jpgsave_picture_86741.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ magnet:?xt=urn:btih:4C0EF35C8DB6C8A651B364F36A204F55CE814646
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86742.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86742.jpgsave_picture_86742.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ magnet:?xt=urn:btih:56A2B2B31E78592E56092F01033A7119FACFDDCC
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86745.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86745.jpgsave_picture_86745.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ magnet:?xt=urn:btih:D0BEF9938A77D74B9573DE2CC41987031B78BA86
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86746.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86746.jpgsave_picture_86746.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ magnet:?xt=urn:btih:1681E397FBA94D53D085D5526BF130E3B790EAFB
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86747.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86747.jpgsave_picture_86747.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Gobs of Fobs (P) [En] 2006
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86748.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86748.jpgsave_picture_86748.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Jeff Scott Soto - Damage Control [Deluxe Edition] (2012) [MP3|320 кб/с]<Hard 
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86749.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86749.jpgsave_picture_86749.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ magnet:?xt=urn:btih:9C1950927FAEB6BD4E2BF29BD99532B5C9B647F1
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86750.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86750.jpgsave_picture_86750.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ magnet:?xt=urn:btih:D9A3854890DB9AF2D8981D10DDBD2F9F834A88BC
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86752.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86752.jpgsave_picture_86752.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ magnet:?xt=urn:btih:8F8368A15DCABD94258AE346C23EA2DBBDE21E1C
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86753.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86753.jpgsave_picture_86753.jpg" />
 </div>
 
 

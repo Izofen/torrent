@@ -6,7 +6,7 @@ Necroking (2024) [Ru/Multi] (1.5.2rc) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35564.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35564.jpgsave_picture_35564.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Welcome to ParadiZe (2024) [Ru/Multi] (Build Oct 11 2024/dlc) Repack Let'sРlay 
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35576.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35576.jpgsave_picture_35576.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ MXGP 24: The Official Game (2024) [Ru/Multi] (1.0/dlc) Repack FitGirl [Fox Holes
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35578.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35578.jpgsave_picture_35578.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Until Dawn / Дожить до рассвета (2024) [Ru/Multi] (1.06) Repack 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35585.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35585.jpgsave_picture_35585.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Party Hard 2 (2018) [Ru/Multi] (1.1.004r) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35596.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35596.jpgsave_picture_35596.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:BB77CBF6EFA1E4B0C8E24BB357D6894CD8B1F898
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35602.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35602.jpgsave_picture_35602.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Orange Season (2017) [Multi] (1.0) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35609.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35609.jpgsave_picture_35609.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Puppet House (2024) [Ru/Multi] (build 16153348) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35610.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35610.jpgsave_picture_35610.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Puppet House (2024) [Ru/Multi] (build 16153348) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35640.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35640.jpgsave_picture_35640.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ GigaBash (2024) [Ru/Multi] (1.5.2/dlc) Repack seleZen
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35650.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35650.jpgsave_picture_35650.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ The Long Drive (2019) [Ru/En] (2024.11.26b test) Repack Pioneer [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35654.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35654.jpgsave_picture_35654.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ magnet:?xt=urn:btih:ECF052264A682EBFC0D3F3ED2F4BA9702D663EF6
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35655.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35655.jpgsave_picture_35655.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Expeditions: Rome (2022) [Ru/Multi] (1.6.0.741.23995/dlc) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35656.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35656.jpgsave_picture_35656.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Half Billion: Love Choice (2024) [Multi] (1.0) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35661.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35661.jpgsave_picture_35661.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Wayfinder (2023) [Multi] (1.0/dlc) Repack seleZen
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35662.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35662.jpgsave_picture_35662.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ A pet shop after dark (2022) [Ru/Multi] (1.051) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35667.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35667.jpgsave_picture_35667.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Sky Oceans: Wings for Hire (2024) [Multi] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35671.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35671.jpgsave_picture_35671.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Warhammer 40,000: Inquisitor - Martyr (2018) [Ru/Multi] (2.9.4d/dlc) Repack Let'
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35672.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35672.jpgsave_picture_35672.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Homeworld 3 (2024) [Ru/Multi] (1.3-CL364034/dlc) Repack FitGirl
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35673.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35673.jpgsave_picture_35673.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ IL-2 Sturmovik: Cliffs of Dover / Ил-2 Штурмовик: Битва за Б�
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35685.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35685.jpgsave_picture_35685.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ The Talos Principle 2 (2023) [Ru/Multi] (2.2.0 696260/dlc) Repack Let'sРlay [De
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35688.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35688.jpgsave_picture_35688.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ MXGP 24: The Official Game (2024) [Ru/Multi] (1.0/dlc) Scene Rune
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35760.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35760.jpgsave_picture_35760.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Satisfactory (2019) [Ru/Multi] (1.0.1.0/dlc) Repack dixen18
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35761.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35761.jpgsave_picture_35761.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Marvel’s Guardians of the Galaxy: The Telltale Series (2017) [Ru/Multi] (1.0.1
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35766.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35766.jpgsave_picture_35766.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ GigaBash (2024) [Ru/Multi] (1.5.2/dlc) Scene Rune
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35767.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35767.jpgsave_picture_35767.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Luma Island (2024) [Ru/Multi] (1.19219) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35768.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35768.jpgsave_picture_35768.jpg" />
 </div>
 
 

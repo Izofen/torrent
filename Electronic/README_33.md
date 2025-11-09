@@ -6,7 +6,7 @@ Mannheim Steamroller - Fresh Aire 7 (2000) CD, Album [FLAC|Lossless|tracks + .cu
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65838.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65838.jpgsave_picture_65838.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Sounds Like Summer, Vol. 4 (2025) [MP3|320 Kbps] <House, Deep House, Dance,
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65863.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65863.jpgsave_picture_65863.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Sander van Doorn - Punk'd (2004) [FLAC|Lossless|WEB-DL|tracks] <Trance>
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65926.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65926.jpgsave_picture_65926.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ VA - Ori Uplift - Uplifting Only Episode 645 (2025) [MP3|320 Kbps] <Trance, Upli
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65944.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65944.jpgsave_picture_65944.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Last Grasp - Southern Malaise (2025) [FLAC|Lossless|WEB-DL|tracks] <Darkwave, Po
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65946.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65946.jpgsave_picture_65946.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ VA - Armin van Buuren - A State Of Trance 1230 (2025) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65956.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65956.jpgsave_picture_65956.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ VA - A State of Trance - Classics Top 10, Vol. 4 (2025) [MP3|320 Kbps] <Trance, 
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66028.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66028.jpgsave_picture_66028.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ VA - A State of Trance - Classics Top 10, Vol. 4 (2025) [FLAC|Lossless|WEB-DL|tr
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66030.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66030.jpgsave_picture_66030.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Kris Cayden - Stranger Than Fiction (2025) [MP3|320 Kbps] <Electronic, Dubstep>
 >>Dubstep, Future Garage, Bass Music, UK Garage
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66034.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66034.jpgsave_picture_66034.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Way Out West ft. Kirsty Hawkshaw - Stealth (2002) [FLAC|Lossless|tracks + .cue] 
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66039.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66039.jpgsave_picture_66039.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ VA - Club Vibes 2025 - The Dance Anthems (2025) [MP3|320 Kbps] <Dance, Club, Hou
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66049.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66049.jpgsave_picture_66049.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ VA - Spring Deep House Hits 2025 (2025) [MP3|320 Kbps] <House, Deep House, Dance
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66051.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66051.jpgsave_picture_66051.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ VA - Dancefloor Sessions, Vol. 02 (2025) [MP3|320 Kbps] <Dance, Club, House, Ele
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66052.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66052.jpgsave_picture_66052.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ The Orb - Aftermath (2004) [FLAC|Lossless|tracks + .cue] <Progressive Breaks, Tr
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66055.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66055.jpgsave_picture_66055.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Duran & Aytek - In Sight E.P. (2005) [FLAC|Lossless|WEB-DL|tracks] <Progressive 
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66081.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66081.jpgsave_picture_66081.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ VA - La Noche Blanca En Ibiza, Vol. 3 (2025) [FLAC|Lossless|WEB-DL|tracks] <Loun
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66106.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66106.jpgsave_picture_66106.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ Johnny de City - Mashup Avenue 027 (2025-05-30) [MP3|320 Kbps] <Dance, Electro P
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66111.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66111.jpgsave_picture_66111.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ Sean Tyas - Lift (2006) [FLAC|Lossless|WEB-DL|tracks] <Trance>
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66113.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66113.jpgsave_picture_66113.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ VA - Ori Uplift - Uplifting Only Episode 644 (2025) [MP3|320 Kbps] <Trance, Upli
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66114.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66114.jpgsave_picture_66114.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ Korolova - Live @ Legia Stadium (Warsaw, Poland) (2025-06-05) [MP3|320 Kbps] <Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66120.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66120.jpgsave_picture_66120.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ VA - Progressive Trance Awakening, Vol. 05 (2025) [MP3|320 Kbps] <Trance, Progre
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66125.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66125.jpgsave_picture_66125.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ D Note - Fuchsia Dog (2002) [FLAC|Lossless|tracks + .cue] <Downtempo, House, Bre
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66130.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66130.jpgsave_picture_66130.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ VA - Armin van Buuren - A State Of Trance 1229 (2025) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66135.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66135.jpgsave_picture_66135.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ VA - Keep It Trance Vol. 29 (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66167.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66167.jpgsave_picture_66167.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ Volen Sentir - The Book of Wisdom (2025) [FLAC|Lossless|WEB-DL|tracks] <Tech hou
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66169.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66169.jpgsave_picture_66169.jpg" />
 </div>
 
 
@@ -675,7 +675,7 @@ Kim & Buran - MAMA (2025) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Space disco, 
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66185.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66185.jpgsave_picture_66185.jpg" />
 </div>
 
 

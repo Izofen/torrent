@@ -6,7 +6,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13911.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13911.jpgsave_picture_13911.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:48367BBA5579A50FA4C9E966C31E18AC7D030180
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13912.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13912.jpgsave_picture_13912.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Adventures & Quests: The Black Crystal (2025) [En] (1.0) Unofficial [Collector's
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13913.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13913.jpgsave_picture_13913.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:CC0EAA1D140F39F185E70621BE3D258EAE745974
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13914.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13914.jpgsave_picture_13914.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Suit for Hire (2021) [Ru/Multi] (1.0.1) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13915.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13915.jpgsave_picture_13915.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:8FEC18E09B6B093DF526586654DA3F633198F611
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13916.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13916.jpgsave_picture_13916.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:4B1CE1F77A62FFA19C805EF19ACA2678DB78202C
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13917.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13917.jpgsave_picture_13917.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ EOBD Facile: OBD 2 авто сканер v3.76.1110 Mod by derrin [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13918.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13918.jpgsave_picture_13918.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:DBF23D5E88F3EDD70934876ABDE726047D7607CF
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13919.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13919.jpgsave_picture_13919.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ theHunter: Call of the Wild (2017) [Ru/Multi] (3028143/dlc) Repack FitGirl [Comp
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13920.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13920.jpgsave_picture_13920.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Soulstone Survivors (2022) [Ru/Multi] (1.0f/dlc) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13921.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13921.jpgsave_picture_13921.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Revo Registry Cleaner Pro 1.5.2 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13922.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13922.jpgsave_picture_13922.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Black Sabbath - Greatest Hits Broadcast Collection: Black Sabbath (2025) [MP3|32
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13923.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13923.jpgsave_picture_13923.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ magnet:?xt=urn:btih:B2180B416EC1B631E74CE2F05A4F09C9F09A7FFD
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13924.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13924.jpgsave_picture_13924.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ NG: Аутсайдеры / Underdogs (2025) WEBRip [H.264/1080p] (сезон 1, 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13925.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13925.jpgsave_picture_13925.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Chinese Frontiers (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13926.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13926.jpgsave_picture_13926.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ magnet:?xt=urn:btih:03159A0BC80606FAC8400D7336C2C1BC2D4E5218
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13927.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13927.jpgsave_picture_13927.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ magnet:?xt=urn:btih:330586D5CA7D29F482F0622BAAD6F4C87E8D0070
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13928.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13928.jpgsave_picture_13928.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ Translate AI - Camera & Voice v2.0.8 Mod by NURIK kz [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13929.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13929.jpgsave_picture_13929.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ Empire of Sin (2020) [Ru/Multi] (1.08.0/dlc) Repack FitGirl [Premium Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13930.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13930.jpgsave_picture_13930.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ Thomas Anders - …Sings Modern Talking - Ready for Romance (Thomas' Version) (2
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13931.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13931.jpgsave_picture_13931.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ magnet:?xt=urn:btih:FEB5871F1F1D4E7FA82C3A89529D008F16CA1BB4
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13932.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13932.jpgsave_picture_13932.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ magnet:?xt=urn:btih:4D7F637611BE3E0FFB00A816E27B719E2230B142
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13933.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13933.jpgsave_picture_13933.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ theHunter: Call of the Wild (2017) [Ru/Multi] (3028143/dlc) Scene Tenoke
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13934.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13934.jpgsave_picture_13934.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ Cryptmaster (2024) [Multi] (1.112) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13935.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13935.jpgsave_picture_13935.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ magnet:?xt=urn:btih:FA54719C156117C1B1E26C609F0A41AC442D43B9
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13936.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13936.jpgsave_picture_13936.jpg" />
 </div>
 
 

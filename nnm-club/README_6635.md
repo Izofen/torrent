@@ -6,7 +6,7 @@ I Am The Manic Whale - Bumper Book of Mystery Stories (2023) [MP3|320 Kbps] <pro
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_218617.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_218617.jpgsave_picture_218617.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:ED6A9BA44BD6AA7E5FD4C08FD48F86FA5BD38417
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_218624.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_218624.jpgsave_picture_218624.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Monkey's Audio 10.18 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_218635.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_218635.jpgsave_picture_218635.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ JetBrains RubyMine for Mac 2023.2 Intel/ARM [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_218648.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_218648.jpgsave_picture_218648.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ VA - EFX - Club 3rd Compilation (1996) [FLAC|Lossless|tracks] <Hard Trance>
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_218660.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_218660.jpgsave_picture_218660.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ TechSmith Snagit 2023.2.1 for Mac [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_218666.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_218666.jpgsave_picture_218666.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ magnet:?xt=urn:btih:FDB349C68008F574FE228D4DF62555545178C2BA
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_218679.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_218679.jpgsave_picture_218679.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ VA - Ibiza Dance Party (2023) CD, Compilation [MP3|320 Kbps] <Electro, Club, Fut
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_218690.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_218690.jpgsave_picture_218690.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ Neal Morse - The Dreamer - Joseph: Part One (2023) [FLAC|Lossless|WEB-DL|tracks]
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_218695.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_218695.jpgsave_picture_218695.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ Liam Gallagher - Knebworth 22 (Live) (2023) [FLAC|Lossless|WEB-DL|tracks] <Alter
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_218728.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_218728.jpgsave_picture_218728.jpg" />
 </div>
 
 
@@ -262,7 +262,7 @@ FE File Explorer Pro 3.4.2 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_218739.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_218739.jpgsave_picture_218739.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ Megaherz - In Teufels Namen (2023) [FLAC|Lossless|WEB-DL|tracks] <Neue Deutsche 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_218743.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_218743.jpgsave_picture_218743.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ Neil Young - Chrome Dreams (2023) [FLAC|Lossless|WEB-DL|tracks] <Folk Rock, Coun
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_218749.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_218749.jpgsave_picture_218749.jpg" />
 </div>
 
 
@@ -340,7 +340,7 @@ Die Schnitter - Saat und Ernte (2000) [FLAC|Lossless|image + .cue] <Folk Punk>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_218761.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_218761.jpgsave_picture_218761.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ magnet:?xt=urn:btih:D731F4B8453E4F9218187BF995E313AAD25B9071
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_218765.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_218765.jpgsave_picture_218765.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ Status Quo - Official Archive Series Vol. 1 (2023) Live in Amsterdam 2010 [FLAC|
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_218770.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_218770.jpgsave_picture_218770.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ Beamer 4 v.4.1.11 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_218784.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_218784.jpgsave_picture_218784.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ magnet:?xt=urn:btih:C6BEC50DEE0E9E8CB0114C7F0E2305067D84D338
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_218791.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_218791.jpgsave_picture_218791.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ PowerPhotos 2.4.3b5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_218802.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_218802.jpgsave_picture_218802.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ magnet:?xt=urn:btih:120FA2387CC91A5A2E0B7037F7099F91440393DE
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_218820.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_218820.jpgsave_picture_218820.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ magnet:?xt=urn:btih:06CCADE756B750B1E2477EBA5BCBD66D84AA6C3F
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_218827.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_218827.jpgsave_picture_218827.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ FireAlpaca 2.11.5 + Standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_218838.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_218838.jpgsave_picture_218838.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ VA - Dancing Pirates Vol. 1 (House Radio Edits) (2023) [MP3|320 Kbps] <Electro H
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_218852.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_218852.jpgsave_picture_218852.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Ageless Summoning - Corrupting The Entempled Plane (2023) [FLAC|Lossless|WEB-DL|
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_218864.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_218864.jpgsave_picture_218864.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ magnet:?xt=urn:btih:A914F94C449B76AB71471E5798A1E543CF8DEA6D
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_218875.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_218875.jpgsave_picture_218875.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ Antropofagus - Origin (2022) [FLAC|Lossless|image + .cue] <Brutal Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_218886.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_218886.jpgsave_picture_218886.jpg" />
 </div>
 
 

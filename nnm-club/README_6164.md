@@ -6,7 +6,7 @@
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193672.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193672.jpgsave_picture_193672.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:866DE64E8FB72C2388987F71DF3D0231FB17CB7C
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_193673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193673.jpgsave_picture_193673.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:59D1D30C8E4306AE2993A17EC222DB9FB6783E5E
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193675.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193675.jpgsave_picture_193675.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ ExtraDisks 23.8.1 Home [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193676.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193676.jpgsave_picture_193676.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Adobe After Effects 2023 23.5.0 U2B [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193677.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193677.jpgsave_picture_193677.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:BDDA8E2B4B6238F1226D399CA0A0DF249796B541
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193678.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193678.jpgsave_picture_193678.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:EEA16B8297B526CF57E923BC6E419D127446CA35
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193679.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193679.jpgsave_picture_193679.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Five Finger Death Punch - BEST OF (Volume 2) (2025) [FLAC 24/48|Lossless|WEB-DL|
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193680.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193680.jpgsave_picture_193680.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:25792CBB71057F73BE6916B785037E3598702CCA
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_193681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193681.jpgsave_picture_193681.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:595F1D7DF1B74F34C918D23517980FF6DD129BE9
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193682.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193682.jpgsave_picture_193682.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:FA7E0D4D376E596EB9586010CB9B69EBE1699A78
 >>Историческая проза, Мифы и Легенды
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193683.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193683.jpgsave_picture_193683.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:F637A4A98C753AAA16DEC139BD39FB9231D224CE
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193684.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193684.jpgsave_picture_193684.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:80C6E1D736A908FD7C5C941CE2D48A447B2CC55F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193685.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193685.jpgsave_picture_193685.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:5389B1AD4140B72D944070DC53AD0257C8CB5ED9
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193686.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193686.jpgsave_picture_193686.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ magnet:?xt=urn:btih:2FF31E8179AB529DA52FC27BEB9E6B0BB38BBFA0
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193687.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193687.jpgsave_picture_193687.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Them - Psychedelic Enigma (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Heavy Meta
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193689.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193689.jpgsave_picture_193689.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Macrorit Disk Scanner 6.6.8 Pro / Unlimited / Technician Edition RePack (& Porta
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193690.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193690.jpgsave_picture_193690.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ magnet:?xt=urn:btih:A13AAA26D0B712F61377FBDF3AC5266B2365180D
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_193691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193691.jpgsave_picture_193691.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ VA - Future Sound of Egypt ADE 2025 (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193692.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193692.jpgsave_picture_193692.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Hetman Internet Spy 3.8 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193693.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193693.jpgsave_picture_193693.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ magnet:?xt=urn:btih:7222744999459DAA9105079A07FDF9A3244E480C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193694.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193694.jpgsave_picture_193694.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ VA - Trance Fusion, Vol. 14 (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193695.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193695.jpgsave_picture_193695.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ magnet:?xt=urn:btih:CA3651BDEED9A8950E1851B00600B9DD250A5B21
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193696.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193696.jpgsave_picture_193696.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ magnet:?xt=urn:btih:3246766DD7538038A385BD290DA81EE3272AD95F
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193697.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193697.jpgsave_picture_193697.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ magnet:?xt=urn:btih:B2B772860D93408D5155369925C5C7C48A46E3B2
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193698.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193698.jpgsave_picture_193698.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ Satin Groove - More Saxxy (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz Fusio
 >>Jazz (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193699.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193699.jpgsave_picture_193699.jpg" />
 </div>
 
 

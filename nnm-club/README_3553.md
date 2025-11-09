@@ -6,7 +6,7 @@ Wing Pro 10 for Mac 10.0.3.0 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112753.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112753.jpgsave_picture_112753.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:6276F40A484FDECDD5E72667D453F47046EF8760
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112754.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112754.jpgsave_picture_112754.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ NCH Express Invoice Plus 11.10 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112755.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112755.jpgsave_picture_112755.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:D96CA1ECA5FB8AB0DB8D5945B5F08EA1E56FF091
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112756.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112756.jpgsave_picture_112756.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ AirMail Pro 5 v.5.7.2 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112757.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112757.jpgsave_picture_112757.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Permute 3 v.3.11.8 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112758.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112758.jpgsave_picture_112758.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Tekkamen o Oe "d'Artagnan Monogatari" yori | After the Man in the Iron Mask! (fr
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112759.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112759.jpgsave_picture_112759.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ Anime Sanjuushi | The Three Musketeers | Три мушкетера [1987, TV, 52
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112760.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112760.jpgsave_picture_112760.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ Sandboxie plus 1.13.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112761.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112761.jpgsave_picture_112761.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ magnet:?xt=urn:btih:F782867497499335B11D21AD11AC7B5960192C32
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112762.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112762.jpgsave_picture_112762.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ magnet:?xt=urn:btih:81250E3039CBB3CA38C47BCA96E0214CEC98B9BC
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112763.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112763.jpgsave_picture_112763.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Pale Moon 33.0.2 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112764.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112764.jpgsave_picture_112764.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ OneCommander Pro 3.72.0.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112765.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112765.jpgsave_picture_112765.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Sync Folders Pro 4.7.0 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112766.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112766.jpgsave_picture_112766.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ System Dashboard Pro 1.10.8 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112767.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112767.jpgsave_picture_112767.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ WiFiSpoof 3.9.5 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112768.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112768.jpgsave_picture_112768.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ magnet:?xt=urn:btih:F748D34D5217B4E47593953BA68EF41EAD146834
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112769.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112769.jpgsave_picture_112769.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ magnet:?xt=urn:btih:43B38019C9072A55552CCE77D996CBC9D835C2ED
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112770.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112770.jpgsave_picture_112770.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ VA - Tommy (Original Soundtrack Recording) (1975) 2 x CD, 1993, Polydor [FLAC|Lo
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112771.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112771.jpgsave_picture_112771.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ Maypole - The Real (1971) Reissue, 2005, Gear Fab Records [FLAC|Lossless|image +
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112772.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112772.jpgsave_picture_112772.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ magnet:?xt=urn:btih:E27ADDDE0CE2AD53DDB42D99A46AE44A3C7F05FD
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112773.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112773.jpgsave_picture_112773.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ Elbow - Audio Vertigo (Extended Edition) (2024) [FLAC 24/96|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112774.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112774.jpgsave_picture_112774.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ magnet:?xt=urn:btih:2E80D24ABA0E60A4A4314AC8C401E6BA74012FF6
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112775.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112775.jpgsave_picture_112775.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ VA - Domingo Rockero (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112776.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112776.jpgsave_picture_112776.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ magnet:?xt=urn:btih:4A1AF493429C631755D38B73E2BB08767345AC39
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112777.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112777.jpgsave_picture_112777.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ magnet:?xt=urn:btih:1F17DE9BB5753DC458EA7D0E9989ABAA947E4D75
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112778.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112778.jpgsave_picture_112778.jpg" />
 </div>
 
 

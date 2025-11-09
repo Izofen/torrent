@@ -6,7 +6,7 @@ Sengoku Dynasty (2023) [Ru/Multi] (1.1.0.16) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131.jpgsave_picture_131.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:26B2543C78BCFFE57CDB4A0C1AC7D2C7D14CE79E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132.jpgsave_picture_132.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:8D73A8CDE3663F351FAA2F8BA045C06273A1D94E
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133.jpgsave_picture_133.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:4A2BB4FF23BF6C23DAC82B9733A0BD0F59DDA9FF
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134.jpgsave_picture_134.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Temtem: Swarm (2024) [Ru/Multi] (0.8.0) Repack Pioneer [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135.jpgsave_picture_135.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:160060DDEE044382D6A6A084999AD5EF5919FF07
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136.jpgsave_picture_136.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:D5BB60602994C5423801F9160F023159CF870494
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137.jpgsave_picture_137.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:F909C84564AA8532AF843463701F21ACDCDE2CB4
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138.jpgsave_picture_138.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:4F543D03351A1CE561F4579BCC460AACA30C90F4
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139.jpgsave_picture_139.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Motörhead (Motorhead) - Studio Albums (23 releases) (1977-2015) hand made [rest
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140.jpgsave_picture_140.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Slime Rancher 2 (2022) [Ru/Multi] (1.0.0) Repack Wanterlude
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141.jpgsave_picture_141.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:496CDC086FABFB81A8EFC6D96752EC8186901910
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142.jpgsave_picture_142.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:C929A85782155490C8162469E98C8A07FE443142
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143.jpgsave_picture_143.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Microsoft Windows 11 [10.0.26200.6584], Version 25H2 (Updated September 2025) - 
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144.jpgsave_picture_144.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ magnet:?xt=urn:btih:D1F3B1B0498C14D0054CACAE6EA09197F3F680C3
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145.jpgsave_picture_145.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ magnet:?xt=urn:btih:6A87B84DC4291E00C8C390FB567BAAB7F95C2F35
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146.jpgsave_picture_146.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ Primal Planet (2025) [Ru/Multi] (1.0.250909.1) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147.jpgsave_picture_147.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ magnet:?xt=urn:btih:3A6ADBFBDAFB6781F5CDF50B15F3CE7C79D1BBC3
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148.jpgsave_picture_148.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ magnet:?xt=urn:btih:3A6ADBFBDAFB6781F5CDF50B15F3CE7C79D1BBC3
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149.jpgsave_picture_149.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Sins of a Solar Empire II (2) (2024) [Ru/Multi] (1.45.9/dlc) Repack FitGirl
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150.jpgsave_picture_150.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Stellaris (2016) [Ru/Multi] (4.1.0/dlc) Repack Pioneer [Steam Edition]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151.jpgsave_picture_151.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ magnet:?xt=urn:btih:17F62672111E6BDB4EB9723EF53A90F89120529A
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152.jpgsave_picture_152.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Mr. Prepper (2021) [Ru/Multi] (1.42d/dlc) Repack Other s [Complete Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153.jpgsave_picture_153.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ WinPE 11-10 Sergei Strelec (x64) 2025.09.29 [Ru]
 >>LiveCD/DVD/Flash
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154.jpgsave_picture_154.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Manowar - Studio Albums (19 releases) (1982-2023) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155.jpgsave_picture_155.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ magnet:?xt=urn:btih:D3FB3F76D3777EE81EC6438409862EDFBF68D032
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157.jpgsave_picture_157.jpg" />
 </div>
 
 

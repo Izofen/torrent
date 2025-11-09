@@ -6,7 +6,7 @@ Atoll - Zoopocalypse (2019) [FLAC|Lossless|WEB-DL|tracks] <Brutal Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111231.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111231.jpgsave_picture_111231.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Atoll - The Gathering Swarm (2016) [FLAC|Lossless|WEB-DL|tracks] <Brutal Death M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111232.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111232.jpgsave_picture_111232.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Atoll - Prepuce (2022) EP [FLAC|Lossless|WEB-DL|tracks] <Brutal Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111233.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111233.jpgsave_picture_111233.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Microsoft Visual Studio 2019 Enterprise 16.11.35 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111234.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111234.jpgsave_picture_111234.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ VA - Black Hole Trance Music 04-24 (2024) [MP3|320 Kbps] <Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111235.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111235.jpgsave_picture_111235.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ magnet:?xt=urn:btih:A700B14117FFBC1A1ECE496B0C6F7731988C2203
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111236.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111236.jpgsave_picture_111236.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ magnet:?xt=urn:btih:767B9288A9801FDEF7DC42DC5E65A97AE218E9BD
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111237.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111237.jpgsave_picture_111237.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ magnet:?xt=urn:btih:5D6766D47531223CC3C86D7015B518A7FA7B3597
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111238.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111238.jpgsave_picture_111238.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ Various Artists - The Power of the Heart: A Tribute to Lou Reed (2024) [FLAC|Los
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111239.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111239.jpgsave_picture_111239.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ VA - Rooftop Lounge, Vol. 4 (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill 
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111240.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111240.jpgsave_picture_111240.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ magnet:?xt=urn:btih:5B0D92CEF1863023B08D395AE55E88F31F858471
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111241.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111241.jpgsave_picture_111241.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ Letters Sent Home - Forever Undone (2024) [FLAC|Lossless|WEB-DL|tracks] <Alterna
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111242.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111242.jpgsave_picture_111242.jpg" />
 </div>
 
 
@@ -315,7 +315,7 @@ magnet:?xt=urn:btih:E8A3D2B006CD8546D22548F286C847DD78EB4C78
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111243.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111243.jpgsave_picture_111243.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ magnet:?xt=urn:btih:0202DB1099C0ECD766784C8628F05BB46262BF55
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111244.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111244.jpgsave_picture_111244.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ VA - Black Hole Trance Music 04-24 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111245.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111245.jpgsave_picture_111245.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ CudaText 1.213.0.1 Portable + addons [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111246.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111246.jpgsave_picture_111246.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ magnet:?xt=urn:btih:60F58DBCFEED66125D145179B5F5765DA58030B2
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111247.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111247.jpgsave_picture_111247.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Amalgama - Mastermind (2024) [MP3|320 Kbps] <Heavy Metal, Hard Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111248.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111248.jpgsave_picture_111248.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ magnet:?xt=urn:btih:BD7CC3E9E0E90AE058ECFEBDF64462A5062BE426
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111249.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111249.jpgsave_picture_111249.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Lights & Motion - Wonder (2024) [FLAC|Lossless|WEB-DL|tracks] <Post-Rock, Ambien
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111250.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111250.jpgsave_picture_111250.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Vanden Plas - The Empyrean Equation of The Long Lost Things (2024) [FLAC 24/96|L
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111251.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111251.jpgsave_picture_111251.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ Whalefall - Foxblood (2024) [FLAC|Lossless|WEB-DL|tracks] <Post-Hardcore, Metalc
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111252.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111252.jpgsave_picture_111252.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ magnet:?xt=urn:btih:6609F0781A721DEB429C5721B6A52B05FA57EB89
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111253.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111253.jpgsave_picture_111253.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ Mozilla Thunderbird 115.10.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111254.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111254.jpgsave_picture_111254.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ Calibre 7.9.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111255.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111255.jpgsave_picture_111255.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ magnet:?xt=urn:btih:A699245288934DB04983549DF76BE2751665F4F7
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111256.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111256.jpgsave_picture_111256.jpg" />
 </div>
 
 

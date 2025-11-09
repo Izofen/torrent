@@ -6,7 +6,7 @@ As Light Dies - The Laniakea Architecture vol. II (2023) [FLAC|Lossless|WEB-DL|t
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241715.jpgsave_picture_241715.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ The Fratellis - Half Drunk Under a Full Moon (2021) Deluxe Edition [MP3|320 Kbps
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241716.jpgsave_picture_241716.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:DADFAE63788B3BDEFEB6CEA47B5DBE19AD81E9EE
 >>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241717.jpgsave_picture_241717.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Dave Douglas - Meaning And Mystery (2006) Greenleaf Music [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241718.jpgsave_picture_241718.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Udemy, Nexttut, Abraham Leal | Hair Creation for Game Character in Maya XGen and
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241719.jpgsave_picture_241719.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ magnet:?xt=urn:btih:7CC553E26A805FF9479D73A8F4FBF73B8D53812B
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241720.jpgsave_picture_241720.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ magnet:?xt=urn:btih:E80B27742AF67DBC56E104AD739B5EF73E85786F
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241721.jpgsave_picture_241721.jpg" />
 </div>
 
 
@@ -187,7 +187,7 @@ Thad Jones - The Magnificent Thad Jones (1956) 1987, Blue Note [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241722.jpgsave_picture_241722.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ magnet:?xt=urn:btih:BD24678E09A7CD9EAD809DCD1B1EB12C5784C29D
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241723.jpgsave_picture_241723.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ magnet:?xt=urn:btih:0263B0740D4D67D233BF861636A2C2219419E010
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241724.jpgsave_picture_241724.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ Crowne - Operation Phoenix (2023) Japanese Edition [FLAC|Lossless|image + .cue] 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241725.jpgsave_picture_241725.jpg" />
 </div>
 
 
@@ -290,7 +290,7 @@ EverWeb (Standalone) 3.2.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241727.jpgsave_picture_241727.jpg" />
 </div>
 
 
@@ -316,7 +316,7 @@ Eddie "Lockjaw" Davis & Shirley Scott - Jaws (1958) 1994, Original Jazz Classics
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241728.jpgsave_picture_241728.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ Bog Monkey - Hollow (2023) [FLAC|Lossless|WEB-DL|tracks] <Stoner, Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241729.jpgsave_picture_241729.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ magnet:?xt=urn:btih:448239C11F037817691FCB7E936CC70BFBA8754A
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241730.jpgsave_picture_241730.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ Audrey Horne - Devil's Bell (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241731.jpgsave_picture_241731.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ magnet:?xt=urn:btih:CA8E583E40BF8F6D2C618F5226014E0390FA2C8F
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241732.jpgsave_picture_241732.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ magnet:?xt=urn:btih:D9FD93EF815F8C75BE6D2219AC87C17947BDBE07
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241733.jpgsave_picture_241733.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ magnet:?xt=urn:btih:379F37937404FE1BDB6086E00EA0FB4311456E93
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241734.jpgsave_picture_241734.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Eddie "Lockjaw" Davis & Shirley Scott - Cookbook, Vol.3 (1958) 1992, Original Ja
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241735.jpgsave_picture_241735.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ magnet:?xt=urn:btih:BA89F9D37D9EBB64E3C89C29007CA8B8B2118393
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241736.jpgsave_picture_241736.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ magnet:?xt=urn:btih:55453028B3E2848673C22999CEDD4B1E44B44094
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241737.jpgsave_picture_241737.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ Kitchen Sink - Clandestiny  (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241738.jpgsave_picture_241738.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ The Fuzztones - Encore (2022) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Rock, G
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241739.jpgsave_picture_241739.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ magnet:?xt=urn:btih:246EC8C96927607F68CE16428DA88FE7B7F476E2
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241741.jpgsave_picture_241741.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ Lee Konitz & Frank Wunsch - Insight (1989 - 1995) 2011, Jazzwerkstatt [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241742.jpgsave_picture_241742.jpg" />
 </div>
 
 

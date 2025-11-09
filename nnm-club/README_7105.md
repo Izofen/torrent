@@ -6,7 +6,7 @@
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243645.jpgsave_picture_243645.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Organectomy - Existential Disconnect (2019) [WavPack|Lossless|image + .cue] <Bru
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243646.jpgsave_picture_243646.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Afterdusk - Fatalize (2023) [MP3|320 Kbps] <Progressive Metalcore>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243647.jpgsave_picture_243647.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Yate 6.9.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243648.jpgsave_picture_243648.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Display Maid 3.3.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243649.jpgsave_picture_243649.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ YouTube ReVanced [Non-Root] [Patches v2.31.0] Mod by derrin 17.29.34 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243650.jpgsave_picture_243650.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ Samantha Fox - Touch Me (1986) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Synth-Po
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243651.jpgsave_picture_243651.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ magnet:?xt=urn:btih:E773B3FBA6941AA63F5E49F9A4743251D2143C17
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243652.jpgsave_picture_243652.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ magnet:?xt=urn:btih:BAC4EDBDB1B77E3618B10A54181484742E1792AC
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243653.jpgsave_picture_243653.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ VA - Ibiza Vibes 2023 - Tech House & Techno Only (2023) [MP3|320 Kbps] <Dark Tec
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243654.jpgsave_picture_243654.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ magnet:?xt=urn:btih:C68537FB57DFFBD0AE15CD8CE5EDC38797D94BD2
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243655.jpgsave_picture_243655.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ magnet:?xt=urn:btih:2234A2986869813192597BC0E532B118A853E269
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243656.jpgsave_picture_243656.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ Somniae Status - Echoes (2007) [FLAC|Lossless|image + .cue] <Progressive Metal, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243657.jpgsave_picture_243657.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ magnet:?xt=urn:btih:E30AADA1C2B9F55F582E4864482BFBEB2891810D
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243658.jpgsave_picture_243658.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ Fedora 36 Workstation Server Beta [x86_64] 2xDVD
 >>ОС *Nix (Alpha, Beta, RC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243659.jpgsave_picture_243659.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ magnet:?xt=urn:btih:44F7595E87EF0D1C5EAE4A82D3F571BCCD4958F9
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243660.jpgsave_picture_243660.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ VA - This Is My Church Vol.2: The Lounge Edition (2016) [MP3|320 Kbps] <Downtemp
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243661.jpgsave_picture_243661.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ VA - You and Me - Special Lounge (2022) [AAC|~302 Kbps] <Lounge, Chill Out, Down
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243662.jpgsave_picture_243662.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Skype 8.96.0.408 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243663.jpgsave_picture_243663.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Arkane Studios | Артбук по играм студии Arkane / The Art of A
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243664.jpgsave_picture_243664.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ Somniae Status - Cassandra (2003) [FLAC|Lossless|image + .cue] <Progressive Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243665.jpgsave_picture_243665.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Crysis 2 Remastered (2021) [PS4] [EUR] 5.05 [HEN] [License / 1.01] [Ru/Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243666.jpgsave_picture_243666.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ magnet:?xt=urn:btih:AE9A04FEAFBD6F61C36508BB4958D35E404047C6
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243667.jpgsave_picture_243667.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Flyingbee Reader Pro 3.1.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243668.jpgsave_picture_243668.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Age Of Ruin - 2 Albums (2021-2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243669.jpgsave_picture_243669.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ The Manic Blues - Out of Nowhere (2023) [FLAC 2.0|48/24|WEB-DL|tracks] <Blues Ro
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243670.jpgsave_picture_243670.jpg" />
 </div>
 
 

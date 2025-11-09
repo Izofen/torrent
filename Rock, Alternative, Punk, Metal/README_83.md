@@ -6,7 +6,7 @@ Led Zeppelin - The Best Ballads (2002) [MP3|320 кб/с]<Classic Rock | Blues Ro
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82921.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82921.jpgsave_picture_82921.jpg" />
 </div>
 
 
@@ -39,7 +39,7 @@ Judas Priest - 16 Альбомов (1974-90) 2011 Remastered / 2012, Sony Music,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83149.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83149.jpgsave_picture_83149.jpg" />
 </div>
 
 
@@ -66,7 +66,7 @@ Manny Charlton Band (ex-Nazareth) - Stonkin' (2000) [FLAC|Lossless]<Classic Rock
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83259.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83259.jpgsave_picture_83259.jpg" />
 </div>
 
 
@@ -98,7 +98,7 @@ Bruce Springsteen - Wrecking Ball (2012) [MP3|320 кб/с]<Folk Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83406.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83406.jpgsave_picture_83406.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ Cannibal Corpse - 12 альбомов (1990 - 2012) [MP3|320 кб/с]<Brutal dea
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83514.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83514.jpgsave_picture_83514.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Esperanto - 3 альбома [Дискография] (1973-1975) [MP3|320 кб/
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83619.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83619.jpgsave_picture_83619.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ VA - Time Life - Hard and Heavy Box Set 9CD (2008) [MP3|320 кб/с]<Rock, Hard 
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83639.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83639.jpgsave_picture_83639.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Pythia - 2 альбома (2009 - 2012) [FLAC|Lossless]<Power Metal,Symphonic Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83825.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83825.jpgsave_picture_83825.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ Overkill - 15 альбомов (1988 - 2010) Japanese Edition [FLAC|Lossless]<Th
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83851.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83851.jpgsave_picture_83851.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Meshuggah - Koloss (2012) [FLAC|Lossless]<Progressive Post-Thrash / Math Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83918.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83918.jpgsave_picture_83918.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Meshuggah - Koloss (2012) [FLAC|Lossless]<Progressive Post-Thrash / Math Metal>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83930.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83930.jpgsave_picture_83930.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ The Byrds - [31 альбом] Дискография (1965-2008) [MP3|320 кб/�
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84134.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84134.jpgsave_picture_84134.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ The Korea - Колесницы Богов (2012) [FLAC|Lossless]<Progressive Met
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84272.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84272.jpgsave_picture_84272.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Elvis Presley - ELVIS 30 #1 HITS (2003) [MP3|320 кб/с]<Rock'n Roll>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84282.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84282.jpgsave_picture_84282.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ magnet:?xt=urn:btih:D05BAFCE6D25064DE180DC175B0996212FA9FBA4
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84291.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84291.jpgsave_picture_84291.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Shinedown - Amaryllis (2012) [FLAC|Lossless]<Alternative Rock, Post-Grunge>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84389.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84389.jpgsave_picture_84389.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ VA - Beauty And The Beast Compilation (2012) [MP3|320 кб/с]<Symphonic, Black,
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84431.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84431.jpgsave_picture_84431.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Uriah Heep - 10 Albums (1970-1977) /Teichiku, Japan/ [FLAC|Lossless]<Progressive
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84765.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84765.jpgsave_picture_84765.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Tomorrow's Outlook - 34613 (2012) [FLAC|Lossless]<Progressive/Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84853.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84853.jpgsave_picture_84853.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Hysterica - The Art Of Metal (2012) [FLAC|lossless]<Heavy Metal / Female Vocal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84861.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84861.jpgsave_picture_84861.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ Accept - Stalingrad (2012) [MP3|320 кб/с]<Heavy Metal>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84969.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84969.jpgsave_picture_84969.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ Tina Turner - Best Ballads (1996) [APE|Lossless]<Rock, Soul, R'n'B, >
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85051.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85051.jpgsave_picture_85051.jpg" />
 </div>
 
 
@@ -713,7 +713,7 @@ The Allman Brothers Band - [40 альбомов] Дискография (1969-20
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85165.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85165.jpgsave_picture_85165.jpg" />
 </div>
 
 
@@ -746,7 +746,7 @@ Tacere - 2 альбома (2006 - 2007) [APE|Lossless]<Power Metal,Symphonic Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85260.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85260.jpgsave_picture_85260.jpg" />
 </div>
 
 
@@ -779,7 +779,7 @@ Annihilator - The Best Of Annihilator (2004) [MP3|320 кб/с]<Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85347.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85347.jpgsave_picture_85347.jpg" />
 </div>
 
 
@@ -812,7 +812,7 @@ Uriah Heep - Logical Revelations (2012) [MP3|320 кб/с]<Hard rock, Progressive
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85482.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85482.jpgsave_picture_85482.jpg" />
 </div>
 
 

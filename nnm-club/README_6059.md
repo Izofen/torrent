@@ -6,7 +6,7 @@ Blue System - 40 Jahre ZDF Hitparade (2009) [OGG Vorbis|480 Kbps] <Electronic, E
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_190873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_190873.jpgsave_picture_190873.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:24AD74779A68C37B0506B8F6DFA4FF24A5F35072
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_190874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_190874.jpgsave_picture_190874.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:9CF3BCB548F97F9AC18B8A9D7CF30E8076E00CD2
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_190875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_190875.jpgsave_picture_190875.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ John Mayall - The Sun Is Shining Down (2022) [FLAC|Lossless|image + .cue] <Blues
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_190876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_190876.jpgsave_picture_190876.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ PotPlayer 230905 (1.7.21999) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190877.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190877.jpgsave_picture_190877.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Ebb - Mad & Killing Time (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_190878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_190878.jpgsave_picture_190878.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:EA28AC69C02A1EAF88C0E25968C2AACDAAB1F240
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_190879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_190879.jpgsave_picture_190879.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:433492D4DFDC7D26CC520E5BC7A38C7DA133F972
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190880.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190880.jpgsave_picture_190880.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ Sam Cooke - Forever (2008) 2CD [FLAC|Lossless|tracks + .cue] <Soul, Funk, R&B>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_190881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_190881.jpgsave_picture_190881.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ magnet:?xt=urn:btih:C06D3B021D19A164ACA2B37F47CE543714E54F9D
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190882.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190882.jpgsave_picture_190882.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ Flamborough Head - Jumping The Milestone (2022) [FLAC|Lossless|WEB-DL|tracks] <P
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_190883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_190883.jpgsave_picture_190883.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ VA - ¡90's Rockstars Hits! (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190884.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190884.jpgsave_picture_190884.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ Auslogics Driver Updater 1.25.0.2 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190885.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190885.jpgsave_picture_190885.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ Antena White Opera - 3 Albums (2018-2022) [MP3|320 Kbps] <Progressive Metal, Roc
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_190886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_190886.jpgsave_picture_190886.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ The Arc Light Sessions - The Hours (2022) [FLAC|Lossless|WEB-DL|tracks] <Symphon
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_190887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_190887.jpgsave_picture_190887.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ magnet:?xt=urn:btih:8BAD233EBD828AE45188B2C33D5F558C9BD6A686
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190888.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190888.jpgsave_picture_190888.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ magnet:?xt=urn:btih:DB682C406C513C6B61D071DB855E875FE37DD2BE
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190889.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190889.jpgsave_picture_190889.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ ElectroCalc - DIY Electronics v3.9  Mod by vedserega [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190890.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190890.jpgsave_picture_190890.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ magnet:?xt=urn:btih:9E281DCC701623818ABA1A7008434966547AC1A1
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190891.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190891.jpgsave_picture_190891.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ magnet:?xt=urn:btih:46FB3ADB2EFE5A75D0C2BCA2694FFF44F508D2B6
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190892.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190892.jpgsave_picture_190892.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ magnet:?xt=urn:btih:DFB3F5336307C6CFFCF505980BF0CC4EE4E8CD32
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190893.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190893.jpgsave_picture_190893.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ MotoGP. Этап 20. Гран-при Валенсии. Гонка (06.11.2022) W
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_190894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_190894.jpgsave_picture_190894.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ magnet:?xt=urn:btih:2ACD2DB8823755DA60B270354E59449AD5028F38
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190895.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190895.jpgsave_picture_190895.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Derek Sherinian - Vortex (2022) [FLAC|Lossless|image + .cue] <Prog Rock, Progres
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_190896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_190896.jpgsave_picture_190896.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ magnet:?xt=urn:btih:5CD9156F1EFCDE1795B6CA24B81741DF6FFDFEF4
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190897.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190897.jpgsave_picture_190897.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ magnet:?xt=urn:btih:CF52B9CD1FF7FC3C0F9F09AFC05CF78F2ACB22B2
 >>Космос
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190898.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190898.jpgsave_picture_190898.jpg" />
 </div>
 
 

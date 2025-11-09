@@ -6,7 +6,7 @@ AIDA64 Extreme / Engineer / Business / Network Audit 6.60.5900 RePack (&Portable
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157145.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157145.jpgsave_picture_157145.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Marc Almond - In Session Volume One (2003) [FLAC|Lossless|tracks + .cue] <Synth-
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157146.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157146.jpgsave_picture_157146.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:A33FF709E6D2E8FEA68A1777B08B19AA20216FB0
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157147.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157147.jpgsave_picture_157147.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:4613B2EBE83577A5A493408362AE4728AF1FF74B
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157148.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157148.jpgsave_picture_157148.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ PortableApps.com Platform 26.3.1.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157149.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157149.jpgsave_picture_157149.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ Stellarium 1.2 (0.22.5.0-1.22.5.0) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157151.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157151.jpgsave_picture_157151.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ magnet:?xt=urn:btih:E32C4C2CF56FA51B8B5707F50F6787A3674A9A19
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157152.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157152.jpgsave_picture_157152.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ Group | Stand Up Сезон 5 (2016) [M4B|AAC]
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157153.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157153.jpgsave_picture_157153.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:730345600A7285336CA353F96594EAAC08AB6FC5
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157156.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157156.jpgsave_picture_157156.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:E44EA1D7B3ED7D172EAD323E6141ABC948BB4D5B
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157158.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157158.jpgsave_picture_157158.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Corlyx - 2 Albums (2019-2020) [MP3|320 Kbps] <Darkwave, post-punk>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157159.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157159.jpgsave_picture_157159.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ VA - ЕвроХит Топ 40 Europa Plus 20.12.2019 [MP3|320 Kbps] <Pop, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157160.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157160.jpgsave_picture_157160.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ Thomas Valentine | Database-Driven Web Development, 2nd Edition (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157161.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157161.jpgsave_picture_157161.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ magnet:?xt=urn:btih:147946F1A48C3F2E73C0A957006E7B4FBF52A1F3
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157162.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157162.jpgsave_picture_157162.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ VA - NRJ Hits 2023 (2022) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157164.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157164.jpgsave_picture_157164.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ magnet:?xt=urn:btih:F09E0DD8CCEAB05E4268F754ECEA3EE740766C21
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157165.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157165.jpgsave_picture_157165.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ magnet:?xt=urn:btih:04E3627407B623C6CFC89AB3C075CBA556EE4F73
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157167.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157167.jpgsave_picture_157167.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ magnet:?xt=urn:btih:2F029CF48763BF7887863AD12A98D01C787BFA12
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157168.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157168.jpgsave_picture_157168.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ magnet:?xt=urn:btih:96E951E35D21C722923725EF80ACEA93EEE61DE6
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157169.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157169.jpgsave_picture_157169.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ magnet:?xt=urn:btih:46C2141B19BF8B1A90D59824EC3EAF9BCC4FC60E
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157170.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157170.jpgsave_picture_157170.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Group | Stand Up Сезон 6 (2017) [M4B|AAC]
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157171.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157171.jpgsave_picture_157171.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ magnet:?xt=urn:btih:5BAE76FDC27F36541FB42503104808E343424CF6
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157172.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157172.jpgsave_picture_157172.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ magnet:?xt=urn:btih:9544ECB65F2210CAC45FE92C4732AFBCD1E74723
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157173.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157173.jpgsave_picture_157173.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ All The Cold - To The Emerald Land (2020) [FLAC|Lossless|Web-DL|tracks] <Atmosph
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157174.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157174.jpgsave_picture_157174.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ TG Pro (Temperature Gauge Pro) 2.54 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157175.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157175.jpgsave_picture_157175.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ EssentialPIM Pro Business Edition 8.63 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157176.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157176.jpgsave_picture_157176.jpg" />
 </div>
 
 

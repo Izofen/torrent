@@ -6,7 +6,7 @@ WinCatalog 2024.6.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118972.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118972.jpgsave_picture_118972.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ KStars 3.6.9 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118973.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118973.jpgsave_picture_118973.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Firefox Browser 122.0.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118974.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118974.jpgsave_picture_118974.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:935ACC91F1FC60F1E5057B617A17DE8F42CD8ED9
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118975.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118975.jpgsave_picture_118975.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ VA - A State of Trance 2024 - DESTINATION (The Official Album) (2024) [MP3|320 K
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118976.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118976.jpgsave_picture_118976.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ EF Commander 24.02 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118977.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118977.jpgsave_picture_118977.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:5304A05117FA034990C9D1FB1696E2E9784D4A14
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118978.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118978.jpgsave_picture_118978.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:50133CD1AD61DA76DC9CFDEBFC2A2107BBCD94AC
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118979.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118979.jpgsave_picture_118979.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:DDEDAEBA3B56CDA1CE7126065871598FA09266FF
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118980.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118980.jpgsave_picture_118980.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ VA - Contact 2: People & Machines (2024) [MP3|320 Kbps] <Minimal, Tech House, Ot
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118981.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118981.jpgsave_picture_118981.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Garmin: Topo Active South America 2023.10 [En]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118982.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118982.jpgsave_picture_118982.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Telegram Desktop 4.14.13 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118983.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118983.jpgsave_picture_118983.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ WizTree Enterprise 4.18 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118984.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118984.jpgsave_picture_118984.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ magnet:?xt=urn:btih:5FC999C65325D2CC82C4EBC558C84B5E7ADAE3ED
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118985.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118985.jpgsave_picture_118985.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ magnet:?xt=urn:btih:490C5E9DD142A198726CC64866FE8EB241A6AC44
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118986.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118986.jpgsave_picture_118986.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ magnet:?xt=urn:btih:00577A376F4F22F253E760D25CDF5DE17C0A8B88
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118987.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118987.jpgsave_picture_118987.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ magnet:?xt=urn:btih:A4470D823A5104A5A5D20B489D78519719060EA1
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118988.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118988.jpgsave_picture_118988.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Topaz Video AI 4.1.1 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118989.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118989.jpgsave_picture_118989.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ magnet:?xt=urn:btih:7AA4EDB464589D530006441B5E0E928D6CC489CD
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118990.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118990.jpgsave_picture_118990.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ Maou Gakuin no Futekigousha | The Misfit of Demon King Academy | Непризн�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118991.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118991.jpgsave_picture_118991.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ VA - 100 Greatest Love Songs (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118992.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118992.jpgsave_picture_118992.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ VA - Hard Rock 60’s What does he look like (2024) [MP3|320 Kbps] <Rock, Hard R
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118993.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118993.jpgsave_picture_118993.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ magnet:?xt=urn:btih:266936F67F1AED6CF7B2B82A10EB2FC4D24ED4A8
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118994.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118994.jpgsave_picture_118994.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ Master PDF Editor 5.9.82 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118995.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118995.jpgsave_picture_118995.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ magnet:?xt=urn:btih:83886ECAEA139C9F73D704CFA9A87D699DB9066A
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118996.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118996.jpgsave_picture_118996.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ TreeSize Professional 9.1.1.1869 (x64) RePack (& Portable) by elchupacabra [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118997.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118997.jpgsave_picture_118997.jpg" />
 </div>
 
 

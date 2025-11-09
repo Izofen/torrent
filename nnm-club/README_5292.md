@@ -6,7 +6,7 @@
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164400.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164400.jpgsave_picture_164400.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:A3C0128EDE77A0BC2FDC38850D66BEB63BC8767C
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164402.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164402.jpgsave_picture_164402.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Monolink - Amniotic (2019) Deluxe Version [FLAC|Lossless|WEB-DL|tracks] <Electro
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164403.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164403.jpgsave_picture_164403.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ VA - Oxygenesis: Clubbing Techno Mix (2020) [MP3|320 Kbps] <Club, Dance, Tech Ho
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164404.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164404.jpgsave_picture_164404.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:A049A43F90E0337EFDCDE08C4AC50688A5191795
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164405.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164405.jpgsave_picture_164405.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ magnet:?xt=urn:btih:587B0C6F9209613D3F2BFBD86DB7FD40E5C8AA10
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164406.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164406.jpgsave_picture_164406.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ SFTPCommander 2.4.1 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164407.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164407.jpgsave_picture_164407.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ magnet:?xt=urn:btih:27B0C8C843433EE93A95F28985639E18E2569781
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164408.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164408.jpgsave_picture_164408.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ magnet:?xt=urn:btih:066AAFA9B7FC1396EE6F944E9753245462B75DA0
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164409.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164409.jpgsave_picture_164409.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ magnet:?xt=urn:btih:ACDBA848949F5A50F47FF805CE0B53328E806100
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164410.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164410.jpgsave_picture_164410.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ Mr R. - Ere Long (2022) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic, Space Rock, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164411.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164411.jpgsave_picture_164411.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ Jack J Hutchinson - Back to the Blues (2020) [FLAC|Lossless|WEB-DL|tracks] <Blue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164412.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164412.jpgsave_picture_164412.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ AnyMP4 Screen Recorder for Mac 2.0.26 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164413.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164413.jpgsave_picture_164413.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ Universal Mind Project - The Jaguar Priest (2016) [FLAC|Lossless|image + .cue] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164414.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164414.jpgsave_picture_164414.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ Ashampoo Burning Studio 21.2.0.39 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164415.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164415.jpgsave_picture_164415.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ Aiseesoft Mac FoneLab for iOS 10.3.92 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164416.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164416.jpgsave_picture_164416.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Cats In Space - Diamonds - The Best Of Cats In Space (2021) Compilation [FLAC|Lo
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164417.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164417.jpgsave_picture_164417.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ magnet:?xt=urn:btih:B0613B17DF37089D049883D69769BE9C9EECC338
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164418.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164418.jpgsave_picture_164418.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ magnet:?xt=urn:btih:E446249B422A8A4AAAF0B9C4E5E322EC2ABD8686
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164419.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164419.jpgsave_picture_164419.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ magnet:?xt=urn:btih:348E4403853CD4F723291C8C06202E8D6ED78A05
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164420.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164420.jpgsave_picture_164420.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ Tone2 - RayBlaster 2.6.0 STANDALONE, VSTi (x64) RePack by R2R [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164421.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164421.jpgsave_picture_164421.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ magnet:?xt=urn:btih:04B5E4F367EE54D4B895F280E57AA8B5BCF85FF8
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164422.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164422.jpgsave_picture_164422.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Rock Legends - Metal Christmas (2015) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164423.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164423.jpgsave_picture_164423.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ magnet:?xt=urn:btih:4CDB6A7EA24DAD7DA592D8E39D535FCB5783B563
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164424.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164424.jpgsave_picture_164424.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Topaz Video AI for Mac 4.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164425.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164425.jpgsave_picture_164425.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ PhotoScape X Pro 4.1.1 fix [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164426.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164426.jpgsave_picture_164426.jpg" />
 </div>
 
 

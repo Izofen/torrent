@@ -6,7 +6,7 @@ Gorky Park - Moscow Calling (1992) Denmark [FLAC 2.0 24/192|image (Vinyl-Rip)]<H
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150358.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150358.jpgsave_picture_150358.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:2A0B810E2A98DE97ECBCD7FABF591DE51CEC72CD
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150607.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150607.jpgsave_picture_150607.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Manfred Mann's Earth Band - The Roaring Silence (1976) [FLAC 2.0|192/24|image + 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151863.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151863.jpgsave_picture_151863.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:1849946DB1CEAD15E746C8041CD140C24A4F6181
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152171.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152171.jpgsave_picture_152171.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Carach Angren - Studio Albums (7 releases) (2008-2025) hand made [restored, decl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152209.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152209.jpgsave_picture_152209.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Blue Oyster Cult - The Revolution By Night (1983)  [FLAC 2.0 24/96|image (Vinyl-
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152320.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152320.jpgsave_picture_152320.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Foreigner - Inside Information (1987) [FLAC 2.0 24/96|image (Vinyl-Rip)]<Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153215.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153215.jpgsave_picture_153215.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Boney-M - Christmas Album (1981) [FLAC 2.0|24/192|tracks|Vinyl-Rip] <Disco> [upc
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153359.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153359.jpgsave_picture_153359.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Opeth - Orchid (1995) Reissue, 2016, Candlelight Records [FLAC|24/192|image + .c
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153594.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153594.jpgsave_picture_153594.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Mylene Farmer - Interstellaires (2015) [FLAC 2.0 24/192|image (Vinyl-Rip)]<Synth
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155725.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155725.jpgsave_picture_155725.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Stars On 45' - Звёзды дискотек (2LP) (1983, 1984) [FLAC 2.0 24/96|
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155971.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155971.jpgsave_picture_155971.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ Modern Talking - Поговорим о любви, Ready For Romance (1986, 1987
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155993.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155993.jpgsave_picture_155993.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ Blue Oyster Cult - Fire Of Unknown Origin (1981)  [FLAC 2.0 24/96|image (Vinyl-R
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156257.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156257.jpgsave_picture_156257.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ VA - Архив Популярной Музыки 1-12 (1988-1990) Unofficial Re
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156454.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156454.jpgsave_picture_156454.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ The Rolling Stones - Hackney Diamonds (2023) [FLAC 24/96|Lossless| image + .cue|
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156887.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156887.jpgsave_picture_156887.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ VA - Мастера блюза 4: Большая машина (1990) [FLAC 2.0 2
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156915.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156915.jpgsave_picture_156915.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ Psycho Attack Over Europe! (3CD set) (1991-1994) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156942.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156942.jpgsave_picture_156942.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ At the Gates - Studio Albums (7 releases) (1992 - 2021) hand made [restored, dec
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157538.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157538.jpgsave_picture_157538.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ The Beatles - Легенды Зарубежного Рока (1999) Unofficial R
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157954.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157954.jpgsave_picture_157954.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Doro & Warlock - Studio Albums (18 releases) (1984-2023) hand made [restored, de
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158834.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158834.jpgsave_picture_158834.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Evile - Studio Albums (6 releases) (2007-2023) hand made [restored, declipped] [
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158995.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158995.jpgsave_picture_158995.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Angelus Apatrida - Studio Albums (8 releases) (2006-2023) hand made [restored, d
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158997.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158997.jpgsave_picture_158997.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ magnet:?xt=urn:btih:D87BCE0385384610A15E6892EE316C30AD015C24
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159385.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159385.jpgsave_picture_159385.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Butcher Babies - Studio Albums (5 releases) (2013-2023) hand made [restored, dec
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159864.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159864.jpgsave_picture_159864.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ Earth, Wind & Fire - Touch The World (1987) [FLAC 2.0|192/24|image +.cue|Vinyl-R
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159988.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159988.jpgsave_picture_159988.jpg" />
 </div>
 
 
@@ -688,7 +688,7 @@ Battle Beast - Дискография (6 releases) (2011 - 2022) hand made [rest
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160021.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160021.jpgsave_picture_160021.jpg" />
 </div>
 
 

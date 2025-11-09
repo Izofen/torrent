@@ -6,7 +6,7 @@ Motion Science, Cameron Pierron | AE Volume I: The Fundamentals (2019) WEB-DL [E
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128274.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128274.jpgsave_picture_128274.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:187686BFCBA630EF3BEA656064AAD7C6B4B4D9EC
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128276.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128276.jpgsave_picture_128276.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ magnet:?xt=urn:btih:C96F0997D8258AD700F2CBD202FF83BF8A9900CF
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128277.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128277.jpgsave_picture_128277.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ magnet:?xt=urn:btih:02D130A95338556254BBDAEBB5B9258C18E86BB6
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128278.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128278.jpgsave_picture_128278.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ magnet:?xt=urn:btih:F55A1A7CA67AA0BE521DD06230DF7E61EA553F8D
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128279.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128279.jpgsave_picture_128279.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ magnet:?xt=urn:btih:1A1DD18F9B26C35A309F5A44D914EB7B8F116F03
 >>Релакс / Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128280.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128280.jpgsave_picture_128280.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ magnet:?xt=urn:btih:00793F9C15863182AF09336D0FC0956A217C0DB0
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128281.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128281.jpgsave_picture_128281.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:5BA0483CF9B673A4318FA09E9F9C3FC8CC316FAB
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128282.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128282.jpgsave_picture_128282.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ NIUBI Partition Editor 9.9.0 Technician Edition RePack (& Portable) by elchupaca
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128284.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128284.jpgsave_picture_128284.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ magnet:?xt=urn:btih:E98B01B4F54A867B83DA02FF67E8CA1C22DE86BF
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128285.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128285.jpgsave_picture_128285.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ Telegram Desktop 4.12.2 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128286.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128286.jpgsave_picture_128286.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ magnet:?xt=urn:btih:825B0DC59A7C2FAA47CD1E246D865EEFC40A4AB6
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128287.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128287.jpgsave_picture_128287.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ magnet:?xt=urn:btih:A895816BD2499766C9590032007735F40FB00F21
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128288.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128288.jpgsave_picture_128288.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ CG Education, Максим Шаров,  Алиса Арифи | Геймифик
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128289.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128289.jpgsave_picture_128289.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ magnet:?xt=urn:btih:0C4016852EB6053B2C28722F928D48654FDEAE69
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128290.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128290.jpgsave_picture_128290.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ IObit Uninstaller Pro 13.2.0.5 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128291.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128291.jpgsave_picture_128291.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ magnet:?xt=urn:btih:35832873D65C6D4E981F82018E3F9915B4120BB9
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128292.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128292.jpgsave_picture_128292.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ magnet:?xt=urn:btih:433D04FF8CF774F10D6FD73235554CEABF854C24
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128294.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128294.jpgsave_picture_128294.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ magnet:?xt=urn:btih:C5D265ABB8A81B4FDC8FE1171DD685873B9DB01F
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128295.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128295.jpgsave_picture_128295.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ magnet:?xt=urn:btih:5EED03B8E3C963B58C2FB11BB1B9A2A9423D8E4B
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128296.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128296.jpgsave_picture_128296.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ magnet:?xt=urn:btih:763E03B9DC11575435E079497CC5BDDA1E2E0F1E
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128297.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128297.jpgsave_picture_128297.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ magnet:?xt=urn:btih:63B757C89DC1FDD6144D878F461577E75DB64553
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128298.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128298.jpgsave_picture_128298.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ magnet:?xt=urn:btih:7E734D6E0BE89127AD225E4895EC2ED884A16DF2
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128299.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128299.jpgsave_picture_128299.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ magnet:?xt=urn:btih:BD65EB445F3B909F9BFC04AA81C1374D365C331D
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128300.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128300.jpgsave_picture_128300.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Viber 21.5.0.3 (x64) RePack (Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128301.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128301.jpgsave_picture_128301.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ Aiseesoft Video Converter Ultimate 10.8.6 RePack (& Portable) by elchupacabra [M
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128302.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128302.jpgsave_picture_128302.jpg" />
 </div>
 
 

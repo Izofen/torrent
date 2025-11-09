@@ -6,7 +6,7 @@
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105110.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105110.jpgsave_picture_105110.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Jon Anderson Feat. The Band Geeks - True (2024) [FLAC 24/96|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105158.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105158.jpgsave_picture_105158.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Peoria Jazzband - In a Jam (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105160.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105160.jpgsave_picture_105160.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Meital Waldmann - Between Worlds (2024) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <V
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105161.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105161.jpgsave_picture_105161.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Nate Najar - Meet The Graingers (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Cont
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105163.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105163.jpgsave_picture_105163.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ magnet:?xt=urn:btih:628AC6D1BFC26A890CF2D8597A8391FF91365BA0
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105164.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105164.jpgsave_picture_105164.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Delta Heavy - Midnight Forever (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Dru
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105165.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105165.jpgsave_picture_105165.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Static-X (Wayne Static) - Studio Albums (10 releases) (1999-2024) hand made [res
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105168.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105168.jpgsave_picture_105168.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Glass Spells - Crystals (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Synthpop>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105176.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105176.jpgsave_picture_105176.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Soen - Studio Albums (7 releases) (2012-2023) hand made [restored, declipped] [F
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105180.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105180.jpgsave_picture_105180.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ The Emperor Machine - Island Boogie (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105182.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105182.jpgsave_picture_105182.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Burning Point - Studio Albums (8 releases) (2001-2021) hand made [restored, decl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105184.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105184.jpgsave_picture_105184.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:B80704816DAC85F2D4AC32C87410CB4431C94A07
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105188.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105188.jpgsave_picture_105188.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Sabrina Carpenter - Short n' Sweet (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <P
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105192.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105192.jpgsave_picture_105192.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Mono Inc. - Symphonic Live - The Second Chapter (2024) [FLAC 24/48|Lossless|WEB-
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105201.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105201.jpgsave_picture_105201.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Caligula's Horse - Studio Albums (6 releases) (2011-2024) hand made [restored, d
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105205.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105205.jpgsave_picture_105205.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Kingcrow - Hopium (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative Rock
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105206.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105206.jpgsave_picture_105206.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Fleshgod Apocalypse - Opera (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Sympho
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105211.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105211.jpgsave_picture_105211.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Dampf - No Angels Alive (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Industrial
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105214.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105214.jpgsave_picture_105214.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:B1A3BF2A0D29196BD4BE14CFDCFFF20259BDC9BD
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105261.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105261.jpgsave_picture_105261.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Simone Simons - Vermillion (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Modern Me
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105269.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105269.jpgsave_picture_105269.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Baccara - Light My Fire (1978) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Disco>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105278.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105278.jpgsave_picture_105278.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Swiss & Die Andern - 10 Jahre Swiss Die Andern Best Of (2024) [FLAC 24/44.1|Loss
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105293.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105293.jpgsave_picture_105293.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ SaffeK - I/U/WE/US (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105294.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105294.jpgsave_picture_105294.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Saving Them - Saving Them (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Classic Ro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105295.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105295.jpgsave_picture_105295.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Mojo Thunder - The Infinite Hope (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Har
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105296.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105296.jpgsave_picture_105296.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134128.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134128.jpgsave_picture_134128.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:072B3A2F322893F9710B62B88E396E9FB008294B
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134129.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134129.jpgsave_picture_134129.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Maximiliano Contieri | Clean Code Cookbook (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134131.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134131.jpgsave_picture_134131.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ V Recorder - Запись видео с экрана 7.1.1 Mod by Mixroot [Ru/Mu
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134133.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134133.jpgsave_picture_134133.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:2FCB9ED09F619FEEFB4C349C13AB5F5866270682
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134134.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134134.jpgsave_picture_134134.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:C1EEDDFF13C54CC53C28DFFE2F6DE68E4EFA1611
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134135.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134135.jpgsave_picture_134135.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:A2793228732C12D2DAE16F7027B7EF658AD5A7B4
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134137.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134137.jpgsave_picture_134137.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ YT Downloader 9.6.0 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134139.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134139.jpgsave_picture_134139.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:B98F1932B01FC427C3B346D833859F1F381CF7F5
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134140.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134140.jpgsave_picture_134140.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Google Chrome 119.0.6045.200 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134141.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134141.jpgsave_picture_134141.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ magnet:?xt=urn:btih:BD5BB26A755808828417A522953578CC05011278
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134142.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134142.jpgsave_picture_134142.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ magnet:?xt=urn:btih:9668E856F806FDB334B20ACAC4BDD6D18C71E90D
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134143.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134143.jpgsave_picture_134143.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Zentimo xStorage Manager 3.0.4.1298 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134144.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134144.jpgsave_picture_134144.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ magnet:?xt=urn:btih:5FC1FEFCED6F6478473064CAC00AFC7914AE33AE
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134145.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134145.jpgsave_picture_134145.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Altair HW FEKO 2023.0 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134146.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134146.jpgsave_picture_134146.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ magnet:?xt=urn:btih:7058ECB370709D7730231AD4620813ACF936808B
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134147.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134147.jpgsave_picture_134147.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ FlashFXP 4.2.5 Build 1813 Stable + Portable [Multi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134148.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134148.jpgsave_picture_134148.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ FlashFXP - FTP-клиент, поддерживающий любые типы с
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134151.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134151.jpgsave_picture_134151.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ Chamras Saewataporn - Mother Care Fairly Child (2004) [MP3|320 кб/с]<New age,
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134152.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134152.jpgsave_picture_134152.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ TikTok 32.2.4 Mod by Dmitry Nechiporenko [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134153.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134153.jpgsave_picture_134153.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ magnet:?xt=urn:btih:F4D77EE82A54C7522AD12B84063E1DD53E38EA23
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134154.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134154.jpgsave_picture_134154.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ izi.TRAVEL v7.2.2.514 Mody Ale.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134155.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134155.jpgsave_picture_134155.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ magnet:?xt=urn:btih:66F41BA9F8C1A4A2A54F7FA5F12348A35709B4F3
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134156.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134156.jpgsave_picture_134156.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ magnet:?xt=urn:btih:5239AC8261DD2A346C3E5DADE1A1B9C3C9E4DC2A
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134157.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134157.jpgsave_picture_134157.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ Sumatra PDF 2.2 Final + Portable [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134158.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134158.jpgsave_picture_134158.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ VA - Музыка для машины Vol.46 (2023) [MP3|320 Kbps] <Pop, Dance, 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134159.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134159.jpgsave_picture_134159.jpg" />
 </div>
 
 

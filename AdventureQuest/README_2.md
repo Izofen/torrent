@@ -6,7 +6,7 @@ The End of the Sun (2025) [Ru/Multi] (2.0) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6815.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6815.jpgsave_picture_6815.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ PEAK (2025) [Ru/Multi] (1.24a) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6861.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6861.jpgsave_picture_6861.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Estranged: Act I / Estranged: The Departure (2014, 2020) [Ru/Multi] (Build 16907
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6964.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6964.jpgsave_picture_6964.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Dread Flats (2025) [Ru/Multi] (2.10.1) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6974.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6974.jpgsave_picture_6974.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Runway 66 (2025) [Ru/Multi] (build 19368702) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6990.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6990.jpgsave_picture_6990.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Empyrion - Galactic Survival (2020) [Ru/Multi] (1.13/dlc) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7138.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7138.jpgsave_picture_7138.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Runway 66 (2025) [Ru/Multi] (build 19368702) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7146.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7146.jpgsave_picture_7146.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Somerville (2022) [Ru/Multi] (Patch 4 Build 11993672) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7317.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7317.jpgsave_picture_7317.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Senua’s Saga: Hellblade II (2) (2024) [Ru/Multi] (Build 19131828) Repack FitGi
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7347.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7347.jpgsave_picture_7347.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ The Darkest Files (2025) [Multi] (1.0.8.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7377.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7377.jpgsave_picture_7377.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Boxville 2 (2025) [Ru/Multi] (2.17.4) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7388.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7388.jpgsave_picture_7388.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Disaster Report 4: Summer Memories (2020) [Multi] (1.05(a)/dlc) License GOG [Dig
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7395.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7395.jpgsave_picture_7395.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Senua’s Saga: Hellblade II (2) (2024) [Ru/Multi] (Build 19131828) Repack Wante
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7524.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7524.jpgsave_picture_7524.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Night Loops (2023) [Ru/Multi] (1.4.1) License GOG [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7552.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7552.jpgsave_picture_7552.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ The End of the Sun (2025) [Ru/Multi] (2.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7558.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7558.jpgsave_picture_7558.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Labyrinth of the Demon King (2025) [Ru/Multi] (1.21) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7565.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7565.jpgsave_picture_7565.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Static Dread: The Lighthouse (2025) [Ru/Multi] (2025.08.12.09.11/dlc) Repack Wan
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7754.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7754.jpgsave_picture_7754.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ BROK the InvestiGator (2022) [Ru/Multi] (1.5.3/dlc) Repack Let'sРlay [Deluxe Ed
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7931.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7931.jpgsave_picture_7931.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Kulebra and the Souls of Limbo (2025) [Multi] (1.1.5) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7940.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7940.jpgsave_picture_7940.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Silent Hill 2 Remake (2024) [Ru/Multi] (1.1.258.834/dlc) Repack Decepticon
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7956.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7956.jpgsave_picture_7956.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Cabernet (2025) [Multi] (1.1.19) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7961.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7961.jpgsave_picture_7961.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Out of Sight (2025) [Ru/Multi] (1.0.48) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8160.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8160.jpgsave_picture_8160.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Senua’s Saga: Hellblade II (2) (2024) [Ru/Multi] (Build 19131828) Repack Decep
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8187.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8187.jpgsave_picture_8187.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ The Roottrees are Dead (2025) [Multi] (20250717) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8307.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8307.jpgsave_picture_8307.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Senua’s Saga: Hellblade II (2) (2024) [Ru/Multi] (Build 19131828) Repack Let's
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8322.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8322.jpgsave_picture_8322.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Death Relives (2025) [Ru/Multi] (0.14.68.408) Repack Let'sРlay [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8507.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8507.jpgsave_picture_8507.jpg" />
 </div>
 
 

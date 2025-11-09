@@ -6,7 +6,7 @@
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13937.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13937.jpgsave_picture_13937.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:42309300A2CCCE635229A6FB79D4F609AC845A4F
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13938.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13938.jpgsave_picture_13938.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Chinese Frontiers (2025) [Ru/Multi] (1.0) Repack seleZen
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13939.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13939.jpgsave_picture_13939.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Abelssoft SSD Fresh Plus 2026 15.03.62686 Portable by FC Portables [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13940.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13940.jpgsave_picture_13940.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:82E8A281CD4E3721A9B9A3F5F7CB44EAA3AD66CB
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13941.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13941.jpgsave_picture_13941.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:24791CB5CB6CBF9B831FD5E1A285F7F15D527F31
 >>Старые Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13942.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13942.jpgsave_picture_13942.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ NG. Игры разума / Brain Games (2011-2016) IPTVRip [H.264] (сезон�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13943.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13943.jpgsave_picture_13943.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:1111DF3A5BC221878D36A0C2D43FD40127AA805C
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13944.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13944.jpgsave_picture_13944.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:1DDA8CC156948290038AF809CB0E4ED168A2F025
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13945.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13945.jpgsave_picture_13945.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Thrive: Heavy Lies The Crown (2024) [Ru/Multi] (1.0.0203) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13946.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13946.jpgsave_picture_13946.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ magnet:?xt=urn:btih:54661AC5BBF71193BD03B7F870BB84BAA239EE61
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13947.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13947.jpgsave_picture_13947.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ magnet:?xt=urn:btih:7C21B5589E455691C14577EB4C28D6C5DB6E7170
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13948.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13948.jpgsave_picture_13948.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Slime Taoshite 300-nen, Shiranai Uchi ni Level Max ni Nattemashita 2 / Убив�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13949.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13949.jpgsave_picture_13949.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ magnet:?xt=urn:btih:FEA08A54CD73DB3E3B6E93EE518035AE7F49B71E
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13950.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13950.jpgsave_picture_13950.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Auslogics BoostSpeed 14.0.1.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13951.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13951.jpgsave_picture_13951.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ magnet:?xt=urn:btih:F22300AC9D575F4AEC9ACEAB00ACC5BCB7E40736
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13952.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13952.jpgsave_picture_13952.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ Auslogics SSD Optimizer 2.0.1.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13953.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13953.jpgsave_picture_13953.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ Everspace 2 (2021) [Ru/Multi] (1.4.48188 HotFix 3/dlc) License GOG
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13954.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13954.jpgsave_picture_13954.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Cultist Simulator (2018) [Ru/Multi] (2025.4.e.6/dlc) License GOG [Anthology Edit
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13955.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13955.jpgsave_picture_13955.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ magnet:?xt=urn:btih:E4F9B56CA1154ACF575838C88792AF7708A315FD
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13956.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13956.jpgsave_picture_13956.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ magnet:?xt=urn:btih:DFA70292439E1B1AC1848DD4D388799945A18CE5
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13957.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13957.jpgsave_picture_13957.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Firmament (2023) [Ru/Multi] (2.0.9) License GOG [VR]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13958.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13958.jpgsave_picture_13958.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ magnet:?xt=urn:btih:5F4B2E94605B3E360773C72AC704D69F0FBF1C82
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13959.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13959.jpgsave_picture_13959.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Heads Will Roll: Reforged (2023) [Ru/En] (2.07b/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13960.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13960.jpgsave_picture_13960.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Monster Prom 3: Monster Roadtrip (2022) [En] (2.17.a/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13961.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13961.jpgsave_picture_13961.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Windows 11 3in1 x64 24Н2 (build 26100.4351) by ivandubskoj 20.06.2025 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13962.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13962.jpgsave_picture_13962.jpg" />
 </div>
 
 

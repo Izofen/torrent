@@ -6,7 +6,7 @@
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113325.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113325.jpgsave_picture_113325.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Irene Dresel - Rose Fluo (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <House, Tech
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113326.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113326.jpgsave_picture_113326.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Alice Cooper - Dada (1983) [FLAC 24/96|Lossless|tracks] <Hard-Rock, Classic Rock
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113327.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113327.jpgsave_picture_113327.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Elan - School Party (1986) [FLAC 16/192|Lossless|tracks] <Pop Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113328.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113328.jpgsave_picture_113328.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Algebra - Feed The Ego (2014) [FLAC|Lossless|tracks + .cue] <Thrash Metal, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113329.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113329.jpgsave_picture_113329.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Multitrack Editor: Beat Mixer 1.0.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113330.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113330.jpgsave_picture_113330.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Almo - Reconciliation (2024) [MP3|320 Kbps] <Progressive Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113331.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113331.jpgsave_picture_113331.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ PowerPhotos 2.5.7 beta3 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113332.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113332.jpgsave_picture_113332.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ magnet:?xt=urn:btih:C9F1C37D702927EC511028CEA6E346CB508BD68D
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113333.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113333.jpgsave_picture_113333.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ John Coltrane - Sheets Of Sound (1962) 2CD, 2002, Snapper Music [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113334.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113334.jpgsave_picture_113334.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ magnet:?xt=urn:btih:DC2594F6B1A1E822C9B466118E561C7399A35555
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113335.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113335.jpgsave_picture_113335.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ magnet:?xt=urn:btih:D34199DDF158E897BE17BA5BF3704C119F7670A7
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113336.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113336.jpgsave_picture_113336.jpg" />
 </div>
 
 
@@ -317,7 +317,7 @@ VA - Вас поздравляют звёзды! (1990) [FLAC 24/192|Lossless|tr
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113337.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113337.jpgsave_picture_113337.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ magnet:?xt=urn:btih:941B09A9774DCE39C45A8297CC80046CE118DF0D
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113338.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113338.jpgsave_picture_113338.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ magnet:?xt=urn:btih:7455FFB71937AE571F0D0CEC632516AB136D9629
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113339.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113339.jpgsave_picture_113339.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ magnet:?xt=urn:btih:4BCAF74FD1A40A4EE01256B3C0D299EE5FC3E61B
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113340.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113340.jpgsave_picture_113340.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ magnet:?xt=urn:btih:5661E5F2677BEA7F75585BD01FFED670294D6952
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113341.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113341.jpgsave_picture_113341.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ magnet:?xt=urn:btih:B6033A420938598AEFAE29FC592E3276267F90FF
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113342.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113342.jpgsave_picture_113342.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ The Yardbirds/Jeff Beck - Beck's Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Blu
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113343.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113343.jpgsave_picture_113343.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Smooth Jazz Music Club, Chilled Jazz Masters - Erotic Jazz Bar: Sexy Evening wit
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113344.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113344.jpgsave_picture_113344.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ magnet:?xt=urn:btih:056B80A1C911A42E3F0510070E71BEB87A6633E9
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113345.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113345.jpgsave_picture_113345.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ magnet:?xt=urn:btih:AFAEEA98AEB7D6312EF2C92DBA81D3B981178052
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113346.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113346.jpgsave_picture_113346.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Naoya Matsuoka - Watermelon Dandies (1985) [FLAC|Lossless|tracks + .cue] <Fusion
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113347.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113347.jpgsave_picture_113347.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Sandboxie 5.68.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113348.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113348.jpgsave_picture_113348.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ magnet:?xt=urn:btih:07EE74AABDFFEE357FCD9D359824C9EDFA4501A1
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113349.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113349.jpgsave_picture_113349.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Athentech Perfectly Clear WorkBench for Mac 4.6.0 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113350.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113350.jpgsave_picture_113350.jpg" />
 </div>
 
 

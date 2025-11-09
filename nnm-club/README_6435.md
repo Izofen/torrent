@@ -6,7 +6,7 @@
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203999.jpgsave_picture_203999.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Criminal Expert (2023) [Multi] (1.4) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204000.jpgsave_picture_204000.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:E4630128B4B87243714D9D0C98DFA1085C1563C8
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204001.jpgsave_picture_204001.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:572985A62F88231D848A93B41B1ED813967B8CD0
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204002.jpgsave_picture_204002.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ magnet:?xt=urn:btih:88C31C54D651B77FEFAA74D8BF34692A644DA088
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204003.jpgsave_picture_204003.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ magnet:?xt=urn:btih:0580003FB55E3F7F01679F9C6B8AA4C3D65917AC
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204004.jpgsave_picture_204004.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ School of Motion, Nol Honig | After Effects Kickstart (2022) WEB-DL [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204005.jpgsave_picture_204005.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Sisters - Leecheater (2023) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204006.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204006.jpgsave_picture_204006.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ Kimvoronin, Ким Воронин | PowerPoint Ниндзя (2022) WEB-DL [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204007.jpgsave_picture_204007.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ Roy Haynes With Booker Ervin - Cracklin' (1963) 1994, Original Jazz Classics [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204008.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204008.jpgsave_picture_204008.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ magnet:?xt=urn:btih:23D6A6C0F96D53278FC01544E85DE4E483FA9E1E
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204009.jpgsave_picture_204009.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ Six of Swords - Regime Decay-Polar Vortex (2019) Compilation, Raw Skull Recordz 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204010.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204010.jpgsave_picture_204010.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ magnet:?xt=urn:btih:F57DA94A76C57ED9751423094D16F63A190495F0
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204011.jpgsave_picture_204011.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ Morpheus Project By Mustafa Khetty - Mozaick (2021) Deluxe Edition, 2022, Morphe
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204012.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204012.jpgsave_picture_204012.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ magnet:?xt=urn:btih:DDA5991F63539F018F971FE8977F1EE5150B56EC
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204013.jpgsave_picture_204013.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ Boxy SVG 4.10.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204014.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204014.jpgsave_picture_204014.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ magnet:?xt=urn:btih:779DD79D938C91D48191DFE98A43036C8E3624B3
 >>Аниме прочее
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204015.jpgsave_picture_204015.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Xfears - Reasons for Change (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Progre
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204016.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204016.jpgsave_picture_204016.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ Udemy, Victory 3D, Mieszko Lacinski | Create a Prop for VFX Pipeline with Maya, 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204017.jpgsave_picture_204017.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ Rito Verdugo - Kamikaze Boom (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Psych, 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204018.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204018.jpgsave_picture_204018.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ magnet:?xt=urn:btih:2EC90C58BF72A51669A07D1830A3966C0E6AA148
 >>На досуге
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204019.jpgsave_picture_204019.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Silence - Vision (1991) Reissue, 2021, Self-released [FLAC|Lossless|image + .cue
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204020.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204020.jpgsave_picture_204020.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ magnet:?xt=urn:btih:129066ECC197C9A6097F8CC07C54E4A37356DE29
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204021.jpgsave_picture_204021.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Creepshow - Creepshow (2023) [FLAC|Lossless|WEB-DL|tracks] <Black, Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204022.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204022.jpgsave_picture_204022.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ magnet:?xt=urn:btih:F8105091373D9C7F4415FA283E234EBDBC1513DA
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204024.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204024.jpgsave_picture_204024.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ magnet:?xt=urn:btih:ECDF28F0433E2ADB785B989C7D47386D0A00C8C6
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204025.jpgsave_picture_204025.jpg" />
 </div>
 
 

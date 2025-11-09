@@ -6,7 +6,7 @@ Aiseesoft Video Converter Ultimate 9.2.30 RePack (& Portable) by TryRooM  [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140235.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140235.jpgsave_picture_140235.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:2757FFC9DD329FC3080D8BE2252A9F319C5F2E99
 >>Новости P2P, Копирайт, Блокировки, Цензура
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140237.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140237.jpgsave_picture_140237.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:2757FFC9DD329FC3080D8BE2252A9F319C5F2E99
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140238.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140238.jpgsave_picture_140238.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:4EE686323BAF9A4D0B97BDAB2100359C345DCE12
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140239.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140239.jpgsave_picture_140239.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:2DB7ACC31A293B09AABC3C8DC30561801428BB46
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140240.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140240.jpgsave_picture_140240.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:2DB7ACC31A293B09AABC3C8DC30561801428BB46
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140241.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140241.jpgsave_picture_140241.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ CleanMyMac 3.3.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140242.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140242.jpgsave_picture_140242.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:58DD8699354301A27D22586157213D88C9622803
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140243.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140243.jpgsave_picture_140243.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:D4A507BE8585BA913238A3BBFA28E0B5B683336E
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140244.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140244.jpgsave_picture_140244.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ Absurd Minds - Gravitas (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <EBM, Elect
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140245.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140245.jpgsave_picture_140245.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ magnet:?xt=urn:btih:B972888759BEE32F730C158F5DD81CAFD1834335
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140246.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140246.jpgsave_picture_140246.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ V.A. - Big 80's Ballads (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140247.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140247.jpgsave_picture_140247.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ magnet:?xt=urn:btih:0162FABDAB7C3E7CCF8E7D40D0ED68D178C9C810
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140248.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140248.jpgsave_picture_140248.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ magnet:?xt=urn:btih:B3E1C273F35D321B526F0E21FA18DF2DFA551430
 >>История
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140249.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140249.jpgsave_picture_140249.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ magnet:?xt=urn:btih:1A2DBD9AFC72C5B0459C1E892338F0310B0A7094
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140250.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140250.jpgsave_picture_140250.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ magnet:?xt=urn:btih:7E9243695D539610C2C06F763F34B61FFBBC841C
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140251.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140251.jpgsave_picture_140251.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ magnet:?xt=urn:btih:83B5B6DA3DE1B3CA1B1CB584CB845425FCCA0F16
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140252.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140252.jpgsave_picture_140252.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ magnet:?xt=urn:btih:1514D8424FFF8888FBA7780C71EF450DB28962AF
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140253.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140253.jpgsave_picture_140253.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Yes - Richfield Coliseum 1978 (live) (1978) 2023 The Media Champ [FLAC|Lossless|
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140254.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140254.jpgsave_picture_140254.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ VA - Best of 2021: Rock [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140255.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140255.jpgsave_picture_140255.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ magnet:?xt=urn:btih:73263515CEBBCD0F9CBA390597F5A85DF26E0642
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140256.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140256.jpgsave_picture_140256.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ magnet:?xt=urn:btih:84A2395CE686E2F4451B25100E44AD244D7E9D20
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140257.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140257.jpgsave_picture_140257.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Comedy Баттл. Новый сезон / Комеди Клаб / Comedy Club  
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140258.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140258.jpgsave_picture_140258.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ Comet Lucifer | Комета Люцифера [2015, TV, 12 эп.] HDTVRip 720p 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140260.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140260.jpgsave_picture_140260.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ Udemy, Brad Traversy и др. | 50 проектов за 50 дней - HTML, CSS
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140261.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140261.jpgsave_picture_140261.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ Shinchou Yuusha: Kono Yuusha ga Ore Tueee Kuse ni Shinchou Sugiru | Этот г�
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140262.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140262.jpgsave_picture_140262.jpg" />
 </div>
 
 

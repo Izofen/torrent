@@ -6,7 +6,7 @@ Paulo Moura - Quarteto (1969) 2002, Atra[FLAC|tracks+.cue] <Post-Bop, World Fusi
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158705.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158705.jpgsave_picture_158705.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Atomic Kitten - Right Now (2001) [FLAC|Lossless|tracks + .cue] <Europop, Synth-p
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158706.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158706.jpgsave_picture_158706.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:17DE2CD5A4341B059C79C145F21BF447174396A8
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158707.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158707.jpgsave_picture_158707.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:6CAA3428D358FB53FD791B984BBDA5180D1ACF44
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158708.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158708.jpgsave_picture_158708.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ magnet:?xt=urn:btih:8D5D0ED0D29F45584189654888443734D70157CA
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158709.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158709.jpgsave_picture_158709.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ magnet:?xt=urn:btih:8D7A2C33E09757F3112C39DD52DBA6194BCD2185
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158710.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158710.jpgsave_picture_158710.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ magnet:?xt=urn:btih:505E1A0BAD5276FABBD3332EFDF168EBBB887933
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158711.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158711.jpgsave_picture_158711.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ VA - Blue Note Live At The Roxy Vol.2 (Carmen McRae, Earl Klugh, Gerry Brown, Ge
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158712.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158712.jpgsave_picture_158712.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ Janet Jackson - Janet Jackson (1982) [FLAC|Lossless|tracks + .cue] <Funk, Disco>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158713.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158713.jpgsave_picture_158713.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ magnet:?xt=urn:btih:CBB98FC0F0F4292E9C2FBEB97A91BDF01A6A8334
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158714.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158714.jpgsave_picture_158714.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ magnet:?xt=urn:btih:E953F4F4B230ED17BF2E95D2AD60E1A1D8D4C26C
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158715.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158715.jpgsave_picture_158715.jpg" />
 </div>
 
 
@@ -291,7 +291,7 @@ Anna Rudolph - Alter Ego (2015) [MP3|320 кб/с] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158716.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158716.jpgsave_picture_158716.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Rainbow Suzy - Nature's Treasures (2015) [MP3|320 кб/с] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158717.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158717.jpgsave_picture_158717.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ magnet:?xt=urn:btih:CCC3D41F209F7E27119AD8D0DAEEE01B7CA85BFE
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158718.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158718.jpgsave_picture_158718.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ magnet:?xt=urn:btih:6FF45F8998F0CE1D4148371B1C5044A670309D61
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158719.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158719.jpgsave_picture_158719.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ Redshift 3.5.19  for Cinema 4D [En]
 >>10
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158720.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158720.jpgsave_picture_158720.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ Dusk (2018) [Ru/Multi] (1.8.25/dlc) License GOG [Intruder Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158721.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158721.jpgsave_picture_158721.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ magnet:?xt=urn:btih:DA634C0BFF118273DE84B79B6066B8ED1B83F2E3
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158722.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158722.jpgsave_picture_158722.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Skillbox, Дмитрий Зайцев, Константин Брюханов | �
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158723.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158723.jpgsave_picture_158723.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Eassiy Android Data Recovery for Mac 5.1.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158724.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158724.jpgsave_picture_158724.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ magnet:?xt=urn:btih:2A58725857E33F855C2DDC24B553D6B963BB0945
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158725.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158725.jpgsave_picture_158725.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Stats 2.8.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158726.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158726.jpgsave_picture_158726.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ magnet:?xt=urn:btih:64E143CD7672F5FE0C0F355870E4FD75536EE0BD
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158727.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158727.jpgsave_picture_158727.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ magnet:?xt=urn:btih:4AA4E4A5982775932553AFBEC507471EF1A88217
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158728.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158728.jpgsave_picture_158728.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ magnet:?xt=urn:btih:970574844487DB83E8B181CF87EC6A4ED98CE12A
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158729.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158729.jpgsave_picture_158729.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ Feelingless - Metal Against Animal Cruelty (2022) [FLAC|Lossless|WEB-DL|tracks] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158730.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158730.jpgsave_picture_158730.jpg" />
 </div>
 
 

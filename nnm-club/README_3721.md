@@ -6,7 +6,7 @@ GRAVEN (2021) [Ru/Multi] (16864) License GOG [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117121.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117121.jpgsave_picture_117121.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:10DC0B6C15BF7DC80B3B896DB15665B06772103A
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117122.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117122.jpgsave_picture_117122.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ SolidWorks 2024 SP1.0 Premium RePack by xetrin [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117123.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117123.jpgsave_picture_117123.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:43B62B4685BB4717FB0FE7EB5183760D8C61852E
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117124.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117124.jpgsave_picture_117124.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Terminator: Resistance (2019) [Ru/Multi] (1.0/dlc) Repack Decepticon
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117125.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117125.jpgsave_picture_117125.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:09FA55BE7774647DD8BECD23DA98AC49118AC122
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117126.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117126.jpgsave_picture_117126.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Tomb Raider I-III Remastered Starring Lara Croft (2024) [Ru/Multi] (1.0) Repack 
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117127.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117127.jpgsave_picture_117127.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:6ABA7D49EF568F373721E1D813B8A1EA6CF2C27A
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117128.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117128.jpgsave_picture_117128.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:3B2F4C3E696DAD79C1B3042359D49F88D73D3665
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117129.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117129.jpgsave_picture_117129.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ magnet:?xt=urn:btih:A2A8AE4A1D5D00C2976385645F4DB6ECF3B28045
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117130.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117130.jpgsave_picture_117130.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Adguard for Mac 2.13.0 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117131.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117131.jpgsave_picture_117131.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ magnet:?xt=urn:btih:4953A3733173E2FFE087C627A2602C9321594AB4
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117132.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117132.jpgsave_picture_117132.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ magnet:?xt=urn:btih:5F941422BDB6EE77D5726438006649A3BAAB5DB1
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117133.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117133.jpgsave_picture_117133.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ DNS Changer - Secure VPN Proxy v1321-2r Pro Mod by derrin [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117134.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117134.jpgsave_picture_117134.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ magnet:?xt=urn:btih:2C5E05CD58886104060EE55AFDC27D4B844B45F8
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117135.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117135.jpgsave_picture_117135.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ magnet:?xt=urn:btih:81B0594CBCCFC384C0A61FFFF228801BFFBD67BE
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117136.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117136.jpgsave_picture_117136.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ Idles - Tangk (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117137.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117137.jpgsave_picture_117137.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ WeatherCat for Mac 3.2.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117138.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117138.jpgsave_picture_117138.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:1444F8681EA7F7F40DEAD2CE0480C2D93E94ACFD
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117139.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117139.jpgsave_picture_117139.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Fork 2.40 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117140.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117140.jpgsave_picture_117140.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Svend Asmussen - Spotlight (1991) Sonet [FLAC|Lossless|tracks + .cue] <Swing, Vi
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117141.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117141.jpgsave_picture_117141.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ Lost World Order - Studio Albums (4 releases) (2008-2016) hand made [restored, d
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117142.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117142.jpgsave_picture_117142.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ magnet:?xt=urn:btih:99183AA6CB3511A05835BBD7020EBAF0419F116A
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117143.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117143.jpgsave_picture_117143.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ NCH DreamPlan Plus for Mac 9.09 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117144.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117144.jpgsave_picture_117144.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ Donald Byrd & Kenny Burrell - All Night Long (1956) 2003, Original Jazz Classics
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117145.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117145.jpgsave_picture_117145.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ Ray Drummond - Excursion (1993) Arabesque Jazz [FLAC|Lossless|image + .cue] <Pos
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117146.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117146.jpgsave_picture_117146.jpg" />
 </div>
 
 

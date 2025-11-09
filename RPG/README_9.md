@@ -6,7 +6,7 @@ Elden Ring Nightreign (2025) [Ru/Multi] (1.01/dlc) Repack FitGirl [Deluxe Editio
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16316.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16316.jpgsave_picture_16316.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Artifact Seeker Resurrection (2024) [Ru/Multi] (1.4.12/dlc) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16343.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16343.jpgsave_picture_16343.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Warhammer 40,000: Space Marine 2 (2024) [Ru/Multi] (7.2.0.1/dlc) Repack seleZen 
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16397.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16397.jpgsave_picture_16397.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Fuga: Melodies of Steel 3 (2025) [Multi] (Build 29182614) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16575.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16575.jpgsave_picture_16575.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Immortal Hunters (2025) [Ru/Multi] (0.1.1681.9f4ce919) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16599.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16599.jpgsave_picture_16599.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Dark Souls II (2): Scholar of the First Sin (2015) [Ru/Multi] (1.03/dlc) Repack 
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16693.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16693.jpgsave_picture_16693.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ The Axis Unseen (2024) [Ru/Multi] (1.11a) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16774.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16774.jpgsave_picture_16774.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ King Arthur: Legion IX (2024) [Ru/Multi] (1.0.0C) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16791.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16791.jpgsave_picture_16791.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ King Arthur: Knight's Tale (2022) [Ru/Multi] (2.0.1/dlc) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16802.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16802.jpgsave_picture_16802.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Core Keeper (2022) [Ru/Multi] (1.1.2.1) Repack Pioneer
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16891.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16891.jpgsave_picture_16891.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Skelethrone: The Chronicles of Ericona (2024) [Ru/Multi] (1.5.5.0/dlc) Repack Le
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16917.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16917.jpgsave_picture_16917.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Zoria: Age of Shattering (2024) [Multi] (1.1.8/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16926.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16926.jpgsave_picture_16926.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Fabled Lands (2022) [En] (2.1.4/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16928.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16928.jpgsave_picture_16928.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Dragon Quest III (3) HD-2D Remake (2024) [Multi] (1.2.0.0 Build 18186891/dlc) Sc
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17020.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17020.jpgsave_picture_17020.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Survive the Fall (2025) [Ru/Multi] (1.0.1.2364/dlc) Repack FitGirl [Ultimate Edi
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17041.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17041.jpgsave_picture_17041.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Fable Anniversary (2014) [Ru/En] (1.0.8767.0/dlc) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17051.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17051.jpgsave_picture_17051.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Twilight Wars (2025) [Ru/Multi] (1.0.0) Repack seleZen
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17055.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17055.jpgsave_picture_17055.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Tainted Grail: The Fall of Avalon (2023) [Ru/Multi] (1.0/dlc) Repack FitGirl [Su
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17076.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17076.jpgsave_picture_17076.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Sea of Stars (2023) [Ru/Multi] (2.0.58728/dlc) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17279.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17279.jpgsave_picture_17279.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Survive the Fall (2025) [Ru/Multi] (1.0.1.2364/dlc) Repack seleZen
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17320.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17320.jpgsave_picture_17320.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ FANTASIAN Neo Dimension (2024) [Multi] (29100132/dlc) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17404.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17404.jpgsave_picture_17404.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Dwarven Realms (2022) [Ru/Multi] (1.4.2) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17438.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17438.jpgsave_picture_17438.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Ai Limit (2025) [Ru/Multi] (1.0.022/dlc) Repack FitGirl [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17470.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17470.jpgsave_picture_17470.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Tales and Tactics / Tales & Tactics (2023) [Ru/Multi] (1.1.03) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17615.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17615.jpgsave_picture_17615.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Zoria: Age of Shattering (2024) [Ru/Multi] (1.1.8/dlc) Repack Let'sРlay [Deluxe
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17622.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17622.jpgsave_picture_17622.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Dark Souls: Remastered (2018) [Ru/Multi] (1.03.1) Repack seleZen
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17699.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17699.jpgsave_picture_17699.jpg" />
 </div>
 
 

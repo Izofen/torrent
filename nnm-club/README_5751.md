@@ -6,7 +6,7 @@ Blue Mountain Tribe - Oh Great Warrior (2022) [FLAC|Lossless|WEB-DL|tracks] <Blu
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178105.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178105.jpgsave_picture_178105.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Ashampoo UnInstaller 12.00.12 (DC 18.09.2023) RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178107.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178107.jpgsave_picture_178107.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Files Inspector Pro 3.40 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_178109.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_178109.jpgsave_picture_178109.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:E845104158930C55C50C72B11666B4680C4E63FF
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178110.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178110.jpgsave_picture_178110.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ magnet:?xt=urn:btih:A4B37F77CB749DE60636DBDB19631C7E5E6157C9
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178113.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178113.jpgsave_picture_178113.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ Durham County Poets - Out of the Woods (2022) [FLAC|Lossless|WEB-DL|tracks] <Blu
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178114.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178114.jpgsave_picture_178114.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ Fitify: Фитнес тренировки дома 1.57.0 Mod by Balatan [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_178117.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_178117.jpgsave_picture_178117.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ Hashishian - Hashishian (2022) [MP3|320 Kbps] <Psych, Doom, Stoner, Desert>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178119.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178119.jpgsave_picture_178119.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ magnet:?xt=urn:btih:D14522CEB6C3AB61CAD70A08C1BF6D3CDF2ED831
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178121.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178121.jpgsave_picture_178121.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ Sandra Malta - Empty Blues (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178123.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178123.jpgsave_picture_178123.jpg" />
 </div>
 
 
@@ -262,7 +262,7 @@ Kai Strauss - Night Shift (2022) [FLAC|Lossless|WEB-DL|tracks] <Electric Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178125.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178125.jpgsave_picture_178125.jpg" />
 </div>
 
 
@@ -289,7 +289,7 @@ Van Halen - The Collection II (2023) Remaster [FLAC 24/96|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_178126.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_178126.jpgsave_picture_178126.jpg" />
 </div>
 
 
@@ -316,7 +316,7 @@ Kody West - Circles (2022) [MP3|320 Kbps] <Alternative Rock, Post-Grunge>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_178129.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_178129.jpgsave_picture_178129.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ magnet:?xt=urn:btih:416021650502ABB07259F3CFBC7729DFC8E868FB
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178131.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178131.jpgsave_picture_178131.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ Mutter Slater Band - The Masquerade (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues,
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178134.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178134.jpgsave_picture_178134.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ magnet:?xt=urn:btih:77757A98F05E3DD965D5E20041BD4CE5C256023E
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178135.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178135.jpgsave_picture_178135.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ Soft Organizer Pro 9.41 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178137.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178137.jpgsave_picture_178137.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ The Wicked Lo-Down - We Hot (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178139.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178139.jpgsave_picture_178139.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ EssentialPIM Pro 11.7.1 RePack (& portable) by elchupacabra[Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178142.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178142.jpgsave_picture_178142.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Macrorit Partition Expert 8.0.0 Unlimited Edition RePack (& Portable) by TryRooM
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_178145.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_178145.jpgsave_picture_178145.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ DesktopDigitalClock 5.05 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178147.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178147.jpgsave_picture_178147.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ Halloween Stories 7: Written in Blood (2023) [En] (1.0) Unofficial [Collector's 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178150.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178150.jpgsave_picture_178150.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ magnet:?xt=urn:btih:6B5B615FEE8A90EE6D06BDE10CDB9B8444DFA48D
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178154.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178154.jpgsave_picture_178154.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ White Wizzard - Infernal Overdrive (2018) Japan [WavPack|Lossless|image + .cue] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178156.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178156.jpgsave_picture_178156.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ magnet:?xt=urn:btih:31AA48E35350E0DA4E199C2F94C3F3B9C8A236C0
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178157.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178157.jpgsave_picture_178157.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ Sara Bae - Deep South (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178159.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178159.jpgsave_picture_178159.jpg" />
 </div>
 
 

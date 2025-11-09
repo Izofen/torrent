@@ -6,7 +6,7 @@ DNS Changer 2.1.11 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172068.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172068.jpgsave_picture_172068.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:3DB763B04D723E87A10DAD3281C8728E559D2614
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172069.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172069.jpgsave_picture_172069.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Fort Firewall 3.10.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172070.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172070.jpgsave_picture_172070.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:6FE4448E1FDF85EB3781FFC6426BB8DCB25C9CFB
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172071.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172071.jpgsave_picture_172071.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Then Comes The Night - Start the Change (2023) [FLAC|Lossless|WEB-DL|tracks] <He
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172072.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172072.jpgsave_picture_172072.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:DEA849BEE1B6787C3D864363D56EA32EABAD4133
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172073.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172073.jpgsave_picture_172073.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:A93BE29CB19A38121B4F64F5DAD7ACF51C42FE56
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172074.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172074.jpgsave_picture_172074.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:C4956BAE545C0807A7924AD004D44AB9C64BFCAE
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172075.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172075.jpgsave_picture_172075.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:5610D17522F9ACC137DC69390E9E463CD388C772
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172076.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172076.jpgsave_picture_172076.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ magnet:?xt=urn:btih:F9D447D8E1E6683019C7148913164F3FA0D1FED0
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172077.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172077.jpgsave_picture_172077.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ Limora - Compilation (2023) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172078.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172078.jpgsave_picture_172078.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ VA - Music News vol.307 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172079.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172079.jpgsave_picture_172079.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ Calibre 6.29.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172080.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172080.jpgsave_picture_172080.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ VA - Любовь всегда права (2023) Посвящение Алекс
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172081.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172081.jpgsave_picture_172081.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ Glarysoft Malware Hunter PRO 1.173.0.791 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172082.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172082.jpgsave_picture_172082.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ magnet:?xt=urn:btih:6E6503B3C4D3BD9BCCC10B55F590ECE176697E99
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172083.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172083.jpgsave_picture_172083.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ magnet:?xt=urn:btih:5E1518D679023B01BD40800CDE08E7B09A4A55E6
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172084.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172084.jpgsave_picture_172084.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ magnet:?xt=urn:btih:3CDBF20DDD6861F89F2A900D3D674B580767DAB9
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172085.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172085.jpgsave_picture_172085.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ VA - Music News vol.308 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172086.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172086.jpgsave_picture_172086.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ EssentialPIM Pro 11.7.2 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172087.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172087.jpgsave_picture_172087.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ AIDA64 Extreme Edition 6.92.6616 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172088.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172088.jpgsave_picture_172088.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ VA - Italo 2000 - Italo Rarities Vol. 3 (2000) 2 CD [OGG Vorbis|480 Kbps] <Elect
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172089.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172089.jpgsave_picture_172089.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ magnet:?xt=urn:btih:A2C9D733667B94F667E17CF6EF5C8C79AA5DD7EA
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172090.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172090.jpgsave_picture_172090.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Viber 21.2.0.3 (x64) RePack (Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172091.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172091.jpgsave_picture_172091.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ VA - Italo 2000 - Italo Rarities Vol. 2 (1998) 2 CD [OGG Vorbis|480 Kbps] <Elect
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172092.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172092.jpgsave_picture_172092.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ Nitro Pro 14.15.0.5 Enterprise RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172093.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172093.jpgsave_picture_172093.jpg" />
 </div>
 
 

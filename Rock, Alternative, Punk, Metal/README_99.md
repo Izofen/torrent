@@ -6,7 +6,7 @@ Avi Rosenfeld & Juan Bach - Bz Dz Purple Snake (2024) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103426.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103426.jpgsave_picture_103426.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Various Artists - ANA - Metal for Charity Project (2017) [FLAC|Lossless|WEB-DL|t
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103427.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103427.jpgsave_picture_103427.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Danger Zone - Shut Up! (2024) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103438.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103438.jpgsave_picture_103438.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Heartwind - Heartwind III (2024) [FLAC|Lossless|image + .cue] <Melodic Hard Rock
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103440.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103440.jpgsave_picture_103440.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Unwanted Guest - Bonedead (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Har
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103441.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103441.jpgsave_picture_103441.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Winding Road - Fill My Sails (2024) [FLAC|Lossless|image + .cue] <Melodic Rock, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103449.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103449.jpgsave_picture_103449.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Pinnacle Point - Winds Of Change (2017) [FLAC|Lossless|image + .cue] <Progressiv
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103452.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103452.jpgsave_picture_103452.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Entering Polaris - Myths In Motion (2024) [FLAC|Lossless|WEB-DL|tracks] <Progres
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103456.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103456.jpgsave_picture_103456.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Lankester Merrin - Dark Mother's Child (2024) [FLAC|Lossless|WEB-DL|tracks] <Mel
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103481.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103481.jpgsave_picture_103481.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Casandra's Crossing - Garden Of Earthly Delights (2024) [FLAC|Lossless|WEB-DL|tr
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103482.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103482.jpgsave_picture_103482.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Nitrogods - Valley Of The Gods (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103486.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103486.jpgsave_picture_103486.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Moonrise - Under The Flight Crows (2011) [FLAC|Lossless|image + .cue] <Melodic D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103494.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103494.jpgsave_picture_103494.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Starcrazy - Starcrazy (2024) [FLAC|Lossless|WEB-DL|tracks] <Glam Rock, Hard Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103496.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103496.jpgsave_picture_103496.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Mother's Cake - Ultrabliss (2024) [FLAC|Lossless|WEB-DL|tracks] <Progresive, Spa
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103497.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103497.jpgsave_picture_103497.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Beorn - Time To Dare (2015) [FLAC|Lossless|image + .cue] <Symphonic Power Metal>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103499.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103499.jpgsave_picture_103499.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Bite The Bullet - Looking For Paradise (2024) [FLAC|Lossless|image + .cue] <Melo
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103500.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103500.jpgsave_picture_103500.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Jim Peterik & World Stage - Roots & Shoots Volume Two (2024) [FLAC|Lossless|imag
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103501.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103501.jpgsave_picture_103501.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Beltane - Jera (2007) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103506.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103506.jpgsave_picture_103506.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Aeonblack - Metal Bound (2024) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103533.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103533.jpgsave_picture_103533.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Stephan Georg - Blood Of The Witches (2024) [MP3|320 Kbps] <Hard & Heavy>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103567.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103567.jpgsave_picture_103567.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Veonity - The Final Element (2024) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103573.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103573.jpgsave_picture_103573.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ DGM - Endless (2024) [MP3|320 Kbps] <Progressive Metal, Heavy Prog>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103582.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103582.jpgsave_picture_103582.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ magnet:?xt=urn:btih:76A39474B655A9229475F8D42B0B55946DC66DEE
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103583.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103583.jpgsave_picture_103583.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ magnet:?xt=urn:btih:F764C501B00E02F7696E162020127B1F5E1F05CC
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103584.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103584.jpgsave_picture_103584.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Aries Descendant - From The Ashes Of Deceit (2024) [FLAC|Lossless|WEB-DL|tracks]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103585.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103585.jpgsave_picture_103585.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Fate - Reconnect N' Ignite (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103589.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103589.jpgsave_picture_103589.jpg" />
 </div>
 
 

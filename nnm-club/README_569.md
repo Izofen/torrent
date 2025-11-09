@@ -6,7 +6,7 @@
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15105.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15105.jpgsave_picture_15105.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Zoeti (2023) [Multi] (1.2.4) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15106.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15106.jpgsave_picture_15106.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:82F37FD123B4072E6896D776CDB6920F15009A76
 >>9
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15107.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15107.jpgsave_picture_15107.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ The Sinking City (2019) [Ru/Multi] (58246/dlc) License GOG [Remastered Deluxe Ed
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15108.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15108.jpgsave_picture_15108.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:C16A8632E7C279EBCD7AC1E749A30CFDBFE89C5D
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15109.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15109.jpgsave_picture_15109.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:3616C37638C4E17B9DA4F9492EC4EAF74FEF1815
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15110.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15110.jpgsave_picture_15110.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Charlie Musselwhite - 35 Albums (1967 - 2025) 36 CD [FLAC|Lossless|image + .cue|
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15111.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15111.jpgsave_picture_15111.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:7803048FB6236411369375AD7026B0294F65529E
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15112.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15112.jpgsave_picture_15112.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ The Talos Principle: Reawakened (2025) [Ru/Multi] (1.01b 731056) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15113.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15113.jpgsave_picture_15113.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ magnet:?xt=urn:btih:367E27DE8E514D9437859A9E3E2E96AC96C15DA7
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15114.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15114.jpgsave_picture_15114.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ magnet:?xt=urn:btih:86942E2788B2218FFE1630ADDD62C928B6A7006D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15115.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15115.jpgsave_picture_15115.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ magnet:?xt=urn:btih:25C5BAF8CF6A7E3596986ED3D5C2BEBA79616705
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15116.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15116.jpgsave_picture_15116.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ magnet:?xt=urn:btih:E52FF5B842144899623DEC593F857EE9652F9927
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15117.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15117.jpgsave_picture_15117.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ magnet:?xt=urn:btih:AAE289935775ED12B93D9FECC4C40F0886B4A517
 >>Песочница ПО и сборок Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15118.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15118.jpgsave_picture_15118.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ magnet:?xt=urn:btih:0BCD5F4D6BB03EB0EDC6AB2E49ADBEA4E55FE4E8
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15119.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15119.jpgsave_picture_15119.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ AmneziaWG 1.1.2 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15120.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15120.jpgsave_picture_15120.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ magnet:?xt=urn:btih:F9C070C7D7C24FDF320E6CA6C6554D3ADF830D55
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15121.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15121.jpgsave_picture_15121.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ magnet:?xt=urn:btih:CBA9749C149DDE46CE42C2A1377D883F713B1860
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15122.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15122.jpgsave_picture_15122.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ magnet:?xt=urn:btih:3B0D8F5D7DFF77248DF8F7F2DAD3EAD505A95C97
 >>Пользователи NNM-Club рекомендуют!
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15123.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15123.jpgsave_picture_15123.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Sanctorium - Studio Albums (3 releases) (2014-2024) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15124.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15124.jpgsave_picture_15124.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Dungeon no Naka no Hito | Dungeon People | Люди подземелья [2024, 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15125.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15125.jpgsave_picture_15125.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ Hataraku Saibou Black | Cells at Work! Code Black | Клетки за работ
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15126.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15126.jpgsave_picture_15126.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ Tsuki ga Michibiku Isekai Douchuu | Tsukimichi: Moonlit Fantasy | Лунное �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15127.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15127.jpgsave_picture_15127.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Tearmoon Teikoku Monogatari: Dantoudai kara Hajimaru, Hime no Tensei Gyakuten St
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15128.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15128.jpgsave_picture_15128.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ Charlie Musselwhite - Look Out Highway (2025) [FLAC|Lossless|tracks + .cue] <Har
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15129.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15129.jpgsave_picture_15129.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ EverEve - .Enetics (2003) 2 x CD, Deluxe Edition, Limited Edition [FLAC|Lossless
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15130.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15130.jpgsave_picture_15130.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Skillet - Revolution (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock, Hard Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38679.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38679.jpgsave_picture_38679.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ D16 Group - Lush 2 2.0.2 VSTi, VSTi 3, AAX (x86/x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38680.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38680.jpgsave_picture_38680.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ magnet:?xt=urn:btih:777118EA3233A67DB010126113EBFC0E421476F3
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38681.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38681.jpgsave_picture_38681.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ AudioLab v1.2.37 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38682.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38682.jpgsave_picture_38682.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ Hatchet - Studio Albums (5 releases) (2008-2024) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38683.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38683.jpgsave_picture_38683.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ VA - Tropical Sound Scapes (2024) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38684.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38684.jpgsave_picture_38684.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ magnet:?xt=urn:btih:81EE796AAC40659B17882081DA81A3738FFE5D3A
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38685.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38685.jpgsave_picture_38685.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ GForce - Oddity3 1.1.0 STANDALONE, VSTi, VSTi 3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38686.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38686.jpgsave_picture_38686.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ Valentin Lezjenda’s Speed Of Darkness - 3 Альбома (2017-2021) [MP3|320 
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38687.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38687.jpgsave_picture_38687.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ magnet:?xt=urn:btih:6FB12622783F9593EBCE3EEF57162B5A78F1DE2B
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38688.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38688.jpgsave_picture_38688.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ magnet:?xt=urn:btih:081E78D4D013144D3B357ED583CE7B78B136A72C
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38689.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38689.jpgsave_picture_38689.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ Brothers of Metal - Fimbulvinter (2024) [FLAC|Lossless|WEB-DL|tracks] <Power Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38690.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38690.jpgsave_picture_38690.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ magnet:?xt=urn:btih:9E7D6E58D14F105BCD614040815265722CACF3BE
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38691.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38691.jpgsave_picture_38691.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ VA - Anjunabeats Essentials 02 (DJ Mix) (2024) [MP3|320 Kbps] <Progressive House
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38692.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38692.jpgsave_picture_38692.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ The Spirit - Songs Against Humanity (2024) [FLAC|Lossless|WEB-DL|tracks] <Black 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38693.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38693.jpgsave_picture_38693.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ Bombus - Your Blood (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Hard Rock
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38694.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38694.jpgsave_picture_38694.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ VA - Nothing But... Trancetopia Vol. 20 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38695.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38695.jpgsave_picture_38695.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ The Crown - Crown of Thorns (2024) Japanese Edition [FLAC|Lossless|image + .cue]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38696.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38696.jpgsave_picture_38696.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Antipope - Doors of the Dead (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38697.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38697.jpgsave_picture_38697.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Haliphron - Anatomy Of Darkness (2024) [FLAC|Lossless|WEB-DL|tracks] <Symphonic 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38698.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38698.jpgsave_picture_38698.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ Dead Icarus - Zealot (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Metal
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38699.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38699.jpgsave_picture_38699.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ Giuffria - Giuffria (1984) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Arena Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38700.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38700.jpgsave_picture_38700.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ Charles Tolliver - The Ringer (1969) 1992, Black Lion Records [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38701.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38701.jpgsave_picture_38701.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ magnet:?xt=urn:btih:B002BBD16D8144BD432802814E1B57BF5E9FFF0E
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38702.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38702.jpgsave_picture_38702.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ magnet:?xt=urn:btih:267B84DD002AD1568BA8E474E9B8CD11B994F1EC
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38703.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38703.jpgsave_picture_38703.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ magnet:?xt=urn:btih:480C54CE06BB0B8EBB900487867DE52C734A08BE
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38704.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38704.jpgsave_picture_38704.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52059.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52059.jpgsave_picture_52059.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Led Zeppelin - Live EP (2025) Japanese Edition [FLAC|Lossless|image + .cue] <Har
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52060.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52060.jpgsave_picture_52060.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:15763F6FBA7C270CB1CF3DDEFB2504B4A32613B1
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52132.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52132.jpgsave_picture_52132.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:4B6181C0E9D37D120C3E94903B54D2B28D558FDA
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52206.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52206.jpgsave_picture_52206.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ R.E.M. - Live from the Pyramid Stage, Glastonbury Festival, June 25, 1999 (2024)
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52219.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52219.jpgsave_picture_52219.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Robert Plant - Higher Rock (A Robert Plant Compilation) (2025) [FLAC|Lossless|tr
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52270.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52270.jpgsave_picture_52270.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ magnet:?xt=urn:btih:E69B15CF6E56EDD1C6853A4D68D4E0839B65BADA
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52370.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52370.jpgsave_picture_52370.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ magnet:?xt=urn:btih:BF5DFCDE232F470A377DD4B2375FF8C2A9C3BCE3
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52426.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52426.jpgsave_picture_52426.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ magnet:?xt=urn:btih:EBA5654575C2F345E79C751F8021DDF7840F63AA
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52468.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52468.jpgsave_picture_52468.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Mark Knopfler - People... (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52575.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52575.jpgsave_picture_52575.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:6F5C54B25D3BD97F0D208459D9D457F3D9EF494F
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52654.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52654.jpgsave_picture_52654.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ Heart – 4 Albums (1976-1993) [FLAC|Lossless|tracks + .cue] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52772.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52772.jpgsave_picture_52772.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ magnet:?xt=urn:btih:A043499D315B9D18F1ADB0C8A682B9C1B0CFAF45
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52784.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52784.jpgsave_picture_52784.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ Led Zeppelin - Remasters (1990) Japanese Edition, 2 x CD, Compilation, Reissue, 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53006.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53006.jpgsave_picture_53006.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ Millennial Reign - World On Fire (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic P
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53197.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53197.jpgsave_picture_53197.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Human Zoo - Echoes Beyond (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53304.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53304.jpgsave_picture_53304.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Axel Rudi Pell - Risen Symbol (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Heav
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53406.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53406.jpgsave_picture_53406.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Black Country Communion - V (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53410.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53410.jpgsave_picture_53410.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Strength And Sanity - Waking Light Goodbye (2023) [FLAC|Lossless|WEB-DL|tracks] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53412.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53412.jpgsave_picture_53412.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Astral Magic - Shadows Over Jupiter Remixed (2024) [MP3|320 Kbps] <Psychedelic, 
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53415.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53415.jpgsave_picture_53415.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ Legion Of The Damned - Poisen Chalice (2023) 2 x CD [FLAC|Lossless|image + .cue]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53420.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53420.jpgsave_picture_53420.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ Axel Rudi Pell - Risen Symbol (2024) [MP3|320 Kbps] <Melodic Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53433.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53433.jpgsave_picture_53433.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ Black Country Communion - V (2024) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53434.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53434.jpgsave_picture_53434.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ Mark Knopfler - ...And Places (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53468.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53468.jpgsave_picture_53468.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ Deep Purple - Pictures of You (2024) EP [FLAC|Lossless|WEB-DL|tracks] <Hard Rock
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53538.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53538.jpgsave_picture_53538.jpg" />
 </div>
 
 
@@ -682,7 +682,7 @@ Cactus - Temple Of Blues - Influences & Friends (2024) [FLAC|Lossless|image + .c
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53608.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53608.jpgsave_picture_53608.jpg" />
 </div>
 
 

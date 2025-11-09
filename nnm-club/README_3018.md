@@ -6,7 +6,7 @@
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_92124.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_92124.jpgsave_picture_92124.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:D8E150FA858246C4FFEBBEDDF4E278AFA61F85AD
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_92205.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_92205.jpgsave_picture_92205.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:02BADE6997199B62D006E5446CA4F0D6E73BE90B
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_92328.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_92328.jpgsave_picture_92328.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:6303AF69F16C7ABC43778C137EB74500B09ECBA7
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_92351.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_92351.jpgsave_picture_92351.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:A6D72B06AB41B8ADEF1A097BC9D2694E876D9562
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_92384.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_92384.jpgsave_picture_92384.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:5FAFB89FAECC5D30766CAFADDC20C67127A240F2
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_92391.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_92391.jpgsave_picture_92391.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:5FAFB89FAECC5D30766CAFADDC20C67127A240F2
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_92396.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_92396.jpgsave_picture_92396.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:5FAFB89FAECC5D30766CAFADDC20C67127A240F2
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_92397.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_92397.jpgsave_picture_92397.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ magnet:?xt=urn:btih:5FAFB89FAECC5D30766CAFADDC20C67127A240F2
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_92399.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_92399.jpgsave_picture_92399.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ magnet:?xt=urn:btih:5FAFB89FAECC5D30766CAFADDC20C67127A240F2
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_92452.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_92452.jpgsave_picture_92452.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ magnet:?xt=urn:btih:F52C215C4940011DB4FE9C40D80828DF7FAA4E13
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_92487.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_92487.jpgsave_picture_92487.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ NG: Совершенно секретно. Секретная служба СШ�
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_92537.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_92537.jpgsave_picture_92537.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ magnet:?xt=urn:btih:94E61A00060D09979A0228BF9E1E8A3B3866CAB2
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_92542.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_92542.jpgsave_picture_92542.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:87272A7F8BC5617170175F6AB4AAB414B8D32C28
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_92553.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_92553.jpgsave_picture_92553.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ magnet:?xt=urn:btih:6702A406881E48565E24A4D512685AAE02313D64
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_92554.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_92554.jpgsave_picture_92554.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ NG: Загадки истории: Исчезнувшие из Алькатра�
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_92571.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_92571.jpgsave_picture_92571.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ magnet:?xt=urn:btih:8D4FC86DF81FE39D9968E658BB2EBB526ADABF8C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_92576.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_92576.jpgsave_picture_92576.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ magnet:?xt=urn:btih:1F04353B9904A1D8E366A365924B0A87EA3DBB95
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_92606.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_92606.jpgsave_picture_92606.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ magnet:?xt=urn:btih:619BFC5287174F3D8742C3EC2B1852245AF83180
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_92659.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_92659.jpgsave_picture_92659.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ magnet:?xt=urn:btih:619BFC5287174F3D8742C3EC2B1852245AF83180
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_92662.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_92662.jpgsave_picture_92662.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Like Wendy - Rainchild (1999) [FLAC|Lossless]<Progressive Rock>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_92695.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_92695.jpgsave_picture_92695.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Like Wendy - Rainchild (1999) [FLAC|Lossless]<Progressive Rock>
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_92713.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_92713.jpgsave_picture_92713.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ magnet:?xt=urn:btih:2D2A1C893761B19E813382D1FB5FAB770D654811
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_92748.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_92748.jpgsave_picture_92748.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ magnet:?xt=urn:btih:2E8EB7453B8D300A0788BD326E8C8EA73E740250
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_92754.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_92754.jpgsave_picture_92754.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ magnet:?xt=urn:btih:DA31553FB8127B68C4FE928CEFFDAE20CBE5EFB4
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_92760.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_92760.jpgsave_picture_92760.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ magnet:?xt=urn:btih:DA31553FB8127B68C4FE928CEFFDAE20CBE5EFB4
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_92766.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_92766.jpgsave_picture_92766.jpg" />
 </div>
 
 

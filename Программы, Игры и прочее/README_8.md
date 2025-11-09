@@ -6,7 +6,7 @@ Muviz Edge v2.0.4.0 Mod by Alex.Strannik [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14844.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14844.jpgsave_picture_14844.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:12F201CEB1575EA2B3E6512880EED22CE7E3500E
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14845.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14845.jpgsave_picture_14845.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ GPS Data Premium / GPS данные Glonass координаты v2.9.00 Mod by 
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14875.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14875.jpgsave_picture_14875.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Photomath v8.44.0 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14923.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14923.jpgsave_picture_14923.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Reanimation inc / Скорая Помощь Inc v72 Mod by vadj [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14949.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14949.jpgsave_picture_14949.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Food.ru: пошаговые рецепты v02.04.01 Mod by vadj [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15234.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15234.jpgsave_picture_15234.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:296301B55E5F01DC58D480B6AE46C8AA8DB24B57
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15258.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15258.jpgsave_picture_15258.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ WireGuard 1.0.20250531 [En] (Обновляемая)
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15298.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15298.jpgsave_picture_15298.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Proton VPN 5.11.39 Mod [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15433.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15433.jpgsave_picture_15433.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:73EB4566F9E0FE5A0AEFB28C36931B5DBD7C973E
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15680.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15680.jpgsave_picture_15680.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ AR Ruler App: Линейка Рулетка v3.0.9 Mod by srajawwal09 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15745.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15745.jpgsave_picture_15745.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Smart AudioBook Player Pro v11.4.7 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15750.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15750.jpgsave_picture_15750.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:CA41EEE587E0C8DE459DBEFBF73FB4CF853B54D1
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15753.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15753.jpgsave_picture_15753.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Translate AI - Camera & Voice v2.0.6 Mod by papasha55 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15765.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15765.jpgsave_picture_15765.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ ToonApp v3.1.6 Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15939.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15939.jpgsave_picture_15939.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ ProShot v8.31.5 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15960.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15960.jpgsave_picture_15960.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ CalcKit: All-In-One Calculator / Всё-в-одном Калькулятор v7.
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15990.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15990.jpgsave_picture_15990.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ Daff Moon Phase (Фазы Луны) v3.48 Mod by shv7net [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16172.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16172.jpgsave_picture_16172.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ MP3 Cutter and Ringtone Maker / Обрезка музыки, редактор м
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16210.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16210.jpgsave_picture_16210.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Pencil Photo Sketch : Drawing v2.2.35 Mod by PieMods [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16215.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16215.jpgsave_picture_16215.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ English Galaxy v2.2.5 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16289.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16289.jpgsave_picture_16289.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Rock Identifier - Stone ID v2.3.55 Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16710.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16710.jpgsave_picture_16710.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ magnet:?xt=urn:btih:D9D58768480ADEC5F2F1842B4C537BFCFBCE9976
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16963.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16963.jpgsave_picture_16963.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ magnet:?xt=urn:btih:14D457151FF795C8BBFD8921166985FA8CF9DE36
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16968.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16968.jpgsave_picture_16968.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ AR Plan 3D: Линейка, Рулетка v4.10.0 Mod by srajawwal09 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16997.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16997.jpgsave_picture_16997.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Garmin: City Navigator North America NT 2026.10 [En]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17093.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17093.jpgsave_picture_17093.jpg" />
 </div>
 
 

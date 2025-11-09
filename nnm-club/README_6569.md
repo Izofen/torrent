@@ -6,7 +6,7 @@ Joplin 2.11.11 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210060.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210060.jpgsave_picture_210060.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Distant Desktop 4.0 Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210063.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210063.jpgsave_picture_210063.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ Media Player Classic - Black Edition (MPC-BE) 1.6.8 Stable + Portable + Standalo
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210064.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210064.jpgsave_picture_210064.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:CA9E422FEA551F116FA3F9C1B64909F0C0777C59
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210067.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210067.jpgsave_picture_210067.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ R-Studio Network 9.2 Build 191161 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210070.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210070.jpgsave_picture_210070.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:93B9935E6B1BE8986653E22E815D3BC47640987C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210073.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210073.jpgsave_picture_210073.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:8302B5944BD4CD1F12374EAB1FEC423DC0D2F61A
 >>Дневники вампира / Vampire Diaries; Настоящая кровь / True Blood; Древние / Originals; Наследие / Legacies
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210076.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210076.jpgsave_picture_210076.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:1AC7194F7F012B4C7AFF9FB6E4EB6FD5EDB45FE7
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210078.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210078.jpgsave_picture_210078.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:E7926FDB372367B16AA2488AA551A172CE4DBA4C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210079.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210079.jpgsave_picture_210079.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Process Monitor 3.95 RePack by KLASS [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210083.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210083.jpgsave_picture_210083.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:4DC967F72B51D1FEA7D1C606637458A4D116076E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210086.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210086.jpgsave_picture_210086.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:F8DBE7B7B3AB2D40BAFEA97C52D042F9FD21F572
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210089.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210089.jpgsave_picture_210089.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ MathType 7.6.0.156 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210095.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210095.jpgsave_picture_210095.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ ArtJourney - AI Art Generator v1.1.5 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210096.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210096.jpgsave_picture_210096.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Opera One 100.0.4815.30 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210098.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210098.jpgsave_picture_210098.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ FxSound Pro 1.1.18.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210101.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210101.jpgsave_picture_210101.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ magnet:?xt=urn:btih:33DA7D0B8DC556504A387307684257DCD61BCA50
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210103.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210103.jpgsave_picture_210103.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ magnet:?xt=urn:btih:05BE00109B1B92ABDD5825A41C10A933070CBD93
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210106.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210106.jpgsave_picture_210106.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ magnet:?xt=urn:btih:567ECB49B47F3EA840CF86B34FB0586B82006259
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210110.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210110.jpgsave_picture_210110.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ CapCut - Видеоредактор 8.6.0 Mod by 0x7d, dimonx32 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210112.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210112.jpgsave_picture_210112.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Smart Driver Manager Pro 6.4.978 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210116.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210116.jpgsave_picture_210116.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ NVIDIA GeForce Desktop Game Ready 536.40 WHQL + DCH [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210118.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210118.jpgsave_picture_210118.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Alan Parsons – A Valid Path (2004) 2006 [DTS 5.1 CD-DA|16/44.1|image+.cue|Audi
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210121.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210121.jpgsave_picture_210121.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ theHunter: Call of the Wild (2017) [Ru/Multi] (11373498/dlc) Scene FairLight
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210124.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210124.jpgsave_picture_210124.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ eRa - The Live Experience 2019 (2022) CamRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210129.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210129.jpgsave_picture_210129.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ magnet:?xt=urn:btih:3EFD4B8E5C9FA7642C0097AAB37C52650CBF068C
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210132.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210132.jpgsave_picture_210132.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126603.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126603.jpgsave_picture_126603.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:53447AA42A78EC3FC00E178826CFCB2C4D446B5C
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126604.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126604.jpgsave_picture_126604.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:2AF6E8183FB76F8A321211BB965D4529DCA1A0F0
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126605.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126605.jpgsave_picture_126605.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:3E825ED4544612B16EB64F1FB6F5B187A8AB5A41
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126606.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126606.jpgsave_picture_126606.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ magnet:?xt=urn:btih:FCC1244CA604BF6DD8CA6F5AB35BE8842012CE1E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126607.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126607.jpgsave_picture_126607.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ magnet:?xt=urn:btih:FCC1244CA604BF6DD8CA6F5AB35BE8842012CE1E
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126608.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126608.jpgsave_picture_126608.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ magnet:?xt=urn:btih:2150EE7FD1D1553FD11ABABEC17F24331D483A9D
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126609.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126609.jpgsave_picture_126609.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ magnet:?xt=urn:btih:A20462C2051CA4C81E82429A73EF63D67CAE2590
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126610.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126610.jpgsave_picture_126610.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ VA - Now That's What I Call A Most Wonderful Christmas (2023) [FLAC|Lossless|tra
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126611.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126611.jpgsave_picture_126611.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ magnet:?xt=urn:btih:14DDB6A4A551611DB8BD6FD18492FB987EB8ACD2
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126612.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126612.jpgsave_picture_126612.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ magnet:?xt=urn:btih:AFC4DCD95E40FE3165F950981647016615BFE5AD
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126613.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126613.jpgsave_picture_126613.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ magnet:?xt=urn:btih:7A046FEB7D88B249D89CF4257EC5E9ACA2DB1729
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126614.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126614.jpgsave_picture_126614.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ magnet:?xt=urn:btih:C7B18B6D14338FF91B7EC286F1CB8DC3A7C35615
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126615.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126615.jpgsave_picture_126615.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ magnet:?xt=urn:btih:810ABC71693ED7FD922FB9FDE30ABB0D56BE6A5A
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126616.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126616.jpgsave_picture_126616.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Lovebites - Knockin' At Heaven's Gate - Part II (Live) (2023) [FLAC|Lossless|WEB
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126617.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126617.jpgsave_picture_126617.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Luna Sea - Mother (1994) 2023, avex trax [FLAC|Lossless|WEB-DL|tracks] <Art rock
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126618.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126618.jpgsave_picture_126618.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ VA - Liquicity Winter (2023) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass, Liquid 
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126619.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126619.jpgsave_picture_126619.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ magnet:?xt=urn:btih:A832966F40C2F73A51CA71D36D86217AE7276FF4
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126620.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126620.jpgsave_picture_126620.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ magnet:?xt=urn:btih:3A856EE321EA48855B0ABB4FC5F60A81F99A9F46
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126621.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126621.jpgsave_picture_126621.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Armin van Buuren - Feel Again (Remixes) - Extended Versions (2023) [MP3|320 Kbps
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126622.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126622.jpgsave_picture_126622.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ magnet:?xt=urn:btih:FB116F5510366A8C3B117C9FE22862E6DA0E4E33
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126623.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126623.jpgsave_picture_126623.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ magnet:?xt=urn:btih:FB116F5510366A8C3B117C9FE22862E6DA0E4E33
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126624.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126624.jpgsave_picture_126624.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ magnet:?xt=urn:btih:536326FC5F94F12915E893B8EF4F5329842C008C
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126625.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126625.jpgsave_picture_126625.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ magnet:?xt=urn:btih:2991A7A00B8F0107CDB0F3975E02DE08E099999D
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126626.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126626.jpgsave_picture_126626.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Google Chrome 120.0.6099.130 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126627.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126627.jpgsave_picture_126627.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ magnet:?xt=urn:btih:2CF469F836BBC52097723D9687B18AF1C50C99B0
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126628.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126628.jpgsave_picture_126628.jpg" />
 </div>
 
 

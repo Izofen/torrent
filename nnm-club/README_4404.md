@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137579.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137579.jpgsave_picture_137579.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Glary Disk Cleaner 5.0.1.284 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137580.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137580.jpgsave_picture_137580.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Udemy, Krishna Lodha | Web GIS development course (2022) WEB-DL [EN / EN Sub]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137581.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137581.jpgsave_picture_137581.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ Kingsman: Золотое кольцо / Kingsman: The Golden Circle (2017) BDRip
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137584.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137584.jpgsave_picture_137584.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:0F3E0272C3BA86025E6BD5840801208C3A46E1B2
 >>Прочие зимние виды спорта
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137585.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137585.jpgsave_picture_137585.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ Code Geass: Fukkatsu no Lelouch | Code Geass: Lelouch of the Resurrection | Ко
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137586.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137586.jpgsave_picture_137586.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ Evoland Dilogy (2013-2015) [Ru/En] (1.1.2490/1.0.9135) Repack R.G. Механи�
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137588.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137588.jpgsave_picture_137588.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:34AECF282EF6DEFA3A004A20C957A33DB6EBD2D0
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137589.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137589.jpgsave_picture_137589.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:379F20F9813AEA7B0C5A36CC8718DC4417058205
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137590.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137590.jpgsave_picture_137590.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:B46D212F9AB2C22110D4A05D87EC3C8EAF05E6F2
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137591.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137591.jpgsave_picture_137591.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Eagles - Eagles (1972) remastered 2021, Mobile Fidelity  [DSD64 2.0|1bit/2822,4k
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137592.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137592.jpgsave_picture_137592.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ Gioma - Dj Remix (2016) WEBRip [H.264/720p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137594.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137594.jpgsave_picture_137594.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ magnet:?xt=urn:btih:D7CBBEB57F0EF02221D9A751BDECC1CE66EC8381
 >>Универ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137595.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137595.jpgsave_picture_137595.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:BD3264F2E5F369665973E25AB30ABBBD171A1E4B
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137596.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137596.jpgsave_picture_137596.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ magnet:?xt=urn:btih:C15C5EB58F1306C35477FC05D92EECAFF7F2032C
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137598.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137598.jpgsave_picture_137598.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ magnet:?xt=urn:btih:D7F82B323846149D5BF5BCF033E49D20E3E48E62
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137599.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137599.jpgsave_picture_137599.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ magnet:?xt=urn:btih:0A98803CB2F4510D97E31FAEAC61C9A7DDDA7B58
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137600.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137600.jpgsave_picture_137600.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Blues Cousins - Compilation (2020) [MP3|320 Kbps] <Rock, Blues>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137601.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137601.jpgsave_picture_137601.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ magnet:?xt=urn:btih:086360311628F4C36EBBE7904A688B24563815B9
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137602.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137602.jpgsave_picture_137602.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ magnet:?xt=urn:btih:E97401414967146C44DC032775AC906C448A7751
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137603.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137603.jpgsave_picture_137603.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ magnet:?xt=urn:btih:CDD6CB535EDEA7423F55F93096036A411FDF6A47
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137606.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137606.jpgsave_picture_137606.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Sonny Rollins - 3 Essential Albums (1958 - 1966) 3CD, 2017, Universal [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137607.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137607.jpgsave_picture_137607.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ magnet:?xt=urn:btih:3607ACDF488415F201CBC8980B6A84DD90A96382
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137609.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137609.jpgsave_picture_137609.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Delicious: Emily's Christmas Carol (2016) [Ru] (1.0) Unofficial  [Collector's Ed
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137612.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137612.jpgsave_picture_137612.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ Queen - The Miracle (1989) Remastered,  Reissue, 2015, Virgin [FLAC 2.0|192/24|i
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137613.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137613.jpgsave_picture_137613.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ magnet:?xt=urn:btih:F68374BE5617866AF4E17D78AC06517CB54C4A5A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137614.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137614.jpgsave_picture_137614.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Myth or Reality 3: Snowbound Secrets (2024) [Multi] (1.0) Unofficial [Collector'
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53932.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53932.jpgsave_picture_53932.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ ALTF42 (2023) [Multi] (2.0.1) Repack FitGirl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53967.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53967.jpgsave_picture_53967.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ FUBG: FIGHT UNKNOWN BATTLEGROUND (2024) [En] (1.0) Repack FitGirl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53972.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53972.jpgsave_picture_53972.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ ALTF42 (2023) [Multi] (2.0.1) Scene Tenoke
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53985.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53985.jpgsave_picture_53985.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Autopsy Simulator (2024) [Ru/Multi] (1.0) Scene FairLight [18+]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53993.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53993.jpgsave_picture_53993.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ DETECTIVE - Minerva case (2024) [Multi] (1.0) Scene Tinyiso
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53994.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53994.jpgsave_picture_53994.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Elegy of Fate / Элегия судьбы (2024) [Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53997.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53997.jpgsave_picture_53997.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ SOS OPS! (2023) [Ru/Multi] (122/dlc) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53999.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53999.jpgsave_picture_53999.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Outcast - A New Beginning (2024) [Ru/Multi] (1.0.5) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54008.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54008.jpgsave_picture_54008.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Armored Brigade (2018) [En] (1.068b/dlc) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54013.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54013.jpgsave_picture_54013.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Chef: A Restaurant Tycoon Game (2020) [Ru/Multi] (1.6/dlc) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54018.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54018.jpgsave_picture_54018.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Tamarindos Freaking Dinner (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54067.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54067.jpgsave_picture_54067.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Isles of Sea and Sky (2024) [Ru/Multi] (1.0.14493222) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54076.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54076.jpgsave_picture_54076.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ The Smurfs - Village Party (2024) [Ru/Multi] (1.0) Scene DOGE
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54082.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54082.jpgsave_picture_54082.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Hotel Business Simulator (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54100.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54100.jpgsave_picture_54100.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Pine Hearts (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54107.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54107.jpgsave_picture_54107.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Far Cry 3 Дилогия (2012-2013) [Ru/Multi] (1.05/1.02/dlc) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54123.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54123.jpgsave_picture_54123.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Stray (2022) [Ru/Multi] (1.5#368) Repack FitGirl [Soundtrack Edition]
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54126.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54126.jpgsave_picture_54126.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Magic City Detective 5: The Carnival Begins / Волшебный город 5: �
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54155.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54155.jpgsave_picture_54155.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Rolling Hills: Make Sushi, Make Friends (2024) [Multi] (1.0.9) Scene Razor1911
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54161.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54161.jpgsave_picture_54161.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Zet Zillions (2024) [Ru/Multi] (0.9.6-A107) Repack FitGirl [Full-Trash Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54174.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54174.jpgsave_picture_54174.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Chernobylite (2019) [Ru/Multi] (49411/dlc) Repack FitGirl [Complete Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54195.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54195.jpgsave_picture_54195.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Field of Glory: Kingdoms (2024) [Multi] (1.0) Repack FitGirl
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54206.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54206.jpgsave_picture_54206.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Sisters: Last Day of Summer (2024) [En] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54208.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54208.jpgsave_picture_54208.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Cryptmaster (2024) [Multi] (1.032) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54212.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54212.jpgsave_picture_54212.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ SCP Operations (2024) [En] (1.0.0:73) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54229.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54229.jpgsave_picture_54229.jpg" />
 </div>
 
 

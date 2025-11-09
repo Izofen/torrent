@@ -6,7 +6,7 @@
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101217.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101217.jpgsave_picture_101217.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:EB8340999EFC07BB61B08FC42ABC1427F44C26F6
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101218.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101218.jpgsave_picture_101218.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:2713E46B7F59F6F91386D17C34D93D68D1617E0B
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101219.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101219.jpgsave_picture_101219.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ Anna Rustikano - Two Albums (1986, 1990) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101220.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101220.jpgsave_picture_101220.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ V.A. - Lounge & Wine, Vol. 2 (2024) [FLAC|Lossless|WEB-DL|tracks] <Electronic, L
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101221.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101221.jpgsave_picture_101221.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ VA - Armin van Buuren - A State Of Trance 1204 (Top 50 Of 2024) (2024) [MP3|320 
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101222.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101222.jpgsave_picture_101222.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ magnet:?xt=urn:btih:AC6686D770BE6321D3883590CE492B5AD80F146E
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101223.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101223.jpgsave_picture_101223.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ Aphex Twin - Music From The Merch Desk (2016 - 2023) (2024) [FLAC 24/44.1|Lossle
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101224.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101224.jpgsave_picture_101224.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ Karl Bartos (ex-Kraftwerk) - Communication. (Limited Edition) (2003)  [FLAC|Loss
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101225.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101225.jpgsave_picture_101225.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ magnet:?xt=urn:btih:B40851DC8F0C5736EB1743DD02322FEC7CA1A475
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101226.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101226.jpgsave_picture_101226.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ magnet:?xt=urn:btih:8F5A73A7302412BC5249407F132E3AF1117D4ED9
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101227.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101227.jpgsave_picture_101227.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ VA - Alter Ego Progressive - Best Of 2024 (2024) [MP3|320 Kbps] <Trance, Progres
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101228.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101228.jpgsave_picture_101228.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ magnet:?xt=urn:btih:6B856CB91FD88AA81E3259B4261C46D19FDAF4E0
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101229.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101229.jpgsave_picture_101229.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ VA - This is Ablazing 2024 (Mixed & Selected by Rene Ablaze) (2024) [MP3|320 Kbp
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101230.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101230.jpgsave_picture_101230.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ magnet:?xt=urn:btih:B86C3CA1F410FE3C15C51ED8288AF99D92E8B007
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101231.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101231.jpgsave_picture_101231.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ magnet:?xt=urn:btih:1CD6DACE33CFD0D769A1C45EC136C501C73AFAC0
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101232.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101232.jpgsave_picture_101232.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Kenny Acosta Band - It's All Good (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101233.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101233.jpgsave_picture_101233.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Hook Herrera - No Matter What I Do (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues, 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101234.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101234.jpgsave_picture_101234.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ magnet:?xt=urn:btih:2B9CCF400F675536F4670C556060F229EC3BD576
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101235.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101235.jpgsave_picture_101235.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Lefty - What A Life - The Lost LA Sessions (2024) [FLAC|Lossless|WEB-DL|tracks] 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101236.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101236.jpgsave_picture_101236.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ Luis Oliart & The Hinges - Luis Oliart and The Hinges at Seahorse Sound (2024) [
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101237.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101237.jpgsave_picture_101237.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ magnet:?xt=urn:btih:105C09F6B26ECABFFA17065F1DF727E2E3D8A10E
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101238.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101238.jpgsave_picture_101238.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ magnet:?xt=urn:btih:054AEB3871D82D93FF41F9A534C005198222A3EE
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101239.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101239.jpgsave_picture_101239.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ Iana - Native Dancer, Vol. 2 (2013) [MP3|320 Kbps] <Native American, New Age, Wo
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101240.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101240.jpgsave_picture_101240.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ magnet:?xt=urn:btih:38D409E1E3D3B4BBC8556613B505C846523A3266
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101241.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101241.jpgsave_picture_101241.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ magnet:?xt=urn:btih:4641001ED1681041AFEBADE3CBF05A22BF50A41E
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101242.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101242.jpgsave_picture_101242.jpg" />
 </div>
 
 

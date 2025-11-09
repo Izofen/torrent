@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119596.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119596.jpgsave_picture_119596.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:E2040298AA201207D0341C6FB98E974C9F00A2A0
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119597.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119597.jpgsave_picture_119597.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Wondershare Recoverit for Mac 12.5.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119598.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119598.jpgsave_picture_119598.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ VA - Armin van Buuren - A State Of Trance 1158 (2024) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119599.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119599.jpgsave_picture_119599.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ OmniReader Pro for Mac 2.7.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119600.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119600.jpgsave_picture_119600.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ Aiseesoft Mac Screen Recorder 2.2.22 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119601.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119601.jpgsave_picture_119601.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ djay - DJ App & AI Mixer 5.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119602.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119602.jpgsave_picture_119602.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ Striker - Ultrapower (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119603.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119603.jpgsave_picture_119603.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ Anita O'Day - Indestructible! (2006) Kayo Stereophonic [FLAC|Lossless|image + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119604.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119604.jpgsave_picture_119604.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ Dave Pell - Four Classic Albums (1956 - 1957) 2CD, 2013, Avid Jazz [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119605.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119605.jpgsave_picture_119605.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ Suicide Bombers - All For The Candy (2024) [FLAC|Lossless|WEB-DL|tracks] <Glam, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119606.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119606.jpgsave_picture_119606.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ Keep It 2.4.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119607.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119607.jpgsave_picture_119607.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ Bombarder - Sa Dna Groba (2024) [FLAC|Lossless|WEB-DL|tracks] <Thrash, Speed Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119608.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119608.jpgsave_picture_119608.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ magnet:?xt=urn:btih:7B8BB8E4042457F93017ECDC2F17D4ACEDB5AA9E
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119609.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119609.jpgsave_picture_119609.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ magnet:?xt=urn:btih:8262B3FDE0154B18759D12E2443B6BA2F224DEDC
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119610.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119610.jpgsave_picture_119610.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ Topaz Photo AI 2 for Mac 2.3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119611.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119611.jpgsave_picture_119611.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ magnet:?xt=urn:btih:EE17BE9F0E2078B91F766454654E045081571078
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119612.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119612.jpgsave_picture_119612.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ Ableton Live Suite 12 Beta 12.0b26 U2B [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119613.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119613.jpgsave_picture_119613.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ magnet:?xt=urn:btih:5074B1FC3C457DA2884D1D73FFD5D9E1300D7AAE
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119614.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119614.jpgsave_picture_119614.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Guns N' Roses - Use Your Illusion II (1991)[FLAC|24/192|image + .cue|Vinyl-Rip] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119615.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119615.jpgsave_picture_119615.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ AnyMP4 Audio Converter for Mac 8.2.20 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119616.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119616.jpgsave_picture_119616.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ magnet:?xt=urn:btih:53269FBEF2DB91501418256B3A1DF34BB442D6B4
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119617.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119617.jpgsave_picture_119617.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ magnet:?xt=urn:btih:2485E89FBD0C7F19B8C2C49F11F31C373CB70474
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119618.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119618.jpgsave_picture_119618.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Fort Firewall 3.11.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119619.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119619.jpgsave_picture_119619.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Guns N' Roses - Use Your Illusion I (1991) [FLAC|24/192|image + .cue|Vinyl-Rip] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119620.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119620.jpgsave_picture_119620.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ Downie 4 v.4.7.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119621.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119621.jpgsave_picture_119621.jpg" />
 </div>
 
 

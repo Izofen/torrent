@@ -6,7 +6,7 @@ Def Leppard - Just Like 73 (Tom Morello Version) (2024) Japanese Edition [FLAC|L
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68865.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68865.jpgsave_picture_68865.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Avalanch - 30 Aniversario (2025) 2 x CD [FLAC|Lossless|image + .cue] <Heavy Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68876.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68876.jpgsave_picture_68876.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:DDE29F9D528C4D7C78FF7A55F99D4F86EBB2F5EB
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68881.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68881.jpgsave_picture_68881.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Tina Turner - Private Dancer (1984) 40th Anniversary Edition, 2025, Rhino [FLAC|
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68882.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68882.jpgsave_picture_68882.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ magnet:?xt=urn:btih:28E2CF979C43C429DF2EFCEA16DFE06E28A2F461
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68884.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68884.jpgsave_picture_68884.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Tina Turner - Private Dancer (1984) 40th Anniversary Edition, 2025, Rhino [MP3|3
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68892.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68892.jpgsave_picture_68892.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Flor de Loto - Cosmos (2025) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68899.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68899.jpgsave_picture_68899.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Sculforge - Cosmic Crusade Chronicles (2025) [MP3|320 Kbps] <Heavy, Power, Speed
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68906.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68906.jpgsave_picture_68906.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:F679676754B9E74655C3AAECC31B57950FAC9C66
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68919.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68919.jpgsave_picture_68919.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Vandenberg - Heading For A Storm (1983) Reissue, Repress, 1991, ATCO Records [FL
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68925.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68925.jpgsave_picture_68925.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ IOTUNN - The Wizard Falls (2016) EP [FLAC|Lossless|WEB-DL|tracks] <Progressive M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68962.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68962.jpgsave_picture_68962.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Various - Only UFO Can Rock Me - A Tribute To UFO (2001) Compilation [FLAC|Lossl
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68971.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68971.jpgsave_picture_68971.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Lordi - Limited Deadition (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Har
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68974.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68974.jpgsave_picture_68974.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Riot - Army Of One (2006) Remastered, 2017, Metal Blade Records [FLAC|Lossless|i
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68978.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68978.jpgsave_picture_68978.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ magnet:?xt=urn:btih:87F75813F6CAD1471E9947DE5891A2AD57248103
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68989.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68989.jpgsave_picture_68989.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ magnet:?xt=urn:btih:E6BF8920DCFD306F27FD202FB1DEA0A82876597A
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68998.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68998.jpgsave_picture_68998.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Grateful Dead - Greatest Hits Live Broadcast Collection (2025) [MP3|320 Kbps] <R
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69022.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69022.jpgsave_picture_69022.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ magnet:?xt=urn:btih:01076B990961A075963A2D1B9B7AD477B382CB01
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69027.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69027.jpgsave_picture_69027.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Motörhead - The Bronze Age (1979 - 1982) (2002) 4xCD, Box Set, Compilation, Rem
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69040.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69040.jpgsave_picture_69040.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ AI - AzizRush. Я просто стал слеп (2025) [MP3|320 Kbps] <Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69049.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69049.jpgsave_picture_69049.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Celestial Scourge - Observers of the Inevitable (2025) [FLAC|Lossless|WEB-DL|tra
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69106.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69106.jpgsave_picture_69106.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ At The Gates - At War With Reality (2014) [FLAC|Lossless|image + .cue] <Melodic 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69108.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69108.jpgsave_picture_69108.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Atomic Peat - Demons And Other Friends (2025) [FLAC|Lossless|WEB-DL|tracks] <Hea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69117.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69117.jpgsave_picture_69117.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Ade - Supplicium (2025) [FLAC|Lossless|WEB-DL|tracks] <Oriental Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69121.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69121.jpgsave_picture_69121.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Hermyth - Aether (2025) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Doom Metal, D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69122.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69122.jpgsave_picture_69122.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Hazel Blackburn - Bajo Presión (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Psyc
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69125.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69125.jpgsave_picture_69125.jpg" />
 </div>
 
 

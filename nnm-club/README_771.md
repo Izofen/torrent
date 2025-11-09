@@ -6,7 +6,7 @@
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20373.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20373.jpgsave_picture_20373.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ VA - A State of Trance - Classics Top 10, Vol. 2 (2025) [MP3|320 Kbps] <Trance, 
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20374.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20374.jpgsave_picture_20374.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ magnet:?xt=urn:btih:244A384372CD7FD0AB927416601601F52E8B5868
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20375.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20375.jpgsave_picture_20375.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ magnet:?xt=urn:btih:E20C17B8077771771C57B4F35D8634030FAE0D1A
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20376.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20376.jpgsave_picture_20376.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ magnet:?xt=urn:btih:8034743F67E72A2BBBC69AA57552628A2E3F2E6A
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20377.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20377.jpgsave_picture_20377.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ magnet:?xt=urn:btih:28B79C53B262687386989AEBE083A3A2290FA301
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20378.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20378.jpgsave_picture_20378.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:70F7547E5E7F635C094C99EF336FFAB22CA54C7D
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20379.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20379.jpgsave_picture_20379.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ magnet:?xt=urn:btih:FA54A334D6A6AFCFF46250D79F99F89937C5AE1F
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20380.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20380.jpgsave_picture_20380.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ VA - Kontor Sunset Chill 2025 (2025) [MP3|320 Kbps] <Pop, Dance>
 >>Downtempo, Trip-Hop, Lounge
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20381.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20381.jpgsave_picture_20381.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ magnet:?xt=urn:btih:EFE97686DC11298397EB04FB835162DA7E1566E4
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20382.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20382.jpgsave_picture_20382.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ magnet:?xt=urn:btih:C8E0E2BD9836C70E415F56EBAA18B85125842ABF
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20383.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20383.jpgsave_picture_20383.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ magnet:?xt=urn:btih:E5DADA87AF3DBFCBB0A3F9480D75A068D3441887
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20384.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20384.jpgsave_picture_20384.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ Alice Cooper - Black Mamba (2025) Single [FLAC 24/48|Lossless|WEB-DL|tracks] <Ha
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20385.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20385.jpgsave_picture_20385.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ VA - 12 Years Of Suanda Music (2025) [MP3|320 Kbps] <Trance, Vocal Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20386.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20386.jpgsave_picture_20386.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ magnet:?xt=urn:btih:CAB853991C8D20CCEE52AA810AB69815F0302084
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20387.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20387.jpgsave_picture_20387.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ magnet:?xt=urn:btih:608F3265D8E28808013D9418E5565ACE0405E139
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20388.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20388.jpgsave_picture_20388.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Onimusha: Warlords (2019) [Ru/Multi] (Build 17777991) Repack Let'sРlay
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20389.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20389.jpgsave_picture_20389.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ magnet:?xt=urn:btih:DB84C1A8C906AB86E31E75BB00E8BD81DE2069E2
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20390.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20390.jpgsave_picture_20390.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ Perfectly Clear WorkBench 4.7.0.2783 RePack (& Portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20391.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20391.jpgsave_picture_20391.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ CoolUtils Total Doc Converter 5.1.0.364 RePack (& Portable) by elchupacabra [Mul
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20392.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20392.jpgsave_picture_20392.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ magnet:?xt=urn:btih:760A1BB66A766CF27DA94864F2B68356665184B8
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20393.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20393.jpgsave_picture_20393.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ VA - Classic Road Trip Songs 100 Hits (2025) [MP3|320 Kbps] <Pop, Rock>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20394.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20394.jpgsave_picture_20394.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ OCCT 14.0.8 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20395.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20395.jpgsave_picture_20395.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Pro Pilkki 2 / Зимняя рыбалка v2.0.6 Mod by ShiroAndShuvi [Ru/Multi
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20396.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20396.jpgsave_picture_20396.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ magnet:?xt=urn:btih:181B52CD25C05C2F04B24F9F1A6E97C3DC957784
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20397.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20397.jpgsave_picture_20397.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Nachtblut - Studio Albums (7 releases) (2007-2025) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20398.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20398.jpgsave_picture_20398.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ VueScan Pro 9.8.13 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230611.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230611.jpgsave_picture_230611.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Fluidart, Екатерина Гаврилова | Онлайн курс «Сов
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_230612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230612.jpgsave_picture_230612.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:3EEA8B2E3405396D829A6B8CF3C6E929F525639D
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_230615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230615.jpgsave_picture_230615.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Noemí Ferrera | How to Test a Time Machine (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230616.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230616.jpgsave_picture_230616.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ Darkest Dungeon II (2023) [Ru/Multi] (2.04.80648/dlc) Repack Necros
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230618.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230618.jpgsave_picture_230618.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ Koukyoushihen: Eureka Seven - Hi-Evolution | Эврика Семь: Высока
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_230620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230620.jpgsave_picture_230620.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ Revo Uninstaller Pro 5.1.5 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_230621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230621.jpgsave_picture_230621.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ Eloy - Echoes From The Past (2023) [FLAC|Lossless|image + .cue] <Krautrock, Psyc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230622.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230622.jpgsave_picture_230622.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ Foo Fighters - But Here We Are (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock,
 >>Alternative, Punk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_230623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230623.jpgsave_picture_230623.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ magnet:?xt=urn:btih:E0BCEA6BC2A63F19C98F241F5158288C9521E429
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230624.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230624.jpgsave_picture_230624.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ Artilike, Галина Гомзина | Акварельный интенсив 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_230627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230627.jpgsave_picture_230627.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ Emurasoft EmEditor Professional 22.5.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230629.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230629.jpgsave_picture_230629.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ magnet:?xt=urn:btih:9CA0B4CCF044A3896AD315D3A3823281A67FA7C9
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_230630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230630.jpgsave_picture_230630.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ magnet:?xt=urn:btih:673A2D89699B5AB7528ACB6A9C20B9EEC5CA60FF
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230631.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230631.jpgsave_picture_230631.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ magnet:?xt=urn:btih:FF89249A68B34E57161427BAEBC229C24AB3952D
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_230633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230633.jpgsave_picture_230633.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ magnet:?xt=urn:btih:8190FC144374E0537B5E19A5AAC899F365649E9B
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230635.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230635.jpgsave_picture_230635.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ magnet:?xt=urn:btih:94610DA4DA4717C1E7377F12083B7A593DC94195
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_230636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230636.jpgsave_picture_230636.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ magnet:?xt=urn:btih:689B53CE271A465D3D57F062D17C154800672F49
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_230637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230637.jpgsave_picture_230637.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ Google Chrome 115.0.5790.110 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230638.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230638.jpgsave_picture_230638.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ magnet:?xt=urn:btih:105925C855CF7D445576877799097C52DE07D4E3
 >>History Channel
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_230640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230640.jpgsave_picture_230640.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ magnet:?xt=urn:btih:E8E2D6CCFAFB68554F1DE0C9020978330286C6EB
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_230641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230641.jpgsave_picture_230641.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ magnet:?xt=urn:btih:BA9CE4C41033B1FD0613B949BE688F78BE9A7A21
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230642.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230642.jpgsave_picture_230642.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ YT Downloader 9.1.11 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230644.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230644.jpgsave_picture_230644.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ Reg Organizer 9.20 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_230646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230646.jpgsave_picture_230646.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Revo Uninstaller Pro 5.1.5 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_230647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230647.jpgsave_picture_230647.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ magnet:?xt=urn:btih:840AA6FB52561CA4C524CFB24554310D6DF93A37
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230649.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230649.jpgsave_picture_230649.jpg" />
 </div>
 
 

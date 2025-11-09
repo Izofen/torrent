@@ -6,7 +6,7 @@ The Rolling Stones - Let It Bleed (Пусть льется кровь) (1969) 19
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113669.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113669.jpgsave_picture_113669.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Игра в четыре руки. Песни Аркадия Укупник
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113670.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113670.jpgsave_picture_113670.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Bex Marshall - Fortuna (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues, Blue
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113672.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113672.jpgsave_picture_113672.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:326F63D12EEE69619B9F091214315149A5053F18
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113674.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113674.jpgsave_picture_113674.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ The Wicked Lo-Down - Out Of Line (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blu
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113687.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113687.jpgsave_picture_113687.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Pantheist - Kings Must Die (2024) [FLAC 24/48; 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113689.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113689.jpgsave_picture_113689.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Procol Harum - Shine On Brightly (Свети Ярче) (1968) 1992 [FLAC 24/192|
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113743.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113743.jpgsave_picture_113743.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Freddie Mercury & Montserrat Caballe - Barcelona (1988) 1992 [FLAC 24/192|Lossle
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113752.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113752.jpgsave_picture_113752.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:E7F0E7D0C3322396DB1B767644948C5BA0DB9BCC
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113754.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113754.jpgsave_picture_113754.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Marc Bolan & T-Rex - Марк Болан и T-REX (1987) 1992 [FLAC 24/192|Lossl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113760.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113760.jpgsave_picture_113760.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Alterium - Of War and Flames (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Power
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113765.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113765.jpgsave_picture_113765.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Vincent Touchard Trio - L'air du temps (2024) [FLAC 24/88.2|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113767.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113767.jpgsave_picture_113767.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Sonata Arctica - Clear Cold Beyond (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113782.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113782.jpgsave_picture_113782.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Electro Deluxe - NEXT (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113785.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113785.jpgsave_picture_113785.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Gost - Prophecy (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Industrial>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113789.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113789.jpgsave_picture_113789.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Synthsoul - Cosmic Funk Chronicles (Original Mix) (2024) [FLAC 24/48|Lossless|WE
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113795.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113795.jpgsave_picture_113795.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Voodoo - The Purge (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Progressive Metal
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113797.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113797.jpgsave_picture_113797.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Francis Lockwood, Johan Renard - New Surya (2024) [FLAC 24/48|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113799.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113799.jpgsave_picture_113799.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Sting - The Soul Cages (1991) 1992 [FLAC 24/192|Lossless|tracks] <Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113810.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113810.jpgsave_picture_113810.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ AC/DC - Stiff Upper Lip (2000) [FLAC|24/192|image + .cue|Vinyl-Rip] <Hard Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113814.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113814.jpgsave_picture_113814.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Dave Sereny - Come On Home (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113816.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113816.jpgsave_picture_113816.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ The Moody Blues - The Other Side Of Life (1986) [FLAC 24/192|Lossless|tracks] <R
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113817.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113817.jpgsave_picture_113817.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ magnet:?xt=urn:btih:0E75E46114179205577E3DD79E2ACE6C79A2AC00
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113822.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113822.jpgsave_picture_113822.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ magnet:?xt=urn:btih:CE1FDC9734BB3C284F7E75370D19A7754AD6A8AE
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113826.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113826.jpgsave_picture_113826.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ AC/DC - The Razors Edge (1990) [FLAC|24/192|image + .cue|Vinyl-Rip] <Hard Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113827.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113827.jpgsave_picture_113827.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ magnet:?xt=urn:btih:1806501DB310E439618365EECA7B6C15C330B054
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113828.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113828.jpgsave_picture_113828.jpg" />
 </div>
 
 

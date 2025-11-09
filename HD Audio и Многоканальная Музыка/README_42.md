@@ -6,7 +6,7 @@ Linkin Park - The Emptiness Machine (2024) hand made [restored, declipped] [FLAC
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44407.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44407.jpgsave_picture_44407.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ VA - Romantic Collection Ретро (1999) [FLAC 2.0|48/24|image +.cue|MC-Rip] <
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44419.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44419.jpgsave_picture_44419.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ No Bull - Getting Out (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Blues Roc
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44607.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44607.jpgsave_picture_44607.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Stratovarius - Demand (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Metal>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44702.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44702.jpgsave_picture_44702.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Helloween - Pink Bubbles Go Ape (1991) Remaster, 2024, Noise Records [FLAC 24/44
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44714.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44714.jpgsave_picture_44714.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ The Delta Blues Collective - Peace, Love, and Groove (2024) [FLAC 24/48|Lossless
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44719.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44719.jpgsave_picture_44719.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Helloween - Chameleon (1993) Remaster, 2024, Sanctuary Records [FLAC 24/44.1|Los
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44720.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44720.jpgsave_picture_44720.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Helloween - Master of the Rings (1994) Remaster, 2024, Sanctuary Records [FLAC 2
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44726.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44726.jpgsave_picture_44726.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ magnet:?xt=urn:btih:F2F55F0F45DBF0032D0069652426A5160613BCFD
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44760.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44760.jpgsave_picture_44760.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Xiaoloulou - Tales of a Broken Love (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44763.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44763.jpgsave_picture_44763.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Bryan Adams - War Machine (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45021.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45021.jpgsave_picture_45021.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:C09C89B91587C2DC94FD56895C20067A93B5AE0A
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45039.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45039.jpgsave_picture_45039.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Nick Cave & The Bad Seeds - Wild God (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45240.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45240.jpgsave_picture_45240.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ The Dark Element (Anette Olzon, Jani Liimatainen) - Studio Albums (3 releases) (
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45242.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45242.jpgsave_picture_45242.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Dubvision - Another World (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <EDM, Progr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45243.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45243.jpgsave_picture_45243.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Jem - Finally Woken (2004) 20th Anniversary Remastered Edition, 2024,  ATO Recor
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45245.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45245.jpgsave_picture_45245.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Holy Tongue & Shackleton - The Tumbling Psychic Joy of Now (2024) [FLAC 24/44.1|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45248.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45248.jpgsave_picture_45248.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ magnet:?xt=urn:btih:318FCC65C3C9F06B8F5F7A957137D64A0AE4B578
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45483.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45483.jpgsave_picture_45483.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ Pet Shop Boys - Feel (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <House, Techno
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45763.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45763.jpgsave_picture_45763.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Ansamble «Vitamiin» - Ансамбль «Витамин II» (1984) [FLAC 2.0|
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46070.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46070.jpgsave_picture_46070.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Rose Royce - Jump Street (1981) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Disco, F
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46076.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46076.jpgsave_picture_46076.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Manatee Commune - Simultaneity (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Elect
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46080.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46080.jpgsave_picture_46080.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Errol Linton - Love Gone Cold (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blue
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46081.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46081.jpgsave_picture_46081.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Angela Mosley & the Blu Elements - Away From The Blues (2024) [FLAC 24/48|Lossle
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46098.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46098.jpgsave_picture_46098.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Timo Tolkki's Avalon - Studio Albums (4 releases) (2013-2021) hand made [restore
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46176.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46176.jpgsave_picture_46176.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ Revolution Renaissance - Studio Albums (3 releases) (2008-2010) hand made [resto
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46183.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46183.jpgsave_picture_46183.jpg" />
 </div>
 
 

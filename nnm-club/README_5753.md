@@ -6,7 +6,7 @@ Leaves - All I See Is A Blurred Me (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178209.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178209.jpgsave_picture_178209.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:3E595F46D5797EB11C307525A15FD41ACE723720
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178210.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178210.jpgsave_picture_178210.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Bri Bradley - Covers at The Roost (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178214.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178214.jpgsave_picture_178214.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:4EFF0D88C1973048E3443E1E2B69DE2CA4E27C8F
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_178215.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_178215.jpgsave_picture_178215.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Macrorit Partition Expert 8.0.0 Technician Edition RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_178217.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_178217.jpgsave_picture_178217.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ Brojob - A Very Deathcore Christmas With Brojob (2022) [FLAC|Lossless|WEB-DL|tra
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178218.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178218.jpgsave_picture_178218.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ magnet:?xt=urn:btih:DE2F0349063D749F68781A770D74B3A5EEE714AD
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178222.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178222.jpgsave_picture_178222.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ magnet:?xt=urn:btih:16AEA7176B8A036F8D45F620C11EF3CD481089AC
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178224.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178224.jpgsave_picture_178224.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ magnet:?xt=urn:btih:A2EC0827568A92130F7D77840042D0B748C31338
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178228.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178228.jpgsave_picture_178228.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ Vivaldi 6.2.3105.58 include standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_178230.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_178230.jpgsave_picture_178230.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ magnet:?xt=urn:btih:29C8D32478EBA2DD570A3915CA0C43DF13482F36
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178234.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178234.jpgsave_picture_178234.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ Dr.X - Reborn (2016) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178235.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178235.jpgsave_picture_178235.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ In The Blind - Evolve & Escape (2022) [MP3|320 Kbps] <Alternative Metal, Progres
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178238.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178238.jpgsave_picture_178238.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ In The Blind - Evolve & Escape (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178239.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178239.jpgsave_picture_178239.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ Anomaly - Somewhere Within the Pines (2022) [FLAC|Lossless|WEB-DL|tracks] <Death
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178241.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178241.jpgsave_picture_178241.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ magnet:?xt=urn:btih:29E9EC4EDA98823AA09473223D25E6FDABB714C5
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178244.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178244.jpgsave_picture_178244.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ Chromium 117.0.5938.150 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_178246.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_178246.jpgsave_picture_178246.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Nutbreaker - 2 EP (2021-2022) [MP3|320 Kbps] <Nu-Metal, Rapcore>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178247.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178247.jpgsave_picture_178247.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Gutlocker - To Be Alive (2022) [MP3|320 Kbps] <Groove Metal, Sludge Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178249.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178249.jpgsave_picture_178249.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ magnet:?xt=urn:btih:AEAE8BF36C92FE5EB190FAECF3B705A27D5669BA
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178250.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178250.jpgsave_picture_178250.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Anomaly - Terms of the Saw Doctor (2014) EP [FLAC|Lossless|WEB-DL|tracks] <Death
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178251.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178251.jpgsave_picture_178251.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:B206B688D05DAA5462F472FE48063F238DE222EE
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178253.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178253.jpgsave_picture_178253.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Euphrosyne - Keres (2022) EP [FLAC|Lossless|WEB-DL|tracks] <Melodic Black, Doom,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178255.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178255.jpgsave_picture_178255.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ NIUBI Partition Editor 9.8.0 Technician Edition Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178256.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178256.jpgsave_picture_178256.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ Tzompantli - 2 Albums (2020-2022) [MP3|320 Kbps] <Death Metal, Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_178258.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_178258.jpgsave_picture_178258.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ VA - Chill with Colors: Chillout Your Mind (2023) [FLAC|Lossless|WEB-DL|tracks] 
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178259.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178259.jpgsave_picture_178259.jpg" />
 </div>
 
 

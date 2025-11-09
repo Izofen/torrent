@@ -6,7 +6,7 @@ AIMP 5.40 Build 2695 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Аудио Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91209.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91209.jpgsave_picture_91209.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ MotoGP. Этап 18 из 22. Гран-при Индонезии. Квалифи�
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91210.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91210.jpgsave_picture_91210.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:5CDFB85409E6B4103654633E9A360A381FEB5100
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91211.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91211.jpgsave_picture_91211.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:B93DAF3123FDFEB8EBD6B3CB68709A878E44B9B1
 >>Картинки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91212.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91212.jpgsave_picture_91212.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:1E0E82A0C80304B52666C5550625117AC7F9D2DB
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91213.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91213.jpgsave_picture_91213.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:6683A8B03A71CACC9249F34D00AEBFCDC75DD645
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91214.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91214.jpgsave_picture_91214.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Archicad 29 build 3000 [Multi/Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91215.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91215.jpgsave_picture_91215.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:F0F25BB4F908F14132A42C4FFCA0F5822B4AD939
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91216.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91216.jpgsave_picture_91216.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:2863D4BE1D11ACA8BE26FC5EA319AFC96B73011D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91217.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91217.jpgsave_picture_91217.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ magnet:?xt=urn:btih:B6EE830A9744091603F6BE29DAD013755C60B748
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91218.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91218.jpgsave_picture_91218.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Mireille Mathieu - Mon credo (Best Of) (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91219.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91219.jpgsave_picture_91219.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:3C532A8DF5505679ED3E74C05FED6E3C4FE05191
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91220.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91220.jpgsave_picture_91220.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ magnet:?xt=urn:btih:76A4CF13A093B0ABFC8FF665BC0CDD496E04FE5F
 >>Футажи
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91221.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91221.jpgsave_picture_91221.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Tales of the Shire A The Lord of The Rings™ Game (2025) [Ru/Multi] (1.0.2.1) R
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91222.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91222.jpgsave_picture_91222.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ magnet:?xt=urn:btih:AFD15EAE784E010FEC18961448A02EC3DC450F83
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91223.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91223.jpgsave_picture_91223.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ magnet:?xt=urn:btih:6284D852F1933F55C39D2E270DD7FCD86954A96F
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91224.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91224.jpgsave_picture_91224.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ magnet:?xt=urn:btih:609610D6BA11E53A5832C28A6D1A34D4D9C374A4
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91225.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91225.jpgsave_picture_91225.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ Master PDF Editor 5.9.95 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91226.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91226.jpgsave_picture_91226.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ Reg Organizer 9.86 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91227.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91227.jpgsave_picture_91227.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Revo Registry Cleaner Pro 2.0.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91228.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91228.jpgsave_picture_91228.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ magnet:?xt=urn:btih:7386796A6674D8C0E0CFEA3248BACC129A4BE20D
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91229.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91229.jpgsave_picture_91229.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ magnet:?xt=urn:btih:A01DCD7638708A2ACCFF86B1EFBD0DA2DEE8D173
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91230.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91230.jpgsave_picture_91230.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ magnet:?xt=urn:btih:0E1BD53E16F9C4C15455EFFFE2A6D57429EAA08A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91231.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91231.jpgsave_picture_91231.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ magnet:?xt=urn:btih:04B43BAE82634E42C025BF84C456FF8E0B114864
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91232.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91232.jpgsave_picture_91232.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ magnet:?xt=urn:btih:1499BBC7FA6C6892361660A95074157AFB3AECDE
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91233.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91233.jpgsave_picture_91233.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ CRETE (2025) [En] (Alpha 0.12.0) Repack Let'sРlay [Playtest]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91234.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91234.jpgsave_picture_91234.jpg" />
 </div>
 
 

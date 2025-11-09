@@ -6,7 +6,7 @@
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70716.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70716.jpgsave_picture_70716.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:653A924D6955BF5C6229FBA9EFCEFCECCF7D84F6
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70717.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70717.jpgsave_picture_70717.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:53A58475A1AD7E429C4A2834CF2F73834E6B85A5
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70718.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70718.jpgsave_picture_70718.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ VA - Beast Mode Activated in the Gym (2025) [FLAC|Lossless|WEB-DL|tracks] <Rap, 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70719.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70719.jpgsave_picture_70719.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:95F5CBC95F90B8312A742C1886712B12D65CB577
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70720.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70720.jpgsave_picture_70720.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:A24534EF26656846CF653ED6E6305ED2B71AF70E
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70721.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70721.jpgsave_picture_70721.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ VA - Ibiza 2025 (2025) [MP3|320 Kbps] <Dance, Club, House, Electronic>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70722.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70722.jpgsave_picture_70722.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ Microsoft Visual Studio 2019 Enterprise 16.11.44 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70723.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70723.jpgsave_picture_70723.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:EC114337F5C33757831EED4341DD208C93EFE7F7
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70724.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70724.jpgsave_picture_70724.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ magnet:?xt=urn:btih:30588BF2C6262986F14C2BFBE34F63328967AC76
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70725.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70725.jpgsave_picture_70725.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ magnet:?xt=urn:btih:8A4E9373A40D7D975F29B59E348DA581F0148E96
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70726.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70726.jpgsave_picture_70726.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ magnet:?xt=urn:btih:790F80DA6A15A32CE6795843C761D6CAE00F9A5F
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70727.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70727.jpgsave_picture_70727.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ magnet:?xt=urn:btih:1A3F7E33C6EEC4CE101742B117CF968ED8B88661
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70728.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70728.jpgsave_picture_70728.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ magnet:?xt=urn:btih:630F0DDC4AB8154BB8822ABDE7D542C50365B89A
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70729.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70729.jpgsave_picture_70729.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ magnet:?xt=urn:btih:EA7C951F9C8E15F6A882384B0EF71D9139576EB0
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70730.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70730.jpgsave_picture_70730.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Eliane Elias - Time And Again (2024) Candid [FLAC|Lossless|tracks + .cue] <Vocal
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70731.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70731.jpgsave_picture_70731.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ David Ronaldo - Six String Preacher (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70732.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70732.jpgsave_picture_70732.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Miss Tess - Cher Reve (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues, Country
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70733.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70733.jpgsave_picture_70733.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Jii Von Der - Lost Souls (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70734.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70734.jpgsave_picture_70734.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ LØLØ (LOLO) - falling for robots & wishing i was one (2024) Deluxe Edition, 20
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70735.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70735.jpgsave_picture_70735.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:064FFAF17343E5892DD8298CDD071C95BF72AEB8
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70736.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70736.jpgsave_picture_70736.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ magnet:?xt=urn:btih:DE82AA3AE966BD77C1F1B92E638E59F097DF4A33
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70737.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70737.jpgsave_picture_70737.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Microsoft Visual Studio 2022 Community 17.13.0 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70738.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70738.jpgsave_picture_70738.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Microsoft Visual Studio 2022 Enterprise 17.13.0 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70739.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70739.jpgsave_picture_70739.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ magnet:?xt=urn:btih:408B30970334CCC06EE11EF2C746FE58A00F451A
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70740.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70740.jpgsave_picture_70740.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ magnet:?xt=urn:btih:1FABFAA2AB4E8AE0294BA430220B2B5AAD3790CA
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70741.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70741.jpgsave_picture_70741.jpg" />
 </div>
 
 

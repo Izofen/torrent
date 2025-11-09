@@ -6,7 +6,7 @@ My Lovely Empress (2024) [Multi] (1.0.5) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45870.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45870.jpgsave_picture_45870.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Twin Mind 5: The Deathly Trick (2024) [Multi] (1.0) Unofficial [Collector's Edit
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45874.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45874.jpgsave_picture_45874.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Warriors of the Nile (2020) [Multi] (1.0310) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45875.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45875.jpgsave_picture_45875.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Escape From Warehouse / Побег со склада (2024) [En] (1.0) Scene Ten
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45888.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45888.jpgsave_picture_45888.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Trinity Trigger (2024) [Multi] (1.0.5/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45895.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45895.jpgsave_picture_45895.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Who is Abby (2023) [En] (1.0.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45905.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45905.jpgsave_picture_45905.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Yog-Sothoth’s Yard (2023) [Multi] (1.0.11/dlc) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45915.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45915.jpgsave_picture_45915.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Train Valley World (2024) [Ru/Multi] (Build #370) Scene TiNYiSO
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45916.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45916.jpgsave_picture_45916.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ For The King II (2023) [Ru/Multi] (1.2.15/dlc) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45949.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45949.jpgsave_picture_45949.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Unrooted (2024) [En] (1.0) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45987.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45987.jpgsave_picture_45987.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Nightmare Side: The Game (2023) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45988.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45988.jpgsave_picture_45988.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Delearnia: Fractions of Hope (2024) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46000.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46000.jpgsave_picture_46000.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Sam & Max: The Devil's Playhouse (2024) [Ru/Multi] (1.2.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46022.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46022.jpgsave_picture_46022.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Old School RPG (2024) [En] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46030.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46030.jpgsave_picture_46030.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Capes (2024) [Ru/Multi] (1.2.0.0/dlc) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46058.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46058.jpgsave_picture_46058.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ In Woods (2022) [Ru/Multi] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46132.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46132.jpgsave_picture_46132.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ PARANOID (2023) [Ru/Multi] (10138) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46137.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46137.jpgsave_picture_46137.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ UFO Taxi (2024) [En] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46139.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46139.jpgsave_picture_46139.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ The Voidness - Lidar Horror Survival Game (2023) [En] (v1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46207.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46207.jpgsave_picture_46207.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ The Bathhouse (2024) [Multi] (1.03) Scene Tenoke [Restored Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46208.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46208.jpgsave_picture_46208.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Tokyo Coffee: Grinding in the Pandemic (2024) [Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46212.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46212.jpgsave_picture_46212.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ The Crush House (2024) [Multi] (1.1.9679) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46215.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46215.jpgsave_picture_46215.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Hero's Adventure: Road to Passion (2023) [Multi] (1.2.0813b65/dlc) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46216.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46216.jpgsave_picture_46216.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Among the Sleep (2017) [Ru/Multi] (3.1.0.41) Repack Other s [Enhanced Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46217.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46217.jpgsave_picture_46217.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Lifeless Planet (2014) [Ru/Multi] (4.6.7.12281826) Repack Other s [Premier Editi
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46236.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46236.jpgsave_picture_46236.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Ghostrunner (2020) [Ru/Multi] (42507.446/dlc) Repack Decepticon [Complete Editio
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46240.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46240.jpgsave_picture_46240.jpg" />
 </div>
 
 

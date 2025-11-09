@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249265.jpgsave_picture_249265.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:601BA99B36C9A8E33D17AB79908AC2E47A9194C2
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249293.jpgsave_picture_249293.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:DA395D518872E3AB2D739A7D73009CE6118DCDB7
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249312.jpgsave_picture_249312.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Laurentiu Spilca | Troubleshooting Java: Read, debug, and optimize JVM applicati
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249573.jpgsave_picture_249573.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ magnet:?xt=urn:btih:4C36BBF26108AF9ADB6C6282E90EE46EAEBAC91A
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249922.jpgsave_picture_249922.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ magnet:?xt=urn:btih:9C80B0438F329F890DAA3C1D4759D3380DDC1D84
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249927.jpgsave_picture_249927.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ Pablo Munoz Gomez | A Guide To: ZBrush Comic Style Render / Руководств
 >>3D графика
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250036.jpgsave_picture_250036.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ Takashi Iijima | Action Anatomy: For Gamers, Animators, and Digital Artists / А
 >>3D графика
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250047.jpgsave_picture_250047.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ Dane Hillard | Publishing Python Packages (2022) [PDF] [EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250220.jpgsave_picture_250220.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ Steve Santello, Alan R. Stagner | Building an RPG with Unreal / Построен
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250300.jpgsave_picture_250300.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:62A7DC6E13EDB876F0C5FCBF1B24AC857444C048
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250418.jpgsave_picture_250418.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ magnet:?xt=urn:btih:4BE198B6DBAAD395F379D027E4EFF4FC5AB4562A
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250423.jpgsave_picture_250423.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ magnet:?xt=urn:btih:997E29637E242DA72705AA79A87C3691856B620E
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250427.jpgsave_picture_250427.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Logan S. Helmes | Python Cheat Sheet Encyclopedia (2025) [PDF, EPUB] [EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250611.jpgsave_picture_250611.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Robert M. Koretsky | Raspberry Pi 5 System Administration Basics (2026) [EPUB] [
 >>нет
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250721.jpgsave_picture_250721.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ This book covers Raspberry Pi 5 OS concepts and commands that allow a beginner t
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250941.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250941.jpgsave_picture_250941.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ magnet:?xt=urn:btih:3FFAF542D404CC915E25FCF5CB4E2715D8BFAA05
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250991.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250991.jpgsave_picture_250991.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ magnet:?xt=urn:btih:4558FD95B94A6AD912B2EFBB0C04D93A9ABF9E86
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251312.jpgsave_picture_251312.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ magnet:?xt=urn:btih:64A6C4A2BC7D889B43A3603B5AC6A595ADFF95EF
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251323.jpgsave_picture_251323.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ magnet:?xt=urn:btih:C37AEA3664C12AC5B983F0943E527D8DF271B2F1
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251567.jpgsave_picture_251567.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ magnet:?xt=urn:btih:2CDE59EE48984A0305AA5DABCE60B54077E42C39
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251571.jpgsave_picture_251571.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ magnet:?xt=urn:btih:928AA9AC6346E0B4317EE3A600BB35D6150EC758
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251838.jpgsave_picture_251838.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ magnet:?xt=urn:btih:CD030D8E7CA168825511F6FEFA9E52C0525FD5BD
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251922.jpgsave_picture_251922.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ Matthew Dowst | Practical Automation with PowerShell (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251938.jpgsave_picture_251938.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ John Sharp | Microsoft Visual C# Step by Step, 10th Edition (2022) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251940.jpgsave_picture_251940.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ Federico Kereki | Mastering JavaScript Functional Programming, 3rd Edition (2023
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251944.jpgsave_picture_251944.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115119.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115119.jpgsave_picture_115119.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:4576264DBF86F323F9269895A07761A099736B6C
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115120.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115120.jpgsave_picture_115120.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:8CED44EE6899E4F2000DAADDC880A90D9D9AE6F6
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115121.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115121.jpgsave_picture_115121.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ MathType 7.8.0.0 RePack by KpoJIuK [Ru/En]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115122.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115122.jpgsave_picture_115122.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ ZBrush 2024.0.2.22 (x64) Portable by 7997 [Multi]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115123.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115123.jpgsave_picture_115123.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:FC755D192808E90612E82204F0729B12B35CC74F
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115124.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115124.jpgsave_picture_115124.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:26F64DF8665448E286A60C751168E5A6551F2C2F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115125.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115125.jpgsave_picture_115125.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:08D94487ABCF6FFC54689AC4566BC27C3EDF2B69
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115126.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115126.jpgsave_picture_115126.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:13D46DE886993E706A37207201DD00AF553EF03D
 >>Универ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115127.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115127.jpgsave_picture_115127.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:671B17F4976C08C86FAE331962E9DF41530952E8
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115128.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115128.jpgsave_picture_115128.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Compositing Academy, Alex Hanneman | NK707: Deep Compositing in Nuke (2024) WEB-
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115129.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115129.jpgsave_picture_115129.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ magnet:?xt=urn:btih:4F09E845F6B814731571CE62CB9AAEB6E25C4BAB
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115130.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115130.jpgsave_picture_115130.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:8BA58B1689967F0EBE7F0D511E07A717C3F2C1D7
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115131.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115131.jpgsave_picture_115131.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ magnet:?xt=urn:btih:9D70CCCF0423B20EB900D4484FADCB8B0A794873
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115132.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115132.jpgsave_picture_115132.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ magnet:?xt=urn:btih:98483B411358511496219E9C40D8B60B24F34ACF
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115133.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115133.jpgsave_picture_115133.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ magnet:?xt=urn:btih:467E9A6631275485F2E8895A80CE370D0D18B270
 >>Ходячие мертвецы / The Walking Dead; Бойтесь ходячих мертвецов / Fear the Walking Dead
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115134.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115134.jpgsave_picture_115134.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ magnet:?xt=urn:btih:9FDB1C5D05AEF3C76F0332BB08713BA00817640A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115135.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115135.jpgsave_picture_115135.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ magnet:?xt=urn:btih:EA8A4753F8B8A27D5C8499B27E62158348838F9D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115136.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115136.jpgsave_picture_115136.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ magnet:?xt=urn:btih:CB72574257CED286A1C565238BF6C36B3EF62A42
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115137.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115137.jpgsave_picture_115137.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ magnet:?xt=urn:btih:C11EABC8D0F01BFC990FB6E899720686EB18CA14
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115138.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115138.jpgsave_picture_115138.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Python. Самое полное руководство по разработке
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115139.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115139.jpgsave_picture_115139.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Navitel / Навител: Официальные карты релиза Q4 2023
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115140.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115140.jpgsave_picture_115140.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ magnet:?xt=urn:btih:1A8B359DAB9EA5AE4499CE7F33A906A5FF8E4FEF
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115141.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115141.jpgsave_picture_115141.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Welcome to ParadiZe (2024) [Ru/Multi] (13566803/dlc) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115142.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115142.jpgsave_picture_115142.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ magnet:?xt=urn:btih:D50E89121A45C1B464598555ED684C2FDDA361E2
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115143.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115143.jpgsave_picture_115143.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Heroes of Might and Magic V / Герои 5 (2006)  [+2 DLC] [Ru] [macOS WineSkin
 >>Strategy, RPG для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115144.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115144.jpgsave_picture_115144.jpg" />
 </div>
 
 

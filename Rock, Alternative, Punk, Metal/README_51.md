@@ -6,7 +6,7 @@ Kill Everything - Headless Cum Dumpster (2025) [FLAC|Lossless|WEB-DL|tracks] <Br
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64878.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64878.jpgsave_picture_64878.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Parakletos - Opera Ab Aeterno (2025) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Bl
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64879.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64879.jpgsave_picture_64879.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Cineastre - Hymnen an die Nacht (2025) [FLAC|Lossless|WEB-DL|tracks] <Atmospheri
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64917.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64917.jpgsave_picture_64917.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:F897A95F27FB7377D388E278C650EEAFB38A26DD
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64922.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64922.jpgsave_picture_64922.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Temptress - Catch The Endless Dawn (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64923.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64923.jpgsave_picture_64923.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Cold Slither - Cold Slither (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64931.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64931.jpgsave_picture_64931.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Roulette - Go! (2025) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64951.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64951.jpgsave_picture_64951.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Elton John - Live From The Rainbow Theatre With Ray Cooper (Live From The Rainbo
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64952.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64952.jpgsave_picture_64952.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Crimson Shadows - Whispers Of War (2025) [FLAC|Lossless|WEB-DL|tracks] <Power Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64959.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64959.jpgsave_picture_64959.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Oblivion Machine - Око дня (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Met
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64983.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64983.jpgsave_picture_64983.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:48806530141A8BAE7F4262E5370601FE0B6C2F68
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64987.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64987.jpgsave_picture_64987.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Loin Hammer - Before the Beginning (2025) [FLAC|Lossless|WEB-DL|tracks] <Progres
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64997.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64997.jpgsave_picture_64997.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:14884591FF18DF5524057E7B711D5B201DF97790
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65004.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65004.jpgsave_picture_65004.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Sculptured - The Liminal Phase (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65018.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65018.jpgsave_picture_65018.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Sculptured - The Liminal Phase (2021) [MP3|320 Kbps] <Progressive, Melodic Death
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65019.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65019.jpgsave_picture_65019.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Bleeding Hands - Lost Integrity (2015) [FLAC|Lossless|image + .cue] <Melodic Thr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65020.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65020.jpgsave_picture_65020.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ Bleeding Hands - Lost Integrity (2015) [MP3|320 Kbps] <Melodic Thrash, Groove Me
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65024.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65024.jpgsave_picture_65024.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Serpent Crusher - Armored Saints (2025) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65027.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65027.jpgsave_picture_65027.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Oleg Stalker - Star Wanderer (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65032.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65032.jpgsave_picture_65032.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Cyanide Grenade - Cannibal Era (2025) [FLAC|Lossless|WEB-DL|tracks] <Thrash Meta
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65043.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65043.jpgsave_picture_65043.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ Styx - Circling From Above (2025) [FLAC|Lossless|image + .cue] <Progressive Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65048.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65048.jpgsave_picture_65048.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Jettblack - Raining Rock (2012) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65082.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65082.jpgsave_picture_65082.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ Axiom Chaos - Primacy Arrival (2025) [MP3|320 Kbps] <Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65090.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65090.jpgsave_picture_65090.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ Gravered - Classic Cult to Death (2025) [FLAC|Lossless|WEB-DL|tracks] <Death Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65092.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65092.jpgsave_picture_65092.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ Axiom Chaos - Primacy Arrival (2025) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65093.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65093.jpgsave_picture_65093.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ Guana Batz - Rockin' Banshee (2025) [MP3|~245 Kbps (V0)] <Rock, Psychobilly>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65096.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65096.jpgsave_picture_65096.jpg" />
 </div>
 
 

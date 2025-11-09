@@ -6,7 +6,7 @@ CarBit ELM327 OBD2 v3.5.2 Mod by vedserega [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188186.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188186.jpgsave_picture_188186.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:0BCB626523EEA28458BE5CC8E5EABD3F6385B20A
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188200.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188200.jpgsave_picture_188200.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:7E61AE11035D6600C864DB0B41193AA198A94701
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188214.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188214.jpgsave_picture_188214.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ AccuBattery Pro 2.1.2 Mod by Dymonyxx [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188768.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188768.jpgsave_picture_188768.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:F2D24438CA2C8D2024FFFAD44E439682F57D8F04
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189045.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189045.jpgsave_picture_189045.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:D5C0EFE802C6B0C5CFE02358B5BC98BE4E091324
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189054.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189054.jpgsave_picture_189054.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ Turbo VPN - Secure VPN Proxy / безопасный ВПН 3.9.7.5 Mod by Brown 
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189552.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189552.jpgsave_picture_189552.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ VPN Monster - Secure VPN Proxy 2.0.1.5 Mod by RBMods [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189592.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189592.jpgsave_picture_189592.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ Moon+ Reader Pro 8.4 (804001) Mod by Lucky Las [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189752.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189752.jpgsave_picture_189752.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ VPN Thailand: VPN в Тайланде 1.85 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189862.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189862.jpgsave_picture_189862.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Word: Поиск Слова Кроссворд v7.2 [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189882.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189882.jpgsave_picture_189882.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Garmin: City Navigator Europe NTU 2024.20 [En]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189956.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189956.jpgsave_picture_189956.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Picture Mushroom - Mushroom ID v2.9.20 Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189970.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189970.jpgsave_picture_189970.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Picture Bird - Bird Identifier v2.9.25 Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190008.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190008.jpgsave_picture_190008.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ TrackView - HomeSafe v3.8.27 Mod by maxi123444 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190413.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190413.jpgsave_picture_190413.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ magnet:?xt=urn:btih:1CF7ED8E20A9FB0040BF223DC5225B58E2617535
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190452.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190452.jpgsave_picture_190452.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Listen Audiobook Player v5.1.0 (955) Mod by derrin [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190490.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190490.jpgsave_picture_190490.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Melon VPN - Secure Proxy VPN 7.9.215 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190492.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190492.jpgsave_picture_190492.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Relax Night ~ Nature Sounds v5.13.3 Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190516.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190516.jpgsave_picture_190516.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ magnet:?xt=urn:btih:81B61DC01531CC9F279A00F6A3E01AC3A37495D3
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190850.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190850.jpgsave_picture_190850.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ magnet:?xt=urn:btih:9A7C44B4415308D6B957FD6E0426A4A6E54A824D
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190862.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190862.jpgsave_picture_190862.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ ElectroCalc - DIY Electronics v3.9  Mod by vedserega [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190890.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190890.jpgsave_picture_190890.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ magnet:?xt=urn:btih:9E281DCC701623818ABA1A7008434966547AC1A1
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190891.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190891.jpgsave_picture_190891.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Plus Messenger (Telegram+) v10.0.5.0 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190921.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190921.jpgsave_picture_190921.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ PREQUEL: Редактор фото и видео v1.51.0 Mod by Dymonyxx [Ru/Mul
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_190966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_190966.jpgsave_picture_190966.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Frolomuse: Музыкальный Плеер 7.3.1-R Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191236.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191236.jpgsave_picture_191236.jpg" />
 </div>
 
 

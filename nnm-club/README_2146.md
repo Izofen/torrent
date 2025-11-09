@@ -6,7 +6,7 @@ The Cursed Tape (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56163.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56163.jpgsave_picture_56163.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Billie Eilish - Hit Me Hard and Soft (2024) [MP3|320 Kbps] <Indie Pop, Alternati
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56164.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56164.jpgsave_picture_56164.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:495D7FE08260B0D62E0893E1E6277A7D42CFE681
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56165.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56165.jpgsave_picture_56165.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:802C6D03174465AF73A4611FAAC414F38D6B869C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56166.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56166.jpgsave_picture_56166.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:5DF4AC435472C6120616F8D340610681B987E058
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56167.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56167.jpgsave_picture_56167.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:2AF8BF5A43BBC9CDFA2545EA3BB71441AF638B81
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56168.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56168.jpgsave_picture_56168.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:2AF8BF5A43BBC9CDFA2545EA3BB71441AF638B81
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56169.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56169.jpgsave_picture_56169.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ The Desolate Hope (2014) [Ru/En] (1.35) Repack 1nomok
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56170.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56170.jpgsave_picture_56170.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:8E0016C00C4A77217B074A577702F462F5906B97
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56171.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56171.jpgsave_picture_56171.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ MX Player Pro v1.78.6 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56172.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56172.jpgsave_picture_56172.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:F01304E08A8B2CC383451D85F63423687147B9B6
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56173.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56173.jpgsave_picture_56173.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Office Tool Plus 10.11.5.0 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56174.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56174.jpgsave_picture_56174.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:B98B9B75866F107BEC98D6BDB8CD3354C6DB4285
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56175.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56175.jpgsave_picture_56175.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ magnet:?xt=urn:btih:D64F7C031F5FE4791A1438C26F35AAB67DD3C56A
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56176.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56176.jpgsave_picture_56176.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Windows Manager 2.0.0 (x86/x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56177.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56177.jpgsave_picture_56177.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ The Land Beneath Us (2024) [Multi] (1.0) Repack FitGirl
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56178.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56178.jpgsave_picture_56178.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ magnet:?xt=urn:btih:3EA3A602054911DE1C44A3F5CB24FF197C26FB66
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56179.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56179.jpgsave_picture_56179.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ BBC: Луи Теру. Разговоры с анорексией / Talking to An
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56180.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56180.jpgsave_picture_56180.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ magnet:?xt=urn:btih:3ECA597D10659403C796076086128EDF214129C3
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56181.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56181.jpgsave_picture_56181.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ magnet:?xt=urn:btih:58D594E3C4A1842E594DBC13F8404ED4D0C75BAC
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56182.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56182.jpgsave_picture_56182.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ What the Fog (2024) [Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56183.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56183.jpgsave_picture_56183.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:EF95F68F53DD62F9B1C43A061FC48D34DA1C76CA
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56184.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56184.jpgsave_picture_56184.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ magnet:?xt=urn:btih:EF95F68F53DD62F9B1C43A061FC48D34DA1C76CA
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56185.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56185.jpgsave_picture_56185.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Microsoft .Net Packages AIO 14.05.24 RePack by xetrin [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56186.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56186.jpgsave_picture_56186.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ magnet:?xt=urn:btih:8EBE4E56E231AC28854DFE57AACC36D5F8D8CA53
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56187.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56187.jpgsave_picture_56187.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ VA - ЕвроХит Топ 40 Europa Plus 17.05.2024 [MP3|320 Kbps] <Pop, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56188.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56188.jpgsave_picture_56188.jpg" />
 </div>
 
 

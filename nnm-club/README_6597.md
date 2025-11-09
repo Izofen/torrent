@@ -6,7 +6,7 @@
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211688.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211688.jpgsave_picture_211688.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Cattac - Nightness (2021) EP [FLAC|Lossless|WEB-DL|tracks] <EBM, Dark Electro>
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211691.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211691.jpgsave_picture_211691.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ magnet:?xt=urn:btih:67041708FC55837EAF771020DF19D3AA3868E5FE
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211693.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211693.jpgsave_picture_211693.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:33632DC8EB63BFE48ABFDE665BBCB15D5C9DC72C
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211695.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211695.jpgsave_picture_211695.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ magnet:?xt=urn:btih:C67E2230006CFE65A663CBF4B6A8241B9689074D
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211696.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211696.jpgsave_picture_211696.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ magnet:?xt=urn:btih:2788877FC56B9A2FD7E050F97F69036856EAEF85
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211698.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211698.jpgsave_picture_211698.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ magnet:?xt=urn:btih:0A2EE959D242E7ECBF38DC26697D659A6C8566FD
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211702.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211702.jpgsave_picture_211702.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:0B5C9C24890EC24731ADD197C20B0E8E432D4641
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211703.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211703.jpgsave_picture_211703.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ magnet:?xt=urn:btih:048F8E369C0A0282FEE445104C521E985EE7233A
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211705.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211705.jpgsave_picture_211705.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ magnet:?xt=urn:btih:43ECD00546185EAF28989D113C578035D6471B10
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211706.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211706.jpgsave_picture_211706.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:B27F91425BD27E02DA89AA5198D4650CAB8F07FF
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211708.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211708.jpgsave_picture_211708.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:817DC3476EFADE21096954B625EFE7E27F957968
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211711.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211711.jpgsave_picture_211711.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ magnet:?xt=urn:btih:8C607D9628F9DD8CB93D2D5B1F3A7DE6F6054DA0
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211712.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211712.jpgsave_picture_211712.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ magnet:?xt=urn:btih:614CCAA1D8C8B0905BA2084FBE41A24E0750ADDE
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211714.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211714.jpgsave_picture_211714.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ VA - Keep It Trance Vol. 12 (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211716.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211716.jpgsave_picture_211716.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ magnet:?xt=urn:btih:4A9EB05290C1A2906EC57AA892F70F0654C6FE4A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211718.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211718.jpgsave_picture_211718.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ VA - Blues & Jazz 101 (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211720.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211720.jpgsave_picture_211720.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ magnet:?xt=urn:btih:819229C53FDB59A62B969ACD48AD5A70FA948F99
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211723.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211723.jpgsave_picture_211723.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ VA - Ultimate Jazz Chillout Sweet Instrumentals on the Beach (2023) [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211726.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211726.jpgsave_picture_211726.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ magnet:?xt=urn:btih:B7CBABD0C244752B65A75BBCC4DF8FB05C9727E1
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211727.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211727.jpgsave_picture_211727.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Ms. Holmes 4: The Case of the Dancing Men (2023) [En] (1.0) Unofficial [Collecto
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211728.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211728.jpgsave_picture_211728.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Joanna Connor - Best of Me (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211729.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211729.jpgsave_picture_211729.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ VA - Hit - List Vol 7 (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211734.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211734.jpgsave_picture_211734.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Dr. Nilesh Bhaskarrao Bahadure | Python for Everyone: Learn and polish your codi
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211735.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211735.jpgsave_picture_211735.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Halocene - Maleficent (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211739.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211739.jpgsave_picture_211739.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Spotify 1.2.13.661 (Repack & Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211741.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211741.jpgsave_picture_211741.jpg" />
 </div>
 
 

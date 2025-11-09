@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165517.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165517.jpgsave_picture_165517.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:073845F01AECC2AFCE6BA0E8751B75842C29D6D9
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165518.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165518.jpgsave_picture_165518.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:15E6BB8212D0DB355C28B9ECA29400B277A47ABF
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165519.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165519.jpgsave_picture_165519.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Django Reinhardt - BD Jazz, Vol.2 (1937 - 1953) 2CD, 2006, Nocturne [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165520.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165520.jpgsave_picture_165520.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:A505E6DD4A8A01FB12507203A74A119BE4DB3E5D
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165521.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165521.jpgsave_picture_165521.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:C22A4C23BCA43A85E01EF086BA18CA06281C6699
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165522.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165522.jpgsave_picture_165522.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:3A829700102589C6ACF8A65D6B71AC9F080CDC48
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165523.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165523.jpgsave_picture_165523.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:E68715C17A5FD7EA2210932017651DEE8E2FA6C5
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165524.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165524.jpgsave_picture_165524.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:135FA4746F253B86AFCF652D785580DEF6735AA4
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165525.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165525.jpgsave_picture_165525.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:652323CA8F705A2C54CAAA636DAC4121BA2EA437
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165526.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165526.jpgsave_picture_165526.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Halo Infinite (2021) [Ru/Multi] (6.10020.17952.0) License CODEX
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165527.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165527.jpgsave_picture_165527.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:B38C963A663F2F8D405E696580C427335292D0FE
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165528.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165528.jpgsave_picture_165528.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ AIDA64 Extreme / Engineer / Business / Network Audit 6.32.5600 RePack (& Portabl
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165529.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165529.jpgsave_picture_165529.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:6084C11E1472D49B5BE53EB1ED02A2A6A33A613E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165530.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165530.jpgsave_picture_165530.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Blasphemous (2019) [Ru/Muilti] (4.0.67/dlc) License GOG [Digital Deluxe Edition]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165531.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165531.jpgsave_picture_165531.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:76ADA5E74CD9ACE5E1D81144ED5823C92B371159
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165532.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165532.jpgsave_picture_165532.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Windows 7/10 Pro х86-x64 by g0dl1ke 20.12.10 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165533.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165533.jpgsave_picture_165533.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ magnet:?xt=urn:btih:5917175541A3A64BCEDF39292E334BA5AD18EA55
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165534.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165534.jpgsave_picture_165534.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:2992CD5B8C4C28806C2D982A1CFB957CFADACB85
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165535.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165535.jpgsave_picture_165535.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ magnet:?xt=urn:btih:287A8A20F2BD6DB79E69EE182E87A15E7ADE4EE0
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165536.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165536.jpgsave_picture_165536.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:6C3D9DC9D6513B23DFC77598589B8A417F5DC403
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165537.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165537.jpgsave_picture_165537.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ magnet:?xt=urn:btih:DD3335F3F715098C0E9069371D0CB973DE57ABC3
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165538.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165538.jpgsave_picture_165538.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ magnet:?xt=urn:btih:B8F0AEE31FA95DF7689AE34A24F98F4836C65608
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165539.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165539.jpgsave_picture_165539.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ magnet:?xt=urn:btih:06BB2F92756F95194A9525576F5288138FB180E1
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165540.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165540.jpgsave_picture_165540.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ magnet:?xt=urn:btih:0A7DE2A84B9A2D0030B1BD69B57F7A83A83054E1
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165541.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165541.jpgsave_picture_165541.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Dangerous Toys - Vitamins & Crash Helmets - Live (1999) Remaster, 2023,  Deadlin
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165542.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165542.jpgsave_picture_165542.jpg" />
 </div>
 
 

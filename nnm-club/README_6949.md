@@ -6,7 +6,7 @@
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238546.jpgsave_picture_238546.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ MAGIX Video Pro X14 20.0.3.169 (x64) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238547.jpgsave_picture_238547.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ FSNotes 4 v4.9.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238548.jpgsave_picture_238548.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ DirEqual 3.3.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238551.jpgsave_picture_238551.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:3CD6B26D9BA2F6DA05FF86E7EEC5F28B3ADFE534
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238552.jpgsave_picture_238552.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:20B7FBA3A5CBE72DE9EFA449E39186CA6751D39B
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238553.jpgsave_picture_238553.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Bob Dylan - Shadow Kingdom (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock, Fol
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238554.jpgsave_picture_238554.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:C7BFC447442EE12BE2594297E2F1AAF6C471D6FE
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238557.jpgsave_picture_238557.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ Chet Baker & Bud Shank - Theme Music From “The James Dean Story” (1956) 2000
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238558.jpgsave_picture_238558.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ Paul Davies | Артбук по игре Horizon Zero Dawn / The Art of Horizon 
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238559.jpgsave_picture_238559.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ magnet:?xt=urn:btih:2F962425B2FD330901D33A758FE1C258CB40DB45
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238561.jpgsave_picture_238561.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ PDF Reader Pro Edition 2.8.17.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238562.jpgsave_picture_238562.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ magnet:?xt=urn:btih:B79635835A05191F59E9564DC127A73D30BD2954
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238564.jpgsave_picture_238564.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Robin Trower - No More Worlds To Conquer (2022) [FLAC|Lossless|WEB-DL|tracks] <B
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238565.jpgsave_picture_238565.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ magnet:?xt=urn:btih:E3070DC500A91DBE1DF436F67F5568446C3266B4
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238567.jpgsave_picture_238567.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ magnet:?xt=urn:btih:7319715EACE25B2FA055FDB4DBDEF199AD7B20B5
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238568.jpgsave_picture_238568.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Glary Disk Cleaner 5.0.1.291 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238570.jpgsave_picture_238570.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ magnet:?xt=urn:btih:448EBDBB7A6A0582F9EECC6846252A2C4C90ABDA
 >>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238572.jpgsave_picture_238572.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Miami Mambo System - One (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues, Blues Rock
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238573.jpgsave_picture_238573.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Gloryhammer - Return to the Kingdom of Fife (2023) [MP3|320 Kbps] <Symphonic Pow
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238574.jpgsave_picture_238574.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Alexander Rier - Zwischen dir und mir (2012) [FLAC|Lossless|image + .cue] <Pop, 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238575.jpgsave_picture_238575.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ magnet:?xt=urn:btih:AA7DAEB5DB3F4AFABFD8A0C2326713BBDE0E4FBC
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238577.jpgsave_picture_238577.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Media Player Classic Home Cinema (MPC-HC) 1.9.23 RePack (& portable) by elchupac
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238578.jpgsave_picture_238578.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Steinar Ytrehus - Black Coffee and Sweet Love Songs (2022) [FLAC|Lossless|WEB-DL
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238580.jpgsave_picture_238580.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Skarnet - Fængslet i det fri (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238581.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238581.jpgsave_picture_238581.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ magnet:?xt=urn:btih:DBD51E13A33BCD474BAD8A4216AF28B10EDE7A1F
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238583.jpgsave_picture_238583.jpg" />
 </div>
 
 

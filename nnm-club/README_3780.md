@@ -6,7 +6,7 @@ Topaz Photo AI 2.3.1 (x64) RePack (& portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118660.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118660.jpgsave_picture_118660.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Songs of Conquest v.0.92.6 9 (2022) [Multi/Ru] [macOS Native game]
 >>Strategy, RPG для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118661.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118661.jpgsave_picture_118661.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Topaz Gigapixel AI 7.0.1 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118662.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118662.jpgsave_picture_118662.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ iToolab UnlockGo (Android) for Mac 7.6.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118663.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118663.jpgsave_picture_118663.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:A5F9854B44945B343AB35B7890E9311F10F825DC
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118664.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118664.jpgsave_picture_118664.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:D8AC9B28A0FC3DA20639536B99DDB752F7F78699
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118665.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118665.jpgsave_picture_118665.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Davinci Resolve Studio 18.6.5 [Multi/Rus]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118666.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118666.jpgsave_picture_118666.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Legendary Hoplite (2024) [Ru/Multi] (1.0.2) Repack FitGirl [Support Ithaca Bundl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118667.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118667.jpgsave_picture_118667.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Don't Pee (2024) [En] (1.0.2) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118668.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118668.jpgsave_picture_118668.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:5BF3472549A5169144CBE7639E38D61A098D78E3
 >>Отечественные Мультфильмы 21-го века (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118669.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118669.jpgsave_picture_118669.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:18334CF3167F05FC99B40698B12FC7653A8BDFE4
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118670.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118670.jpgsave_picture_118670.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ MemTest86 10.7 Build 1000 Free [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118671.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118671.jpgsave_picture_118671.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:9434179C50FB340503F0C9BF557A8340135046A8
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118672.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118672.jpgsave_picture_118672.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Heroes of Eternal Quest (2024) [Multi] (1.0.16a) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118673.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118673.jpgsave_picture_118673.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ magnet:?xt=urn:btih:9EF3CDB570B3DF05CDCB70F324DFC4B7E94CEE22
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118674.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118674.jpgsave_picture_118674.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ magnet:?xt=urn:btih:63AA580BE71171500A98B9A7D171AC403ED51E79
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118675.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118675.jpgsave_picture_118675.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ magnet:?xt=urn:btih:55FB2C78A89AFEABD151DFAAB6A997953915A40D
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118676.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118676.jpgsave_picture_118676.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ magnet:?xt=urn:btih:AF8526BC408AFDFC66816A3F76BF18EA41B77B22
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118677.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118677.jpgsave_picture_118677.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ magnet:?xt=urn:btih:1D4A34E6AB03CE194735D0B40F6338437C021A4A
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118678.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118678.jpgsave_picture_118678.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ magnet:?xt=urn:btih:28D2CC5E57D0C9177F52686CA27B072A3438C1D3
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118679.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118679.jpgsave_picture_118679.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Nik Collection by DxO 6.8.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118680.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118680.jpgsave_picture_118680.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ Splice (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118681.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118681.jpgsave_picture_118681.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Alfa eBooks Manager 8.6.22.1 Pro & Web [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118682.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118682.jpgsave_picture_118682.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Reg Organizer 9.40 (07.02.2024) RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118683.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118683.jpgsave_picture_118683.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ magnet:?xt=urn:btih:75540DA09E1A02B9606F0E67F7A1CBB109E0B9FC
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118684.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118684.jpgsave_picture_118684.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ magnet:?xt=urn:btih:75318365157B9A2675E9133F63F4944093B0EC70
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118685.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118685.jpgsave_picture_118685.jpg" />
 </div>
 
 

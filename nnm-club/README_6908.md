@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237368.jpgsave_picture_237368.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Hides 5.4.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237370.jpgsave_picture_237370.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:822BFFF15774566511F51A7E3065772BEA2B5536
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237373.jpgsave_picture_237373.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ VA - Le Canzoni D'Oggi (1987) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Italo Pop>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237374.jpgsave_picture_237374.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Peter Hammill – Out Of Water (1990) [FLAC|Lossless|tracks + .cue]<Art Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237375.jpgsave_picture_237375.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:173AB3198C2686AAE75D566EC981D24DB41E4120
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237377.jpgsave_picture_237377.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ MediaHuman Youtube Downloader 3.9.9.33 (build 1502) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237379.jpgsave_picture_237379.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ magnet:?xt=urn:btih:8FA163A152BF276372C8304F112B6AC6A84A5353
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237380.jpgsave_picture_237380.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ magnet:?xt=urn:btih:036FB882ED21B5A906EB0A04D2455826511E9D36
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237381.jpgsave_picture_237381.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ Larry Lampkin - Funky Blues Man (2020) [FLAC|Lossless|image + .cue] <Electric Bl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237385.jpgsave_picture_237385.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ magnet:?xt=urn:btih:AE8467A39883E490DD9C68AF38C26CBAD3D5A83A
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237386.jpgsave_picture_237386.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ magnet:?xt=urn:btih:870F468632D779DE70327E74DA80F836817CB49D
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237387.jpgsave_picture_237387.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ Lords of Black - Alchemy of Souls, Pt. II (2021) [AAC|~315 Kbps] <Metal>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237388.jpgsave_picture_237388.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ magnet:?xt=urn:btih:67AE6CAA0E354F25B2875C2BEF47B628806AC545
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237389.jpgsave_picture_237389.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ Poborsk - Plus Minus (2021) Kaer'Uiks [FLAC|Lossless|WEB-DL|tracks] <IDM, Experi
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237393.jpgsave_picture_237393.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ magnet:?xt=urn:btih:02BCE7DBAB01F00AA2D42543ED23594B065330FD
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237394.jpgsave_picture_237394.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ magnet:?xt=urn:btih:B26B04FD01396D15DE9B2F651FAB38AA96345BD7
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237395.jpgsave_picture_237395.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ magnet:?xt=urn:btih:B03B2C2DD8B35FCE65AF120776E79BBC3357BA89
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237396.jpgsave_picture_237396.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ magnet:?xt=urn:btih:158351B6345016F35688EF60CF14D0487E3C1D1E
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237399.jpgsave_picture_237399.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Hyades - The Wolves Are Getting Hungry (2015) [FLAC|Lossless|image + .cue] <Thra
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237400.jpgsave_picture_237400.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ Phlesh - The Decomposing (2023) [MP3|320 Kbps] <Gothic, Black Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237401.jpgsave_picture_237401.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Autumn Tears - The Glow of Desperation (2021) [AAC|~322 Kbps] <Gothic, Neoclassi
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237402.jpgsave_picture_237402.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ magnet:?xt=urn:btih:716FB4564218B30B3A7BECEB35A0ECA99CF9A419
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237404.jpgsave_picture_237404.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ magnet:?xt=urn:btih:716FB4564218B30B3A7BECEB35A0ECA99CF9A419
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237405.jpgsave_picture_237405.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Amadeus Pro 2.8.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237406.jpgsave_picture_237406.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ Display Maestro 5 v5.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237407.jpgsave_picture_237407.jpg" />
 </div>
 
 

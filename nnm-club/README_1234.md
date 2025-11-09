@@ -6,7 +6,7 @@ Wondershare UniConverter Ultimate 16.1.0.113 RePack (& Portable) by elchupacabra
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32439.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32439.jpgsave_picture_32439.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ SoftPerfect RAM Disk 4.4.2 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32440.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32440.jpgsave_picture_32440.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Freshlife28, Антон Петряков | Худеем со спортом (202
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32441.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32441.jpgsave_picture_32441.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ FreeCommander XE 2025 donor v920 x64 & public v921 x32 + portable [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32442.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32442.jpgsave_picture_32442.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Locked In Mind (2023) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32443.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32443.jpgsave_picture_32443.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:CF98DB02B5EB18CFE15895D112092974B30CF6DD
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32444.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32444.jpgsave_picture_32444.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ Adriano Celentano - Compilation (1958-2021) [MP3|320 Kbps] <Pop, Disco, Rock 'n'
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32445.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32445.jpgsave_picture_32445.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ WinTools.net Premium 25.1.1 Premium RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32446.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32446.jpgsave_picture_32446.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ Trade Conquest (2024) [En] (1.0) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32447.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32447.jpgsave_picture_32447.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ magnet:?xt=urn:btih:35B1B82B20519E1786D76FE7138FEF6B24418EE5
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32448.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32448.jpgsave_picture_32448.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ magnet:?xt=urn:btih:533D1DCB94D629A1C6A8328172520F0B961BF36F
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32449.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32449.jpgsave_picture_32449.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ magnet:?xt=urn:btih:9EF0B556BC224AF49DBF4846081CAA3B2B72D691
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32450.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32450.jpgsave_picture_32450.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Dog Man: Mission Impawsible (2024) [Multi] (Build 16714564) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32451.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32451.jpgsave_picture_32451.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ magnet:?xt=urn:btih:434CB3D59FD6CB353682AAED79FE5A4B5F8E4D3D
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32452.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32452.jpgsave_picture_32452.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ magnet:?xt=urn:btih:0DB89CD04A4514D584265346A62DFC0EC4D25E7B
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32453.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32453.jpgsave_picture_32453.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ magnet:?xt=urn:btih:B822121A72B18A4E1EA988893EABCBE33BB987FB
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32454.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32454.jpgsave_picture_32454.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Star Wars Jedi: Survivor (2023) [Ru/Multi] (1.0.0.11/dlc) Repack Let'sРlay [Del
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32455.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32455.jpgsave_picture_32455.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ magnet:?xt=urn:btih:BA416A4CA71F5C1C94B3E6A54B4106AAFB73205B
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32456.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32456.jpgsave_picture_32456.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ magnet:?xt=urn:btih:018983234B5319E7E3F48A845B3CCC8942A8B314
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32457.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32457.jpgsave_picture_32457.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ magnet:?xt=urn:btih:D8C3034CA21335393454CC922EE41AFB0CB0E17E
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32458.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32458.jpgsave_picture_32458.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ magnet:?xt=urn:btih:E7F306E56686E76B6A0F9F8D0345E9BD0700DDD4
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32459.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32459.jpgsave_picture_32459.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Free Durov (2024) [Ru/Multi] (1.0) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32460.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32460.jpgsave_picture_32460.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ magnet:?xt=urn:btih:F044D28B173DBA52563BFDA42E5D067E8A85AE58
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32461.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32461.jpgsave_picture_32461.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Pyramids and Aliens: Escape Room (2024) [Multi] (1.0.6) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32462.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32462.jpgsave_picture_32462.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Dustborn (2024) [Ru/Multi] (1.10) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32463.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32463.jpgsave_picture_32463.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Topaz Photo AI 3.4.4 RC (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32464.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32464.jpgsave_picture_32464.jpg" />
 </div>
 
 

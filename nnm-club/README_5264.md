@@ -6,7 +6,7 @@ VA - Coffee & Jazz: Chillout Your Mind (2021) [AAC|~327 Kbps] <Lounge, Chill Out
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163656.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163656.jpgsave_picture_163656.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:79B9B204FB01AD55E7BE7A24058BA119E861769A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163657.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163657.jpgsave_picture_163657.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ WidsMob Denoise 2.18 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163658.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163658.jpgsave_picture_163658.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:14E45307DB7A8E561AB9015C083E8F41A5311F3C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163659.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163659.jpgsave_picture_163659.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ Emurasoft EmEditor Professional 19.5.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163660.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163660.jpgsave_picture_163660.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ YTD Video Downloader PRO 5.9.13.7 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163661.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163661.jpgsave_picture_163661.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ Jim Peterik And World Stage - Tigress - Women Who Rock The World (2021) Japanese
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163662.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163662.jpgsave_picture_163662.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ IObit Driver Booster Pro 11.1.0.26 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163663.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163663.jpgsave_picture_163663.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ SILKYPIX Developer Studio Pro 10E v10.0.17.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163664.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163664.jpgsave_picture_163664.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ RoboCop: Rogue City (2023) [Ru/Multi] (1.1.1.0/00.014.032/dlc) Repack DjDI [Alex
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163665.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163665.jpgsave_picture_163665.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ magnet:?xt=urn:btih:D64FF2D596EA68A09A285FF6EE147CF16B9392E3
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163666.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163666.jpgsave_picture_163666.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ Bandicam 5.0.0.1796 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163667.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163667.jpgsave_picture_163667.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ Space Panic Defense 1.1.5.278 (2017) [En] [macOS Native game]
 >>Strategy, RPG для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163668.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163668.jpgsave_picture_163668.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ magnet:?xt=urn:btih:8A7AD001FB0D0F99B1AB85087E145C68095C2414
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163669.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163669.jpgsave_picture_163669.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ magnet:?xt=urn:btih:BE60778C54260635F0B85922962D6EA608661D2E
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163670.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163670.jpgsave_picture_163670.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Olly James - Live @ Rave Culture Liveset, Netherlands (2021-12-05) [MP3|320 Kbps
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163671.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163671.jpgsave_picture_163671.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Rockets LBM Project - Universe One (2019) [FLAC|Lossless|image + .cue] <Electron
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163672.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163672.jpgsave_picture_163672.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Zona v2.0.152 Mod by Timozhai [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163673.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163673.jpgsave_picture_163673.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ JPEG SILKYPIX Photography 10 v10.2.17.0 [EN]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163674.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163674.jpgsave_picture_163674.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ Microsoft Windows 10.0.17763.1637 Version 1809 (Updated December 2020) - Ори�
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163675.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163675.jpgsave_picture_163675.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ magnet:?xt=urn:btih:123EBC04E41B69ABAD524C72B233B5761B2DAE86
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163676.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163676.jpgsave_picture_163676.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ magnet:?xt=urn:btih:7EA774F3BB86610F0ABC5C77595CF51A1234DED6
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163677.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163677.jpgsave_picture_163677.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ magnet:?xt=urn:btih:1CCA844CC8FF4AD32F8ABB8FD38267CDBF969538
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163678.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163678.jpgsave_picture_163678.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ magnet:?xt=urn:btih:6C87E7EE89C82AA329855EEB9391CDDB9C4D5BC0
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163679.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163679.jpgsave_picture_163679.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ magnet:?xt=urn:btih:0FD0EBB4179209985754DABD276700913CE11288
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163680.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163680.jpgsave_picture_163680.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ magnet:?xt=urn:btih:35B8D1D1ECEC67CA782C62E44B4465F6F24560E7
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163681.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163681.jpgsave_picture_163681.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Dying Light 2: Stay Human (2022) [Ru/Multi] (1.24.2/dlc) Repack Wanterlude [Relo
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3534.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3534.jpgsave_picture_3534.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Tunguska: The Visitation (2021) [Ru/Multi] (1.94-5/dlc) Repack Let'sРlay [Enhan
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3535.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3535.jpgsave_picture_3535.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Factorio (2020) [Ru/Multi] (2.0.66/dlc) Repack Let'sРlay
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3537.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3537.jpgsave_picture_3537.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Tyrant's Realm (2025) [Ru/Multi] (Build 19545604) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3540.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3540.jpgsave_picture_3540.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Metal Eden (2025) [Ru/Multi] (1.01) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3545.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3545.jpgsave_picture_3545.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Nordic Ashes: Survivors of Ragnarok (2024) [Ru/Multi] (2.0.5.5/dlc) Repack Let's
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3549.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3549.jpgsave_picture_3549.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Fallen City Brawl (2025) [En] (1.05) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3634.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3634.jpgsave_picture_3634.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ No Man's Sky (2016) [Ru/Multi] (6.03) Repack Wanterlude
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3652.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3652.jpgsave_picture_3652.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Kaptain Brawe: A Brawe New World (2011) [Ru/Multi] (3.1.4.33) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3655.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3655.jpgsave_picture_3655.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Steel Division 2 (2019) [Ru/Multi] (165547/dlc) Repack Let'sРlay [Total Conflic
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3664.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3664.jpgsave_picture_3664.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Satisfactory (2019) [Ru/Multi] (1.1.1.4 CL#433351) Repack Pioneer
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3678.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3678.jpgsave_picture_3678.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ magnet:?xt=urn:btih:4B4F247EEFA5FF0BFD4E0EEE7C9441C9DFCC6154
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3681.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3681.jpgsave_picture_3681.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ CarX Street (2024) [Ru/Multi] (1.8.0/dlc) Repack Let'sРlay [Deluxe edition]
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3683.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3683.jpgsave_picture_3683.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Metal Gear Solid Delta: Snake Eater (2025) [Ru/Multi] (1.1.3/dlc) Repack Wanterl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3684.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3684.jpgsave_picture_3684.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ MX vs ATV Legends (2022) [Ru/Multi] (4.9/dlc) Repack Let'sРlay [Ultimate Editio
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3687.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3687.jpgsave_picture_3687.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ The Unseen Fears 7: Inner Darkness / Невидимые страхи 7: Тьма
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3769.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3769.jpgsave_picture_3769.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ TRAIL OUT (2022) [Ru/Multi] (5.1/dlc) Repack Let'sРlay [Complete]
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3793.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3793.jpgsave_picture_3793.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ The Sims 4 (2014) [Ru/Multi] (1.117.244.1020/dlc) Repack Wanterlude [Deluxe Edit
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3816.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3816.jpgsave_picture_3816.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Mindseye (2025) [Ru/Multi] (5302548/dlc) Repack Let'sРlay
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3820.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3820.jpgsave_picture_3820.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Grand Theft Auto V Enhanced (2025) [Ru/Multi] (1.0.889.22) Repack Wanterlude
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3829.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3829.jpgsave_picture_3829.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ The Last Ski Trip (2025) [Ru/Multi] (3.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3916.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3916.jpgsave_picture_3916.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ The Last Ski Trip (2025) [Ru/Multi] (3.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3925.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3925.jpgsave_picture_3925.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Sword of the Sea (2025) [Ru/Multi] (build 19645438) Repack seleZen
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3928.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3928.jpgsave_picture_3928.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Vending Machine Business Simulator (2024) [Ru/Multi] (1.02) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3936.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3936.jpgsave_picture_3936.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Dead Take (2025) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3954.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3954.jpgsave_picture_3954.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ STAY (2018) [Ru/Multi] (1.0.3.9) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3955.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3955.jpgsave_picture_3955.jpg" />
 </div>
 
 

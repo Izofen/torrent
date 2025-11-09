@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_231619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231619.jpgsave_picture_231619.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Frenzy - Lethal Protector (2016) EP [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231622.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231622.jpgsave_picture_231622.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:1039E48322544B21AB9513C5C9559252F1194A8A
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231623.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231623.jpgsave_picture_231623.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:6EE8C9D2F3B75521C4F71336D3CFE559861E0246
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231624.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231624.jpgsave_picture_231624.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ VA - Cottage Brunch (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231625.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231625.jpgsave_picture_231625.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Grotesqueries - Vile Crematory (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231626.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231626.jpgsave_picture_231626.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ Sandboxie plus 1.9.6 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_231627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231627.jpgsave_picture_231627.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:798DDB0BA95A24217DCB6131045C5EF2A3FCD964
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_231629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231629.jpgsave_picture_231629.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:2F87AC2360413757AB12F59A24B9B2B4907E3039
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231631.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231631.jpgsave_picture_231631.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ Exilium Noctis - Fragments of Apocalypse (2022) [FLAC|Lossless|image + .cue] <Bl
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231632.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231632.jpgsave_picture_231632.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ Rob McConnell & The Boss Brass - Big Band Christmas (1998) Concord Jazz [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231633.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231633.jpgsave_picture_231633.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ Dynamic Wallpaper 14.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231634.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231634.jpgsave_picture_231634.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ Matchbox Twenty - Where The Light Goes (2023) [FLAC 24/44.1|Lossless|WEB-DL|trac
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_231635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231635.jpgsave_picture_231635.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ Jeff Jolly band - Lucky (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231636.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231636.jpgsave_picture_231636.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ Dexter Colt - Train Of Thought (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Ele
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_231637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231637.jpgsave_picture_231637.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ magnet:?xt=urn:btih:3D57E1F98315C3AD538AD8F6A307E946F6D337D3
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231639.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231639.jpgsave_picture_231639.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Tormentor / Kreator - Bonecrushing Demos & Rehearsals '84-85 (2023) Compilation,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231640.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231640.jpgsave_picture_231640.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Rogue Amoeba Farrago 2.0.4 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231641.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231641.jpgsave_picture_231641.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ magnet:?xt=urn:btih:BEFEF0C3DF0769273047DD57A6E7AB53735176C4
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_231642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231642.jpgsave_picture_231642.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Veilburner - Lurkers in the Capsule of Skull (2021) [FLAC|Lossless|WEB-DL|tracks
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231644.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231644.jpgsave_picture_231644.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Eric Heideman - Third Degree Gravity (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231645.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231645.jpgsave_picture_231645.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ GeoGebra 6.0.791.0 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231646.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231646.jpgsave_picture_231646.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Icecream Photo Editor 1.33 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_231648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231648.jpgsave_picture_231648.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Veilburner - The Obscene Rite (2016) [FLAC|Lossless|WEB-DL|tracks] <Black, Death
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231649.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231649.jpgsave_picture_231649.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ magnet:?xt=urn:btih:844CC3BDFE969B0D051883ADFE7D0D004D7603B2
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231650.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231650.jpgsave_picture_231650.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ magnet:?xt=urn:btih:7C7B4271BD642E4ACD414D6555BA788B0F80DE4E
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231652.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231652.jpgsave_picture_231652.jpg" />
 </div>
 
 

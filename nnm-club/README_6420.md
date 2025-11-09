@@ -6,7 +6,7 @@
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203601.jpgsave_picture_203601.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:F6122CA1072B71C3F5D13FE99FC551739C9E4309
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203602.jpgsave_picture_203602.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:70FD950BCBEE4350EF3F199FAE2D00602915E343
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203603.jpgsave_picture_203603.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ FastFlix 5.5.7 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203604.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203604.jpgsave_picture_203604.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:823A2A343988301963F68F110F4BEC51AB68AAEA
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203605.jpgsave_picture_203605.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:202E2C34F2778321D2ACDFAAAA768AB4557DA21C
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203606.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203606.jpgsave_picture_203606.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:C81C767603A50306AC07C10B9D66B26A9B2F9C09
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203607.jpgsave_picture_203607.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ JetBrains PhpStorm for Mac 2023.1.2 Intel/ARM [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203608.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203608.jpgsave_picture_203608.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ VA - Milk & Sugar Beach Sessions 2023 [MP3|320 Kbps] <House, Deep House, Organic
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203609.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203609.jpgsave_picture_203609.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:2035592E0800A180E9D165D45DF68C8FA5B66936
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203610.jpgsave_picture_203610.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:787FDB4778612E981E7A04DDB3A086E3EC9C50F6
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203611.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203611.jpgsave_picture_203611.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ RadioBOSS Advanced 6.2.4.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203612.jpgsave_picture_203612.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ OpenedFilesView 1.90 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203613.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203613.jpgsave_picture_203613.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ magnet:?xt=urn:btih:DC9C91ABC8333579720BCB25EC0EBFB1F4A2B590
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203614.jpgsave_picture_203614.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ magnet:?xt=urn:btih:C28482DDF991BEA695F7D4E1A0E6226AE000B5F4
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203615.jpgsave_picture_203615.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ magnet:?xt=urn:btih:39AAA68B99E1014C1144B476C71826A4444366B2
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203616.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203616.jpgsave_picture_203616.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Macrorit Data Wiper 6.9.9 Pro / Unlimited / Technician Edition RePack (& Portabl
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203617.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203617.jpgsave_picture_203617.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ magnet:?xt=urn:btih:9FF06E284E9CB384BDA8A18534EDD1D16135AFD4
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203618.jpgsave_picture_203618.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ magnet:?xt=urn:btih:45E39FEC83A5D9DD32DDFD14B93FFC6A992205CD
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203619.jpgsave_picture_203619.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ VA - From Bonzai With Love 97 (1997) [FLAC|Lossless|tracks] <Trance, Hard Trance
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203620.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203620.jpgsave_picture_203620.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ magnet:?xt=urn:btih:AE5783B9ABB06558C2C5A869E45B3DB202B82DEE
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203621.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203621.jpgsave_picture_203621.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ magnet:?xt=urn:btih:076D5896D442C09D91588FDC9246742BDF5E8E6F
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203622.jpgsave_picture_203622.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ App Builder 2023.48 (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203623.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203623.jpgsave_picture_203623.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ OCCT 11.0.20 Final Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203624.jpgsave_picture_203624.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ magnet:?xt=urn:btih:1064EE9C1A123B8665FE5FD5770B21FECB1FFEDC
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203625.jpgsave_picture_203625.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ magnet:?xt=urn:btih:6B06DBAACEB88D80949BCEABC02E3C948FC3C865
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203626.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203626.jpgsave_picture_203626.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82680.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82680.jpgsave_picture_82680.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82681.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82681.jpgsave_picture_82681.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ magnet:?xt=urn:btih:1FC25AF8F42024013096CEF1BD82D6BE14B846F7
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82683.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82683.jpgsave_picture_82683.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:1FC25AF8F42024013096CEF1BD82D6BE14B846F7
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82684.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82684.jpgsave_picture_82684.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Mobiloid (L) [En] 2011
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82685.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82685.jpgsave_picture_82685.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ TuneUp Utilities 2012 12.0.3010.5 RePack by elchupacabra [Eng/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82686.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82686.jpgsave_picture_82686.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ Columnof the Maya / Тайна сокровищ майя (P) [Ru] 2012
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82687.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82687.jpgsave_picture_82687.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:3CE01DD1115AC9F422DC1557EA37D73F8964A742
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82688.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82688.jpgsave_picture_82688.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ Audio Damage - DubStation 1.5.2 by ASSiGN  [английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82689.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82689.jpgsave_picture_82689.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ Gary Moore - Ballads & Blues 1982-1994 (1994) [FLAC|Lossless]<Blues-Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82690.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82690.jpgsave_picture_82690.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ Gary Moore - Ballads & Blues 1982-1994 (1994) [FLAC|Lossless]<Blues-Rock>
 >>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82691.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82691.jpgsave_picture_82691.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ magnet:?xt=urn:btih:B3CCC9BC168249B7FD71B6B01185BF2DE3EE63C8
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82692.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82692.jpgsave_picture_82692.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ The Agency of Anomalies 2: Cinderstone Orphanage. Collector's Edition / Аген
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82694.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82694.jpgsave_picture_82694.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ magnet:?xt=urn:btih:84947326E00999E9A5BF3AD761B79841C231B52C
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82695.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82695.jpgsave_picture_82695.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Kookabonga: Crazy Monkey Party / Кукабонга: Весёлые джунгл
 >>Детские Игры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82696.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82696.jpgsave_picture_82696.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ VideoCharge Studio 2.12.0.682 [английский, русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82697.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82697.jpgsave_picture_82697.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ VideoCharge Studio - функциональная программа, с пом�
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82700.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82700.jpgsave_picture_82700.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ Audio Damage - Eos 1.1 by ASSiGN [английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82704.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82704.jpgsave_picture_82704.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Audio Damage - Eos 1.1 by ASSiGN [английский]
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82705.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82705.jpgsave_picture_82705.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ UK Top 40 Music Video Hits Febuary 2012 (DVD5)
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82706.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82706.jpgsave_picture_82706.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ magnet:?xt=urn:btih:98AB80BB8F459C2F3A243268EC65BC0167E964ED
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82707.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82707.jpgsave_picture_82707.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Awakening: The Dreamless Castle / Пробуждение. Заколдованн
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82708.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82708.jpgsave_picture_82708.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ magnet:?xt=urn:btih:D5E9ED8C0A5ACB7B857A853B52A3B52813E2BCA3
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82709.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82709.jpgsave_picture_82709.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ magnet:?xt=urn:btih:D5E9ED8C0A5ACB7B857A853B52A3B52813E2BCA3
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82710.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82710.jpgsave_picture_82710.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Lionel Richie - 2 альбома (2003, 2012) [FLAC|Lossless]<Pop, Soul, R&B>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82711.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82711.jpgsave_picture_82711.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Lionel Richie - 2 альбома (2003, 2012) [FLAC|Lossless]<Pop, Soul, R&B>
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82712.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82712.jpgsave_picture_82712.jpg" />
 </div>
 
 

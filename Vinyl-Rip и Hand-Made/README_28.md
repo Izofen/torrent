@@ -6,7 +6,7 @@ Carpathian Forest - Through Chasm, Caves And Titan Woods (1995) EP, Reissue, 201
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106977.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106977.jpgsave_picture_106977.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Sinistrous Diabolus - Total Doom / Desecration (2013) [FLAC|24/192|image + .cue|
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107001.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107001.jpgsave_picture_107001.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Velvet Cacoon - Genevieve (2004) Released, 2007, Southern Lord [FLAC|24/192|trac
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107075.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107075.jpgsave_picture_107075.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Havohej - Kembatinan Premaster (2009) [FLAC|24/192|image + .cue|Vinyl-Rip] <Blac
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107121.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107121.jpgsave_picture_107121.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Luca Turilli (Dreamquest; Rhapsody) - Studio Albums (7 releases) (1999-2019) han
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107203.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107203.jpgsave_picture_107203.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Lutharo - Studio Albums (4 releases) (2018-2024) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107468.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107468.jpgsave_picture_107468.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ M.O.D. (Method of Destruction) - Studio Albums (9 releases) (1987-2017) hand mad
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107492.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107492.jpgsave_picture_107492.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ S.O.D. - Stormtroopers of Death (Anthrax) - Studio Albums (2 releases) (1985-199
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107528.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107528.jpgsave_picture_107528.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ VA - Двое - Песни на стихи Михаила Танича. Запи
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107614.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107614.jpgsave_picture_107614.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Torture Squad - Studio Albums (10 releases) (1998-2023) hand made [restored, dec
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107858.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107858.jpgsave_picture_107858.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Ensiferum - Two Paths (2017) [FLAC|24/192|image + .cue|Vinyl-Rip] <Epic Folk Met
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107932.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107932.jpgsave_picture_107932.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Ensiferum - Unsung Heroes (2012) [FLAC|24/192|image + .cue|Vinyl-Rip] <Epic Folk
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107934.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107934.jpgsave_picture_107934.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Ensiferum - Victory Songs (2007) [FLAC|24/192|image + .cue|Vinyl-Rip] <Epic Folk
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107935.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107935.jpgsave_picture_107935.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Ensiferum - Victory Songs / From Afar (2017) Compilation [FLAC|24/192|image + .c
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107939.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107939.jpgsave_picture_107939.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Ensiferum - From Afar (2009) Released, 2010, Drakkar Records [FLAC|24/192|image 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107943.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107943.jpgsave_picture_107943.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Aetherian - Studio Albums (3 releases) (2015-2023) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107946.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107946.jpgsave_picture_107946.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ Ensiferum - Ensiferum (2001) Remastered, 2014, Blood Music [FLAC|24/192|image + 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107978.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107978.jpgsave_picture_107978.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ Olshanoe - Как Велик И Печален Мир (2023) [FLAC|24/192|image 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107994.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107994.jpgsave_picture_107994.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Ensiferum - Iron (2004) Remastered, 2014, Blood Music[FLAC|24/192|image + .cue|V
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107997.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107997.jpgsave_picture_107997.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ When Nothing Remains - Studio Albums (3 releases) (2012-2016) hand made [restore
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107999.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107999.jpgsave_picture_107999.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Xaon - Studio Albums (4 releases) (2016-2022) hand made [restored, declipped] [F
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108001.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108001.jpgsave_picture_108001.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Mortician (Austrian) - Studio Albums (4 releases) (2011-2023) hand made [restore
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108003.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108003.jpgsave_picture_108003.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Nox Aurea - Studio Albums (2 releases) (2009-2010) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108035.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108035.jpgsave_picture_108035.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ Tales Of Dark... - Studio Albums (2 releases) (2006-2009) hand made [restored, d
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108036.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108036.jpgsave_picture_108036.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Dying Fetus - Make Them Beg for Death (2023) [FLAC|24/192|image + .cue|Vinyl-Rip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108111.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108111.jpgsave_picture_108111.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ Dying Fetus - Descend into Depravity (2009) [FLAC|24/192|image + .cue|Vinyl-Rip]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108172.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108172.jpgsave_picture_108172.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109229.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109229.jpgsave_picture_109229.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:16B27097AF17918168E30063FD02633A6BDDB190
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109230.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109230.jpgsave_picture_109230.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:0FA05FF57B78A4CA39FCBC61832C39CC8E2BA651
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109231.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109231.jpgsave_picture_109231.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Sensual Lounge Music Universe - Levitating Sensuality: Sexy Smooth Jazz for Wild
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109232.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109232.jpgsave_picture_109232.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Togu Audio Line - TAL-Dub-X 2.1.0 VST, VST 3, AAX, CLAP (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109233.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109233.jpgsave_picture_109233.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ VA - Fulltime Production Disco Classic, Vol. 2 (2013) [FLAC|Lossless|WEB-DL|trac
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109234.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109234.jpgsave_picture_109234.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ Process Lasso Pro 14.0.3.16 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109235.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109235.jpgsave_picture_109235.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:FBA23DC17EBD82EFB001695B66B258063303EB59
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109236.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109236.jpgsave_picture_109236.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:28FA9CABC5F73DD6296181477FED6514FBF26FFD
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109237.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109237.jpgsave_picture_109237.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ Virginia Mayhew Quartet - Mary Lou Williams: The Next 100 Years (2010) 2012, Ren
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109238.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109238.jpgsave_picture_109238.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ Francesco Del Prete - Divertissement (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109239.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109239.jpgsave_picture_109239.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ New Fossils - II (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Contemporary Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109240.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109240.jpgsave_picture_109240.jpg" />
 </div>
 
 
@@ -314,7 +314,7 @@ Daunt - Daunt (2024) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109241.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109241.jpgsave_picture_109241.jpg" />
 </div>
 
 
@@ -341,7 +341,7 @@ Lo Greco Bros - This Way To Love Jazz (2024) [FLAC 24/44.1|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109242.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109242.jpgsave_picture_109242.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ Phil Davis - ALIVE (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Smooth Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109243.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109243.jpgsave_picture_109243.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ Adam Hawley - Unstoppable (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Contempo
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109244.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109244.jpgsave_picture_109244.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Alex Sipiagin - Live At Smalls (2013) Smalls Live [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109245.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109245.jpgsave_picture_109245.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Adelaide Hall - Hall Of Fame (1927 - 1941) 1992, Living Era [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109246.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109246.jpgsave_picture_109246.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ magnet:?xt=urn:btih:F8B0BBFD4F55BFB0EE217E67634F0CCDA36822EB
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109247.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109247.jpgsave_picture_109247.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Datcha Mandala - Koda (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Psychedelic, 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109248.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109248.jpgsave_picture_109248.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ magnet:?xt=urn:btih:B76F6FE629659A7D8CD969B1F37FB82A0ABEF508
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109249.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109249.jpgsave_picture_109249.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ magnet:?xt=urn:btih:6C74493EE81E350F8402642BBB77955B51940705
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109250.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109250.jpgsave_picture_109250.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Soul Button - Phantom Existence (2020) Remix Edition [MP3|320 Kbps] <Tech House,
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109251.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109251.jpgsave_picture_109251.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Relaxing Jazz Music, Smooth Jazz Lounge School - London Jazz Rhythms: Jazz Relax
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109252.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109252.jpgsave_picture_109252.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Soul Button - Phantom Existence (2020) Remix Edition [FLAC|Lossless|WEB-DL|track
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109253.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109253.jpgsave_picture_109253.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ magnet:?xt=urn:btih:D7874996C24F941401ACF525F53D4600AC303CE1
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109254.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109254.jpgsave_picture_109254.jpg" />
 </div>
 
 

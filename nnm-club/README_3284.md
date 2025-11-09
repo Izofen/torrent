@@ -6,7 +6,7 @@
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105745.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105745.jpgsave_picture_105745.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Frank Sinatra - The Romantic Side (2006) Music Sessions [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105746.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105746.jpgsave_picture_105746.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:AB0A6A953D7D760997498E7ED61A367DBDD3833B
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105747.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105747.jpgsave_picture_105747.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ The Jive Aces - Keeping the Show on the Road (2024) [FLAC 24/96|Lossless|WEB-DL|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105748.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105748.jpgsave_picture_105748.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ The Home Team - The Crucible Of Life (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105749.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105749.jpgsave_picture_105749.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Atlantic - Another World (2024) [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105750.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105750.jpgsave_picture_105750.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ magnet:?xt=urn:btih:A98B8DD1A9324F706DE109E878E0E3C48BBE232C
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105751.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105751.jpgsave_picture_105751.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ magnet:?xt=urn:btih:FB40C2974BF97E60DC8D5D112E9EA2152E393D5A
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105752.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105752.jpgsave_picture_105752.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ Little Richard Vs Bigbeat Kings - Tutti Frutti Reloaded (2009) [WavPack|Lossless
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105753.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105753.jpgsave_picture_105753.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ magnet:?xt=urn:btih:C91A3DD8C75078F62BF615CD2BABEFD38DB6CFDC
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105754.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105754.jpgsave_picture_105754.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ magnet:?xt=urn:btih:925F306036397BE1CB13CFFFB58A7B2690C7892F
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105755.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105755.jpgsave_picture_105755.jpg" />
 </div>
 
 
@@ -291,7 +291,7 @@ magnet:?xt=urn:btih:6BBE9F76444A6CDEEE9F09732F3E631C03696013
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105756.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105756.jpgsave_picture_105756.jpg" />
 </div>
 
 
@@ -315,7 +315,7 @@ magnet:?xt=urn:btih:2A8DD09983DC2FCF28554D8081F808CCDDB5BA33
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105757.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105757.jpgsave_picture_105757.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ Dream Evil - Metal Gods (2024) [FLAC|Lossless|image + .cue] <Heavy, Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105758.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105758.jpgsave_picture_105758.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Plugin Boutique - Scaler EQ 1.1.3 Standalone, VST, VST 3, AAX (x86/x64) RePack b
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105759.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105759.jpgsave_picture_105759.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ magnet:?xt=urn:btih:9983BD55A6BF20D02A5019084F7ED51E07774030
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105760.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105760.jpgsave_picture_105760.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ PeaZip 9.9 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105761.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105761.jpgsave_picture_105761.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ magnet:?xt=urn:btih:19C974483CEE7E7D875172D476E2D9E7F85457E6
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105762.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105762.jpgsave_picture_105762.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ A.D. Sheffield | Command of Sentence-Patterns (1929) [PDF] [EN]
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105763.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105763.jpgsave_picture_105763.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ magnet:?xt=urn:btih:39EC35E11931E35E5B569EDA02E2530089A8BAD0
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105764.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105764.jpgsave_picture_105764.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ RisohEditor 5.8.4 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105765.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105765.jpgsave_picture_105765.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ magnet:?xt=urn:btih:6478A6D3B01DB39FB0B4829BE92C60DEF392990C
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105766.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105766.jpgsave_picture_105766.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ magnet:?xt=urn:btih:6D2880EA6271DE76F30C10EE26E7311F1339BCDD
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105767.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105767.jpgsave_picture_105767.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ magnet:?xt=urn:btih:D36F6F7DD80F0D29912DB442A399F85BCCEF4197
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105768.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105768.jpgsave_picture_105768.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ AirBrush: ИИ Фоторедактор v7.0.0 Mod by PieMods [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105769.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105769.jpgsave_picture_105769.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ magnet:?xt=urn:btih:AD1EB39C413398E4E3D3AFF9C09D9245AD5F372F
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105770.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105770.jpgsave_picture_105770.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ MediaHuman Youtube Downloader 3.9.9.50 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174480.jpgsave_picture_174480.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:3F0B7BB411B3B1B7A4A1A75636EC590BD7C10CA6
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174482.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174482.jpgsave_picture_174482.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:5D53F55273BEBF4DFFC7D16ED6352BD0EDB2B6A3
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174483.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174483.jpgsave_picture_174483.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:2F593FF8D903DE91AC148C2F9509DE6B06BCC9EE
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174484.jpgsave_picture_174484.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ Softany WinCHM Pro 5.499 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174486.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174486.jpgsave_picture_174486.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ HWiNFO 7.64 Build 5240 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174487.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174487.jpgsave_picture_174487.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ magnet:?xt=urn:btih:879AD687203ED0F7008A25420EA7320F0D5CFBA7
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174488.jpgsave_picture_174488.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ Guitar Pro for Mac 8.1.1 [Multi/Ru]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174490.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174490.jpgsave_picture_174490.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ XYplorer 23.80.0100 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174491.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174491.jpgsave_picture_174491.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ Bongiovi Digital Power Station (DPS) 2.2.5.1 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174492.jpgsave_picture_174492.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ magnet:?xt=urn:btih:0D7E572995D1766AAB6B2476D7823A12A02AC600
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174494.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174494.jpgsave_picture_174494.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ magnet:?xt=urn:btih:F1A864F0C91F530CF83E38D718A4F2137C5445F7
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174495.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174495.jpgsave_picture_174495.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:E7C6FCD9E8F652A46C493471D263341AC33EB429
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174496.jpgsave_picture_174496.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ VA - Remix Rockets (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Tech
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174498.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174498.jpgsave_picture_174498.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ LibreOffice 7.6.2.1 Stable Portable by PortableApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174499.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174499.jpgsave_picture_174499.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ GeoGebra 6.0.619.0 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174500.jpgsave_picture_174500.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ magnet:?xt=urn:btih:A1A984BCD18DB1169FC12DEB536216A02E709FC6
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174501.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174501.jpgsave_picture_174501.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Auslogics BoostSpeed 13.0.0.5 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174503.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174503.jpgsave_picture_174503.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ VA - Beatport Clubbing House: Electro Sound Pack #207 (2020) [MP3|320 Kbps] <Clu
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174504.jpgsave_picture_174504.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Master PDF Editor 5.9.70 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174506.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174506.jpgsave_picture_174506.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ magnet:?xt=urn:btih:A64F77C16F793AA7161FA91D2D18296C3733AC56
 >>Прочие зимние виды спорта
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174507.jpgsave_picture_174507.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ R-Studio Network 9.3 Build 191248 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174509.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174509.jpgsave_picture_174509.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Glary Disk Cleaner 5.0.1.226 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174510.jpgsave_picture_174510.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ magnet:?xt=urn:btih:8C2C52F95C2DE70002ABE371463F17E9830AD40C
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174512.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174512.jpgsave_picture_174512.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ magnet:?xt=urn:btih:CD95A58D9290A8EAACF50D5820F3845A2C160E6E
 >>Прочие зимние виды спорта
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174513.jpgsave_picture_174513.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ Auslogics Registry Cleaner Pro 10.0.0.4 RePack (& Portable) by elchupacabra [Mul
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174515.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174515.jpgsave_picture_174515.jpg" />
 </div>
 
 

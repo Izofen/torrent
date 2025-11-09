@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_183814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183814.jpgsave_picture_183814.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:B72CB0EB55A178FBDBF0731307718E52CBED838E
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183816.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183816.jpgsave_picture_183816.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Pale Moon 31.4.0 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183819.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183819.jpgsave_picture_183819.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:8A677EF3D3959AB385E7B1F39BF4180958B63054
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_183820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183820.jpgsave_picture_183820.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Enterclass, Сергей Лысый | Солнце за костелом (2023) 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183821.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183821.jpgsave_picture_183821.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:7739D73271CF9BEB2293E8D81D9A19D0084B08E1
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183822.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183822.jpgsave_picture_183822.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:5221197CC1E3731AA3E521288130744F7BE7774B
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_183825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183825.jpgsave_picture_183825.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:832A5355BD91E691FDD12E31AA3D1764ECED3117
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183826.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183826.jpgsave_picture_183826.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:9BEE6D07CDD6B905AB2B3E2633FD3CC3CE89C2AF
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_183829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183829.jpgsave_picture_183829.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ magnet:?xt=urn:btih:428ADB55A2BC68925442088EB882ED2C6BA81506
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183830.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183830.jpgsave_picture_183830.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Google Chrome 117.0.5938.132 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183831.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183831.jpgsave_picture_183831.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ magnet:?xt=urn:btih:CB92E2B025880DC5E98D9C76C87B337A5C62A9A4
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183833.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183833.jpgsave_picture_183833.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ magnet:?xt=urn:btih:2E2C21E56FD7101BCA06AA86750A4B8468E674F0
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_183834.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_183834.jpgsave_picture_183834.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Enterclass, Анна Иванова | Ахалтекинец (2023) WEB-DL [AD] 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183836.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183836.jpgsave_picture_183836.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ VA - Deep-House World Vol. 3 (2022) CD, Compilation [MP3|320 Kbps] <Deep-House, 
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183837.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183837.jpgsave_picture_183837.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ magnet:?xt=urn:btih:3CD85C644D9F57291EA526FD75AA143300C7D79A
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183839.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183839.jpgsave_picture_183839.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ magnet:?xt=urn:btih:650D4E7538A1A5FE401E04546F09BBF3ED44820A
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183840.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183840.jpgsave_picture_183840.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Universal Copy v6.3.5 Мод by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_183842.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_183842.jpgsave_picture_183842.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ magnet:?xt=urn:btih:DEF2F8312E78679EB7E6D5E30E77A879AD27A853
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183843.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183843.jpgsave_picture_183843.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ Ed Sheeran - Autumn Variations (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183845.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183845.jpgsave_picture_183845.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ magnet:?xt=urn:btih:C3D497BAD6A50017149481879B3F358571C8DDE6
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183846.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183846.jpgsave_picture_183846.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ Draw.io 22.0.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_183849.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_183849.jpgsave_picture_183849.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ DEEMO -Reborn- (2020) [Ru/Multi] (1.1.1/dlc) Repack Other s [Complete Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_183850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183850.jpgsave_picture_183850.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Red Lama - 4 Albums (2016-2022) [FLAC|Lossless|WEB-DL|tracks] <Neo-Psychodelia, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183851.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183851.jpgsave_picture_183851.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ VA - Союз Детский (2013) [MP3|320 Kbps] <Детские песни>
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_183853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183853.jpgsave_picture_183853.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ magnet:?xt=urn:btih:62EF39A2F9F459A758E28BC5A0B8CBB2720CF86D
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183854.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183854.jpgsave_picture_183854.jpg" />
 </div>
 
 

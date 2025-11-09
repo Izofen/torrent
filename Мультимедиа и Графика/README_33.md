@@ -6,7 +6,7 @@ Woodstock Audio - Open Compressor 1.0.2 VST 3 (x64) RePack by R2R [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124411.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124411.jpgsave_picture_124411.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Metric Halo - Make Believe MixHead 4.0.86 VST, VST 3, AAX (x64) RePack by R2R [E
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124414.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124414.jpgsave_picture_124414.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ Metric Halo - CGII 4.0.86 VST, VST 3, AAX (x64) RePack by R2R [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124416.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124416.jpgsave_picture_124416.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:EDC0FA58032CC8B24F6B0580624605373D25F158
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125254.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125254.jpgsave_picture_125254.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Kazrog Plugins 10.2025 VST, VST 3, AAX (x64) Retail [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125861.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125861.jpgsave_picture_125861.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ XnView MP 1.9.5 + Portable [Multi/Ru]
 >>Просмотрщики Графики (вьюверы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126037.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126037.jpgsave_picture_126037.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ PanoramaStudio Pro 4.1.6 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126087.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126087.jpgsave_picture_126087.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Teorex Inpaint 10.2.3 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127846.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127846.jpgsave_picture_127846.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ JixiPix Spektrel Art 1.1.17 (х64) Portable by Spirit Summer [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128441.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128441.jpgsave_picture_128441.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Freemake Video Converter 5.0.0.16 [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128587.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128587.jpgsave_picture_128587.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Spotify 1.2.72.438 Repack & Portable by elchupacabra (x64) [Multi/Ru]
 >>Аудио Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128608.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128608.jpgsave_picture_128608.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Freemake Video Converter 5.0.0.16 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128609.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128609.jpgsave_picture_128609.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Reaper 7.48 RePack (& Portable) by elchupacabra [En/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128933.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128933.jpgsave_picture_128933.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Raising Jake Studios - Cans 2 Cones 4.0.0 VST, VST3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130026.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130026.jpgsave_picture_130026.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Sonic Charge - Microtonic 3.20 VSTi  [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130082.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130082.jpgsave_picture_130082.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ onOne Perfect Portrait 2.0 Premium Edition [Английский]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131223.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131223.jpgsave_picture_131223.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Jixipix Watercolor Studio 1.4.17 (х64) Portable by Spirit Summer [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131736.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131736.jpgsave_picture_131736.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ JixiPix Pastello 6.0.98 (х64) Portable by Spirit Summer [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132610.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132610.jpgsave_picture_132610.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ Teorex Inpaint 10.2.3 Portable by Spirit Summer [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132998.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132998.jpgsave_picture_132998.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ Ashampoo Photo Optimizer 10.0.0.19 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133352.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133352.jpgsave_picture_133352.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ Adobe Director MX 2004 [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133360.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133360.jpgsave_picture_133360.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ Adobe Director 11.5 [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133676.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133676.jpgsave_picture_133676.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ ID Photos Pro  8.11.2.2 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133697.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133697.jpgsave_picture_133697.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ ACDSee Photo Studio Ultimate 2026 19.0.0.4295 Full / Lite (17.10.2025) RePack by
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136729.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136729.jpgsave_picture_136729.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ reaConverter Pro 8.0.144 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136846.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136846.jpgsave_picture_136846.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ Kdenlive 25.08.2 [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136933.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136933.jpgsave_picture_136933.jpg" />
 </div>
 
 

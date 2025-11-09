@@ -6,7 +6,7 @@ Insanely Twisted Shadow Planet (RePack) [Ru/En] 2012 | R.G. Origami
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102336.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102336.jpgsave_picture_102336.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ The Book of Desires / Книга желаний (P) [Ru] 2012
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102409.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102409.jpgsave_picture_102409.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Dark Tales: Edgar Allan Poe's Murders in the Rue Morgue / Страшные ис�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102466.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102466.jpgsave_picture_102466.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Abandoned: Chestnut Lodge Asylum / Заброшенная клиника "Каш
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102476.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102476.jpgsave_picture_102476.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Sale Frenzy / Безумный шопинг (P) [Ru] 2011
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102634.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102634.jpgsave_picture_102634.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Don't Starve Together (2016) [Ru/Multi] (692916/dlc) Repack Let'sРlay [MEGA PAC
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102695.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102695.jpgsave_picture_102695.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Ember Knights (2023) [Ru/Multi] (2.0.0.b4510/dlc) Repack Pioneer
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103559.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103559.jpgsave_picture_103559.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Starstruck: Hands of Time (2024) [Ru/Multi] (1.0) Repack FitGirl [Soundtrack Bun
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104004.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104004.jpgsave_picture_104004.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Who's That Flying?! (2011) [En] (1.0) Scene PROPHET
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104136.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104136.jpgsave_picture_104136.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:A37E6388BCEA720018243B49E38B32D2636F00BC
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104138.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104138.jpgsave_picture_104138.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Halloween Secrets: The Blood Vow / Секреты Хэллоуина: Клятв
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104370.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104370.jpgsave_picture_104370.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Destroy All Humans! (2020) [Ru/Multi] (1.0.2550/dlc) Repack Let'sРlay
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104412.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104412.jpgsave_picture_104412.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Deadlink (2022) [Ru/Multi] (1.2.32484) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104418.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104418.jpgsave_picture_104418.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ SILENT HILL f (2025) [Ru/Multi] (1.1.380186.0) License GOG
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104419.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104419.jpgsave_picture_104419.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Cat Quest (2017) [Ru/Multi] (1.2.13) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104435.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104435.jpgsave_picture_104435.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Cat Quest II (2019) [Ru/Multi] (1.7.6) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104451.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104451.jpgsave_picture_104451.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Blood of Mehran (2025) [Ru/Multi] (1.0.16) Scene Rune
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104459.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104459.jpgsave_picture_104459.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Blood of Mehran (2025) [Ru/Multi] (1.0.16) Repack seleZen
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104467.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104467.jpgsave_picture_104467.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Blood of Mehran (2025) [Ru/Multi] (1.0.16) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104468.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104468.jpgsave_picture_104468.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Blood of Mehran (2025) [Ru/Multi] (1.0.16+34cdf77) Repack Decepticon
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104469.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104469.jpgsave_picture_104469.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Greak: Memories of Azur (2021) [Ru/Multi] (1.0.6_114) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104470.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104470.jpgsave_picture_104470.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Bewitching Sinners (2024) [En] (1.9.8.1) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104836.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104836.jpgsave_picture_104836.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ SWORN (2025) [Ru/Multi] (1.0.1.0.1018/dlc) Repack Let'sРlay [Ultimate Edition]
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104914.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104914.jpgsave_picture_104914.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Savara (2025) [Ru/Multi] (1.1.2) Repack Let'sРlay [Collector's Edition]
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104916.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104916.jpgsave_picture_104916.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Human Fall Flat (2016) [Ru/Multi] (20240605) Scene TinyISO
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105156.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105156.jpgsave_picture_105156.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Lunar Glow Stellar Dance (2024) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105191.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105191.jpgsave_picture_105191.jpg" />
 </div>
 
 

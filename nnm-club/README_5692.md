@@ -6,7 +6,7 @@ Bartender 5 v.5.0.39 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175364.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175364.jpgsave_picture_175364.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Worms Armageddon (1999) [Ru/Multi] (3.8) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175365.jpgsave_picture_175365.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Trivium - Vengeance Falls (2013) Remaster, 2023, Road Runner Entertainment [FLAC
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175367.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175367.jpgsave_picture_175367.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ Typora for Mac 1.7.6 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175370.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175370.jpgsave_picture_175370.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:23845C78651A6F29B8C853D7F0C0FB2727885AFC
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175371.jpgsave_picture_175371.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ Audio Editor - Merge Split And Edit 1.6.2 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175373.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175373.jpgsave_picture_175373.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ HTML Academy | Анимация для фронтендеров (2020) [unpacked
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175374.jpgsave_picture_175374.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ Vintage Culture - Live @ Thunder Machine Stage, VNTG Is A Festival Brasilia, Bra
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175376.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175376.jpgsave_picture_175376.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ WinRAR 6.00 Final [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175377.jpgsave_picture_175377.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ Eigenflame - Pathway to a New World (2023) [MP3|320 Kbps] <Symphonic Power Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175379.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175379.jpgsave_picture_175379.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ magnet:?xt=urn:btih:F83CF632C66C0F9B5D4340D3154F50F4A62C270F
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175380.jpgsave_picture_175380.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ Viper FTP 6.3.7 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175382.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175382.jpgsave_picture_175382.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ magnet:?xt=urn:btih:F606A951EEC9FFCA6C0E66B355FF245D821A7F7F
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175383.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175383.jpgsave_picture_175383.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ magnet:?xt=urn:btih:5AFCECD628948443CBF57111A37E41DBB8020D21
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175384.jpgsave_picture_175384.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Revo Uninstaller Pro 5.0.8 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175386.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175386.jpgsave_picture_175386.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Hazel 5.2.2 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175387.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175387.jpgsave_picture_175387.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ magnet:?xt=urn:btih:4D375A4642AE6ED5B41340AB8BD8F485DAA0039B
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175388.jpgsave_picture_175388.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Allavsoft Video Downloader Converter 3.25.9.8679  [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175390.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175390.jpgsave_picture_175390.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ magnet:?xt=urn:btih:A69DE241D36AB44AF30F67EA4DF0509135FF5FF9
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175391.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175391.jpgsave_picture_175391.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ magnet:?xt=urn:btih:97FF11007E40332BC489C058038F2E6D0C047DA3
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175394.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175394.jpgsave_picture_175394.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ BusyCal 2023.4.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175395.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175395.jpgsave_picture_175395.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ magnet:?xt=urn:btih:9B562F069307DD79F99C8E1C329B9A040BFB2CA8
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175396.jpgsave_picture_175396.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ magnet:?xt=urn:btih:86FFF0BEB94FA928C9132C735F4BE975BABCA710
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175397.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175397.jpgsave_picture_175397.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:692530065DF7BE5E0ACD8466F8D6DAC4AFC56B82
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175399.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175399.jpgsave_picture_175399.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ magnet:?xt=urn:btih:1643462EDD23F438000B999C5809C7A3818F474B
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175400.jpgsave_picture_175400.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ OmniReader Pro for Mac 2.5.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175402.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175402.jpgsave_picture_175402.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Turn Me On Dead Man - Cassiopeia (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Har
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186591.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186591.jpgsave_picture_186591.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:722C14942E4F7A17A37F41ACF85DDCA55239DEF2
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186592.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186592.jpgsave_picture_186592.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:03DD4CFD3A8ACFC24279919E5B8DB1C9F2458AE1
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_186593.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_186593.jpgsave_picture_186593.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:CEC3A7EF5613DD0F5F0423FA73837A1325AC38DB
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_186594.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_186594.jpgsave_picture_186594.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ Renee Rosnes - And The Danish Radio Big Band (2001) 2003, Blue Note Records [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186595.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186595.jpgsave_picture_186595.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ Roy Eldridge - Decidedly (1975) 2002, Pablo [FLAC|Lossless|tracks + .cue] <Mains
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186596.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186596.jpgsave_picture_186596.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ Dayshell - Pegasus (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Post-Hardcore, 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186597.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186597.jpgsave_picture_186597.jpg" />
 </div>
 
 
@@ -187,7 +187,7 @@ Ripper - Return To Death Row (EP) (2022) [FLAC|Lossless|image + .cue] <Heavy Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186598.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186598.jpgsave_picture_186598.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Zhorhann - Ainsi Parlait Hominina (2023) [FLAC|Lossless|WEB-DL|tracks] <Progress
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186599.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186599.jpgsave_picture_186599.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ magnet:?xt=urn:btih:9DC98A721EE155F494AAE96FB92325E653734A18
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186600.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186600.jpgsave_picture_186600.jpg" />
 </div>
 
 
@@ -265,7 +265,7 @@ magnet:?xt=urn:btih:40A867EC55713324FE68FF0134B4BED435D0176F
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186602.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186602.jpgsave_picture_186602.jpg" />
 </div>
 
 
@@ -289,7 +289,7 @@ magnet:?xt=urn:btih:8FDD13783E7BA52359B86B6ABE2E6658CDEAB16F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186603.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186603.jpgsave_picture_186603.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ Microsoft Windows 11 [10.0.22621.2283], Version 22H2 (Updated September 2023) - 
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186604.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186604.jpgsave_picture_186604.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ Microsoft® Windows® 7 Ultimate Ru x86/x64 nBook IE11 by OVGorskiy 09.2023 1DVD
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186607.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186607.jpgsave_picture_186607.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ Adobe Photoshop 2023 24.7.1.741 (x64) RePack by SanLex [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186608.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186608.jpgsave_picture_186608.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ Memento Mori - Rhymes of Lunacy (1993) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186610.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186610.jpgsave_picture_186610.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Thy Grave - 3 Release (2013-2022) [FLAC|Lossless|WEB-DL|tracks] <Doom metal, Slu
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186612.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186612.jpgsave_picture_186612.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ Jidouhanbaiki ni Umarekawatta Ore wa Meikyuu o Samayou | Orejihanki | Перер
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186613.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186613.jpgsave_picture_186613.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Poltergeist - Feather Of Truth (2020) [FLAC|Lossless|image + .cue] <Thrash Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186614.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186614.jpgsave_picture_186614.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ magnet:?xt=urn:btih:47E4A0DB33619F4A9412F25D1DE9D7D24E0AFF61
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186616.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186616.jpgsave_picture_186616.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ magnet:?xt=urn:btih:B9FF84CA63D1C73DCB8EBBD8ACEE19D2369A732A
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186618.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186618.jpgsave_picture_186618.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Windows Login Unlocker 2.0 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186621.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186621.jpgsave_picture_186621.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ magnet:?xt=urn:btih:F8565D9DD886DAE328F64E2F39DBE5169E38C633
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186625.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186625.jpgsave_picture_186625.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Wondershare Filmora 12.5.7.3767 x64 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186626.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186626.jpgsave_picture_186626.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Deworker Pro, Дмитрий Елисеев | Использование HTTP з
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_186628.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_186628.jpgsave_picture_186628.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ Adobe After Effects 2023 (23.0.0.59) Portable by XpucT [Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186629.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186629.jpgsave_picture_186629.jpg" />
 </div>
 
 

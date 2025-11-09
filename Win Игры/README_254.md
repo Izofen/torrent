@@ -6,7 +6,7 @@ Realpolitiks II (2021) [Ru/Multi] (1.09) License GOG [Deluxe Edition]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170623.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170623.jpgsave_picture_170623.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Chorus (2021) [Ru/Multi] (Build 7785124) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170688.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170688.jpgsave_picture_170688.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ The Christmas Spirit 4: Journey Before Christmas (2020) [En] (1.0) Unofficial [C
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170695.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170695.jpgsave_picture_170695.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Counter Terrorist Agency (2019) [Ru/Multi] (1.0.1) Repack R.G. Механики
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170782.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170782.jpgsave_picture_170782.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Happy's Humble Burger Farm (2021) [Ru/Multi] (1.16.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170792.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170792.jpgsave_picture_170792.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ The Dungeon Of Naheulbeuk: The Amulet Of Chaos (2020) [Ru/Multi] (1.4.51.41549/d
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170801.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170801.jpgsave_picture_170801.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Skeletal Avenger (2021) [Ru/Multi] (1.0.6.4) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170870.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170870.jpgsave_picture_170870.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ City of Stories: Stephan's Journey (2023) [En] (1.0) Unofficial [Collector's Edi
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170984.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170984.jpgsave_picture_170984.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ En Garde! (2023) [Multi] (1.0.5) Scene Rune
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171110.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171110.jpgsave_picture_171110.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ WWE 2K23 (2023) [Multi] (1.18/dlc) Scene Rune [Icon Edition]
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171112.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171112.jpgsave_picture_171112.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Under The Waves (2023) [Ru/Multi] (1.0.5) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171290.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171290.jpgsave_picture_171290.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Shadow Gambit: The Cursed Crew (2023) [Ru/Multi] (1.1.28r39001f) Scene Rune
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171301.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171301.jpgsave_picture_171301.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Gloomy Tales 2: One-Way Ticket / Мрачные истории 2: Билет в 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171338.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171338.jpgsave_picture_171338.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Fears to Fathom: Ironbark Lookout (2023) [Ru/Multi] (1.3) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171463.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171463.jpgsave_picture_171463.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Hero Survival (2023) [Ru/En] (1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171466.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171466.jpgsave_picture_171466.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ The Gap (2023) [Multi] (1.0.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171474.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171474.jpgsave_picture_171474.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Freaky Trip (2023) [En] (1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171479.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171479.jpgsave_picture_171479.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Euro Truck Simulator 2 / С грузом по Европе 3 (2013) [Ru/Multi] (
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171481.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171481.jpgsave_picture_171481.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Vlad Circus: Descend into Madness (2023) [Ru/Multi] (2.34) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171640.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171640.jpgsave_picture_171640.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Lair of Torment (2023) [Ru/Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171671.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171671.jpgsave_picture_171671.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Crowns and Pawns: Kingdom of Deceit (2022) [Ru/Multi] (1.1.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171791.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171791.jpgsave_picture_171791.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Wargroove 2 (2023) [Ru/Multi] (1.2.3) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171802.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171802.jpgsave_picture_171802.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Space Wreck (2023) [En] (1.3.24) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171814.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171814.jpgsave_picture_171814.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Hexarchy (2023) [Ru/Multi] (1.0) Scene Tenoke
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171816.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171816.jpgsave_picture_171816.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Savant - Ascent REMIX (2023) [Ru/Multi] (1.04) Scene Tenoke [Bundle]
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171831.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171831.jpgsave_picture_171831.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Paranormal Files 10: Counterpart (2023) [En] (1.0) Unofficial [Collector's Editi
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171885.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171885.jpgsave_picture_171885.jpg" />
 </div>
 
 

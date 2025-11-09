@@ -6,7 +6,7 @@ The Precinct (2025) [Ru/Multi] (1.4.18135) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18128.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18128.jpgsave_picture_18128.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Outer Wilds (2019) [Ru/Multi] (1.1.16/dlc) Repack Wanterlude
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18130.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18130.jpgsave_picture_18130.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Cubic Odyssey (2025) [Ru/Multi] (1.0.1.15) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18134.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18134.jpgsave_picture_18134.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Fabledom (2024) [Ru/Multi] (1.07 HF) Repack Let'sРlay
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18142.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18142.jpgsave_picture_18142.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ The Sinking City (2019) [Ru/Multi] (ms6 58246 s mc2 4/dlc) License GOG [Remaster
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18150.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18150.jpgsave_picture_18150.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Avium (2024) [Ru/Multi] (Patch 43/dlc) Repack Let'sРlay
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18166.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18166.jpgsave_picture_18166.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Diplomacy is Not an Option (2022) [Ru/Multi] (1.0.53r) Repack FitGirl
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18172.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18172.jpgsave_picture_18172.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Pathfinder: Wrath of the Righteous (2021) [Ru/Multi] (2.7.0x/dlc) Repack Let'sР
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18175.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18175.jpgsave_picture_18175.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Life is Strange: Double Exposure (2024) [Ru/Multi] (build 16505703) Repack seleZ
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18182.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18182.jpgsave_picture_18182.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ EBOLA VILLAGE (2025) [Ru/En] (1.0.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18204.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18204.jpgsave_picture_18204.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Life is Strange Double Exposure (2024) [Ru/Multi] (1.1.1027899/dlc) Repack Let's
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18208.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18208.jpgsave_picture_18208.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Life is Strange: Double Exposure (2024) [Ru/Multi] (1.1.1027899.2411220323/dlc) 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18214.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18214.jpgsave_picture_18214.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Life is Strange: Double Exposure (2024) [Ru/Multi] (1.1.1027899.2411220323/dlc) 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18227.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18227.jpgsave_picture_18227.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Life is Strange: Double Exposure (2024) [Ru/Multi] (1.1.1027899.2411220323/dlc) 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18229.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18229.jpgsave_picture_18229.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ EBOLA VILLAGE (2025) [Ru/En] (1.0.0) Repack Decepticon
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18239.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18239.jpgsave_picture_18239.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Cryptical Path (2025) [Ru/Multi] (1.0.2) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18246.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18246.jpgsave_picture_18246.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ The Sinking City (2019) [Ru/Multi] (Build 18222381/dlc) Repack FitGirl [Remaster
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18247.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18247.jpgsave_picture_18247.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ EBOLA VILLAGE (2025) [Ru/En] (1.0.0) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18258.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18258.jpgsave_picture_18258.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Magicraft (2024) [Ru/Multi] (1.1.16) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18269.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18269.jpgsave_picture_18269.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Battle Shapers (2024) [Ru/Multi] (1.1.2.10449) Repack Let'sРlay
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18270.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18270.jpgsave_picture_18270.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Frostpunk 2 (2024) [Ru/Multi] (1.3.0/dlc) Repack Wanterlude
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18272.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18272.jpgsave_picture_18272.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ EBOLA VILLAGE (2025) [Ru/En] (1.0.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18282.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18282.jpgsave_picture_18282.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Death Squared (2017) [En] (1.8.5) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18310.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18310.jpgsave_picture_18310.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ The Crimson Diamond (2024) [En] (1.10u3) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18328.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18328.jpgsave_picture_18328.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Crow Country (2024) [Multi] (Build 18435138) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18345.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18345.jpgsave_picture_18345.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Crystal Project (2023) [En] (1.6.6.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18352.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18352.jpgsave_picture_18352.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99526.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99526.jpgsave_picture_99526.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:CC83D258A09B16D568EC2EE2E378FA8851AFAB98
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99527.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99527.jpgsave_picture_99527.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:D83EDECA6BD2659155C82F16AEF887BD44B90740
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99528.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99528.jpgsave_picture_99528.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:16688E2DAEC892B552404DFFB552B074101373A9
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99530.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99530.jpgsave_picture_99530.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ CIFRAmagazine.com | Электронный журнал CIFRAmagazine №02 [201
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99534.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99534.jpgsave_picture_99534.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:8F56E6F9C04D4C7609545DD112D98BE0CAD5030C
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99536.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99536.jpgsave_picture_99536.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:397763121364DAE1D38AEC0B19DA0ABF3087AAB8
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99538.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99538.jpgsave_picture_99538.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:0521023B505828677DA89E5ED5F48BBE746D0C38
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99541.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99541.jpgsave_picture_99541.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:367594FE6B4CAD5FBD94DD23BBB7664C25114D2F
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99543.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99543.jpgsave_picture_99543.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:E3624E635044A75B6D61DA580D7625C50EB211D9
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99544.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99544.jpgsave_picture_99544.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ VA - Хиты Европы Плюс №20 (2012) [MP3|256 кб/с]<Pop>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99546.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99546.jpgsave_picture_99546.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ magnet:?xt=urn:btih:96163EC328D19F1A9E87F2369DAE6CF889E78188
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99548.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99548.jpgsave_picture_99548.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ VA - XXXL Super дискотечный 50/50 (2012) [MP3|256-320 kbps]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99549.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99549.jpgsave_picture_99549.jpg" />
 </div>
 
 
@@ -341,7 +341,7 @@ Interphace - Injected Movements (2005) [MP3|320 кб/с]<Euro-Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99551.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99551.jpgsave_picture_99551.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ State of Mind - Live! (2012) [MP3|256 кб/с]<Drum & Bass>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99552.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99552.jpgsave_picture_99552.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ VA - Слушать Всем DFm! 50/50 (2012) [MP3|256 kbps]<Pop | Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99554.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99554.jpgsave_picture_99554.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ VA - Deeper Chill Out Line (2012) [MP3|320 kbps]<Downtempo | Lounge | Chillout>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99555.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99555.jpgsave_picture_99555.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ VA - Chill Out Vibes (2012) [MP3|320 kbps]<Downtempo | Lounge | Chillout>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99561.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99561.jpgsave_picture_99561.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Spirits of Mystery 2: Song of the Phoenix Collector's Edition (P) [En] 2012
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99562.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99562.jpgsave_picture_99562.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ magnet:?xt=urn:btih:106D68B60E1B5F30B918BB3AE4AC6A9136F011D4
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99563.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99563.jpgsave_picture_99563.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ magnet:?xt=urn:btih:44FF64EF9B62B957D6B26C078445501F77A4320B
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99566.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99566.jpgsave_picture_99566.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ magnet:?xt=urn:btih:DB05276BF59966421FB9B7D8124C4A202345B4CE
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99567.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99567.jpgsave_picture_99567.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ magnet:?xt=urn:btih:B09F38FB125D7D3BA0BAB384F3C1E469DC9AFF4A
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99569.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99569.jpgsave_picture_99569.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ magnet:?xt=urn:btih:A3439E3C3D2BD2AFE582FA740300DEFA46F3C53C
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99572.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99572.jpgsave_picture_99572.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ Short Bus Pile Up - Repulsive Display Of Human Upholstery (2010) [MP3|320 кб/�
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99574.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99574.jpgsave_picture_99574.jpg" />
 </div>
 
 
@@ -688,7 +688,7 @@ VA - Дискотека Non-Stop. Будет жарко (2012) [MP3|160-256 кб
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99582.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99582.jpgsave_picture_99582.jpg" />
 </div>
 
 

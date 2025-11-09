@@ -6,7 +6,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202826.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202826.jpgsave_picture_202826.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Icecream Video Converter Pro 1.33 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202827.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202827.jpgsave_picture_202827.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:65B0DE23A61B7B6803EF7644E33F02F4308F2E4C
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202828.jpgsave_picture_202828.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:0991BB5C5CEFACA973F532537D4F8DD473699B22
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202829.jpgsave_picture_202829.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:56531C0DDBDE59E1D81CCFBA16EC2A12C1768B39
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202830.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202830.jpgsave_picture_202830.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:47D228BD36564CE140342E4223882F83457109C6
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202831.jpgsave_picture_202831.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Coco Montoya - Writing On The Wall (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202832.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202832.jpgsave_picture_202832.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Dwarven Skykeep (2022) [Ru/Multi] (50015) License GOG
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202833.jpgsave_picture_202833.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Icecream Video Editor Pro 3.06 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202834.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202834.jpgsave_picture_202834.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ XYplorer 24.90.0100 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202835.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202835.jpgsave_picture_202835.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ GoodSync Enterprise 12.1.6.6 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202836.jpgsave_picture_202836.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:44D0AACB43EBBCDE7475561F04B3AE841804DCB2
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202837.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202837.jpgsave_picture_202837.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:DD578809022ECBBC2A531736D8C8838EFB073CC3
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202838.jpgsave_picture_202838.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Focusplan Pro - Mind Map 1.6.17 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202839.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202839.jpgsave_picture_202839.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Skul: The Hero Slayer (2021) [Ru/Multi] (1.7.2) Repack ElAmigos
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202840.jpgsave_picture_202840.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ Telegram Desktop 4.9.4 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202841.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202841.jpgsave_picture_202841.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ magnet:?xt=urn:btih:06469FC8201E94CF4FCB11B0FD223FEFCB2E703D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202842.jpgsave_picture_202842.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ Waves Complete V14 2023.02.07 VST, VST 3, AAX, STANDALONE (x64) RePack by R2R [E
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202843.jpgsave_picture_202843.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ magnet:?xt=urn:btih:BA00B2DE54CE7F305DB09D737292C7B11C8F9CA1
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202844.jpgsave_picture_202844.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ magnet:?xt=urn:btih:4EEC301A88EF6E5F0AE9299138E7AD7F664D8821
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202845.jpgsave_picture_202845.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ magnet:?xt=urn:btih:4F123CA024E5ADC6660A5A08E0EDCC1587FE9A14
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202846.jpgsave_picture_202846.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ magnet:?xt=urn:btih:E4EA26D7A8FFF7E47CA5819B9208EC825A81473C
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202847.jpgsave_picture_202847.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ magnet:?xt=urn:btih:01656C5C74FC269FE5C18A25501192726F70DC2A
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202848.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202848.jpgsave_picture_202848.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ magnet:?xt=urn:btih:DEB8B410CA7EB83CA9FCEF46A4DBD1A74E943FD8
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202849.jpgsave_picture_202849.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Duplicate Cleaner Pro 5.20.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202850.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202850.jpgsave_picture_202850.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Wondershare PDFelement 10.0.4.2446 + OCR Plugin (x64) Portable by 7997 [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202851.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202851.jpgsave_picture_202851.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ My love with the GirlsGroup (2024) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58936.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58936.jpgsave_picture_58936.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ The Legend of Heroes: Trails of Cold Steel III (2020) [Multi] (1.06/dlc) License
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58946.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58946.jpgsave_picture_58946.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Agatha Christie - Murder on the Orient Express (2023) [Ru/Multi] (20231222-20582
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58954.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58954.jpgsave_picture_58954.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Lotus Lantern: Rescue Mother (2024) [Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59004.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59004.jpgsave_picture_59004.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Pepper Grinder (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59006.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59006.jpgsave_picture_59006.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ HOT WHEELS UNLEASHED 2: Turbocharged (2023) [Multi] (1.0/dlc) Repack FitGirl
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59024.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59024.jpgsave_picture_59024.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Ghostwire: Tokyo (2022) [Ru/Multi] (13890751/dlc) Repack FitGirl [Deluxe Edition
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59026.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59026.jpgsave_picture_59026.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Jonesville (2024) [Multi] (1.0) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59035.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59035.jpgsave_picture_59035.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Our Adventurer Guild (2024) [En] (1.071) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59070.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59070.jpgsave_picture_59070.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Goons: Legends & Mayhem (2024) [Multi] (1.0.0.7) Repack FitGirl [Digital Deluxe]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59098.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59098.jpgsave_picture_59098.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Turbo Kid (2024) [Multi] (1.0) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59108.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59108.jpgsave_picture_59108.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Hot Wheels Unleashed (2021) [Ru/Multi] (1.0upd14/dlc) License CODEX
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59123.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59123.jpgsave_picture_59123.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Rise of the Triad: Ludicrous Edition (2023) [Multi] (1.1.2952) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59134.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59134.jpgsave_picture_59134.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Fights in Tight Spaces (2021) [Ru/Multi] (1.2.9501/dlc) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59158.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59158.jpgsave_picture_59158.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ magnet:?xt=urn:btih:6FF85EC917740573C2AC03E56A3C21008B1D67AD
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59160.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59160.jpgsave_picture_59160.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Hypnospace Outlaw (2019) [En] (2.5) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59174.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59174.jpgsave_picture_59174.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ The Harmony Chronicles: Chaos Realms / Хроники гармонии: Царс
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59195.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59195.jpgsave_picture_59195.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Mystical Riddles 4: Ghostly Park / Мистические загадки 4: Па
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59212.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59212.jpgsave_picture_59212.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ BIOMORPH (2024) [Multi] (1.1.26426) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59220.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59220.jpgsave_picture_59220.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Inspector Schmidt - A Bavarian Tale (2023) [Multi] (1.0.1.1014) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59222.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59222.jpgsave_picture_59222.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Farmer's Dynasty (2019) [Ru/Multi] (1.07/dlc) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59223.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59223.jpgsave_picture_59223.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Lil Doll House (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59230.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59230.jpgsave_picture_59230.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Sword Art Online: Last Recollection (2023) [Ru/Multi] (1.21/dlc) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59237.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59237.jpgsave_picture_59237.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Revival: Recolonization (2023) [Ru/Multi] (1.0.415) Repack FitGirl [Deluxe Editi
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59239.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59239.jpgsave_picture_59239.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Grand Canyon (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59242.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59242.jpgsave_picture_59242.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Ghostwire: Tokyo (2022) [Ru/Multi] (Spider's Thread/dlc) Scene Rune [Deluxe Edit
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59243.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59243.jpgsave_picture_59243.jpg" />
 </div>
 
 

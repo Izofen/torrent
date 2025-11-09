@@ -6,7 +6,7 @@ Roxxcalibur - NWOBHM From The Vaults (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18932.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18932.jpgsave_picture_18932.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Behemoth - The Shit Ov God (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Black Met
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18934.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18934.jpgsave_picture_18934.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Bekor Qilish - Throes of Death From the Dreamed Nihilism (2022) Released, 2023, 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19035.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19035.jpgsave_picture_19035.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Believer - Extraction from Mortality (1989) [FLAC|24/96|image + .cue|Vinyl-Rip] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19039.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19039.jpgsave_picture_19039.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Caliban - The Undying Darkness (2006) [FLAC|24/192|tracks|Vinyl-Rip] <Metalcore>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19040.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19040.jpgsave_picture_19040.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Thomas Anders - … Sings Modern Talking: Let's Talk About Love (2025) [FLAC 24/
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19356.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19356.jpgsave_picture_19356.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Crematory - Destination (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Industrial
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19550.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19550.jpgsave_picture_19550.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ VA - Heavy Artillery (1990) Unofficial Release [FLAC 2.0|44.1/24|image +.cue|MC-
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19564.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19564.jpgsave_picture_19564.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Barren Earth - Studio Albums (4 releases) (2010-2018) hand made [restored, decli
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19565.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19565.jpgsave_picture_19565.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Pink Floyd - Pink Floyd at Pompeii - MCMLXXII (2025 Mix) (1972) [FLAC 24/96|Loss
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19625.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19625.jpgsave_picture_19625.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ VA - Eurovision Song Contest - Turin 2025 (2025) [FLAC 16,24/44.1,48|Lossless|WE
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19664.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19664.jpgsave_picture_19664.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Eternal Storm - Studio Albums (3 releases) (2013-2024) hand made [restored, decl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19754.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19754.jpgsave_picture_19754.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ The Halo Effect - March Of The Unheard (Bonus Edition) (2025) [FLAC 24/48|Lossle
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19769.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19769.jpgsave_picture_19769.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ MONOЛИЗА - Кит (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19770.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19770.jpgsave_picture_19770.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Smokie/Смоуки - Bright Lights & Back Alleys/Яркий Свет И Тем�
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19838.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19838.jpgsave_picture_19838.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Orbit Culture - Studio Albums (8 releases) (2013-2023) hand made [restored, decl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20048.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20048.jpgsave_picture_20048.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ Sacred Steel - Studio Albums (10 releases) (1997-2025) hand made [restored, decl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20167.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20167.jpgsave_picture_20167.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Noah Beatz - Noah (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20172.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20172.jpgsave_picture_20172.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ H.E.A.T - Studio Albums (8 releases) (2008-2025) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20179.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20179.jpgsave_picture_20179.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ Alice Cooper - Black Mamba (2025) Single [FLAC 24/48|Lossless|WEB-DL|tracks] <Ha
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20385.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20385.jpgsave_picture_20385.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ Nachtblut - Studio Albums (7 releases) (2007-2025) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20398.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20398.jpgsave_picture_20398.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Ghost - Skeletá (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20403.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20403.jpgsave_picture_20403.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ Bleed From Within - Studio Albums (9 releases) (2008-2025) hand made [restored, 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20404.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20404.jpgsave_picture_20404.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ Machine Head - Studio Albums (15 releases) (1994-2025) hand made [restored, decl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20431.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20431.jpgsave_picture_20431.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ Cradle of Filth - Studio Albums (26 releases) (1994-2025) hand made [restored, d
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20464.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20464.jpgsave_picture_20464.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ Donna Summer - Cats Without Claws (1984) 40th Anniversary Edition, 2025, Driven 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20803.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20803.jpgsave_picture_20803.jpg" />
 </div>
 
 

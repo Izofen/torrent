@@ -6,7 +6,7 @@ Greedland (2025) [Ru/Multi] (1.0.36c) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_419.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_419.jpgsave_picture_419.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Microsoft Windows 11 [10.0.26200.6584], Version 25H2 (Updated September 2025) - 
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_420.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_420.jpgsave_picture_420.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Achilles: Legends Untold (2023) [Ru/Multi] (1.8.0/dlc) Repack Let'sРlay [Soundt
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_421.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_421.jpgsave_picture_421.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:40E5FBD0ACFE1799A7FFC292F700F08E8BEF7ABF
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_423.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_423.jpgsave_picture_423.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:F0153D86628EE3E8B45250AAAAF42CFD94B9112A
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_424.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_424.jpgsave_picture_424.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ One Eyed Likho / Лихо одноглазое (2025) [Ru/Multi] (Build 19955863
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_425.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_425.jpgsave_picture_425.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Monolith (2023) [Ru/Multi] (1.1.7.001) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_426.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_426.jpgsave_picture_426.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Rufus 4.10 (Build 2279) + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_427.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_427.jpgsave_picture_427.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:F9B85BF6DA600F8300D890769E5647C28D1CA379
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_428.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_428.jpgsave_picture_428.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Kingdom Rush 5: Alliance TD (2024) [Ru/Multi] (6.00.114/dlc) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_429.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_429.jpgsave_picture_429.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:D70BBBD490A65BB14B69175D4DB71CF6961E1EA6
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_431.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_431.jpgsave_picture_431.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:568DBB42409BEB3375D461BD47A7FC587B5DC799
 >>Отечественные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_433.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_433.jpgsave_picture_433.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Isekai Mokushiroku Mynoghra / Apocalypse Bringer Mynoghra / Апокалипси
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_434.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_434.jpgsave_picture_434.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ magnet:?xt=urn:btih:BB1DCB623C6060B77C7F1F39191BBD286203A9D6
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_435.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_435.jpgsave_picture_435.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ UltraPack 2k10 7.40 [Ru/En]
 >>15
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_438.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_438.jpgsave_picture_438.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ C9PE 2k10 7.40 Unofficial [Ru/En]
 >>22
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_439.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_439.jpgsave_picture_439.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Hitman: Blood Money / Hitman: Кровавые деньги (2006) [Ru] (1.2) Re
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_440.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_440.jpgsave_picture_440.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ MultiBoot 2k10 7.40 Unofficial [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_441.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_441.jpgsave_picture_441.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ W10 Digital Activation v1.5.5.1 Portable by Ratiborus [Ru/En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_442.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_442.jpgsave_picture_442.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ magnet:?xt=urn:btih:05999E3301B51311CE6B1C84633E30C480F0A135
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_443.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_443.jpgsave_picture_443.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Atelier Yumia: The Alchemist of Memories & The Envisioned Land (2025) [Ru/Multi]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_444.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_444.jpgsave_picture_444.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ magnet:?xt=urn:btih:C135356846F01A13CCEA24D9BCE21DADC5B45183
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_445.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_445.jpgsave_picture_445.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ magnet:?xt=urn:btih:C135356846F01A13CCEA24D9BCE21DADC5B45183
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_446.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_446.jpgsave_picture_446.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Vintage Culture - Culture Shock 001-146 (2021-2025) [MP3|320 Kbps] <House, Tech 
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_447.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_447.jpgsave_picture_447.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ magnet:?xt=urn:btih:2B059CAA5DB8731376978C923EB724C5AE31D518
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_448.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_448.jpgsave_picture_448.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Wartales (2021) [Ru/Multi] (1.0.43382 HF2/dlc) Repack Let'sРlay [The Mercenarie
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_449.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_449.jpgsave_picture_449.jpg" />
 </div>
 
 

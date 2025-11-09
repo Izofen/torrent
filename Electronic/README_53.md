@@ -6,7 +6,7 @@ Markus Schulz - Global DJ Broadcast (Global DJ Broadcast World Tour, Stereo Mont
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101542.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101542.jpgsave_picture_101542.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Seekae - The Worry (2014) 10th Anniversary Edition, 2024, Future Classic [FLAC|L
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101547.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101547.jpgsave_picture_101547.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ AzizRush - War (2024) [MP3|320 Kbps] <Electronic>
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101550.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101550.jpgsave_picture_101550.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Above & Beyond - Tranquility Base Vol. 2 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101560.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101560.jpgsave_picture_101560.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ VA - Deep Focus (2024) [MP3|320 Kbps] <Progressive House, Melodic House & Techno
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101564.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101564.jpgsave_picture_101564.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Tricky & Marta - Out the Way (2025) [FLAC|Lossless|WEB-DL|tracks] <Trip-Hop, Ele
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101681.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101681.jpgsave_picture_101681.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Moby - always centered at night - remixes (2024) [FLAC|Lossless|WEB-DL|tracks] <
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102703.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102703.jpgsave_picture_102703.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ VA - Ibiza Winter 2025 (Deep-House Smoothies from the Heart) (2024) [MP3|320 Kbp
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102706.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102706.jpgsave_picture_102706.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ VA - Christmas Dance Party 2024-2025 (Best of Dance, House & Electro) (2024) [MP
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102708.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102708.jpgsave_picture_102708.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ VA - Christmas Party 2024-2025 (Best of Dance, House & Electro) (2024) [MP3|320 
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102709.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102709.jpgsave_picture_102709.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ VA - Anjunadeep The Yearbook 2024 (2024) [MP3|320 Kbps] <Progressive House, Melo
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102730.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102730.jpgsave_picture_102730.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ VA - Everybody Is In The Mix (The Best Dance Cover Versions), Vol. 4 (2024) [MP3
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102731.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102731.jpgsave_picture_102731.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ VA - Winter Vibes Deep House (2024) [MP3|320 Kbps] <House, Deep House, Dance, Cl
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102737.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102737.jpgsave_picture_102737.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ VA - Armin van Buuren - A State Of Trance 1202 (2024) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102739.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102739.jpgsave_picture_102739.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ VA - Everybody Is In The Mix (The Best Dance Cover Versions), Vol. 3 (2024) [MP3
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102763.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102763.jpgsave_picture_102763.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ VA - Gaming Music 2024: EDM For Players (2024) [MP3|320 Kbps] <Dance, Club, Hous
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102770.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102770.jpgsave_picture_102770.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ VA - Future Sounds. EDM 2024 (2024) [MP3|320 Kbps] <Dance, Club, House, Electron
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102775.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102775.jpgsave_picture_102775.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Interface - Zero Sum Equation (2024) [FLAC|Lossless|WEB-DL|tracks] <Futurepop, S
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102800.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102800.jpgsave_picture_102800.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Eihwaz - AmadeuS (2012) [FLAC|Lossless|image + .cue] <Symphonic Metal, Power Met
 >>Downtempo, Trip-Hop, Lounge
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102866.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102866.jpgsave_picture_102866.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ VA - Armin van Buuren - A State Of Trance 1201 (2024) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102868.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102868.jpgsave_picture_102868.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ Markus Schulz - Global DJ Broadcast Dream Sequence (Uplifting Trance Mix) (2024-
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102872.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102872.jpgsave_picture_102872.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ VA - Uplifting Only Top 15: December 2024 (Extended Mixes) (2024) [MP3|320 Kbps]
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102899.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102899.jpgsave_picture_102899.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ Sheep on Drugs - From A to H and Back Again (1994) [FLAC|Lossless|tracks + .cue]
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102902.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102902.jpgsave_picture_102902.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ Black Shaman - Black Shaman (2020) [FLAC|Lossless|Web-DL|tracks] <Dark Chill, Do
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102905.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102905.jpgsave_picture_102905.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ VA - The Best Of Suanda True 2024 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102954.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102954.jpgsave_picture_102954.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ VA - The Best Of Suanda Future 2024 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102956.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102956.jpgsave_picture_102956.jpg" />
 </div>
 
 

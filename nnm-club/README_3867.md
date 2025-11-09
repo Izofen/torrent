@@ -6,7 +6,7 @@
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120968.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120968.jpgsave_picture_120968.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ NonVisual Desktop Access (NVDA) 2023.3.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120969.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120969.jpgsave_picture_120969.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ VA - Deep Blue Sea, Vol. 7 (2024) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Loun
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120970.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120970.jpgsave_picture_120970.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Duplicate Manager Pro 1.4.4 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120971.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120971.jpgsave_picture_120971.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ ApolloOne - Photo Video Viewer Pro 3.3.8 (patch only) [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120972.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120972.jpgsave_picture_120972.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ TechTool Pro 18 v.18.1.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120973.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120973.jpgsave_picture_120973.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ Omega - Az Omega koncertek legnagyobb sikerei eredeti felvételeken (1994) [FLAC
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120974.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120974.jpgsave_picture_120974.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ Steinberg WaveLab Pro for Mac12.0 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120975.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120975.jpgsave_picture_120975.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:13F40A1F9FC1D0B4273D601CD92FF33171964077
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120976.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120976.jpgsave_picture_120976.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ Eva Carboni - In the Name of the Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Blu
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120977.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120977.jpgsave_picture_120977.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ magnet:?xt=urn:btih:7936D98FB10E5BF7D9DB8386A694D0D89B265639
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120978.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120978.jpgsave_picture_120978.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ Garbage - Garbage (1995) [OGG Vorbis|480 Kbps] <Rock, Pop, Alternative Rock, Pop
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120979.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120979.jpgsave_picture_120979.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ Lucifer - Lucifer V (2024) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic, Heavy Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120980.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120980.jpgsave_picture_120980.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ AnyMP4 iPhone Password Manager for Mac 1.0.20 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120981.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120981.jpgsave_picture_120981.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ Dead by April - The Affliction (2024) [FLAC 16/44.1, 24/48|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120982.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120982.jpgsave_picture_120982.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ magnet:?xt=urn:btih:1FD179C2E80A6B805A833DB3CBE6E0CEBA1F6AA3
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120983.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120983.jpgsave_picture_120983.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ LibreWolf 122.0-1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120984.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120984.jpgsave_picture_120984.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ magnet:?xt=urn:btih:D548BB066596BFEF25C35CCE7F2B18F8557E38BB
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120985.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120985.jpgsave_picture_120985.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ magnet:?xt=urn:btih:E8412D668918F9A7F451811D66705EF29BC966CB
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120986.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120986.jpgsave_picture_120986.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ magnet:?xt=urn:btih:8D1B5ACA3457ECE648C924B3F546EE4560BDA5EF
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120987.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120987.jpgsave_picture_120987.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ magnet:?xt=urn:btih:29FA657DC1D3D13FCB149A4F16C9C6DA7011F931
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120988.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120988.jpgsave_picture_120988.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ magnet:?xt=urn:btih:FA0253FA7DB7AEB05ACED9141D0445595E7581F4
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120989.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120989.jpgsave_picture_120989.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ DesktopOK 11.16 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120990.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120990.jpgsave_picture_120990.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ MuseScore 4.2.1 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120991.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120991.jpgsave_picture_120991.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ magnet:?xt=urn:btih:0E70E997554262B8BBC24F279C700959AF814631
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120992.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120992.jpgsave_picture_120992.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ Vivaldi 6.5.3206.57 include standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120993.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120993.jpgsave_picture_120993.jpg" />
 </div>
 
 

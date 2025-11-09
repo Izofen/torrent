@@ -6,7 +6,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163414.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163414.jpgsave_picture_163414.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:E3D857F14F8494F2012C2DD46C246877F82D9AD0
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163415.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163415.jpgsave_picture_163415.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Guitar Tuna v6.16.0 Pro [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163416.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163416.jpgsave_picture_163416.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Creeping Death - The Edge Of Existence (2021) [APE|Lossless|image + .cue] <Death
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163417.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163417.jpgsave_picture_163417.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ CyberLink ColorDirector Ultra 10.1.2406.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163418.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163418.jpgsave_picture_163418.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ Oasis - The Masterplan (1998) Remastered Edition, 2023, Big Brother Recordings L
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163419.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163419.jpgsave_picture_163419.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ magnet:?xt=urn:btih:8EF77D9943F5736E130153D53119BC50E23004FB
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163420.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163420.jpgsave_picture_163420.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ VA - Christmas and New Year music xoxoxoxo (2021) 5CD [MP3|320 Kbps] <Pop, Rock,
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163421.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163421.jpgsave_picture_163421.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ Comecon - The Worms Of God (2008) 2CD Reissued-2009 [FLAC|Lossless|image + .cue]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163422.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163422.jpgsave_picture_163422.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ Zombie Army 4: Dead War (2020) [Ru/En] (2.02/dlc) Repack Other s [Super Deluxe E
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163423.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163423.jpgsave_picture_163423.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ magnet:?xt=urn:btih:C718BDF9A829BD27537486901D5EB14B26C08EB6
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163424.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163424.jpgsave_picture_163424.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ magnet:?xt=urn:btih:28394F8A2A73E19864DCB0EFBC906A3C9130759D
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163425.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163425.jpgsave_picture_163425.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ magnet:?xt=urn:btih:FC987B859F6AC2CF24DDECA978758A0A9498B893
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163426.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163426.jpgsave_picture_163426.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ Django Reinhardt - 1944 - 1946 (1997) Classics [FLAC|Lossless|tracks + .cue] <Sw
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163427.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163427.jpgsave_picture_163427.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ magnet:?xt=urn:btih:769411F72C5AF0CDD620754E01FA59B164B1D03E
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163428.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163428.jpgsave_picture_163428.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ magnet:?xt=urn:btih:440E299E6954CC8272B245B21F44E8DFD5AC63C5
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163429.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163429.jpgsave_picture_163429.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ Sandboxie 5.33.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163430.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163430.jpgsave_picture_163430.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ Pale Moon 29.4.3 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163431.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163431.jpgsave_picture_163431.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ SamDrivers 20.12 - Сборник драйверов для Windows [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163432.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163432.jpgsave_picture_163432.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ Biwo - Life And Death (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163433.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163433.jpgsave_picture_163433.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ magnet:?xt=urn:btih:7CC05D2424F7CD061C8674555FE44AFC11946A48
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163434.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163434.jpgsave_picture_163434.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Richard Marx - Stories To Tell (2010) [OGG Vorbis|480 Kbps] <Rock, Pop, Soft Roc
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163435.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163435.jpgsave_picture_163435.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ magnet:?xt=urn:btih:FD98F67C52C2234E84607CAFBB335B016B23CEA9
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163436.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163436.jpgsave_picture_163436.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Serviio Pro 2.2.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163438.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163438.jpgsave_picture_163438.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Paste 2.5.4 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163439.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163439.jpgsave_picture_163439.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ magnet:?xt=urn:btih:E6C6A1C2956D287DD56612B80ACFFBBE770AEF61
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163440.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163440.jpgsave_picture_163440.jpg" />
 </div>
 
 

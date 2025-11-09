@@ -6,7 +6,7 @@ A Divine Guide To Puzzle Solving (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59803.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59803.jpgsave_picture_59803.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:7F19DE4753E925F44B0B93FF5826A10EC586DF42
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59804.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59804.jpgsave_picture_59804.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:ADFFB27A4343D879D6249AD245963189C65C4CFE
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59805.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59805.jpgsave_picture_59805.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Children of the Sun (2024) [Ru/Multi] (13997895) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59806.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59806.jpgsave_picture_59806.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Windows Firewall Control 6.9.9.7 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59807.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59807.jpgsave_picture_59807.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:62113911973EE448073AB907D795B12CF014FEE4
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59808.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59808.jpgsave_picture_59808.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:18E3C35BB6EA6DA196AAB209851D017C5FFBEFA4
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59809.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59809.jpgsave_picture_59809.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:CFB1F5FCCABBA9EE208914270704251343444B40
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59810.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59810.jpgsave_picture_59810.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Voice Love on Air (2024) [Multi] (1.1.6) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59811.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59811.jpgsave_picture_59811.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Filmic Pro 6.8.4 Mod by EasyAPK [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59812.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59812.jpgsave_picture_59812.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ magnet:?xt=urn:btih:ED803EA7BECD1FED9371CEB1E2A381489AB0199F
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59813.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59813.jpgsave_picture_59813.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ VA - Soul Healing Music (2024) [MP3|320 Kbps] <New Age, Ambient, Meditative>
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59814.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59814.jpgsave_picture_59814.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:71B2F145E423E657C6561E390FAF3CA46DDF5255
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59815.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59815.jpgsave_picture_59815.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ magnet:?xt=urn:btih:71E9522CA3201FFD9B273D1AD788AEBFE8266BAE
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59816.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59816.jpgsave_picture_59816.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ magnet:?xt=urn:btih:12F0200DC496BE365EB8EF9D53B1BED8432159C4
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59817.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59817.jpgsave_picture_59817.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ magnet:?xt=urn:btih:12F0200DC496BE365EB8EF9D53B1BED8432159C4
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59818.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59818.jpgsave_picture_59818.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ White Day 2: The Flower That Tells Lies (2023) [Ru/Multi] (3.0/dlc) Repack FitGi
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59819.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59819.jpgsave_picture_59819.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ magnet:?xt=urn:btih:1E68FABD109C96FB6CB32C591C9DB8E08F233AF9
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59820.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59820.jpgsave_picture_59820.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Topaz Photo AI 3.0.0 (x64) RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59821.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59821.jpgsave_picture_59821.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ VA - We Love Italo Dance (vol. 2) (2014) [FLAC|Lossless|WEB-DL|tracks] <Italo Da
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59822.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59822.jpgsave_picture_59822.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ VA - 40 Italo Dance Tunes 2014 (2014) [FLAC|Lossless|WEB-DL|tracks] <Italo Dance
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59823.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59823.jpgsave_picture_59823.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ magnet:?xt=urn:btih:224DC53B9CE1FF8574CFD3F20A5BBA101433A93C
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59824.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59824.jpgsave_picture_59824.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ magnet:?xt=urn:btih:3C9A24AE7324FFDDB7C4C22447AC32CBBB50DC8C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59825.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59825.jpgsave_picture_59825.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ magnet:?xt=urn:btih:AF5D1FB01CA16BF86956AB2A93EF2606DA1D75B4
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59826.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59826.jpgsave_picture_59826.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ CD 2: Trap Master (2024) [Ru/Multi] (1.0.2) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59827.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59827.jpgsave_picture_59827.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Cockos REAPER 7.14 (x86/x64) RePack (& Portable) by xetrin [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59828.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59828.jpgsave_picture_59828.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188248.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188248.jpgsave_picture_188248.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:BE490FD5E9E03D6B4C33A085781FFC21B37FB164
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188249.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188249.jpgsave_picture_188249.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ Magic Disk Cleaner 2.3.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188250.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188250.jpgsave_picture_188250.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ Giampiero Boneschi - Unusual Beat Sounds Fantasy (1979) LP [MP3|320 Kbps] <Elect
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188251.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188251.jpgsave_picture_188251.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ magnet:?xt=urn:btih:D3059DA0289E88C850606B890E74EDCDAD471AB4
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188252.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188252.jpgsave_picture_188252.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ Web Dumper for Mac 3.4.5 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188253.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188253.jpgsave_picture_188253.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ Manntra - Oyka! (2019) [MP3|320 Kbps] <Folk Metal, Industrial Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188254.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188254.jpgsave_picture_188254.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ Mark Boals (Shining Black; The Codex) - Studio Albums (6 releases) (1998-2022) h
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188255.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188255.jpgsave_picture_188255.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ Principle 6.32 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188256.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188256.jpgsave_picture_188256.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ KCNcrew Pack 09-15-23 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188257.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188257.jpgsave_picture_188257.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ magnet:?xt=urn:btih:D7AF56E96C848D12CC3C08DB218F759B7F9070B1
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188258.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188258.jpgsave_picture_188258.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ magnet:?xt=urn:btih:9784124163BE00118E295F78D3D6FE8B75AB386D
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188259.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188259.jpgsave_picture_188259.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ magnet:?xt=urn:btih:BD2FAA80077813CFA9C204B9C1CD54D52EA4C522
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188260.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188260.jpgsave_picture_188260.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ magnet:?xt=urn:btih:80511E17C017BA33087280E52C169193319E13AF
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188261.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188261.jpgsave_picture_188261.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ Manntra - Meridian (2017) [MP3|320 Kbps] <Folk Metal, Industrial Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188262.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188262.jpgsave_picture_188262.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ PDF Merge & PDF Splitter + 6.3.9 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188263.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188263.jpgsave_picture_188263.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Manntra - Horizont (2012) [MP3|320 Kbps] <Folk Metal, Industrial Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188264.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188264.jpgsave_picture_188264.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Speech 1.11.0 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188265.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188265.jpgsave_picture_188265.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ Manntra - Venera (2015) [MP3|320 Kbps] <Folk Metal, Industrial Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188266.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188266.jpgsave_picture_188266.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ Tomb Mold - The Enduring Spirit (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188267.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188267.jpgsave_picture_188267.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ Burner - Hittin' The Target (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188268.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188268.jpgsave_picture_188268.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ magnet:?xt=urn:btih:75B7E1BA1D385D4F4A8750C1463E4283A3BF29DE
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188269.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188269.jpgsave_picture_188269.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ NetShred X 5.8.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188270.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188270.jpgsave_picture_188270.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Brujeria - Esto Es Brujeria (2023) [FLAC|Lossless|WEB-DL|tracks] <Death, Groove 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188271.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188271.jpgsave_picture_188271.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ magnet:?xt=urn:btih:C08108A69B9748DD96E97994EE5A0AFC2F315385
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188273.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188273.jpgsave_picture_188273.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ PowerPhotos 2.5b5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188274.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188274.jpgsave_picture_188274.jpg" />
 </div>
 
 

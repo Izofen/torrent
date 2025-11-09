@@ -6,7 +6,7 @@
 >>Звездные войны / Star Wars (сериалы по франшизе)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157613.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157613.jpgsave_picture_157613.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ VA - Подставляйте ладони-я насыплю Вам солнца
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157614.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157614.jpgsave_picture_157614.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Jay Jesse Johnson - Man On A Mission (2021) [FLAC|Lossless|image + .cue] <Blues 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157615.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157615.jpgsave_picture_157615.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ CorelDRAW Technical Suite 2020 22.2.0.532 (x64) RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157616.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157616.jpgsave_picture_157616.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:DEC6B7D6E6472A317FE4ABF0E80A2408C2228093
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157617.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157617.jpgsave_picture_157617.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ VA - Best Of Disco Balls Records 2022, Vol. 1 (2022) [MP3|320 Kbps] <Disco, Nu-D
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157618.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157618.jpgsave_picture_157618.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:1D2DDAC22F090F88A5BDD29B2931BD751F3A5FCA
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157620.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157620.jpgsave_picture_157620.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ magnet:?xt=urn:btih:616BF01437397108E542FFAD8ADB93841F9813A6
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157621.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157621.jpgsave_picture_157621.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Mellel 4.0.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157624.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157624.jpgsave_picture_157624.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ The Korgis - 3 Albums (1979-1981) LP [MP3|320 Kbps] <Electronic, Pop Rock, Synth
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157626.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157626.jpgsave_picture_157626.jpg" />
 </div>
 
 
@@ -262,7 +262,7 @@ Seed4.Me VPN и Proxy 1.0.64 (акция COMSS) [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157627.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157627.jpgsave_picture_157627.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ magnet:?xt=urn:btih:CC164EF1648C5D37219BC5F9CE4636FF2B3C994A
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157628.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157628.jpgsave_picture_157628.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ BELOFF 2015.12 [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157630.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157630.jpgsave_picture_157630.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ magnet:?xt=urn:btih:7E64CD63796D8D667E741BE669094871BF32FDA9
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157632.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157632.jpgsave_picture_157632.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ magnet:?xt=urn:btih:F75245C8E04ECAFE0803614979DD6F53A2FED48F
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157634.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157634.jpgsave_picture_157634.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ magnet:?xt=urn:btih:EDF15B22BEF1E304EC82E28B81E5AFCC86B51DE8
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157635.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157635.jpgsave_picture_157635.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ magnet:?xt=urn:btih:47FB1363FCD5E08F322E2B8D32324D78944033AC
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157636.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157636.jpgsave_picture_157636.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ magnet:?xt=urn:btih:D572398B6D8D3460D688E15C7F83FCBC4427505A
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157637.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157637.jpgsave_picture_157637.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ magnet:?xt=urn:btih:AD3F05E91CFC2C380254BA5C0BE0322CF437B451
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157638.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157638.jpgsave_picture_157638.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ Skillbox | Профессия 3D-дженералист (2020) PCRec
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157639.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157639.jpgsave_picture_157639.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ magnet:?xt=urn:btih:56EAF79240293E1F3A52998FC21850BF3EA6E251
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157640.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157640.jpgsave_picture_157640.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ magnet:?xt=urn:btih:534FB868D5BA99A70226145F9A7A0CAE619896C0
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157643.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157643.jpgsave_picture_157643.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ magnet:?xt=urn:btih:9C90E30AF974F80A0F8613F3A7001FD9FE852DB8
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157645.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157645.jpgsave_picture_157645.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ magnet:?xt=urn:btih:04B3E817F929D8EAF59B783A25BA9582DCEA273F
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157646.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157646.jpgsave_picture_157646.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ K-Lite Codec Pack 12.7.5 Mega/Full/Standard/Basic + Update [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157648.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157648.jpgsave_picture_157648.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ magnet:?xt=urn:btih:A7FC4C436FDC087F972A1AD9877B3CE20DC48577
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157649.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157649.jpgsave_picture_157649.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ VA - Весна на Love Radio (2022) [MP3|320 Kbps] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243850.jpgsave_picture_243850.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - German Top 50 Official Dance Charts 18.11 (2016) [MP3|256-320 Kbps] <Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243936.jpgsave_picture_243936.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - Осенняя дискотека по-русски - 4 (2016) [MP3|256 Kbp
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243958.jpgsave_picture_243958.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - Горячий хитовый драйв 7 (2016) [MP3|256 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243977.jpgsave_picture_243977.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ VA - Осенний динамит. Русский выпуск (2016) [MP3|256 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244097.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244097.jpgsave_picture_244097.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ VA - Горячий хитовый драйв. Выпуск 6 (2016) [MP3|256 Kb
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244117.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244117.jpgsave_picture_244117.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ VA - Музыкальный Заряд 4 (2016) [MP3|256 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244182.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244182.jpgsave_picture_244182.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ VA - Новички в попсе Vol 14 (2022) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244410.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244410.jpgsave_picture_244410.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ VA - German Top 100 Single Charts 11.02.2022 [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244528.jpgsave_picture_244528.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ VA - Ouca Playlist (2021) [MP3|320 Kbps] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246031.jpgsave_picture_246031.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Sofia Bellini - Favorites Collection Part 8 (2025) [MP3|320 Kbps] <Italodisco, I
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246165.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246165.jpgsave_picture_246165.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ VA - Сказочный Мир Русского Радио (2012) [MP3|256 кб/
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246335.jpgsave_picture_246335.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ VA - Весенняя Вечеринка Non-Stop (2012) [MP3|256 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246513.jpgsave_picture_246513.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ VA - Двигай Попой 50\50 (2012) [MP3|256 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247961.jpgsave_picture_247961.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ VA - Новые Хиты Дискотек (2012) [MP3|256 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248267.jpgsave_picture_248267.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ VA - Лучшие Хиты Радио Дача Часть 8 (2012) [MP3|256 кб
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248566.jpgsave_picture_248566.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ VA - Новинки Авто Дискотек 50\50 (2012) [MP3|256 кб/с]<Pop
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248842.jpgsave_picture_248842.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ VA - Про белые розы (2022) [MP3|320 Kbps] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249788.jpgsave_picture_249788.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Marie Laforêt - Compilation (2022) [MP3|320 Kbps] <Pop, Chanson>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250138.jpgsave_picture_250138.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ VA - Кавказская Дискотека Опа-Опа! (2012) [MP3|256 кб
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250992.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250992.jpgsave_picture_250992.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ VA - Лучшая Майская Вечеринка (2012) [MP3|256 кб/с]<Pop
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251117.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251117.jpgsave_picture_251117.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ VA - German TOP 100 Single Charts (10.05.2012) [MP3|152-312 кб/с]<Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251135.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251135.jpgsave_picture_251135.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ VA - Самый Модный Молодежный Хит (2012) [MP3|256 кб/с
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251145.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251145.jpgsave_picture_251145.jpg" />
 </div>
 
 
@@ -687,7 +687,7 @@ VA - Playbox На Европе Плюс (2012) [MP3|256 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251170.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251170.jpgsave_picture_251170.jpg" />
 </div>
 
 

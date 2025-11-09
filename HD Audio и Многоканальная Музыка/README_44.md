@@ -6,7 +6,7 @@ Armin Van Buuren - A State of Trance Radio Top 50 - 2024, Vol. 2 (2024) [FLAC 16
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48161.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48161.jpgsave_picture_48161.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Army Of Lovers - Remixodus (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop, Da
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48163.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48163.jpgsave_picture_48163.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Armin Van Buuren - Live at Tomorrowland 2024 (Mainstage) [Highlights] (2024) Liv
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48168.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48168.jpgsave_picture_48168.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Iced Earth - Studio Albums (16 releases) (1990-2017) hand made [restored, declip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48267.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48267.jpgsave_picture_48267.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Isomen - 16 Albums (2023-2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electronic
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48275.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48275.jpgsave_picture_48275.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Powerwolf - Wake Up The Wicked (Deluxe Version) (2024) [FLAC 24/48,24/44.1|Lossl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48380.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48380.jpgsave_picture_48380.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ magnet:?xt=urn:btih:85334BB05BA74C15BE4EBBA4C33F5CB53E247511
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48429.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48429.jpgsave_picture_48429.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Powerwolf - Studio Albums (11 releases) (2005-2024) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48685.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48685.jpgsave_picture_48685.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Imagine Dragons - Studio Albums (6 releases) (2012-2024) hand made [restored, de
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48884.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48884.jpgsave_picture_48884.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Kiss - Studio Albums (5 releases) (1992-2013) hand made [restored, declipped] [F
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48971.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48971.jpgsave_picture_48971.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Beth Hart - You Still Got Me (2024) Single [FLAC 24/48|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48975.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48975.jpgsave_picture_48975.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Deep Purple - Studio Albums (13 releases) (1984-2024) hand made [restored, decli
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49139.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49139.jpgsave_picture_49139.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Deep Purple - =1 (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49514.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49514.jpgsave_picture_49514.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ magnet:?xt=urn:btih:27024FD72F79A426191E275A15FF8BCDCFF1D777
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49545.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49545.jpgsave_picture_49545.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Al Di Meola - Twentyfour (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz Rock, 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49603.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49603.jpgsave_picture_49603.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Land Of Talk - Applause Cheer Boo Hiss (3CD) (2007) The Definitive Edition, 2024
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49606.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49606.jpgsave_picture_49606.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ Babbba - Groovy Things (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz, Swing>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49610.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49610.jpgsave_picture_49610.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Babbba - Extended Cabaret (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz, Swin
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49612.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49612.jpgsave_picture_49612.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Sexual Music Collection, Romantic Piano Ambient - Forbidden Jazz for Night Pleas
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49614.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49614.jpgsave_picture_49614.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Babbba - Cabaret III (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz, Swing>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49616.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49616.jpgsave_picture_49616.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ Love Music Zone, Smooth Jazz Music Ensemble - Charming Nights: Sensual Collectio
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49631.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49631.jpgsave_picture_49631.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Jack Magnet Science, Peter Erskine - Future Forecast (2024) [FLAC 24/96|Lossless
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49718.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49718.jpgsave_picture_49718.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ VA - В стиле Шансон от Arhangel Music (2024) [FLAC 2.0|44.1/16|Los
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50117.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50117.jpgsave_picture_50117.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ Apocalyptica - Plays Metallica, Vol. 2 (2024) [FLAC 24/48|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50223.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50223.jpgsave_picture_50223.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ Eminem - The Death of Slim Shady (Coup De Grâce) (2024) [FLAC 24/96|Lossless|WE
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50249.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50249.jpgsave_picture_50249.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ Bee Gees - 4 Альбома (1968-1980) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50260.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50260.jpgsave_picture_50260.jpg" />
 </div>
 
 

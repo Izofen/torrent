@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202772.jpgsave_picture_202772.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ DxO FilmPack 6 ELITE Edition v.6.14.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202773.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202773.jpgsave_picture_202773.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:75EDEB3612A19903E9580650E153895FEE7C47F6
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202774.jpgsave_picture_202774.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ QOwnNotes 23.9.0 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202775.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202775.jpgsave_picture_202775.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:09701884FEC279EA43EC095ABC418F3CAF370345
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202776.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202776.jpgsave_picture_202776.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:9E48F677BD45151ACDF71C323D6AE9BC47AD24D4
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202777.jpgsave_picture_202777.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Lucky Patcher 10.8.7 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202778.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202778.jpgsave_picture_202778.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:5D18B888ED34632423A875D2AF840ED4F6A68BA8
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202779.jpgsave_picture_202779.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Mimestream 1.1.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202780.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202780.jpgsave_picture_202780.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ magnet:?xt=urn:btih:27386800C321C83C13C7C44D93C541C9EB4AA968
 >>Нормативная документация
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202781.jpgsave_picture_202781.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Royal Blood - Back To The Water Below (2023) [FLAC|Lossless|WEB-DL|tracks] <Indi
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202782.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202782.jpgsave_picture_202782.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Dealer's Life 2 (2022) [Ru/Multi] (W75/1.26) Unofficial
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202783.jpgsave_picture_202783.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:FDE077513AF228373ADBC16342FBC27C035E1FAA
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202784.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202784.jpgsave_picture_202784.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:B4E40956EA7E0CACD4E323B5CA75635EA3D9ED58
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202785.jpgsave_picture_202785.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ ZEDGE 8.15.9-beta Mod by 0x7d [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202786.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202786.jpgsave_picture_202786.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:A7ADCBFE3BC95AE99A65F20DC6804E96982F1CD1
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202787.jpgsave_picture_202787.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ magnet:?xt=urn:btih:D35B707D796A7B46C13E0DD2EE208DECB78005AC
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202788.jpgsave_picture_202788.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ Stitched Up Heart - To The Wolves (2023) [FLAC|Lossless|WEB-DL|tracks] <Alt.Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202789.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202789.jpgsave_picture_202789.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ BreakPoint - Dreambreaker (2023) [FLAC 24/44.1|WEB-DL|tracks] <Modern Metal, Met
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202790.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202790.jpgsave_picture_202790.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ magnet:?xt=urn:btih:8BC736EEC2369CA2681EA38D8C085A3F88D59B5B
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202791.jpgsave_picture_202791.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ Soen - Memorial (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal, Hard Ro
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202792.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202792.jpgsave_picture_202792.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ magnet:?xt=urn:btih:0CE9C6AFFB20D038DEA183870489F04D80141ED2
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202793.jpgsave_picture_202793.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ Aviations - Luminari (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202794.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202794.jpgsave_picture_202794.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ magnet:?xt=urn:btih:51DDC7D0076CB76B8BD45AA7F633DF9C393E61D9
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202796.jpgsave_picture_202796.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ ImageRanger Pro Edition 1.9.4.1875 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202797.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202797.jpgsave_picture_202797.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Photo Sherlock v1.89 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202798.jpgsave_picture_202798.jpg" />
 </div>
 
 

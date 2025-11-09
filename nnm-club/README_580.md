@@ -6,7 +6,7 @@
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15391.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15391.jpgsave_picture_15391.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ ZW3D 2026 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15392.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15392.jpgsave_picture_15392.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:B143EA7120848491FAFB89764A23F6E3B11D390A
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15393.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15393.jpgsave_picture_15393.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Yog-Sothoth’s Yard (2023) [Multi] (1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15394.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15394.jpgsave_picture_15394.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:A7152A8520D54A466085A6592610E1015E2F4469
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15395.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15395.jpgsave_picture_15395.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:ADAB7C68892A07E73748D1BDE6A1181917C64A21
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15396.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15396.jpgsave_picture_15396.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ VA - 100 Greatest Pop Songs (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15397.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15397.jpgsave_picture_15397.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:4EF92A4FE3F742D88446AF6A9099C6377BFB8AF3
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15398.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15398.jpgsave_picture_15398.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Tor Browser Bundle 14.5.3 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15399.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15399.jpgsave_picture_15399.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:2C67C3599D6D7D046BE76B34B4FB30C17359DB03
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15400.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15400.jpgsave_picture_15400.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Hard Disk Sentinel PRO 6.30.1 Build 13402 Beta RePack (& Portable) by elchupacab
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15401.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15401.jpgsave_picture_15401.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:6F29C26C80631C2AA5F55AFB787F146FF0DDCE2F
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15402.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15402.jpgsave_picture_15402.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Dying Light 2: Stay Human (2022) [En] (1.22.4/dlc) Scene Tenoke [Reloaded Editio
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15403.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15403.jpgsave_picture_15403.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ magnet:?xt=urn:btih:DA9D19ABA9406D17CA962AABE2F34A4B96C5DB8A
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15404.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15404.jpgsave_picture_15404.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Psiphon 3 build 186 RePack (& Portable) by elchupacabra (DC 03.06.2025) [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15405.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15405.jpgsave_picture_15405.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ magnet:?xt=urn:btih:F93E6248453952DDFCCC7678E535A1C5E431CC20
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15406.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15406.jpgsave_picture_15406.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ SlitterHead (2024) [Ru/Multi] (1.02.2-r00065826) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15407.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15407.jpgsave_picture_15407.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ magnet:?xt=urn:btih:71A2266EB304B944111204F54AD6409F7B29B17E
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15408.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15408.jpgsave_picture_15408.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ magnet:?xt=urn:btih:A3295AD38784B9DA9941201BFBFF6DACA45A91F8
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15409.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15409.jpgsave_picture_15409.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Bye Bye, Earth 2 / Пока, Земля 2 [2025, TV, 10] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15410.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15410.jpgsave_picture_15410.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ magnet:?xt=urn:btih:9EC5A08D97C3A0DC474B8815E2AA535511458A0E
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15411.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15411.jpgsave_picture_15411.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ magnet:?xt=urn:btih:EFEF7FEB2638CDA5F1A2E416174E62411857FC7C
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15412.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15412.jpgsave_picture_15412.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ magnet:?xt=urn:btih:B817480F4E9C47CBB2CBEDBB6D07CF0BFB520647
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15413.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15413.jpgsave_picture_15413.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ magnet:?xt=urn:btih:B416158527233ECAA824838DDA0BAD6CE86113B5
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15414.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15414.jpgsave_picture_15414.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Moroi (2025) [Ru/Multi] (1.14) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15415.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15415.jpgsave_picture_15415.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ magnet:?xt=urn:btih:6F7A13A8D132F7AC2A6ACF95B705DC4DF177E0E7
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15416.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15416.jpgsave_picture_15416.jpg" />
 </div>
 
 

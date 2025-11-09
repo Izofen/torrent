@@ -6,7 +6,7 @@ CyberLink PowerDVD Ultra 22.0.1915.62 (x64) RePack by TheBig [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_193072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193072.jpgsave_picture_193072.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:AB74DA68441B1D90A1C00AB8D7E66591A04D2D09
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193073.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193073.jpgsave_picture_193073.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ VA - Ibiza Closing Party 2023 Trance (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193074.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193074.jpgsave_picture_193074.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:DA82807995E6B2F66CABE3AC51A4A37DF450F74C
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193075.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193075.jpgsave_picture_193075.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:919511FC7FE181237D9D42EACD81E5C2F7E93EDF
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193076.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193076.jpgsave_picture_193076.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:DE8377F35844CE67F1F7D7D2188920773B15C87F
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193077.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193077.jpgsave_picture_193077.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ VA - Keep It Trance Vol. 15 (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193078.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193078.jpgsave_picture_193078.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:D2D6909F80972ABBEB0F80F4E9F204114D3FCED5
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193079.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193079.jpgsave_picture_193079.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:583CEE1D739B87F797F9E5F3D9B8500B88A95FA5
 >>Во все тяжкие / Breaking Bad; Лучше звоните Солу / Better Call Saul
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_193080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193080.jpgsave_picture_193080.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ Udemy, Art Studio | Learn Modelling and Animating in Blender (2022) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_193081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193081.jpgsave_picture_193081.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ H.E.A.T - Extra Force (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193082.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193082.jpgsave_picture_193082.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ magnet:?xt=urn:btih:C466B333CFC397AE09A2F6B0A77628DE5D1F55AF
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_193083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193083.jpgsave_picture_193083.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:76CB2EF0790FFE01C2B097AA622BB1098A69B290
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193084.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193084.jpgsave_picture_193084.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ magnet:?xt=urn:btih:80CC32057CDEE6519D136BC7C41270687F475879
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_193085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193085.jpgsave_picture_193085.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Udemy, Art Studio | Modelling and Animating a Car in Blender (2022) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_193086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193086.jpgsave_picture_193086.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ magnet:?xt=urn:btih:735D87596CA19ED349FD14A725E8FD276F1F5DDC
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_193087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193087.jpgsave_picture_193087.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ magnet:?xt=urn:btih:4FD70095CE24BCCF678EF4289E8001910ADC4BBC
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_193088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193088.jpgsave_picture_193088.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Academind Pro, Udemy, Maximilian Schwarzmüller | GitHub Actions - The Complete 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_193089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193089.jpgsave_picture_193089.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ magnet:?xt=urn:btih:8EFCD99CE0C43E77A5948D4870AF219B86CA2155
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_193090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193090.jpgsave_picture_193090.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ magnet:?xt=urn:btih:3628D65BD9097AC2C03B9CA6260AAE899CFB5C37
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193091.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193091.jpgsave_picture_193091.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Adrian Cantrill | AWS Certified Advanced Networking - Specialty (2022) WEB-DL [E
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_193092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193092.jpgsave_picture_193092.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Andromeda - Definitive Collection (2000) Reissue, 2023, Angel Air [FLAC|Lossless
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193093.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193093.jpgsave_picture_193093.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ magnet:?xt=urn:btih:F1BF17732D4DCDECB8DDD6C5E3A934B8F6C7EA0B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_193094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193094.jpgsave_picture_193094.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ MotoGP. Этап 11. Гран-при Каталонии. Спринт (02.09.202
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193095.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193095.jpgsave_picture_193095.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ Midnight Priest - Aggressive Hauntings (2019) [FLAC|Lossless|image + .cue] <Heav
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193096.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193096.jpgsave_picture_193096.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ magnet:?xt=urn:btih:57A80EF5E3A711547549C1F59BCFED8B3C1A23FC
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_193097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193097.jpgsave_picture_193097.jpg" />
 </div>
 
 

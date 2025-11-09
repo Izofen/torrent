@@ -6,7 +6,7 @@ SolNegre - The Spiral Labyrinth (2023) [FLAC|Lossless|WEB-DL|tracks] <doom death
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177681.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177681.jpgsave_picture_177681.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ The Keening - Little Bird (2023) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177684.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177684.jpgsave_picture_177684.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ As The Structure Fails - In Vain (2023) [FLAC|Lossless|WEB-DL|tracks] <Metalcore
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177689.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177689.jpgsave_picture_177689.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Primal Fear - Apocalypse (2018) Bonus Track Edition [FLAC|Lossless|WEB-DL|tracks
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177693.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177693.jpgsave_picture_177693.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Kadabra - Umbra (2023) [FLAC|Lossless|WEB-DL|tracks] <psychedelic rock, stoner r
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177699.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177699.jpgsave_picture_177699.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ October Tide - The Cancer Pledge (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177709.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177709.jpgsave_picture_177709.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Linus Klausenitzer - Tulpa (2023) [FLAC|Lossless|WEB-DL|tracks] <Technical Death
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177723.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177723.jpgsave_picture_177723.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Saltatio Mortis - Des Konigs Henker (2005) [FLAC|Lossless|image + .cue] <Folk Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177726.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177726.jpgsave_picture_177726.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Saltatio Mortis - Das Zweite Gesicht (2002) [FLAC|Lossless|image + .cue] <Folk M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177729.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177729.jpgsave_picture_177729.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Quantum Void - Escaping Reality (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressiv
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177731.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177731.jpgsave_picture_177731.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Saltatio Mortis - Erwachen (2004) [FLAC|Lossless|image + .cue] <Folk Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177734.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177734.jpgsave_picture_177734.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Graveyard of Souls - Todos los caminos llevan a ninguna parte (2016) [FLAC|Lossl
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177736.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177736.jpgsave_picture_177736.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Graveyard of Souls - Infinitum Nihil (2015) [FLAC|Lossless|image + .cue] <Doom, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177739.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177739.jpgsave_picture_177739.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ VA - Rock Hits (2022) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177805.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177805.jpgsave_picture_177805.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Latter Reign - II (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Hair Metal>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177849.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177849.jpgsave_picture_177849.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Ayreon - Universal Migrator Part I & II (2000) 5 x CD, Compilation, Reissue, 202
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177853.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177853.jpgsave_picture_177853.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ magnet:?xt=urn:btih:118DA451D46B4EA341BA5BBCB8E9EB15B41363A2
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177891.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177891.jpgsave_picture_177891.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Heathen Foray - Weltenwandel (2020) [FLAC|Lossless|image + .cue] <Melodic Viking
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177898.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177898.jpgsave_picture_177898.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ VA - Heavy '70s Rock (2022) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177963.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177963.jpgsave_picture_177963.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Amberian Dawn - Take A Chance - A Metal Tribute to Abba (2022) [FLAC 2.0|44/24|W
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177975.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177975.jpgsave_picture_177975.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Antti Martikainen - 3 Albums (2020-2022) [MP3|320 Kbps] <Power Metal, Epic Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177978.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177978.jpgsave_picture_177978.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Amberian Dawn - Take A Chance - A Metal Tribute to Abba (2022) [FLAC|Lossless|WE
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177996.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177996.jpgsave_picture_177996.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Ancient Machine - Distance Between Us (2022) [MP3|320 Kbps] <Melodic Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178010.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178010.jpgsave_picture_178010.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ magnet:?xt=urn:btih:4A9DA9ADD4A5E0CC1DFF1E291CD0478D9318C1E2
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178013.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178013.jpgsave_picture_178013.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Black Rain - Untamed (2022) [MP3|320 Kbps] <Hard Rock, Glam Metal>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178023.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178023.jpgsave_picture_178023.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Amberian Dawn - Take A Chance - A Metal Tribute to Abba (2022) [MP3|320 Kbps] <N
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178034.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178034.jpgsave_picture_178034.jpg" />
 </div>
 
 

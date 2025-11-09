@@ -6,7 +6,7 @@
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198175.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198175.jpgsave_picture_198175.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ DC Comics | Артбук художника Lee Bermejo / DC Comics: The Art of 
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198178.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198178.jpgsave_picture_198178.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:8063DD13FBF075850EF129FBF06E6D7F0428EA67
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198179.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198179.jpgsave_picture_198179.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ ASUS GPU Tweak III 1.6.1.5 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198180.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198180.jpgsave_picture_198180.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Nickelodeon | Артбук по мультсериалу Легенда о Ко�
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198182.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198182.jpgsave_picture_198182.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Fine., Юлия Киселева | Мастер класс по работе с 
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198183.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198183.jpgsave_picture_198183.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:EA7106027775BFDB6045D825AC359994AC13F037
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198184.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198184.jpgsave_picture_198184.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ VA - 90s Eurodance: XXL Super Sounds 90s (2020) Unofficial [MP3|320 Kbps] <Eurod
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198185.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198185.jpgsave_picture_198185.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:DD9D2389DDB0A3839944CB2596D04C0200EB0D60
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198186.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198186.jpgsave_picture_198186.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:52B9D9938256E6757E6E9073D0659299B11FDF78
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198187.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198187.jpgsave_picture_198187.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:081AD67C92FF33BBC06651F63829074EBE4DB3A3
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198188.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198188.jpgsave_picture_198188.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:AF250E34427142F7A75C41984A0E52746F5AD32C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198189.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198189.jpgsave_picture_198189.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Camilla d'Errico | Артбук художника Camilla d'Errico / Dappled Da
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198190.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198190.jpgsave_picture_198190.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ magnet:?xt=urn:btih:49EFD807F070249DD1F192E121BA6B1DF48D5DBF
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198191.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198191.jpgsave_picture_198191.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Helloween - Collection (2023) [MP3|320 Kbps] <Metal>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198192.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198192.jpgsave_picture_198192.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Williams Academy, Tamara Williams | Masterclass Photo & Retouch + Brushes (2023)
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198193.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198193.jpgsave_picture_198193.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ WPS Office (Kingsoft Office) v17.7 [Ru/Multi] [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198194.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198194.jpgsave_picture_198194.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ magnet:?xt=urn:btih:8CA0E08EE088780BD063ECD37B0B9CCC6E3D06A8
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198195.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198195.jpgsave_picture_198195.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ magnet:?xt=urn:btih:53500033CBF69A2683A7310F6BF721F707FBA690
 >>КВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198196.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198196.jpgsave_picture_198196.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Bulk Crap Uninstaller 5.6 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198198.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198198.jpgsave_picture_198198.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ magnet:?xt=urn:btih:C81E3C3065851F1CF20B06CADD2D9BFC82734255
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198200.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198200.jpgsave_picture_198200.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ magnet:?xt=urn:btih:3477132EC4D4E2F815823CCEFD3B7C70A734EFFD
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198202.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198202.jpgsave_picture_198202.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ VA - Rock & Ballads Part 21 Compilation (2023) [MP3|320 Kbps] <Rock Ballads>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198204.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198204.jpgsave_picture_198204.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ magnet:?xt=urn:btih:64AFE0AE5F8466EC8530E398B8D930BC22C7125B
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198205.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198205.jpgsave_picture_198205.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ magnet:?xt=urn:btih:F891B9236C3B4B9BC10896582F5B8DC070E3BC56
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198206.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198206.jpgsave_picture_198206.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ magnet:?xt=urn:btih:16D8A32C53475877CE4DE6A71836BF4BAC0B41E5
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198207.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198207.jpgsave_picture_198207.jpg" />
 </div>
 
 

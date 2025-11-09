@@ -6,7 +6,7 @@ Moon Mystery (2024) [Ru/Multi] (1.2 Build 16746093) Repack Decepticon
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32907.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32907.jpgsave_picture_32907.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:DAE5FA53C6194BF678F90D5981223FC8485FBC55
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32908.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32908.jpgsave_picture_32908.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:DAE5FA53C6194BF678F90D5981223FC8485FBC55
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32909.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32909.jpgsave_picture_32909.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:CD4DDFA9ADBC70B25BAFA37A83E2FE2D74CB0DB9
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32910.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32910.jpgsave_picture_32910.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:F782ACDF9D2C249251A1D0E0707684ED9AEA8404
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32911.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32911.jpgsave_picture_32911.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:588B605560C86C31D818A4576D49DF43EE58147E
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32912.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32912.jpgsave_picture_32912.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:301A858747271510E2AFC6DF42161B9E9D8EC5EE
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32913.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32913.jpgsave_picture_32913.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:6D0FC98C3A9DFB32D6C69F0FB8B6BF193EE0866D
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32914.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32914.jpgsave_picture_32914.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:3CADD2EB870E0A117C900127E2919341C9C7D6E3
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32915.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32915.jpgsave_picture_32915.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:C620F0BED0F6DB6AC344FBDF7DF33A6C0EDFFA7B
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32916.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32916.jpgsave_picture_32916.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:3AE4D1A47118A3BF41999C2F746A2F8CB7AB4B4B
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32917.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32917.jpgsave_picture_32917.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:D3D54BB091C4559814823A45B07DBA1F8FD7D353
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32918.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32918.jpgsave_picture_32918.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:88BCEF7EDB495847D7BD66AC805A9B166F07B438
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32919.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32919.jpgsave_picture_32919.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Christmas Stories 13: Clara and the Guiding Star / Рождественские 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32920.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32920.jpgsave_picture_32920.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ magnet:?xt=urn:btih:F9718D92763D32393B622F37195030261A2A4CAC
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32921.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32921.jpgsave_picture_32921.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ magnet:?xt=urn:btih:FC17EF8C1142DDD1AF200D08C1641197D7CA9C20
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32922.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32922.jpgsave_picture_32922.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ Christmas Fables 3: The Wishing Store / Рождественские небыл�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32923.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32923.jpgsave_picture_32923.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Mystery of Myths: Heart of Athens (2024) [Multi] (1.0) Unofficial [Collector's E
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32924.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32924.jpgsave_picture_32924.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Auto Blur: Авторазмытие v2.7.0 Mod by 0x7d, oflarm [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32925.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32925.jpgsave_picture_32925.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ magnet:?xt=urn:btih:06172A27F67A309039E2988460A47C2938C665C0
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32926.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32926.jpgsave_picture_32926.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:D5BFCD286AA701DF37768BE534FA71F94684CE86
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32927.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32927.jpgsave_picture_32927.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Mflex Sounds - Flashback Vol. 1 (2024) [MP3|320 Kbps] <Italo-Disco, Space-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32928.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32928.jpgsave_picture_32928.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:14C99CF84E8BA302D5655E66B7EA0736E90A3496
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32929.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32929.jpgsave_picture_32929.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Critter Café (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32930.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32930.jpgsave_picture_32930.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Mflex Sounds - Flashback Vol. 3 (2024) [MP3|320 Kbps] <Italo-Disco, Space-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32931.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32931.jpgsave_picture_32931.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Autogenic Training Channel - Ayurveda Music (2022) [FLAC|Lossless|WEB-DL|tracks]
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32932.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32932.jpgsave_picture_32932.jpg" />
 </div>
 
 

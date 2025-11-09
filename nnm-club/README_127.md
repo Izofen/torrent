@@ -6,7 +6,7 @@
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3352.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3352.jpgsave_picture_3352.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:B3D01C15EFF2B1D70663C46216B81F511BEAC1A3
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3353.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3353.jpgsave_picture_3353.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:D44C33036222802F31132E029E539D158138AE1F
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3354.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3354.jpgsave_picture_3354.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Auslogics Anti-Malware Pro 1.23.0.2 RePack (& Portable) by elchupacabra [Multi/R
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3355.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3355.jpgsave_picture_3355.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ VueScan Pro 9.8.47 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3356.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3356.jpgsave_picture_3356.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:DC7A8468558DA795F6AFC0459BB4A2C16A5E82D4
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3357.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3357.jpgsave_picture_3357.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:674D09B1F277393C6ECFFC7CE06BCEC3349DEC15
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3358.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3358.jpgsave_picture_3358.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:86289D0DC6FF75DBE033D843DDB969A1947019FB
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3359.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3359.jpgsave_picture_3359.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ VueScan Pro 9.8.47 (x64) [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3360.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3360.jpgsave_picture_3360.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Win Movie Maker 2025 10.0.0.1 [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3361.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3361.jpgsave_picture_3361.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Glary Utilities Pro 6.31.0.35 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3362.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3362.jpgsave_picture_3362.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Opera One 122.0.5643.17 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3363.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3363.jpgsave_picture_3363.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ AnyBurn 6.5 + Portable [Multi/Ru]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3364.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3364.jpgsave_picture_3364.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ magnet:?xt=urn:btih:83478B89D5174A3EA6A3786F2951C1F2FD5D638F
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3365.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3365.jpgsave_picture_3365.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ magnet:?xt=urn:btih:06E2A034C0D11D5211E5817EE1F67E0E24AAD6F6
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3366.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3366.jpgsave_picture_3366.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:BACB5C49EF400096A09EEA0F77B71B0098F2BAA6
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3367.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3367.jpgsave_picture_3367.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ magnet:?xt=urn:btih:F29C6C40546FD3F335730304B120DB2DC4AE8A9C
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3368.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3368.jpgsave_picture_3368.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ Topaz Photo AI Pro 4.1.0 RC Portable by 7997 + Models [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3369.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3369.jpgsave_picture_3369.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:CAE7EB1F125C2236644F680DA2D3F61F81098065
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3370.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3370.jpgsave_picture_3370.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ magnet:?xt=urn:btih:B542D1CB81A99230E4F4C8A36B43BD1AEFEF0E88
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3371.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3371.jpgsave_picture_3371.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:C1AEC41FD4D7C1066F41E79656408647C136AD95
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3372.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3372.jpgsave_picture_3372.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Udemy, YouAccel Training | Learn to Host Multiple Domains on one Virtual Server 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3373.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3373.jpgsave_picture_3373.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Psiphon 3 build 186 RePack (& Portable) by elchupacabra (DC 05.09.2025) [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3374.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3374.jpgsave_picture_3374.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ magnet:?xt=urn:btih:3C6C4E23761FC1827FBEC67D142882E9D122A032
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3375.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3375.jpgsave_picture_3375.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ magnet:?xt=urn:btih:5CB1A265B1A5606F5C3CDAC78EF6C0FEFD8D7B66
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3376.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3376.jpgsave_picture_3376.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ iTubeGo YouTube Downloader 10.8.2 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3377.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3377.jpgsave_picture_3377.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Folder Player Pro v5.35 b352 Paid [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6214.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6214.jpgsave_picture_6214.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Grand Emprise 2: Portals Apart (2025) [Ru/Multi] (1.0) Repack seleZen
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6215.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6215.jpgsave_picture_6215.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:2143F6C6E9F2C0BEA06A44081BBE2C64A345CF84
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6216.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6216.jpgsave_picture_6216.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ The Rogue Prince of Persia (2024) [Ru/Multi] (1.0.2) Repack Other s
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6217.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6217.jpgsave_picture_6217.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ The Blackwell Deception (2011) [En] (3.5) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6218.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6218.jpgsave_picture_6218.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Amnezia VPN - устойчивый к блокировкам VPN с высоки
 >>13
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6219.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6219.jpgsave_picture_6219.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Amnezia VPN - устойчивый к блокировкам VPN с высоки
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6220.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6220.jpgsave_picture_6220.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:A7A9989B915CC4CA951C28B2DA96D4651939E821
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6221.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6221.jpgsave_picture_6221.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:3B80B37F6CD5DE8DF3E5A2EA9193957E4AD2CC36
 >>Отечественные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6222.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6222.jpgsave_picture_6222.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ God of War: Ragnarök (2024) [Ru/Multi] (1.0.668.5700/dlc) Repack Wanterlude
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6223.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6223.jpgsave_picture_6223.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Santa Monica Studio в сотрудничестве с Jetpack Interactive пр�
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6224.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6224.jpgsave_picture_6224.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ magnet:?xt=urn:btih:9B5E52CC75C1C8497EA2F5087A3007CD8D1B2D91
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6225.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6225.jpgsave_picture_6225.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ magnet:?xt=urn:btih:3C38595FF129DCB407FCC9E97EC4A4AA936C9C06
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6226.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6226.jpgsave_picture_6226.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ magnet:?xt=urn:btih:934013D96D786577FD200CD9DC53B5093DC69D7C
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6227.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6227.jpgsave_picture_6227.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Last Epoch (2024) [Ru/Multi] (1.3) Scene Rune
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6228.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6228.jpgsave_picture_6228.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Primordia (2012) [Multi] (5.3) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6229.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6229.jpgsave_picture_6229.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ magnet:?xt=urn:btih:0CE3881A60A4DC5512B6417547BC64D304B601F2
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6230.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6230.jpgsave_picture_6230.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ magnet:?xt=urn:btih:94DE74A1ABDB79E437751A1CA47FFAB7F9365D69
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6231.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6231.jpgsave_picture_6231.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ HEU KMS Activator 63.2.0 Portable [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6232.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6232.jpgsave_picture_6232.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ magnet:?xt=urn:btih:E5E12ADD098E097872CBB24DF3E112C17AEA3E6E
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6233.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6233.jpgsave_picture_6233.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ magnet:?xt=urn:btih:DA8FF09AC83D4C3510F9F090D5D76393CEB4007D
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6234.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6234.jpgsave_picture_6234.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Coral Island (2023) [Multi] (1.2-1238/dlc) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6235.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6235.jpgsave_picture_6235.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ magnet:?xt=urn:btih:755974C6A3AB9A50683C590B5C7033DF7D94F185
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6236.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6236.jpgsave_picture_6236.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ magnet:?xt=urn:btih:693EDBD1809220F02AAE8D5C5B9B5EA59DD62DB6
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6237.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6237.jpgsave_picture_6237.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ magnet:?xt=urn:btih:DCBECBED3A0EEC3DD9736654724F177FCA205A83
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6238.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6238.jpgsave_picture_6238.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Heidarlegur - Time Machine to Travel Back to Childhood (2025) [FLAC 24/44.1|Loss
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6239.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6239.jpgsave_picture_6239.jpg" />
 </div>
 
 

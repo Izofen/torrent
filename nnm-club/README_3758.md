@@ -6,7 +6,7 @@
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118088.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118088.jpgsave_picture_118088.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:E54593C26D44089D58983C940B62E5957C263694
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118089.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118089.jpgsave_picture_118089.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:8B4FF7461EE5A97E5D919362F0BC54460DB8F6A9
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118090.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118090.jpgsave_picture_118090.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:B355190C194BCD8579E2E94123E42EA352DECAE1
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118091.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118091.jpgsave_picture_118091.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:CC60FB4660D3EC245DE314771B6BB3B64B92EA93
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118092.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118092.jpgsave_picture_118092.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ My Life Story - Loving You is Killing Me (2024) [FLAC 24/44.1,96|Lossless|WEB-DL
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118093.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118093.jpgsave_picture_118093.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ Heretic - Angelcunts And Devilcocks (2013) [FLAC|Lossless|WEB-DL|tracks] <Hard R
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118094.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118094.jpgsave_picture_118094.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ magnet:?xt=urn:btih:3D9E958FC134A381D762A39E5514F9918465BB86
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118095.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118095.jpgsave_picture_118095.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ magnet:?xt=urn:btih:B9EAC8CBB86687FE7ED8C42C679C8AB25B5ACEA0
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118096.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118096.jpgsave_picture_118096.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ Autumn's Child - Tellus Timeline (2023) Japanese Edition [FLAC|Lossless|image + 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118097.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118097.jpgsave_picture_118097.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ magnet:?xt=urn:btih:9EE17A654800456CC2E65B3FA04D86E4824F5122
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118098.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118098.jpgsave_picture_118098.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ Robert Hart - Circus Life (2024) [FLAC|Lossless|image + .cue] <Melodic Rock / AO
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118099.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118099.jpgsave_picture_118099.jpg" />
 </div>
 
 
@@ -314,7 +314,7 @@ Heart Line - Original Seeds (2023) EP [FLAC|Lossless|image + .cue] <Melodic Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118100.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118100.jpgsave_picture_118100.jpg" />
 </div>
 
 
@@ -341,7 +341,7 @@ magnet:?xt=urn:btih:AFD11ECBC7BEB9132CDADE1C730BCCF1C6E90C5A
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118101.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118101.jpgsave_picture_118101.jpg" />
 </div>
 
 
@@ -365,7 +365,7 @@ magnet:?xt=urn:btih:BED3F14F408F0A51456F53B0CDF167DC83EA09C9
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118102.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118102.jpgsave_picture_118102.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ Wisborg - Wisborg (2024) [FLAC|Lossless|WEB-DL|tracks] <Gothic Rock, Darkwave, H
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118103.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118103.jpgsave_picture_118103.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ magnet:?xt=urn:btih:68650D5A4EB0B136EBD2563722B0C30A576E1EA5
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118104.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118104.jpgsave_picture_118104.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ magnet:?xt=urn:btih:11F949FCBEC7BE5A67A2126D84E30C7012E266C8
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118105.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118105.jpgsave_picture_118105.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Everrime - One (2024) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118106.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118106.jpgsave_picture_118106.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Distorted Reflection - Doom Rules Eternally (2024) [FLAC|Lossless|WEB-DL|tracks]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118107.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118107.jpgsave_picture_118107.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:919748174C51D66374A09F2500060FAE26871092
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118108.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118108.jpgsave_picture_118108.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ magnet:?xt=urn:btih:6A41A3E81EF5644339B9FB8F1AE213F10FB3B151
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118109.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118109.jpgsave_picture_118109.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ magnet:?xt=urn:btih:A30521C819195F42B248C1C541BEE11E6042CBA1
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118110.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118110.jpgsave_picture_118110.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ magnet:?xt=urn:btih:9535177A09844E0E1F9D561994AD49364FF025AA
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118111.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118111.jpgsave_picture_118111.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ CudaText 1.209.0.2 Portable + addons [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118112.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118112.jpgsave_picture_118112.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ magnet:?xt=urn:btih:80830D09BEE91F590E5104ADE7A7BC80BB885C58
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118113.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118113.jpgsave_picture_118113.jpg" />
 </div>
 
 

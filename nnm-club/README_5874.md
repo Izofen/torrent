@@ -6,7 +6,7 @@ VA - Club Trance 4 (1997) Exclusive Edition [FLAC|Lossless|tracks] <Trance, Hard
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184652.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184652.jpgsave_picture_184652.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:E10769B7536AF9C2DE3839C6A333D193CF90C262
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184653.jpgsave_picture_184653.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:864820F8F5D6153CAB34CA5DA43E3D2B18E154F5
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184657.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184657.jpgsave_picture_184657.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Smog - Nuor (2022) [FLAC|Lossless|WEB-DL|tracks] <Doom, Sludge Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184658.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184658.jpgsave_picture_184658.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Udemy, Andrei Neagoie и др. | Полный веб и мобильный ди�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184661.jpgsave_picture_184661.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Kres - 40 nocy grudnia (2016) [FLAC|Lossless|image + .cue] <Atmospheric Black Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184662.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184662.jpgsave_picture_184662.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ Perfectly Clear WorkBench 4.6.0.2600 RePack (& Portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184663.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184663.jpgsave_picture_184663.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ LinguaTrip, Веня Пак и др. | От Elementary до Intermediate за 30
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184665.jpgsave_picture_184665.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ magnet:?xt=urn:btih:F68BA2F06EDD1003DCEA080C1B20F738BE9CF5D5
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184666.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184666.jpgsave_picture_184666.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ Within Temptation - Live In Hell (2023) [MP3|320 Kbps] <Symphonic Rock, Symphoni
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184668.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184668.jpgsave_picture_184668.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ Zoner Photo Studio X 19.2309.2.494 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184671.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184671.jpgsave_picture_184671.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ Kres - Na krawedziach nocy (2015) [FLAC|Lossless|image + .cue] <Atmospheric Blac
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184672.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184672.jpgsave_picture_184672.jpg" />
 </div>
 
 
@@ -314,7 +314,7 @@ magnet:?xt=urn:btih:1A511DADB18EE79C677B67B84BB0179E813EBFCA
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184673.jpgsave_picture_184673.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ EssentialPIM Pro 11.7.1 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184675.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184675.jpgsave_picture_184675.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ magnet:?xt=urn:btih:E838A2854B365B3A2E9AB3F2F141716D2A792B90
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184677.jpgsave_picture_184677.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ VA - Trance 2023 Vol. 8 (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184680.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184680.jpgsave_picture_184680.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ magnet:?xt=urn:btih:979319CEC3059FBEEF948D36A4D90CB845D9CC72
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184681.jpgsave_picture_184681.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ CherryTree 1.0.2.0 x64 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184683.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184683.jpgsave_picture_184683.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ magnet:?xt=urn:btih:FDF31B64664A898ADA6223FC5339A2ADABE9CEEA
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184685.jpgsave_picture_184685.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Udemy, Иван Петриченко | WEB-разработчик 2022 (2022) WE
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184686.jpgsave_picture_184686.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ Mozilla Thunderbird 115.3.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184689.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184689.jpgsave_picture_184689.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Geekbrains | Дизайн и проектирование интерфейсов
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184690.jpgsave_picture_184690.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ magnet:?xt=urn:btih:EDC833CD49993C91CCCB1FC662B5C4DF113A9E7A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184691.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184691.jpgsave_picture_184691.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ magnet:?xt=urn:btih:BD5B5A90BC1789F65E91B76BF326FAD5BBFF07F4
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184694.jpgsave_picture_184694.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Enterclass, Владислав Татаринов | Букет сирени (202
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184695.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184695.jpgsave_picture_184695.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ magnet:?xt=urn:btih:57AD438A3EDBCB009F8E9E92509DD8DBC9414E0B
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184696.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184696.jpgsave_picture_184696.jpg" />
 </div>
 
 

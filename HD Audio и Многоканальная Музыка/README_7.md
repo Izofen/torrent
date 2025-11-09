@@ -6,7 +6,7 @@ Joris Voorn - Serotonin (2025) 2CD [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodi
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4417.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4417.jpgsave_picture_4417.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ De Profundis, Eamonn Dougan - Morales: Requiem a 5 & Officium defunctorum (2025)
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4419.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4419.jpgsave_picture_4419.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Lady Gaga - Mayhem (2025) Deluxe Edition, Interscope Records [FLAC 24/44.1|Lossl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4439.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4439.jpgsave_picture_4439.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Sabrina Carpenter - Man’s Best Friend (2025) [FLAC 24/48|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4538.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4538.jpgsave_picture_4538.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Insania (a.k.a. Insania Stockholm) - Studio Albums (6 releases) (1999-2025) hand
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4658.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4658.jpgsave_picture_4658.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Maria Muldaur - One Hour Mama: The Blues of Victoria Spivey (2025) [FLAC 24/44.1
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4768.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4768.jpgsave_picture_4768.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Ghosts of Sunset - California Girl (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4769.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4769.jpgsave_picture_4769.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Makiisma - The Heart Remains (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4770.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4770.jpgsave_picture_4770.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Evocatus - Studio Albums (4 releases) (2014-2025) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4771.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4771.jpgsave_picture_4771.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ No Bull - Rock N Roll Remains Forever (2025) [FLAC 24/44.1|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4777.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4777.jpgsave_picture_4777.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Maria Oswen - Nu Woman (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4781.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4781.jpgsave_picture_4781.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Steve Fair - Play Fair (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4785.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4785.jpgsave_picture_4785.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Slant KX - Endless Love (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4787.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4787.jpgsave_picture_4787.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Huntress - Studio Albums (4 releases) (2010-2015) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4788.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4788.jpgsave_picture_4788.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Mr. Creatovsky - Braincity Blues EP (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4789.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4789.jpgsave_picture_4789.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Nelson Bragg - Melodie de Nelson: A Pop Anthology (2025) [FLAC 24/48|Lossless|WE
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4790.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4790.jpgsave_picture_4790.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Nick Manzer - Through The Veil (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4791.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4791.jpgsave_picture_4791.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Soundset City - Beyond Lounge (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Loun
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4831.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4831.jpgsave_picture_4831.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Michael Jackson - Off The Wall (1979) SACD, Reissue, Remastered, 2025, Mobile Fi
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4847.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4847.jpgsave_picture_4847.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Luna Artisan - Ego Rush (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4929.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4929.jpgsave_picture_4929.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Liora Stedman - Spirit of Cobalt (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <R
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4931.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4931.jpgsave_picture_4931.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Eric Gales - A Tribute To LJK (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blue
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5116.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5116.jpgsave_picture_5116.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ David Rose - Be a Gentleman (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz, 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5117.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5117.jpgsave_picture_5117.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Knox Vortex - Darling I Don’t Mind (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5123.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5123.jpgsave_picture_5123.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Carolyn Jones - All in divine timing (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5134.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5134.jpgsave_picture_5134.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Knox Evercrest - Unwritten Game (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Bl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5150.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5150.jpgsave_picture_5150.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Poison Dollys - Invasion (1985) [FLAC|24/192|image + .cue|Vinyl-Rip] <Hard Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134207.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134207.jpgsave_picture_134207.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Sorcerer - Studio Albums (5 releases) (1995-2023) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134295.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134295.jpgsave_picture_134295.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Opeth - Pale Communion (2014) [FLAC|24/192|image + .cue|Vinyl-Rip] <Progressive 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134644.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134644.jpgsave_picture_134644.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Fuel - Studio Albums (6 releases) (1998-2021) hand made [restored, declipped] [F
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134943.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134943.jpgsave_picture_134943.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Michal David + The Paces - I'd Love To Live (1983) [FLAC 2.0|24/192|image + .cue
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134951.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134951.jpgsave_picture_134951.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Opeth - Ghost Reveries (2005) Reissue, 2013, 	Roadrunner Records, Cargo Records 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135301.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135301.jpgsave_picture_135301.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Opeth - Heritage (2011) [FLAC|24/192|image + .cue|Vinyl-Rip] <Progressive Death 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135329.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135329.jpgsave_picture_135329.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Sabaton - Studio Albums (12 releases) (2005-2025) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136740.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136740.jpgsave_picture_136740.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Arcturus - Studio Albums (6 releases) (1996-2015) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136750.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136750.jpgsave_picture_136750.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Alien Weaponry - Studio Albums (3 releases) (2018-2025) hand made [restored, dec
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136850.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136850.jpgsave_picture_136850.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Imagination - Imagination (1985) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Synth-Po
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137173.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137173.jpgsave_picture_137173.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Queen - The Miracle (1989) Remastered,  Reissue, 2015, Virgin [FLAC 2.0|192/24|i
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137613.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137613.jpgsave_picture_137613.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Uriah Heep - 12 Albums (1970-1978)  USA release [FLAC 2.0|192/24|image + .cue|Vi
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137699.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137699.jpgsave_picture_137699.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Michel Legrand - Legrand Jazz (1958) [FLAC 2.0|192/24|image+cue|Vinyl-Rip] <Jazz
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137949.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137949.jpgsave_picture_137949.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ John Lennon & Yoko Ono - Double Fantasy (1980) [FLAC 2.0|192/24|image + .cue|Vin
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138074.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138074.jpgsave_picture_138074.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Foster & Allen - Reflections. 20 Best Loved Favorites (1987) [FLAC 2.0|24/192|im
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138112.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138112.jpgsave_picture_138112.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ Mirror - Pyramid of Terror (2019) [FLAC|24/96|tracks|Vinyl-Rip] <Heavy Metal>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138537.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138537.jpgsave_picture_138537.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ VA - The Greatest Old Traditional Christmas Songs 1942-2017 (2020) Unofficial Re
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138880.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138880.jpgsave_picture_138880.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ VA - Новогодняя дискотека (1989) [FLAC 2.0|96/24|tracks|Vinyl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138945.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138945.jpgsave_picture_138945.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Max Greger - Da Ist Musik Drin (1976) Promo Record - Not For Sale [FLAC 2.0|96/2
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139412.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139412.jpgsave_picture_139412.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ magnet:?xt=urn:btih:09B3AA6E7A62379B1211A40C3788E8C030AB90C3
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139726.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139726.jpgsave_picture_139726.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Led Zeppelin - The Song Remains The Same 1976 (2007) [FLAC 2.0|192/24|tracks|Vin
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140396.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140396.jpgsave_picture_140396.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ VA - Новогодняя Дискотека. Выпуск 1 (1998) [FLAC 2.0|48
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140587.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140587.jpgsave_picture_140587.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ Opeth - Blackwater Park (2001) Reissue, 2010, Music On Vinyl,  Sony Music Entert
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140599.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140599.jpgsave_picture_140599.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ Leonard Cohen - Thanks for the Dance (2019) [FLAC 2.0 24/192|image (Vinyl-Rip)]<
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140982.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140982.jpgsave_picture_140982.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ Yello - You Gotta Say Yes To Another Excess (1983) [FLAC 2.0 24/96|traks(Vinil-R
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141203.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141203.jpgsave_picture_141203.jpg" />
 </div>
 
 

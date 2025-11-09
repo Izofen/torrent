@@ -6,7 +6,7 @@ VA - Musical kaleidoscope part 30 Easy listening (2025) [MP3|320 Kbps] <Electron
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70222.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70222.jpgsave_picture_70222.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:8638D135649F1D4D1C072E0CC03F33AC22BC01DE
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70223.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70223.jpgsave_picture_70223.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Rozen Maiden: Tales | Девы Розена 2 (2008) [11 томов, 66 глав
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70224.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70224.jpgsave_picture_70224.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:E15C75A3867ECA5E4F13DB56C446BA68127C839A
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70225.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70225.jpgsave_picture_70225.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:2B4D8BC723FC5CC8C00D9AC3F7916F40F5DA3250
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70226.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70226.jpgsave_picture_70226.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:21B1504DB77F4B43E3D4A7CC188DE4ABDA26AC36
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70227.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70227.jpgsave_picture_70227.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ Jigokuraku | Hell's Paradise: Jigokuraku | Адский рай (2018) [13 том
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70228.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70228.jpgsave_picture_70228.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ VA - Love Is...Chill Out (2025) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70229.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70229.jpgsave_picture_70229.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ JoJo no Kimyou na Bouken Part 4: Diamond wa Kudakenai | Невероятные �
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70230.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70230.jpgsave_picture_70230.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ XYplorer 26.90.0100 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70231.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70231.jpgsave_picture_70231.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:F6F15BA69E58B542600DF0E38171E2AAAE277C38
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70232.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70232.jpgsave_picture_70232.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:24DBD83B9C142FCC5265B32557C6AA1C92458707
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70233.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70233.jpgsave_picture_70233.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Warmblood - Putrefaction Emphasis (2017) [FLAC|Lossless|image + .cue] <Death Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70234.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70234.jpgsave_picture_70234.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Von Hertzen Brothers - Studio Albums (9 releases) (2001-2024) hand made [restore
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70235.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70235.jpgsave_picture_70235.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ magnet:?xt=urn:btih:796CC5343902C10793666EE3898A6BE37C1AC58C
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70236.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70236.jpgsave_picture_70236.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Les Paul And His Trio - The Guitar Artistry Of Les Paul (1968) 1990, MCA Records
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70237.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70237.jpgsave_picture_70237.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Karen Stachel - A Whim And A Prayer (2023) Purple Room [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70238.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70238.jpgsave_picture_70238.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ Eddie "Lockjaw" Davis & Shirley Scott - Cookin' With Jaws And The Queen (1958) 4
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70239.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70239.jpgsave_picture_70239.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ Kenny Garrett Quintet - Introducing Kenny Garrett (1985) Criss Cross Jazz [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70240.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70240.jpgsave_picture_70240.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ VA - Milk & Sugar Winter Sessions 2025 [MP3|320 Kbps] <Funky, Club House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70241.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70241.jpgsave_picture_70241.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ V.A. - Lounge & Wine, Vol. 4 (2025) [FLAC|Lossless|WEB-DL|tracks] <Electronic, L
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70242.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70242.jpgsave_picture_70242.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ magnet:?xt=urn:btih:6FD7A2149DA2F470FBDA021D0B27B5389CC0EE85
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70243.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70243.jpgsave_picture_70243.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ magnet:?xt=urn:btih:A21770820A40068CF0E6CDB939D72187A3D34F55
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70244.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70244.jpgsave_picture_70244.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ magnet:?xt=urn:btih:9DE2916F1ECAB62CD76FA612F41792756EA2907D
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70245.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70245.jpgsave_picture_70245.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ magnet:?xt=urn:btih:9DE2916F1ECAB62CD76FA612F41792756EA2907D
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70246.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70246.jpgsave_picture_70246.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ magnet:?xt=urn:btih:E9261B3848524123F4C27D50D499831DC8C6F073
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70247.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70247.jpgsave_picture_70247.jpg" />
 </div>
 
 

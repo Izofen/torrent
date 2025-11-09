@@ -6,7 +6,7 @@ ILA A Frosty Glide (2025) [Ru/Multi] (1.0.0.5) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187961.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187961.jpgsave_picture_187961.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Native Instruments Guitar Rig 7 Pro for Mac 7.0.1 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187962.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187962.jpgsave_picture_187962.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ YT Downloader 9.17.10 [En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187963.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187963.jpgsave_picture_187963.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:E07B153E183DD32C49F917780DDFE15260D0BA6A
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187964.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187964.jpgsave_picture_187964.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:F027DE47992538AEBD70D14F45A6FB3CA512927F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187965.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187965.jpgsave_picture_187965.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:B0CB1C83DE0E0143E81F16F0783134A0D5CE37AC
 >>КВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187967.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187967.jpgsave_picture_187967.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:6C5945C7E8296BF3ADFA4D1F9178E59805E66936
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187968.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187968.jpgsave_picture_187968.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ SD Maid v5.6.1 Extra Mod + Dark-Venom Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187969.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187969.jpgsave_picture_187969.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:DD65A9D99E977E999CE09D5FEB2E000D00B9D147
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187970.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187970.jpgsave_picture_187970.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:F00FE515BD5E6F5686F582531278C30547707884
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187971.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187971.jpgsave_picture_187971.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ GPS АнтиРадар v38.0 Mod by Dymonyxx [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187972.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187972.jpgsave_picture_187972.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:71BB414B00342044B79878EAB228DC2DB16885AC
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187973.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187973.jpgsave_picture_187973.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:EEDB18D9A5C001D214F77F327F69CC5277F0496B
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187974.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187974.jpgsave_picture_187974.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ magnet:?xt=urn:btih:4BA63A3329B7F07DE3414AAEEABB4FCE676E3E66
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187975.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187975.jpgsave_picture_187975.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Persona: Бьюти-камера v1.6.52 Mod by Alien [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187976.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187976.jpgsave_picture_187976.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ magnet:?xt=urn:btih:C0A42C81D39DD4BBCFD2E5249BBD3133BF4E2083
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187977.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187977.jpgsave_picture_187977.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ VA - Progressive Trance Awakening, Vol. 08 (2025) [MP3|320 Kbps] <Trance, Progre
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187978.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187978.jpgsave_picture_187978.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ All-In-One Offline Maps v3.13 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187979.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187979.jpgsave_picture_187979.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:054A45EE5EDDB0AFCBA68FE2AE11E5829C4F0F75
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187980.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187980.jpgsave_picture_187980.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ magnet:?xt=urn:btih:18B4EEBB252B3C76CB2C4EE30ADB2565118FA56A
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187981.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187981.jpgsave_picture_187981.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:6B6607576BB5527453811B364398F9A75DDE00CD
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187982.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187982.jpgsave_picture_187982.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Our Life: Beginnings & Always (2020) [En] (1.7.1.2/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187983.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187983.jpgsave_picture_187983.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ magnet:?xt=urn:btih:90793EEE8413A35F541FA33897F4FD8BD413131D
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187984.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187984.jpgsave_picture_187984.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Imagine 1.1.8 + Portable + Plugins  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187985.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187985.jpgsave_picture_187985.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ magnet:?xt=urn:btih:725533606EE2E7F997C2D698E10249F70B22E0B4
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187986.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187986.jpgsave_picture_187986.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Display Driver Uninstaller 18.1.3.7 + Portable [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187987.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187987.jpgsave_picture_187987.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Megaloceros - Megalophobia (2023) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240057.jpgsave_picture_240057.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:9FEB1D2F3522BDDF3047ADDB862AD60A9FEC5201
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240058.jpgsave_picture_240058.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ FireAlpaca 2.10.0 + Standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240059.jpgsave_picture_240059.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:51EBC07CA006D3DF80F5E9E3B2445711F4742BD0
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240060.jpgsave_picture_240060.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Eiyuu Ou, Bu o Kiwameru Tame Tenseisu: Soshite, Sekai Saikyou no Minarai Kishi |
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240061.jpgsave_picture_240061.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:0D4D26DA9CA9BCEF828874D0ED8F9C74ECC781CF
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240062.jpgsave_picture_240062.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ LensFlare Studio 6.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240063.jpgsave_picture_240063.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:E92E75306F15B34ED708ED9FAA3237A137BEE205
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240064.jpgsave_picture_240064.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:7CA24461755CC8B167C7121D881ADE88BD771CEF
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240065.jpgsave_picture_240065.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ magnet:?xt=urn:btih:E89C5C598A142FAA4CEC4B59C07C9114D5E58953
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240066.jpgsave_picture_240066.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ Exhibeo 2 v2.0.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240067.jpgsave_picture_240067.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ Amazonics - Amazónico (Amazonico) (2020) [AAC|~308 Kbps] <Chillout, Lounge>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240068.jpgsave_picture_240068.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ magnet:?xt=urn:btih:86FF92EA1C344DB155E5C4DF32263017B707B3BE
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240069.jpgsave_picture_240069.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:EC229105EEBEAE1548D83554F24AABE6DD91066F
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240070.jpgsave_picture_240070.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ VA - Para acompañar (acompanar) la calma (2023) [FLAC|Lossless|WEB-DL|tracks] <
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240071.jpgsave_picture_240071.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ VA - Clubbers Culture: Car Audio Trance (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240072.jpgsave_picture_240072.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ magnet:?xt=urn:btih:8952E231B242E8817DAC7D3F88B04618E0FAD63E
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240073.jpgsave_picture_240073.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ magnet:?xt=urn:btih:7FC17329B4150588592E5B4D864188BE9B3EF3E0
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240074.jpgsave_picture_240074.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ FontBook 5.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240075.jpgsave_picture_240075.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Lankester Merrin - Upon the Forgotten (2021) [MP3|320 Kbps] <Heavy Metal, Female
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240076.jpgsave_picture_240076.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ magnet:?xt=urn:btih:1481359C47479B4976214E7548F1A954220D147D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240077.jpgsave_picture_240077.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ SamDrivers 22.8 Expert [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240078.jpgsave_picture_240078.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Aiseesoft Mac Video Converter Ultimate for Mac 10.3.58 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240079.jpgsave_picture_240079.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Dizzy Gillespie - The Champ (1952) 2003,  Savoy Jazz [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240080.jpgsave_picture_240080.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Permute 3 v3.5.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240081.jpgsave_picture_240081.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ magnet:?xt=urn:btih:EF4B4EAFCD46B0CB46A3547B6D12C6FB56DC6B6B
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240082.jpgsave_picture_240082.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ VA - I Love ZYX Italo Disco Collection 10 (2009) 3 CD [OGG Vorbis|480 Kbps] <Ele
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68662.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68662.jpgsave_picture_68662.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Arch Enemy - Blood Dynasty (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Metal, Me
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68663.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68663.jpgsave_picture_68663.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:4B609AF4422F8FD09D2494A39BA2869CBA2EDA79
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68664.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68664.jpgsave_picture_68664.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Three-Body Technology - VO-TT 1.1.0 VST, VST 3, AAX (x64) RePack by SEnki [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68665.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68665.jpgsave_picture_68665.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ magnet:?xt=urn:btih:22B9D774D5D637E9053AE1F854FFB80DA678FF20
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68666.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68666.jpgsave_picture_68666.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ magnet:?xt=urn:btih:86EDCA5881AF5444841302B9EE1B10C9E1CF487C
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68667.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68667.jpgsave_picture_68667.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ Firefox Browser ESR 115.21.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68668.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68668.jpgsave_picture_68668.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ VA - Vino Amaro - Big Canzone Italiana (2019) [MP3|320 Kbps] <Canzone Italiana>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68669.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68669.jpgsave_picture_68669.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Firefox Browser ESR 115.21.1 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68670.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68670.jpgsave_picture_68670.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ magnet:?xt=urn:btih:E782CB43CDF8517A7E09219F2695C31DE8C15C50
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68671.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68671.jpgsave_picture_68671.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ Excite Audio - Bloom Drum Percussion 1.0.0 STANTALONE, VSTi, VSTi 3, AAX (x64) [
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68672.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68672.jpgsave_picture_68672.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ magnet:?xt=urn:btih:86346E9AD5A780B952B26C75E2006277C1591D46
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68673.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68673.jpgsave_picture_68673.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ magnet:?xt=urn:btih:D31B4B7D6B9D89B4D91015DEA52AD724CB7F4FBA
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68674.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68674.jpgsave_picture_68674.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ VA - Trance Top 100, Vol. 2 (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68675.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68675.jpgsave_picture_68675.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ magnet:?xt=urn:btih:55787F63C287340445EEE87AD6D167B90CF026A8
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68676.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68676.jpgsave_picture_68676.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ magnet:?xt=urn:btih:76BBF91DFAC54C69955A61850DDCB4BC9B05D6C3
 >>IDM
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68677.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68677.jpgsave_picture_68677.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ Einherjer - Odin Owns Ye All (1998) Released, 2020, Funeral Industries [WavPack|
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68678.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68678.jpgsave_picture_68678.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ Autopsy - The Tomb Within (2010) EP, Released, 2017, Peaceville [WavPack|32/192|
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68679.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68679.jpgsave_picture_68679.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ VA - 25 Years Of Anjuna Mixed By Dosem (2025) [MP3|320 Kbps] <Progressive House,
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68680.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68680.jpgsave_picture_68680.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ VA - Днесь. Трибьют. Стихи Анатолия Мариенгоф�
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68681.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68681.jpgsave_picture_68681.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ magnet:?xt=urn:btih:36E6B203CD11A69CBCA9A254F81E3D462E39F2D5
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68682.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68682.jpgsave_picture_68682.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ magnet:?xt=urn:btih:D92BBD8928C6FAC5EE287DD64F5625965D4291A0
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68683.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68683.jpgsave_picture_68683.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ magnet:?xt=urn:btih:5DD6014C10D094531B6BC84AE13A18223AD0352D
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68684.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68684.jpgsave_picture_68684.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ VA - Ibiza Springtime 2025 (Dancing In The Sunset) (2025) [MP3|320 Kbps] <Dance,
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68685.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68685.jpgsave_picture_68685.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ magnet:?xt=urn:btih:7B15825F92D598C2E6DC536108C01ECF7B2F04A4
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68686.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68686.jpgsave_picture_68686.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ VA - Amsterdam Session 2025 (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68687.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68687.jpgsave_picture_68687.jpg" />
 </div>
 
 

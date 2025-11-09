@@ -6,7 +6,7 @@
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197024.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197024.jpgsave_picture_197024.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ VA - Pirate Station X [Mixed by DJ Gvozd] (26.02.2010) [MP3|320 kbps]<Drum'n'Bas
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_197025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197025.jpgsave_picture_197025.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ f.lux v4.124 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197026.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197026.jpgsave_picture_197026.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:B6A6CEBE1D7305FFCA9186519EF9BAD90A270633
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_197027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197027.jpgsave_picture_197027.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Aiseesoft Data Recovery 1.6.12 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197028.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197028.jpgsave_picture_197028.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ magnet:?xt=urn:btih:FD4E4E0BD4C4BDCBA8167D9D70A04F8FD937F346
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197029.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197029.jpgsave_picture_197029.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ magnet:?xt=urn:btih:12EAC9408B3ECA506CA39DB8DDF6536A72321D34
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197030.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197030.jpgsave_picture_197030.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ Stim Axel - На Радиоволнах... (2008) [MP3|320 Kbps] <Drum & Bass, V
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_197031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197031.jpgsave_picture_197031.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ AVS Media Player 5.6.1.154 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197032.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197032.jpgsave_picture_197032.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ magnet:?xt=urn:btih:5F20770289CF005D239141055542839E894BA56B
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_197033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197033.jpgsave_picture_197033.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ magnet:?xt=urn:btih:7BD326903F389A3CDCDB94DDC2918533526A078C
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197034.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197034.jpgsave_picture_197034.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ Windows 10 22H2 x64 Rus by OneSmiLe [19045.3086]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197035.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197035.jpgsave_picture_197035.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ magnet:?xt=urn:btih:A45581422261870857D9A56AFEFFC32935095B33
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_197036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197036.jpgsave_picture_197036.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ ZD Soft Screen Recorder 11.6.5.0 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197037.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197037.jpgsave_picture_197037.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ Windows 10 Manager 3.8.2 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197038.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197038.jpgsave_picture_197038.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ PortableApps.com Platform 26.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197040.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197040.jpgsave_picture_197040.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Modern Tweaker 1.8 Final Portable [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197041.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197041.jpgsave_picture_197041.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ magnet:?xt=urn:btih:D18B7B2EE369F528F132473A8580CA5159B9275E
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_197042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197042.jpgsave_picture_197042.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ DJ Грув - ЯД (2007) [FLAC|1072 kbps]<Electronic, House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_197044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197044.jpgsave_picture_197044.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ magnet:?xt=urn:btih:8C657B565CAB0739FE80E18D25170A07D08739FD
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197046.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197046.jpgsave_picture_197046.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ AIMP 5.11 Build 2432 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197047.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197047.jpgsave_picture_197047.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ magnet:?xt=urn:btih:5E77CC142F3F18E1781DA79067F4B82C69AEF019
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197048.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197048.jpgsave_picture_197048.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ magnet:?xt=urn:btih:473C2E2F8B6F9F9C82BB59ED3022FF7292CA04FE
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197049.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197049.jpgsave_picture_197049.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ magnet:?xt=urn:btih:D473B590BC091358955C643F4238D8169FE41726
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197050.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197050.jpgsave_picture_197050.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ Internet Download Manager 6.41 Build 15 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197051.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197051.jpgsave_picture_197051.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ magnet:?xt=urn:btih:AF9228DCE46B54047F9903799A191E564093CF90
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197052.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197052.jpgsave_picture_197052.jpg" />
 </div>
 
 

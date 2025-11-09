@@ -6,7 +6,7 @@ Foldor 1.2.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244927.jpgsave_picture_244927.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ George Cables - Shared Secrets (2001) MuseFX Records [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244928.jpgsave_picture_244928.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ VA - Global Underground Afterhours (2002) Global Underground [FLAC|Lossless|trac
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244929.jpgsave_picture_244929.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ OpenNumismat 1.8.21 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244930.jpgsave_picture_244930.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ magnet:?xt=urn:btih:4AB92E4F61022F903D9A7EDEA7BC9164523F6977
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244931.jpgsave_picture_244931.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ R-Studio Technician 9.2 Build 191140 RePack (& portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244932.jpgsave_picture_244932.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ Anette Olzon - Strong (2021) Jараnеsе Еditiоn [FLAC|Lossless|image + .cue
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244933.jpgsave_picture_244933.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ Maze of Realities 2: Reflection of Light (2022) [En] (1.0) Unofficial [Collector
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244934.jpgsave_picture_244934.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ magnet:?xt=urn:btih:5E3007D1FD4EB8A7F254B8AF535926957F686E99
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244935.jpgsave_picture_244935.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ George Cables - Looking For The Light (2003) MuseFX Records [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244936.jpgsave_picture_244936.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ Burning Witches - The Dark Tower (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Po
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244937.jpgsave_picture_244937.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ Brian Langlinais - Right Hand Road (2016) [MP3|320 Kbps] <Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244938.jpgsave_picture_244938.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ VA - Back to Earth #03 (2021) [AAC|~323 Kbps] <House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244939.jpgsave_picture_244939.jpg" />
 </div>
 
 
@@ -340,7 +340,7 @@ magnet:?xt=urn:btih:005B86C187D13A6DAA2B3A747ADCC20531DC5A8D
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244940.jpgsave_picture_244940.jpg" />
 </div>
 
 
@@ -365,7 +365,7 @@ magnet:?xt=urn:btih:AD0612F8DC775C18C21143E01E12BDE595B1A151
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244941.jpgsave_picture_244941.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ Slap Back Joe - Singing My Blues Away (2023) [FLAC|Lossless|WEB-DL|tracks] <Blue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244942.jpgsave_picture_244942.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Radiant Photo 1.1.0.257 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244943.jpgsave_picture_244943.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Royal Hunt - Dystopia - Part II (2022) [FLAC|Lossless|image + .cue] <Melodic Pro
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244944.jpgsave_picture_244944.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Motorbiscuit - Into The Fray (2014) [MP3|320 Kbps] <Hard & Heavy>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244945.jpgsave_picture_244945.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Bunny Berigan And His Orchestra - 1937 (1994) Classics [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244946.jpgsave_picture_244946.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ Kerish Doctor 2022 4.90 (DC 31.03.2022) (Repack & Portable) by 9649 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244947.jpgsave_picture_244947.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ magnet:?xt=urn:btih:09588AD9E350806999BD035B2962B31CDFC130F0
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244948.jpgsave_picture_244948.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ VA - Памяти Аркадия Северного (1995) [MP3|320 Kbps] <Ша�
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244949.jpgsave_picture_244949.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ VA - Back to Earth #04 (2021) [AAC|~328 Kbps] <House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244950.jpgsave_picture_244950.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ VA - Ultima Audio: Essentials 2022 (Mixed by Alex John) (2023) [MP3|320 Kbps] <T
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244951.jpgsave_picture_244951.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ magnet:?xt=urn:btih:F736BFC306F1144E80155EFD787FE06240CE5325
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244952.jpgsave_picture_244952.jpg" />
 </div>
 
 

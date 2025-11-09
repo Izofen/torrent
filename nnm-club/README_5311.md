@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164910.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164910.jpgsave_picture_164910.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:5859597CCB67AFFD9EA8D3206087203B3BDCE7AF
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164911.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164911.jpgsave_picture_164911.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ Movavi Video Converter 21 Premium 21.1.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164912.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164912.jpgsave_picture_164912.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ Udemy, Stephen Grider | React Testing Library and Jest: The Complete Guide (2023
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164913.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164913.jpgsave_picture_164913.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ magnet:?xt=urn:btih:26112D9F351C81FC0C31C14D926B114C4E31AB61
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164914.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164914.jpgsave_picture_164914.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ magnet:?xt=urn:btih:A4E01791A2AD7EAA5FC5E52165D3CAC33FA96B97
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164915.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164915.jpgsave_picture_164915.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:AA0C5E729487E4F3E3D132861288E512FAF4508F
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164916.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164916.jpgsave_picture_164916.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:4F355524CF6FE9FB79805CCA880967667EBDE809
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164917.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164917.jpgsave_picture_164917.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ magnet:?xt=urn:btih:8E280529895EE48FBDFE19CA97EC3D884A401E2B
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164918.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164918.jpgsave_picture_164918.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ Strogoorganic, Мария Винокур, Эля Ямилева | Курс на�
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164919.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164919.jpgsave_picture_164919.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ magnet:?xt=urn:btih:5E7692E15CA0EF6754931B525C4429D4D94878F8
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164920.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164920.jpgsave_picture_164920.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ magnet:?xt=urn:btih:E34D62FF71E5A87F411C66C2332540A2ACC770FA
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164921.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164921.jpgsave_picture_164921.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ magnet:?xt=urn:btih:78CEB8100D05002473E9D4246B04F6DB781B5A7C
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164922.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164922.jpgsave_picture_164922.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ magnet:?xt=urn:btih:D9DA7CC1AD938BF7B7F9DCB3E148303F004D5314
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164923.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164923.jpgsave_picture_164923.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ O&O DiskImage Professional 18.2 Build 199 RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164924.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164924.jpgsave_picture_164924.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ SiSoftware Sandra Lite 20/21 R25 (версия 31.137) [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164925.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164925.jpgsave_picture_164925.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ magnet:?xt=urn:btih:4319C62B0924660E9A374B45D30BEAF632E5D68D
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164926.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164926.jpgsave_picture_164926.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ magnet:?xt=urn:btih:3E795F81B507EBE9E2B9C1E1875CAC563FD94E10
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164927.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164927.jpgsave_picture_164927.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Ulvesang - The Hunt (2018) [FLAC|Lossless|Web-DL|tracks] <Folk, Black Metal, Dar
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164928.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164928.jpgsave_picture_164928.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ magnet:?xt=urn:btih:A77C1A98773FC40462F10A33F7E47FBEA2EDA746
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164929.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164929.jpgsave_picture_164929.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ magnet:?xt=urn:btih:4FBF0581717F884993C5F903697565071D1E1568
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164930.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164930.jpgsave_picture_164930.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ magnet:?xt=urn:btih:EB13A928B57CBDC90FB87D24DFD16FABBDCD4536
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164931.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164931.jpgsave_picture_164931.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ magnet:?xt=urn:btih:B8750EF38B7621D38114F26A50C588054A3A9B4E
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164932.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164932.jpgsave_picture_164932.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ magnet:?xt=urn:btih:40C709BA8C3AD0CC2CB4BE4159C2F365F8750BBC
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164933.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164933.jpgsave_picture_164933.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ magnet:?xt=urn:btih:0202A772A67171DF847092822FAE19333B23539B
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164934.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164934.jpgsave_picture_164934.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ In This Moment - Studio Albums (8 Releases) (2007-2023) hand made [restored, dec
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164935.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164935.jpgsave_picture_164935.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Berlin Philharmonic Orchestra • Herbert von Karajan - Beethoven - Symphony No.
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188800.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188800.jpgsave_picture_188800.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Andrea Balzani, Francesco Digilio - Wings of Wind (2022) [FLAC|Lossless|WEB-DL|t
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188801.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188801.jpgsave_picture_188801.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:FE21B17A41F4ACD356F9C618DB38B85BA01A5F86
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188802.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188802.jpgsave_picture_188802.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ GitKraken Client Enterprise for Mac 9.8.1 Intel/ARM [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188803.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188803.jpgsave_picture_188803.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ VA - Let's Dance Baby Vol. 2 (2022) [MP3|320 Kbps] <Dance, Electro Pop, Progress
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188804.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188804.jpgsave_picture_188804.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ Luke Winslow-King - If These Walls Could Talk - If These Walls Could Talk (2022)
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188805.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188805.jpgsave_picture_188805.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Floorp Browser 11.3.3 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188806.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188806.jpgsave_picture_188806.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ magnet:?xt=urn:btih:4A8479FCD9BF821AEB430ABF6113466D76F42BC3
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188807.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188807.jpgsave_picture_188807.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ MediaHuman YouTube Downloader 3.9.9.85 (1309) RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188808.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188808.jpgsave_picture_188808.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ Google Chrome 117.0.5938.63 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188809.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188809.jpgsave_picture_188809.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ magnet:?xt=urn:btih:8B1863038B55B09363404D010EE8BA3C167D3E87
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188810.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188810.jpgsave_picture_188810.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ WinScan2PDF 8.66 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188811.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188811.jpgsave_picture_188811.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ magnet:?xt=urn:btih:6C6784BE2E7303A68342404FC320450A1C0EA99A
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188812.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188812.jpgsave_picture_188812.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ magnet:?xt=urn:btih:94C2266BD1AB74F9D38D0E073281B729ABFA09FB
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188813.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188813.jpgsave_picture_188813.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ MediaInfo 23.09 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188814.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188814.jpgsave_picture_188814.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ magnet:?xt=urn:btih:EA6E081ED811DBFBD6041518D149B745FC313363
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188815.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188815.jpgsave_picture_188815.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ magnet:?xt=urn:btih:8707161D6CE0B9311F1F09BF483ADD632F6D8AF4
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188816.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188816.jpgsave_picture_188816.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ magnet:?xt=urn:btih:EE63201F8726FC47BC036353AAFF550C04B3559A
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188817.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188817.jpgsave_picture_188817.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Transparent clock & weather / Прозрачные часы и погода 6.36
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188818.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188818.jpgsave_picture_188818.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ magnet:?xt=urn:btih:397943DCCA3DE346BF04DFB4CAEE654E26983705
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188819.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188819.jpgsave_picture_188819.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ TheAeroClock 8.43 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188820.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188820.jpgsave_picture_188820.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ Dynamic Island - dynamicSpot 1.72 (200096) Mod by youarefinished [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188821.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188821.jpgsave_picture_188821.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ magnet:?xt=urn:btih:9C9BD626F76A28F8699DADF2E4E2DA11A5473EE0
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188822.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188822.jpgsave_picture_188822.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ BLEASS - Megalit 1.0.9 VSTi 3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188823.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188823.jpgsave_picture_188823.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ VA - The good awakening blues (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188824.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188824.jpgsave_picture_188824.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ magnet:?xt=urn:btih:E0C0D134F62A995FFD3B9B595AE63EF315A2034D
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188825.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188825.jpgsave_picture_188825.jpg" />
 </div>
 
 

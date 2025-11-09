@@ -6,7 +6,7 @@ Nmap 7.94 [En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198070.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198070.jpgsave_picture_198070.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ OnlyStopWatch 6.16 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198151.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198151.jpgsave_picture_198151.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ FileOptimizer 16.30.2781 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198376.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198376.jpgsave_picture_198376.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ WebBrowserPassView 2.12 Portable [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198529.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198529.jpgsave_picture_198529.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ FileXile 3.00 + Portable [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198564.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198564.jpgsave_picture_198564.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ jv16 PowerTools 8.1.0.1564 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198577.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198577.jpgsave_picture_198577.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ MemTest86 10.4 Build 1000 Pro by FC Portables [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198586.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198586.jpgsave_picture_198586.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ ThisIsWin11 1.5.0 [En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198614.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198614.jpgsave_picture_198614.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ Solo on Dvorak Keyboard 8.2.1.6 [En]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198618.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198618.jpgsave_picture_198618.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:91C2EB81ED36B4F7AE502C9E7159207ABC5C99C2
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198645.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198645.jpgsave_picture_198645.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ PDF Annotator 9.0.0.914 (x64) [Multi]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198683.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198683.jpgsave_picture_198683.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Soft Organizer Pro 10.33 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_199794.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_199794.jpgsave_picture_199794.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Reg Organizer 9.89 + Portable [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_199797.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_199797.jpgsave_picture_199797.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ PowerISO 9.2 [Multi/Ru]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_199815.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_199815.jpgsave_picture_199815.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ PowerISO 9.2 RePack by KpoJIuK [Multi/Ru]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_199968.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_199968.jpgsave_picture_199968.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Reg Organizer 9.89 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_199970.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_199970.jpgsave_picture_199970.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ magnet:?xt=urn:btih:5F3370BB7A1FBD7BA0FA7C8DEC8F0C8E37A56D97
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_200033.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_200033.jpgsave_picture_200033.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ FileMenu Tools 8.6 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_201753.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_201753.jpgsave_picture_201753.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ ScrollNavigator 5.16.1 RePack by KpoJIuK [Ru/En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_201755.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_201755.jpgsave_picture_201755.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Any Video Downloader Pro 9.6.5 RePack (& Portable) by elchupacabra [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_201756.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_201756.jpgsave_picture_201756.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ By Click Downloader Premium 2.4.27 RePack (& Portable) by elchupacabra [Multi/Ru
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_201757.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_201757.jpgsave_picture_201757.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ R-Drive Image Technician 7.3 Build 7312 RePack (& Portable) by KpoJIuK [Multi/Ru
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_201758.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_201758.jpgsave_picture_201758.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ O&O Defrag Professional + Server 30.0 Build 1073 RePack by KpoJIuK [Ru/En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_201759.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_201759.jpgsave_picture_201759.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ YT Downloader 9.17.15 [En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_201824.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_201824.jpgsave_picture_201824.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ magnet:?xt=urn:btih:F329F220106DB31A32F0A7A93A23DCC5E7DE61B9
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_201828.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_201828.jpgsave_picture_201828.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ WindowManager 10.23.1 [En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_201856.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_201856.jpgsave_picture_201856.jpg" />
 </div>
 
 

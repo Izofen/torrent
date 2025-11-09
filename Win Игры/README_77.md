@@ -6,7 +6,7 @@ The Sims 2 (2025) [Ru/Multi] (1.0.0.153/dlc) Repack dixen18 [Legacy Collection]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22452.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22452.jpgsave_picture_22452.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ The Last of Us Part II (2) (2025) [Ru/Multi] (1.0.10402.1014/dlc) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22453.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22453.jpgsave_picture_22453.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Microtopia (2025) [Ru/Multi] (1.0.8bb) Repack Other s
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22492.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22492.jpgsave_picture_22492.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Paleo Pines (2023) [Ru/Multi] (1.5.22/dlc) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22499.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22499.jpgsave_picture_22499.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ South of Midnight (2025) [Ru/Multi] (1.1.0 184977) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22502.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22502.jpgsave_picture_22502.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ South of Midnight (2025) [Ru/Multi] (1.1.0 184977) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22509.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22509.jpgsave_picture_22509.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ My Friend Pedro (2019) [Ru/Multi] (1.03) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22513.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22513.jpgsave_picture_22513.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Orcs Must Die! Deathtrap (2025) [Ru/Multi] (1.1.2/dlc) Scene Rune
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22514.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22514.jpgsave_picture_22514.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ The Planet Crafter (2022) [Ru/Multi] (1.410/dlc) Repack Pioneer
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22519.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22519.jpgsave_picture_22519.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ American Truck Simulator (2016) [Ru/Multi] (1.54.2.3/dlc) Scene Rune
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22528.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22528.jpgsave_picture_22528.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Mars Vice (2025) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22536.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22536.jpgsave_picture_22536.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Fiora (2025) [Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22540.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22540.jpgsave_picture_22540.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Ship Simulator: Maritime Search and Rescue (2014) [Multi] (1.0) Repack R.G. Ме
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22542.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22542.jpgsave_picture_22542.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Ship Graveyard Simulator 2 (2023) [Ru/Multi] (13195/dlc) Scene Rune
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22557.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22557.jpgsave_picture_22557.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ MosGhost (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22560.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22560.jpgsave_picture_22560.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Whispered Secrets 16: In the Cards / Нашептанные секреты 16: �
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22592.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22592.jpgsave_picture_22592.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Train Yard Builder (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22612.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22612.jpgsave_picture_22612.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Virballs (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22617.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22617.jpgsave_picture_22617.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Haste: Broken Worlds (2025) [Ru/Multi] (1.0.b) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22622.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22622.jpgsave_picture_22622.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ REYNATIS (2024) [Multi] (1.0.9/dlc) Scene Rune [Ultimate Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22632.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22632.jpgsave_picture_22632.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ KARMA: The Dark World (2025) [Ru/Multi] (Build 17844576) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22633.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22633.jpgsave_picture_22633.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Galacticare (2024) [Ru/Multi] (1.2.0+4f6f505ec2/dlc) Repack FitGirl [Full Covera
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22640.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22640.jpgsave_picture_22640.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Haste: Broken Worlds (2025) [Ru/Multi] (1.0.b) Repack Wanterlude
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22667.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22667.jpgsave_picture_22667.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Bio Prototype (2025) [Ru/Multi] (1.0.12) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22677.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22677.jpgsave_picture_22677.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Avowed (2025) [Ru/Multi] (1.3.1.0/dlc) Repack Other s [Premium Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22712.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22712.jpgsave_picture_22712.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ House Party (2017) [Ru/Multi] (1.4.0.13093/dlc) Repack Other s [18+]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22727.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22727.jpgsave_picture_22727.jpg" />
 </div>
 
 

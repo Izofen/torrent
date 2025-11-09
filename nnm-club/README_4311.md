@@ -6,7 +6,7 @@
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133894.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133894.jpgsave_picture_133894.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ ReviverSoft Driver Reviver 4.0.1.44 [Rus/Eng] Portable by SoftLab
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133895.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133895.jpgsave_picture_133895.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Mp3tag 1.8.11 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133896.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133896.jpgsave_picture_133896.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Them - Studio Albums (4 releases) (2016-2022) hand made [restored, declipped] [F
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133897.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133897.jpgsave_picture_133897.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:89698A042F4627CECBFA421347999C50733FF300
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133898.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133898.jpgsave_picture_133898.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:DD0A71F99EA04F2A2333B98636F129CF1356C6E0
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133899.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133899.jpgsave_picture_133899.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:2CE29ACE841212277DEAAF02CEDC29F959EC7510
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133900.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133900.jpgsave_picture_133900.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ Recompress 22.12 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133901.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133901.jpgsave_picture_133901.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ Input Recorder for Mac 1.7 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133902.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133902.jpgsave_picture_133902.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:8782F0723B288671B25115833D8F3DF7A978AC26
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133903.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133903.jpgsave_picture_133903.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:106C7A33CC270F3436A903047D858AF4F8E87DBE
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133905.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133905.jpgsave_picture_133905.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ magnet:?xt=urn:btih:20869DE20A2F916026123899E0C0A5D4835F1FC5
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133907.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133907.jpgsave_picture_133907.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ magnet:?xt=urn:btih:285BFE0305C2C7C178F61A37848B5C502DE024DC
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133908.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133908.jpgsave_picture_133908.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ TodoMal - A Greater Good (2023) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Doom 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133909.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133909.jpgsave_picture_133909.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ magnet:?xt=urn:btih:0E7666389687E872082579BCD7F4231FA8A556D4
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133910.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133910.jpgsave_picture_133910.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ PhotoFoundry for Mac 1.2.5 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133911.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133911.jpgsave_picture_133911.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ magnet:?xt=urn:btih:E8DA6C11CD67B66390295C49ACDA888AA6CD8134
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133913.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133913.jpgsave_picture_133913.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ magnet:?xt=urn:btih:760A0AB5CDCB45CE971AE0B1668C023C8FCDEC30
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133914.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133914.jpgsave_picture_133914.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ NCH DreamPlan Plus 8.61 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133915.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133915.jpgsave_picture_133915.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Tweetbot 1.0.1 [EN]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133916.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133916.jpgsave_picture_133916.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ Cохранение черновиков, добавление местопол�
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133917.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133917.jpgsave_picture_133917.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ CryptoEdit 2 v.2.6 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133919.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133919.jpgsave_picture_133919.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ magnet:?xt=urn:btih:FBA02E5116C6BDDE47B708771E516099750A9B0A
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133922.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133922.jpgsave_picture_133922.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Terry Oldfield (Ft. Mike Oldfield) - Journey Into Space (2012) [FLAC|Lossless]<N
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133923.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133923.jpgsave_picture_133923.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Fate - V (2006) Remastered, 2023, Frontiers Records [FLAC|Lossless|WEB-DL|tracks
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133926.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133926.jpgsave_picture_133926.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ Catharsis - 15 Лет Полёта.. (2012) DVD-9
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133927.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133927.jpgsave_picture_133927.jpg" />
 </div>
 
 

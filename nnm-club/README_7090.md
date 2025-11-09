@@ -6,7 +6,7 @@ VA - National Pop Dance Music (Vol.32) (2022) [MP3|320 Kbps] <Pop, Dance, Folk S
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243224.jpgsave_picture_243224.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Top Hit Music Mission Charts (2016) [MP3|239~320 Kbps] <House, Funky,  Nu D
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243225.jpgsave_picture_243225.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Emerald Lord - Attaining the Supreme (2023) [FLAC|Lossless|WEB-DL|tracks] <Death
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243226.jpgsave_picture_243226.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - 100 Hits Pure 80s (100 Original Classics From The Decade) (2016) Box Set: 5
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243228.jpgsave_picture_243228.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Call Me Karizma - Francis (2022) 2023, Deluxe Edition [FLAC|Lossless|WEB-DL|trac
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243229.jpgsave_picture_243229.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ magnet:?xt=urn:btih:9AFB501769A7D0A355C20F6BD331CD5CCC03ECEA
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243230.jpgsave_picture_243230.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ magnet:?xt=urn:btih:830C26BF05F041B77236E67B02FBDF9F5CA5CA87
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243231.jpgsave_picture_243231.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Amadeus Pro  2.7.1 (build 2346) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243232.jpgsave_picture_243232.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ VA - My Free Hour: Chillout Your Mind (2022) [FLAC|Lossless|WEB-DL|tracks] <Bale
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243233.jpgsave_picture_243233.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Djevelkult - Drep Alle Guder (2022) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243234.jpgsave_picture_243234.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ magnet:?xt=urn:btih:C27E59975E0B4F4C4E8FE9BB4CBC28EE2D57381F
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243236.jpgsave_picture_243236.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ magnet:?xt=urn:btih:1AEDDEAB642D69E978CC3D1DFCC8F742C0D52DF4
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243237.jpgsave_picture_243237.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ magnet:?xt=urn:btih:AE3D01788CCD4A944C36F241E0CA90166807F727
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243238.jpgsave_picture_243238.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ magnet:?xt=urn:btih:EE0D20B63C1F881A59C339F8166B15D4FF182BAF
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243239.jpgsave_picture_243239.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ ExactScan Pro 16.12.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243240.jpgsave_picture_243240.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ Keith Jarrett - Mysteries & Shades (1975) 2011, Universal [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243241.jpgsave_picture_243241.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ Tiga - You Gonna Want Me (2005) [FLAC|Lossless|image + .cue] <House, Techno, Ele
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243242.jpgsave_picture_243242.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ Hardcore Superstar - Abrakadabra (2022) [FLAC 2.0|44.1/24|WEB-DL|tracks] <Hard R
 >>Hard Rock (Hi Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243243.jpgsave_picture_243243.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ LibreWolf 111.0.1-1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243244.jpgsave_picture_243244.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Menderes - Sieger der Herzen (Das Beste aus 20 Jahren) (2023) [MP3|320 Kbps] <Da
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243245.jpgsave_picture_243245.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ magnet:?xt=urn:btih:2E691DD5D36E7C93DA54DEED4D7EE26B6F55F017
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243246.jpgsave_picture_243246.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ Kaspersky Tweak Assistant 22.8.6.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243247.jpgsave_picture_243247.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ magnet:?xt=urn:btih:0634F710743E23E90FD4EBE024B7E50ECC473E7B
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243248.jpgsave_picture_243248.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Wizards Of Hazards - Supernatural (2023) [FLAC|Lossless|WEB-DL|tracks] <Doom Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243249.jpgsave_picture_243249.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ VA - Заключительная осенняя дискотека. Верси�
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243250.jpgsave_picture_243250.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Rolling Stones - Steel Wheels (1989) [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Cla
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243251.jpgsave_picture_243251.jpg" />
 </div>
 
 

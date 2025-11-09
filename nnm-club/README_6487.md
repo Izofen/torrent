@@ -6,7 +6,7 @@ OmniReader Pro for Mac 2.4.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205518.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205518.jpgsave_picture_205518.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:0F1F7CD1CE40554FDF833AB471FD7A2861194215
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205521.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205521.jpgsave_picture_205521.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Boxy SVG 4.6.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205522.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205522.jpgsave_picture_205522.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Colibri 2.1.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205524.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205524.jpgsave_picture_205524.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Grift - Budet (2020) [FLAC|Lossless|image + .cue] <Blackgaze>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205526.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205526.jpgsave_picture_205526.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ Speedtest от Ookla 5.0.9 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205529.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205529.jpgsave_picture_205529.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ NCH DreamPlan Plus 8.37 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205530.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205530.jpgsave_picture_205530.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:DD527AFD78F0C77181BC3FA6AA519412AA15BB1C
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205533.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205533.jpgsave_picture_205533.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ VA - Top 10 July 2023 Emotional and Uplifting Trance (2023) [MP3|320 Kbps] <Tran
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205535.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205535.jpgsave_picture_205535.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ magnet:?xt=urn:btih:F51A044A4949947D3785DD1D66BF8F1136FA6B31
 >>История
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205536.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205536.jpgsave_picture_205536.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ Infiltration - Extinct (2022) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205538.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205538.jpgsave_picture_205538.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ UninstallPKG 1.2.1  [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205541.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205541.jpgsave_picture_205541.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ Magnum - Marauder (1980) Japanese Edition, Reissue, Remastered, 2023, Belle Anti
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205542.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205542.jpgsave_picture_205542.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ FireAlpaca 2.11.6 + Standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205544.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205544.jpgsave_picture_205544.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ Magnum - Chase The Dragon (1982) Japanese Edition, Reissue, Remastered, 2023, Be
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205547.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205547.jpgsave_picture_205547.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ magnet:?xt=urn:btih:1DCD7A05FCEBA42A9CF3EDC8771C89C765BFA792
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205549.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205549.jpgsave_picture_205549.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Vinegar 2.4.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205550.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205550.jpgsave_picture_205550.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ magnet:?xt=urn:btih:9C1FD701769179A7C6BBA506E5CADD89A83D8241
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205552.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205552.jpgsave_picture_205552.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ ExactScan Pro / Enterprise 23.4 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205555.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205555.jpgsave_picture_205555.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ PCDJ DEX PRO 3.20.6 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205557.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205557.jpgsave_picture_205557.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ magnet:?xt=urn:btih:78FA4FB5A5E8CD2346075E07FED7D88E05D141F8
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205558.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205558.jpgsave_picture_205558.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Voivod - Morgoth Tales (2023 )Japanese Edition [FLAC|Lossless|image + .cue] <Pro
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205560.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205560.jpgsave_picture_205560.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ magnet:?xt=urn:btih:F2F1D7AE59AA50D80EBDE776023AA9198038B655
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205562.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205562.jpgsave_picture_205562.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ JJ Chardeau - Ombres And Lumieres: In Terra Cognita 2 - Europa 1: Occidentalis (
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205564.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205564.jpgsave_picture_205564.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Chris Boltendahl's Steelhammer - Reborn In Flames (2023) [FLAC|Lossless|image + 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205566.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205566.jpgsave_picture_205566.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ magnet:?xt=urn:btih:7A9AF37127A540123A691F87965496679B0D26C6
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205574.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205574.jpgsave_picture_205574.jpg" />
 </div>
 
 

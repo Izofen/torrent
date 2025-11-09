@@ -6,7 +6,7 @@ Hollow Knight v.1.5.78.11833.50885 [Multi/Ru] [macOS Native game]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_185628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185628.jpgsave_picture_185628.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Sascha Paeth's Masters Of Ceremony - Signs Of Wings (2019) Japanese Edition [FLA
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185629.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185629.jpgsave_picture_185629.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Nocny Kochanek - O Jeden Most Za Daleko (2022) [FLAC|Lossless|WEB-DL|tracks] <He
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185631.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185631.jpgsave_picture_185631.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:1A19B66B02E5DC6FAE873620EB09321866FBE907
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_185632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185632.jpgsave_picture_185632.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Scars Above (2023) [Ru/Multi] (1.0.0.132679) Scene FairLight
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185634.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185634.jpgsave_picture_185634.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Diamonds to Dust - Amidst the Hallowed and the Vanquished (2022) [FLAC|Lossless|
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185635.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185635.jpgsave_picture_185635.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ magnet:?xt=urn:btih:CF6442A8A9C07DFEEBF371AF21B2075B476B817F
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185637.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185637.jpgsave_picture_185637.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ magnet:?xt=urn:btih:6736683C2716CAD0225F8E29A76832E8B1791FDE
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185638.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185638.jpgsave_picture_185638.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ Gaupa - Myriad (2022) [FLAC|Lossless|WEB-DL|tracks] <Sludge, Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185639.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185639.jpgsave_picture_185639.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ magnet:?xt=urn:btih:C384BADB38FECD3C94891BA5E583DAFBDC021592
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_185641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185641.jpgsave_picture_185641.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ Tulus - Old Old Death (2020) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185642.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185642.jpgsave_picture_185642.jpg" />
 </div>
 
 
@@ -290,7 +290,7 @@ magnet:?xt=urn:btih:B6673413899371C49F52F7C82077115A91E2E4AF
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185644.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185644.jpgsave_picture_185644.jpg" />
 </div>
 
 
@@ -314,7 +314,7 @@ HAYDEE (2016) [Ru/Multi] (1.09.11) Repack Other s
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_185645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185645.jpgsave_picture_185645.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ magnet:?xt=urn:btih:ED58DB394C1AEEB8FA13A2BFD00F46EDA669581F
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_185646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185646.jpgsave_picture_185646.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ magnet:?xt=urn:btih:1E42CC5CF773B1B1FA29DF8E30938C957DE5A7CC
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_185648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185648.jpgsave_picture_185648.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ magnet:?xt=urn:btih:1AB408827DE456170372CADC915F4114E30FFFBC
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_185649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185649.jpgsave_picture_185649.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ magnet:?xt=urn:btih:5E5DF2FCE167702C245AF2F3C6A3E2105DF83769
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_185650.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_185650.jpgsave_picture_185650.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ HAYDEE II (2020) [Ru/En] (1.0) Repack Other s
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_185651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185651.jpgsave_picture_185651.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ magnet:?xt=urn:btih:6A807B675F2A472C58934E4831CF36361F5E5B35
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185652.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185652.jpgsave_picture_185652.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ magnet:?xt=urn:btih:9E513C1D156A6B67BB1668AA3E015F4F1AFE8310
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_185653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185653.jpgsave_picture_185653.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ No Guns Life [TV-2] | Жизнь без оружия [TV-2] [2020, TV, 12 из 1
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_185654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185654.jpgsave_picture_185654.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ FlatOut (2004) [Ru/En] (1.1) Repack Necros
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185655.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185655.jpgsave_picture_185655.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Windows 10 Pro 2004 b19041.630 x64 ru by SanLex (edition 2020-11-24) [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_185656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185656.jpgsave_picture_185656.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ magnet:?xt=urn:btih:D2F2416AA172BDCA5C95D6831231DAF411FFBCD0
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185657.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185657.jpgsave_picture_185657.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ magnet:?xt=urn:btih:5A5592162916AF75E036262C10E96C31FCFCB4DB
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_185658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185658.jpgsave_picture_185658.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ magnet:?xt=urn:btih:818F9CD67AF087453FFA67C53A9F2E17DB8F3A37
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185660.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185660.jpgsave_picture_185660.jpg" />
 </div>
 
 

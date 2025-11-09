@@ -6,7 +6,7 @@
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10283.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10283.jpgsave_picture_10283.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ C.C. Catch - Classics (1989) 1st German Press [APE|Lossless|image + .cue] <EuroD
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10284.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10284.jpgsave_picture_10284.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:FD4F77E52713B6695D7EB6F1A02873F70BDF5F7B
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10285.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10285.jpgsave_picture_10285.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Tech Market Simulator (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10286.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10286.jpgsave_picture_10286.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Display Driver Uninstaller 18.1.2.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10287.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10287.jpgsave_picture_10287.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:7CE1A3C38902B50C1397939ACB7300405A8186AB
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10288.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10288.jpgsave_picture_10288.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:779EC61560B1471862D0D3122C38A012DC9E15E8
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10289.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10289.jpgsave_picture_10289.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Squirreled Away (2025) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10290.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10290.jpgsave_picture_10290.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Smalland: Survive the Wilds (2024) [Ru/Multi] (1.9.2) Repack Pioneer
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10291.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10291.jpgsave_picture_10291.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ TRAPPED (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10292.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10292.jpgsave_picture_10292.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Auslogics SSD Optimizer 2.0.1.2 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10293.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10293.jpgsave_picture_10293.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Vilde (2025) [Ru/Multi] (1.0.0.2) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10294.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10294.jpgsave_picture_10294.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:57CC8BBD0367018BC34CBFB0EFA22AA547687C31
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10295.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10295.jpgsave_picture_10295.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Clip Studio Paint EX 4.0.3 [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10296.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10296.jpgsave_picture_10296.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ magnet:?xt=urn:btih:097DD2D93B4C0358CEEA50394A304C7494123BF2
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10297.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10297.jpgsave_picture_10297.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ magnet:?xt=urn:btih:B4059FF6A8F8B6FE6E7123D3D1B3F8021DFAA598
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10298.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10298.jpgsave_picture_10298.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ Crime Simulator (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10299.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10299.jpgsave_picture_10299.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ magnet:?xt=urn:btih:162F7F45B12ABCFB42EE63BFC61B0479E2770F15
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10300.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10300.jpgsave_picture_10300.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ magnet:?xt=urn:btih:99C7E49BA3942218EB05B10BFDF25BAFF1A46E54
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10301.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10301.jpgsave_picture_10301.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ magnet:?xt=urn:btih:43DAD91D78BB4B48182C5905E990590A939C0826
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10302.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10302.jpgsave_picture_10302.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Moho Pro 14.0.20230910 Portable by Spirit Summer [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10303.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10303.jpgsave_picture_10303.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ magnet:?xt=urn:btih:FEB41D6257D481056EA49B5D61DF1355BFFAE07D
 >>Отечественные Мультфильмы 21-го века (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10304.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10304.jpgsave_picture_10304.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ magnet:?xt=urn:btih:893B5D3BC800511B8C0C4981DDB556F43B65C26B
 >>Элементы (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10305.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10305.jpgsave_picture_10305.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ SGS Spain at War (2025) [Ru/Multi] (25.06.11) Repack FitGirl
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10306.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10306.jpgsave_picture_10306.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ magnet:?xt=urn:btih:3298262E4066316DEA29C7CF83666444ED80979C
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10307.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10307.jpgsave_picture_10307.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ magnet:?xt=urn:btih:61E587BF4030F12F02C642F606E5ADEADC20609B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10308.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10308.jpgsave_picture_10308.jpg" />
 </div>
 
 

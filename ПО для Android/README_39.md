@@ -6,7 +6,7 @@
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103090.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103090.jpgsave_picture_103090.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ VivaVideo Video Editor v9.22.5 Mod by MustHave [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103117.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103117.jpgsave_picture_103117.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Sleep Monitor: Sleep Tracker v2.8.0 Premium Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103246.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103246.jpgsave_picture_103246.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ VivaVideo Video Editor v9.21.8 Mod by MustHave [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103264.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103264.jpgsave_picture_103264.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ PhotoRoom v5.5.6 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103273.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103273.jpgsave_picture_103273.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Photo Editor v11.0 Pro Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103284.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103284.jpgsave_picture_103284.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ WaveStudio (WaveEditor Record & Edit Audio) v1.112 Mod by Alex.Strannik [Ru/Mult
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103538.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103538.jpgsave_picture_103538.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ KineMaster - Video Editor & Maker v7.5.2.33832.GP Mod by Shadow_Patcher [Ru/Mult
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103542.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103542.jpgsave_picture_103542.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ PhotoRoom v5.4.9 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103543.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103543.jpgsave_picture_103543.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ VivaVideo Video Editor v9.21.5 Mod by maxi123444 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103548.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103548.jpgsave_picture_103548.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ SnapEdit - AI photo editor v7.1.3 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103570.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103570.jpgsave_picture_103570.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ PhotoDirector v19.7.1 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103666.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103666.jpgsave_picture_103666.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ PowerDirector – Video Editor v14.5.0 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103697.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103697.jpgsave_picture_103697.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ VivaVideo Video Editor v9.21.1 Mod by MustHave [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103700.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103700.jpgsave_picture_103700.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ PhotoRoom v5.3.6 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103984.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103984.jpgsave_picture_103984.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ Moon+ Reader Pro v9.6 (b906001) Mod by Lucky Las [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104014.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104014.jpgsave_picture_104014.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ SnapEdit - AI photo editor v6.9.0 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104020.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104020.jpgsave_picture_104020.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ SnapEdit - AI photo editor v6.9.0 Mod by Oflarm [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104032.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104032.jpgsave_picture_104032.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ SnapEdit - AI photo editor v6.8.0 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104982.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104982.jpgsave_picture_104982.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Picture Bird - Bird Identifier v2.9.27 Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104995.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104995.jpgsave_picture_104995.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ SnapEdit - AI photo editor v6.8.0 Mod by Oflarm [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105002.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105002.jpgsave_picture_105002.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ magnet:?xt=urn:btih:221483663C700CDE47AF7504DB61270F2428B221
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105128.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105128.jpgsave_picture_105128.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Ventusky: Прогноз погоды v36.2 Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105130.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105130.jpgsave_picture_105130.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ PhotoRoom v5.2.6 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105172.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105172.jpgsave_picture_105172.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ AirBrush: ИИ Фоторедактор v7.1.3 Mod by PieMods [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105190.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105190.jpgsave_picture_105190.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Plus Messenger (Telegram+) v11.0.0.0 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105245.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105245.jpgsave_picture_105245.jpg" />
 </div>
 
 

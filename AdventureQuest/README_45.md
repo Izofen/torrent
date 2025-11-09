@@ -6,7 +6,7 @@ A Plague Tale: Requiem (2022) [Ru/Multi] (1.6.0.0.20230706_1126/dlc) Repack Dece
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116156.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116156.jpgsave_picture_116156.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Don't Starve (2013) [Ru/Multi] (12527201/dlc) Repack Decepticon
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116267.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116267.jpgsave_picture_116267.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ PARANOID (2023) [Ru/Multi] (1.1) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116450.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116450.jpgsave_picture_116450.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ CLeM (2024) [Ru/Multi] (1.0.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116776.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116776.jpgsave_picture_116776.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Spirit Hunter: Death Mark II (2024) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116779.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116779.jpgsave_picture_116779.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:33D42F886C1BA97C43F815E985D0AF0055530877
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117763.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117763.jpgsave_picture_117763.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Terror Mansion (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117882.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117882.jpgsave_picture_117882.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ The Backrooms Deluxe (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117886.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117886.jpgsave_picture_117886.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Doors: Paradox (2022) [Ru/Multi] (1.01) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117889.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117889.jpgsave_picture_117889.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ The Messenger / Louvre: The Final Curse / Лувр: Последнее прок�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117898.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117898.jpgsave_picture_117898.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Chronique des Silencieux (2024) [Multi] (3.7.7f) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118314.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118314.jpgsave_picture_118314.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Axiom of Maria (2024) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118501.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118501.jpgsave_picture_118501.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ CLeM (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118506.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118506.jpgsave_picture_118506.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Nexus PI (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118514.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118514.jpgsave_picture_118514.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Boxes: Lost Fragments (2024) [Ru/Multi] (13337283) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118528.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118528.jpgsave_picture_118528.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Murder Is Game Over: Deal Killer (2024) [En] (2.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118645.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118645.jpgsave_picture_118645.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Splice (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118681.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118681.jpgsave_picture_118681.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Chorus (2021) [Ru/Multi] (1.0.9.216752/dlc) Repack Decepticon
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118706.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118706.jpgsave_picture_118706.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Steel Echoes (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118817.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118817.jpgsave_picture_118817.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Anomaly Agent (2024) [Ru/Multi] (1.0.0.30) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118863.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118863.jpgsave_picture_118863.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Y. Village - The Visitors (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118866.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118866.jpgsave_picture_118866.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Not Another Weekend (2021) [Multi] (1.10) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118971.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118971.jpgsave_picture_118971.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Magical Girl Celesphonia (2022) [Multi] (5/dlc) License GOG [18+]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119054.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119054.jpgsave_picture_119054.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ The Last Worker (2023) [Ru/Multi] (1.0.11) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119249.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119249.jpgsave_picture_119249.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Boxes: Lost Fragments (2024) [Ru/Multi] (13337283) Scene Skidrow
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119390.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119390.jpgsave_picture_119390.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Shards of Chaos (2024) [Ru/En] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119394.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119394.jpgsave_picture_119394.jpg" />
 </div>
 
 

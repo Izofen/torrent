@@ -6,7 +6,7 @@ VA - Markus Schulz & Dan Thompson - Global DJ Broadcast (2021) [MP3|320 Kbps] <T
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238213.jpgsave_picture_238213.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:759D698D61C24166552F5FDE024D12CEA349C643
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238214.jpgsave_picture_238214.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ magnet:?xt=urn:btih:58F79EE5A2C3FD000F869A7581472D03E4F71F18
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238215.jpgsave_picture_238215.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ Celeste - Assassine(s) (2022) [FLAC|Lossless|WEB-DL|tracks] <Black, Sludge Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238216.jpgsave_picture_238216.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ magnet:?xt=urn:btih:BEA3E04A51AE3E19B5BD8B2F845AF4A0FA5EF287
 >>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238217.jpgsave_picture_238217.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Snowblind - Breaking Out (2021) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238218.jpgsave_picture_238218.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Doc Dynamite - Modern Day Bluesman (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238219.jpgsave_picture_238219.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ magnet:?xt=urn:btih:B832F54E847984D11725202E96B38F9F769F606A
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238220.jpgsave_picture_238220.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ magnet:?xt=urn:btih:C83514352187A1726856D477220AFFD756C80827
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238221.jpgsave_picture_238221.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ magnet:?xt=urn:btih:191663DD7B4C0C9450E7A204A6851B575F52ECBF
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238222.jpgsave_picture_238222.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ magnet:?xt=urn:btih:79FD2933250863130C4CF027BF6C2A5529704836
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238223.jpgsave_picture_238223.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ FontViewOK 8.21 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238224.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238224.jpgsave_picture_238224.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ Fortress of Empyrean - Synchronized Demise (2023) [MP3|320 Kbps] <Progressive Me
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238225.jpgsave_picture_238225.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ Quelle Chris & Chris Keys - Innocent Country 2 (2020) [FLAC|Lossless|tracks + .c
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238226.jpgsave_picture_238226.jpg" />
 </div>
 
 
@@ -365,7 +365,7 @@ magnet:?xt=urn:btih:5C29661090E299154B594AF04DDC14EEC5D528DD
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238227.jpgsave_picture_238227.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ VA - В Помощь Любителям Грамзаписи. Для Прове�
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238228.jpgsave_picture_238228.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ Bestial Sight - 3 Albums (2017-2022) [MP3|320 Kbps] <RMW Black, Death Metal>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238229.jpgsave_picture_238229.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ magnet:?xt=urn:btih:8E224606DC3DE937AAF718ADC3D13BAE6D242BBA
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238230.jpgsave_picture_238230.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ magnet:?xt=urn:btih:056E99A7CE0B16537AD59496BD8EC022C9951673
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238231.jpgsave_picture_238231.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Feed the Wolves - Age of Fire (2023) [MP3|320 Kbps] <Power, Groove Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238232.jpgsave_picture_238232.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ magnet:?xt=urn:btih:879F5CAB7CA0ABA3F75EA7C89830260761BCA7D7
 >>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238233.jpgsave_picture_238233.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Ashampoo Photo Optimizer 9.3.6.33 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238234.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238234.jpgsave_picture_238234.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ SupRemo 4.8.1.3452 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238235.jpgsave_picture_238235.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ Aiseesoft Video Converter Ultimate 10.7.6 RePack (& Portable) by TryRooM [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238236.jpgsave_picture_238236.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ Spandau Ballet - Parade - (1984)  [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Elect
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238237.jpgsave_picture_238237.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Tons - 3 Albums (2012-2022) [MP3|320 Kbps] <Sludge Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238238.jpgsave_picture_238238.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63184.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63184.jpgsave_picture_63184.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Toto Cutugno - Тото Кутуньо (1985) [FLAC 24/96|Lossless|tracks] <Pop>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63201.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63201.jpgsave_picture_63201.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Amaranthe - Studio Albums (7 releases) (2011-2024) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63237.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63237.jpgsave_picture_63237.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:C187AFE3A42EE0DF0642798F4B67B4D45187BF44
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63388.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63388.jpgsave_picture_63388.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Slade - Slayed? (Слейд. Убитый?) (1972) 1993 [FLAC 24/192|Lossless|tr
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63391.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63391.jpgsave_picture_63391.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ magnet:?xt=urn:btih:74673024E815EDA53779C925FA16DB1C7A8723D4
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63484.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63484.jpgsave_picture_63484.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Supertramp - The Very Best Of Supertramp (1990) 1992 [FLAC 24/192|Lossless|track
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63496.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63496.jpgsave_picture_63496.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ AC/DC - Rock or Bust (2014) [FLAC|24/192|image + .cue|Vinyl-Rip] <Hard Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63528.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63528.jpgsave_picture_63528.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ AC/DC - Blow Up Your Video (1988) [FLAC|24/192|image + .cue|Vinyl-Rip] <Hard Roc
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63579.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63579.jpgsave_picture_63579.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ AC/DC - Who Made Who (1986) [FLAC|24/192|image + .cue|Vinyl-Rip] <Hard Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63580.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63580.jpgsave_picture_63580.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Joe Dassin - Поет Джо Дассен (1979) [FLAC 24/192|Lossless|tracks] <
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63701.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63701.jpgsave_picture_63701.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:A7BBFEC264B1B1115A0EFE1B689924D0D57B2F73
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63706.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63706.jpgsave_picture_63706.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Bloodred Hourglass (BRHG) - Studio Albums (7 releases) (2012-2025) hand made [re
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63850.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63850.jpgsave_picture_63850.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ VA - XVI. Album Supraphonu (1977) Compilation, Partially Mixed, Sampler [FLAC 2.
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63877.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63877.jpgsave_picture_63877.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ The Alan Parsons Project - Collection (1976-1987) [DSD 128|tracks|Vinyl-Rip] <Ro
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64614.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64614.jpgsave_picture_64614.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Tomoko Aran – Fuyu-Kukan = Floating Space = 浮遊空間 (1983) [FLAC 2.0|48/2
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64655.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64655.jpgsave_picture_64655.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Night Tempo - Night Tempo Presents The Showa Idol Groove (Rare Groove From 80s) 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64770.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64770.jpgsave_picture_64770.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Dio - Lock Up The Wolves (1990) Reissue, 2021, Vertigo [FLAC|24/96|tracks|Vinyl-
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65031.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65031.jpgsave_picture_65031.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ VA - 4-й Альбом Супрафона 2 (1966) Partially Mixed, Sampler [FLA
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65035.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65035.jpgsave_picture_65035.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:D6867976673CE29AEC16CC887766E8F41E3CBD73
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65088.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65088.jpgsave_picture_65088.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Magneton - Jo Fiu Leszek [Magneton 2] (1986) [FLAC 2.0|192/24|image +.cue|Vinyl-
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65089.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65089.jpgsave_picture_65089.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Grand Alchemist - Studio Albums (2 releases) (2003; 2012) hand made [restored, d
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65091.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65091.jpgsave_picture_65091.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Annisokay - Studio Albums (9 releases) (2010-2025) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65272.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65272.jpgsave_picture_65272.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ Super Grup Electrecord - Slagare, Slagare, Slagare (1977) [FLAC 2.0|192/24|image
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65302.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65302.jpgsave_picture_65302.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ Steel Rhino - Studio Albums (2 releases) (2021-2023) hand made [restored, declip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65320.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65320.jpgsave_picture_65320.jpg" />
 </div>
 
 
@@ -677,7 +677,7 @@ DGM - Life (2023) [DSD128|Lossless|tracks|Vinyl-Rip] <Progressive Metal>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65426.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65426.jpgsave_picture_65426.jpg" />
 </div>
 
 

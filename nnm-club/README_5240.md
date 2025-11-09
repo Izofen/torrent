@@ -6,7 +6,7 @@ Adobe Premiere Rush v1.5.40 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163014.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163014.jpgsave_picture_163014.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Olatunde Adedeji | Full-Stack Flask and React (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163015.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163015.jpgsave_picture_163015.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Sketch 81 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163016.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163016.jpgsave_picture_163016.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Audirvana 3.5.43 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163017.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163017.jpgsave_picture_163017.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:A7C563DC9675EA2374DC1007A7BD1784D26C57F1
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163018.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163018.jpgsave_picture_163018.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Jean Michel Jarre - Oxymoreworks (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Ele
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163019.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163019.jpgsave_picture_163019.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Topaz Photo AI 2.1.0 (x64) RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163020.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163020.jpgsave_picture_163020.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Simon Franglen - Аватар: Путь воды / Avatar: The Way of Water (202
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163021.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163021.jpgsave_picture_163021.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:104BFB51007CA1B9946ED1846256EBA1950DC93C
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163022.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163022.jpgsave_picture_163022.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ Aiseesoft FoneLab for Android 5.0.28 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163023.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163023.jpgsave_picture_163023.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:F5AA810AA13CB209E5EC4B8AD13DC993F406A42B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163024.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163024.jpgsave_picture_163024.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Dire Straits - Live 1978 - 1992 (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163025.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163025.jpgsave_picture_163025.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Opera 73.0.3856.284 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163026.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163026.jpgsave_picture_163026.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Pixelmator Pro 2.3.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163027.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163027.jpgsave_picture_163027.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ magnet:?xt=urn:btih:39A3FA03310053DCE7ABBF7E8884D5A4D5D49B05
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163028.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163028.jpgsave_picture_163028.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ VA - Golden Lounge (2021) [AAC|~293 Kbps] <Lounge, Chill Out>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163029.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163029.jpgsave_picture_163029.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ magnet:?xt=urn:btih:5680C3A0FC73FF3122B684A1A979F3367012485F
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163030.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163030.jpgsave_picture_163030.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ magnet:?xt=urn:btih:E347A303DD0A30F63FFDF43797B5846D49F433EA
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163031.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163031.jpgsave_picture_163031.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ magnet:?xt=urn:btih:9569CF3F137A12A370134E51B07C407FDE69667D
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163032.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163032.jpgsave_picture_163032.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ AMD Radeon Software Adrenalin Edition 23.11.1 WHQL [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163033.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163033.jpgsave_picture_163033.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ magnet:?xt=urn:btih:F163957D47B4EB2C253A02C60552C6A3B29DB7C2
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163034.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163034.jpgsave_picture_163034.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ SyncBird Pro 3.5.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163035.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163035.jpgsave_picture_163035.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ magnet:?xt=urn:btih:14D436444F227B96933E9EE1CF594A9F3B232D4C
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163036.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163036.jpgsave_picture_163036.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:C374FAA4C395BB21ECD2F1812FBF36CBF237FBB1
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163037.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163037.jpgsave_picture_163037.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ magnet:?xt=urn:btih:7457D4275B28C95B1F9891B75B4AEE64A3315E22
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163038.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163038.jpgsave_picture_163038.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ magnet:?xt=urn:btih:2A5B038D0966BB013EDFFB0ED8756FE4DD2E2643
 >>История
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163039.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163039.jpgsave_picture_163039.jpg" />
 </div>
 
 

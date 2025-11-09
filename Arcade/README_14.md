@@ -6,7 +6,7 @@ Ladder it Up! (2024) [En] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49650.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49650.jpgsave_picture_49650.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Astro Looter: Survivor (2024) [Ru/Multi] (16072024) Scene SKIDROW
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49794.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49794.jpgsave_picture_49794.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Anger Foot (2024) [Ru/Multi] (1.3) Scene SKIDROW
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49853.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49853.jpgsave_picture_49853.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Project Zero 2: Apocalypse Party / Вечеринка Апокалипсиса (
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50077.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50077.jpgsave_picture_50077.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ SunnySide (2024) [Multi] (1.15.11) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50246.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50246.jpgsave_picture_50246.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ The Riftbreaker (2021) [Ru/Multi] (11738015/dlc) Scene Rune
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50271.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50271.jpgsave_picture_50271.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ DRAGON QUEST BUILDERS (2024) [Multi] (1.0.1/dlc) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50277.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50277.jpgsave_picture_50277.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ SAMURAI WARRIORS 4 DX (2024) [Multi] (1.0.1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50390.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50390.jpgsave_picture_50390.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ FlashBack 2 (2023) [Multi] (1.00) Repack dixen18
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50414.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50414.jpgsave_picture_50414.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Splatter - Zombiecalypse Now (2024) [Ru/Multi] (1.2_gog) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50635.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50635.jpgsave_picture_50635.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Godrop (2024) [Ru/Multi] (1.34/dlc) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50682.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50682.jpgsave_picture_50682.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Valfaris (2019) [Ru/Multi] (1.1) License GOG [Digital Deluxe Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50726.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50726.jpgsave_picture_50726.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ FlashBack 2 (2023) [Ru/Multi] (20240627) Scene Skidrow
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50875.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50875.jpgsave_picture_50875.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Flame Keeper (2023) [Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51003.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51003.jpgsave_picture_51003.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ FlashBack 2 (2023) [Multi] (20240521) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51146.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51146.jpgsave_picture_51146.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ KUNAI (2020) [Ru/Multi] (1.0.4) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51151.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51151.jpgsave_picture_51151.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Messy Up (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51483.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51483.jpgsave_picture_51483.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Hunt the Night (2023) [Ru/Multi] (1.2) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51543.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51543.jpgsave_picture_51543.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ CRYMACHINA (2023) [Multi] (1.2.0/dlc) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51579.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51579.jpgsave_picture_51579.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ Patti Hattu! - Cosmic Revolt (2024) [Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52386.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52386.jpgsave_picture_52386.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ Champion Shift (2024) [Ru/Multi] (1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52430.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52430.jpgsave_picture_52430.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ JoJo's Bizarre Adventure: All-Star Battle R (2022) [Multi] (2.3.3/dlc) Scene Ten
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52456.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52456.jpgsave_picture_52456.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ UnEpic (2011) [Ru/Multi] (1.51.1) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52648.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52648.jpgsave_picture_52648.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ DNF Duel (2022) [Multi] (1.81/dlc) Scene Rune
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52822.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52822.jpgsave_picture_52822.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Redout II (2) (2022) [Ru/Multi] (1.3.1/dlc) Scene Skidrow
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52956.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52956.jpgsave_picture_52956.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ The Smurfs - Village Party (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53025.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53025.jpgsave_picture_53025.jpg" />
 </div>
 
 

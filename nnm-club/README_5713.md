@@ -6,7 +6,7 @@ Belfarpost | Настольная экономическая игра. Милл�
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_176115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176115.jpgsave_picture_176115.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Grymheart - Hellish Hunt (2023) [FLAC|Lossless|image + .cue] <Melodic Death Powe
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176116.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176116.jpgsave_picture_176116.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Random Deathmatch - Reach Out (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176118.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176118.jpgsave_picture_176118.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:5469CDA0580B1AD0C8A44FE8A0E36FD1705EA371
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_176119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176119.jpgsave_picture_176119.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ magnet:?xt=urn:btih:47CD97A1581A0E7F4951E6243C44035754B6AAD9
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176120.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176120.jpgsave_picture_176120.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ magnet:?xt=urn:btih:F3DA44019B5B1F23C15EA95B2620F51056F3D442
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176122.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176122.jpgsave_picture_176122.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ VA - Ultimate Party Classics Pop (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176123.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176123.jpgsave_picture_176123.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ Nuclear Assault - Studio Albums (6 releases) (1986 - 2005) hand made [restored, 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176126.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176126.jpgsave_picture_176126.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ magnet:?xt=urn:btih:619312F4DD4A8BFE0F4CFA248B4EDE18D121009F
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_176127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176127.jpgsave_picture_176127.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ Luca Turilli - Prophet Of The Last Eclipse / Demonheart (2002) [FLAC|Lossless|im
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176128.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176128.jpgsave_picture_176128.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ magnet:?xt=urn:btih:AB14CAEA4DAB1007A3F3BF7132B8FCD55B44FBB0
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_176130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176130.jpgsave_picture_176130.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ magnet:?xt=urn:btih:8D9F99C245410957A7E56E19F150CA9EC1E1DCE4
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176131.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176131.jpgsave_picture_176131.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ Interment - Life Here After (2016) Compilation [FLAC|Lossless|image + .cue] <Dea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176132.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176132.jpgsave_picture_176132.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ magnet:?xt=urn:btih:37FD5DD7C9149CF8B101D70D67C50C9336208329
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176134.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176134.jpgsave_picture_176134.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ The Beach Boys - Sail On Sailor (1972) 6CD, Super Deluxe, Remaster, 2022, Capito
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176135.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176135.jpgsave_picture_176135.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ magnet:?xt=urn:btih:31AB1BAF1738B3797F3D367034DD274344A47845
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_176136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176136.jpgsave_picture_176136.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ magnet:?xt=urn:btih:1DCBBF86A92D67097F9E4BAC7706EF93924FC911
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_176138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176138.jpgsave_picture_176138.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ Psygnosis - AAliens (2015) EP [FLAC|24/192|image + .cue|Vinyl-Rip] <Industrial, 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176139.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176139.jpgsave_picture_176139.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Kingston Wall - II (1993) Mix, 2023, WM Finland [FLAC 24/96|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176141.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176141.jpgsave_picture_176141.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ BBC: Чудеса Солнечной Системы / Wonders of the Solar Syste
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_176142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176142.jpgsave_picture_176142.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ magnet:?xt=urn:btih:42C2238C2EC488B9E0B4BA03C16516C008F0C44E
 >>Футажи
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_176143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176143.jpgsave_picture_176143.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Eradikated - Descendants (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Thrash Meta
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176145.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176145.jpgsave_picture_176145.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ magnet:?xt=urn:btih:7079EEE9BF6A350E91E924604FBEC4F3A49841E7
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_176146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176146.jpgsave_picture_176146.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Graveyard of Souls - Mental Landscapes (2017) [FLAC|Lossless|image + .cue] <Doom
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176148.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176148.jpgsave_picture_176148.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ magnet:?xt=urn:btih:E6D1385660592BE16A4730E87AC0B8720E15E2D1
 >>2D графика
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_176151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176151.jpgsave_picture_176151.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ magnet:?xt=urn:btih:4703512D051F2B640F81DF33FB154ADC8EDF7275
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176153.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176153.jpgsave_picture_176153.jpg" />
 </div>
 
 

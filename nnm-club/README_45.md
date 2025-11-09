@@ -6,7 +6,7 @@ igoroutine.courses, Игорь Панасюк | The Nature of Concurrency - ку
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1207.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1207.jpgsave_picture_1207.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:FD4F7B268D1B08A03AD20B1B644262FF5B87CB33
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1208.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1208.jpgsave_picture_1208.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:9BE19C247D30B8DE95DCDF39A67F84BFE253A10D
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1209.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1209.jpgsave_picture_1209.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ PDF-XChange Editor Plus 10.7.3.401 Portable + RePack by KpoJIuK [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1210.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1210.jpgsave_picture_1210.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:012FE62417FBE7F9512ECDE9DF5AED60B079B58E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1211.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1211.jpgsave_picture_1211.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:A6A60203A8FFC1018D6B21CD8808482DB294D8E1
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1212.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1212.jpgsave_picture_1212.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:B7202F8833440FC43D4DC2B43DDB3333717B4F68
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1213.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1213.jpgsave_picture_1213.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:B86F752A2027649E7A80EB1BB7FAFF9663B8DA22
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1214.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1214.jpgsave_picture_1214.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:9FDA13ED3C331ED05F2C8AA2E212A99C878F4140
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1215.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1215.jpgsave_picture_1215.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Warhammer 40,000: Space Marine (2025) [Ru/Multi] (1.0.1041.4326/dlc) Repack Want
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1216.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1216.jpgsave_picture_1216.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Opera One 122.0.5643.71 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1217.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1217.jpgsave_picture_1217.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Osomatsu-san (2025) | Осомацу-сан [ТВ-4] [2025, TV, 12 из 13 эп.
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1218.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1218.jpgsave_picture_1218.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ PDF-XChange PRO 10.7.3.401 RePack by KpoJIuK [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1219.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1219.jpgsave_picture_1219.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ magnet:?xt=urn:btih:D843CDBB6E1828A8236404E76737B04181CDC53B
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1220.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1220.jpgsave_picture_1220.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ magnet:?xt=urn:btih:75D6813E87BFF5097BD7D2C00FE5A6B8619F051B
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1221.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1221.jpgsave_picture_1221.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ PIDKey Lite 1.64.4 b49 Portable by Ratiborus [Ru/En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1222.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1222.jpgsave_picture_1222.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ magnet:?xt=urn:btih:FA2675ACB9C8FE74E4D1BAAA0E107F5B3CA034DC
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1223.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1223.jpgsave_picture_1223.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ magnet:?xt=urn:btih:CC9FB01523B6F3E61E7732A8666C30219B88CD27
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1224.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1224.jpgsave_picture_1224.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Hell is Us (2025) [Ru/Multi] (1.4.22.43941) Repack Wanterlude
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1225.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1225.jpgsave_picture_1225.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ magnet:?xt=urn:btih:D1E101CA0FC54609DEB3547AF41B2EDC5D000B9B
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1226.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1226.jpgsave_picture_1226.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ magnet:?xt=urn:btih:3B43CDA84B603E5C18D92F4D0125ABD539717CC6
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1227.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1227.jpgsave_picture_1227.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ magnet:?xt=urn:btih:67D8BD4C564ACF93BED46DA97C69344D3F011542
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1228.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1228.jpgsave_picture_1228.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ magnet:?xt=urn:btih:FCFCADFE3BC1137A1B161400D1D7E80F3A6605EA
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1229.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1229.jpgsave_picture_1229.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Tate no Yuusha no Nariagari Season 4 | The Rising of the Shield Hero Season 4 | 
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1230.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1230.jpgsave_picture_1230.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ OpenVPN 2.6.15 Final [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1231.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1231.jpgsave_picture_1231.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ magnet:?xt=urn:btih:37BD627B22F1846A3B6C288A40F00C45647B3388
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1232.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1232.jpgsave_picture_1232.jpg" />
 </div>
 
 

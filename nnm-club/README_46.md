@@ -6,7 +6,7 @@
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1233.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1233.jpgsave_picture_1233.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Adobe Photoshop 2025 26.11.0 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1234.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1234.jpgsave_picture_1234.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Tourist Bus Simulator (2018) [Ru/Multi] (1.10.81093/dlc) Repack seleZen
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1235.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1235.jpgsave_picture_1235.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ ENDLESS Legend 2 (2025) [Ru/Multi] (0.0.71.157967) Repack Wanterlude [Early Acce
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1236.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1236.jpgsave_picture_1236.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:FC3D23A8679C57AD2E65B6B7CA77EB478EA61CC2
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1237.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1237.jpgsave_picture_1237.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ v2rayN 7.14.12 portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1238.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1238.jpgsave_picture_1238.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ The Lightkeeper (2025) [Ru/En] (Build 20068430) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1239.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1239.jpgsave_picture_1239.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Turkey! / Turkey! Time to Strike / Tёpки! [2025, TV, 12] WEBRip 720p raw
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1240.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1240.jpgsave_picture_1240.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:307945DBA6A8BCCB63449ABDE50640A4FA277A99
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1241.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1241.jpgsave_picture_1241.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:073656441E5D0501861A49509A2D267656313C4A
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1242.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1242.jpgsave_picture_1242.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ magnet:?xt=urn:btih:C136A93984C47264A85955781BF1029E1A6E9FE2
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1243.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1243.jpgsave_picture_1243.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ magnet:?xt=urn:btih:A0D4AF61ABEF34194F27EF2A095E9D3FB7BBD66D
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1244.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1244.jpgsave_picture_1244.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ magnet:?xt=urn:btih:05F9B9EE71C92804152443465839865E0216BA5F
 >>11
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1245.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1245.jpgsave_picture_1245.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Kingdom Come: Deliverance II (2) (2025) [Ru/Multi] (1.4.1/dlc) Repack SE7EN [Gol
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1246.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1246.jpgsave_picture_1246.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ magnet:?xt=urn:btih:CBB08FBF03CE948F1DCB6CF5EBD28C05DDAE396F
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1247.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1247.jpgsave_picture_1247.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ Commandos: Origins (2025) [Ru/Multi] (1.4.1.85803/dlc) Repack Let'sРlay [Deluxe
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1248.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1248.jpgsave_picture_1248.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ magnet:?xt=urn:btih:BCB3514F10AD878CCF1E6647A7FA3CBCDFE1D7A4
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1249.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1249.jpgsave_picture_1249.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ WUCHANG: Fallen Feathers (2025) [Ru/Multi] (179243/dlc) Repack Let'sРlay [Delux
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1250.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1250.jpgsave_picture_1250.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ magnet:?xt=urn:btih:A9FED3A167E7192243CFDD1BB913CA2B2577A9C0
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1251.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1251.jpgsave_picture_1251.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Gears of War Reloaded (2025) [Ru/Multi] (1.0.1.3816947) Repack Let'sРlay
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1252.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1252.jpgsave_picture_1252.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ magnet:?xt=urn:btih:B352C35FE1C2EFE167DD33A1BEC65BCFBD5B6001
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1253.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1253.jpgsave_picture_1253.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ magnet:?xt=urn:btih:2567C94F868EC4AD163DF09D084BF224747845AC
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1254.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1254.jpgsave_picture_1254.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ magnet:?xt=urn:btih:592098CA5D4CD845796B09579C17B890740FA0A0
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1255.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1255.jpgsave_picture_1255.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ magnet:?xt=urn:btih:457408FB24A7A4FA8BDA36FC8C79DAFEC2424AA2
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1256.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1256.jpgsave_picture_1256.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ magnet:?xt=urn:btih:457408FB24A7A4FA8BDA36FC8C79DAFEC2424AA2
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1257.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1257.jpgsave_picture_1257.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ The Legend of Heroes: Trails through Daybreak II (2025) [Multi] (1.2.15/dlc) Lic
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1258.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1258.jpgsave_picture_1258.jpg" />
 </div>
 
 

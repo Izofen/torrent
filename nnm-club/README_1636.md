@@ -6,7 +6,7 @@ The Gunk (2021) [Ru/Multi] (1014.1.6.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42893.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42893.jpgsave_picture_42893.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Scourge Of War - Remastered (2024) [Multi] (1.0) Scene Tenoke
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42894.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42894.jpgsave_picture_42894.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Microsoft Office LTSC 2024 Professional Plus / Standard + Visio + Project 16.0.1
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42895.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42895.jpgsave_picture_42895.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ WinPE 11-10-8 Sergei Strelec (x86/x64/Native x86) 2024.09.20 [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42896.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42896.jpgsave_picture_42896.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:9FAC88C389B134F4B9E423C43F1ED0F23880374D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42897.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42897.jpgsave_picture_42897.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Star Wars Jedi: Survivor (2023) [Multi] (Patch 9/dlc) Scene Rune [Deluxe Edition
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42898.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42898.jpgsave_picture_42898.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:0A9A992A768564E7A0534A2F572C61DA3BDE9ACA
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42899.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42899.jpgsave_picture_42899.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Frostpunk 2 (2024) [Ru/Multi] (5.2.1-391109/dlc) Repack Other s
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42900.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42900.jpgsave_picture_42900.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:5DD0BB4C8534FAB8E30C02E1977E421C6897971B
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42901.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42901.jpgsave_picture_42901.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:8AB7E5F19B5CFEBF931694765F0648DDAED40D6C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42902.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42902.jpgsave_picture_42902.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ iZotope - RX 11 Audio Editor Advanced 11.2.0 STANDALONE, VST 3, AAX (x64) RePack
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42903.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42903.jpgsave_picture_42903.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ magnet:?xt=urn:btih:1AC9F4B71E07BA29DF4568C09E69DAAA31540D54
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42904.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42904.jpgsave_picture_42904.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ StarCraft II: Legacy of the Void (2015) [Ru/En] (3.1.4.41219/dlc) Repack dixen18
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42905.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42905.jpgsave_picture_42905.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ magnet:?xt=urn:btih:A9A70439700E420ECB46B49939306DD2FEFF0817
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42906.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42906.jpgsave_picture_42906.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ magnet:?xt=urn:btih:9DB3F7786BE141912EF29E5380B142C90503C5B5
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42907.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42907.jpgsave_picture_42907.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ Nightwish - Studio Albums (11 releases) (1997-2024) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42908.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42908.jpgsave_picture_42908.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ magnet:?xt=urn:btih:E2B454931F661457F8BBD54FDDD5D26682C69FCA
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42909.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42909.jpgsave_picture_42909.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ magnet:?xt=urn:btih:D119E04716059E4CEE47AFBD5BA1173957C7E692
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42910.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42910.jpgsave_picture_42910.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ magnet:?xt=urn:btih:BDFA8A2DB2060DCB26BF5688C11A5F668D7C2241
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42911.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42911.jpgsave_picture_42911.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ magnet:?xt=urn:btih:C928E5861466A38A2BF02DFF2EA708AF9C273EDC
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42912.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42912.jpgsave_picture_42912.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ magnet:?xt=urn:btih:54C4A6FFA6A64200E5BA4EFC8A0E9BACE7EB4DB1
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42913.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42913.jpgsave_picture_42913.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ magnet:?xt=urn:btih:54C4A6FFA6A64200E5BA4EFC8A0E9BACE7EB4DB1
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42914.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42914.jpgsave_picture_42914.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Synchro Arts - VocAlign Pro 6.1.18 VST 3, AAX (x64) RePack by R2R [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42915.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42915.jpgsave_picture_42915.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ VA - Compilation part 123 Electronic (2024) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42916.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42916.jpgsave_picture_42916.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ magnet:?xt=urn:btih:8F6EF068D72C3D0FC8E5E818E3D7A663E0CDDC41
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42917.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42917.jpgsave_picture_42917.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ magnet:?xt=urn:btih:EC4D61DEAB82BA9B3615BB0D401C7F4865CD3D4B
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42918.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42918.jpgsave_picture_42918.jpg" />
 </div>
 
 

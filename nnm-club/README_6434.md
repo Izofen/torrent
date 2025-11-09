@@ -6,7 +6,7 @@
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203972.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203972.jpgsave_picture_203972.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:686073F8DF5398EEC5E825452A7295B78FC38CD7
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203973.jpgsave_picture_203973.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:43FAAD97A3C02D672CB8F8C211B029A0B5FEC6DA
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203974.jpgsave_picture_203974.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:97BE7E44741BA68647DBA273714AD408D6D912A6
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203975.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203975.jpgsave_picture_203975.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:52EFDF17C560EBB3DBA1E152DA2CE2E533DBC657
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203976.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203976.jpgsave_picture_203976.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:204C17507B2C0C69BB022C26AD1FD76EA257F828
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203977.jpgsave_picture_203977.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Topaz Video Enhance AI for Mac 3.0.12 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203978.jpgsave_picture_203978.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ FurMark 1.36.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203979.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203979.jpgsave_picture_203979.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:0AB6C90A51C69D421E03C66164BF122CCAFE3125
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203980.jpgsave_picture_203980.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ SanDisk (Western Digital) SSD Dashboard 4.0.2.20 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203981.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203981.jpgsave_picture_203981.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Display Driver Uninstaller 18.0.6.7 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203982.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203982.jpgsave_picture_203982.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ magnet:?xt=urn:btih:B100E749CE78BF4A456F92B36167799233200138
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203984.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203984.jpgsave_picture_203984.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ magnet:?xt=urn:btih:8AFFEB0EFE9B215ED532114139F6E43B56DD90BA
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203985.jpgsave_picture_203985.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ magnet:?xt=urn:btih:722BBA4FFB5BD5BB2BB82D986F59380439E3759C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203986.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203986.jpgsave_picture_203986.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ magnet:?xt=urn:btih:CD4DB107ACF1D24DC6D712A0D801CBA3C746F762
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203987.jpgsave_picture_203987.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ magnet:?xt=urn:btih:5353E46A848CEF0A958EBBFF26111A5697C462D7
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203988.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203988.jpgsave_picture_203988.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ There Is No Light (2022) [Ru/Multi] (1.1.7.1 ) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203989.jpgsave_picture_203989.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ magnet:?xt=urn:btih:4FD1F3ADE834159EEA7010333A8010D53073FADC
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203990.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203990.jpgsave_picture_203990.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ magnet:?xt=urn:btih:74D00F0CB8A7D8AC54C839515393149EBCEEA10D
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203991.jpgsave_picture_203991.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ magnet:?xt=urn:btih:2E8E9171E7118399CB5D40E073F5CD3E2CA0EE43
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203992.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203992.jpgsave_picture_203992.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ magnet:?xt=urn:btih:B31EF1455B0B8FEA4C6DD636017D9BFFBDEB4C6F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203993.jpgsave_picture_203993.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ magnet:?xt=urn:btih:CF9B43BC92B016CF4EF385F6AC0B7BD942FBBD0D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203994.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203994.jpgsave_picture_203994.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ magnet:?xt=urn:btih:F7A0E8F12DE7D4AA81FF2795E40A4534DA63F35D
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203995.jpgsave_picture_203995.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ magnet:?xt=urn:btih:80F4F1E86A004ED4767CD40EA8CBDEBB06F91267
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203996.jpgsave_picture_203996.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ magnet:?xt=urn:btih:5FB0A2CE6B804E2A30BC14FB44414FE7EDD37BC2
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203997.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203997.jpgsave_picture_203997.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ magnet:?xt=urn:btih:9366A23A6CF2678D7D15C1F8FE59EF3BEE213E2E
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203998.jpgsave_picture_203998.jpg" />
 </div>
 
 

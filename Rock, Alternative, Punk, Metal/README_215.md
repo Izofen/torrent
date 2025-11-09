@@ -6,7 +6,7 @@
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135328.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135328.jpgsave_picture_135328.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Memorial Day - Embark Hades (1995) [MP3|320 Kbps] <Gothic, Doom, Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135331.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135331.jpgsave_picture_135331.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Just Before Dawn - On the History of Destruction (2017) Compilation [FLAC|Lossle
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135335.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135335.jpgsave_picture_135335.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Planethard - Equilibrium (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Glam Rock, P
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135341.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135341.jpgsave_picture_135341.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Jetboy - Crate Diggin' (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135342.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135342.jpgsave_picture_135342.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Don't Drop the Sword - Age of Heroes (2023) [FLAC|Lossless|WEB-DL|tracks] <Power
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135345.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135345.jpgsave_picture_135345.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Wet Cactus - Magma Tres (2023) [FLAC|Lossless|WEB-DL|tracks] <Desert Rock, Heavy
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135351.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135351.jpgsave_picture_135351.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Silent Angel - Unyielding, Unrelenting (2023) [FLAC|Lossless|WEB-DL|tracks] <Pow
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135353.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135353.jpgsave_picture_135353.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Roadkill - Insanity Inside (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash, Heavy M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135361.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135361.jpgsave_picture_135361.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Just Before Dawn - Tides of Blood (2018) [FLAC|Lossless|image + .cue] <Death Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135363.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135363.jpgsave_picture_135363.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Memorial Day - Embark Hades (1995) [FLAC|Lossless|tracks] <Gothic, Doom, Death M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135375.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135375.jpgsave_picture_135375.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:009ED584D7CB230E755BF3EED1DB0B392B97A27A
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135384.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135384.jpgsave_picture_135384.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Planet X - Quantum (2007) [MP3|320 кб/с]<Progressive Fusion Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135404.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135404.jpgsave_picture_135404.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ Pulp - Different Class (1995) [MP3|320 кб/с]<BritPop>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135406.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135406.jpgsave_picture_135406.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ Vrum - ;__; (2012) [MP3|320 кб/с]<Shoegaze Indie Post Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135454.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135454.jpgsave_picture_135454.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ magnet:?xt=urn:btih:F7387CE280D75CF144B861C187C51433C695B738
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135648.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135648.jpgsave_picture_135648.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ Seven Daily Sins - Say Yes to Discomfort (2011) [MP3|320 кб/с]<Progressive De
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135688.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135688.jpgsave_picture_135688.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Daily Bread - Iterum (2012) [MP3|320 кб/с] <Indie Rock, Electronic, Dance>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135951.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135951.jpgsave_picture_135951.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ magnet:?xt=urn:btih:4949CC521BD0EB1BBCF233056FCFC15D8D665E60
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136408.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136408.jpgsave_picture_136408.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Heat - Heat (2012) [MP3|320 кб/с]<Old School Stoner Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136517.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136517.jpgsave_picture_136517.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Antropomorphia - Evangelivm Nekromantia (2012) [MP3|320 кб/с]<Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136550.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136550.jpgsave_picture_136550.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ magnet:?xt=urn:btih:363A4CDA1FFE456E73BAE16B132D2F4BF97D21CA
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136644.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136644.jpgsave_picture_136644.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ magnet:?xt=urn:btih:E3BDDB89736B7D4B84882A4438D439423EEE3D4E
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136658.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136658.jpgsave_picture_136658.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ Kaash Paige - 2 Late To Be Toxic (2025) [FLAC|Lossless|WEB-DL|tracks] <Alternati
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136702.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136702.jpgsave_picture_136702.jpg" />
 </div>
 
 
@@ -693,7 +693,7 @@ Patti Smith - Horses (1975) 50th Anniversary, 2025, Arista Records LLC [FLAC 24/
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136703.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136703.jpgsave_picture_136703.jpg" />
 </div>
 
 
@@ -720,7 +720,7 @@ Crypt Of Kerberos - Cyclone of Insanity / Visions Beyond Darkness + Demos (2017)
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136710.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136710.jpgsave_picture_136710.jpg" />
 </div>
 
 

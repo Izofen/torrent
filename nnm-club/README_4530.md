@@ -6,7 +6,7 @@ Internet Download Manager 6.42 Build 1 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141728.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141728.jpgsave_picture_141728.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:A8FF3FA957C94934480B0DEE28D91E0B36633A33
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141731.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141731.jpgsave_picture_141731.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ magnet:?xt=urn:btih:A8FF3FA957C94934480B0DEE28D91E0B36633A33
 >>Картинки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141732.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141732.jpgsave_picture_141732.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ C.C. Catch - Greatest Hits (2018) Ear Music [FLAC|Lossless|tracks + .cue] <Euro-
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141733.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141733.jpgsave_picture_141733.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ magnet:?xt=urn:btih:69F42F7770E7CCDC237F6C5707648C5DD783B889
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141734.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141734.jpgsave_picture_141734.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ magnet:?xt=urn:btih:0D2129BD1FE24C2A90A6478B19D063C45CCE49CB
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141735.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141735.jpgsave_picture_141735.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ E-Trophee Andros. Сезон 2019-2020. Этап 2. Андорра. Гонка (
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141736.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141736.jpgsave_picture_141736.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ magnet:?xt=urn:btih:601C27EC316F2A5FF57285BBFE2A62A1B1F37E44
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141737.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141737.jpgsave_picture_141737.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ magnet:?xt=urn:btih:0E4CFD0A878BAB320477BA42CE45A2476BCAB2AE
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141738.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141738.jpgsave_picture_141738.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ magnet:?xt=urn:btih:88A776388959BEA39FB0E65B073B4BFF7C198EBC
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141739.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141739.jpgsave_picture_141739.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ magnet:?xt=urn:btih:B7FBD5C9119E5FE5CABB7094C93EEEF4BC561512
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141740.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141740.jpgsave_picture_141740.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ magnet:?xt=urn:btih:59E8BBAF4A0CB79E1EBEC62B7AFEF61FCBD432D8
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141741.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141741.jpgsave_picture_141741.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ My Alarm Clock Pro / Мой Будильник Про v2.8 [Ru/Multi] - Мног
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141742.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141742.jpgsave_picture_141742.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ magnet:?xt=urn:btih:B61F54A56AB052E340961FB7506E6D031BC536BC
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141743.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141743.jpgsave_picture_141743.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ magnet:?xt=urn:btih:94284670BA51CC2448E4846AB2EBA7B3C4F90348
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141744.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141744.jpgsave_picture_141744.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ magnet:?xt=urn:btih:99CDAABFCE42133F93F17FA782096E821B3FDBB8
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141745.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141745.jpgsave_picture_141745.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ VA - Inviting Blues Guitar Instrumentals (2023) [MP3|320 Kbps] <Blues, Instrumen
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141746.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141746.jpgsave_picture_141746.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ RogueKiller Anti-Malware 14.8.2 + Portable [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141748.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141748.jpgsave_picture_141748.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ magnet:?xt=urn:btih:1D553BD4F970EC34B480B90ACB6A22EEF041A6BA
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141749.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141749.jpgsave_picture_141749.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ magnet:?xt=urn:btih:7FDB618B473B3C39EEBCD0CEABCCF17DE89CEB0B
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141751.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141751.jpgsave_picture_141751.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ magnet:?xt=urn:btih:23856FF57F17D56315E380BDBD22204955F5417F
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141753.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141753.jpgsave_picture_141753.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ DiskDigger 1.20.8.2677 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141754.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141754.jpgsave_picture_141754.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ magnet:?xt=urn:btih:D7E1F962D38681608BCD6B3EDF0B6054928CD3D1
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141755.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141755.jpgsave_picture_141755.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ magnet:?xt=urn:btih:A28783FD0661509725E8393D1F374D22B8AAF794
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141756.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141756.jpgsave_picture_141756.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ magnet:?xt=urn:btih:8CDCB2D7B3101419C371FB6E983C8B3AB628AF7D
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141757.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141757.jpgsave_picture_141757.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ magnet:?xt=urn:btih:13957A6618EF42E1292A9F6E8FCC6B504F2DEDC7
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141758.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141758.jpgsave_picture_141758.jpg" />
 </div>
 
 

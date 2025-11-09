@@ -6,7 +6,7 @@ ArtStation, Realtime GraphX | Create Next Gen AAA Characters for Unreal Engine (
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160984.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160984.jpgsave_picture_160984.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ NoMachine 7.0.209_5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160985.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160985.jpgsave_picture_160985.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Markus Schulz - Global DJ Broadcast Year in Review (2021) [MP3|320 Kbps] <Trance
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160986.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160986.jpgsave_picture_160986.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:B19D9FFF634100512159EFEF75ED6803021FC73D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160987.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160987.jpgsave_picture_160987.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:75D6081CD8CB97706D48BFE7E075334375B52D2E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160988.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160988.jpgsave_picture_160988.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Bon Jovi - These Days (1995) [FLAC|Lossless|image + .cue] <Hard Rock, Soft Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160989.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160989.jpgsave_picture_160989.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:6BDE09BB63D08D6CCC9B31BB069FB02953651416
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160990.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160990.jpgsave_picture_160990.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ Gregorian - Pure Chants (2021) [AAC|~318 Kbps] <New Age, Choir, Ambient>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160991.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160991.jpgsave_picture_160991.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ magnet:?xt=urn:btih:AEEB9CD8911BF46570B56ACBB4C8E61DB022FF57
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160992.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160992.jpgsave_picture_160992.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ magnet:?xt=urn:btih:5A5C97142E7A7A35A6A665E0054786326DCA1091
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160993.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160993.jpgsave_picture_160993.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ magnet:?xt=urn:btih:5A5C97142E7A7A35A6A665E0054786326DCA1091
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160994.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160994.jpgsave_picture_160994.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ XYplorer 22.60.0100 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160995.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160995.jpgsave_picture_160995.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ magnet:?xt=urn:btih:B9F0E8B48E7674AFE359124B0D9F8490666DB22F
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160996.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160996.jpgsave_picture_160996.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ Cockos REAPER 6.19 (x86/x64) RePack (& Portable) by xetrin [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160997.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160997.jpgsave_picture_160997.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ magnet:?xt=urn:btih:C09A06702B84381A5F99799AFAE261E39E320BCF
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160998.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160998.jpgsave_picture_160998.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ magnet:?xt=urn:btih:88608445BFB4B1A97896B3FE0C3AB6357FE2B2FC
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160999.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160999.jpgsave_picture_160999.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ AnyDesk 7.1.7 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161000.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161000.jpgsave_picture_161000.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Pussies On The Dancefloor - Rumors (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161001.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161001.jpgsave_picture_161001.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ magnet:?xt=urn:btih:9A6BAA407599C230ECD51B55F161F09984A9DD63
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161002.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161002.jpgsave_picture_161002.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ magnet:?xt=urn:btih:40794DDCA77DBBAB81EDF52A2DCF4996AB8EE0D2
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161003.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161003.jpgsave_picture_161003.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ magnet:?xt=urn:btih:0AE1FB562D534EF80C6CD889281EDE9F08A2C1D3
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161004.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161004.jpgsave_picture_161004.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ AOMEI Backupper Technician Plus 7.3.3 Repack (& Portable) by elchupacabra [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161005.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161005.jpgsave_picture_161005.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ foobar2000 1.5.5 DarkOne + DUIFoon Portable by MC Web (01.10.2022) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161006.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161006.jpgsave_picture_161006.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ Hawkwind - Somnia (2021) [FLAC|Lossless|image + .cue] <Rock, Psychedelic Rock, P
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161007.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161007.jpgsave_picture_161007.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ magnet:?xt=urn:btih:0E26532F52FA7DBB8AFFA9D6D848A391923BE1DA
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161008.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161008.jpgsave_picture_161008.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ Windows Server 2022 LTSC, Version 21H2 Build 20348.1366 (Updated December 2022) 
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161009.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161009.jpgsave_picture_161009.jpg" />
 </div>
 
 

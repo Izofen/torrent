@@ -6,7 +6,7 @@ Life Gallery v2.1.1 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25960.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25960.jpgsave_picture_25960.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:C5334B57530AE3CBF69D2430CFBCD3F02543813D
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25961.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25961.jpgsave_picture_25961.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:263622D1D969EC8C6F547E4889306B123BAAC0EE
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25962.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25962.jpgsave_picture_25962.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Cat Museum v1.2.2 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25963.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25963.jpgsave_picture_25963.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Fran Bow v1.0.2 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25964.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25964.jpgsave_picture_25964.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ Dad's Monster House v1.0.17 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25965.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25965.jpgsave_picture_25965.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ Audio Repeater Pro 1.6.3 [En]
 >>Аудио Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25966.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25966.jpgsave_picture_25966.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:44162BC012ACDA437A9992DCE5003E3822379FBC
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25967.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25967.jpgsave_picture_25967.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ Oddmar v0.111 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25968.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25968.jpgsave_picture_25968.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ magnet:?xt=urn:btih:4BEC6D9669F29D3FC5FD28AF10DD9466E64721A3
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25969.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25969.jpgsave_picture_25969.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:6671E7134A56C76C59848BC1CE939A89D43B2371
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25970.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25970.jpgsave_picture_25970.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:1C9B6B76DE80E61E5AF7793D26C87F3707ECAE63
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25971.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25971.jpgsave_picture_25971.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Apowersoft Video Download Capture 6.5.6.1 RePack (& Portable) by elchupacabra [M
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25972.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25972.jpgsave_picture_25972.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ CareUEyes 2.4.9.0 Pro RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25973.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25973.jpgsave_picture_25973.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ magnet:?xt=urn:btih:02577ECA3055C83F01E99621183AD48272BEC346
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25974.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25974.jpgsave_picture_25974.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ GPS Compass Navigator v2.20.28 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25975.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25975.jpgsave_picture_25975.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Imperiums: Greek Wars (2020) [Ru/Multi] (1.422/dlc) Repack Let'sРlay [Complete]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25976.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25976.jpgsave_picture_25976.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ magnet:?xt=urn:btih:CC8DA59AC264853EF91CC614FBCF183FC89290F7
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25977.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25977.jpgsave_picture_25977.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Astral Throne (2025) [En] (1.0.0) Repack FitGirl [Supporter Bundle]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25978.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25978.jpgsave_picture_25978.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ NewPipe v0.27.6 Free + Mod by Alex.Strannik  [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25979.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25979.jpgsave_picture_25979.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ magnet:?xt=urn:btih:431C58F13D9640EF532F57FFE7C8EEC35A0BFFA8
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25980.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25980.jpgsave_picture_25980.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ magnet:?xt=urn:btih:60B439EFF8F02F6CC07576DE97E8A209C0F000D5
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25981.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25981.jpgsave_picture_25981.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:BD28647B752401E00AA94CBE8B9BF201794C8C36
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25982.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25982.jpgsave_picture_25982.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ R-Drive Image Technician 7.3 Build 7302 RePack (& Portable) by TryRooM [Multi/Ru
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25983.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25983.jpgsave_picture_25983.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ magnet:?xt=urn:btih:A4E5173C3469E24EFF6F45A359CB8AB580B1787B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25984.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25984.jpgsave_picture_25984.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ magnet:?xt=urn:btih:A4E5173C3469E24EFF6F45A359CB8AB580B1787B
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25985.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25985.jpgsave_picture_25985.jpg" />
 </div>
 
 

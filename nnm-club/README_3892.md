@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121652.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121652.jpgsave_picture_121652.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Lost Eidolons: Veil of the Witch (2024) [Ru/Multi] (1.0.6) Repack seleZen
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121653.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121653.jpgsave_picture_121653.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:1AE926192FA395AE686490212E6A232B639CED70
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121654.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121654.jpgsave_picture_121654.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:2212DA6DB0CDE498BFF3BEB9D5144CDF26688153
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121655.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121655.jpgsave_picture_121655.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:40A5A089E06D5C2746491297F254ECC9AC2AEE8F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121656.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121656.jpgsave_picture_121656.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Stepik, Дмитрий Фокеев | Веб дизайн в Figma с нуля �
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121657.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121657.jpgsave_picture_121657.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:4F3A6342484D2206C1C317B44E20C626980BB2C8
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121658.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121658.jpgsave_picture_121658.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:E1E60EB2A0408FABB45E7532480E3D8DDAD24E7E
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121659.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121659.jpgsave_picture_121659.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:39AEF5BCE58886D4C67CD588023BAA7F08E09C62
 >>Сериалы DC Comics
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121660.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121660.jpgsave_picture_121660.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:DBDD1A41EF197DDD0CCF0C709EF2AB7F33874185
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121661.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121661.jpgsave_picture_121661.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:6689805667031ADB530399C8BA20CAACD522954A
 >>История
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121662.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121662.jpgsave_picture_121662.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Horrorgraphy - A Knight's Tale (2024) [FLAC|Lossless|WEB-DL|tracks] <Symphonic M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121664.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121664.jpgsave_picture_121664.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:F319E615E5A6067DBFAA43E8F8A11FD910AAA526
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121665.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121665.jpgsave_picture_121665.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Kari Antila - Dahill Road (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Contempo
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121666.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121666.jpgsave_picture_121666.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Mosh-Pit Justice - Fighting the Poison (2019) [FLAC|Lossless|image + .cue] <Powe
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121667.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121667.jpgsave_picture_121667.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Susannah McCorkle - How Do You Keep The Music Playing? (1985) 2000, The Jazz All
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121668.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121668.jpgsave_picture_121668.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Abysmal Grief - Misfortune (2009) [FLAC|Lossless|image + .cue] <Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121669.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121669.jpgsave_picture_121669.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ Hellwell - Beyond The Boundaries Of Sin (2012) [FLAC|Lossless|image + .cue] <Epi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121670.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121670.jpgsave_picture_121670.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ Bloodlost - Discover the Hell (2006) Demo [FLAC|Lossless|image + .cue] <Thrash M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121671.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121671.jpgsave_picture_121671.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ Bloodlost - Diary of Death (2018) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121672.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121672.jpgsave_picture_121672.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ Ahumado Granujo - Splatter-Tekk (2003) [FLAC|Lossless|image + .cue] <Grindcore>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121673.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121673.jpgsave_picture_121673.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Abysmal Grief - Abysmal Grief (2007) [FLAC|Lossless|image + .cue] <Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121674.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121674.jpgsave_picture_121674.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Bloodlost - Hellcome (2008) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121675.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121675.jpgsave_picture_121675.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Bloodlost - Trashell (2011) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121676.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121676.jpgsave_picture_121676.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ magnet:?xt=urn:btih:164151E6CCB2019ACEA26D15A23E4F25265D7DFC
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121677.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121677.jpgsave_picture_121677.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ magnet:?xt=urn:btih:8F3023F19AAA56991264CD0AD40D51984A824056
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121678.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121678.jpgsave_picture_121678.jpg" />
 </div>
 
 

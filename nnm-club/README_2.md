@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79.jpgsave_picture_79.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:8E8814BA2B786A19B2D747FB1A9B616AB304BB76
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80.jpgsave_picture_80.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Desktop Info 3.21.0 [Multi]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81.jpgsave_picture_81.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Missing Hearts: Crimson Cruise / Пропавшие Сердца: Багровы
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82.jpgsave_picture_82.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:D73C4356FFA6DEDFAB102C32AABE1D6BA4E9F5A9
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83.jpgsave_picture_83.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:BCC9F46D35C1D4354A4861178B666599626AC190
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84.jpgsave_picture_84.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:C800CAEF5926A0AB6C971D766493AA64B8D08A89
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85.jpgsave_picture_85.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Moros Protocol (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86.jpgsave_picture_86.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Clair Obscur: Expedition 33 (2025) [Ru/Multi] (1.4.0/dlc) License GOG [Deluxe Ed
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87.jpgsave_picture_87.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ The Lightkeeper (2025) [Ru/En] (Build 20068430) Repack Other s
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88.jpgsave_picture_88.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:447D747E9118AEBEBCDB026FC138E34D5D435A2C
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89.jpgsave_picture_89.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:00AF386880F6ABD89CDC5C750AC669594A64F67A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90.jpgsave_picture_90.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:8C54CF4565D55E2D092C43AFFC32B838695BCCCC
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91.jpgsave_picture_91.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Moros Protocol (2025) [Ru/Multi] (1.0.7.1) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_92.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_92.jpgsave_picture_92.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Red Cad App 3.24.3.0 [Multi]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93.jpgsave_picture_93.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ BBC: Родительство / Parenthood (2025) WEBRip [H.264/1080p] (сезо
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94.jpgsave_picture_94.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Fan Control V241 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95.jpgsave_picture_95.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ SimilarImagesFinder 1.021 + Portable [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96.jpgsave_picture_96.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ IsMyHdOK 4.44 Portable [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97.jpgsave_picture_97.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Slime Rancher 2 (2022) [Ru/Multi] (1.0.0) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98.jpgsave_picture_98.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ magnet:?xt=urn:btih:9AAAC2CB01E336BB516571EC694210614826B576
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99.jpgsave_picture_99.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:47A7B3AAAA25195D40AC3F6102A53B7C5EB9D773
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100.jpgsave_picture_100.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Yes, Your Grace 2 Snowfall (2025) [Ru/Multi] (1.0.10962) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101.jpgsave_picture_101.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Between the Buried and Me (BTBAM) - Studio Albums (18 releases) (2002-2025) hand
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102.jpgsave_picture_102.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ magnet:?xt=urn:btih:1C5BD67C506E752F6A6A40F3E67D98F44042DFEF
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103.jpgsave_picture_103.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ YT Downloader 9.17.7 [En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104.jpgsave_picture_104.jpg" />
 </div>
 
 

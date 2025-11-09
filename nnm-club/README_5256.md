@@ -6,7 +6,7 @@ AudFree SpoDable for Mac 2.6.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163441.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163441.jpgsave_picture_163441.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:D34ED1D7E68215F6980FC4EB0788DFB1963D1C4C
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163442.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163442.jpgsave_picture_163442.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Grim Comet - Winter of Hate (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Sto
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163443.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163443.jpgsave_picture_163443.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:62623A4C3F9878ABE0F0526C9F4DAE2018ABA81D
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163444.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163444.jpgsave_picture_163444.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:B6C7EC5DE0E62EA499B7466E74915270A49F36DA
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163445.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163445.jpgsave_picture_163445.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:CC2F44133FBBA22A287DD51F5A4F866AA88EC330
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163446.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163446.jpgsave_picture_163446.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ Ritual King - Ritual King (2020) [FLAC|Lossless|WEB-DL|tracks] <Heavy Blues, Sto
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163447.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163447.jpgsave_picture_163447.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:C1DD6B7B5465032EF4AB730A31F60C7859AA0F11
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163448.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163448.jpgsave_picture_163448.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:B40A653493DB7720C95D87738D8F9FE5D5A3A17F
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163449.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163449.jpgsave_picture_163449.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ Telegram Desktop 4.11.3 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163450.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163450.jpgsave_picture_163450.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ STRADIE (STRΛDIE) - Кровоточие (2022) [FLAC|Lossless|WEB-DL|tracks] <
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163451.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163451.jpgsave_picture_163451.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ magnet:?xt=urn:btih:1B4080C3B02C7B4F0C037116B5543F354C7FC5E8
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163452.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163452.jpgsave_picture_163452.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ magnet:?xt=urn:btih:E4B36E3F1481C7B89BB0D431E8A6EB2521277511
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163453.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163453.jpgsave_picture_163453.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ magnet:?xt=urn:btih:7DA85FE24558CC2228F27235BDBB6E5855A7875D
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163454.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163454.jpgsave_picture_163454.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ Scuzzy Yeti - 2 Albums (2017-2022) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic, S
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163455.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163455.jpgsave_picture_163455.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ magnet:?xt=urn:btih:E3A5165339069664768952ABC56246E73A885C63
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163456.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163456.jpgsave_picture_163456.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ Witchcliff - 2 Albums, 2 Singles (2019-2022) [FLAC|Lossless|WEB-DL|tracks] <Slud
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163457.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163457.jpgsave_picture_163457.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Windows Server, Version 1903 (10.0.18362.535) - Оригинальные обр�
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163458.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163458.jpgsave_picture_163458.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ magnet:?xt=urn:btih:EDE891B42963AEA5AB1EBC4D3EFCA8C7F9BD330C
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163459.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163459.jpgsave_picture_163459.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ TagScanner 6.1.12 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163460.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163460.jpgsave_picture_163460.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ Windows Server 2019 LTSC Version 1809 Build 17763.1637 (Updated December 2020) �
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163461.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163461.jpgsave_picture_163461.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Topaz Photo AI 2.1.0 (x64) Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163462.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163462.jpgsave_picture_163462.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ magnet:?xt=urn:btih:47303C2CEF5E85E89AC0DDD9020A36BBDD4EB656
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163463.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163463.jpgsave_picture_163463.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Catastrophic - Born Into Bondage (2012) [APE|Lossless|image + .cue] <Death Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163464.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163464.jpgsave_picture_163464.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ magnet:?xt=urn:btih:3D630655553C41954292275BF47700B76E7A5D40
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163465.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163465.jpgsave_picture_163465.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ magnet:?xt=urn:btih:0B41BFCC71E462F3007DEB6438ADBCC2F34710DA
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163466.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163466.jpgsave_picture_163466.jpg" />
 </div>
 
 

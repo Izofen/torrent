@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205576.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205576.jpgsave_picture_205576.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:996B630D1BD992DECD75BE07A12B0BB037EFEDBE
 >>Старые Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205578.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205578.jpgsave_picture_205578.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Project Office X Pro 1.1.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205580.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205580.jpgsave_picture_205580.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:482B4927CF3019320B9A611F8F355A25DF0389B4
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205581.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205581.jpgsave_picture_205581.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:784DA049F84BD24696F535384068919AC737DA03
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205584.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205584.jpgsave_picture_205584.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Calcpad 6.1.1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205586.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205586.jpgsave_picture_205586.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:E902102A8F5E34AE5180C30D7DAE5DBAFA5C9919
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205587.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205587.jpgsave_picture_205587.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ CamScanner 6.46.0.2308010000 Mod by maxi123444 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205590.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205590.jpgsave_picture_205590.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ Alter Ego - Old But Gold (2023) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205591.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205591.jpgsave_picture_205591.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Topaz Video AI for Mac 3.3.11 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205593.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205593.jpgsave_picture_205593.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:43FA428EC32FD1F5D009D201084BD6F327F12EB4
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205596.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205596.jpgsave_picture_205596.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:B19A44A6A2959B90EC74608F9C1071B31A2E069B
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205597.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205597.jpgsave_picture_205597.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ magnet:?xt=urn:btih:65B292E27188F588FC4C5F54107374494E8CE426
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205600.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205600.jpgsave_picture_205600.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Enuff Z'nuff - Peach Fuzz (1996) [FLAC|Lossless|image + .cue] <Rock, Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205601.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205601.jpgsave_picture_205601.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ magnet:?xt=urn:btih:EFC6DD3DAFA77BE9BD257C3CCEE4AF6E4D8C4A23
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205603.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205603.jpgsave_picture_205603.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Siegfried - Eisenwinter (2003) Ltd. Digipack [FLAC|Lossless|image + .cue] <Epic 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205605.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205605.jpgsave_picture_205605.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Speedtest от Ookla 5.0.9 Mod by maxi123444 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205606.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205606.jpgsave_picture_205606.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ magnet:?xt=urn:btih:A81D5B1FF1BD61486E965E9A03740B24CC85239B
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205607.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205607.jpgsave_picture_205607.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Enuff Z'Nuff - Tweaked (1995) [FLAC|Lossless|image + .cue] <Rock, Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205608.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205608.jpgsave_picture_205608.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ magnet:?xt=urn:btih:7671D305BF9028AA7A304188C4704B681ED9C6B3
 >>Русский Рок (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205609.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205609.jpgsave_picture_205609.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Sumo Cyco - Neon Void (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Punk, Metal,
 >>Alternative, Punk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205610.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205610.jpgsave_picture_205610.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ magnet:?xt=urn:btih:70F523E86BD8946E69DBA5B499A7276D5A6A7CED
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205611.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205611.jpgsave_picture_205611.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ magnet:?xt=urn:btih:D8E9480D17263D602AEA3698BFEE9E8DB0B4935B
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205612.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205612.jpgsave_picture_205612.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ magnet:?xt=urn:btih:EAB4C0DDD7F3CB0F171EE804C100E8A4C4C38E1A
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205613.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205613.jpgsave_picture_205613.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ vMix Pro 28.0.0.42 [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205615.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205615.jpgsave_picture_205615.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ Adobe Illustrator 2026 30.0 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205616.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205616.jpgsave_picture_205616.jpg" />
 </div>
 
 

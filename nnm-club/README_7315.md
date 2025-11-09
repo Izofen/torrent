@@ -6,7 +6,7 @@ EarthView 6.16.0 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250227.jpgsave_picture_250227.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:EF2E14EC2E1DE584DCC70A4D8F48D721BBC909A7
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250228.jpgsave_picture_250228.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:54227C6744C9F4958A915126D66B0A9933339087
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250229.jpgsave_picture_250229.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:2CAB82AE68DD35A2FBB8C27ED35A813D84CF780C
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250230.jpgsave_picture_250230.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:EBFBFC85574A49304C215DCA2C89FF28719DDBD4
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250231.jpgsave_picture_250231.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ VA - Хорошо сидим ! Песни русского застолья (199
 >>Folk
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250232.jpgsave_picture_250232.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:BD04C0DFAACD4BF7C6293A13EC044F7482B7F3C1
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250233.jpgsave_picture_250233.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:27BB6EE93358FEA27D2BB84E69B997D6BFA6DA3B
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250234.jpgsave_picture_250234.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:AEB1722C0BA9C47A6C83230424400E6AD93C8694
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250235.jpgsave_picture_250235.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:52BD098CC40CBA9AA4C5B9B9F5D871C2F8A3F7E6
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250236.jpgsave_picture_250236.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:96356E377065BB585239D8160EBD9B8D5023D6F6
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250237.jpgsave_picture_250237.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:37AC5C0C7B0482F3C1EE12887B41D01441A3DB1D
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250238.jpgsave_picture_250238.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ VA - Лучшие песни радио русский шансон 8 (2008) [MP
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250239.jpgsave_picture_250239.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Back 4 Blood (2021) [PS4] [USA] 5.05 [HEN] [License / 1.08 / DLC] [Ru/Multi] [Ul
 >>PS4
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250240.jpgsave_picture_250240.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ magnet:?xt=urn:btih:B81491265E5AFEB61638228519B2EB9E6B3FE76E
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250241.jpgsave_picture_250241.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ magnet:?xt=urn:btih:370D10ACDF7CF0B84DFF88AA06EFEB35BD49FD1A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250242.jpgsave_picture_250242.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ magnet:?xt=urn:btih:D0C7379006A05432B1255D692103AA3FA636EF42
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250243.jpgsave_picture_250243.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Shingeki no Kyojin OVA | Атака титанов OVA [2013-2018, OVA, 8 из 8
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250244.jpgsave_picture_250244.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ magnet:?xt=urn:btih:B698085E43381FD3EEB053AB5D9A3A8A9A8EB2BF
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250245.jpgsave_picture_250245.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ VA - Наш Тик Ток 3 (2022) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250246.jpgsave_picture_250246.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Windows 10 21H2 x64 Rus by OneSmiLe [19044.1586]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250247.jpgsave_picture_250247.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Myron Elkins - Factories, Farms & Amphetamines (2023) [FLAC|Lossless|WEB-DL|trac
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250248.jpgsave_picture_250248.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ magnet:?xt=urn:btih:5044C236DE4B6A0ADC6849561BF62D6E26767EE6
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250249.jpgsave_picture_250249.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ magnet:?xt=urn:btih:FC54F556FEF439AC2FF663C96786635DE1EA8C35
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250250.jpgsave_picture_250250.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ magnet:?xt=urn:btih:E4A1B8EF9BB71110CA7774391F6A809654286162
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250251.jpgsave_picture_250251.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ Speedtest от Ookla 4.7.18 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250252.jpgsave_picture_250252.jpg" />
 </div>
 
 

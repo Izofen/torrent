@@ -6,7 +6,7 @@ IceCream Ebook Reader Pro 6.37 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177420.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177420.jpgsave_picture_177420.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:B4C6704B3BEFAC0313907E59D7774DEF22F17873
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177422.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177422.jpgsave_picture_177422.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Text Workflow 1.4.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177424.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177424.jpgsave_picture_177424.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Dropshare 5.24 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177426.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177426.jpgsave_picture_177426.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ WinCatalog 2024.3.0.1005 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177428.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177428.jpgsave_picture_177428.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:43E25545626008D26D1B929DDA51AAFC54D4DBB6
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177431.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177431.jpgsave_picture_177431.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ DropDMG 3.6.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177432.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177432.jpgsave_picture_177432.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ The Ellis Marsalis Trio - Twelve's It (1998) Columbia [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177434.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177434.jpgsave_picture_177434.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:D890064AC64C6BF0BF7A5D94C57BE8F04D9AAB67
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177435.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177435.jpgsave_picture_177435.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ Telex - Telex I-III (2022-2023) [MP3|320 Kbps] <Disco, Synth-pop, House, Techno>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177438.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177438.jpgsave_picture_177438.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ Atomic Trip - 3 Albums (2017-2022) [MP3|320 Kbps] <Stoner, Sludge, Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177440.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177440.jpgsave_picture_177440.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ Mike Wofford - Live At Maybeck Recital Hall, Vol. 18 (1992) Concord Jazz [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177442.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177442.jpgsave_picture_177442.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ Dire Straits - Live 1978 - 1992 (2023) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177443.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177443.jpgsave_picture_177443.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ magnet:?xt=urn:btih:BE3E63687455DEDF5281DDCB31C831E7D2C54121
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177446.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177446.jpgsave_picture_177446.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ Dropzone 4 Pro v.4.5.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177447.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177447.jpgsave_picture_177447.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ Perfectly Clear WorkBench 4.6.0.2606 RePack (& Portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177451.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177451.jpgsave_picture_177451.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Aggressiful - Инновация (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternati
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177452.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177452.jpgsave_picture_177452.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ RarmaRadio Pro 2.75.4 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177454.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177454.jpgsave_picture_177454.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ Entheos - 3 Singles, 1 EP (2015-2022) [MP3|320 Kbps] <Progressive Metalcore, Bla
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177456.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177456.jpgsave_picture_177456.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ magnet:?xt=urn:btih:39401677760D201E8322D5C113E94DA2F752EC27
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177458.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177458.jpgsave_picture_177458.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ magnet:?xt=urn:btih:6BC073BA23D731EA372FBF0DDD3FB3D40D895EB4
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177460.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177460.jpgsave_picture_177460.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Faust - From Glory To Infinity (2010) [WavPack|Lossless|image + .cue] <Technical
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177462.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177462.jpgsave_picture_177462.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ VA - Trance 2023 Vol.9 [MP3|320 Kbps] <Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177464.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177464.jpgsave_picture_177464.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Teach Me Violence - 2 Singles, 3 EP (2014-2022) [MP3|320 Kbps] <Dark Hardcore, M
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177466.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177466.jpgsave_picture_177466.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Icecream Slideshow Maker PRO 5.03 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177467.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177467.jpgsave_picture_177467.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ magnet:?xt=urn:btih:B6C731407CE899AE6EEA81687842C7E43DF1A704
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177469.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177469.jpgsave_picture_177469.jpg" />
 </div>
 
 

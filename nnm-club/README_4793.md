@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149993.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149993.jpgsave_picture_149993.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ VA - Country Gold (1985) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Country Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149995.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149995.jpgsave_picture_149995.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ BlueStacks HD App Player 2.0.2.5623 MOD [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149996.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149996.jpgsave_picture_149996.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Rammstein - Klavier (2015) Piano Version [FLAC|Lossless|tracks + .cue] <Acoustic
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149998.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149998.jpgsave_picture_149998.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:801C9AB7C6FB7BFD10F330B3F8FF1B097DE64144
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149999.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149999.jpgsave_picture_149999.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ London Gay Big Band - Freedom (2018) [MP3|320 Kbps] <Vocal Jazz, Soul>
 >>Jazz
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150000.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150000.jpgsave_picture_150000.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:7FD24562D040C77B82F1570A4A924A8AB1AD24E9
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150001.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150001.jpgsave_picture_150001.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ PDF Shaper Premium 8.9 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150002.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150002.jpgsave_picture_150002.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:3630464BC0AC6361D6F45289164887CDCD1112FA
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150003.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150003.jpgsave_picture_150003.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ magnet:?xt=urn:btih:D6BD7776EECD8EDE9BC418DFDFF68B227A710C24
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150004.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150004.jpgsave_picture_150004.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ magnet:?xt=urn:btih:D6BD7776EECD8EDE9BC418DFDFF68B227A710C24
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150005.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150005.jpgsave_picture_150005.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ magnet:?xt=urn:btih:468D34B6F8290AFC02DDA029AD0CECFC3DD11293
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150006.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150006.jpgsave_picture_150006.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Wise Data Recovery 4.11.210 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150007.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150007.jpgsave_picture_150007.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ magnet:?xt=urn:btih:3B19BF9E33856DE856573CF7EC5C46C2E1F3FDFD
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150008.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150008.jpgsave_picture_150008.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ magnet:?xt=urn:btih:D93813FCFA5F0553C094A7F18F213A0B94A8C7BF
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150009.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150009.jpgsave_picture_150009.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ VA - True Romance: Motion Picture Soundtrack (1993) [FLAC|Lossless|tracks + .cue
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150010.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150010.jpgsave_picture_150010.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ magnet:?xt=urn:btih:F396B8AE421B8B04A233C29CD11037D89E66712E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150011.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150011.jpgsave_picture_150011.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ magnet:?xt=urn:btih:DC8B00A5F4192335686593A39CAA8D224E7C6B0C
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150012.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150012.jpgsave_picture_150012.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Medieval Dynasty (2020) [Ru/Multi] (1.1.1.0/dlc) License GOG [Digital Supporter 
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150013.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150013.jpgsave_picture_150013.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ VA - Tranceformation 2018 (2018) [MP3|320 Kbps] <Trance, Uplifting Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150014.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150014.jpgsave_picture_150014.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ magnet:?xt=urn:btih:AF3C7CC2F9E1EE7420CDC854240570142562012F
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150015.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150015.jpgsave_picture_150015.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ PullTube 1.6.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150016.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150016.jpgsave_picture_150016.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ magnet:?xt=urn:btih:4AF4DFC66387DCCD5A69F8D257D75DBCC1A34A9E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150017.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150017.jpgsave_picture_150017.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:DA1E7E215C21F50DDD2FCB54D3778594C7D4A57D
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150018.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150018.jpgsave_picture_150018.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Stardew Valley (2016) [Ru/Multi] (1.5.6.1909543277) Repack Other s
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150019.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150019.jpgsave_picture_150019.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ magnet:?xt=urn:btih:25F8E2976F716120529C2CFD2A90FC2CEF4F4911
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150020.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150020.jpgsave_picture_150020.jpg" />
 </div>
 
 

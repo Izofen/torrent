@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173427.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173427.jpgsave_picture_173427.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:5C9AA259FDE1D78B4CB7DE0C3FF1D56DA246E648
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173428.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173428.jpgsave_picture_173428.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:5276E2906B8064AD09847518DF53F5133737CF75
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173429.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173429.jpgsave_picture_173429.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ David Gilmour - The Luck and Strange Concerts (2025) [MP3|320 Kbps] <Rock, Progr
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173430.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173430.jpgsave_picture_173430.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:ED37F47FE8524DF07C434F22691442E3649990AF
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173431.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173431.jpgsave_picture_173431.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ ABRISS - build to destroy (2023) [Ru/Multi] (1.0.12) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173432.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173432.jpgsave_picture_173432.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ The Supper (2020) [En] (1.01a) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173433.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173433.jpgsave_picture_173433.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ The Supper: New Blood (2025) [En] (1.02a) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173434.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173434.jpgsave_picture_173434.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:0FCEDFB69A488C2CE3071C2DD7FCF1D12214C4A6
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173435.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173435.jpgsave_picture_173435.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:EC564491F5C38B2A604493F094843D395D986405
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173436.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173436.jpgsave_picture_173436.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Cat Quest III (3) (2024) [Ru/Multi] (1.4.3) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173437.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173437.jpgsave_picture_173437.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Industry Giant 4.0 (2024) [Ru/Multi] (1.0.0-s.45+15021/dlc) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173438.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173438.jpgsave_picture_173438.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:1CEE5A6B74ECA4CBE5258761926DF9AAC0FF518B
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173439.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173439.jpgsave_picture_173439.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:4F4B98B532E14411367E9AAFF2A0B0410617E090
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173440.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173440.jpgsave_picture_173440.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Slimjet 48.0.0.0 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173441.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173441.jpgsave_picture_173441.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:7EE0032E49DFC0EF281A3866693136EF6153E0C5
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173442.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173442.jpgsave_picture_173442.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ magnet:?xt=urn:btih:0B556D78CDE652DD27EE754C08E81E112A986505
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173443.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173443.jpgsave_picture_173443.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ magnet:?xt=urn:btih:9A2DB98B3214F462C185C7E64CB405AC2626993B
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173444.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173444.jpgsave_picture_173444.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ MAX Desktop 25.13.4 [Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173445.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173445.jpgsave_picture_173445.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ WonderFox HD Video Converter Factory Pro 28.1 RePack (& Portable) by elchupacabr
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173446.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173446.jpgsave_picture_173446.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:30393274FC6D212D94BEE1A40A5E5952B2B1EF55
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173447.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173447.jpgsave_picture_173447.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Plants vs. Zombies 2: It’s About Time (2013) [Multi] (1.7.2.9) Repack Necros
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173448.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173448.jpgsave_picture_173448.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Plants vs. Zombies (2009) [Ru/En] (1.2.0.1096) Repack Necros [Game of the Year E
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173449.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173449.jpgsave_picture_173449.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Baldur's Gate III (3) (2020) [Ru/Multi] (4.1.1.6946847/dlc) Repack Wanterlude [D
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173450.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173450.jpgsave_picture_173450.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ magnet:?xt=urn:btih:71411864770CD5E012EB34FF41E1FFACEDF74BEA
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173451.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173451.jpgsave_picture_173451.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ magnet:?xt=urn:btih:DAE602F373B4C18ED3BEC5E33E8D1750C02C580B
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173452.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173452.jpgsave_picture_173452.jpg" />
 </div>
 
 

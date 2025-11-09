@@ -6,7 +6,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203036.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203036.jpgsave_picture_203036.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:0AA5B29FA91F35922F1A62C297E7B3D4075FD65E
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203037.jpgsave_picture_203037.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:A3D514215A7D1D84F9481F4E86B1812C67BC86FA
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203038.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203038.jpgsave_picture_203038.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Mal Waldron - Left Alone (1959) 2000, Avenue Jazz [FLAC|Lossless|image + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203039.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203039.jpgsave_picture_203039.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:0D680D8DA9666A3D55D92D301E98F1956C54DE4F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203040.jpgsave_picture_203040.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ RizomUV Virtual Spaces / Real Space 2022.1.57 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203041.jpgsave_picture_203041.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ Blackmagic Design DaVinci Resolve Studio 18.1.3 Build 8 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203042.jpgsave_picture_203042.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Notepad3 6.23.203.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203043.jpgsave_picture_203043.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Total Commander 10.52 (06.02.2023) Portable by MiG [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203044.jpgsave_picture_203044.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:811872F79436BF0DD1F04BB7533ADCF1D89D1B44
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203045.jpgsave_picture_203045.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:8B367E06FB980B8ED2B5140D892E6A329A5CA0FA
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203046.jpgsave_picture_203046.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Van Halen - Montevideo 1983 (Live) (2023) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203047.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203047.jpgsave_picture_203047.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:7A845BC8CEB9F8264CAE7BD36BF1D30982B89E87
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203048.jpgsave_picture_203048.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ magnet:?xt=urn:btih:8F879F093EACC4BCD4D1313E7D77A379CD70F023
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203049.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203049.jpgsave_picture_203049.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ magnet:?xt=urn:btih:6B7610D77161B3372B297B324F765502BCCAAE72
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203050.jpgsave_picture_203050.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Soen - Memorial (2023) [MP3|320 Kbps] <Progressive Metal, Rock>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203051.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203051.jpgsave_picture_203051.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ magnet:?xt=urn:btih:B8AAF25100960A93271A31F193AE8B1FC29385CA
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203052.jpgsave_picture_203052.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ magnet:?xt=urn:btih:D4A7B86CCA38DF511393783C5CE93E4762081B93
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203053.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203053.jpgsave_picture_203053.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ magnet:?xt=urn:btih:078D1566333249036F3D15EF30D76EFBE87FD9F0
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203054.jpgsave_picture_203054.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Puhdys - Puhdys Live (1979) [FLAC|24/192|image + .cue|Vinyl-Rip] <Rock & Roll, P
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203055.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203055.jpgsave_picture_203055.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ magnet:?xt=urn:btih:AE1CF28EF9E05935C863CA97D823895B01242E12
 >>3D графика
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203056.jpgsave_picture_203056.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ Vivaldi 6.2.3105.45 include standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203057.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203057.jpgsave_picture_203057.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ Monster Hunter Rise: Sunbreak (2022) [Ru/Multi] (13.0.0.1/dlc) Repack DjDI [Delu
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203058.jpgsave_picture_203058.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ FontLab 8 v.8.2.1.8638 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203059.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203059.jpgsave_picture_203059.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ magnet:?xt=urn:btih:E17E95904EA5ED5A44BE71AEE20A81204B98B303
 >>Глухарь
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203060.jpgsave_picture_203060.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ Eclipse - Megalomanium (2023) [MP3|320 Kbps] <Melodic Heavy Metal, Hard Rock>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203061.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203061.jpgsave_picture_203061.jpg" />
 </div>
 
 

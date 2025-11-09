@@ -6,7 +6,7 @@ Bendy: Lone Wolf (2025) [Ru/Multi] (2.0.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6184.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6184.jpgsave_picture_6184.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Touhou Danmaku Kagura: Phantasia Lost (2024) [Multi] (1.10.1/dlc) Scene Tenoke [
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6188.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6188.jpgsave_picture_6188.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ The Last Flame (2024) [Ru/Multi] (1.0.3) Repack seleZen
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6195.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6195.jpgsave_picture_6195.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Tale of Immortal (2021) [Ru/Multi] (1.2.111.259/dlc) Repack seleZen
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6197.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6197.jpgsave_picture_6197.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Session: Skate Sim (2022) [Ru/Multi] (1.0.6.31/dlc) Scene Rune
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6201.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6201.jpgsave_picture_6201.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ RimWorld (2018) [Ru/Multi] (1.6.4543/dlc) Repack Wanterlude
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6203.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6203.jpgsave_picture_6203.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Firehawk FPV: Drone Warfare Simulator (2025) [Ru/Multi] (build 19708406) Repack 
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6213.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6213.jpgsave_picture_6213.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Grand Emprise 2: Portals Apart (2025) [Ru/Multi] (1.0) Repack seleZen
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6215.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6215.jpgsave_picture_6215.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ The Rogue Prince of Persia (2024) [Ru/Multi] (1.0.2) Repack Other s
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6217.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6217.jpgsave_picture_6217.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Primordia (2012) [Multi] (5.3) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6229.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6229.jpgsave_picture_6229.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Coral Island (2023) [Multi] (1.2-1238/dlc) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6235.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6235.jpgsave_picture_6235.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Blood Storm: Alien Purge (2025) [Ru/Multi] (build 19692871) Repack seleZen
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6332.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6332.jpgsave_picture_6332.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Photo Studio Simulator (2025) [Ru/Multi] (0.98) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6351.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6351.jpgsave_picture_6351.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Stone Simulator - Just Be a Rock (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6359.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6359.jpgsave_picture_6359.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Damnation (2009) [Multi] (1.0) Scene RELOADED
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6360.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6360.jpgsave_picture_6360.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ YetiParty (2025) [Ru/En] (build 19685742) Repack seleZen
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6361.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6361.jpgsave_picture_6361.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Iron Harvest (2020) [Ru/Multi] (1.4.8.2986/dlc) Repack Let'sРlay [Deluxe Editio
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6366.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6366.jpgsave_picture_6366.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ JDM: Japanese Drift Master (2025) [Ru/Multi] (1.1.40.1) Repack Let'sРlay
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6377.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6377.jpgsave_picture_6377.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ AI Limit (2025) [Ru/Multi] (1.1.001/dlc) Repack Let'sРlay [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6379.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6379.jpgsave_picture_6379.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Last Epoch (2024) [Ru/Multi] (1.3) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6380.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6380.jpgsave_picture_6380.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Reflections of Life 14: Gone But Not Forgotten (2025) [En] (1.0) Unofficial [Col
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6447.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6447.jpgsave_picture_6447.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Dystopika (2024) [Ru/Multi] (1.5.6+53) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6465.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6465.jpgsave_picture_6465.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Beyond Citadel (2025) [En] (0.99b) Scene Tenoke
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6485.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6485.jpgsave_picture_6485.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Herdling (2025) [Ru/Multi] (1.1.2) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6486.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6486.jpgsave_picture_6486.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Monospaced Lovers (2024) [Ru/Multi] (1.0.5.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6506.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6506.jpgsave_picture_6506.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ The Unholy Priest (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6518.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6518.jpgsave_picture_6518.jpg" />
 </div>
 
 

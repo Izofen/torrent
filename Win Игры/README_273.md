@@ -6,7 +6,7 @@ Hello Goodboy (2023) [Multi] (1.0.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197562.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197562.jpgsave_picture_197562.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Railway Empire 2 (2023) [Ru/Multi] (1.0.0.51915/dlc) Scene Razor1911 [Digital De
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197594.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197594.jpgsave_picture_197594.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ DOOMBLADE (2023) [Ru/Multi] (0.9) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197600.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197600.jpgsave_picture_197600.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ System Shock (2023) [Ru/Multi] (1.0.16944) Repack Decepticon
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197624.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197624.jpgsave_picture_197624.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Death or Treat (2023) [Ru/Multi] (1.0.4) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197695.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197695.jpgsave_picture_197695.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Panzer Knights (2021) [Ru/Multi] (1.1.7/dlc) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197717.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197717.jpgsave_picture_197717.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Gone Rogue (2023) [Ru/Multi] (1.1) Scene Skidrow
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197788.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197788.jpgsave_picture_197788.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ We. The Refugees: Ticket to Europe (2023) [Multi] (1.0) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197792.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197792.jpgsave_picture_197792.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ HAAK (2022) [Ru/Multi] (1.3.1.17223) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197796.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197796.jpgsave_picture_197796.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Bum Simulator (2023) [Ru/Multi] (3.5.09.a) Scene DOGE
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197830.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197830.jpgsave_picture_197830.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Elypse (2023) [Multi] (1.6) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197847.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197847.jpgsave_picture_197847.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Miasma Chronicles (2023) [Ru/Multi] (11294956) Repack DjDI
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_197906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197906.jpgsave_picture_197906.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Monster Tribe (2023) [En] (1.0) License GOG
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_198009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_198009.jpgsave_picture_198009.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Secrets of Worlds 2: Mystery Agency / Тайны миров 2: Детектив�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_198018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_198018.jpgsave_picture_198018.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Unalive 010 (2023) [Ru/Multi] (1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198136.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198136.jpgsave_picture_198136.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ My Train Arrives (2019) [Ru/Multi] (1.0/dlc) Scene TinyIso [Complete Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198166.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198166.jpgsave_picture_198166.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Infliction: Extended Cut (2018) [Ru/Multi] (3.0.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198170.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198170.jpgsave_picture_198170.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Twin Mind 4: Nobody's Here / Двуединое Сознание 4: Здесь �
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198233.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198233.jpgsave_picture_198233.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Magic City Detective 3: Rage Under Moon / Волшебный город 3: Яр�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198280.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198280.jpgsave_picture_198280.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Edelweiss (2023) [Multi] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198455.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198455.jpgsave_picture_198455.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ DIG - Deep In Galaxies (2023) [Ru/Multi] (1.0.4.2) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198538.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198538.jpgsave_picture_198538.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Backfirewall_ (2023) [Ru/Multi] (10567133) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198540.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198540.jpgsave_picture_198540.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Saga of Sins (2023) [Multi] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198674.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198674.jpgsave_picture_198674.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Cursed Mansion (2023) [En] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198757.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198757.jpgsave_picture_198757.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Solomon Snow: First Contact (2023) [Multi] (1.1.413) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198838.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198838.jpgsave_picture_198838.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Before I Forget (2020) [Multi] (1.0.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198871.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198871.jpgsave_picture_198871.jpg" />
 </div>
 
 

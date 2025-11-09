@@ -6,7 +6,7 @@
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166804.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166804.jpgsave_picture_166804.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ VA - Women in Country 2022 (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues/Country/F
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166805.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166805.jpgsave_picture_166805.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:729F0D0A6594537C5DF97D7B3CDD80BFDDD68FDD
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166806.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166806.jpgsave_picture_166806.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ magnet:?xt=urn:btih:782282A12F64F5518653FBECE53598D0B2BB4F5E
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166807.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166807.jpgsave_picture_166807.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:2952F5DE86C55C7F45EC1AE9AC9F82581315982B
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166808.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166808.jpgsave_picture_166808.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:29F45A3CD47BDF6E60BEBCD84F4FFB814DC052B5
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166809.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166809.jpgsave_picture_166809.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:DC47D70DF2B8EE7AA7B90F1D6AEFC392E0A51C30
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166810.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166810.jpgsave_picture_166810.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ VA - Uplifting Country Rock (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues, Country
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166811.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166811.jpgsave_picture_166811.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Cap Outrun - High On Deception (2021) [FLAC|Lossless|image + .cue] <Melodic Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166812.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166812.jpgsave_picture_166812.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ TNod User & Password Finder 1.7.0.0 Beta [Multi/Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166813.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166813.jpgsave_picture_166813.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ magnet:?xt=urn:btih:1034FEBD6A0D64C04959AE521F83B52D9C79E362
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166814.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166814.jpgsave_picture_166814.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ MusicBee 3.5.8698 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166815.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166815.jpgsave_picture_166815.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ magnet:?xt=urn:btih:7D7C27758F872B910A432B4F0BD5223628C6D913
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166816.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166816.jpgsave_picture_166816.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ magnet:?xt=urn:btih:541AC0A12F9FEC3A5C2E8B55ADEA7F577B4D25A4
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166817.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166817.jpgsave_picture_166817.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ magnet:?xt=urn:btih:AAA274655B0F0F3B7C8BAD15734D87E45B81AB57
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166818.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166818.jpgsave_picture_166818.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Marco Secchi | Multiplayer Game Development with Unreal Engine 5 (2023) [PDF][EN
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166819.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166819.jpgsave_picture_166819.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ FL Studio Producer Edition 20.5.0.1142 Signature Bundle [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166820.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166820.jpgsave_picture_166820.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Paul Candow - Mechanics of Manipulation (2022) [FLAC|Lossless|WEB-DL|tracks] <Bl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166821.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166821.jpgsave_picture_166821.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ magnet:?xt=urn:btih:7FFA9CC45AF29C4AD185A513B6FD1C9EAA0B3634
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166822.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166822.jpgsave_picture_166822.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Alexander M. Freed | Assassin's Creed Valhalla: Forgotten Myths / Комикс �
 >>Комиксы на русском языке
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166823.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166823.jpgsave_picture_166823.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Buffy 85 - Машина смерти (2022) [MP3|320 Kbps] <Hard Rock, Punk Rock
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166824.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166824.jpgsave_picture_166824.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ magnet:?xt=urn:btih:F8F96A265D5938940A8BFE7B6758933C580E1A7A
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166825.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166825.jpgsave_picture_166825.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ magnet:?xt=urn:btih:7BB033F5F0EC95972F1454CB1E3A39B1C8879534
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166826.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166826.jpgsave_picture_166826.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ magnet:?xt=urn:btih:75B05207F991EBEE70112CE64F5C53EFD9F049FD
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166827.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166827.jpgsave_picture_166827.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ magnet:?xt=urn:btih:B88B879B91B733010CD878777D26792D3B1E84A2
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166828.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166828.jpgsave_picture_166828.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Kaspersky Free 2020 20.0.14.1085 (e) RePack by KpoJIuK [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166829.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166829.jpgsave_picture_166829.jpg" />
 </div>
 
 

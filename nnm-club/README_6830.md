@@ -6,7 +6,7 @@ Trash - Burnin' Rock (1985) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234750.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234750.jpgsave_picture_234750.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ GraphicConverter for Mac 12.0.4 Beta [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234752.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234752.jpgsave_picture_234752.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Sarah Vaughan & Woody Herman - On The Radio: The 1963 'Live' Guard Sessions (200
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234753.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234753.jpgsave_picture_234753.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Microsoft .Net Framework 14.09.22 RePack by xetrin [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234754.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234754.jpgsave_picture_234754.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Caro Emerald - The Shocking Miss Emerald (Acoustic Sessions) (2013) [AAC|~301 Kb
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234755.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234755.jpgsave_picture_234755.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ VA - Los Angeles Beach Lounge, Vol. 2 (2018) [AAC|~335 Kbps] <Chill Out, Lounge,
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234756.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234756.jpgsave_picture_234756.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Dan Cummins - The New World (2020) [FLAC|Lossless|WEB-DL|tracks] <Modern Hard Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234757.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234757.jpgsave_picture_234757.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ magnet:?xt=urn:btih:B6EF0621A35CAB8F11699B2A38F3399819D0E113
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234758.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234758.jpgsave_picture_234758.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Adversvm - Dysangelion (2019) [FLAC|Lossless|WEB-DL|tracks] <Funeral Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234759.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234759.jpgsave_picture_234759.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ magnet:?xt=urn:btih:0D1A8038C4FC2B8F9C777D4A0B6900135E42805D
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234760.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234760.jpgsave_picture_234760.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Viper FTP 6.3.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234761.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234761.jpgsave_picture_234761.jpg" />
 </div>
 
 
@@ -291,7 +291,7 @@ VA - Electro Swing New Generation 01 by Bart&Baker: The Best New Electro Swing M
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234762.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234762.jpgsave_picture_234762.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ VA - Spiritual Spa, Vol. 1 (2021) [AAC|~314 Kbps] <Downtempo, Balearic, Chill Ou
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234763.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234763.jpgsave_picture_234763.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Paula Abdul - The Greatest (1998) [OGG Vorbis|480 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234764.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234764.jpgsave_picture_234764.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:D8BB63335BB3E4CDAAB9611BCF79F49E2F4F190E
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234765.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234765.jpgsave_picture_234765.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ VA - Striking Tunes Vol 2 (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234766.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234766.jpgsave_picture_234766.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Bob Brookmeyer - The Dual Role Of Bob Brookmeyer (1954, 1955) 2014, Prestige [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234767.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234767.jpgsave_picture_234767.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ magnet:?xt=urn:btih:00CF03A264A04767C576D83CF543BFC1A8FE3C08
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234768.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234768.jpgsave_picture_234768.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Dorian Gray - Journey Of Mind (1998) [FLAC|Lossless|image + .cue] <Melodic Heavy
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234769.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234769.jpgsave_picture_234769.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Chillhop Guitar - Lo-fi Beat & Smooth Guitar (2020) [AAC|~307 Kbps] <Chill Out, 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234770.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234770.jpgsave_picture_234770.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Graphic Inspector 2 v.2.6.4 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234771.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234771.jpgsave_picture_234771.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Adobe Photoshop Express 8.1.961 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234773.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234773.jpgsave_picture_234773.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ FastStone Capture 10.1 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234774.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234774.jpgsave_picture_234774.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ PotPlayer 220914 (1.7.21801) Stable RePack (& portable) by KpoJIuK (DC 15.09.202
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234775.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234775.jpgsave_picture_234775.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Tunguska - 3 Albums (2016-2021) [FLAC|Lossless|WEB-DL|tracks] <Sludge, Post-Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234776.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234776.jpgsave_picture_234776.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ DropDMG 3.6.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234777.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234777.jpgsave_picture_234777.jpg" />
 </div>
 
 

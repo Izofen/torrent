@@ -6,7 +6,7 @@ Tom Petty & The Heartbreakers - Live at the Fillmore (1977) 2022, Warner Records
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180443.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180443.jpgsave_picture_180443.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:B7915ECCC27923BEB347A1761EA89557BA9555FA
 >>Футбол. Чемпионаты мира
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180447.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180447.jpgsave_picture_180447.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Brain for the Masses - Monachopsis (2022) EP [FLAC|Lossless|WEB-DL|tracks] <Meta
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180450.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180450.jpgsave_picture_180450.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ David Maxim Micic - BILO IV (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180453.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180453.jpgsave_picture_180453.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ magnet:?xt=urn:btih:36BCE561C15016461D29DE4067A8BFD540C50608
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180455.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180455.jpgsave_picture_180455.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ magnet:?xt=urn:btih:81A3C595E9DB3A0776D718CD1EFDC446E0A6FBA1
 >>Футбол. Чемпионаты мира
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180457.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180457.jpgsave_picture_180457.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ magnet:?xt=urn:btih:B86CE0FA29B643D924A89F36E59C03ED38B71E6D
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180459.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180459.jpgsave_picture_180459.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ magnet:?xt=urn:btih:F8593BB50D039A9C4435FC0E371503C740B65476
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180462.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180462.jpgsave_picture_180462.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Lari Basilio - The Sound of My Room (2015) [FLAC|Lossless|image + .cue] <Instrum
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180463.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180463.jpgsave_picture_180463.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ magnet:?xt=urn:btih:51A84971B0552CF1D70C86199CA4F6F3018AE4A7
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180465.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180465.jpgsave_picture_180465.jpg" />
 </div>
 
 
@@ -265,7 +265,7 @@ magnet:?xt=urn:btih:C633E585F0468292832EA39F2824835B36488A2F
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180467.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180467.jpgsave_picture_180467.jpg" />
 </div>
 
 
@@ -289,7 +289,7 @@ magnet:?xt=urn:btih:BC04434D104DBABC01AFB48D3ED5E2F58BD7E991
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180470.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180470.jpgsave_picture_180470.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ magnet:?xt=urn:btih:4B84350D043C941DE0124EA8E4E1D590B9A8DB36
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180473.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180473.jpgsave_picture_180473.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ magnet:?xt=urn:btih:7F90F2182AF82C9EC80A4C4A685AE6F1EEEC6F9D
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180475.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180475.jpgsave_picture_180475.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ magnet:?xt=urn:btih:8C1248BF741F35CD011D921A08801D35D8DDF434
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180478.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180478.jpgsave_picture_180478.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ magnet:?xt=urn:btih:BAA14631AD9529123271CEF0C64DA5E5F2D59B1F
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180481.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180481.jpgsave_picture_180481.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ VA - The Complete Bee Hive Sessions (1977 - 1984) 12CD, 2015, Mosaic Records [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180483.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180483.jpgsave_picture_180483.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ magnet:?xt=urn:btih:C3A7D6C7FAD60A2F88959D8FAF664801F0AE7EA4
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180484.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180484.jpgsave_picture_180484.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ magnet:?xt=urn:btih:B61463D774A00A9547C55BCC48AA6117318055FE
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180485.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180485.jpgsave_picture_180485.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ magnet:?xt=urn:btih:E45AF4F9C2DFBFDA488A1D2A9F70BEC209B94038
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180486.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180486.jpgsave_picture_180486.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Malamorte - God Needs Evil (2020) [FLAC|Lossless|WEB-DL|tracks] <Black Heavy Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180487.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180487.jpgsave_picture_180487.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ magnet:?xt=urn:btih:26C3BDA3A98F57AE08651BF63B70A4B65D4B1542
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180488.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180488.jpgsave_picture_180488.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ magnet:?xt=urn:btih:12368C24CF25620D001991DAB5218BD2DB630967
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180490.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180490.jpgsave_picture_180490.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Danny Wilde - The Boyfriend (1986) Reissue, 2022, Bad Reputation [FLAC|Lossless|
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180492.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180492.jpgsave_picture_180492.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ magnet:?xt=urn:btih:96B6AA824BD442E0B2985363639E879E4880CB55
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180495.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180495.jpgsave_picture_180495.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Assignment - Reflections (2020) [FLAC|Lossless|image + .cue] <Progressive Power 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180496.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180496.jpgsave_picture_180496.jpg" />
 </div>
 
 

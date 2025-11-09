@@ -6,7 +6,7 @@ Clair Obscur: Expedition 33 (2025) [Ru/Multi] (1.4.0/dlc) License GOG [Deluxe Ed
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87.jpgsave_picture_87.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Sengoku Dynasty (2023) [Ru/Multi] (1.1.0.16) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131.jpgsave_picture_131.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Wartales (2021) [Ru/Multi] (1.0.43355/dlc) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159.jpgsave_picture_159.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Coromon (2022) [Ru/Multi] (1.4.1) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162.jpgsave_picture_162.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Wandering Sword (2023) [Multi] (1.24.30/dlc) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176.jpgsave_picture_176.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Alaloth: Champions of The Four Kingdoms (2022) [Ru/Multi] (2025.07.14.17f5b0a/dl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_190.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_190.jpgsave_picture_190.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Seal of Evil (2006) [En] (1.06) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_323.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_323.jpgsave_picture_323.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Achilles: Legends Untold (2023) [Ru/Multi] (1.8.0/dlc) Repack Let'sРlay [Soundt
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_421.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_421.jpgsave_picture_421.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Atelier Yumia: The Alchemist of Memories & The Envisioned Land (2025) [Ru/Multi]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_444.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_444.jpgsave_picture_444.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Wartales (2021) [Ru/Multi] (1.0.43382 HF2/dlc) Repack Let'sРlay [The Mercenarie
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_449.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_449.jpgsave_picture_449.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Wartales (2021) [Ru/Multi] (1.0.43355/dlc) Repack seleZen [The Mercenaries Editi
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_657.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_657.jpgsave_picture_657.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Knock on the Coffin Lid (2020) [Ru/Multi] (1.3.5.3/dlc) License GOG [Complete Ed
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_668.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_668.jpgsave_picture_668.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Achilles: Legends Untold (2023) [Ru/Multi] (1.8.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_672.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_672.jpgsave_picture_672.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Hellcard (2024) [Ru/Multi] (1.1.250807/dlc) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_680.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_680.jpgsave_picture_680.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Tainted Grail: The Fall of Avalon (2023) [Ru/Multi] (1.1.0b/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_725.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_725.jpgsave_picture_725.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Core Keeper (2022) [Ru/Multi] (1.1.2.4-fb3f) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_730.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_730.jpgsave_picture_730.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Kingdom Come: Deliverance II (2) (2025) [Ru/Multi] (1.4.37/dlc) License GOG [Gol
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_930.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_930.jpgsave_picture_930.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Crashlands 2 (2025) [Ru/Multi] (1.3.0-rc.2) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1080.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1080.jpgsave_picture_1080.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Lies of P (2023) [Ru/Multi] (1.12.0.0/dlc) Repack Let'sРlay [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1082.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1082.jpgsave_picture_1082.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Elden Ring Nightreign (2025) [Ru/Multi] (1.02.3/dlc) Repack SE7EN [Deluxe Editio
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1112.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1112.jpgsave_picture_1112.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Warhammer 40,000: Space Marine (2025) [Ru/Multi] (1.0.1041.4326/dlc) Repack Want
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1216.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1216.jpgsave_picture_1216.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ WUCHANG: Fallen Feathers (2025) [Ru/Multi] (179243/dlc) Repack Let'sРlay [Delux
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1250.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1250.jpgsave_picture_1250.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ The Legend of Heroes: Trails through Daybreak II (2025) [Multi] (1.2.15/dlc) Lic
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1258.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1258.jpgsave_picture_1258.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ WUCHANG: Fallen Feathers (2025) [Ru/Multi] (179243/dlc) Repack Wanterlude [Delux
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1262.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1262.jpgsave_picture_1262.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ You Will Die Here Tonight (2023) [Multi] (1.1.3.1_b) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1349.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1349.jpgsave_picture_1349.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Reality Break (2025) [Multi] (1.1.1) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1373.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1373.jpgsave_picture_1373.jpg" />
 </div>
 
 

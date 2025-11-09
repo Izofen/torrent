@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1649.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1649.jpgsave_picture_1649.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Purvpn 9.3 [En/Farsi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1650.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1650.jpgsave_picture_1650.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Ravenswatch (2023) [Ru/Multi] (1.03.01.00.26879/dlc) Repack Other s [Supporter E
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1651.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1651.jpgsave_picture_1651.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ VueScan Pro 9.8.47.01 RePack (& Portable) by elchupacabra (DC 15.09.2025) [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1652.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1652.jpgsave_picture_1652.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ YT Downloader 9.17.3 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1653.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1653.jpgsave_picture_1653.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Device Info / Информация об устройстве v3.4.0.2 Mod by Bal
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1654.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1654.jpgsave_picture_1654.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:5EED5CC41CDD170D49EE51A13B652269A59CA155
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1655.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1655.jpgsave_picture_1655.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ O&O SafeErase 20.0.575 RePack by elchupacabra [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1656.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1656.jpgsave_picture_1656.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:6DC594F7BC6DD5B140EE1FA2E6BFCD237AE36870
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1657.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1657.jpgsave_picture_1657.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:CE6F00D0BA244ABA2F70A169A436A34B737F086C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1658.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1658.jpgsave_picture_1658.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:7361E1A6B3F8068A6D729760FE240FD345AF08C8
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1659.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1659.jpgsave_picture_1659.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ magnet:?xt=urn:btih:65943600F463D361D132F31AA627D7BF351B6CF7
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1660.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1660.jpgsave_picture_1660.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Extreme Picture Finder 3.67.4.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1661.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1661.jpgsave_picture_1661.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Wise Disk Cleaner 11.2.6.846 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1662.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1662.jpgsave_picture_1662.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ magnet:?xt=urn:btih:C9147EDE9002CAE9CE4EE0DAD1B5374E7770E76F
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1663.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1663.jpgsave_picture_1663.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Lawn Mowing Simulator (2021) [Ru/Multi] (1.0.15.0/dlc) Repack FitGirl [Complete 
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1664.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1664.jpgsave_picture_1664.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ magnet:?xt=urn:btih:B021375979300708380BD34476333BE9F8D916B8
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1665.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1665.jpgsave_picture_1665.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ magnet:?xt=urn:btih:2AD185DFC685E23818A14D0F701C5E166E35E607
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1666.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1666.jpgsave_picture_1666.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ magnet:?xt=urn:btih:B0C81D18487069F4EAF4092D1703954AE487CB9A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1667.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1667.jpgsave_picture_1667.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ Windows Manager 2.1.7 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1668.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1668.jpgsave_picture_1668.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ ES File Explorer File Manager v4.4.3.3 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1669.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1669.jpgsave_picture_1669.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ Sense Flip Clock & Weather v8.44.2 Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1670.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1670.jpgsave_picture_1670.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ IPTV Pro v9.1.8 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1671.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1671.jpgsave_picture_1671.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ WinTools.net Premium 25.10.1 Premium RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1672.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1672.jpgsave_picture_1672.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ TRAIL OUT (2022) [Ru/Multi] (5.0/dlc) Repack FitGirl [Complete]
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1673.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1673.jpgsave_picture_1673.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ magnet:?xt=urn:btih:E436B3A4C6024A7058A22E7B5669261290CB2977
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1674.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1674.jpgsave_picture_1674.jpg" />
 </div>
 
 

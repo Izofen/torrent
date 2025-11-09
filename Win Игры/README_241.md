@@ -6,7 +6,7 @@ Hitman 2 (2018) [Ru/Multi] (2.72.0hf/dlc) Repack xatab [Gold Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146590.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146590.jpgsave_picture_146590.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Oxygen Cocktail (2023) [Ru/Multi] (1.0) License GOG
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146617.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146617.jpgsave_picture_146617.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ March of Shrooms (2023) [En] (m309e) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146794.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146794.jpgsave_picture_146794.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Hidden Expedition 17: The Altar of Lies / Секретная экспедици�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146849.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146849.jpgsave_picture_146849.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ PuppetShow 15: Porcelain Smile (2018) [En] (Beta) Unofficial
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146856.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146856.jpgsave_picture_146856.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Mystery of the Ancients 8: No Escape (2018) [En] (Beta) Unofficial
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146943.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146943.jpgsave_picture_146943.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Waking Mars [En] (L) 2012 | -JAGUAR-
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146967.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146967.jpgsave_picture_146967.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Ms. Holmes 3: The Adventure of the McKirk Ritual (2021) [En] (1.0) Unofficial [C
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147004.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147004.jpgsave_picture_147004.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Super Meat Boy Forever (2020) [Ru/Multi] (1.0) License CODEX
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147018.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147018.jpgsave_picture_147018.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ The Seven Chambers (2018) [En] (1.0) Unofficial
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147036.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147036.jpgsave_picture_147036.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Air Conflicts: Pacific Carriers / Асы Тихого океана [Ru/En/Multi6
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147163.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147163.jpgsave_picture_147163.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Galaxy on Fire 2 Full HD [Ru/En/Multi11] (Steam-Rip/1.0.3) 2012 | R.G. Игро�
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147184.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147184.jpgsave_picture_147184.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Red Faction Anthology (2001-2011) [Ru/En] Repack R.G. Механики
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147400.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147400.jpgsave_picture_147400.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Rock of Ages [Ru/En/Multi7] (Steam-Rip/1.10c) 2011 | R.G. Игроманы
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147440.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147440.jpgsave_picture_147440.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Hand of Fate (2014) [Ru/Multi] (1.3.14/dlc) Repack R.G. Механики
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147470.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147470.jpgsave_picture_147470.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Champions of Anteria (2016) [Multi] (1.7.499537.X/dlc) License PLAZA
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147475.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147475.jpgsave_picture_147475.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Champions of Anteria (2016) [En/Ita] (1.7.499537.X) License CPY
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147686.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147686.jpgsave_picture_147686.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ Hundred Days - Winemaking Simulator (2021) [Ru/Multi] (1.3.1/dlc) Repack Other s
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148024.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148024.jpgsave_picture_148024.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ Stray Blade (2023) [Ru/Multi] (20231116/dlc) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148234.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148234.jpgsave_picture_148234.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Celeste (2018) [Ru/Multi] (1.2.5.1) License SKIDROW
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148262.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148262.jpgsave_picture_148262.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Christmas Adventures 2: A Winter Night's Dream / Рождественское п
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148298.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148298.jpgsave_picture_148298.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Word of the Law: Death Mask (2021) [Ru] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148303.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148303.jpgsave_picture_148303.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Hydrofoil Generation (2023) [En] (1.0.1) Scene Tenoke
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148328.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148328.jpgsave_picture_148328.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ FlashBack 2 (2023) [Multi] (1.00) Scene FAiRLIGHT
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148400.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148400.jpgsave_picture_148400.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Chimeras 10: The Price of Greed / Химеры 10. Цена алчности (20
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148415.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148415.jpgsave_picture_148415.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ League of Light 7: Growing Threat / Лига Света 7: Растущая уг
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148486.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148486.jpgsave_picture_148486.jpg" />
 </div>
 
 

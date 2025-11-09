@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181725.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181725.jpgsave_picture_181725.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Jazzamor - Don't Let Your Angels Go (2022) [FLAC|Lossless|WEB-DL|tracks] <Nu-Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181728.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181728.jpgsave_picture_181728.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Merion Academy, Иван Тишин | Администрирование MS Wind
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181729.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181729.jpgsave_picture_181729.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ magnet:?xt=urn:btih:72773560D96582070500834F7332A5D59E5670B7
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181732.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181732.jpgsave_picture_181732.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ magnet:?xt=urn:btih:639485F247E6F8C32925D684A5E50362B75A5288
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181733.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181733.jpgsave_picture_181733.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ magnet:?xt=urn:btih:8E9249190A2EF6EFC30D6143A5FC2477BF6610A5
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181736.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181736.jpgsave_picture_181736.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ magnet:?xt=urn:btih:E9542FF5F6E97012AC62AAACBCA89717E3126F91
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181737.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181737.jpgsave_picture_181737.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ Dekiru Neko wa Kyou mo Yuuutsu | The Masterful Cat Is Depressed Again Today | К
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181740.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181740.jpgsave_picture_181740.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ HWiNFO 7.33 Build 4920 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181741.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181741.jpgsave_picture_181741.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ K-Lite Codec Pack Update 17.3.1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181743.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181743.jpgsave_picture_181743.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:80A835FE216D796417A5EE4B167770287ABB4B16
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181745.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181745.jpgsave_picture_181745.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ Nickelback - Get Rollin' (2022) Deluxe Edition [FLAC|Lossless|tracks + .cue] <Al
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181747.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181747.jpgsave_picture_181747.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ magnet:?xt=urn:btih:869F56C46A118CA77D0BAEE858F58EB69D25E868
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181753.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181753.jpgsave_picture_181753.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ magnet:?xt=urn:btih:D3D0953D2498D594135B6027489F4CCFDDD4FB56
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181757.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181757.jpgsave_picture_181757.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ magnet:?xt=urn:btih:1268D4E76DE08FF6989D440192845F664BC2CB3E
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181758.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181758.jpgsave_picture_181758.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ magnet:?xt=urn:btih:D00D676F5BB76CB432D83582DF72084BF0862B18
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181762.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181762.jpgsave_picture_181762.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ VA - Ministry of Sound - The Annual 2023 (2022) [MP3|320 Kbps] <Dance>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181763.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181763.jpgsave_picture_181763.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Asia - Alpha (1983) Japanese Edition, Reissue, 2022, Universal [FLAC|Lossless|im
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181767.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181767.jpgsave_picture_181767.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ magnet:?xt=urn:btih:FFE5567ABACC40E1625DE9EEA3A7B69054F7712B
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181769.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181769.jpgsave_picture_181769.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ magnet:?xt=urn:btih:514B7BF9E3865E612AFAA9A102470E04914CDD1A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181771.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181771.jpgsave_picture_181771.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ magnet:?xt=urn:btih:85C2CFEE7B074D3BC1C8AFB4E4A1483C657E7DC3
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181776.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181776.jpgsave_picture_181776.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ VA - 100% Club Hits 2023 (2022) [MP3|320 Kbps] <Electro, House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181777.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181777.jpgsave_picture_181777.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ magnet:?xt=urn:btih:C0656E69ED4AEA4B14E3BAD915E9511E8CA70E3C
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181781.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181781.jpgsave_picture_181781.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Various - Pure... 70s (2013) 4 CD [OGG Vorbis|480 Kbps] <Rock, Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181782.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181782.jpgsave_picture_181782.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Edens Zero 2 | Нулевой Эдем [ТВ-2] [2023, TV, 25 из 25] WEBRip 72
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181784.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181784.jpgsave_picture_181784.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ magnet:?xt=urn:btih:0A8DCB0672A760656B2BA8DE31D692494645DDB8
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181786.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181786.jpgsave_picture_181786.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Arabs In Aspic - Live at Avantgarden (2018) Remaster, 2023, Apollon Records [FLA
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176103.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176103.jpgsave_picture_176103.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Nuclear Assault - Studio Albums (6 releases) (1986 - 2005) hand made [restored, 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176126.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176126.jpgsave_picture_176126.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Psygnosis - AAliens (2015) EP [FLAC|24/192|image + .cue|Vinyl-Rip] <Industrial, 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176139.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176139.jpgsave_picture_176139.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Kingston Wall - II (1993) Mix, 2023, WM Finland [FLAC 24/96|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176141.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176141.jpgsave_picture_176141.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Eradikated - Descendants (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Thrash Meta
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176145.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176145.jpgsave_picture_176145.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Kingston Wall - I (1992) Mix, 2023, WM Finland [FLAC 24/96|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176155.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176155.jpgsave_picture_176155.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ magnet:?xt=urn:btih:4AF158D4A9E163583DC8F821D3261D425F69062C
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176404.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176404.jpgsave_picture_176404.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ magnet:?xt=urn:btih:7D01822FF13DE433B4100F1E1E46B6215FB5735A
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176509.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176509.jpgsave_picture_176509.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ Portal - Ion (2018) [FLAC|24/192|image + .cue|Vinyl-Rip]<Experimental Death Meta
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177613.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177613.jpgsave_picture_177613.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Pretty Maids - Studio Albums (17 releases) (1983 - 2019) hand made [restored, de
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177838.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177838.jpgsave_picture_177838.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:873528554EF0589C946A6845EDFF0D18AC897748
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177947.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177947.jpgsave_picture_177947.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Van Halen - The Collection II (2023) Remaster [FLAC 24/96|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_178126.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_178126.jpgsave_picture_178126.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Leaves - All I See Is A Blurred Me (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178209.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178209.jpgsave_picture_178209.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ The Darkness - Permission To Land... Again (2003) 20th Anniversary Edition, 2023
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178297.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178297.jpgsave_picture_178297.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Steeler - Steeler (1983) [FLAC|24/96|image + .cue|Vinyl-Rip] <Heavy Metal>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178333.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178333.jpgsave_picture_178333.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Epica - Live At AFAS Live (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Symphonic 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178341.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178341.jpgsave_picture_178341.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ Trevor Rabin - Rio (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Crossover Prog>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178348.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178348.jpgsave_picture_178348.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Iron Savior - Firestar (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Power Metal
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178384.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178384.jpgsave_picture_178384.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Occams Laser - New Blood III (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <UK Sy
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178389.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178389.jpgsave_picture_178389.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Karfagen, Sunchild & Hoggwash - A Message of Peace Tour Live (2023) [FLAC 24/48|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178391.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178391.jpgsave_picture_178391.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ The Riverboat Minstrels - Stereo Minstrel Show (1971) [FLAC 2.0|24/96|image + .c
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178416.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178416.jpgsave_picture_178416.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Svalbard - The Weight Of The Mask (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Po
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178421.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178421.jpgsave_picture_178421.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ Roger Waters - The Dark Side of the Moon Redux (2023) [FLAC 24/96|Lossless|WEB-D
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178702.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178702.jpgsave_picture_178702.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ Prince & The New Power Generation - Diamonds and Pearls (1991) Remaster, 2023,  
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178851.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178851.jpgsave_picture_178851.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ Dogstar - Somewhere Between the Power Lines and Palm Trees (2023) [FLAC 24/48|Lo
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178949.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178949.jpgsave_picture_178949.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ Scar Symmetry - Studio Albums (7 releases) (2005-2023) hand made [restored, decl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178953.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178953.jpgsave_picture_178953.jpg" />
 </div>
 
 

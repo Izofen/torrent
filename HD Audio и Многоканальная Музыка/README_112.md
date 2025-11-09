@@ -6,7 +6,7 @@ Wheel - Hip Eponymous (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104744.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104744.jpgsave_picture_104744.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Fullria - Aqueles Dias (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104747.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104747.jpgsave_picture_104747.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Joe Calabro - The Storm (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104748.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104748.jpgsave_picture_104748.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Spitfyre - Fall Of Empires (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Metal>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104752.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104752.jpgsave_picture_104752.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Hozier - Unreal Unearth (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues, Folk>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104755.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104755.jpgsave_picture_104755.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Egali Zunno - Human Foundation (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Har
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104786.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104786.jpgsave_picture_104786.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Cat Stevens - Foreigner (1973) Remastered, 2024, UMC [FLAC 24/96|Lossless|WEB-DL
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104790.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104790.jpgsave_picture_104790.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Body Meat - Starchris (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Pop Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104794.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104794.jpgsave_picture_104794.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Bonsai Kitten - Let It Burn (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Hard Roc
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104795.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104795.jpgsave_picture_104795.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Palaye Royale - Death or Glory (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104798.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104798.jpgsave_picture_104798.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Oceano - Living Chaos (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Deathcore>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104801.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104801.jpgsave_picture_104801.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Piper and The Hard Times - Revelation (2024) [FLAC 24/44.1|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104803.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104803.jpgsave_picture_104803.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Shane Allessio - Tripp City (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104804.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104804.jpgsave_picture_104804.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Relaxing Piano Man - On the Road Again (2024) [FLAC 24/44.1|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104808.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104808.jpgsave_picture_104808.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Soft Jazz Mood, Jazz Guitar Music Zone, Old School Funk Squad - Highway Jazz: Hi
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104809.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104809.jpgsave_picture_104809.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Los Bitchos - Talkie Talkie (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternat
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104812.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104812.jpgsave_picture_104812.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Roberta Gambarini & Hank Jones - You Are There (2024) [FLAC 24/96|Lossless|WEB-D
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104814.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104814.jpgsave_picture_104814.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Steve Smith and The Sneakers - The Glory Road (2024) [FLAC 24/44.1|Lossless|WEB-
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104815.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104815.jpgsave_picture_104815.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Katrina SoulSinger - Category 5 (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Bl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104816.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104816.jpgsave_picture_104816.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Zaphica - Zaphica (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104817.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104817.jpgsave_picture_104817.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Steve Smith and The Sneakers - Hoodoo Man (2024) [FLAC 24/44.1|Lossless|WEB-DL|t
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104818.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104818.jpgsave_picture_104818.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Tim Armacost feat. Tom Harrell, Gary Smulyan, John Patitucci & Al Foster - Somet
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104819.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104819.jpgsave_picture_104819.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Taj Farrant - Chapter One (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104820.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104820.jpgsave_picture_104820.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Steve Smith and The Sneakers - Hopeless Troubadour (2024) [FLAC 24/44.1|Lossless
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104821.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104821.jpgsave_picture_104821.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ TMS Underscores - Cool Like That Jazz! (2024) [FLAC 24/44.1|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104823.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104823.jpgsave_picture_104823.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Peter Ndlala - Beira (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104825.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104825.jpgsave_picture_104825.jpg" />
 </div>
 
 

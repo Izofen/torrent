@@ -6,7 +6,7 @@ Media Player Classic - BE v1.1.3.0 [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131811.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131811.jpgsave_picture_131811.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Media Player Classic - BE – универсальный проигрывате�
 >>Зарубежная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131812.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131812.jpgsave_picture_131812.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ Google Chrome 120.0.6099.63 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131814.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131814.jpgsave_picture_131814.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:D06E4CF0C89A02017C2BAD9FAC294E42C9C6A9F1
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131815.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131815.jpgsave_picture_131815.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:38AE8E2E9BA0F6D2EFE4C97D901EC680F5514C07
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131817.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131817.jpgsave_picture_131817.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:6B3E3D0B7D5D368A6ABAC725E3C8B9D045B68164
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131818.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131818.jpgsave_picture_131818.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:FBCF6D6A0A0114D2CA5C0E8B2F165CDA5F6B6967
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131820.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131820.jpgsave_picture_131820.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Carl Philipp Emanuel Bach, Keith Jarrett - Carl Philipp Emanuel Bach (2023) [FLA
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131821.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131821.jpgsave_picture_131821.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:E53021E948485FD6A416FD948FC6E36777B87ACC
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131822.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131822.jpgsave_picture_131822.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ BBC. Подделка или удача / Fake or Fortune? (2015) HDTVRip (се�
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131823.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131823.jpgsave_picture_131823.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ BBC. Подделка или удача / Fake or Fortune? (2014) HDTVRip (се�
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131824.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131824.jpgsave_picture_131824.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ magnet:?xt=urn:btih:EFBDC5DE035456FF0484E5DE48CF3F334B6A74E4
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131825.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131825.jpgsave_picture_131825.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:93196BCD83732613E35353E23BC35E8953B84621
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131826.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131826.jpgsave_picture_131826.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ magnet:?xt=urn:btih:55578CAD547B853B0BC9A525386E247DBCF1F506
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131827.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131827.jpgsave_picture_131827.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ BBC. Подделка или удача / Fake or Fortune? (2012) HDTVRip (се�
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131829.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131829.jpgsave_picture_131829.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ magnet:?xt=urn:btih:242C44C91DA3FEE77968391F7649B334A3B8E4CB
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131831.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131831.jpgsave_picture_131831.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Frank Farian - Star-Discothek (1978) LP [MP3|320 Kbps] <Pop, Schlager>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131833.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131833.jpgsave_picture_131833.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ magnet:?xt=urn:btih:2266F3CD91DC8F9F143DD12C93606E1C0944BA78
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131835.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131835.jpgsave_picture_131835.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ magnet:?xt=urn:btih:2266F3CD91DC8F9F143DD12C93606E1C0944BA78
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131836.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131836.jpgsave_picture_131836.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ StartIsBack 1.3 RePack by CRD [Русский / Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131837.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131837.jpgsave_picture_131837.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ StartIsBack возвращает в Windows 8 полнофункциональн
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131838.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131838.jpgsave_picture_131838.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ StartIsBack возвращает в Windows 8 полнофункциональн
 >>Книжная иллюстрация
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131839.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131839.jpgsave_picture_131839.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ Marilyn Manson - The Golden Age Of Grotesque (2003) Deluxe Edition, 2006, Univer
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131840.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131840.jpgsave_picture_131840.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ Marc Dorcel Calendar 2013
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131841.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131841.jpgsave_picture_131841.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ Skype 8.110.0.211 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131842.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131842.jpgsave_picture_131842.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ magnet:?xt=urn:btih:75D74612B25BD0FC035E444F6EF3B81CD4906C46
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131844.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131844.jpgsave_picture_131844.jpg" />
 </div>
 
 

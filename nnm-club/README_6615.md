@@ -6,7 +6,7 @@ aespa - Live Tour Synk Parallel Line in Tokyo Dome [Special Edition] (2025) [H.2
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213439.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213439.jpgsave_picture_213439.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Winter (aespa) - Spark (2024) WEBRip [H.265/2160p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213440.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213440.jpgsave_picture_213440.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Song HaYea - Why did you love me (2025) WEBRip [H.265/2160p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213441.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213441.jpgsave_picture_213441.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ SooRin - Sure Thing (2025) WEBRip [H.265/2160p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213442.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213442.jpgsave_picture_213442.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Miyeon - Sky Walking (Special) (2025) WEBRip [H.265/2160p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213443.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213443.jpgsave_picture_213443.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ JinSoul - Ring of Chaos [4K 60fps 24bit BagsUpZ] 2025 (2025) WEBRip [H.265/2160p
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213444.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213444.jpgsave_picture_213444.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Cowon jetAudio 8.1.11.22010 [Multi/Ru]
 >>Видео Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213445.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213445.jpgsave_picture_213445.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ PrivaZer Pro 4.0.114 + Portable [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213446.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213446.jpgsave_picture_213446.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:D85515631973CFC48EE769DD0855C9309D5E58D1
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213447.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213447.jpgsave_picture_213447.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ The Black Ice (2025) [Ru/Multi] (1.0) Repack Other s [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213448.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213448.jpgsave_picture_213448.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:55C6D8473A1B0E204DD818098CFFEEB236DAFB9B
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213449.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213449.jpgsave_picture_213449.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:68797F972096080E7DA787C7053704836F4275AA
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213450.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213450.jpgsave_picture_213450.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:806822388867A3C6B7DF8DBEB2422E8732E93D84
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213451.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213451.jpgsave_picture_213451.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ magnet:?xt=urn:btih:FD707C1BF7201853EB3CAA47757C05C011643C49
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213452.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213452.jpgsave_picture_213452.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ magnet:?xt=urn:btih:238932E6D78E642E47A0B0C5E6CF6475709DE216
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213453.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213453.jpgsave_picture_213453.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ Frank Zappa - Halloween 78 (Super Deluxe - Live At The Palladium, NYC - October,
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213454.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213454.jpgsave_picture_213454.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ magnet:?xt=urn:btih:8BF11D9A1CEC570EA953591E4273BCA200905177
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213455.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213455.jpgsave_picture_213455.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ magnet:?xt=urn:btih:3747DD87894BD5D370F87743FA26C60AEBDF3DAD
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213456.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213456.jpgsave_picture_213456.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ magnet:?xt=urn:btih:C82CBAB9886240BE855DD49D1319B0FCAC83E6EF
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213457.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213457.jpgsave_picture_213457.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ magnet:?xt=urn:btih:3033319A13FCEDE5093A30BC6B9F307D8D4F5CCB
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213458.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213458.jpgsave_picture_213458.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ magnet:?xt=urn:btih:E67004ED0C195CEB8E71526069648D67095D97E5
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213459.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213459.jpgsave_picture_213459.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ magnet:?xt=urn:btih:2F805ED3AED5032D36158866E7030430E19D41B9
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213460.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213460.jpgsave_picture_213460.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ magnet:?xt=urn:btih:C987771D9DDC396EDD99D222646BDCC315E021B9
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213461.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213461.jpgsave_picture_213461.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ magnet:?xt=urn:btih:C203811321341653F7BCB47CFE4F665FE64686D6
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213462.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213462.jpgsave_picture_213462.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ magnet:?xt=urn:btih:BC5EF184F0FD68B5FD38DC3A91A76607EEB7968E
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213463.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213463.jpgsave_picture_213463.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ Beneath (2025) [Ru/Multi] (0.9920f/dlc) Repack seleZen
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213464.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213464.jpgsave_picture_213464.jpg" />
 </div>
 
 

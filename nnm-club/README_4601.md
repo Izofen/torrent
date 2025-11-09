@@ -6,7 +6,7 @@
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144026.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144026.jpgsave_picture_144026.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ VA - Наше Радио. Лучшее '2019 MP3  (2019) от DON Music [MP3|256
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144027.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144027.jpgsave_picture_144027.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:055A8F0CFAC68EEF9DE7F65E1A29D33DD985D293
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144029.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144029.jpgsave_picture_144029.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:295B9A4167A8EB67F0FE974113CB54B6C7FE94C7
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144030.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144030.jpgsave_picture_144030.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ Bullet-Proof - Cell Xix (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Thras
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144031.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144031.jpgsave_picture_144031.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ magnet:?xt=urn:btih:BDD3E977E3626838301BA62F9411DCC32A2BEDCA
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144032.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144032.jpgsave_picture_144032.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:05B93A7FF93CFAA009094785CEC586800F25BB67
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144033.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144033.jpgsave_picture_144033.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ Xliff Editor 2.9.7.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144034.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144034.jpgsave_picture_144034.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ FoneDog Toolkit for iOS on Mac 2.1.88 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144035.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144035.jpgsave_picture_144035.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ magnet:?xt=urn:btih:ED8EABCBF5FF0C31463A2BBAD1E5162B0318653A
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144037.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144037.jpgsave_picture_144037.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ magnet:?xt=urn:btih:8334D2CC26AC3B996991BA3EAE2A748D9DDA2A3B
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144038.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144038.jpgsave_picture_144038.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ magnet:?xt=urn:btih:705927EA60BD7194E18CB5277154E235041D8EE8
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144039.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144039.jpgsave_picture_144039.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ magnet:?xt=urn:btih:F1945E3C80E22494B31A64EA8BC359099006CF40
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144040.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144040.jpgsave_picture_144040.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ magnet:?xt=urn:btih:54B20B996F4FE5238D52096BCD5F22082D6C9728
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144041.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144041.jpgsave_picture_144041.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Stellar Phoenix Windows Data Recovery Pro 9.0.0.0 [En]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144042.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144042.jpgsave_picture_144042.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Powder Burns - ... На Горячей Земле (2023) [FLAC|Lossless|WEB-DL|t
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144043.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144043.jpgsave_picture_144043.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Adobe Photoshop CC 2015.1.1 (20151209.r.327) Portable by PortableWares (28.12.20
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144044.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144044.jpgsave_picture_144044.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Dalida - 50 De Succese Disco (1978) LP [MP3|320 Kbps] <Pop, Funk-Soul, Disco>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144045.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144045.jpgsave_picture_144045.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Santa Claus & D'Jingle Bells - That's Eurobeat Christmas (1993) [FLAC|Lossless]<
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144046.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144046.jpgsave_picture_144046.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Charlie Barnet - 1939-1940 (2002) Classics [FLAC|Lossless|tracks + .cue] <Swing,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144047.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144047.jpgsave_picture_144047.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ Ajin 2 | Полулюди [ТВ-2] [2016, TV, 13] HDTV 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144048.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144048.jpgsave_picture_144048.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ ColorWell 7.3.3.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144049.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144049.jpgsave_picture_144049.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ magnet:?xt=urn:btih:1ABB32EB8FAD9779B4536830EBCE15E82A0ABA23
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144050.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144050.jpgsave_picture_144050.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ magnet:?xt=urn:btih:62035FE117AD11A92A5FAAED08E236B26ACC785E
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144051.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144051.jpgsave_picture_144051.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Zомбилэнд: Контрольный выстрел / Zombieland: Double Ta
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144052.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144052.jpgsave_picture_144052.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ RSO - Rise (2017) EP, Orianthi feat. Richie Sambora [MP3|320 Kbps] <Pop Rock, Gu
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144054.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144054.jpgsave_picture_144054.jpg" />
 </div>
 
 

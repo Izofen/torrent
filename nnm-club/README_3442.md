@@ -6,7 +6,7 @@ MediaHuman YouTube Downloader 3.9.9.92 (0509) RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109853.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109853.jpgsave_picture_109853.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Velen 2.0 / Велен 2.0 (2019) [Ru/Multi] (2.1.3) License
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109854.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109854.jpgsave_picture_109854.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ WinToUSB Technician 8.8 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109855.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109855.jpgsave_picture_109855.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:01C84CD6FABF49F374A4B2E37EABC02B83CB0580
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109856.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109856.jpgsave_picture_109856.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Fitify: Фитнес тренировки дома 1.71.1 Mod by Balatan [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109857.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109857.jpgsave_picture_109857.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:126FC88CAF16D78CDCFF07CA2194A5A53EBB1489
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109858.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109858.jpgsave_picture_109858.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:69C7BABC4928A24F84B6D5392E0FF923717BF6F9
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109859.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109859.jpgsave_picture_109859.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:128E4BD0434CA512E9D6F8C6FF9B70AA0594ECFE
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109860.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109860.jpgsave_picture_109860.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Lynx - Claws Out (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock, Glam M
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109861.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109861.jpgsave_picture_109861.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Brodequin - Created to Kill (2002) Split [FLAC|Lossless|image + .cue] <Brutal De
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109862.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109862.jpgsave_picture_109862.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:6D31A1FDE2971DF883ECDFBE637B2E474F8F3753
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109863.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109863.jpgsave_picture_109863.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:C54A8625E78022018F8F1768191AA59A9C45FFFE
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109864.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109864.jpgsave_picture_109864.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:9FDCA1421DACD7514D883033363BE9AA4CBCA857
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109865.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109865.jpgsave_picture_109865.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ magnet:?xt=urn:btih:B97320CBAB4576ED6141B5F7610EE9D540933013
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109866.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109866.jpgsave_picture_109866.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ magnet:?xt=urn:btih:05DE77D5D2A31786983C896B4C775A82C74D8F3D
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109867.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109867.jpgsave_picture_109867.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ magnet:?xt=urn:btih:5B7B1507D7329F8E940C4CC87BF6CEA62485E560
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109868.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109868.jpgsave_picture_109868.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ magnet:?xt=urn:btih:5D91F07F539F01BD6C6615E866F147A050E286BC
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109869.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109869.jpgsave_picture_109869.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ Brodequin - Harbinger of Woe (2024) [FLAC|Lossless|image + .cue] <Brutal Death M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109870.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109870.jpgsave_picture_109870.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ magnet:?xt=urn:btih:7304C23EC6DD532B24FB5DEDD3B78297DA7B91F2
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109871.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109871.jpgsave_picture_109871.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ magnet:?xt=urn:btih:9551B76D450E4C35E94DB2F69F0FF667331EF024
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109872.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109872.jpgsave_picture_109872.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ magnet:?xt=urn:btih:CEEE6C1D6E643DD2AB9CF672CD160D867DC33248
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109873.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109873.jpgsave_picture_109873.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ magnet:?xt=urn:btih:05FA30461649565F4CF5B1203FA4156CDFD3E860
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109874.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109874.jpgsave_picture_109874.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ Crownshift - Crownshift (2024) [MP3|320 Kbps] <Melodic Death Metal, Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109875.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109875.jpgsave_picture_109875.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ magnet:?xt=urn:btih:A3496A7875D41B92995B1AE617371881A70C20E2
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109876.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109876.jpgsave_picture_109876.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Six Feet Under - Killing for Revenge (2024) [FLAC|Lossless|WEB-DL|tracks] <Death
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109877.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109877.jpgsave_picture_109877.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Ancient Empire - Priest Of Stygia (2021) [FLAC|Lossless|image + .cue] <Heavy Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109878.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109878.jpgsave_picture_109878.jpg" />
 </div>
 
 

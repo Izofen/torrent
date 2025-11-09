@@ -6,7 +6,7 @@ Battle of the Gods - Последняя Песнь Аспида (2023) [FLAC|24/
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_229138.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_229138.jpgsave_picture_229138.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Decharot - Vemana (2022) [FLAC|Lossless|WEB-DL|tracks] <Death, Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229140.jpgsave_picture_229140.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Desires Dawn - Один (2022) [MP3|320 Kbps] <Metalcore, Post Hardcore>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229147.jpgsave_picture_229147.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Sudden Deaf - Havoc (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Stoner, Pr
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229154.jpgsave_picture_229154.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Korn (KoЯn) - Untitled (2007) Deluxe, 2023, Tempo Music [FLAC|Lossless|WEB-DL|t
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_229156.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_229156.jpgsave_picture_229156.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Lordi - Lordiversity: Superflytrap (2021) [MP3|320 Kbps] <Hard Rock>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229178.jpgsave_picture_229178.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Epica - Consign To Oblivion (Live At The Afas Live) (2023) EP [FLAC|Lossless|WEB
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_229185.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_229185.jpgsave_picture_229185.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Traitors Among Us - Perceptions (2022) [FLAC|Lossless|WEB-DL|tracks] <Metalcore,
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229197.jpgsave_picture_229197.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ magnet:?xt=urn:btih:04193C98FE132289D6AA3FD18C3B8D5B75F7C867
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229198.jpgsave_picture_229198.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Sevendust - Truth Killer (2023) [FLAC|Lossless|WEB-DL|tracks] <Alt. Metal>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_229202.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_229202.jpgsave_picture_229202.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Get Cold - 3 Relise (2014-2022) [MP3|320 Kbps] <Emo Punk, Alternative Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229205.jpgsave_picture_229205.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Red Usurper - Abandon (2022) [FLAC|Lossless|WEB-DL|tracks] <Sludge, Doom, Groove
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229214.jpgsave_picture_229214.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Eternity's End - Embers Of War (2021) [FLAC|Lossless|WEB-DL|tracks] <Power Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229239.jpgsave_picture_229239.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Victory - Gods Of Tomorrow (2021) [FLAC|Lossless|tracks + .cue] <Heavy Metal, Ha
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229252.jpgsave_picture_229252.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Celldweller - Satellites (2022) Remixed, 2023, FiXT [FLAC|Lossless|WEB-DL|tracks
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_229259.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_229259.jpgsave_picture_229259.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Black Veil Brides - The Phantom Tomorrow (2021) [FLAC|Lossless|WEB-DL|tracks] <H
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229260.jpgsave_picture_229260.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Khymera - Master Of Illusions (2020) Japanese Edition [FLAC|Lossless|image + .cu
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229277.jpgsave_picture_229277.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Green Labyrinth - Sequences (2023) [MP3|320 Kbps] <Symphonic Metal, Female Vocal
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_229282.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_229282.jpgsave_picture_229282.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Chris Boltendahl's Steelhammer - Reborn In Flames (2023) [FLAC|Lossless|WEB-DL|t
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_229289.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_229289.jpgsave_picture_229289.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Night Legion - Fight or Fall (2023) [MP3|320 Kbps] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_229297.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_229297.jpgsave_picture_229297.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Girlschool - WTFortyfive? (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_229304.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_229304.jpgsave_picture_229304.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Edge Of The Blade - Distant Shores (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229313.jpgsave_picture_229313.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ magnet:?xt=urn:btih:53378D3B9FC9BAD734F9BB68E94D263626B8D02D
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229317.jpgsave_picture_229317.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ DiGelsomina - Sic Itur Ad Astra (2023) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_229324.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_229324.jpgsave_picture_229324.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Tantrum - Another Life (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_229331.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_229331.jpgsave_picture_229331.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Sevendust - Superficial Drug (2023) EP [FLAC|Lossless|WEB-DL|tracks] <Alt. Metal
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_229341.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_229341.jpgsave_picture_229341.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ VA - The Gate Of Oblivion (2023) [MP3|320 Kbps] <Metal, Hard-Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150503.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150503.jpgsave_picture_150503.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Plus Messenger (Telegram+) v10.2.9.0 Mod by derrin [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150504.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150504.jpgsave_picture_150504.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:D0A235A7B45DBEF5C39B187ABCD82F7150F78EF6
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150505.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150505.jpgsave_picture_150505.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ Wise Disk Cleaner 11.0.6.820 RePack (& portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150506.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150506.jpgsave_picture_150506.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ Stellio - Music Player v6.7.0 Mod by derrin [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150507.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150507.jpgsave_picture_150507.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ Icecream Photo Editor 1.43 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150508.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150508.jpgsave_picture_150508.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ magnet:?xt=urn:btih:CE399296C93D00503F72A6310A525C5D41420C99
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150509.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150509.jpgsave_picture_150509.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:8C6A008BAD65FC3BAE9C2742153EA4E8470577A6
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150510.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150510.jpgsave_picture_150510.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ magnet:?xt=urn:btih:9E644A4A867CFB2284682FEF43072AB46A09EA61
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150511.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150511.jpgsave_picture_150511.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ Topaz Video AI 4.0.5 (x64) Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150512.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150512.jpgsave_picture_150512.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ Zoner Photo Studio X 19.2309.2.507 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150513.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150513.jpgsave_picture_150513.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ magnet:?xt=urn:btih:20224DA84131188E8A4C6E071A4BC6FE4A3F7C23
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150514.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150514.jpgsave_picture_150514.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ n-Track Studio Suite 10.0.0.8231 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150515.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150515.jpgsave_picture_150515.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ VA - Acid Jazz Classics, Vol. 5 (2023) [FLAC|Lossless|WEB-DL|tracks] <Acid Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150516.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150516.jpgsave_picture_150516.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Evanescence - Fallen (2003) Deluxe Edition, Remastered, 2023, Craft Recordings [
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150517.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150517.jpgsave_picture_150517.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ magnet:?xt=urn:btih:A2887DAE9B6788F629FD346100CDE8E862941385
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150518.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150518.jpgsave_picture_150518.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ magnet:?xt=urn:btih:C2C5F1812148EC25808514F7336F11CE86046866
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150519.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150519.jpgsave_picture_150519.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ Destructor - Sonic Bulle (2003) EP [FLAC|Lossless|image + .cue] <Thrash, Heavy, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150520.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150520.jpgsave_picture_150520.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ magnet:?xt=urn:btih:FB6B0B1F4B56479F3E51B935D85A8BCEF97DD73F
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150521.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150521.jpgsave_picture_150521.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ VA - Ibiza Winter Island 2024 (The Deep-House Edition) (2023) [MP3|320 Kbps] <Ho
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150522.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150522.jpgsave_picture_150522.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ magnet:?xt=urn:btih:B7A5A35BC6449132E1EEE44A97F01B366BEC2D92
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150523.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150523.jpgsave_picture_150523.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ VA - Futuro (Mixed And Compiled By John Digweed) - 2023 [FLAC|Lossless|WEB-DL|tr
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150524.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150524.jpgsave_picture_150524.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ magnet:?xt=urn:btih:BA7129E87426C3E200E523D7EF79E7C3E1370468
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150525.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150525.jpgsave_picture_150525.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ magnet:?xt=urn:btih:AB738AA326952CD4FA64D3BF7743F23E076F989E
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150526.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150526.jpgsave_picture_150526.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ George Benson - Invitation (1990) ORO [FLAC|Lossless|image + .cue] <Hard Bop, Ma
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150527.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150527.jpgsave_picture_150527.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ magnet:?xt=urn:btih:769D1A766F0E7D1EB0FF8452656D5C23029776FE
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150528.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150528.jpgsave_picture_150528.jpg" />
 </div>
 
 

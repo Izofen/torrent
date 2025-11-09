@@ -6,7 +6,7 @@
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118608.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118608.jpgsave_picture_118608.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:90B7F282BF0A8C9E6CCF9119D296CF47E6871802
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118609.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118609.jpgsave_picture_118609.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:3FB3C7E10F305C0CB0A5A1D64253BE2698B87DCB
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118610.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118610.jpgsave_picture_118610.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ Icecream Image Resizer Pro 2.14 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118611.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118611.jpgsave_picture_118611.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ JetBrains WebStorm for Mac 2023.3.3 Intel/ARM [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118612.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118612.jpgsave_picture_118612.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:64CF8C9B9581A4430DC3301B33F77D5315361FA7
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118613.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118613.jpgsave_picture_118613.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:B7A03FE4B268F76E49E5493FCD30ED14F9216247
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118614.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118614.jpgsave_picture_118614.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ Luminar Neo 1.18.2 U2B  [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118615.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118615.jpgsave_picture_118615.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:3FA2BE23989A507623C535259A591EC12C98350E
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118616.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118616.jpgsave_picture_118616.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ Find Same Images OK 5.36 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118617.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118617.jpgsave_picture_118617.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:1A68C0ED7E0346F7D4A251A26CC849D97D3E1F3E
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118618.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118618.jpgsave_picture_118618.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:93CDD3643B5B179E402ABE4591B7EF548F05CA15
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118619.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118619.jpgsave_picture_118619.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ magnet:?xt=urn:btih:8066BA7A39AF10BBC67B9D078D62BD13E3D4C39E
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118620.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118620.jpgsave_picture_118620.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ EditPlus 5.7.0 build 4352 + EditPlus 5.7.0 patch 4587 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118621.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118621.jpgsave_picture_118621.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Lark Player - YouTube Music & Audio Player 5.69.5 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118622.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118622.jpgsave_picture_118622.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ VA - The Best of Classical Piano (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118623.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118623.jpgsave_picture_118623.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ magnet:?xt=urn:btih:B92329275DE6A80B9717D40BA4E12D66C841840F
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118624.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118624.jpgsave_picture_118624.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ magnet:?xt=urn:btih:E3484658BC6D3C75F27ECA3443F872E4048ADD07
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118625.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118625.jpgsave_picture_118625.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Kneusel, Ronald T. | How AI Works: From Sorcery to Science (2023) [PDF][EN]
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118626.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118626.jpgsave_picture_118626.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ Windows 11 Manager 1.4.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118627.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118627.jpgsave_picture_118627.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ magnet:?xt=urn:btih:AF3787CA4CB35B8613100E032C5D4CD8304B60D3
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118628.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118628.jpgsave_picture_118628.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ Steinberg - WaveLab 12 Pro 12.0.10 (x64) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118629.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118629.jpgsave_picture_118629.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ Windows 10 Manager 3.9.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118630.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118630.jpgsave_picture_118630.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ iToolab UnlockGo 6.0.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118631.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118631.jpgsave_picture_118631.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ GameSave Manager 3.1.535.0 + Portable [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118632.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118632.jpgsave_picture_118632.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ PassMark RAMMon 3.1 Build 1000 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118633.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118633.jpgsave_picture_118633.jpg" />
 </div>
 
 

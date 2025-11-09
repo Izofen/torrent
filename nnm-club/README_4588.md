@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143621.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143621.jpgsave_picture_143621.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:1EC9D5AF1E64260219501EB80AFE9EA395974836
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143622.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143622.jpgsave_picture_143622.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:D43E92AF77A366FB84B2740FBFB4D8ED4ACB00DE
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143623.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143623.jpgsave_picture_143623.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:75B16F7BD7A2D238FDF387AC3A38D140572D437C
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143624.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143624.jpgsave_picture_143624.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:48FE12B759DB0A59B640B1F81DA1881C84CA9F20
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143625.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143625.jpgsave_picture_143625.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:17635E149742B66A42AE7E2711DF399961524808
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143626.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143626.jpgsave_picture_143626.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ VA - Hypnotica: Psy Trance Megamix (2021) [MP3|320 Kbps] <Psychedelic Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143627.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143627.jpgsave_picture_143627.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Megadeth - Th1rt3en (2011) Reissue, Remastered, 2019, BMG Echo [FLAC|Lossless|im
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143628.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143628.jpgsave_picture_143628.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ Movavi Video Editor Business 15.1.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143630.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143630.jpgsave_picture_143630.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ magnet:?xt=urn:btih:666B4B366CBB5700FB383FD7CF97358133216349
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143632.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143632.jpgsave_picture_143632.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ magnet:?xt=urn:btih:79AAD87741663E63F96FDCE5D5E3D2CB41533124
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143633.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143633.jpgsave_picture_143633.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ magnet:?xt=urn:btih:CF51F86F598380D23BCB09D48FFAD9A750C27C0D
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143634.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143634.jpgsave_picture_143634.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ VA - So Sexy Chillout Selection (2015) [MP3|320 кб/с] <Downtempo, Chillout, L
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143636.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143636.jpgsave_picture_143636.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ VA - New Age Ambient Music (2021) [MP3|320 Kbps] <Ambient, Downtempo, Meditation
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143637.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143637.jpgsave_picture_143637.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ VA - Smooth Moods Chill Out, Vol. 2 (2023) [MP3|320 Kbps] <Chillout, Lounge, Dow
 >>Downtempo, Trip-Hop, Lounge
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143639.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143639.jpgsave_picture_143639.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ Office 2003 SP3 rus vl + conv2007 + updates (16.12.2012) [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143640.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143640.jpgsave_picture_143640.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Office 2003 Professional — исчерпывающий комплект раб�
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143641.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143641.jpgsave_picture_143641.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ magnet:?xt=urn:btih:43626879F3C863951591FBA6B8C0178DCE89E97F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143642.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143642.jpgsave_picture_143642.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ magnet:?xt=urn:btih:65D8ED3EABD39B47A9C7FC38D6C6DFED6AAF6203
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143643.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143643.jpgsave_picture_143643.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ magnet:?xt=urn:btih:2ACC3200D9DCFDB6CF2D4994D7B0078955736499
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143644.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143644.jpgsave_picture_143644.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ magnet:?xt=urn:btih:BC1D7EC5B49FD35732AF85ED3ED56B36E3337F1B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143645.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143645.jpgsave_picture_143645.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Tonari no Kyuuketsuki-san | Ms. Vampire Who Lives in My Neighborhood. | Госп
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143646.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143646.jpgsave_picture_143646.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Udemy, Lazy Programmer Team | Financial Engineering and Artificial Intelligence 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143647.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143647.jpgsave_picture_143647.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ magnet:?xt=urn:btih:B1AD0188A0DBC5B81AD4FFC282169673F023131F
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143648.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143648.jpgsave_picture_143648.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ magnet:?xt=urn:btih:5F236F2F900EBE4758EB22F41BCC251E29BE8707
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143649.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143649.jpgsave_picture_143649.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ magnet:?xt=urn:btih:54C11E49449184D91432A64EC0F69AC87AF940BE
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143650.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143650.jpgsave_picture_143650.jpg" />
 </div>
 
 

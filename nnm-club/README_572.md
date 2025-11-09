@@ -6,7 +6,7 @@ Hataraku Maou-sama!! | The Devil Is a Part-Timer! Season 2 | Повелител�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15183.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15183.jpgsave_picture_15183.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ ScreenToGif 2.41.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15184.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15184.jpgsave_picture_15184.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:8D0A672AA858E4DF8303C0349918FBC51F68C648
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15185.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15185.jpgsave_picture_15185.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:01AEC0BCDDD11B0286E2BD346D1C2A6B70065899
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15186.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15186.jpgsave_picture_15186.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ Youkoso Jitsuryoku Shijou Shugi no Kyoushitsu e | Classroom of the Elite | До�
 >>Ранобэ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15187.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15187.jpgsave_picture_15187.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:C7019ADF84D2A26C4CC955C48BDB017533F4E160
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15188.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15188.jpgsave_picture_15188.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:374B444B257850C3184C50595771BC9CCB590F75
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15189.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15189.jpgsave_picture_15189.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:73215E6B6F12C3BD58B487BA112C70C18428459B
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15190.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15190.jpgsave_picture_15190.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:D8F8F9685EE0D92BB1057E8C4674335B9244419E
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15191.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15191.jpgsave_picture_15191.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:170C56A54D7959E37DBE756ECAFCA403F0AE42C2
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15192.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15192.jpgsave_picture_15192.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:3902B3ADF63E26FC69A7D3A3AF977021AD8BBDF5
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15193.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15193.jpgsave_picture_15193.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Activation Program 1.12 b02  Portable by Ratiborus [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15194.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15194.jpgsave_picture_15194.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:901D55B124F15A713D31CE17E7876C65F92D9998
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15195.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15195.jpgsave_picture_15195.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ magnet:?xt=urn:btih:0202C958097C51A3011F2C9C15F12A1FFB2AC08E
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15196.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15196.jpgsave_picture_15196.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ magnet:?xt=urn:btih:8E9D09090C7B0A63FBCEB840C61EA25E6CCB5857
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15197.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15197.jpgsave_picture_15197.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Tormented Souls (2021) [Ru/Multi] (0.94.0) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15198.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15198.jpgsave_picture_15198.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ Tormented Souls 2 (2025) [Ru/Multi] (1.0.1) Repack Let'sРlay [Demo]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15199.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15199.jpgsave_picture_15199.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ magnet:?xt=urn:btih:07304F6AB9B6566CC64417E6E611D4CD783DF8B5
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15200.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15200.jpgsave_picture_15200.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ magnet:?xt=urn:btih:2C8DCF487CA756EB3014D165F0986A31D051A3D7
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15201.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15201.jpgsave_picture_15201.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ magnet:?xt=urn:btih:1721AF259619A2A972F72CDA12A8A3FB39D9DD80
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15202.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15202.jpgsave_picture_15202.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Morbid Metal (2025) [En] (10619) Repack Let'sРlay [Demo]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15203.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15203.jpgsave_picture_15203.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ magnet:?xt=urn:btih:BFEF44E1B16752EA28D7BB3AC0F0860DAF721D6D
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15204.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15204.jpgsave_picture_15204.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ magnet:?xt=urn:btih:D138824743D0EA79E67FD520F549A0319916960A
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15205.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15205.jpgsave_picture_15205.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ magnet:?xt=urn:btih:8CB0AA72767ACB3A0F31324D2940955B6DEC42CA
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15206.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15206.jpgsave_picture_15206.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ magnet:?xt=urn:btih:5A018741C0192029C44D1DF887CDD97C358C773B
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15207.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15207.jpgsave_picture_15207.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ UnderRail (2015) [En] (1.2.0.23/dlc) License GOG
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15208.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15208.jpgsave_picture_15208.jpg" />
 </div>
 
 

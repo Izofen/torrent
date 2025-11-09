@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138022.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138022.jpgsave_picture_138022.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:B61DAB0AF39DBF2C8298E9150C1A4D1EE9BD7212
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138024.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138024.jpgsave_picture_138024.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:1DF8EC4410BD8FD4D93867596F2562472910C371
 >>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138025.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138025.jpgsave_picture_138025.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:664F0751A3491500BAABBE0FF049D4C8DC66FB44
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138027.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138027.jpgsave_picture_138027.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Kamisama ni Natta hi / The Day I Became a God / День, когда я стал
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138029.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138029.jpgsave_picture_138029.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ The Shapeshifters - Let Loose (2022) Deluxe Edition, 2023, Glitterbox Recordings
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138030.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138030.jpgsave_picture_138030.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:CFA446A81D63E76BB20C915DB4F090D39319D5AA
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138031.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138031.jpgsave_picture_138031.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:8CEB6B0894B4BCA7E2BA48C98243855C151424D2
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138032.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138032.jpgsave_picture_138032.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:3E02075AC1981B66C084103D69E844219F4ECF90
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138033.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138033.jpgsave_picture_138033.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ magnet:?xt=urn:btih:66F61E7BA01F5776209CD16BDDB44121BCBE515A
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138034.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138034.jpgsave_picture_138034.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ Music Paradise Player 1.3.2 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138036.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138036.jpgsave_picture_138036.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ magnet:?xt=urn:btih:1804B915C773AC99FF6AA8F7FF891FE9A9D6E8F0
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138037.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138037.jpgsave_picture_138037.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ Hirschmann Industrial HiVision 07.0.01 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138039.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138039.jpgsave_picture_138039.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ magnet:?xt=urn:btih:F1B03ADBBE9AF5B8F18400E8AC9903DFDAA2B1D6
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138041.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138041.jpgsave_picture_138041.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ magnet:?xt=urn:btih:F1F70AA9303028006400019F161C79A0723738B5
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138042.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138042.jpgsave_picture_138042.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ VA - CAVALRY 009 (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic House & Techno>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138044.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138044.jpgsave_picture_138044.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ magnet:?xt=urn:btih:BF3014B597F4310EECAEB44E1CDC390C17845337
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138045.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138045.jpgsave_picture_138045.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Thomas Rossetti - Feel Nature EP (2019) Maintain Replay Records [FLAC|Lossless|W
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138046.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138046.jpgsave_picture_138046.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ Epicardiectomy - Abhorrent Stench Of Posthumous Gastrorectal Desecration (2012) 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138048.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138048.jpgsave_picture_138048.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ Display Driver Uninstaller 17.0.8.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138049.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138049.jpgsave_picture_138049.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ magnet:?xt=urn:btih:17FC87275D77E9759DE1DBE30ADAC8B1477214B9
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138051.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138051.jpgsave_picture_138051.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Kenny Dorham - The Arrival Of Kenny Dorham (1960) 1997, Venus Records [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138052.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138052.jpgsave_picture_138052.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ magnet:?xt=urn:btih:D85F542665376E47473FCC078E497C212062D251
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138053.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138053.jpgsave_picture_138053.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Abattoir - The Only Safe Place (1986) [WavPack|Lossless]<Thrash Metal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138054.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138054.jpgsave_picture_138054.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ BELOFF 2020.12 Lite (Авторская раздача)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138055.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138055.jpgsave_picture_138055.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ magnet:?xt=urn:btih:A0E480536BC55AB5CCCAD843CC124227D614AF17
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138057.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138057.jpgsave_picture_138057.jpg" />
 </div>
 
 

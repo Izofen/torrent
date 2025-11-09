@@ -6,7 +6,7 @@
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157376.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157376.jpgsave_picture_157376.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ MediaHuman YouTube Downloader 3.9.9.87 (1111) RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157377.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157377.jpgsave_picture_157377.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Microsoft Office 2016 Standard 16.0.4456.1003 RePack by KpoJIuK (20.12.2016) [Mu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157379.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157379.jpgsave_picture_157379.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:21B5C4A589396355A26B3B468DF34E3D915D6C91
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157380.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157380.jpgsave_picture_157380.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ CudaText 1.180.0.0 Portable + addons [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157383.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157383.jpgsave_picture_157383.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Money Pro - Personal Finance 2.6.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157384.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157384.jpgsave_picture_157384.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:10603C7ECC3AC9FA696D8EDADCDF8ED51CB67FD9
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157385.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157385.jpgsave_picture_157385.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ VA - Morning Glory (2015) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157386.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157386.jpgsave_picture_157386.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:65289A30305DC96E611A6C25D06EEC500A315E70
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157387.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157387.jpgsave_picture_157387.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:D4A44C80AD20A07F9BA36DCA8A09454AC0989494
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157388.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157388.jpgsave_picture_157388.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Firehouse - Видеоколлекция от ALEXnROCK (2017) WEBRip [H.264/720
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157389.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157389.jpgsave_picture_157389.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ magnet:?xt=urn:btih:04D7D0B1DA9BB449B396D88931886157E1BBD687
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157390.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157390.jpgsave_picture_157390.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ magnet:?xt=urn:btih:6DFE3FF3F3C251ED98417E402C31AA8C833B16EA
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157392.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157392.jpgsave_picture_157392.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ MacClean360 4.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157393.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157393.jpgsave_picture_157393.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Adobe Dreamweaver CC 2017 (v17.0.1) x86-x64 RUS/ENG Update 1
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157395.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157395.jpgsave_picture_157395.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ magnet:?xt=urn:btih:7500EA9A3FCA31C06A6790BDE20DEAD9DA0E5CE3
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157396.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157396.jpgsave_picture_157396.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ magnet:?xt=urn:btih:E0DCCCF0BAE521B0233A105770E215661A2E5DAA
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157397.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157397.jpgsave_picture_157397.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ magnet:?xt=urn:btih:9962004F72E6C553FA1AD84B353D9E5269C4BB64
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157399.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157399.jpgsave_picture_157399.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ AllDup 4.5.54 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157400.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157400.jpgsave_picture_157400.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Eddie Cano & His Quintet - Brought Back Live From P.J.'s (1967) 2014, Universal[
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157401.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157401.jpgsave_picture_157401.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ magnet:?xt=urn:btih:F82C2298A69EA6A77790CBB15B3339E1F977B55C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157402.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157402.jpgsave_picture_157402.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ magnet:?xt=urn:btih:4388B04639AB536E6CD0D9ED00900B3E7382BD66
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157403.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157403.jpgsave_picture_157403.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ ZveroБой (Зверобой) - Война за мир (2016) [MP3|320 Kbps] <R
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157405.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157405.jpgsave_picture_157405.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ JetBrains Rider 2019.3 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157407.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157407.jpgsave_picture_157407.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ magnet:?xt=urn:btih:943AFDAA093D68E253ED24F3B06128B63109F91D
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157408.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157408.jpgsave_picture_157408.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ WiFiSpoof 3.5.1 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157409.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157409.jpgsave_picture_157409.jpg" />
 </div>
 
 

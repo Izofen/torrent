@@ -6,7 +6,7 @@
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166086.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166086.jpgsave_picture_166086.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:9A9051143A81A80E7EB5C6C63BDCDDCBB731A154
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166087.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166087.jpgsave_picture_166087.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:6D3D97D34A3EF9D3BC492DB3A9E7678B46BF5DDF
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166088.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166088.jpgsave_picture_166088.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Dernesch, Kollo, Wiener Philharmoniker, Georg Solti - Wagner: Tannhäuser (1971)
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166089.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166089.jpgsave_picture_166089.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:75D657D83388519FD0D42246E56D67DDEDEF28A8
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166090.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166090.jpgsave_picture_166090.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ Microsoft Office 2013 Pro Plus + Visio Pro + Project Pro + SharePoint Designer S
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166091.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166091.jpgsave_picture_166091.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ magnet:?xt=urn:btih:4A239C4D9382E2FF13C9A5AE888651B81EADFFED
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166092.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166092.jpgsave_picture_166092.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ Athak - Daturapyramides (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166093.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166093.jpgsave_picture_166093.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ magnet:?xt=urn:btih:3EBA0A7B8DA799A1473E881E9D90BA59D381D322
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166094.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166094.jpgsave_picture_166094.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ Angel Garcia DJ - If You Come Back (2023) [FLAC|Lossless|tracks] <Pop Trance, Eu
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166095.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166095.jpgsave_picture_166095.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ Skype 8.55.0.141 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166096.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166096.jpgsave_picture_166096.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ Vivaldi for Android 6.2.3110.143 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166097.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166097.jpgsave_picture_166097.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ magnet:?xt=urn:btih:6E3D403BFDF065AC1253E085CFD7349472919174
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166098.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166098.jpgsave_picture_166098.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ magnet:?xt=urn:btih:E7F7C9E130FA7DC144D726586C182D296A8BDF1B
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166099.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166099.jpgsave_picture_166099.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Yesterday / Yesterday (2019) DVD9
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166100.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166100.jpgsave_picture_166100.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ magnet:?xt=urn:btih:91C9576C031411848E6CD0EE6658760F2946932A
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166101.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166101.jpgsave_picture_166101.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ WindowManager 10.13.1 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166102.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166102.jpgsave_picture_166102.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Kageki Shoujo!! | Девушка из оперы [2021, TV, 13 из 13] BDRip 10
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166103.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166103.jpgsave_picture_166103.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ magnet:?xt=urn:btih:B2C02824DFD0820D1962B65E58CBC4403592DF48
 >>Нормативная документация
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166104.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166104.jpgsave_picture_166104.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ magnet:?xt=urn:btih:DB8856A8475FD9A39EA6D34CE936B6EDEAC301AB
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166105.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166105.jpgsave_picture_166105.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ Opera One 104.0.4944.36 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166106.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166106.jpgsave_picture_166106.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ magnet:?xt=urn:btih:6D316AE927FBAE7DBD4B67449DEBE96963447538
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166107.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166107.jpgsave_picture_166107.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:33FFA69F6E7F948C9FA146B80F81520E3AF7DF74
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166108.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166108.jpgsave_picture_166108.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Pink Floyd - Amsterdamse Bos, Free Concert, Live, 26 June 1971 (2021) [MP3|320 K
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166109.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166109.jpgsave_picture_166109.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Any Video Converter Ultimate 6.3.7 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166110.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166110.jpgsave_picture_166110.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ magnet:?xt=urn:btih:7013BA945628715BE691F033D5C457A072B0A510
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166111.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166111.jpgsave_picture_166111.jpg" />
 </div>
 
 

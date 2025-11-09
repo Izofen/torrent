@@ -6,7 +6,7 @@ Morcheeba - The Best Of Morcheeba 1995-2003 (2011) 2CD, Compilation [FLAC|Lossle
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147039.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147039.jpgsave_picture_147039.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Anjunadeep. The Yearbook 2021 (2021) Mixed [FLAC|Lossless|WEB-DL|tracks] <M
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147182.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147182.jpgsave_picture_147182.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - Space Holidays Vol. 10 (2018) 3CD [MP3|320 Kbps] <Spacesynth, Synth-pop>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147367.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147367.jpgsave_picture_147367.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - White Sensation Lounge (Chillout Your Mind) (2019) [MP3|320 Kbps] <Balearic
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147411.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147411.jpgsave_picture_147411.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ VA - A State Of Trance Top 20: January (Selected by Armin Van Buuren) (Extended 
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147419.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147419.jpgsave_picture_147419.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ VA - Black Hole Best Of (2018) [MP3|320 Kbps] <Trance,House>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147465.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147465.jpgsave_picture_147465.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ VA - Deep House Top 1000, Vol.1-Armada Music (2018) [MP3|320 Kbps] <House, DeepH
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147552.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147552.jpgsave_picture_147552.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ VA - Uplifting Only: Fan Favorites 2017-2018 (Mixed by Ori Uplift) (2018) [MP3|3
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147577.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147577.jpgsave_picture_147577.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ VA - Markus Schulz - Global DJ Broadcast Top 20: December (2018) [MP3|320 Kbps] 
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147601.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147601.jpgsave_picture_147601.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ VA - Club Restricted Presents: Pre-Christmas Party (2015) [MP3|320 кб/с] <Pro
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147603.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147603.jpgsave_picture_147603.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Timewarp Records presents: Compilations Collection by Nova Fractal & Friends - 3
 >>Psychedelic, psytrance, fullon
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147806.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147806.jpgsave_picture_147806.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ communication Tube - Discography 10 Releases (2015-2019) [FLAC|Lossless|WEB-DL|t
 >>Psybient, Psychill, Psydub (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148004.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148004.jpgsave_picture_148004.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ XXOT - Ажур (2020) [MP3|320 Kbps] <Industrial, EBM, Experimental, Female Voc
 >>Industrial, EBM, Dark Electro
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148229.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148229.jpgsave_picture_148229.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ VA - Vocal Trance 2022 (2021) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148535.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148535.jpgsave_picture_148535.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Snufmumriko - Discography 10 Releases (2012-2019) Spiritech, Lagerstätte, Drona
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148562.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148562.jpgsave_picture_148562.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ VA - Lo-Fi to Chill: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <Ba
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148702.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148702.jpgsave_picture_148702.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Alphaville - Salvation (1997) Deluxe Version, Remaster, 2023, Warner Music Centr
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148716.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148716.jpgsave_picture_148716.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ VA - Bar 25 Music Presents: Selektion 2019 (2019) [FLAC|Lossless|WEB-DL|tracks] 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148755.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148755.jpgsave_picture_148755.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ VA - Oh Holy Night (2019) Compilation [FLAC|Lossless|WEB-DL|tracks] <Deep Progre
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148868.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148868.jpgsave_picture_148868.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Vince Clarke - Songs of Silence (2023) [FLAC|Lossless|WEB-DL|tracks] <Ambient, E
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149058.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149058.jpgsave_picture_149058.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ V.A. - Buddha Bar by Christos Fourkis & Ravin (2023) [FLAC|Lossless|WEB-DL|track
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149088.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149088.jpgsave_picture_149088.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ VA - Echogarden Compilation #1 • #2 • #3 (2013-2016) [FLAC|Lossless|WEB-DL|t
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149139.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149139.jpgsave_picture_149139.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Alphaville - Prostitute (1994) Deluxe Version, Remaster, 2023, Warner Music Cent
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149180.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149180.jpgsave_picture_149180.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ Pylot - Axiom (2023) [FLAC|Lossless|WEB-DL|tracks] <Dance, retrowave, synthpop, 
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149192.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149192.jpgsave_picture_149192.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ Kollektiv Turmstrasse - Unity of Opposites (2023) [FLAC|Lossless|WEB-DL|tracks] 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149210.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149210.jpgsave_picture_149210.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ VA - Amsterdam Music Festival, Johan Cruijff ArenA, ADE (2023-10-21) [MP3|320 Kb
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149248.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149248.jpgsave_picture_149248.jpg" />
 </div>
 
 

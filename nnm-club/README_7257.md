@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_248079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_248079.jpgsave_picture_248079.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248081.jpgsave_picture_248081.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:27D6DBCEEDD5E0A1DC7841C2F36725FC0CD5D46F
 >>NoCD/NoDVD/Crack для Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248084.jpgsave_picture_248084.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Orcs Must Die / Бей орков + 5 DLC [Ru] (RePack/r14) 2011 | Fenixx
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248086.jpgsave_picture_248086.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:978904F1F5160C4E630D73208CE3DE4C24B79812
 >>На досуге
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248088.jpgsave_picture_248088.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:C66BDB4A4F5FD8645009724316665FE3A4616FCD
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_248090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_248090.jpgsave_picture_248090.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:C66BDB4A4F5FD8645009724316665FE3A4616FCD
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248093.jpgsave_picture_248093.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:EC91D1C4F717FA2F5F3E9EE1C085907E646D65E9
 >>Веб-дизайн
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248094.jpgsave_picture_248094.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:968A4B7CCCFB7A4C2E7B72DEC25C118E1688375C
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248095.jpgsave_picture_248095.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:3932494F1D7801B692EE99DA25B01D98D7C34DA7
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_248098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_248098.jpgsave_picture_248098.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:3932494F1D7801B692EE99DA25B01D98D7C34DA7
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248099.jpgsave_picture_248099.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Microsoft Office 2010 Professional Plus SP1 VL | RePack by SPecialiST V12.5 [EXE
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_248102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_248102.jpgsave_picture_248102.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Pluralsight | Учебные курсы компании Pluralsight [2012] [PCR
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_248103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_248103.jpgsave_picture_248103.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Resident Evil: Operation Raccoon City [Multi8\+] (L) 2012 | SKIDROW
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248104.jpgsave_picture_248104.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ magnet:?xt=urn:btih:FC4D32F350B40DAA46EFBDCA37A32A281A37D230
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_248106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_248106.jpgsave_picture_248106.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Microsoft SQL Server 2012 Enterprise  Core  Edition (x86 and x64) (Russian)
 >>Серверное ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_248108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_248108.jpgsave_picture_248108.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Left 4 Dead [Ru/En] 2008 (RePack/1.0.2.6) | R.G. BoxPack
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248109.jpgsave_picture_248109.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Fallout New Vegas 2011 Extended Edition [WineSkin]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_248112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_248112.jpgsave_picture_248112.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Fallout New Vegas 2011 Extended Edition [WineSkin]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248115.jpgsave_picture_248115.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ magnet:?xt=urn:btih:DE7E9EAE68449D917794934C667EA8A79FCE3B8E
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248116.jpgsave_picture_248116.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Street Fighter X Tekken [Ru] (RePack) 2012 l Fenixx
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248118.jpgsave_picture_248118.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ magnet:?xt=urn:btih:2765BD3845B639D02FFD0B94DBB17AC7B488139D
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_248121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_248121.jpgsave_picture_248121.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ VA - The Dance Cube XXXXII 2CD (2012) [MP3|320 кб/с]<Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248123.jpgsave_picture_248123.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ magnet:?xt=urn:btih:A944B80FBC6B7C80189D26916351ADC2FBF12302
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248124.jpgsave_picture_248124.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ magnet:?xt=urn:btih:9F3E9C71839EB4B78FB15CC18B038C56864B22F4
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248126.jpgsave_picture_248126.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ magnet:?xt=urn:btih:F2412FEF227FB0009A05142E3870488A3587FF4D
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248129.jpgsave_picture_248129.jpg" />
 </div>
 
 

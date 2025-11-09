@@ -6,7 +6,7 @@ WRATH: Aeon of Ruin (2019) [Ru/Multi] (1.1.2) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61684.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61684.jpgsave_picture_61684.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Tchia (2024) [Ru/Multi] (1.0/dlc) Repack dixen18
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61738.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61738.jpgsave_picture_61738.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Phantom Tides (2024) [Ru/Multi] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61744.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61744.jpgsave_picture_61744.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Cats Hidden in Georgia (2024) [Ru/Multi] (0313) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61750.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61750.jpgsave_picture_61750.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ WW2 Rebuilder (2023) [Ru/Multi] (20240217) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61757.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61757.jpgsave_picture_61757.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Vampires' Melody 2 (2023) [Multi] (20240319) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61763.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61763.jpgsave_picture_61763.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Alpha Protocol (2010) [Ru/Multi] (1.1) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61768.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61768.jpgsave_picture_61768.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Reverse Collapse: Code Name Bakery (2024) [Multi] (1.0.0.12/dlc) Repack FitGirl 
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61769.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61769.jpgsave_picture_61769.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ REAL ESTATE Simulator - FROM BUM TO MILLIONAIRE (2024) [Ru/Multi] (3815219) Repa
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61773.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61773.jpgsave_picture_61773.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Jusant (2023) [Ru/Multi] (1.06) Repack dixen18
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61784.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61784.jpgsave_picture_61784.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ As Dusk Falls (2022) [Ru/Multi] (1.01) Repack dixen18
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61786.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61786.jpgsave_picture_61786.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ REVEIL (2024) [Ru/Multi] (1.0.3f4/dlc) License GOG [Funhouse Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61861.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61861.jpgsave_picture_61861.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Book of Demons (2018) [Ru/Multi] (1.05.240321) License GOG [Collector's Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61881.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61881.jpgsave_picture_61881.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Sands of Aura (2021) [Ru/Multi] (1.01.25) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61884.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61884.jpgsave_picture_61884.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ The Knight Witch (2022) [Ru/Multi] (59.40571) License GOG [Deluxe Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61887.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61887.jpgsave_picture_61887.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Bloody Ink (2024) [Ru/Multi] (13792199) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61897.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61897.jpgsave_picture_61897.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Between the Stars (2019) [Ru/Multi] (1.0.0.2) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61957.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61957.jpgsave_picture_61957.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Outcast - A New Beginning (2024) [Ru/Multi] (1.0.3.1.293481) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61972.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61972.jpgsave_picture_61972.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Between the Stars (2019) [Ru/Multi] (1.0.0.2) Scene Rune
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61979.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61979.jpgsave_picture_61979.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ United Penguin Kingdom (2024) [Ru/Multi] (1.001) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61981.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61981.jpgsave_picture_61981.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ We Are Football 2024 (2024) [Multi] (3.00hf) Repack FitGirl
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61982.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61982.jpgsave_picture_61982.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Manic Mechanics (2024) [Ru/Multi] (2.1.7.0_88821) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61983.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61983.jpgsave_picture_61983.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Corbid! A Colorful Adventure (2024) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62033.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62033.jpgsave_picture_62033.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Hex Gambit: Respawned (2024) [Ru/Multi] (1.0.34+9115b5b) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62040.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62040.jpgsave_picture_62040.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Out of the Park Baseball 25 (2024) [Multi] (25.1) Repack FitGirl
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62047.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62047.jpgsave_picture_62047.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Deep in the Woods / Глубоко в лесу (2024) [Ru/Multi] (1.0) Scene Ten
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62053.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62053.jpgsave_picture_62053.jpg" />
 </div>
 
 

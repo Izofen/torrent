@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42061.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42061.jpgsave_picture_42061.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ SolidWorks 2010: Основные элементы SolidWorks [2009] [DJVU]
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42062.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42062.jpgsave_picture_42062.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Train Sim World 5 (2024) [Ru/Multi] (Build 283/dlc) Repack FitGirl [Special Edit
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42063.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42063.jpgsave_picture_42063.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ SolidWorks | Оформление чертежей по ЕСКД [2005] [DJVU]
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42064.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42064.jpgsave_picture_42064.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:AC2DA2B6FDC5D93B843C5BB7E971978EE0D57BD7
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42065.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42065.jpgsave_picture_42065.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:E4C23783FC50D0616A769596FA5DFD212659A487
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42066.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42066.jpgsave_picture_42066.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:C702A509E5B432FAF141635E0F66C167AC028D46
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42067.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42067.jpgsave_picture_42067.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:C702A509E5B432FAF141635E0F66C167AC028D46
 >>КВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42068.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42068.jpgsave_picture_42068.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:BC0264F3AC0E71156E5E814ABA90F35DD77C8DDF
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42069.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42069.jpgsave_picture_42069.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Remnant II (2) (2023) [Ru/Multi] (444.163/dlc) Repack FitGirl [Ultimate Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42070.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42070.jpgsave_picture_42070.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ magnet:?xt=urn:btih:0716F065B59AB96698A0FBAA9AD0299D363B8FCE
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42071.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42071.jpgsave_picture_42071.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ magnet:?xt=urn:btih:6607D4F98ACD10632B512AFB026D478F4D98DAAA
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42072.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42072.jpgsave_picture_42072.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ magnet:?xt=urn:btih:6607D4F98ACD10632B512AFB026D478F4D98DAAA
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42073.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42073.jpgsave_picture_42073.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Office Installer & Office Installer+ 1.18 by Ratiborus [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42074.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42074.jpgsave_picture_42074.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ magnet:?xt=urn:btih:3D4C7148EB2022C2B58E629B565241DA70367E0C
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42075.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42075.jpgsave_picture_42075.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ Disturbed - Studio Albums (8 releases) (2000-2022) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42076.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42076.jpgsave_picture_42076.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ Isles of Sea and Sky (2024) [Ru/Multi] (1.2a) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42077.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42077.jpgsave_picture_42077.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ magnet:?xt=urn:btih:C11A60A22986B4BF800B59CAB964CB1963292FA9
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42078.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42078.jpgsave_picture_42078.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Paper Ghost Stories: Third Eye Open (2024) [Multi] (1.4) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42079.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42079.jpgsave_picture_42079.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ magnet:?xt=urn:btih:55C7568405D2E1D76F19D22EC24D82A88A4FFAC2
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42080.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42080.jpgsave_picture_42080.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ magnet:?xt=urn:btih:46F0FED1174FF078B7459E90A2B2A1AFFBCCCD06
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42081.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42081.jpgsave_picture_42081.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ magnet:?xt=urn:btih:17824F33B2E7B109F1ABC4C9E7D58226B25162EE
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42082.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42082.jpgsave_picture_42082.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ George Vondriska | Основы изготовления шкафа (2015) WEBRi
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42083.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42083.jpgsave_picture_42083.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ magnet:?xt=urn:btih:3A83E331D3ED3D4C0D7D0E015FB189DB201DF196
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42084.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42084.jpgsave_picture_42084.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Reface: Face Swap AI Generator v4.22.2 Mod by Mixroot [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42085.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42085.jpgsave_picture_42085.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ magnet:?xt=urn:btih:6240B9F73893958BB4CDF6581E17A010ECF936AA
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42086.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42086.jpgsave_picture_42086.jpg" />
 </div>
 
 

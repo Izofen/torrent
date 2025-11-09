@@ -6,7 +6,7 @@
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43335.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43335.jpgsave_picture_43335.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:A2957EEA819F7EE2F1C424D72F2477529364761F
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43336.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43336.jpgsave_picture_43336.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Date A Live V | Рандеву с жизнью [ТВ-5] [2024, TV, 12 из 12] B
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43337.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43337.jpgsave_picture_43337.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Evil Impulse - Evil Impulse (2024) [FLAC|Lossless|image + .cue] <Thrash, Groove 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43338.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43338.jpgsave_picture_43338.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ VA - Buddha Luxury Bar - Arabian Chillout Deluxe 2024 [FLAC|Lossless|WEB-DL|trac
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43339.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43339.jpgsave_picture_43339.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:6BC6460DDAE26EBD3FBA4C428E85B2B6D67B36F7
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43340.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43340.jpgsave_picture_43340.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ magnet:?xt=urn:btih:97D59A7A02CEA3A4710B581420B4DAC55761A1E0
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43341.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43341.jpgsave_picture_43341.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:2BACEFFDE8BA645C61DED6D2E25BBBB122760131
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43342.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43342.jpgsave_picture_43342.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Mirillis Action! 4.41.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43343.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43343.jpgsave_picture_43343.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ magnet:?xt=urn:btih:AF909EEABE290B3D7455D07BDAD41F32EF421ABB
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43344.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43344.jpgsave_picture_43344.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ magnet:?xt=urn:btih:822120863963481436C13C8C74D9257F1ADDA5F3
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43345.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43345.jpgsave_picture_43345.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ magnet:?xt=urn:btih:25753A93936CCAAEE3A3157509E49483845F4C40
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43346.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43346.jpgsave_picture_43346.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ Mirillis Action! 4.41.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43347.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43347.jpgsave_picture_43347.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ VA - Armada Electronic Elements - Essentials 2024 (2024) [MP3|320 Kbps] <Progres
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43348.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43348.jpgsave_picture_43348.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ Corporal Shred - Thrashtosterone (2024) [FLAC|Lossless|WEB-DL|tracks] <Thrash Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43349.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43349.jpgsave_picture_43349.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Seether - Seether Workout (2023) Compilation [FLAC|Lossless|WEB-DL|tracks] <Alte
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43350.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43350.jpgsave_picture_43350.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ VA - Gaming EDM Anthems 2024 (2024) [MP3|320 Kbps] <Dance, Club, House, Electron
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43351.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43351.jpgsave_picture_43351.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ Toyah - Toyah On Tour (2005) Deluxe Edition, Remaster, 2024, Cherry Red Records 
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43352.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43352.jpgsave_picture_43352.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ VA - DJ Hits Vol. 3100 (1998) [OGG Vorbis|480 Kbps] <Electronic, Pop, Eurodance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43353.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43353.jpgsave_picture_43353.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ magnet:?xt=urn:btih:33A11505D2AEEE77B699D2649B9305F11CB323CB
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43354.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43354.jpgsave_picture_43354.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ magnet:?xt=urn:btih:FFBBAC91ECE36CAC59607AA4F9FB8D5A26A13FF4
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43355.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43355.jpgsave_picture_43355.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ Erin Nicole Neal - Sunshine's on You (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43356.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43356.jpgsave_picture_43356.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ Find Me - Nightbound (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Hard 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43357.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43357.jpgsave_picture_43357.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ VA - DJ Hits Vol. 2030 (1998) [OGG Vorbis|480 Kbps] <Electronic, Pop, Eurodance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43358.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43358.jpgsave_picture_43358.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Bonsai Kitten - Let It Burn (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43359.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43359.jpgsave_picture_43359.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ TikTok 36.4.4 Mod by Dmitry Nechiporenko + Plugin 1.52 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43360.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43360.jpgsave_picture_43360.jpg" />
 </div>
 
 

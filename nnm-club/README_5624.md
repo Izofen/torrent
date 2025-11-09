@@ -6,7 +6,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173217.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173217.jpgsave_picture_173217.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:B8DAB7C4FD26281ABBAD324F6B4CCB7656CE8408
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173218.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173218.jpgsave_picture_173218.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:632D4A5F8252D0FF96F26E2190E692CF0CDB1FC0
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173219.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173219.jpgsave_picture_173219.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:A76CA397E4787260073C044BEA0DB274F9BFA66D
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173220.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173220.jpgsave_picture_173220.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Wondershare PDFelement Pro 10.0.4 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173221.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173221.jpgsave_picture_173221.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:996BEB0F24DCAF674CC3481AFD843683AC18A4AD
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173222.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173222.jpgsave_picture_173222.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ Noumena - Studio Albums (6 releases) (2002-2020) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173223.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173223.jpgsave_picture_173223.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ Theocracy - Mosaic (2023) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173224.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173224.jpgsave_picture_173224.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Terje - Recalibrate (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173225.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173225.jpgsave_picture_173225.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ Blade - Joker and Clowns (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173226.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173226.jpgsave_picture_173226.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ Joe Pass Meets Tony Rizzi's 5 Guitars - Rose Room (1991) Alfa Jazz [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173227.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173227.jpgsave_picture_173227.jpg" />
 </div>
 
 
@@ -290,7 +290,7 @@ magnet:?xt=urn:btih:80A378175D2312B3A6119CE1F04E83D3DAACEFF9
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173228.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173228.jpgsave_picture_173228.jpg" />
 </div>
 
 
@@ -314,7 +314,7 @@ Entrenchment - Silence After Us (2023) [FLAC|Lossless|image + .cue] <Death Metal
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173229.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173229.jpgsave_picture_173229.jpg" />
 </div>
 
 
@@ -341,7 +341,7 @@ magnet:?xt=urn:btih:CA8AF98F7909153D81BC42D48C59B71E38C1FA50
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173230.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173230.jpgsave_picture_173230.jpg" />
 </div>
 
 
@@ -365,7 +365,7 @@ Kings Crown - Closer To The Truth (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173231.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173231.jpgsave_picture_173231.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ MotoGP. Этап 15. Гран-при Индонезии. Квалификаци�
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173232.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173232.jpgsave_picture_173232.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ Eagon - Equilibrium (2023) [MP3|320 Kbps] <Symphonic Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173233.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173233.jpgsave_picture_173233.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ MotoGP. Этап 15. Гран-при Индонезии. Спринт (14.10.202
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173234.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173234.jpgsave_picture_173234.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Display Maid 3.3.10 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173235.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173235.jpgsave_picture_173235.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Mors Subita - Origin Of Fire (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173236.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173236.jpgsave_picture_173236.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Edge Of Forever - Ritual (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173237.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173237.jpgsave_picture_173237.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ Proxyman for Mac 4.12.0 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173238.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173238.jpgsave_picture_173238.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ magnet:?xt=urn:btih:F7899102324B249FDAB645F3D5B8C55F222368C9
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173239.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173239.jpgsave_picture_173239.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ magnet:?xt=urn:btih:517B09CC02A50127A0474859E71203AC4E236D6E
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173240.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173240.jpgsave_picture_173240.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Holly Humberstone - Paint My Bedroom Black (2023) [FLAC 24/96|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173241.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173241.jpgsave_picture_173241.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ magnet:?xt=urn:btih:FCF81A9F77C95B33B85662C7856153B47B5D2C8E
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173242.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173242.jpgsave_picture_173242.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162056.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162056.jpgsave_picture_162056.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ QLab 5.0.12 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162057.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162057.jpgsave_picture_162057.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:18998DDA557263F979D6B26406F8C62740150991
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162058.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162058.jpgsave_picture_162058.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:E73A14BC3A4248EE45C555CC198A303FE4529254
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162059.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162059.jpgsave_picture_162059.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ Topaz Photo AI 2.1.0 (x64) RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162060.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162060.jpgsave_picture_162060.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ magnet:?xt=urn:btih:B804FDB9D9B21376E0ADFC0470C0C0C21881F92D
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162061.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162061.jpgsave_picture_162061.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:E80607965F406B17E08E153B08260178D161F135
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162062.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162062.jpgsave_picture_162062.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:D76A8C94BD2B7B955A728DCA9528AA225ACB58D5
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162063.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162063.jpgsave_picture_162063.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:7E54DAFCC9EC4D6960CCB1E44F2CB049E14EB363
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162064.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162064.jpgsave_picture_162064.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:A0C4F5AE67B331CD22BCFADEBAE8D2C0ADFBD9C0
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162065.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162065.jpgsave_picture_162065.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:BCDAF1CEF6275002D1F11E86C2A1A998486E4D14
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162066.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162066.jpgsave_picture_162066.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:06F0C2A59BE0E9E784A5AB55C04F9B0CBCEA176C
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162067.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162067.jpgsave_picture_162067.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ VSD Viewer for Mac 6.16.1 U2B [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162068.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162068.jpgsave_picture_162068.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ VA - High School Music Band - Je T'aime... Moi Non Plus (2018) [MP3|320 Kbps] <E
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162069.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162069.jpgsave_picture_162069.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ magnet:?xt=urn:btih:80293D1FC8DA3DF40AAABF925BF328B0617E4280
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162070.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162070.jpgsave_picture_162070.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ magnet:?xt=urn:btih:A8C6F85A97B7C842BC8A8BA1B9FC17D37B78336A
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162071.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162071.jpgsave_picture_162071.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ magnet:?xt=urn:btih:CA025DC9638137901A34635712EE101D08C95E1D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162072.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162072.jpgsave_picture_162072.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ magnet:?xt=urn:btih:965167A1FD33BABD5BC4543A337A6A14A8FFF079
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162073.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162073.jpgsave_picture_162073.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Schoolism, Thomas Fluharty | Oil Painting (2016) PCRec [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162074.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162074.jpgsave_picture_162074.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ magnet:?xt=urn:btih:0A3E85220639428AE9F397AF2369C20EF381A306
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162075.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162075.jpgsave_picture_162075.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ magnet:?xt=urn:btih:6965B2E448952A7E25914E87FE083ECDD37A331B
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162076.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162076.jpgsave_picture_162076.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ magnet:?xt=urn:btih:C7BF6E77E8DC416B0885C1E5A2D022FD6F74293E
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162077.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162077.jpgsave_picture_162077.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ magnet:?xt=urn:btih:8D0DA170C18D60725A41C3CBE5F1A15B54BD7272
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162078.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162078.jpgsave_picture_162078.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ magnet:?xt=urn:btih:213DB1270C70A7D3FEA7FD5F3EE950CDDEBB6E72
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162079.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162079.jpgsave_picture_162079.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ The Cure - Seventeen Seconds (1980) Fiction 825 354-2 [FLAC|Lossless|image + .cu
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162080.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162080.jpgsave_picture_162080.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Future Faces - Euphoria (2020) [MP3|320 Kbps] <Alternative, EBM, Coldwave, Post-
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162081.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162081.jpgsave_picture_162081.jpg" />
 </div>
 
 

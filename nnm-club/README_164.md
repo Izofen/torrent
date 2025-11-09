@@ -6,7 +6,7 @@ AusLogics Disk Defrag Ultimate 4.13.0.2 [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4315.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4315.jpgsave_picture_4315.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:EC9EF5C73B378E4FFE0596418DC3A0D8CFBDA000
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4316.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4316.jpgsave_picture_4316.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Violator - Studio Albums (6 releases) (2004-2025) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4317.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4317.jpgsave_picture_4317.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:0B5DEE40132A4069B4CB4787058DD0857BA2FCDE
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4318.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4318.jpgsave_picture_4318.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:EB484D1E814C709CAC56EEA74B5C8A82EE66D3E2
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4319.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4319.jpgsave_picture_4319.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ StartAllBack 3.9.15 build 5310 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4320.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4320.jpgsave_picture_4320.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Auslogics SSD Optimizer 2.1.0.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4321.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4321.jpgsave_picture_4321.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Enshrouded (2024) [Ru/Multi] (729115) Repack Wanterlude [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4322.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4322.jpgsave_picture_4322.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:446B2F73C26D7360DCC35325F8D51B2F0A4EB3B1
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4323.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4323.jpgsave_picture_4323.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:446B2F73C26D7360DCC35325F8D51B2F0A4EB3B1
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4324.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4324.jpgsave_picture_4324.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Purvpn 9.1 [En/Farsi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4325.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4325.jpgsave_picture_4325.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:468AA7F96050C21F0BD2CFF9C6662D3086CE25B2
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4326.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4326.jpgsave_picture_4326.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Windows 10 (v22h2) x64 PRO by KulHunter v27 (esd) [En]
 >>Сборки Windows 10
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4327.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4327.jpgsave_picture_4327.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ magnet:?xt=urn:btih:217B33F1DC6A9EE9C83A15BAA3B4239A6A73FD99
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4328.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4328.jpgsave_picture_4328.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ magnet:?xt=urn:btih:C6CF2138C01B1224F38BA21C6482B12BAF945FDA
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4329.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4329.jpgsave_picture_4329.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Form Pilot Office 2.84 [Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4330.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4330.jpgsave_picture_4330.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Duplicate File Finder Pro for Mac 8.5 (935) [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4331.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4331.jpgsave_picture_4331.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ MechWarrior 5: Mercenaries (2019) [Ru/Multi] (1.10.370/dlc) Repack FitGirl [Inne
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4332.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4332.jpgsave_picture_4332.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ magnet:?xt=urn:btih:6BC4FBCF83899E92367FEB0EFF4E11A5A60029A7
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4333.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4333.jpgsave_picture_4333.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ magnet:?xt=urn:btih:C97D822A47C07A80FCEEA54B55403AF4DE6194E4
 >>Сериалы DC Comics
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4334.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4334.jpgsave_picture_4334.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Any Video Downloader Pro 9.5.3 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4335.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4335.jpgsave_picture_4335.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ PowerSlave (1996) [En] (1.0) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4336.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4336.jpgsave_picture_4336.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ Calibre 8.10.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4337.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4337.jpgsave_picture_4337.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ MAX Desktop 25.10.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4338.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4338.jpgsave_picture_4338.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ magnet:?xt=urn:btih:E1CEFA39FFAC078642406BFB4B77AED55FD58C22
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4339.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4339.jpgsave_picture_4339.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ StartAllBack 3.9.15 StartIsBack++ 2.9.20 (2.9.1) StartIsBack + 1.7.6 RePack by K
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4340.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4340.jpgsave_picture_4340.jpg" />
 </div>
 
 

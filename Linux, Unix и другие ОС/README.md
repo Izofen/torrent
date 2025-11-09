@@ -6,7 +6,7 @@ CrossOver Linux 25.1.0 [x64] (deb, rpm, bin)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_829.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_829.jpgsave_picture_829.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Astra Linux Special Edition 1.8.3 UU1 [amd64] 3xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2390.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2390.jpgsave_picture_2390.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Ubuntu Game*Pack 24.04 (сентябрь 2025) [amd64] DVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3381.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3381.jpgsave_picture_3381.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ LinuxPHB 12.25.0002 (Debian 12 Bookworm) [x86, amd64] 2xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5404.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5404.jpgsave_picture_5404.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ Ubuntu ServerPack 24.04 (август 2025) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6032.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6032.jpgsave_picture_6032.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ Astra Linux Special Edition 1.8.3 [amd64] 3xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6532.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6532.jpgsave_picture_6532.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ DeaDBeeF for Linux 1.10.0 [x86_64] (deb, rpm, pkg.tar.xz, tar.bz2)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6674.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6674.jpgsave_picture_6674.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ Ubuntu*Pack 24.04 Cinnamon (июль 2025) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7535.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7535.jpgsave_picture_7535.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ Ubuntu*Pack 24.04 MATE (июль 2025) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7537.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7537.jpgsave_picture_7537.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ Ubuntu*Pack 24.04 KDE / Kubuntu (июль 2025) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7539.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7539.jpgsave_picture_7539.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ Ubuntu*Pack 24.04 LXqt / Lubuntu (июль 2025) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7544.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7544.jpgsave_picture_7544.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ Ubuntu*Pack 24.04 GNOME (июль 2025) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7546.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7546.jpgsave_picture_7546.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ Ubuntu*Pack 24.04 (июль 2025) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7549.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7549.jpgsave_picture_7549.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ Ubuntu*Pack 24.04 Xfce / Xubuntu (июль 2025) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7560.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7560.jpgsave_picture_7560.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ Ubuntu*Pack 24.04 LikeWin (июль 2025) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7568.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7568.jpgsave_picture_7568.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ RAR for Linux 7.12 [x64] (tar.gz)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8103.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8103.jpgsave_picture_8103.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ VMware Workstation 17 Pro 17.6.4-24832109 [x64] (bundle)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8541.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8541.jpgsave_picture_8541.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Ubuntu*Pack 22.04 DDE (июль 2025) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8733.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8733.jpgsave_picture_8733.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ Ubuntu*Pack 22.04 KDE / Kubuntu (июль 2025) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9787.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9787.jpgsave_picture_9787.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ Ubuntu*Pack 22.04 LikeWin (июль 2025) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9791.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9791.jpgsave_picture_9791.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Ubuntu*Pack 22.04 LXqt / Lubuntu (июль 2025) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9793.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9793.jpgsave_picture_9793.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Ubuntu*Pack 22.04 Cinnamon (июль 2025) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9796.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9796.jpgsave_picture_9796.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Ubuntu*Pack 22.04 GNOME (июль 2025) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9797.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9797.jpgsave_picture_9797.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Ubuntu*Pack 22.04 MATE (июль 2025) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9798.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9798.jpgsave_picture_9798.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Ubuntu ServerPack 22.04 (июль 2025) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9800.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9800.jpgsave_picture_9800.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ Ubuntu*Pack 22.04 (июль 2025) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9803.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9803.jpgsave_picture_9803.jpg" />
 </div>
 
 

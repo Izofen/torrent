@@ -6,7 +6,7 @@ John’s Background Switcher 5.5.1.2  + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235662.jpgsave_picture_235662.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Giorgio Moroder - From Here To Eternity / E=MC2 (1977, 1979) Reissue, Remastered
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235663.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235663.jpgsave_picture_235663.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Necropanther - Betrayal (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235664.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235664.jpgsave_picture_235664.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ Stillborn - Los Asesinos del Sur (2011) [FLAC|Lossless|image + .cue] <Blackened 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235665.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235665.jpgsave_picture_235665.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ Viber 20.0.0.4 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235666.jpgsave_picture_235666.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ Downie 4 v4.2.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235667.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235667.jpgsave_picture_235667.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ HTML Academy | Регулярные выражения для фронтенде
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235668.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235668.jpgsave_picture_235668.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ magnet:?xt=urn:btih:AE53757A2376F176AB8F91A72258F0D294612AD9
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235669.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235669.jpgsave_picture_235669.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ magnet:?xt=urn:btih:B48D028A24C609BC7FF38E85316B9F5D3F1FD72E
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235670.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235670.jpgsave_picture_235670.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ Oozing Wound - We Cater to Cowards (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235671.jpgsave_picture_235671.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ magnet:?xt=urn:btih:5E69640170F8F5C37534A6C87F0AD8FA9A2BFFF7
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235672.jpgsave_picture_235672.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ magnet:?xt=urn:btih:BB581D6DCD1A55EC96E31DFBE38EB54C85B419D1
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235673.jpgsave_picture_235673.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ BeanCounter Pro 2.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235674.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235674.jpgsave_picture_235674.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ VA - Post Modern Lounge (2015) [AAC|~342 Kbps] <Lounge, Nu Jazz, Easy Listening>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235675.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235675.jpgsave_picture_235675.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ Cannons - Fever Dream (2022) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Chillwave,
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235676.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235676.jpgsave_picture_235676.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ Aight Bet - Stop Playin (2023) [FLAC|Lossless|WEB-DL|tracks] <Hoodcore, Beatdown
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235677.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235677.jpgsave_picture_235677.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ Asnt - Bleed Like Us: Evolution of Sorrow (2021) [MP3|320 Kbps] <Hard Rock, Fema
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235678.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235678.jpgsave_picture_235678.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ magnet:?xt=urn:btih:33E876B82920408812A226968E0C64B6C4C8F0A6
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_235679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_235679.jpgsave_picture_235679.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Divinefire - Into A New Dimension (2006) Japanese Edition [FLAC|Lossless|image +
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235680.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235680.jpgsave_picture_235680.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ magnet:?xt=urn:btih:7BEA2FF0EEEF22CEBA10578A2B0A40E3108EA957
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235681.jpgsave_picture_235681.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ VA - Take It to Church, Vol. 2 (2019) [AAC|~322 Kbps] <Disco House, Nu-Disco, In
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235682.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235682.jpgsave_picture_235682.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ magnet:?xt=urn:btih:B1A9EAC99849A481F32B4A9D12B3B1E2D474669D
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235683.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235683.jpgsave_picture_235683.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ magnet:?xt=urn:btih:50A510A8062BE96753E963657A3A8F70F0210DB7
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235684.jpgsave_picture_235684.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ VueScan Pro 9.8.09 (25.06.2023) RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235685.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235685.jpgsave_picture_235685.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Affinity Publisher 2 v.2.1.1  [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235686.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235686.jpgsave_picture_235686.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Over the Sacrifice - First Seal Broken (2023) [FLAC|Lossless|WEB-DL|tracks] <Dea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235687.jpgsave_picture_235687.jpg" />
 </div>
 
 

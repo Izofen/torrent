@@ -6,7 +6,7 @@ NIUBI Partition Editor 9.5.0 Technician Edition RePack (& Portable) by elchupaca
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240761.jpgsave_picture_240761.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Nektar - ...Sounds Like This (1973) 2CD, Remastered, 2022, Esoteric Recordings [
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240762.jpgsave_picture_240762.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Shirley Collins - Archangel Hill (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <F
 >>Folk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240763.jpgsave_picture_240763.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Infestum - Ta Natas (2007) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240764.jpgsave_picture_240764.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ magnet:?xt=urn:btih:40A4A27E40068E2041C37E7C5E5C39A60E9506ED
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240765.jpgsave_picture_240765.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Rockets - Another Future (1992) Reissue 2008, Recording Arts AG [FLAC|Lossless|W
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240766.jpgsave_picture_240766.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ magnet:?xt=urn:btih:BDA0AE74B6FAC069498CFA341D6C948300DB17BB
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240767.jpgsave_picture_240767.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ magnet:?xt=urn:btih:E2E18C5B374D23B522C9E7D112496C0009571723
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240768.jpgsave_picture_240768.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ magnet:?xt=urn:btih:8535886EBA4A28EA0D04397709D572CC806B5750
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240769.jpgsave_picture_240769.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Beyond The Mist - Symbiosis (2022) [FLAC|Lossless|tracks] <Melodic Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240770.jpgsave_picture_240770.jpg" />
 </div>
 
 
@@ -265,7 +265,7 @@ Oryad - Sacred & Profane (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240771.jpgsave_picture_240771.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Pixea Plus 5.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240772.jpgsave_picture_240772.jpg" />
 </div>
 
 
@@ -317,7 +317,7 @@ VA - Future Vocal Trance Vol. 1 (2023) [MP3|320 Kbps] <Trance, Vocal Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240773.jpgsave_picture_240773.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ magnet:?xt=urn:btih:8B5541030A9B31A9A4168203C336059191916AC6
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240774.jpgsave_picture_240774.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ magnet:?xt=urn:btih:F37372EAF4CA28C938EFC564705A11A3D264B8A3
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240775.jpgsave_picture_240775.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ magnet:?xt=urn:btih:2AE3459D54D6D629121FFA7E8E100FD074091F39
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240776.jpgsave_picture_240776.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ Faxbot 2.6.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240777.jpgsave_picture_240777.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ magnet:?xt=urn:btih:7A097F8AD8FC3BDFA8694CCE6DFFE9BC380D1717
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240778.jpgsave_picture_240778.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ IObit Smart Defrag Pro 8.4.0.266 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240779.jpgsave_picture_240779.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ RedNotebook 2.29.4 Portable by PortableApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240780.jpgsave_picture_240780.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Keiko Lee - Sings Super Standards (2002) Sony Music [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240781.jpgsave_picture_240781.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Holy Moses - Invisible Queen (2023) 2xCD [FLAC|Lossless|WEB-DL|tracks] <Thrash M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240782.jpgsave_picture_240782.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ magnet:?xt=urn:btih:4CEDE7A156411AB9635DDD1BA036DEE8E3910E38
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240783.jpgsave_picture_240783.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ DiskCatalogMaker 8.3.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240784.jpgsave_picture_240784.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ magnet:?xt=urn:btih:E7A5F1D09ABCF2B5CA34976E62E88763E9DE0912
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240785.jpgsave_picture_240785.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ The Barnestormers - The Barnestormers (2023) [FLAC 24/48|Lossless|WEB-DL|tracks]
 >>Blues, Soul (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240786.jpgsave_picture_240786.jpg" />
 </div>
 
 

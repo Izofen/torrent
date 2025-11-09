@@ -6,7 +6,7 @@ Adobe Acrobat Pro 2024.004.20272 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36937.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36937.jpgsave_picture_36937.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ JetBrains PyCharm Professional 2024.3 (x64-arm64) Repack by Sitego [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36938.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36938.jpgsave_picture_36938.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:38445696386C1F4614F113FA3CEF6D9630A9092C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36939.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36939.jpgsave_picture_36939.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Assassin's Creed Mirage (2023) [Ru/Multi] (1.0.6/dlc) Repack Decepticon [Master 
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36940.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36940.jpgsave_picture_36940.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:E15A5D44961D22022A6702759670D146915FBF87
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36941.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36941.jpgsave_picture_36941.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:16FC5FBC24DA25F5804FE492880C1DE7834AD445
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36942.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36942.jpgsave_picture_36942.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:39DB0FE7B2054414F959ED5C606308EFD8460654
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36943.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36943.jpgsave_picture_36943.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ JetBrains PhpStorm 2024.3 (x64-arm64) Repack by Sitego [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36944.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36944.jpgsave_picture_36944.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ SAS.Планета 241111 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36945.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36945.jpgsave_picture_36945.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ magnet:?xt=urn:btih:5B7E4F0CA94451BC72EA076277278F307D736436
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36946.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36946.jpgsave_picture_36946.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ magnet:?xt=urn:btih:D030A8584D42F7B796A30F8F7D279F0E6DC315B8
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36947.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36947.jpgsave_picture_36947.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ magnet:?xt=urn:btih:6A320562F92E7AE5960C578D05B0A665DE882C21
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36948.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36948.jpgsave_picture_36948.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ qBittorrent 5.0.2 Portable by stalkerok (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36949.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36949.jpgsave_picture_36949.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ v2rayN 7.1.3 portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36950.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36950.jpgsave_picture_36950.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ magnet:?xt=urn:btih:A66E866C4366E1C493B490A0711E0FB5C9066F49
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36951.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36951.jpgsave_picture_36951.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ magnet:?xt=urn:btih:0C4EB84C2250E3BD764B7071C5F3336C87C26329
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36952.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36952.jpgsave_picture_36952.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ Jetbrains IntelliJ IDEA Ultimate 2024.3 (x64-arm64) Repack by Sitego [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36953.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36953.jpgsave_picture_36953.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ magnet:?xt=urn:btih:ABAD0E60FF4CB1A776C34026C23A41E355DF649C
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36954.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36954.jpgsave_picture_36954.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ magnet:?xt=urn:btih:C0AEB10411B974761A9FF6794243363D9F68C6E5
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36955.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36955.jpgsave_picture_36955.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ magnet:?xt=urn:btih:E95AD6B477C7E83F599E6E48975DF2852C93357C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36956.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36956.jpgsave_picture_36956.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Kasimoff - Compilation Cd 2 (2024) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36957.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36957.jpgsave_picture_36957.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:09FE90102D96138F977601E94F9238DAA4213CEC
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36958.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36958.jpgsave_picture_36958.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ magnet:?xt=urn:btih:B2FF72800A716D16C408BF3CC685923CDC24DC4A
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36959.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36959.jpgsave_picture_36959.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ magnet:?xt=urn:btih:BE500BB267A8658D9711AC071884FC69062F71C6
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36960.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36960.jpgsave_picture_36960.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ magnet:?xt=urn:btih:689C3115D0829C2976DD7CF0B2E8964D7918B08A
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36961.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36961.jpgsave_picture_36961.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ Cult of the Lamb (2022) [Ru/Multi] (1.4.6.596/dlc) Repack Let'sРlay [The One Wh
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36962.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36962.jpgsave_picture_36962.jpg" />
 </div>
 
 

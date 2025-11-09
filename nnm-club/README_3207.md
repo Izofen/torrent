@@ -6,7 +6,7 @@ Reverber - The Satan Creation (2024) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103725.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103725.jpgsave_picture_103725.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Ted Heath & His Music - Swing Is King! (1992) Limelight [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103726.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103726.jpgsave_picture_103726.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Our Graves - System Overload (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <EBM, 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103727.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103727.jpgsave_picture_103727.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Charles Mingus - Something Like A Bird (1978) 2013, Atlantic [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103728.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103728.jpgsave_picture_103728.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Rehab Black - I'm Fighting (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103729.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103729.jpgsave_picture_103729.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ The New Roses - Attracted To Danger (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103730.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103730.jpgsave_picture_103730.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Little Steve and The Big Beat - Circles (2024) [FLAC 24/96|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103731.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103731.jpgsave_picture_103731.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ April Art - Rodeo (2024) [FLAC 16,24/44.1|Lossless|WEB-DL|tracks] <Alt.Metal, El
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103732.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103732.jpgsave_picture_103732.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ magnet:?xt=urn:btih:858C93B02B5B8CBABA2C026B27800DC4A0A590FD
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103733.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103733.jpgsave_picture_103733.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Marc Broussard - Time Is A Thief (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blu
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103734.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103734.jpgsave_picture_103734.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ k.d. lang - Three Albums (1981-1990) Unofficial Release [FLAC 2.0|48/24|image +.
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103735.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103735.jpgsave_picture_103735.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Oceanator - Everything is Love and Death (2024) [FLAC 24/48|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103736.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103736.jpgsave_picture_103736.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Wind Rose - Trollslayer (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Power metal>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103737.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103737.jpgsave_picture_103737.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Andrew Moore and Hooch - Artists of the Moon (2024) [FLAC 24/48|Lossless|WEB-DL|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103738.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103738.jpgsave_picture_103738.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Ten eleven XII bluesband - Something Different (2024) [FLAC 24/44.1|Lossless|WEB
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103739.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103739.jpgsave_picture_103739.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ Abraham - Swing Low, Rock Hard (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103740.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103740.jpgsave_picture_103740.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ Krzysiek Ponieważ - The Devil, the Past and the Countryside: The Blues Collecte
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103741.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103741.jpgsave_picture_103741.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ Lights of Marfa - Light of Day (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Har
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103742.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103742.jpgsave_picture_103742.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ Chris Killz and The Family - Mister Move On (2024) [FLAC 24/96|Lossless|WEB-DL|t
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103743.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103743.jpgsave_picture_103743.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ Agnes Darelid - RISE (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Contemporary Ja
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103744.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103744.jpgsave_picture_103744.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Bobbie Dazzle - Fandabidozi (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard R
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103745.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103745.jpgsave_picture_103745.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Antonio Dayyani - Trop op (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Contempora
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103746.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103746.jpgsave_picture_103746.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ Coldplay - Moon Music (Full Moon Edition) (2024) 2CD [FLAC|Lossless|WEB-DL|track
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103747.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103747.jpgsave_picture_103747.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ magnet:?xt=urn:btih:8D0C6D8060B5C80E1DF963D5D84AEB005381A178
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103748.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103748.jpgsave_picture_103748.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ Aphex Twin - Selected Ambient Works Volume II (2024) Expanded Edition, 2024, War
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103749.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103749.jpgsave_picture_103749.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ magnet:?xt=urn:btih:BE84759F63BAE14740C5836588F3A5A1A8D7ECF0
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103750.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103750.jpgsave_picture_103750.jpg" />
 </div>
 
 

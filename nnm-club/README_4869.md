@@ -6,7 +6,7 @@ Adobe Acrobat Pro 2025.001.20813 RePack by KpoJIuK [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152354.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152354.jpgsave_picture_152354.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ MotoGP. Этап 19 из 22. Гран-при Австралии. Спринт (1
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152355.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152355.jpgsave_picture_152355.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Adobe Photoshop Express 8.0.929 Mod by Balatan, Apps-Store [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152356.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152356.jpgsave_picture_152356.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Screaming Frog SEO Spider 16.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152357.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152357.jpgsave_picture_152357.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:F71DE4B5D02C3132CA95C47FEA3D7235FFAF6B88
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152358.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152358.jpgsave_picture_152358.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:D46AF7859CD7361FB74E8CDB433F1A56F720AD5C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152359.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152359.jpgsave_picture_152359.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ BBC. Эйнштейны от природы / Animal Einsteins (2021) DVB  [H.26
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152360.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152360.jpgsave_picture_152360.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:4C19C70F6171CF5523A948793F278223E113DE1F
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152361.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152361.jpgsave_picture_152361.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:8CD02E0C7E8F3D4C527643CC07F633F36BD5EB80
 >>Folk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152362.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152362.jpgsave_picture_152362.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:548E5A782C469F6C9A065C181B2EFB754F62D457
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152363.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152363.jpgsave_picture_152363.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Black Rose - Fortune Favours The Brave (1993) [FLAC|Lossless|tracks + .cue] <Har
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152364.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152364.jpgsave_picture_152364.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:D8059C0322BCD4E99D5C226486A826DCED4186AD
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152365.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152365.jpgsave_picture_152365.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ magnet:?xt=urn:btih:D7512714375DB21D993BAD337A9AB880470C579B
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152366.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152366.jpgsave_picture_152366.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ magnet:?xt=urn:btih:226BC12589C73E2649058D0CD71212ADB3DFB519
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152367.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152367.jpgsave_picture_152367.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ magnet:?xt=urn:btih:D0EEC88075B8BB524431C35B08C5A4B08DFC7339
 >>Всё для детей и родителей для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152368.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152368.jpgsave_picture_152368.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Dub Tractor - Hello Ambient Wash (2017) Music For Dreams [FLAC|Lossless|tracks] 
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152369.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152369.jpgsave_picture_152369.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Navicat Premium 15.0.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152370.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152370.jpgsave_picture_152370.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ magnet:?xt=urn:btih:8712ED0921A5357972298F28E9E680AF23F300EC
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152371.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152371.jpgsave_picture_152371.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ VA - Atmosfera Records Best of Trance (2017) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152372.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152372.jpgsave_picture_152372.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ magnet:?xt=urn:btih:1A337C3080EB20664EB410C9E1D86CC957D3B445
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152373.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152373.jpgsave_picture_152373.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ magnet:?xt=urn:btih:838613C6490CEFB53A252A3F191102036FA4E9B6
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152374.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152374.jpgsave_picture_152374.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ magnet:?xt=urn:btih:993AF86EEBB52E2612001FEA9DC1E8F1AFA1C15F
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152375.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152375.jpgsave_picture_152375.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ magnet:?xt=urn:btih:19025529D7906928AA221C12E1A2E8FFF0209780
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152376.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152376.jpgsave_picture_152376.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ CoH - CoHgs (2017) Editions Mego [FLAC|Lossless|WEB-DL|tracks] <Abstract, Experi
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152377.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152377.jpgsave_picture_152377.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Belinda Carlisle - Belinda Live! Good Heavens Tour! (1988) DVDRip [hand made 60f
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152378.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152378.jpgsave_picture_152378.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ The London Symphony Orchestra - The Power Of Classic Rock (1985) [FLAC|Lossless|
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152379.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152379.jpgsave_picture_152379.jpg" />
 </div>
 
 

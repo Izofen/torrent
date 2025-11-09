@@ -6,7 +6,7 @@
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157312.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157312.jpgsave_picture_157312.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:51E6C9B680864ACFBCBE9E1FFAAD93F73021CF5E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157313.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157313.jpgsave_picture_157313.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ iA Writer 5.6.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157314.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157314.jpgsave_picture_157314.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ VA - Chillout Tracks (2015) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157315.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157315.jpgsave_picture_157315.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:4BFFB84E9D5636E3E2E9B578CED4D0A747CBF507
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157316.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157316.jpgsave_picture_157316.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:32191295616F38B044512DD64557262BD87259F5
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157319.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157319.jpgsave_picture_157319.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ Avast Secure Browser 70.1.973.111 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157321.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157321.jpgsave_picture_157321.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ Microsoft Office 2016 Professional Plus + Visio Pro + Project Pro 16.0.4456.1003
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157322.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157322.jpgsave_picture_157322.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ magnet:?xt=urn:btih:8DD422EF50F3A5DC4E7427ECF02449231A3BF001
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157323.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157323.jpgsave_picture_157323.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ magnet:?xt=urn:btih:9A08BA7FB6BACC19F112D2F07FFB200274D45E2E
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157324.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157324.jpgsave_picture_157324.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ Landfall - The Turning Point (2020) [FLAC|Lossless|image + .cue] <Melodic Hard R
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157325.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157325.jpgsave_picture_157325.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ magnet:?xt=urn:btih:186491B33C870ABCD70B30A6B36B67098B5FE255
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157327.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157327.jpgsave_picture_157327.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ Serviio Pro 2.2.1 CR2 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157329.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157329.jpgsave_picture_157329.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ magnet:?xt=urn:btih:58CD89829FA6B222FF6CD673055FF7B4F16B9194
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157330.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157330.jpgsave_picture_157330.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ magnet:?xt=urn:btih:4191F4077A554E152ED0F283EF25E26A28F2116C
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157331.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157331.jpgsave_picture_157331.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ VA - Hit News Vol. 2/95 (1994) [OGG Vorbis|480 Kbps] <Electronic, Euro House, It
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157332.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157332.jpgsave_picture_157332.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ VA - After Work Chillout (2015) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157334.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157334.jpgsave_picture_157334.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ magnet:?xt=urn:btih:CFAFF94F771ED3D8AFB8C5E0C1C07FB7C7201196
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157335.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157335.jpgsave_picture_157335.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ magnet:?xt=urn:btih:35AD1F5006FB031BB1169E71F28F8F1128D023D5
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157336.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157336.jpgsave_picture_157336.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ magnet:?xt=urn:btih:A421237A1FF0FF8969AA09268C691E264EC7658D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157337.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157337.jpgsave_picture_157337.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ All the Cold - To the Emerald Land (2020) [MP3|320 Kbps] <Instrumental Music, At
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157338.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157338.jpgsave_picture_157338.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ magnet:?xt=urn:btih:9AF4FA46482B1ADF33D455742B3B286956D39E98
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157340.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157340.jpgsave_picture_157340.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ magnet:?xt=urn:btih:9495A8824F79FFF049BFECE07354C23D05D233CB
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157341.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157341.jpgsave_picture_157341.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ magnet:?xt=urn:btih:FADACF33034DD482041EBAD4E4D8239733FC18E4
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157343.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157343.jpgsave_picture_157343.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ magnet:?xt=urn:btih:F2143BFE2D4BC02EF99E7FBFB0EA3B874FDAF37F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157344.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157344.jpgsave_picture_157344.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Lothloryen - Principles Of A Past Tomorrow (2015) [FLAC|Lossless|image + .cue] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157345.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157345.jpgsave_picture_157345.jpg" />
 </div>
 
 

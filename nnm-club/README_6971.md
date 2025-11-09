@@ -6,7 +6,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239369.jpgsave_picture_239369.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Texpad 1.8.17 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239370.jpgsave_picture_239370.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Ernie Watts Quartet - Home Light (2018) Flying Dolphin Records [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239371.jpgsave_picture_239371.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:AE68B3242FF30740AA6150623263C4E64894C8B4
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239372.jpgsave_picture_239372.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ VA - Top 8 May 2023 Emotional And Uplifting Trance (2023) [MP3|320 Kbps] <Trance
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239373.jpgsave_picture_239373.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Kira Mac - Chaos Calling (2022) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239375.jpgsave_picture_239375.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:5A2336384EBBAB471BD63536A5B5118457DEE355
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239376.jpgsave_picture_239376.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ Dropshare 5.8.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239378.jpgsave_picture_239378.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ magnet:?xt=urn:btih:6845966AB2B5487058B7A3E4410D5ABFAA5DFA43
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239379.jpgsave_picture_239379.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ magnet:?xt=urn:btih:074B05D83BFB19013FE67EBC3251E628EAA002F6
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239381.jpgsave_picture_239381.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ Dark Millennium - Ashore the Celestial Burden (1992) [FLAC|Lossless|image + .cue
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239383.jpgsave_picture_239383.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ magnet:?xt=urn:btih:B3FE73D9FBD0B53DB3CC2239F6473F8994C05872
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239384.jpgsave_picture_239384.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ magnet:?xt=urn:btih:F756D8EAA949F34EBB9A953D00A60D2EE09E1E22
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239385.jpgsave_picture_239385.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ magnet:?xt=urn:btih:FCF8BBA6DE60BCA10054A2FF629B0F14792B5D01
 >>А знаете ли вы..
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239386.jpgsave_picture_239386.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ magnet:?xt=urn:btih:FCF8BBA6DE60BCA10054A2FF629B0F14792B5D01
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239388.jpgsave_picture_239388.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ Aerodyne - Damnation (2019) [FLAC|Lossless|WEB-DL|tracks] <Melodic Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239389.jpgsave_picture_239389.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Stillskin - Through Time (2023) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239390.jpgsave_picture_239390.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Iridient Developer 3.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239391.jpgsave_picture_239391.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Drautran - Unter dem Banner der Nordwinde (Demo) (2002) [FLAC|Lossless|image + .
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239392.jpgsave_picture_239392.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:EDFD46235840762D933DF754EF87ED07C1BB7095
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239394.jpgsave_picture_239394.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ magnet:?xt=urn:btih:B9DEA35BD2C85706D12F2AAE73BCB388576AB9D2
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_239395.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_239395.jpgsave_picture_239395.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ magnet:?xt=urn:btih:D2973BC4FAE00B5BC9128F3A30D62768AA27D029
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239396.jpgsave_picture_239396.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Cactus Cathedral - Suspending All Belief (2023) [FLAC|Lossless|WEB-DL|tracks] <H
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239398.jpgsave_picture_239398.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Drautran - Throne Of The Depths (2007) [APE|Lossless|image + .cue] <Sympho Black
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239399.jpgsave_picture_239399.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ BusyContacts 1.4.11 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239400.jpgsave_picture_239400.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ Rufus Wainwright - Folkocracy (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Folk>
 >>Folk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239401.jpgsave_picture_239401.jpg" />
 </div>
 
 

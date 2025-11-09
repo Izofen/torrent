@@ -6,7 +6,7 @@ VA - Ori Uplift - Uplifting Only Episode 644 (2025) [MP3|320 Kbps] <Trance, Upli
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66114.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66114.jpgsave_picture_66114.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ slo/tide - The Blur (2025) [FLAC 16,24/44.1,48|Lossless|WEB-DL|tracks] <Synthpop
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66115.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66115.jpgsave_picture_66115.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:236FEBA6DEA84D519DB30B8225ED0AA50BE58A97
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66116.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66116.jpgsave_picture_66116.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Lonestar - Lonely Grill (1999) [FLAC|Lossless|tracks + .cue] <Country Rock, Pop 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66117.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66117.jpgsave_picture_66117.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Crosson - Guilty Of Rock (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66118.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66118.jpgsave_picture_66118.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Jimmy Scott - Very Truly Yours (1955) Columbia [FLAC|Lossless|tracks + .cue] <Vo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66119.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66119.jpgsave_picture_66119.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Korolova - Live @ Legia Stadium (Warsaw, Poland) (2025-06-05) [MP3|320 Kbps] <Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66120.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66120.jpgsave_picture_66120.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ magnet:?xt=urn:btih:DBC710665842AA484A478406F3F35555AF29AD23
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66121.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66121.jpgsave_picture_66121.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Lighting calculations / Расчеты освещения v6.1.5 Mod by Balatan 
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66122.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66122.jpgsave_picture_66122.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ magnet:?xt=urn:btih:EA5672278625D507985E49797292EC9DCB2654EB
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66123.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66123.jpgsave_picture_66123.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Mindi Abair - Based On A True Story (2025) [FLAC|Lossless|WEB-DL|tracks] <Smooth
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66124.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66124.jpgsave_picture_66124.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ VA - Progressive Trance Awakening, Vol. 05 (2025) [MP3|320 Kbps] <Trance, Progre
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66125.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66125.jpgsave_picture_66125.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:F2083A1B20FE2CE4AEE40E090077F800E7E18BCD
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66126.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66126.jpgsave_picture_66126.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ magnet:?xt=urn:btih:4CD2E78BD20F876FD908C03FE695EAB6832D3969
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66127.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66127.jpgsave_picture_66127.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ magnet:?xt=urn:btih:5552C7FB28396961D33F80EB0AC58D850D5FC74A
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66128.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66128.jpgsave_picture_66128.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ Freakstorm - Dust Of Glory (2025) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66129.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66129.jpgsave_picture_66129.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ D Note - Fuchsia Dog (2002) [FLAC|Lossless|tracks + .cue] <Downtempo, House, Bre
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66130.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66130.jpgsave_picture_66130.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ magnet:?xt=urn:btih:765F1E809036AF64E0BD746F7B1566DFED400D86
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66131.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66131.jpgsave_picture_66131.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Photo Studio PRO v2.8.2.4354 Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66132.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66132.jpgsave_picture_66132.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Fairyland - The Story Remains (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Sympho
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66133.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66133.jpgsave_picture_66133.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ magnet:?xt=urn:btih:E924EF0D38458A663710497B75CB5BE22470CA68
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66134.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66134.jpgsave_picture_66134.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ VA - Armin van Buuren - A State Of Trance 1229 (2025) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66135.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66135.jpgsave_picture_66135.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ King Gizzard & The Lizard Wizard - Phantom Island (2025) [FLAC 24/48|Lossless|WE
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66136.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66136.jpgsave_picture_66136.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ magnet:?xt=urn:btih:8D44CE78F435CD5E06D68101D3F9EDC6B3326149
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66137.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66137.jpgsave_picture_66137.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ Malvada - Malvada (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66138.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66138.jpgsave_picture_66138.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ Tokimonsta - Eternal Reverie (2025) 4 CD [FLAC 24/44.1,48|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66139.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66139.jpgsave_picture_66139.jpg" />
 </div>
 
 

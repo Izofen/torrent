@@ -6,7 +6,7 @@ Athena's Revenge - Wisdom & Warfare (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard R
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110581.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110581.jpgsave_picture_110581.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ The Free Design - Butterflies Are Free: The Original Recordings 1967-72 (2020) 4
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110582.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110582.jpgsave_picture_110582.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:B885A6C28BA0325E299A4F26DAFCAFC177BA897C
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110583.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110583.jpgsave_picture_110583.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Waysted - Waysted (1983) Expanded Edition, 2024, Cherry Red Records [MP3|320 Kbp
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110584.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110584.jpgsave_picture_110584.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Amerikan Kaos - Armageddon Boogie (2024) [MP3|320 Kbps] <Classic Metal, Hard 'n'
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110585.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110585.jpgsave_picture_110585.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Darkness - Blood On Canvas (2024) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110586.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110586.jpgsave_picture_110586.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ VA - Eosella Music One Year Anniversary (2024) [MP3|320 Kbps] <Trance, Progressi
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110587.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110587.jpgsave_picture_110587.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Pendragon - The Masquerade Overture (1996) Reissue, Remastered, 2024, Toff Recor
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110588.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110588.jpgsave_picture_110588.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Nora En Pure - Purified Radio 400 (Drakensberg, South Africa) (2024-04-21) [MP3|
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110589.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110589.jpgsave_picture_110589.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Opera One 109.0.5097.68 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110590.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110590.jpgsave_picture_110590.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:4C61EDF78B503306D811E89C680DAC02EC4999BD
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110591.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110591.jpgsave_picture_110591.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:B6C58417D57CF81C90677CD971912BE1CE047893
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110592.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110592.jpgsave_picture_110592.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Kimi wa Houkago Insomnia | Insomniacs After School | Бессонница пос
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110593.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110593.jpgsave_picture_110593.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Walker & Royce - No Big Deal (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Tech 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110594.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110594.jpgsave_picture_110594.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ magnet:?xt=urn:btih:D5335B2C22E744783AC35B44DB641944BFDE5C6A
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110595.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110595.jpgsave_picture_110595.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ UB40 - UB45 (2024) Ultimate Edition [FLAC|Lossless|WEB-DL|tracks] <Reggae, Ska>
 >>RnB, Reggae (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110596.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110596.jpgsave_picture_110596.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Miss Monique - Tomorrowland Friendship Mix (2024-04-25) [MP3|320 Kbps] <Progress
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110597.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110597.jpgsave_picture_110597.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ magnet:?xt=urn:btih:75A758DA035C7C6E3CF9E65FBCA1558C1E4214EC
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110598.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110598.jpgsave_picture_110598.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ St. Vincent - All Born Screaming (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alt
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110599.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110599.jpgsave_picture_110599.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Isekai Yakkyoku | Parallel World Pharmacy | Аптека в другом мир�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110600.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110600.jpgsave_picture_110600.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Billy Idol - Rebel Yell (1982) [MP3|320 Kbps] <Alternative Rock, Hard Rock, Punk
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110601.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110601.jpgsave_picture_110601.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ magnet:?xt=urn:btih:1D43952A2933CD5EB4629685B307189FA8614EA6
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110602.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110602.jpgsave_picture_110602.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Image Uploader 1.4.0 Build 5139 Nightly + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110603.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110603.jpgsave_picture_110603.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ magnet:?xt=urn:btih:EB157ACC67F1D510A24C57283CEF5CC4082446EE
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110604.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110604.jpgsave_picture_110604.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ magnet:?xt=urn:btih:A20C9B08634D736852F9FA63601AD03BC1176CFD
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110605.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110605.jpgsave_picture_110605.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ JC Smith - The Cool & the Smooth (2024) [FLAC 24/192|Lossless|WEB-DL|tracks] <Sm
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110606.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110606.jpgsave_picture_110606.jpg" />
 </div>
 
 

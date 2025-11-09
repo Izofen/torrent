@@ -6,7 +6,7 @@
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126082.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126082.jpgsave_picture_126082.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:323994E394B305CD7132EB787E354A676492661A
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126083.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126083.jpgsave_picture_126083.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ VA - Бархатный шансон 2025, Часть 2 (2025) [FLAC|Lossless|WE
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126084.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126084.jpgsave_picture_126084.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ VA - Бархатный шансон 2025 (2025) [FLAC|Lossless|WEB-DL|tracks] <
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126085.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126085.jpgsave_picture_126085.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:5CD51CBF8D078891F80DC169E1099A7CD3D7F95B
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126086.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126086.jpgsave_picture_126086.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ PanoramaStudio Pro 4.1.6 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126087.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126087.jpgsave_picture_126087.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:F691DA0499C3DF7ADD31921B80931F03DCA42E2D
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126088.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126088.jpgsave_picture_126088.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Minimal Firewall 2.5.0 Portable [En]
 >>Firewalls
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126089.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126089.jpgsave_picture_126089.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:123717242D4F6E26D425AC6DBB36E9F6A4BD3267
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126090.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126090.jpgsave_picture_126090.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ Hot Rod Frankie - 9 Albums (2006-2025) [MP3|320 Kbps] <Psychobilly, RAC, Oli, Ho
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126091.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126091.jpgsave_picture_126091.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ magnet:?xt=urn:btih:CD0D9FB255FD76A247420EC6508644046DAEFEB2
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126092.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126092.jpgsave_picture_126092.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ Synology отменила запрет на жёсткие диски WD и Seag
 >>Компьютерные новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126093.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126093.jpgsave_picture_126093.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ Synology отменила запрет на жёсткие диски WD и Seag
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126094.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126094.jpgsave_picture_126094.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ magnet:?xt=urn:btih:2D8EA800B0814D194191D03C768423F8A11FF33F
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126095.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126095.jpgsave_picture_126095.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ magnet:?xt=urn:btih:82020151624D06AD1AC04E787B78FED1DFB4ACCA
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126096.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126096.jpgsave_picture_126096.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ magnet:?xt=urn:btih:5894F9E1EA6027FF447528D08E01179A12BEEDD2
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126097.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126097.jpgsave_picture_126097.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ magnet:?xt=urn:btih:9C5674069058ED2A10B81526D850A799E5014301
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126098.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126098.jpgsave_picture_126098.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Cyan Kicks - Come Hell, Come High Water (2025) [FLAC 24/48|Lossless|WEB-DL|track
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126099.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126099.jpgsave_picture_126099.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ magnet:?xt=urn:btih:C46BF5949D0047651852225D658D7BC90B5DBDD0
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126100.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126100.jpgsave_picture_126100.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Joakim Karlsson | The trio (2020) WEB-DL [EN]
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126101.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126101.jpgsave_picture_126101.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ magnet:?xt=urn:btih:C9A18FD9AB054EF6AFE28E9D46B267483B31D44F
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126102.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126102.jpgsave_picture_126102.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ Asya-Design, Александра Бавыкина | 3D моделировани
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126103.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126103.jpgsave_picture_126103.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ magnet:?xt=urn:btih:0B0F59480269C2C9D7C77CF6A6E96B4C008FDC92
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126104.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126104.jpgsave_picture_126104.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ magnet:?xt=urn:btih:50BB44F3D12D77E2C064C2F70A27004AB354E0E9
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126105.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126105.jpgsave_picture_126105.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ magnet:?xt=urn:btih:85A079EDDB48C50E9355855F3BF50EDED9CED4F5
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126106.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126106.jpgsave_picture_126106.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ magnet:?xt=urn:btih:EC41A78CB6FC4C573D2E88AEA57FB978A0FDECC5
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126107.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126107.jpgsave_picture_126107.jpg" />
 </div>
 
 

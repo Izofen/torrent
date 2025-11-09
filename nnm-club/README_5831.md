@@ -6,7 +6,7 @@
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182761.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182761.jpgsave_picture_182761.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:C9F9431D8DD060D3D6335AFAD763FDD69E5BE378
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182762.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182762.jpgsave_picture_182762.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:8A94E118B290FF0E8F589E44A5CECB10C7C277F1
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_182763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_182763.jpgsave_picture_182763.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:507C625D069254977D5B78662747E3550AA1BF88
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182765.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182765.jpgsave_picture_182765.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:42E3598500D0A7E716EFC687D27E5AE336D1C356
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_182767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_182767.jpgsave_picture_182767.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:BF6DE244012D7C67B1C8C60B0E521DE9A5B9DFC3
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182768.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182768.jpgsave_picture_182768.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:0747555133F524CA23C3C28AD49EF7E2EB8DF1C8
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182771.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182771.jpgsave_picture_182771.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:96FC469DA7F95E035C3F28911CAC6E60776F8753
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182772.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182772.jpgsave_picture_182772.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:5C660F86B7D2C9A797F71D69088BED082E40C950
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_182773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_182773.jpgsave_picture_182773.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:F6099DF1C812F984CF79E5BAE1AD0644374B86B9
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_182775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_182775.jpgsave_picture_182775.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ magnet:?xt=urn:btih:3F9D6E16C25EEF2BA4CE1208519972F2563956CD
 >>Компьютерные новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_182777.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_182777.jpgsave_picture_182777.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Rockstar | Артбук по игре GTA 4 / The Art of Grand Theft Auto IV (20
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182778.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182778.jpgsave_picture_182778.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ magnet:?xt=urn:btih:16708C86D7CE10FDDB15E03F1A279BBAC463F97B
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182781.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182781.jpgsave_picture_182781.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ magnet:?xt=urn:btih:3283B1928A48C1C0211C1BD325B7DC5058FE2BA6
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182782.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182782.jpgsave_picture_182782.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ magnet:?xt=urn:btih:AAC67076705E5D69365DF66F8F0D0EEF99BD6CA3
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_182783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_182783.jpgsave_picture_182783.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ magnet:?xt=urn:btih:B0EFE403981F6DBB45EA8B84639FBD7FE52D9632
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182786.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182786.jpgsave_picture_182786.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ magnet:?xt=urn:btih:DF66D9A72E74E9F7028D8D3A55AAAC09CDBFFE4A
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_182787.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_182787.jpgsave_picture_182787.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ magnet:?xt=urn:btih:08C894B06340C6685F3573C34C47FB57D12B275F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182791.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182791.jpgsave_picture_182791.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:A0D502161A4EAC316D08EF0115A930749F14CBC2
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_182792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_182792.jpgsave_picture_182792.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Gal Gun (2012) [PS3] [JAP] 3.55 [License] [Jp] [MOVE]
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182793.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182793.jpgsave_picture_182793.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Udemy, Macheronte Courses | Изучите Python и создайте свой �
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_182795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_182795.jpgsave_picture_182795.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ IObit Driver Booster Pro 10.1.0.86 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182797.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182797.jpgsave_picture_182797.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ magnet:?xt=urn:btih:0B2E5841C2EA54375E9C27F12E107A241EA83BA8
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182798.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182798.jpgsave_picture_182798.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ magnet:?xt=urn:btih:5C064FA3566CAA5FA60D26E011997E667822BDA9
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_182801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_182801.jpgsave_picture_182801.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Grateful Dead - Wake of the Flood (1973) 50th Anniversary Deluxe Edition, Remast
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182802.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182802.jpgsave_picture_182802.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ Blackmagic Design DaVinci Resolve Studio 18.1.1 Build 7 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182803.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182803.jpgsave_picture_182803.jpg" />
 </div>
 
 

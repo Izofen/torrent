@@ -6,7 +6,7 @@
 >>Отечественные Мультфильмы 21-го века (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153437.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153437.jpgsave_picture_153437.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:8E3105B692CA8A5E2888BFFEB30C01133E2A70B7
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153438.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153438.jpgsave_picture_153438.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ Legions of Ashworld (2014) [En] (1.0.2) Repack dark_elf2
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153439.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153439.jpgsave_picture_153439.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:9D372B3734EB2385730DD5B1736FE3C75E793393
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153440.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153440.jpgsave_picture_153440.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ Udemy, Максим Новак | Универсальные коллекции �
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153442.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153442.jpgsave_picture_153442.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ VA - Graceful Vocal Trance (2016) [MP3|320 Kbps] <Vocal Trance, Electro>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153443.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153443.jpgsave_picture_153443.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ Willis Jackson - Bar Wars (1977) 1989, Muse Records [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153445.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153445.jpgsave_picture_153445.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ Frank Riggio - Psychexcess I - Presentism (2012) [Hymen Records] [FLAC|Lossless]
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153446.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153446.jpgsave_picture_153446.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ magnet:?xt=urn:btih:E272B3D3C34DD00891BCB9406FE89B51153621BB
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153447.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153447.jpgsave_picture_153447.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ Forecast Bar 2.1.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153448.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153448.jpgsave_picture_153448.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ magnet:?xt=urn:btih:AE972F24AA16EDC2978F7E4C416E33A83B32559D
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153449.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153449.jpgsave_picture_153449.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ magnet:?xt=urn:btih:20EAD073455578D11FD63CC3F33DCA7862B13DF9
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153450.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153450.jpgsave_picture_153450.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ Incantation - Vanquish In Vengeance (2012) [MP3|320 кб/с]<Death Metal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153451.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153451.jpgsave_picture_153451.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ magnet:?xt=urn:btih:206CF0CAC367FFCFE19BABE501F4989A150984E5
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153452.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153452.jpgsave_picture_153452.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Ozzy Osbourne - The Essential Ozzy Osbourne (2003) 2019 remastered Epic [FLAC 2.
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153454.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153454.jpgsave_picture_153454.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ magnet:?xt=urn:btih:A01DE2F21AA895A97AE46F9F727B87B75AFCEBFB
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153455.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153455.jpgsave_picture_153455.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ magnet:?xt=urn:btih:308DFA18D03A71185A8E84EA819B74655F869BDE
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153456.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153456.jpgsave_picture_153456.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ magnet:?xt=urn:btih:6CEB4DC5A98427BA2A86611A603B955B6DC62E18
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153457.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153457.jpgsave_picture_153457.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ E1NS - Вечная мерзлота (2016) [MP3|320 Kbps] <Alternative Metal>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153459.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153459.jpgsave_picture_153459.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ magnet:?xt=urn:btih:99AA6DF3D0948DDE62FEDD42B511891C3CC1BC09
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153460.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153460.jpgsave_picture_153460.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ magnet:?xt=urn:btih:3C73A683856ABE961ED7AEA3823B52CC449AE595
 >>Картинки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153461.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153461.jpgsave_picture_153461.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ magnet:?xt=urn:btih:B096E6243AD66FE3394DDA758E1F8F4673B68B49
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153462.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153462.jpgsave_picture_153462.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ magnet:?xt=urn:btih:C156896C412149A6BEC2F18DD72441B57CE4FBB7
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153463.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153463.jpgsave_picture_153463.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ magnet:?xt=urn:btih:F5000138F243EDEB9C9A237D0D3DD3688EE7B369
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153465.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153465.jpgsave_picture_153465.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ magnet:?xt=urn:btih:23C0E71CF3CAFBB74A0658A6856B0EA7352C0828
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153466.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153466.jpgsave_picture_153466.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ Hypertoad - God please destroy humanity (2016) ЕР [MP3|320 Kbps] <Instrumental
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153468.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153468.jpgsave_picture_153468.jpg" />
 </div>
 
 

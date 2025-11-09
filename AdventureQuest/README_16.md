@@ -6,7 +6,7 @@ Tribute (2025) [Ru/Multi] (1.4.3) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26412.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26412.jpgsave_picture_26412.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ BrokenLore: LOW (2025) [Ru/Multi] (build 17449000) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26587.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26587.jpgsave_picture_26587.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ The Shell Part III: Paradiso (2025) [Multi] (1.0.2/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26590.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26590.jpgsave_picture_26590.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ The Shell Part II: Purgatorio (2024) [Multi] (1.0.1/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26620.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26620.jpgsave_picture_26620.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ BrokenLore: LOW (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26626.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26626.jpgsave_picture_26626.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ The Shell Part I: Inferno (2023) [Multi] (1.0.2/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26632.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26632.jpgsave_picture_26632.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ NORCO (2022) [Ru/Multi] (1.5.0) License GOG [Special Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26642.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26642.jpgsave_picture_26642.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Amenti (2025) [Ru/En] (Build 17306708) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26644.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26644.jpgsave_picture_26644.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Cabernet (2025) [Multi] (1.0.8) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26660.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26660.jpgsave_picture_26660.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ BrokenLore: LOW (2025) [Ru/Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26702.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26702.jpgsave_picture_26702.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Amanita Design Collection (2003-2021) [Ru/Multi] (1.12/2.34/Build 4041/1.2.0/1.4
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26712.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26712.jpgsave_picture_26712.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ A Game About Digging A Hole (2025) [Ru/Multi] (build 17291810) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26725.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26725.jpgsave_picture_26725.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Geminism (2025) [Multi] (1.0.0/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26811.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26811.jpgsave_picture_26811.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Slender Threads (2025) [Ru/Multi] (1.0.2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26816.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26816.jpgsave_picture_26816.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ While Waiting (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26826.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26826.jpgsave_picture_26826.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Discolored 2 (2025) [Ru/Multi] (1.3.1) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26838.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26838.jpgsave_picture_26838.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Amnesia A Machine for Pigs (2013) [Ru/Multi] (1.2) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26974.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26974.jpgsave_picture_26974.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Gym Nights (2024) [Ru/En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27004.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27004.jpgsave_picture_27004.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Amnesia: The Dark Descent / Амнезия: Призрак прошлого (201
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27014.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27014.jpgsave_picture_27014.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Amnesia: The Bunker (2023) [Ru/Multi] (1.31) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27025.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27025.jpgsave_picture_27025.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Amnesia Rebirth (2020) [Ru/Multi] (1.40) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27032.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27032.jpgsave_picture_27032.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Lost Records Bloom & Rage (2025) [Ru/Multi] (1.02.118358) Repack DjDI [Soundtrac
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27042.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27042.jpgsave_picture_27042.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ The Spirit of the Samurai (2024) [Ru/Multi] (1.0.10) Repack Let'sРlay [Deluxe E
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27064.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27064.jpgsave_picture_27064.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Lost Records Bloom & Rage (2025) [Ru/Multi] (build 17370633) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27079.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27079.jpgsave_picture_27079.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Lost Records Bloom & Rage (2025) [Ru/Multi] (1.02.118358) Scene FAiRLiGHT
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27135.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27135.jpgsave_picture_27135.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ magnet:?xt=urn:btih:AF0B17DAB1145858B197CD6F46293F5029B5B808
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27245.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27245.jpgsave_picture_27245.jpg" />
 </div>
 
 

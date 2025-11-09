@@ -6,7 +6,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162987.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162987.jpgsave_picture_162987.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:7F5699E6F40B03A787832ED3D4CFC3C380B14603
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162988.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162988.jpgsave_picture_162988.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:184CEF50DE14BDA1D091FF0E714DDF852E0DE8FB
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162989.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162989.jpgsave_picture_162989.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:14AC29605311FD08AA9C6C2E36346A4C07A7439D
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162990.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162990.jpgsave_picture_162990.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ VA - Lounge Del Mare 1: Chillout Cafe Pearls (2007) [AAC|~342 Kbps] <Electronic,
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162991.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162991.jpgsave_picture_162991.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:FC8B23ADB4119B9475D76745AEE5A7326B8112CA
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162992.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162992.jpgsave_picture_162992.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:02FE33214AC76121E1338AFB3D2E8F192BD80847
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162993.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162993.jpgsave_picture_162993.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Noise Machine 1.18 fix [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162994.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162994.jpgsave_picture_162994.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:AD7CA0C33F47CBF59BA8B17338BCA28BEA12B3F9
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162995.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162995.jpgsave_picture_162995.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:1E427ECA11CB7C1DF1E293CE5ED97EDD1B9F0C0F
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162996.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162996.jpgsave_picture_162996.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:A1B446BC3AF0A495EECC57C898C6098454532869
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162997.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162997.jpgsave_picture_162997.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ A Better Finder Rename 11 v11.41 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162998.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162998.jpgsave_picture_162998.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:97706DBFAF55188884396994382130296A0835BF
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162999.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162999.jpgsave_picture_162999.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ magnet:?xt=urn:btih:2D7451EBBA06C99E697FDD6F336240C225D7F152
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163000.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163000.jpgsave_picture_163000.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Stand Up (2023.11.03) SATRip (сезон 11, выпуск 7)
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163001.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163001.jpgsave_picture_163001.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:EE3AC14A530F54A3E054D6144342AD826C990D59
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163002.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163002.jpgsave_picture_163002.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ PDF Search + PDF Converter 11.10 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163003.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163003.jpgsave_picture_163003.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ Art Files 3 v3.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163004.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163004.jpgsave_picture_163004.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ Viorel Rudareanu, Daniil Baturin | Linux for System Administrators (2023) [PDF][
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163005.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163005.jpgsave_picture_163005.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ magnet:?xt=urn:btih:4BB0A7D6D26F604328533ECD2CFBA07D17387FBF
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163006.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163006.jpgsave_picture_163006.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ magnet:?xt=urn:btih:F0E6BA8C42CB57AB2AE2EC79AE85F589472149EF
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163007.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163007.jpgsave_picture_163007.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Network Kit 9.0.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163009.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163009.jpgsave_picture_163009.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ magnet:?xt=urn:btih:9F16AFBAD8D646A7743B29A6A3F5D98DD4964108
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163010.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163010.jpgsave_picture_163010.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ magnet:?xt=urn:btih:30ED8D77A9732FFAEB345A1263EBDC7BE7F8FD7E
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163011.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163011.jpgsave_picture_163011.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Jean-Michel Jarre - Oxymoreworks (2023) [FLAC|Lossless|WEB-DL|tracks] <Techno>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163012.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163012.jpgsave_picture_163012.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ PullTube 1.7.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163013.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163013.jpgsave_picture_163013.jpg" />
 </div>
 
 

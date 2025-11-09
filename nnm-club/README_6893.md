@@ -6,7 +6,7 @@ VA - The Essential Downtempo: Chillout Your Mind (2021) [AAC|~314 Kbps] <Downtem
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236724.jpgsave_picture_236724.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VueScan Pro 9.8.07 ARM/Intel [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236725.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236725.jpgsave_picture_236725.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:2C9BB488788D3CFB0ED1F417AD5FDDAE9916E462
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236726.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236726.jpgsave_picture_236726.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ The Crystal City Rockers - After All These Years (2021) [FLAC|Lossless|WEB-DL|tr
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236727.jpgsave_picture_236727.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ aText 2.37 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236729.jpgsave_picture_236729.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Skype 8.98.0.407 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236730.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236730.jpgsave_picture_236730.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:92F9247545B50828C835D9F8370405425F4F8618
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236731.jpgsave_picture_236731.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:887C882404AE49525A4D1EE695FC1F2DAB2FCF4A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236734.jpgsave_picture_236734.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:FE2C2A22E92CA7EAD44CC1F702927456EDC44C60
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236735.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236735.jpgsave_picture_236735.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ MacCleanse 10 v10.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236737.jpgsave_picture_236737.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Alan King - I Saw The Rain (1995) [FLAC|Lossless|image + .cue] <AOR, Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236738.jpgsave_picture_236738.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ Antonia Clare, J. J. Wilson | Speak Out 2nd Pre-intermediate (2015) [PDF] [Stude
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236740.jpgsave_picture_236740.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ Rhinoceros 7 v.7.31 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236741.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236741.jpgsave_picture_236741.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ magnet:?xt=urn:btih:7B2A33E8486180E05EDAABC917659C8CBA319FE4
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236743.jpgsave_picture_236743.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ The Clock - The Best World Clock 4.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236745.jpgsave_picture_236745.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Sic Vikki - Streetside Picasso (1995) Japanese Edition [FLAC|Lossless|image + .c
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236747.jpgsave_picture_236747.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ OTUS, Сергей Караткевич и др. | SRE практики и ин�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236748.jpgsave_picture_236748.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Tim Feehan - Full Contact (1990) [FLAC|Lossless|image + .cue] <AOR>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236750.jpgsave_picture_236750.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ Network Radar 3.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236751.jpgsave_picture_236751.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ magnet:?xt=urn:btih:BA002E2871A115EB0718950FBA7BECCFCA8DEF7B
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236752.jpgsave_picture_236752.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Arret's Odyssey - Arret's Odyssey (2021) [FLAC|Lossless|WEB-DL|tracks] <Progress
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236756.jpgsave_picture_236756.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Sugarcult - Start Static (2001) 20th Anniversary Edition, 2021, Fearless Records
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236758.jpgsave_picture_236758.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ magnet:?xt=urn:btih:E4617FC3AD54FEF0C31A463D6D41AF90995BDC9A
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236759.jpgsave_picture_236759.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ magnet:?xt=urn:btih:5E731B6EB8B9C750EB65F98498B913E336CCC708
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236760.jpgsave_picture_236760.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ June Christy - This Time Of Year (1961) 2010, Toshiba-EMI [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236765.jpgsave_picture_236765.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ HTML Academy | Протоколы и сети: основы (2022) [unpacked]
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236766.jpgsave_picture_236766.jpg" />
 </div>
 
 

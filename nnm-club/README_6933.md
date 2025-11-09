@@ -6,7 +6,7 @@ OneCommander Pro 3.45.1.0 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238057.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238057.jpgsave_picture_238057.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Korriban - The Endless Path (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238058.jpgsave_picture_238058.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Skype 8.97.0.204 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238059.jpgsave_picture_238059.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ Usher 2.0 Beta [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238060.jpgsave_picture_238060.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ PullTube 1.8.5.9 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238061.jpgsave_picture_238061.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ magnet:?xt=urn:btih:B775AEDE42483FCFBC8CEA345E5216C224C418A7
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238062.jpgsave_picture_238062.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ Pluralsight, Dan Cox | Realistic Texturing of Modular Structures in Substance Pa
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238063.jpgsave_picture_238063.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:C814B7D865EE026A561419A69F048CC940154A51
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238064.jpgsave_picture_238064.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ BusyContacts 2023.1.1 U2B [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238065.jpgsave_picture_238065.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ magnet:?xt=urn:btih:524CD970F7FE65FFA1F2D358BB5512E01B0D4DCD
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238066.jpgsave_picture_238066.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ IObit Driver Booster Pro 10.4.0.127 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238067.jpgsave_picture_238067.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ magnet:?xt=urn:btih:5A3F58528F0D57B159DCDCDAA617697984C84A27
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238068.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238068.jpgsave_picture_238068.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Dash 5.5.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238069.jpgsave_picture_238069.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Martial Solal - The Vogue Recordings, Vol.3 (1955 - 1958) 1993, Vogue [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238070.jpgsave_picture_238070.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ magnet:?xt=urn:btih:F6D36F0DDC5AAFFE1351047161317C246CAD8798
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238071.jpgsave_picture_238071.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Calibre 6.17.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238072.jpgsave_picture_238072.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Scrutiny 10 v10.2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238073.jpgsave_picture_238073.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Autophagy - Bacteriophage (2022) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238074.jpgsave_picture_238074.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ magnet:?xt=urn:btih:D3176E02EC8DBABC8AD5ADD8143E9B841542E047
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238075.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238075.jpgsave_picture_238075.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ DirEqual 5.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238076.jpgsave_picture_238076.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ WidsMob Portrait Pro 1.5.0.116 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238077.jpgsave_picture_238077.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Ekrom - Uten N​adigst Formildelse (2023) [MP3|320 Kbps] <Black Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238078.jpgsave_picture_238078.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ magnet:?xt=urn:btih:C474F0D00E094D76F1CC36EEEA9F8B05F7007BED
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238079.jpgsave_picture_238079.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Acausal Intrusion - Nulitas (2021) [FLAC|Lossless|WEB-DL|tracks] <Technical Deat
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238080.jpgsave_picture_238080.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Leo Parker - 1947 - 1950 (2001) Classics [FLAC|Lossless|tracks + .cue] <Bop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238081.jpgsave_picture_238081.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ magnet:?xt=urn:btih:E98DC432C035924F79DAF05A1A34FA8B5BBDDB13
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238082.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238082.jpgsave_picture_238082.jpg" />
 </div>
 
 

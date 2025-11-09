@@ -6,7 +6,7 @@ Pax Augusta (2025) [Multi] (1.0) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19514.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19514.jpgsave_picture_19514.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Skin Deep (2025) [Ru/Multi] (2025.04.27.1441) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19515.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19515.jpgsave_picture_19515.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Haunted House Renovator (2025) [Ru/Multi] (1.3.190) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19516.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19516.jpgsave_picture_19516.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:7499BF54783C66B15B9A3B36686D8460EE03ACD0
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19517.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19517.jpgsave_picture_19517.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Once Upon A Puppet (2025) [Ru/Multi] (2.14.4.1/dlc) Repack FitGirl [Backstage Ed
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19518.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19518.jpgsave_picture_19518.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ theHunter Call of the Wild (2017) [Ru/Multi] (2989309/dlc) Repack Let'sРlay [Ul
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19519.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19519.jpgsave_picture_19519.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:BF87B692CE3E4C5ECEA574F115E824E0346E3D88
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19520.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19520.jpgsave_picture_19520.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:A7D8C3103463B7BC3F2AB7C6137C0B2FB3A73A0E
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19521.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19521.jpgsave_picture_19521.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:0137A5479281802066FAA5368D78480F98D89065
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19522.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19522.jpgsave_picture_19522.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ magnet:?xt=urn:btih:EEA02962A6A7269A8F2DE960B3473544858404CA
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19523.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19523.jpgsave_picture_19523.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ magnet:?xt=urn:btih:E59B05EE44B110F6383C0E2CEA160EA006FED6D5
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19524.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19524.jpgsave_picture_19524.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Flint: Treasure of Oblivion (2024) [Ru/Multi] (0.20074/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19525.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19525.jpgsave_picture_19525.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ magnet:?xt=urn:btih:CE6B8B84FA9505ED65A35421B679BE0A45B85AB4
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19526.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19526.jpgsave_picture_19526.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ magnet:?xt=urn:btih:ADA838C5C7752821B6319B9C522DAF73D12BD922
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19527.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19527.jpgsave_picture_19527.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ magnet:?xt=urn:btih:078EEA8A71B0A2254F9F8C181EFCD93D9F87EA06
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19528.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19528.jpgsave_picture_19528.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ magnet:?xt=urn:btih:C1B22A2BDF003AC664AD8C37430CB0771938BB91
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19529.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19529.jpgsave_picture_19529.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ magnet:?xt=urn:btih:3FAD8B28454FA1B5282F53254845A086974A391E
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19530.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19530.jpgsave_picture_19530.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ MobaXterm 25.2 build 5296 + Portable [En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19531.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19531.jpgsave_picture_19531.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Solium Infernum (2024) [Ru/Multi] (1.1.3p1_85049/dlc) Repack Let'sРlay [Collect
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19532.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19532.jpgsave_picture_19532.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ magnet:?xt=urn:btih:B7CEE7E9230413D698A0BBE501B1B48A9E2ADD77
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19533.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19533.jpgsave_picture_19533.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ magnet:?xt=urn:btih:B2F2954EF5C998B949AC1984ADFAE1BC998AAC07
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19534.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19534.jpgsave_picture_19534.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ magnet:?xt=urn:btih:4A187F1F76CEE3A753BFDFC2547D39B703808442
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19535.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19535.jpgsave_picture_19535.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ magnet:?xt=urn:btih:02BFEC4E6F3CF963CBC91B8CA3824B283A6536C4
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19536.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19536.jpgsave_picture_19536.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ KIBORG (2025) [Ru/Multi] (20 2.50.4_30: 1:50) Repack FitGirl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19537.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19537.jpgsave_picture_19537.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Moroi (2025) [Ru/Multi] (1.10) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19538.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19538.jpgsave_picture_19538.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Victory at Sea Atlantic - World War II Naval Warfare (2024) [Ru/Multi] (1.0.1.2)
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19539.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19539.jpgsave_picture_19539.jpg" />
 </div>
 
 

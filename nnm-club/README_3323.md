@@ -6,7 +6,7 @@
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106759.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106759.jpgsave_picture_106759.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:D1C619CBFB023AE7636D859118C67310F7DE8CC6
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106760.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106760.jpgsave_picture_106760.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Seth Lee Jones - Tulsa Custom (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blue
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106761.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106761.jpgsave_picture_106761.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Ray Brown, Monty Alexander, Sam Most - A Ray Brown 3 (1982) 2002, Victor Enterta
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106762.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106762.jpgsave_picture_106762.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Sean Webster - Summer Has Gone (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106763.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106763.jpgsave_picture_106763.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ The Roses - Out Of The Fear (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106764.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106764.jpgsave_picture_106764.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Nocturnus AD - Unicursal (2024) [FLAC|Lossless|image + .cue] <Technical Death Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106765.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106765.jpgsave_picture_106765.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Zuli - Lambda (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <trip hop,  techno an
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106766.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106766.jpgsave_picture_106766.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Ivan Marcio - 30 and Still Counting (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106767.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106767.jpgsave_picture_106767.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ The Skintight Revue - The Ever Lovin' Travelin' Show (2024) [FLAC 24/44.1|Lossle
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106768.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106768.jpgsave_picture_106768.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Black Hole Deity - Profane Geometry (2024) [FLAC|Lossless|WEB-DL|tracks] <Death 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106769.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106769.jpgsave_picture_106769.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ FanControl V195 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106770.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106770.jpgsave_picture_106770.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ magnet:?xt=urn:btih:59C0C01DDA48C3F15C802157E21659710A822685
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106771.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106771.jpgsave_picture_106771.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ magnet:?xt=urn:btih:1AA5C145DF2B5AC64E1E25AF80A6C129C6CC8EE1
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106772.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106772.jpgsave_picture_106772.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Slade - Live In London 1972 (Live) (2024) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106773.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106773.jpgsave_picture_106773.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Evercloud - From Light To Eternity (2024) [FLAC|Lossless|WEB-DL|tracks] <Doom, D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106774.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106774.jpgsave_picture_106774.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ DJ Pulse Feat. Donna Marie - Wherever You Go (2019 remixes) (2019) [FLAC|Lossles
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106775.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106775.jpgsave_picture_106775.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ The Yardbirds - The Ultimate Live At The BBC (2024) [FLAC 24/48|Lossless|WEB-DL|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106776.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106776.jpgsave_picture_106776.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ magnet:?xt=urn:btih:C4DFD38812895DB9FE5398C48579DB4982A38589
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106777.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106777.jpgsave_picture_106777.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Seasick Steve - A Trip A Stumble A Fall Down On Your Knees (2024) [FLAC 24/96|Lo
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106778.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106778.jpgsave_picture_106778.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ magnet:?xt=urn:btih:601F63929C7DEBCC1C293012CE99D8FE106BC0B4
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106779.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106779.jpgsave_picture_106779.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Mr. Big - Ten (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106780.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106780.jpgsave_picture_106780.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ magnet:?xt=urn:btih:588C5E5E493A3B71386B45666DD7501CC6876131
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106781.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106781.jpgsave_picture_106781.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ magnet:?xt=urn:btih:EAF147815F93FDC282ABE9BEEDB6E6969E9891E8
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106782.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106782.jpgsave_picture_106782.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Photo Supreme 2024.2.0.6544 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106783.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106783.jpgsave_picture_106783.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ magnet:?xt=urn:btih:23EBA586EC38437A18ACFA6BEC0F21B4D5B77711
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106784.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106784.jpgsave_picture_106784.jpg" />
 </div>
 
 

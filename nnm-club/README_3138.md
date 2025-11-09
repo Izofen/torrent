@@ -6,7 +6,7 @@
 >>Бокс
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101165.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101165.jpgsave_picture_101165.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ VA - Jazz Vocalists (2024) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101166.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101166.jpgsave_picture_101166.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Nancy Sinatra - Country, My Way (1967) Remastered, 2024, Boots Enterprises, Inc.
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101167.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101167.jpgsave_picture_101167.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ VA - ROCK en todos los idiomas (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101168.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101168.jpgsave_picture_101168.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ magnet:?xt=urn:btih:CC664F1F75369BACE425FF76D6CB7BA052284291
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101169.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101169.jpgsave_picture_101169.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ magnet:?xt=urn:btih:2956BEBFD55D2CF3156B07DCCBA086F42ED27660
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101170.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101170.jpgsave_picture_101170.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ magnet:?xt=urn:btih:38DFCCFDE8C65F11BB19BB67C6859847AFDEABBE
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101171.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101171.jpgsave_picture_101171.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ VA - Calm Late Night Jazz Music (Instrumental Jazz Sax Piano Guitar) (2024) [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101172.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101172.jpgsave_picture_101172.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ magnet:?xt=urn:btih:CF9541CB0DE31F9852828043372918C3FA7AD483
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101173.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101173.jpgsave_picture_101173.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ VA - NYC Jazz Bar (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101174.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101174.jpgsave_picture_101174.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:C59758F66C28098A87C97D3766A51B007992D0F6
 >>Бокс
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101175.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101175.jpgsave_picture_101175.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:0D88FF67A1C321C0A5605C6ABEBBAC8AE46089BE
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101176.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101176.jpgsave_picture_101176.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ magnet:?xt=urn:btih:AA056A8DA29849862D7943AE1FD2B4F812CC1009
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101177.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101177.jpgsave_picture_101177.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ SZA – Sos Deluxe: Lana (2024) [FLAC 24/44.1, 48|Lossless|WEB-DL|tracks] <Soul,
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101178.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101178.jpgsave_picture_101178.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ VA - Rock Women & Girls (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101179.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101179.jpgsave_picture_101179.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Plugin Alliance - Karanyi Sounds Wavesufer 1.0.0 VST 3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101180.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101180.jpgsave_picture_101180.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ magnet:?xt=urn:btih:A03C6223A3D4EFE80FB98E79CE2D5430510DEED8
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101181.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101181.jpgsave_picture_101181.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ magnet:?xt=urn:btih:5BF7DD6F623A058CF71BAC882574BD3C719B6FF1
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101182.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101182.jpgsave_picture_101182.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ magnet:?xt=urn:btih:BC5CD215EA07158DFD0CC2DB371FF32EE9B06DC4
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101183.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101183.jpgsave_picture_101183.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ magnet:?xt=urn:btih:DBC875D752E199F8381DF8DBA6EE9B797EBEAB8E
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101184.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101184.jpgsave_picture_101184.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ magnet:?xt=urn:btih:0D88664AE9DEABA68949EDEEBC38C94A04E39FB1
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101185.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101185.jpgsave_picture_101185.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ magnet:?xt=urn:btih:78C9C384A6C039307277F05379AE7287AC71D622
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101186.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101186.jpgsave_picture_101186.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ magnet:?xt=urn:btih:B161AC02E8F58CA43DAE3931151D0AA39416A8AB
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101187.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101187.jpgsave_picture_101187.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Mystericon - Иди И Смотри (2024) [FLAC|Lossless|tracks] <Gothic Metal>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101188.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101188.jpgsave_picture_101188.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ VA - Rock Overdose (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101189.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101189.jpgsave_picture_101189.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ VA - Guten Morgen Rock Hits (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101190.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101190.jpgsave_picture_101190.jpg" />
 </div>
 
 

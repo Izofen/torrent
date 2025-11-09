@@ -6,7 +6,7 @@
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144420.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144420.jpgsave_picture_144420.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Ozgur Hazar - Sad and Blue (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144421.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144421.jpgsave_picture_144421.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:B4694B899EDE8DA1114772EB034E904BCD46AF72
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144422.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144422.jpgsave_picture_144422.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:641C5EB95DC7B6ADCCB690573BE0C38D458B33ED
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144423.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144423.jpgsave_picture_144423.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Stan Kenton - City Of Glass (1947 - 1953) 1995, Capitol [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144424.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144424.jpgsave_picture_144424.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:B4E401A198837D2D1EF0DB8FCE9E83700564BD27
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144425.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144425.jpgsave_picture_144425.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ VA - Platipus - Archive 13 (Mixed by Luke Brancaccio) (2018) [MP3|320 Kbps] <Tra
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144427.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144427.jpgsave_picture_144427.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ magnet:?xt=urn:btih:D91765094A197E9B9108F28AC80F6102D49D0F50
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144428.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144428.jpgsave_picture_144428.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ magnet:?xt=urn:btih:6CE0CFAB176582B065DD167FE1D68F076DD951D0
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144429.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144429.jpgsave_picture_144429.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ VA - Black Mirror / Чёрное зеркало (Collection Original Soundtrack)
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144430.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144430.jpgsave_picture_144430.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ Ohrwert - Fidelis / Blavus (2017) Greyscale [FLAC|Lossless|WEB-DL|tracks] <Dub T
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144431.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144431.jpgsave_picture_144431.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ VA - 100 Greatest Ballads (2019) [FLAC|Lossless|tracks] <Pop, Rock, Dance>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144432.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144432.jpgsave_picture_144432.jpg" />
 </div>
 
 
@@ -315,7 +315,7 @@ magnet:?xt=urn:btih:547B467D6B8FE17790F8BBE5436E5B4256006F37
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144433.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144433.jpgsave_picture_144433.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ magnet:?xt=urn:btih:E7922B605A6261601030DF6C7E57D2C3FAFA0D62
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144434.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144434.jpgsave_picture_144434.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ Haunted Hotel 17: Beyond the Page (2018) [En] (1.0) Unofficial [Collector's Edit
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144436.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144436.jpgsave_picture_144436.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ magnet:?xt=urn:btih:11D82C0C2282797F69786A2BD0C8CD041099BCA7
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144437.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144437.jpgsave_picture_144437.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ magnet:?xt=urn:btih:9AF1C4D504778E5A25B5C1DE6BC85D0DA9F8FF38
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144439.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144439.jpgsave_picture_144439.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ VA - Guitar Collection 10 (2016) [MP3|320 Kbps] <Blues, Acoustic, Metal >
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144440.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144440.jpgsave_picture_144440.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ magnet:?xt=urn:btih:537F7014002CAA3674D824BDFE37DCF44C7E77C3
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144441.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144441.jpgsave_picture_144441.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ TG Gray - TG Gray EP (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144442.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144442.jpgsave_picture_144442.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ My_Initials - Twelve (2017) ScanDark Recordings [FLAC|Lossless|WEB-DL|tracks] <T
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144443.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144443.jpgsave_picture_144443.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ magnet:?xt=urn:btih:17377505D1ED89875334A5870604CBEA43AF5E62
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144445.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144445.jpgsave_picture_144445.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ magnet:?xt=urn:btih:49469BC1D64F83B832ED4FEA3CAF2BEA890F75C1
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144446.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144446.jpgsave_picture_144446.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Trine 5: A Clockwork Conspiracy (2023) [Ru/Multi] (1.2a) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144447.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144447.jpgsave_picture_144447.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ magnet:?xt=urn:btih:CAC81A33C572860C07897D59BBC02423829E9EBE
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144448.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144448.jpgsave_picture_144448.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Harry Allen - The Bloody Happy Song (2020) [FLAC|Lossless|image + .cue] <Mainstr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144449.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144449.jpgsave_picture_144449.jpg" />
 </div>
 
 

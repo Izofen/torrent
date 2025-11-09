@@ -6,7 +6,7 @@ Shanghai Dragon [En] (RePack) 2003 | Pilotus
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248603.jpgsave_picture_248603.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Total Control (RePack) [Ru] 1995 | Pilotus
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248616.jpgsave_picture_248616.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Rival Realms (P) [Ru] 1998
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248904.jpgsave_picture_248904.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Defender of the Crown (1986) [En] (1.0) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249057.jpgsave_picture_249057.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Heroes of Might and Magic (1996) [Multi] (1.5 editor fix) License GOG
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249063.jpgsave_picture_249063.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Boppin [En] (RePack) 1994 | Pilotus
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_249160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_249160.jpgsave_picture_249160.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Laser Squad Nemesis [Ru] (P) 2003
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_249272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_249272.jpgsave_picture_249272.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Death Rally [En] (RePack) 1996
 >>Racing
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_249274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_249274.jpgsave_picture_249274.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Shade: Wrath Of Angels / Гнев Ангелов (2004) [Ru/En] (1.2) Repack Vas
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249974.jpgsave_picture_249974.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Painkiller / Крещёный кровью (2004) [Ru] (1.64) Repack Necros
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250348.jpgsave_picture_250348.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Unreal [En] (RePack) 1991 | Pilotus
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251549.jpgsave_picture_251549.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Kabus 22 / Зона 22 Территория страха [Ru] (P) 2007
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251579.jpgsave_picture_251579.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Star Wars: Knights of the Old Republic 2 (II): The Sith Lords (2005) [Multi] (1.
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251879.jpgsave_picture_251879.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Prototype (2009) [Ru/Multi] (1.0.0.1) License
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252222.jpgsave_picture_252222.jpg" />
 </div>
 
 

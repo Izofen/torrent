@@ -6,7 +6,7 @@ VA - Новые Хиты Дискотек (2012) [MP3|256 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248267.jpgsave_picture_248267.jpg" />
 </div>
 
 
@@ -39,7 +39,7 @@ VA - Клубный Танцпол Vol.1 (2012) [MP3|320 кб/с]<Dance, Club>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248391.jpgsave_picture_248391.jpg" />
 </div>
 
 
@@ -72,7 +72,7 @@ VA - Return To Space (2009) [MP3|224 кб/с]<Spacesynth>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248413.jpgsave_picture_248413.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ VA - Клубный Хит в Машину! Vol.1 (2012) [MP3|320 кб/с]<Dance
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248461.jpgsave_picture_248461.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ VA - Лучшие Хиты Радио Дача Часть 8 (2012) [MP3|256 кб
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248566.jpgsave_picture_248566.jpg" />
 </div>
 
 
@@ -171,7 +171,7 @@ Sons of Ashes - Favorites Collection (2025) [MP3|320 Kbps] <Blues, Blues Rock>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248569.jpgsave_picture_248569.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Enlly Blue - Favorites Collection (2025) [MP3|320 Kbps] <Blues, Blues Rock, AI>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248571.jpgsave_picture_248571.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Ilaria Argento - Favorites Collection (2025) [MP3|320 Kbps] <Blues, Blues Rock, 
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248573.jpgsave_picture_248573.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Ilaria Argento - Assorted (2025) [MP3|320 Kbps] <Pop, Dance,  rock, Other, AI>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248575.jpgsave_picture_248575.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ VA - Песни Великой Победы (10CD) (2012) [MP3|320 кб/с]<Ре
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248662.jpgsave_picture_248662.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ VA - Клубные Новинки Vol.74 from AGR (2012) [MP3|320 кб/с]<Club
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248711.jpgsave_picture_248711.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ VA - Русские Новинки Vol.51 from AGR (2012) [MP3|320 кб/с]<Pop>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248716.jpgsave_picture_248716.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ VA - Maxi. Танцевальный расколбас Europa Plus (2012) [MP3|3
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_248820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_248820.jpgsave_picture_248820.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ VA - Новинки Авто Дискотек 50\50 (2012) [MP3|256 кб/с]<Pop
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248842.jpgsave_picture_248842.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ VA - Инструментальная музыка (2012) vol. № 30 [MP3|320 �
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248856.jpgsave_picture_248856.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ VA - Инструментальная музыка (2012) vol. № 29 [MP3|320 �
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248860.jpgsave_picture_248860.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ VA - Жажда танца. Будет жарко! (2012) [MP3|256 кб/с]<Pop,
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249103.jpgsave_picture_249103.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ VA - Лучшая clubная музыка сезона (2012) [MP3|256 кб/с]<
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249178.jpgsave_picture_249178.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ VA - Грезы любви (2012) [MP3|320 кб/с]<Шансон>
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249190.jpgsave_picture_249190.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ VA - Инструментальная музыка (2012) vol. № 31 [MP3|320 �
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249214.jpgsave_picture_249214.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ magnet:?xt=urn:btih:88E02190EE37B7DB31B53F33A316218FD5720103
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249280.jpgsave_picture_249280.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ VA - 10 000... Italo-Euro-Space-Synth-Pop-Hi-NRG-Disco From Ovvod7 & tiv44 (201-
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249517.jpgsave_picture_249517.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ VA - Зарубежная Дискотека ХХ Века (Студия «Spedi
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249528.jpgsave_picture_249528.jpg" />
 </div>
 
 
@@ -693,7 +693,7 @@ VA - Music News vol.252 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249531.jpgsave_picture_249531.jpg" />
 </div>
 
 
@@ -720,7 +720,7 @@ VA - В машине с музыкой Vol.328 (2023) [MP3|320 Kbps] <Pop, Dance
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249580.jpgsave_picture_249580.jpg" />
 </div>
 
 
@@ -747,7 +747,7 @@ Bryan Adams - Collection (2022) [MP3|320 Kbps] <Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249622.jpgsave_picture_249622.jpg" />
 </div>
 
 

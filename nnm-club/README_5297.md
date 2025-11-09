@@ -6,7 +6,7 @@ VA - Anjunadeep: The Yearbook 2019 (2019) 2CD [FLAC|Lossless|WEB-DL|tracks] <Dee
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164532.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164532.jpgsave_picture_164532.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ iCollections 6 v6.7.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164533.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164533.jpgsave_picture_164533.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ LaunchBar 6.15 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164534.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164534.jpgsave_picture_164534.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Adobe Illustrator 2023 27.1.1.196 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164535.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164535.jpgsave_picture_164535.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:474ADCE87895E86AA77A5BAC1917596FDC08DE33
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164536.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164536.jpgsave_picture_164536.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Andre 3000 & Madlib - Otis Benjamin 2.0 (MadStacks) (2019) [FLAC|Lossless|Web-DL
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164537.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164537.jpgsave_picture_164537.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ AnyMP4 DVD Ripper for Mac 9.0.20 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164538.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164538.jpgsave_picture_164538.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ NCH WavePad Mater 11.45 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164539.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164539.jpgsave_picture_164539.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Leprous - Pitfalls (2019) [FLAC|Lossless|image + .cue] <Progressive Rock, Progre
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164540.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164540.jpgsave_picture_164540.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ Duplicate Photos Fixer Pro 2.20 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164541.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164541.jpgsave_picture_164541.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ Aiseesoft Mac Video Converter Ultimate 10.2.18 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164543.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164543.jpgsave_picture_164543.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ SSH Config Editor Pro 1.11.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164544.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164544.jpgsave_picture_164544.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ Screen Snapshot 4.1.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164545.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164545.jpgsave_picture_164545.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ VA - Chillout King Ibiza: Chill Around the World (2017) [AAC|~323 Kbps] <Lounge,
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164546.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164546.jpgsave_picture_164546.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ magnet:?xt=urn:btih:5FBF95A82F2A20C6435AAC4F714A597AA1EB5E9B
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164547.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164547.jpgsave_picture_164547.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ VA - Dark Goa Psychedelic Trance (2019) [MP3|320 Kbps] <Trance Psychedelic, Goa>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164548.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164548.jpgsave_picture_164548.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Cookie 6.3.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164549.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164549.jpgsave_picture_164549.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ SideNotes 1.4.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164550.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164550.jpgsave_picture_164550.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ Fish On Friday - 8mm (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock/Cros
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164551.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164551.jpgsave_picture_164551.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ Atmosphere - Whenever (2019) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Rap>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164552.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164552.jpgsave_picture_164552.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Smultron 12.2.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164553.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164553.jpgsave_picture_164553.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ magnet:?xt=urn:btih:590ED9A5ADD5397E3F9EA748DDFA48751CB01BB0
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164554.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164554.jpgsave_picture_164554.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ magnet:?xt=urn:btih:96E97259F2D1E3CBCF95D080C3676ABBFAC33D4E
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164555.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164555.jpgsave_picture_164555.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ CollageIt 3 Pro v.3.6.12 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164556.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164556.jpgsave_picture_164556.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ magnet:?xt=urn:btih:F2614BB01E641C390FEB50E596A0952D55397E51
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164557.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164557.jpgsave_picture_164557.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ Elm Street - The Great Tribulation (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164558.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164558.jpgsave_picture_164558.jpg" />
 </div>
 
 

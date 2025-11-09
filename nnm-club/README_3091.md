@@ -6,7 +6,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98987.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98987.jpgsave_picture_98987.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Sector F - Рядом с улицей Бога (2007) [MP3|320 кб/с]<rap>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98990.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98990.jpgsave_picture_98990.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Bennie Green - Mosaic Select (Box Set 3CD) (2003) [MP3|320 кб/с]<Jazz>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98991.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98991.jpgsave_picture_98991.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ magnet:?xt=urn:btih:1BED3953C2AB5F00750F4340DB4D77ACB8432B7F
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98995.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98995.jpgsave_picture_98995.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ magnet:?xt=urn:btih:C1D1360B928E663054C5A69249268519B81F7512
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98996.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98996.jpgsave_picture_98996.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ VA-Trance Eve Volume 24 (2012) [MP3|320 кб/с]<Uplifting Trance, Vocal Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98998.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98998.jpgsave_picture_98998.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ magnet:?xt=urn:btih:89DDAEAEB0D5D26C0276AE4B22E72F2F3C0F4DBC
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98999.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98999.jpgsave_picture_98999.jpg" />
 </div>
 
 
@@ -197,7 +197,7 @@ magnet:?xt=urn:btih:FD4EC4C61B150750220F89F7B14C7114315C6E30
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99000.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99000.jpgsave_picture_99000.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ VA - Easy Listening (2012) [MP3|320 кб/с]<Downtempo, Lounge>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99001.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99001.jpgsave_picture_99001.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ Eric Sneo - Polarity (2012) [MP3|320 кб/с]<Techno>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99003.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99003.jpgsave_picture_99003.jpg" />
 </div>
 
 
@@ -289,7 +289,7 @@ magnet:?xt=urn:btih:5F94CBFFDC9CA65966127B4D5026EEB1D186FE80
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99004.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99004.jpgsave_picture_99004.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ VA - Paul Oakenfold DJ Box - April (2012) (2012) [MP3|320 кб/с]<Trance, Progr
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99005.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99005.jpgsave_picture_99005.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ VA - Trance Eve Volume 25 (2012) [MP3|320 кб/с]<Uplifting Trance, Vocal Tranc
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99007.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99007.jpgsave_picture_99007.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Smoke DZA - Cuz I Felt Like It Ep (2012) [MP3|320 кб/с]<Rap>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99009.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99009.jpgsave_picture_99009.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ magnet:?xt=urn:btih:EC02FF549B24F19148DFC39E8281D6AF94ED98EC
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99011.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99011.jpgsave_picture_99011.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Twin Vi - Крестовый Поход (2012) [MP3|320 кб/с]<Rap>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99012.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99012.jpgsave_picture_99012.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ magnet:?xt=urn:btih:FA5E8256671E8378B1FEBFC4EEE4B8787653E9F6
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99015.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99015.jpgsave_picture_99015.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ Morgan Page - In The Air (2012) [MP3|320 кб/с]<Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99023.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99023.jpgsave_picture_99023.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ VA - Cool Emotions Compiled by Easy Coutiel 4CD (2012) [MP3|320 кб/с]<Lounge,
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99025.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99025.jpgsave_picture_99025.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Job For A Cowboy - Demonocracy (2012) [MP3|320 кб/с]<Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99029.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99029.jpgsave_picture_99029.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Tyrant Of Death - Re Connect (2012) [MP3|320 кб/с]<Math Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99031.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99031.jpgsave_picture_99031.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ VA - Dancefloor Fever Winter (2012) [MP3|320 kbps]<Club | Dance | House>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99032.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99032.jpgsave_picture_99032.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ magnet:?xt=urn:btih:825E1625A6C6B36836C4F9932A9CFBDA89E42A6A
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99035.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99035.jpgsave_picture_99035.jpg" />
 </div>
 
 
@@ -683,7 +683,7 @@ magnet:?xt=urn:btih:18835299C8C4D072589C416A1DD3313341A0D276
 >>Религии и культы (Док/TV)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99037.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99037.jpgsave_picture_99037.jpg" />
 </div>
 
 
@@ -712,7 +712,7 @@ magnet:?xt=urn:btih:E07DE3A8D6FF39EAB83BE7A30ECB76D0C7141D86
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99039.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99039.jpgsave_picture_99039.jpg" />
 </div>
 
 
@@ -736,7 +736,7 @@ magnet:?xt=urn:btih:2D43B85A6C6F7E35B9F19331DA5ECB8F25A6E6D4
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99041.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99041.jpgsave_picture_99041.jpg" />
 </div>
 
 

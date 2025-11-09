@@ -6,7 +6,7 @@
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243278.jpgsave_picture_243278.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Dawn of Darkness - The First Seven Signs (2022) [FLAC|Lossless|WEB-DL|tracks] <T
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243279.jpgsave_picture_243279.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:894F39CF4DA1C5B6988D706F000FE9C2B5DE3C89
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243280.jpgsave_picture_243280.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:8F2FF70591662C30C12708B8978C5D38DF11E1B4
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243281.jpgsave_picture_243281.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Irene Cara - Fame (1983) Netherlands 12" Single [MP3|320 Kbps] <Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243282.jpgsave_picture_243282.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ magnet:?xt=urn:btih:B26CD2DF00F3E686DCB2E7F26359F118F0FE645F
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243283.jpgsave_picture_243283.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ FontLab 7 v7.0.2 (build 7301) beta [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243284.jpgsave_picture_243284.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ magnet:?xt=urn:btih:2AC904F0A7A428CB10EC4F9A593D8BA6EA74FDA0
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243285.jpgsave_picture_243285.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ magnet:?xt=urn:btih:219E2C214596B1DCF2D9F65F035A527ABC1CB8A6
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243286.jpgsave_picture_243286.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ Chad Wackerman - Forty Reasons (1991) CMP Records[FLAC|Lossless|tracks + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243287.jpgsave_picture_243287.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ magnet:?xt=urn:btih:5F77916AA51C7A9DCF3DF9D3C2AA96A9D0596FFC
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243288.jpgsave_picture_243288.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ TOOL - Opiate² (2022) single [FLAC 2.0|48/24|WEB-DL|tracks] <Progressive Metal>
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243289.jpgsave_picture_243289.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ Defleshed - Fast Forward (1999) Reissue 2002 [APE|Lossless|image + .cue] <Thrash
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243290.jpgsave_picture_243290.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ FolderSizes Enterprise 9.5.409 (Repack & Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243291.jpgsave_picture_243291.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ magnet:?xt=urn:btih:B0205DEF435EB25FE212B5EF91419559A0F71B90
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243292.jpgsave_picture_243292.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Iridient Developer 3.3.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243293.jpgsave_picture_243293.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ VA - Salinas Chillout Session (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243294.jpgsave_picture_243294.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Woodkid - The Golden Age (2013) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Alterna
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243295.jpgsave_picture_243295.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ magnet:?xt=urn:btih:88BCBDF1BDCA787069819A2385B14439366D9C4F
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243296.jpgsave_picture_243296.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ magnet:?xt=urn:btih:B9388C6F9C9F5C10B4533448437A54EAA8A0F118
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243297.jpgsave_picture_243297.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ magnet:?xt=urn:btih:BCD0D7FEBB2CB92578667E80588507F8537D120C
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243298.jpgsave_picture_243298.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ magnet:?xt=urn:btih:DFA74790DDF613F0DC24325B6A3E48326F19FC25
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243299.jpgsave_picture_243299.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ magnet:?xt=urn:btih:A1BD98F95B4CB3020F02537FED6C36612E5A0543
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243300.jpgsave_picture_243300.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ magnet:?xt=urn:btih:9C57AFF3C03A6F1C0E57A997AA1B3E70674E6F08
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243301.jpgsave_picture_243301.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Topaz Photo AI 1.2.9 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243302.jpgsave_picture_243302.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ Hornil StylePix 3.0.4.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243303.jpgsave_picture_243303.jpg" />
 </div>
 
 

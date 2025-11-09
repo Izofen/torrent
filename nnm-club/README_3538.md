@@ -6,7 +6,7 @@
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112362.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112362.jpgsave_picture_112362.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ VA - Ablazing Spring Sessions 2024 [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112363.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112363.jpgsave_picture_112363.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:9B3438B041FFF8766F136B2BF68D403E3D6915E2
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112364.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112364.jpgsave_picture_112364.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:135D0E13FDE86E2ECC48CA23AE599C727C2FEA65
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112365.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112365.jpgsave_picture_112365.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Koko Taylor - What It Takes: The Chess Years (1977) Expanded Edition, 2009, Geff
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112366.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112366.jpgsave_picture_112366.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Moby Grape - Moby Grape'69 (1969) Reissue, Remastered, 2007, Sundazed Music [FLA
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112367.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112367.jpgsave_picture_112367.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:4488208C77047A0AB8ECAABB8A9351081607C070
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112368.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112368.jpgsave_picture_112368.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:B32F2C9023C9075BAEEE27074806BDC6790D907B
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112369.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112369.jpgsave_picture_112369.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:92128F6E961CE6CCDC3E852EA73C12918A0DB327
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112370.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112370.jpgsave_picture_112370.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ VA - Amsterdam Chillout 2025 (2025) [MP3|320 Kbps] <Chillout, Balearic, Downtemp
 >>Downtempo, Trip-Hop, Lounge
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112371.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112371.jpgsave_picture_112371.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ magnet:?xt=urn:btih:723D62715849121AABAEA37D8B87459AFC1FFD71
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112372.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112372.jpgsave_picture_112372.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ Vivaldi 7.6.3797.63 Portable by IDE`a [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112373.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112373.jpgsave_picture_112373.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ magnet:?xt=urn:btih:A7376D53A08D6A85FFD08C9923A0B2B48E36D070
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112374.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112374.jpgsave_picture_112374.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ magnet:?xt=urn:btih:341F1C60CFDD57DC724ABE46743B79A7887C3762
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112375.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112375.jpgsave_picture_112375.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ AirBrush: ИИ Фоторедактор v6.3.3 Mod by PieMods [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112376.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112376.jpgsave_picture_112376.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ n-Track Studio Suite 10.0.0 ARM/Intel [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112377.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112377.jpgsave_picture_112377.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Yooka-Replaylee (2025) [Ru/Multi] (1.0) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112378.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112378.jpgsave_picture_112378.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Edge of Reality 9: The Legend of Greenbush (2024) [En] (1.0) Unofficial [Collect
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112379.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112379.jpgsave_picture_112379.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Rust n' Rage - Songs Of Yesterday (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112380.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112380.jpgsave_picture_112380.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Criminal Archives 3: Murder in the Pages / Криминальные архивы
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112381.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112381.jpgsave_picture_112381.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Golden Ruffian - Never Again (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112382.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112382.jpgsave_picture_112382.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ magnet:?xt=urn:btih:5C8B69171BFD4ADD90A4BBB132AAFB121CB64996
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112383.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112383.jpgsave_picture_112383.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Eternal - Infernus (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112384.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112384.jpgsave_picture_112384.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ magnet:?xt=urn:btih:1C959C83BD6E0AEA9AE38822A7171D2072D81540
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112385.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112385.jpgsave_picture_112385.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Stoner Kings - Hive Mind (2025) [FLAC|Lossless|WEB-DL|tracks] <Stoner Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112386.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112386.jpgsave_picture_112386.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Background Video Recorder Pro v10.0.31 Mod by srajawwal09 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112387.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112387.jpgsave_picture_112387.jpg" />
 </div>
 
 

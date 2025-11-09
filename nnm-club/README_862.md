@@ -6,7 +6,7 @@ Hana wa Saku, Shura no Gotoku / Flower and Asura / Цветок, распуск�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22751.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22751.jpgsave_picture_22751.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:3B13F64ED5372ABF15096FA645ADA037314EC095
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22752.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22752.jpgsave_picture_22752.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:AD538D2EF5ECB105F3316A4214872098B95819CE
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22753.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22753.jpgsave_picture_22753.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Somber Echoes (2025) [Ru/Multi] (22449) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22754.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22754.jpgsave_picture_22754.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:957303DFC61E163A174AFA616EC2B0304CF8BA00
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22755.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22755.jpgsave_picture_22755.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:957303DFC61E163A174AFA616EC2B0304CF8BA00
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22756.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22756.jpgsave_picture_22756.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Tekken 8 (2024) [Ru/Multi] (2.00.01/dlc) Repack Wanterlude
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22757.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22757.jpgsave_picture_22757.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:FF8844D47EFF6C0E5B6BA06F748F39A38B6BE90A
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22758.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22758.jpgsave_picture_22758.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:283FD2CC244B5003B79557E33C3B53161E8C8087
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22759.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22759.jpgsave_picture_22759.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Legacy of Kain Soul Reaver 1&2 Remastered (2024) [Ru/Multi] (Build 17692767) Rep
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22760.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22760.jpgsave_picture_22760.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Adobe Media Encoder 2025 25.2.0.141 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22761.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22761.jpgsave_picture_22761.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ magnet:?xt=urn:btih:7A588E266593FB64372044BEB8941DAFCA634403
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22762.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22762.jpgsave_picture_22762.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ magnet:?xt=urn:btih:C273CA7716A6C9AB45CD19514D67109717F49ECE
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22763.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22763.jpgsave_picture_22763.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ magnet:?xt=urn:btih:86F909D391ADACE9C10203AB44797D8602E28EE7
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22764.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22764.jpgsave_picture_22764.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ magnet:?xt=urn:btih:8ED499FE0D7F40070B597E2E793B2898AB61CB62
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22765.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22765.jpgsave_picture_22765.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ magnet:?xt=urn:btih:75FD05A700085A7DB5A7C333526B191E80D8CFAC
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22766.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22766.jpgsave_picture_22766.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ Doom запустили... на советском ТРАМВАЕ ЛМ-68М2
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22767.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22767.jpgsave_picture_22767.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ Heroes of Might and Magic IV (4) (2004) [Ru/En] (3.0/dlc) Repack Wanterlude [Com
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22768.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22768.jpgsave_picture_22768.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ magnet:?xt=urn:btih:8275AF1DAF5B0CC3845B2B089DD48835036533CB
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22769.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22769.jpgsave_picture_22769.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Adobe Audition 2025 25.2.0.123 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22770.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22770.jpgsave_picture_22770.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ magnet:?xt=urn:btih:60DAFEE5B90C61D04CA690ED1289499018341866
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22771.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22771.jpgsave_picture_22771.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ magnet:?xt=urn:btih:66FDD60D180429C2E516499B569247A49AA1939E
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22772.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22772.jpgsave_picture_22772.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ magnet:?xt=urn:btih:BAF1E5009FAB655EDF8128DA2F6CF5EAF97A8B10
 >>Свадебные и романтические (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22773.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22773.jpgsave_picture_22773.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ VA - Music News For Forum vol.070 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22774.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22774.jpgsave_picture_22774.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ magnet:?xt=urn:btih:27BADF7C9197E69BCB88254C6DBAD931B4B522F3
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22775.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22775.jpgsave_picture_22775.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ magnet:?xt=urn:btih:8285D2E3B67A663F07B9B256F6F4DF5BF75B45E4
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22776.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22776.jpgsave_picture_22776.jpg" />
 </div>
 
 

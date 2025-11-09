@@ -6,7 +6,7 @@
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163736.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163736.jpgsave_picture_163736.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ VA - Spacechillers Vol. 2 (Сompiled by Maiia) (2019) Mystic Sound Records [FLAC
 >>Psybient, Psychill, Psydub (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163737.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163737.jpgsave_picture_163737.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ All India Radio, Josh Roydhouse - Lost Realm (2021) [AAC|~267 Kbps] <Downtempo, 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163738.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163738.jpgsave_picture_163738.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:795E29F5143B2AA0A87C5F2584F35B5081828EF7
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163739.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163739.jpgsave_picture_163739.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Zoc Terminal 8.01.6 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163740.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163740.jpgsave_picture_163740.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Imperator: Rome v.1.3.2 (2018) [Multi/Ru] [macOS Native game]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163741.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163741.jpgsave_picture_163741.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:20C84796C815FF10B9477388CDC217EB94DD6308
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163742.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163742.jpgsave_picture_163742.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:F60CC747B8F779B2640829A1BCE2419B6D432E5C
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163743.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163743.jpgsave_picture_163743.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ VoltLab v5.1.4 Pro [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163744.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163744.jpgsave_picture_163744.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ Posterino 3 v3.11.2 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163745.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163745.jpgsave_picture_163745.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ Chimeras 10: The Price of Greed (2019) [En] (1.0) Unofficial [Collector's Editio
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163746.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163746.jpgsave_picture_163746.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ Levelup.Digital, Rosa Lee | Sculpting & Texturing Harley Quinn (2019) PCRec [EN,
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163747.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163747.jpgsave_picture_163747.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ magnet:?xt=urn:btih:4DE95201C16E2458737DE39DA487B44D535D1F7A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163748.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163748.jpgsave_picture_163748.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ The Kennedy Veil - Trinity of Falsehood (2014) [FLAC|Lossless|tracks + .cue] <Te
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163749.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163749.jpgsave_picture_163749.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ magnet:?xt=urn:btih:4F57474654B1E1E6296C4C14B02F99913CCF99C5
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163750.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163750.jpgsave_picture_163750.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ magnet:?xt=urn:btih:47D17FAB09C88D75FC70E9430D09A86AC0495036
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163751.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163751.jpgsave_picture_163751.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ magnet:?xt=urn:btih:B45E7665D215F8BCEF716C5CEE643F99C9471904
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163752.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163752.jpgsave_picture_163752.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ Donemax DMmenu 1.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163753.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163753.jpgsave_picture_163753.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ magnet:?xt=urn:btih:67B0AD679D71E4FC6BCBFA695C626EB65DA2422D
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163754.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163754.jpgsave_picture_163754.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ VA - Chillout King Ibiza: The Chill Wave (2020) [AAC|~329 Kbps] <Lounge, Chill O
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163755.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163755.jpgsave_picture_163755.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Pixelmator 3.9 Classic [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163756.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163756.jpgsave_picture_163756.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ LiteManager 5.1 (5105) Free/Pro [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163757.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163757.jpgsave_picture_163757.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ magnet:?xt=urn:btih:8FD08D62E13D0F5F2AC94EB8EAEDCE90ECBA2906
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163758.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163758.jpgsave_picture_163758.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ MacClean360 5.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163759.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163759.jpgsave_picture_163759.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ magnet:?xt=urn:btih:3EB85327E480437C66A97B4831CA582949AFBF11
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163760.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163760.jpgsave_picture_163760.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ Adobe After Effects 2024 24.0.2.3 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163761.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163761.jpgsave_picture_163761.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Deaf Owl - From the Bottom of the Sewers (2024) [FLAC 24/44.1|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108839.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108839.jpgsave_picture_108839.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:3A6B78137E3AEE507298194032E62230F87AE1AB
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108840.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108840.jpgsave_picture_108840.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Arrayan Path (Ex-Arryan Path) - Studio Albums (9 releases) (2004-2022) hand made
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108841.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108841.jpgsave_picture_108841.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:D7DAF4E9EF2F2CF14A41AB9D6E9E96B4DF6F1EC9
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108842.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108842.jpgsave_picture_108842.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Collateral - Should've Known Better (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodi
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108843.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108843.jpgsave_picture_108843.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ magnet:?xt=urn:btih:D25B077BBAD0B81171D9800C5A2772C354697E5B
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108844.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108844.jpgsave_picture_108844.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Desolus - System Shock (2024) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108845.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108845.jpgsave_picture_108845.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ magnet:?xt=urn:btih:C6C01BD85B3A18D2A26071C1FA1CCC62012536B5
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108846.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108846.jpgsave_picture_108846.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Intervals - memory palace (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Progressiv
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108847.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108847.jpgsave_picture_108847.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Mammal - The Penny Drop (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Rock
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108848.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108848.jpgsave_picture_108848.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ magnet:?xt=urn:btih:8036A8E4A68CCBB716D107B2E6FDE246511A7995
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108849.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108849.jpgsave_picture_108849.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Defects - Modern Error (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Met
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108850.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108850.jpgsave_picture_108850.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Hextar - Doomsayer (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Power Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108851.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108851.jpgsave_picture_108851.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Paul Weller - 66 (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock, Britpop>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108852.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108852.jpgsave_picture_108852.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Eregion - Non Omnis Moriar (2024) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108853.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108853.jpgsave_picture_108853.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ De Halsband - Wat Let Oe (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108854.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108854.jpgsave_picture_108854.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ magnet:?xt=urn:btih:1AB707308F6B50458CB03A619E8BC56E84F9DDB5
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108855.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108855.jpgsave_picture_108855.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ magnet:?xt=urn:btih:4B9E32E2C52A68090EE50F11A11455924988DBFF
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108856.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108856.jpgsave_picture_108856.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Maggie Lindemann - Headsplit (2024) Deluxe Edition, 2024, EMI [FLAC 24/44.1|Loss
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108857.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108857.jpgsave_picture_108857.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Brave Browser 1.66.115 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108858.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108858.jpgsave_picture_108858.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ VA - Smooth Jazz Italian Songs Vol. 3 (2024) Canzoni Italiane In Versione Smooth
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108859.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108859.jpgsave_picture_108859.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ magnet:?xt=urn:btih:DA228DBB7706F10EF842ED41C256F73269A21F78
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108860.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108860.jpgsave_picture_108860.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ magnet:?xt=urn:btih:DADB37D4D2F6B688D05D8DA0EB4AAC8390C1D7D7
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108861.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108861.jpgsave_picture_108861.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ magnet:?xt=urn:btih:66831FE0A33CEE2E7BFF3DF6A9AE4A148C958B94
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108862.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108862.jpgsave_picture_108862.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ magnet:?xt=urn:btih:D150BCCF6637565539E809F8B5004C2B949C92DE
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108863.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108863.jpgsave_picture_108863.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ VA - Calming Moments, Vol 4 (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill 
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108864.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108864.jpgsave_picture_108864.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202322.jpgsave_picture_202322.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:89BD8E79A018CFDEB5D7D9B964F79F1B736E8EE8
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202323.jpgsave_picture_202323.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:B06091D7C5D41FBCED73CE7E715BC06385358831
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202324.jpgsave_picture_202324.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:BC8DD4133F550002569F12AD0D6FAA6DA4BF4AEC
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202325.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202325.jpgsave_picture_202325.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ Udemy, Hussein Nasser | Fundamentals of Backend Engineering (2023) WEB-DL [EN / 
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202326.jpgsave_picture_202326.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:F4F975D96C7711140327847F5C11F8171E49B963
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202327.jpgsave_picture_202327.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:6F46E205494C4CEEC09441366038E376539B49F1
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202329.jpgsave_picture_202329.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ VA - Atomic Heart - Vol.1 (2023) [FLAC|Lossless|tracks] <OST>
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202330.jpgsave_picture_202330.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ CorelDRAW Graphics Suite 2022 24.4.0.636 HF2 (x64) RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202331.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202331.jpgsave_picture_202331.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ magnet:?xt=urn:btih:5244DCDC427FB8DE4FC6D966FDC642CA7A0F8CFA
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202332.jpgsave_picture_202332.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ magnet:?xt=urn:btih:797D252EF09C7CB9AEC491ABB471E15CF5660C14
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202333.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202333.jpgsave_picture_202333.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ magnet:?xt=urn:btih:2153A8C0B85AB95C36A3D68537E89956436F808D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202334.jpgsave_picture_202334.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ magnet:?xt=urn:btih:DFF4063CAB1829F666F6139F63D2FFB9663392CB
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202335.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202335.jpgsave_picture_202335.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Primitive Hearts (2023) [Multi] (v1/dlc) License GOG [18+]
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202336.jpgsave_picture_202336.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ magnet:?xt=urn:btih:B7B0BA3DD2E326CC0F23C0E6D17DB6BA82F04278
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202337.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202337.jpgsave_picture_202337.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ magnet:?xt=urn:btih:14997661AFBB0AABAA49B6352807689B5835A691
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202338.jpgsave_picture_202338.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ magnet:?xt=urn:btih:7914A668D2F9077901067E714EFE51F14A2AA214
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202339.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202339.jpgsave_picture_202339.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ MxUntu 20.04 [x64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202340.jpgsave_picture_202340.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ magnet:?xt=urn:btih:90094B191672B3677B929A0CDF1F04C654C58FB1
 >>Старые Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202341.jpgsave_picture_202341.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ magnet:?xt=urn:btih:B5AE529153707364147D596E580416BDF02DD0E5
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202342.jpgsave_picture_202342.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ CorelDRAW Technical Suite 2022 24.4.0.636 HF2 (x64) RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202343.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202343.jpgsave_picture_202343.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ magnet:?xt=urn:btih:C98816092ADD8E86F26A4DF77283AE054C07BE1C
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202345.jpgsave_picture_202345.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Void Scrappers (2022) [Multi] (1.32) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202346.jpgsave_picture_202346.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ magnet:?xt=urn:btih:3380D8B538A0123A0D1A905078EC6D7C8C265090
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202347.jpgsave_picture_202347.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ magnet:?xt=urn:btih:1F613C5C8267D7245114D6A4E930C1AB18EEDA38
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202348.jpgsave_picture_202348.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ magnet:?xt=urn:btih:15869713CF6EC8504D085AA68BAF0C8F7A021A12
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202349.jpgsave_picture_202349.jpg" />
 </div>
 
 

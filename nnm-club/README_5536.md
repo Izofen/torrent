@@ -6,7 +6,7 @@ The KMPlayer 4.2.2.34 repack by cuta (build 4) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170920.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170920.jpgsave_picture_170920.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Firewall Security AI - No Root 2.3.5 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170921.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170921.jpgsave_picture_170921.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ PotPlayer 211118 (1.7.21566) Stable + Portable (x86/x64) by SamLab [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170922.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170922.jpgsave_picture_170922.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Pan Sonic (Pan-Sonic, Panasonic, Pansonic, Rude Mechanic) - Discography 29 Relea
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170923.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170923.jpgsave_picture_170923.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:B8D1FCFDA82AE5E906A20FE1804EEB03B8708138
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170925.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170925.jpgsave_picture_170925.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:8B3D8D57690A0A8047AF9952268D577CA56F4386
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170926.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170926.jpgsave_picture_170926.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ EZ CD Audio Converter 11.3.0.1 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170927.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170927.jpgsave_picture_170927.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:77C8E5DE740EFB60DCB913F0097F1BA817EB23D1
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170928.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170928.jpgsave_picture_170928.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:31F9F707F1153448C8A339565199DD0AF25002A2
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170929.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170929.jpgsave_picture_170929.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:147E56D252893A3D32C4C42873245FC7986F9F1F
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170930.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170930.jpgsave_picture_170930.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ Slimjet 41.0.2.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170931.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170931.jpgsave_picture_170931.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ VA - Bravo The Hits 2023 [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170932.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170932.jpgsave_picture_170932.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ Queen - A Kind Of Magic (1986) 2CD Deluxe Edition, Remaster, 2011, EMI [FLAC|Los
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170933.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170933.jpgsave_picture_170933.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ CyberLink PowerDirector Ultimate 22.0.2129.0 (x64) Portable by 7997 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170934.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170934.jpgsave_picture_170934.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ magnet:?xt=urn:btih:501ABDE0D91CE7A69330799A67170F65E248B69A
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170935.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170935.jpgsave_picture_170935.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ magnet:?xt=urn:btih:A2DB7251CA9E92DA42B69DC7421C37F625D4E2D4
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170936.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170936.jpgsave_picture_170936.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ magnet:?xt=urn:btih:9A633C4C7B59CD2B0B6959F07EF70405A140D508
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170937.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170937.jpgsave_picture_170937.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ magnet:?xt=urn:btih:DF3522BF90422811D45FEED22812698DE81D6CD3
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170938.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170938.jpgsave_picture_170938.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Udemy, Георгий Черняк | Инженер тендерного отд�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170939.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170939.jpgsave_picture_170939.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ magnet:?xt=urn:btih:6CDDE280C61A0B4E1405678C0D136D5C06DF3CFA
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170940.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170940.jpgsave_picture_170940.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ magnet:?xt=urn:btih:5EDD2CA2C1A89E83407CB6E6C5CF6292BFFA4B6D
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170941.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170941.jpgsave_picture_170941.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ magnet:?xt=urn:btih:8A2CEA9F5651D24FF1A59DBE47537ECDA46CF281
 >>Картинки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170942.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170942.jpgsave_picture_170942.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ magnet:?xt=urn:btih:D6865258771FCDAFD6EB22070AD0E6738C92415F
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170943.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170943.jpgsave_picture_170943.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ O&O Defrag Professional + Server 30.0 Build 1069 RePack by KpoJIuK [Ru/En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170944.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170944.jpgsave_picture_170944.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ magnet:?xt=urn:btih:DBBEE3FA79CC2F67057B9F901934E4276E27F1E2
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170945.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170945.jpgsave_picture_170945.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ Adieu Sounds, Drew Adieu | Travis Scott Start-To-Finish Masterclass Video Course
 >>Музыка (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170946.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170946.jpgsave_picture_170946.jpg" />
 </div>
 
 

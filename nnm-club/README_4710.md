@@ -6,7 +6,7 @@
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147422.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147422.jpgsave_picture_147422.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:0BFF991E12CED6AE70E9C3F17F1AB5BE5C8EE52F
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147423.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147423.jpgsave_picture_147423.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:93A7FD25F984C3C1A4F4B98ED419E7610F36F093
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147424.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147424.jpgsave_picture_147424.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ K-Lite Codec Pack 9.6.0 (Basic, Standart, Full, Mega, x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147426.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147426.jpgsave_picture_147426.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ K-Lite Codec Pack - бесплатный пакет кодеков, фильтр
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147427.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147427.jpgsave_picture_147427.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:28EC3348724FCE242D321A0EC1CBD76225138F63
 >>Элементы (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147428.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147428.jpgsave_picture_147428.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ Garmin: City Navigator Philippines NT 2015.40 [En]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147429.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147429.jpgsave_picture_147429.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ Cliff Richard - Rise Up (2018) [MP3|320 Kbps] <Rock, Pop>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147430.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147430.jpgsave_picture_147430.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ Bob Dylan - The Complete Budokan 1978 (Live) (2023) [FLAC 24/96|Lossless|WEB-DL|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147431.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147431.jpgsave_picture_147431.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ VA - When Friday Comes – Feel Good Friday Feeling (2021) [AAC|~322 Kbps] <Pop>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147433.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147433.jpgsave_picture_147433.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ magnet:?xt=urn:btih:A4D45D2CC07AED033949415894276A409D50D67D
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147434.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147434.jpgsave_picture_147434.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ magnet:?xt=urn:btih:0074437164B2BD05B6C25398F6B910829DA3CC63
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147435.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147435.jpgsave_picture_147435.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ magnet:?xt=urn:btih:0074437164B2BD05B6C25398F6B910829DA3CC63
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147436.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147436.jpgsave_picture_147436.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ AnyTrans for Android 6.4.1 (build 20181220 ) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147437.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147437.jpgsave_picture_147437.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ magnet:?xt=urn:btih:D690144AF94BFE7CBF9101D4075480E15B4D434A
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147438.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147438.jpgsave_picture_147438.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Thea Gilmore - Thea Gilmore (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Indie 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147439.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147439.jpgsave_picture_147439.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Rock of Ages [Ru/En/Multi7] (Steam-Rip/1.10c) 2011 | R.G. Игроманы
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147440.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147440.jpgsave_picture_147440.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ VA - Purobeach Essentials 2021 (2021) [AAC|~322 Kbps] <Deep House, Soulful House
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147441.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147441.jpgsave_picture_147441.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ magnet:?xt=urn:btih:B9206BFC823FD1FE6E1F3DB2C67BEC9052D95217
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147442.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147442.jpgsave_picture_147442.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ Hetman Excel Recovery 2.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147443.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147443.jpgsave_picture_147443.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Pixelmator 3.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147444.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147444.jpgsave_picture_147444.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ magnet:?xt=urn:btih:31A53313F16B27CAF15916B49FE8F49B0698B772
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147445.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147445.jpgsave_picture_147445.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ VA - Balance Presents Sunsetstrip (Hernan Cattaneo) (2019) [AAC|~343 Kbps] <Deep
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147446.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147446.jpgsave_picture_147446.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ VA - Top 100 Самых Красивых Песен 2016 (2016) [MP3|320 Kbps] <
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147447.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147447.jpgsave_picture_147447.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ magnet:?xt=urn:btih:1E94C0E886D6D8067EE413D534963E69DDB2C883
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147449.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147449.jpgsave_picture_147449.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ magnet:?xt=urn:btih:1A30737454986EB81CE8002EACE80261FC73B444
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147450.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147450.jpgsave_picture_147450.jpg" />
 </div>
 
 

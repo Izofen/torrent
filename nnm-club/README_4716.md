@@ -6,7 +6,7 @@ VA - Markus Schulz - Global DJ Broadcast Top 20: December (2018) [MP3|320 Kbps] 
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147601.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147601.jpgsave_picture_147601.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:5F72476E98EE0E35BC43B6B3AF4C0AE8392B57D7
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147602.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147602.jpgsave_picture_147602.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ VA - Club Restricted Presents: Pre-Christmas Party (2015) [MP3|320 кб/с] <Pro
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147603.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147603.jpgsave_picture_147603.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Postbox 6 v6.1.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147604.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147604.jpgsave_picture_147604.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Scanitto Pro 3.14 RePack (& Portable) by Trovel (Upd. 26.12.2016) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147605.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147605.jpgsave_picture_147605.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:56423FA24E4A9A537C5C56A806754521139D3C9E
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147606.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147606.jpgsave_picture_147606.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ Coherence Pro 2.0.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147608.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147608.jpgsave_picture_147608.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:D39F2BB3E6475514C57F5D56A04BA46C92464CB8
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147609.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147609.jpgsave_picture_147609.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:E7193B96599B46A1C28717732BAA30CFFEAE065F
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147610.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147610.jpgsave_picture_147610.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ Gerry Mulligan - Four Classic Albums: Third Set 1955 - 1957 (2018) 2CD, Avid Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147612.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147612.jpgsave_picture_147612.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ magnet:?xt=urn:btih:321CFACBB3FE5B496E6A419DD5FEEA1DFD58B572
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147613.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147613.jpgsave_picture_147613.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ Sakugan | Сакуган [2021, TV, 12 эп.] WebRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147614.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147614.jpgsave_picture_147614.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ magnet:?xt=urn:btih:1F026AE587951F3F08D0C505D006E71D8EE7D105
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147615.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147615.jpgsave_picture_147615.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:F269077398CC42DC04D22887229F26E419FDD805
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147616.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147616.jpgsave_picture_147616.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ magnet:?xt=urn:btih:A22C46D700608ED1FF0265E90AEC5399194F103C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147617.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147617.jpgsave_picture_147617.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ magnet:?xt=urn:btih:B3DF352621CFAB54D85485F03E77F3C1E98910F5
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147618.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147618.jpgsave_picture_147618.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Animals as Leaders - The Madness of Many (2016) [FLAC|Lossless|image + .cue] <In
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147619.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147619.jpgsave_picture_147619.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ magnet:?xt=urn:btih:2EBDE23E5DEB92F02B84AEA4EDD2096F2F1B789C
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147620.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147620.jpgsave_picture_147620.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ magnet:?xt=urn:btih:5135E275D6F413DC33FAED00DB7EDEFE07328414
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147621.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147621.jpgsave_picture_147621.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Wolf 2 - Responsive Designer Pro 2.30.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147622.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147622.jpgsave_picture_147622.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ MotoGP. Этап 19. Гран-при Катара. Гонка (19.11.2023) WEBRi
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147623.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147623.jpgsave_picture_147623.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ Spotless 1.1.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147625.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147625.jpgsave_picture_147625.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ magnet:?xt=urn:btih:7F390C7337DC1840065F3E8F1CD3C0AEE0F05C7C
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147626.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147626.jpgsave_picture_147626.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ magnet:?xt=urn:btih:7AD8FE6AEA9A9AA8DFA9178456936CAB17078B48
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147627.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147627.jpgsave_picture_147627.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ magnet:?xt=urn:btih:B950AFF4C58CE4DF3B8CC053794E1EB7D1D25634
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147628.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147628.jpgsave_picture_147628.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Aiseesoft Screen Recorder 2.9.18 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147629.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147629.jpgsave_picture_147629.jpg" />
 </div>
 
 

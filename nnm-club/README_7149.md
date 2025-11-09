@@ -6,7 +6,7 @@ VA - Discovery Series 004 (2022) [AAC|~331 Kbps] <Progressive House, Melodic Hou
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244823.jpgsave_picture_244823.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Trance Anthems Vol. 18 (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244824.jpgsave_picture_244824.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:498EA93E1DDE0CE14D8702D8AF41ABD28EC6A1F7
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244825.jpgsave_picture_244825.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:865C02C003A304D01D112F96229BE7AAD8F55B8E
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244826.jpgsave_picture_244826.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ VA - Top 5 April 2023 Emotional And Uplifting Trance (2023) [MP3|320 Kbps] <Tran
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244827.jpgsave_picture_244827.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ VA - Discovery Series 003 (2021) [AAC|~342 Kbps] <Melodic House & Techno, Organi
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244828.jpgsave_picture_244828.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ magnet:?xt=urn:btih:084FB1FC34C61072FE1E16FF9EC4474B488D25FA
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244829.jpgsave_picture_244829.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ magnet:?xt=urn:btih:D0372252DADF008F0E6918AE64D6AF874260985B
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244830.jpgsave_picture_244830.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ Aisles - Beyond Drama (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Ne
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244831.jpgsave_picture_244831.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ magnet:?xt=urn:btih:BA9C68A980D71ED4115CF852C2A7FFF90A94D9F3
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244832.jpgsave_picture_244832.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ magnet:?xt=urn:btih:349C1B955A3C9F47C1618581B64C44AC9AF52F3D
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244833.jpgsave_picture_244833.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ PatterNodes 1.7.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244834.jpgsave_picture_244834.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ magnet:?xt=urn:btih:60D9F4CF10E6AA752A48D5848FB90BB6FA3A9523
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244835.jpgsave_picture_244835.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ VA - Discovery Series 001 (2019) [AAC|~335 Kbps] <Melodic House & Techno, Deep H
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244836.jpgsave_picture_244836.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ ChrisPC Win Experience Index 7.15.24 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244837.jpgsave_picture_244837.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ magnet:?xt=urn:btih:1CDFB450CDC02C905B4CE04EC99AAAE0BC5A0763
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244838.jpgsave_picture_244838.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ magnet:?xt=urn:btih:0968E8AA3EECC29BD92C0A46BF5C978BA3039E39
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244839.jpgsave_picture_244839.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Wise Folder Hider Pro 4.4.2.201 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244840.jpgsave_picture_244840.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ GOM Player Plus 2.3.85.5353 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244841.jpgsave_picture_244841.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ magnet:?xt=urn:btih:FF3DFEFB8F55C8B5C1C2D05B62E5F6339B1B3D64
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244842.jpgsave_picture_244842.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ magnet:?xt=urn:btih:9EA3B5F2DC77F4671C83E64776D6B672B61494C6
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244843.jpgsave_picture_244843.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ VA - Discovery Series 002 (2019) [AAC|~335 Kbps] <Melodic House & Techno>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244844.jpgsave_picture_244844.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Rise of the Northstar - Showdown (2023) [FLAC|Lossless|WEB-DL|tracks] <Hardcore 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244845.jpgsave_picture_244845.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Mgzavrebi - Kamara (2023) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244846.jpgsave_picture_244846.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Youtube Downloader HD 5.1 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244847.jpgsave_picture_244847.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ magnet:?xt=urn:btih:925917F9063EE8E763878D736FF57720A941BF84
 >>Кинолетопись Страны Советской
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244848.jpgsave_picture_244848.jpg" />
 </div>
 
 

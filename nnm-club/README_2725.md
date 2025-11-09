@@ -6,7 +6,7 @@
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71600.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71600.jpgsave_picture_71600.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:723960498327553AA705070607AE10771EE2C98B
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71601.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71601.jpgsave_picture_71601.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:9E0C1544AEA6EB219E4869B5A5CDE6AC6EBF749F
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71602.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71602.jpgsave_picture_71602.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Steve Hackett - Live Magic At Trading Boundaries (2025) [FLAC 24/44.1|Lossless|W
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71603.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71603.jpgsave_picture_71603.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ Accept - All Areas - Worldwide (1997) Remaster, Live, 2025, Silver Lining Music 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71604.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71604.jpgsave_picture_71604.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ magnet:?xt=urn:btih:3FE97097BC93B69B475DE879BE1E59AD877548B6
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71605.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71605.jpgsave_picture_71605.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ magnet:?xt=urn:btih:0651F07B9485E5C866D691C8D7298869805D513A
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71606.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71606.jpgsave_picture_71606.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ magnet:?xt=urn:btih:15AD52BE68AD830585C6CB17620BB7FB5CA5210E
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71607.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71607.jpgsave_picture_71607.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ magnet:?xt=urn:btih:A9D15FB58D9D9BE8DBF1757AE7C55A71F64BB5FA
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71608.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71608.jpgsave_picture_71608.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ magnet:?xt=urn:btih:3D607807A0E3593B1048C537C232DD2795083401
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71609.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71609.jpgsave_picture_71609.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ magnet:?xt=urn:btih:073201FC9AAF45BFA0B18A1AC51189EBFF11C938
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71610.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71610.jpgsave_picture_71610.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ magnet:?xt=urn:btih:E0673705D6E78C42A69222EC3DAFD4EC05999998
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71611.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71611.jpgsave_picture_71611.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ Accept - Death Row (1994) Remaster, 2025, Silver Lining Music [FLAC|Lossless|WEB
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71612.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71612.jpgsave_picture_71612.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ Rigor Samsa - Severance (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressiv
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71613.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71613.jpgsave_picture_71613.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ TesseracT - War Of Being (2025) Tour Edition [FLAC 24/44.1|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71614.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71614.jpgsave_picture_71614.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ VA - More Blue Notes, Vol.2: Milestones of Jazz Legends (1948 - 1962) 10CD, 2018
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71615.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71615.jpgsave_picture_71615.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ magnet:?xt=urn:btih:3D2F6D2A691A4BDFAF057940B51B0EEDA7476CD8
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71616.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71616.jpgsave_picture_71616.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Landfall - Wide Open Sky (2025) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71617.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71617.jpgsave_picture_71617.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ Osvaldo Di Dio - Blues For Pino (2025) [FLAC 24-Bit/44.1 kHz|Lossless|WEB-DL|tra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71618.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71618.jpgsave_picture_71618.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Accept - Objection Overruled (1993) Remaster, 2025, Silver Lining Music [FLAC|Lo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71619.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71619.jpgsave_picture_71619.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:C4EAEC59F6A74B16266940EB878742D6DFE55FBE
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71620.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71620.jpgsave_picture_71620.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ magnet:?xt=urn:btih:11EE7C3D8720EAE1801A3E0F26272A94EBDF8625
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71621.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71621.jpgsave_picture_71621.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ magnet:?xt=urn:btih:196F1595C4359BA6E950C4352E53831CC1D5C1B7
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71622.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71622.jpgsave_picture_71622.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ VA - Good Whiskey Blues vol.4 (2002) [FLAC|Lossless|image + .cue] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71623.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71623.jpgsave_picture_71623.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ XYplorer 26.80.0000 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71624.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71624.jpgsave_picture_71624.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ magnet:?xt=urn:btih:9E090939EC32BC0C6C44EF5E2A12A1366DDDB224
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71625.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71625.jpgsave_picture_71625.jpg" />
 </div>
 
 

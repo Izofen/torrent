@@ -6,7 +6,7 @@
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67024.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67024.jpgsave_picture_67024.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:9F1227EF33F6A7496C10668D612B99D5D5CA3F10
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67025.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67025.jpgsave_picture_67025.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Dessiderium - Keys to the Palace (2025) [MP3|320 Kbps] <Melodic, Progressive Dea
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67026.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67026.jpgsave_picture_67026.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ magnet:?xt=urn:btih:1607DF9AE499E2E97CD9E296EBFABAC27C102CFF
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67027.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67027.jpgsave_picture_67027.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ Dredge the Lethe - Blood Metal (2025) [MP3|320 Kbps] <Symphonic Black Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67028.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67028.jpgsave_picture_67028.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Death Kommander - Pro Patria Mori (2021) [FLAC|Lossless|WEB-DL|tracks] <Death Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67029.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67029.jpgsave_picture_67029.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Bennie Green - Soul Stirrin' (1958) 1997, Blue Note [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67030.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67030.jpgsave_picture_67030.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Billy Strayhorn's Septet - Cue For Saxophone (1959) 1988, London [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67031.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67031.jpgsave_picture_67031.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Avenger - Godless (...Assuming the Throne of Immortality...) (2003) [WavPack|32/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67032.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67032.jpgsave_picture_67032.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ magnet:?xt=urn:btih:B4AF239EB08C6A19FADE5F73CFB91B2A6101E7B9
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67033.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67033.jpgsave_picture_67033.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Gormoth - Oh My Bitter Addictions (2025) [FLAC|Lossless|WEB-DL|tracks] <Atmosphe
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67034.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67034.jpgsave_picture_67034.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Gypsy Pistoleros - Welcome To The Church Of The Pistoleros (2025) [FLAC 24/48|Lo
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67035.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67035.jpgsave_picture_67035.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ magnet:?xt=urn:btih:9D38B0D542F51BE75BF92D5F848148D2A59F433A
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67036.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67036.jpgsave_picture_67036.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Changeling - Changeling (2025) [MP3|320 Kbps] <Progressive, Technical Death Meta
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67037.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67037.jpgsave_picture_67037.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ magnet:?xt=urn:btih:5CAE39CDD118B583AAAEC042918EAD0E9B7247CA
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67038.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67038.jpgsave_picture_67038.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Charlie Rich - Behind Closed Doors (1973) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67039.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67039.jpgsave_picture_67039.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ The Night Eternal - Fatale (2023) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67040.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67040.jpgsave_picture_67040.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ Paradise Slaves - With Hell In His Eyes (2025) [FLAC 24/44.1|Lossless|WEB-DL|tra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67041.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67041.jpgsave_picture_67041.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ Sarah Jane Cion - Moon Song (2000) Naxos Jazz [FLAC|Lossless|tracks + .cue] <Pos
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67042.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67042.jpgsave_picture_67042.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ Chontaraz - Phantom Of Reality (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Progr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67043.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67043.jpgsave_picture_67043.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Froglord - Metamorphosis (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Sludge, d
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67044.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67044.jpgsave_picture_67044.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Hate - Bellum Regiis (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Death Metal>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67045.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67045.jpgsave_picture_67045.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Conan - Violence Dimension (2025) [MP3|320 Kbps] <Sludge, Stoner, Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67046.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67046.jpgsave_picture_67046.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ Desolator - Spirit of Speed (2025) [MP3|320 Kbps] <Speed, Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67047.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67047.jpgsave_picture_67047.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ Augury - Concealed (2004) Released, 2022, The Artisan Era [FLAC|24/192|image + .
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67048.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67048.jpgsave_picture_67048.jpg" />
 </div>
 
 
@@ -676,7 +676,7 @@ Augury - Illusive Golden Age (2018) [FLAC|24/192|image + .cue|Vinyl-Rip] <Progre
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67049.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67049.jpgsave_picture_67049.jpg" />
 </div>
 
 

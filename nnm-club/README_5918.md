@@ -6,7 +6,7 @@
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_186426.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_186426.jpgsave_picture_186426.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:490392356E7D9AB748C7DF306BF87B709A61D353
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186427.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186427.jpgsave_picture_186427.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ A Golden Hour From Winchester Cathedral, soloist Timothy Wilson - Hear My Prayer
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186428.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186428.jpgsave_picture_186428.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ CamelPhat - Spiritual Milk (2023) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Dee
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186429.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186429.jpgsave_picture_186429.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:513AB9E0D51E82767BF6182BF0891BFF428B4D43
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186430.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186430.jpgsave_picture_186430.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:C40027643110FE8FB7C3BBB7F1D75864198DB291
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186431.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186431.jpgsave_picture_186431.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ VA - Boccaccio Life - The End Of An Era (2018) [FLAC|Lossless|tracks] <House, Ha
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186432.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186432.jpgsave_picture_186432.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:88FA500FCBE4CD509446E025F50657AF9DB2A274
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186433.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186433.jpgsave_picture_186433.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Anastacia - Our Songs (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186434.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186434.jpgsave_picture_186434.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ Ibiza Lounge - Hot Summer Vibes 2024 (2023) [FLAC|Lossless|WEB-DL|tracks] <Chill
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186435.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186435.jpgsave_picture_186435.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ Klubbheads - Pump Up The Heads! (2021) [FLAC|Lossless|tracks + .cue] <House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186436.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186436.jpgsave_picture_186436.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ yeule - softscars (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Synthpop, cyber go
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186437.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186437.jpgsave_picture_186437.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ magnet:?xt=urn:btih:D19F02A12B32E41A2DE1375622D3BFB55FCA2FEF
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186438.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186438.jpgsave_picture_186438.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ magnet:?xt=urn:btih:AEE1746F1158F10AE39A00AFC877CAA58D1C221A
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186439.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186439.jpgsave_picture_186439.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ Mortemia - Studio Albums (2 releases) (2010-2022) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186440.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186440.jpgsave_picture_186440.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ The Who - Quadrophenia (1973) Super Deluxe, 2014, Geffen [FLAC|Lossless|WEB-DL|t
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186441.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186441.jpgsave_picture_186441.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ magnet:?xt=urn:btih:14CA56A95DBD8FDD116EB91B0510BCD614CC7F49
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186442.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186442.jpgsave_picture_186442.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ magnet:?xt=urn:btih:66FA3A61108DBBCD8946C2BD8A79C34370C3F7D7
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186443.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186443.jpgsave_picture_186443.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ Grave Digger - The Forgotten Years (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186444.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186444.jpgsave_picture_186444.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ magnet:?xt=urn:btih:12D4ACF18C048796346CBC8582498293F4137A5D
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186445.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186445.jpgsave_picture_186445.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ magnet:?xt=urn:btih:D3D74D845D1DD6539786E6ECA5CA97FD2CA7A2E0
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186446.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186446.jpgsave_picture_186446.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ magnet:?xt=urn:btih:44058CB37047D9C282362C3A13711ECD46FB1F47
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186447.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186447.jpgsave_picture_186447.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ magnet:?xt=urn:btih:3A3998F8E6E7ECDEA92E76D14E35E6F363151A36
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186448.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186448.jpgsave_picture_186448.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ magnet:?xt=urn:btih:E0486DA4F64535CDB5395C6E232D249FD3688AF0
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_186449.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_186449.jpgsave_picture_186449.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ VA - Nothing But... Trancetopia, Vol. 08 (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186450.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186450.jpgsave_picture_186450.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ The Halle Orchestra · Conducted by Sir John Barbirolli - Sibelius - Finlandia �
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186451.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186451.jpgsave_picture_186451.jpg" />
 </div>
 
 

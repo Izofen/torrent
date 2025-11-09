@@ -6,7 +6,7 @@ VueScan Pro 9.8.49 (x64) [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252267.jpgsave_picture_252267.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Blackmagic Design DaVinci Resolve Studio 20.2.3 Build 6 [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252268.jpgsave_picture_252268.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:FCEB29441B060E3E69DED85ABBB8C4DA25CEB213
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252269.jpgsave_picture_252269.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ CoolUtils PDF Combine Pro 4.2.0.152 RePack (& Portable) by elchupacabra [Multi/R
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252270.jpgsave_picture_252270.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:F8416533074A49D0004C4DB650FA9891CD18BB25
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252271.jpgsave_picture_252271.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:369F8C6EFDB1894443141E3B9D92918A34425310
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252272.jpgsave_picture_252272.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:AC3A7FC54BB5CCFDB5B219EE48FE1A9D91C8F842
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252273.jpgsave_picture_252273.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Mortal Sin (2023) [Ru/Multi] (1.02) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252274.jpgsave_picture_252274.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:13947CDC682F7A6E6B30FC17457D80A206BA4B23
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252275.jpgsave_picture_252275.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ magnet:?xt=urn:btih:80D0488F5FEB5FC5C4FBAF69047A52CADA85DF57
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252276.jpgsave_picture_252276.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ magnet:?xt=urn:btih:AB7FE6F40DE45F4BC5009D6A8E2AA3BCD254642B
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252277.jpgsave_picture_252277.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:83AA1CA3621FA6E1B4A6748F1A2ACA1328A208AB
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252278.jpgsave_picture_252278.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ magnet:?xt=urn:btih:0A0185569DE52D23996B5884771E6DCA6587A39B
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252279.jpgsave_picture_252279.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Diodov.net, Дмитрий Забарило | Программирование �
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252280.jpgsave_picture_252280.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Zoner Photo Studio X 19.2509.2.661 RePack (& Portable) by elchupacabra [Ru/En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252281.jpgsave_picture_252281.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:3FB86C8F39CC1241AE7D957A785B3B5E1BCBBE66
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252282.jpgsave_picture_252282.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ magnet:?xt=urn:btih:3F81A2D33813ACA4BE8B6325257710D4E409C290
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252283.jpgsave_picture_252283.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ FireAlpaca 2.13.26 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252284.jpgsave_picture_252284.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ Dread Templar (2023) [Ru/Multi] (1.0.2b_fix) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252285.jpgsave_picture_252285.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Machinika Museum (2021) [Ru/Multi] (1.22051101) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252286.jpgsave_picture_252286.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Wreckfest (2018) [Ru/Multi] (Build 16986367/dlc) Repack Other s [Complete Editio
 >>Racing
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252287.jpgsave_picture_252287.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ HYKE: Northern Light(s) (2025) [Ru/Multi] (1.0.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252288.jpgsave_picture_252288.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ God's Gift - God's Gift (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252289.jpgsave_picture_252289.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ SPARTA 2035 (2025) [Ru] (1.1.0(29)/dlc) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252290.jpgsave_picture_252290.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ magnet:?xt=urn:btih:1AB8419115AF4B5D2656A52DFB0C2B70BCF1B135
 >>КВН
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252291.jpgsave_picture_252291.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ FIFA 20 (2019) [Ru/Multi] (1.0.66.8249) Repack Let'sРlay
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252292.jpgsave_picture_252292.jpg" />
 </div>
 
 

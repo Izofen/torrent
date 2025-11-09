@@ -6,7 +6,7 @@ CollageIt 3 Pro v3.6.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239252.jpgsave_picture_239252.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:03B83E55AEDA155A2326D5B9465A6332E38E3C43
 >>Other
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239253.jpgsave_picture_239253.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ magnet:?xt=urn:btih:1D5FD8349106D24D05B539BCF7BF5454946ABBE4
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239254.jpgsave_picture_239254.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:1482B2D036B02DB91AE04132DD4CCE3DE59E1970
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239255.jpgsave_picture_239255.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:FF25E76986EFD75A3161940F8BC864288E6C0859
 >>Новости
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239256.jpgsave_picture_239256.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ Subtitle Studio 1.5.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239259.jpgsave_picture_239259.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:9FA90118F1E5505D3C8FBCFA2EFA9E2F31932B96
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239261.jpgsave_picture_239261.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:D210106FC95D4620476BF95069B3282B6D691F9F
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239264.jpgsave_picture_239264.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ ArtRage 6.1.3 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239265.jpgsave_picture_239265.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ BusyCal 3 v3.12.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239266.jpgsave_picture_239266.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ Topaz Video AI 3.2.6 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239267.jpgsave_picture_239267.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ magnet:?xt=urn:btih:4B81B98A47AB6C90490DB6BA0D9CCD66DEA24F49
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239271.jpgsave_picture_239271.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ magnet:?xt=urn:btih:13EE3D88B7CCFBF2BFB0855D1FDDE4949ABA5629
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239272.jpgsave_picture_239272.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Offensive - Blast from the Past (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Thr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239273.jpgsave_picture_239273.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ magnet:?xt=urn:btih:819C8A55FC4E04F44FC208359BD2663A4D8375C2
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239277.jpgsave_picture_239277.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ magnet:?xt=urn:btih:0BB574B2C69BDD3622D20BC42072415B3012EB67
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239278.jpgsave_picture_239278.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ magnet:?xt=urn:btih:F66D52930946FAB649868913479CA1A695430605
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239279.jpgsave_picture_239279.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ MotoGP. Этап 14. Гран-при Сан-Марино. Квалификаци
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239280.jpgsave_picture_239280.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ PhotoMill X 1.7.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239283.jpgsave_picture_239283.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ magnet:?xt=urn:btih:2F9F60763044FCDA48EBBFC61BD55F6CC73BE6B4
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239284.jpgsave_picture_239284.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ magnet:?xt=urn:btih:62B66A69BCEF7942A5A33106C0F0AE5B4648854B
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239285.jpgsave_picture_239285.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ magnet:?xt=urn:btih:28A94739D670A970DCC5F2CC37C7F66EAAB9A8BF
 >>Other
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239286.jpgsave_picture_239286.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ magnet:?xt=urn:btih:7092F1063D6A9204CE758CD07CED6B35D783D555
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239289.jpgsave_picture_239289.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ SideFX, Arise.Works | Houdini Clouds with VOPs (2020) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239290.jpgsave_picture_239290.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ Mike Tramp - Songs Of White Lion (2023) Japanese Edition [FLAC|Lossless|image + 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239291.jpgsave_picture_239291.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ PotPlayer 220420 (1.7.21631) (x64) RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239292.jpgsave_picture_239292.jpg" />
 </div>
 
 

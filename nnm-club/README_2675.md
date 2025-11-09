@@ -6,7 +6,7 @@
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70300.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70300.jpgsave_picture_70300.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:9C7FC6D5A5313ABC8739805357CCDBDE79C3A468
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70301.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70301.jpgsave_picture_70301.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:9B01CFDBD012BFF3543C6542DC291009ED672438
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70302.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70302.jpgsave_picture_70302.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Panic In The Woods (2024) [Ru/Multi] (1.0.1) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70303.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70303.jpgsave_picture_70303.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:CA7A77111555000AB4F5CC6FBC2D8F701E028A28
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70304.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70304.jpgsave_picture_70304.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:3D72EB696040CE53EAAC6CCD44C9ED6ED33DE904
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70305.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70305.jpgsave_picture_70305.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:99971AB961365C53F0B078F8CCF19AA38A283408
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70306.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70306.jpgsave_picture_70306.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ Cerrone - Disco Symphony (Symphonic Version) (2025) [FLAC 24/44.1|Lossless|WEB-D
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70307.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70307.jpgsave_picture_70307.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:699FBC1DAE118BFE5EED7608548722DDB0CDC275
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70308.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70308.jpgsave_picture_70308.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:AFD22FC9B5B8C115831CA14F73D5FF3E33A1537C
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70309.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70309.jpgsave_picture_70309.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ magnet:?xt=urn:btih:0686C3361B0483DF396B35DCABF616FA5B9E7C58
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70310.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70310.jpgsave_picture_70310.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ magnet:?xt=urn:btih:02EEB0B2B549B0B2914727762DCC3FC143C747E2
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70311.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70311.jpgsave_picture_70311.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ magnet:?xt=urn:btih:A0CF308F926870461D5684A6E2510C47B31FC650
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70312.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70312.jpgsave_picture_70312.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Fight School Simulator (2024) [Ru/Multi] (build 17408091) Repack seleZen
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70313.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70313.jpgsave_picture_70313.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ magnet:?xt=urn:btih:BD81AF65F5D82B243A27365DBBDC429C15C16154
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70314.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70314.jpgsave_picture_70314.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ magnet:?xt=urn:btih:C32E3FFABE7C972ABFA66D264C7D569EAFBA947B
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70315.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70315.jpgsave_picture_70315.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Don Pullen & The African-Brazilian Connection - Ode To Life (1993) Blue Note [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70316.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70316.jpgsave_picture_70316.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ King Gizzard & The Lizard Wizard - Live In Adelaide '19 (2023) (Live) [FLAC 24/4
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70317.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70317.jpgsave_picture_70317.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ magnet:?xt=urn:btih:F06C07CDBC8C4F8F4EE9D3E9A37F44886071E998
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70318.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70318.jpgsave_picture_70318.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ Abdullah Ibrahim - Fats Duke & The Monk (1973) 1994, Sackville [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70319.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70319.jpgsave_picture_70319.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ Earl Coleman - There's Something About An Old Love (1979) 1988, Break Time [FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70320.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70320.jpgsave_picture_70320.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Ted Dunbar - Opening Remarks (1978) 1999б Xanadu Records [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70321.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70321.jpgsave_picture_70321.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ magnet:?xt=urn:btih:3BFC3C847FE43F37A4A50BCAF3529628074B709D
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70322.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70322.jpgsave_picture_70322.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ magnet:?xt=urn:btih:1918CE01E218E0C43B80E88711CEEF72B057E1D3
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70323.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70323.jpgsave_picture_70323.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ magnet:?xt=urn:btih:F5C3A75F63F493883B978AE7E929D8433B4CC2FD
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70324.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70324.jpgsave_picture_70324.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ VA - Gothic Valentines (2025) [FLAC|Lossless|WEB-DL|tracks] <Gothic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70325.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70325.jpgsave_picture_70325.jpg" />
 </div>
 
 

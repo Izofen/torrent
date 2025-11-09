@@ -6,7 +6,7 @@
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247825.jpgsave_picture_247825.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:6880236AAB1BBF55D8149FD7892E88D6F2C16C45
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247827.jpgsave_picture_247827.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:D3D2646D7300AA87F9DEF009C812BDD3E9FCCF31
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247828.jpgsave_picture_247828.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Cleaner for WhatsApp / Очиститель для WhatsApp v3.0.0 Mod by TryRoo
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247829.jpgsave_picture_247829.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:302844EFDD64F6B72A12ADCD735E46B3230035BC
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247830.jpgsave_picture_247830.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:B4C6C1BFE85C758FEC0E7DBB3E75FD9D983876A3
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247831.jpgsave_picture_247831.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:4A1B8FFA0279799023262F28DC8465D45BE84532
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247832.jpgsave_picture_247832.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:EF0648C3AC449D38E14EDF1783E9B814242C9097
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247833.jpgsave_picture_247833.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ VA - Seashore Desire #27 (2012) [MP3|320 кб/с]<Uplifting Trance, Dream Trance
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247834.jpgsave_picture_247834.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ NEMOPHILA. Seize the Fate U.S. tour 2023 HOUSE OF BLUES SAN DIEGO (2023) BDRip [
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247835.jpgsave_picture_247835.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ VA - Top Club Hits Vol.4 (2012) [MP3|320 кб/с]<Dance, Club>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247836.jpgsave_picture_247836.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Sipnetic v1.1.8 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247837.jpgsave_picture_247837.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ VA - Клубные Новинки Vol.72 from AGR (2012) [MP3|320 кб/с]<Club
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247839.jpgsave_picture_247839.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ De Lirium’s Order - Veniversum (2012) [MP3|320 кб/с]<Technical Death>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247840.jpgsave_picture_247840.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ VA - Soul of Ibiza Volume 29 (2012) [MP3|320 кб/с]<Uplifting Trance, Vocal Tr
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247841.jpgsave_picture_247841.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ magnet:?xt=urn:btih:8A3052498A1627E3BB3164A03008FD67A68DA80E
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247842.jpgsave_picture_247842.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ VA - Клубные Новинки Vol.71 from AGR (2012) [MP3|320 кб/с]<Club
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247843.jpgsave_picture_247843.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ PilotEdit Lite & Pro 20.4.0 [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247844.jpgsave_picture_247844.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ magnet:?xt=urn:btih:BED396A64221429BB660598AAF839B07F72B95ED
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247845.jpgsave_picture_247845.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:B2B71588179011E09E640805A431C6E43C073631
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247846.jpgsave_picture_247846.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ magnet:?xt=urn:btih:98FCF61B910CE1A9F3979DAC9723BEDC2FE39B94
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247848.jpgsave_picture_247848.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ magnet:?xt=urn:btih:3592A4B5389392C13594FAC5F37A542A4E1D14CD
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247849.jpgsave_picture_247849.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Windhand - Windhand (2012) [MP3|320 кб/с]<Stoner Doom>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247850.jpgsave_picture_247850.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ magnet:?xt=urn:btih:FBE531A3ACE4D24812B2121E4100FFEBFD4DD375
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247851.jpgsave_picture_247851.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Food.ru: пошаговые рецепты v02.14.00 Mod by vadj [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247853.jpgsave_picture_247853.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ magnet:?xt=urn:btih:4F837A18922EA73C925560AD0B8E19BC2AA7C7CF
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247854.jpgsave_picture_247854.jpg" />
 </div>
 
 

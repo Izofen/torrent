@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137163.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137163.jpgsave_picture_137163.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ BootHDD 2017 (EFI) [Ru]
 >>14
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137164.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137164.jpgsave_picture_137164.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:B3783CE068C7607727178339ADBB9047836FA750
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137166.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137166.jpgsave_picture_137166.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:8A6AD3C22C6C4BD2289AB1E34798A762EEC42FE9
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137167.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137167.jpgsave_picture_137167.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Houseki no Kuni / Land of the Lustrous / Сказания о самоцвета�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137168.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137168.jpgsave_picture_137168.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:78DCD13435CBBD9403B20154E38C578B8FD84738
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137169.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137169.jpgsave_picture_137169.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:522E4C2D463C708F226FF05CDB92EDA3E57A21CF
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137170.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137170.jpgsave_picture_137170.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:FB3ED65E72FE491C43C4F34F8D54659629D3D74D
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137171.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137171.jpgsave_picture_137171.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:F6D5577BD31B343541BE35A8F705CD78D248B726
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137172.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137172.jpgsave_picture_137172.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Imagination - Imagination (1985) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Synth-Po
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137173.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137173.jpgsave_picture_137173.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:E5FC48365F8397BBF2513419B15EC380E6218D5D
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137174.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137174.jpgsave_picture_137174.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Skirt no Naka wa Kedamono Deshita. | Зверь под юбкой [2017, TV, 12]
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137175.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137175.jpgsave_picture_137175.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:A3147BA9F8A2218A254E67A6ABE632099DFCB5D3
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137176.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137176.jpgsave_picture_137176.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Lingon X 6.5.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137177.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137177.jpgsave_picture_137177.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ S.T.A.L.K.E.R. Anthology  (2007-2009) [Ru/Multi] Repack R.G. Catalyst
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137178.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137178.jpgsave_picture_137178.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:208EF362D1F820FC745C413241D520EED752693B
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137179.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137179.jpgsave_picture_137179.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Blackmagic Design DaVinci Resolve Studio 16.1.2.026 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137180.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137180.jpgsave_picture_137180.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ magnet:?xt=urn:btih:690887FDA89C2F30AE44D299B397470FA0369A8D
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137181.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137181.jpgsave_picture_137181.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ GRID 2 (2013) [Ru/En] (1.0.85.8679/dlc) Repack xatab
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137182.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137182.jpgsave_picture_137182.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Spec Ops: The Line (2012) [Ru/Multi] (1.0.6890.0/upd2/dlc) Repack Other s
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137183.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137183.jpgsave_picture_137183.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ Zhen hun jie / Rakshasa Street / Улица призраков [2016, TV, 9 из
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137184.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137184.jpgsave_picture_137184.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Faces of War / В тылу врага 2 (2006) [Ru/En] (1.04.1) License GOG
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137186.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137186.jpgsave_picture_137186.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ bond - Play (2011) [FLAC|Lossless]<Classical Crossover>
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137187.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137187.jpgsave_picture_137187.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ magnet:?xt=urn:btih:118CB9E55A35405AC9C42813EB68F7040C88DDE1
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137188.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137188.jpgsave_picture_137188.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ magnet:?xt=urn:btih:07DBD426589CE528B761EE8EDFA1B8058C01BA9E
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137189.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137189.jpgsave_picture_137189.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ magnet:?xt=urn:btih:D40822BDC79A1BF214FC2E453AB0E5002E2E7B8E
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137190.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137190.jpgsave_picture_137190.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Shores of Null - Black Drapes for Tomorrow (2017) [MP3|320 Kbps] <Melodic Black,
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213799.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213799.jpgsave_picture_213799.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Karmen Field - Black Star Emperor (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard, He
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213813.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213813.jpgsave_picture_213813.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Signs Preyer - Mammoth Disorder (2015) [MP3|320 Kbps] <Groove Metal/Hard Rock>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213825.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213825.jpgsave_picture_213825.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Lintver - Distorted Perception (2016) Reissue, 2017, PRC Music [FLAC|Lossless|im
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213832.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213832.jpgsave_picture_213832.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Lake Cyanide - Lake Cyanide (2020) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213838.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213838.jpgsave_picture_213838.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Magnum - The Eleventh Hour! (1983) Japanese Edition, Reissue, Remastered, 2023, 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_214391.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_214391.jpgsave_picture_214391.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Various Artists - Immortal Randy Rhoads - The Ultimate Tribute (2015) [FLAC|Loss
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215328.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215328.jpgsave_picture_215328.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Blindstone - Scars To Remember (2023) [FLAC|Lossless|image + .cue] <Heavy Blues 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215333.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215333.jpgsave_picture_215333.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Asia - Resonance (2010) The Omega Tour 2010 - Live In Basel, Switzerland, 4th Ma
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215363.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215363.jpgsave_picture_215363.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Cordovas - The Rose of Aces (2023) [FLAC|Lossless|WEB-DL|tracks] <Southern Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215388.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215388.jpgsave_picture_215388.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Enuff Z'Nuff - 1985 (1994) [FLAC|Lossless|image + .cue] <Rock, Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215420.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215420.jpgsave_picture_215420.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Virgin Steele - The Passion of Dionysus (2023) [FLAC|Lossless|image + .cue] <Hea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215465.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215465.jpgsave_picture_215465.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Etreum - Evolucion (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215472.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215472.jpgsave_picture_215472.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Kataklysm - Goliath (2023) [FLAC|Lossless|image + .cue] <Melodic Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215479.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215479.jpgsave_picture_215479.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Billie Bottle's Temple Of Shibboleth - The Mending Tour (2023) [FLAC|Lossless|WE
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215514.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215514.jpgsave_picture_215514.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Richard Soucy - Freedom (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215530.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215530.jpgsave_picture_215530.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Legion Of The Damned - The Poison Chalice (2023) [FLAC|Lossless|image + .cue] <D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215563.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215563.jpgsave_picture_215563.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Eliminator - And the Brokenhearted Balladeers (2011) [FLAC|Lossless|image + .cue
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215629.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215629.jpgsave_picture_215629.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Eliminator - The One They Were Waiting For (2011) [FLAC|Lossless|image + .cue] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215635.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215635.jpgsave_picture_215635.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Geist - Kainsmal (2006) [FLAC|Lossless|image + .cue] <Melodic Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215642.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215642.jpgsave_picture_215642.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Magnum - Kingdom of Madness (1978) 2 x CD, Japanese Edition, Reissue, Remastered
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216190.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216190.jpgsave_picture_216190.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Degreed - Public Address (2023) Japanese Edition [FLAC|Lossless|image + .cue] <M
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216208.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216208.jpgsave_picture_216208.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ The Mystical Hot Chocolate Endeavors - A Clock Without A Craftsman (2023) 2 x CD
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216234.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216234.jpgsave_picture_216234.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Jungle - Volcano (2023) [FLAC|Lossless|WEB-DL|tracks] <alternative, electronic, 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216261.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216261.jpgsave_picture_216261.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Magnum - II (1979) Japanese Edition, Remastered, 2023, Belle Antique [FLAC|Lossl
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216271.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216271.jpgsave_picture_216271.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ VA - WORKOUT: Allenamento Metal (2023) [FLAC|Lossless|WEB-DL|tracks] <Metal, Roc
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216284.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216284.jpgsave_picture_216284.jpg" />
 </div>
 
 

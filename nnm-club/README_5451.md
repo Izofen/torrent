@@ -6,7 +6,7 @@
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168643.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168643.jpgsave_picture_168643.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Voice - The Storm (2017) [FLAC|Lossless|image + .cue] <Heavy Metal, Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168644.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168644.jpgsave_picture_168644.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:2B1FB3C4A72A7D675D30FCECA33189CB3D13CF5D
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168645.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168645.jpgsave_picture_168645.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:343D66797AE054E60DAD0E219E57C4981C3CA612
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168646.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168646.jpgsave_picture_168646.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Sands of Aura (2023) [En] (1.0) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168647.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168647.jpgsave_picture_168647.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:5BD516781913FA07160BBF8752C78C0EDB46A1EA
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168648.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168648.jpgsave_picture_168648.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Slay the Princess (2023) [En] (20231024) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168649.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168649.jpgsave_picture_168649.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:EE8309275CE3905D501055C9CCFA21B0A8C0843D
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168650.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168650.jpgsave_picture_168650.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ djay - DJ App & AI Mixer 3.1.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168651.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168651.jpgsave_picture_168651.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Kawaii Dake ja Nai Shikimori-san | Shikimori's Not Just a Cutie | Моя дев�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168652.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168652.jpgsave_picture_168652.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:44CF932CB68E564C267E095ABFB6CEACFA556ABE
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168653.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168653.jpgsave_picture_168653.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ VA - Moonlight Lounge (Mediterranean Roots), Vol. 1 (2021) [AAC|~319 Kbps] <Loun
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168654.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168654.jpgsave_picture_168654.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:F99A51E297F5751561D112F59749A91C18B5B858
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168656.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168656.jpgsave_picture_168656.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:73E7A4CB7A04FB2F726C2957754287084BF93781
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168657.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168657.jpgsave_picture_168657.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ iSnow 3.0.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168658.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168658.jpgsave_picture_168658.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ magnet:?xt=urn:btih:B4870536F03E5A627EC888BC813E6CFE6C28947C
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168659.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168659.jpgsave_picture_168659.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ magnet:?xt=urn:btih:C5A4EC72F3CBB7089148EBC55C26C5F1CC285184
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168660.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168660.jpgsave_picture_168660.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ magnet:?xt=urn:btih:C05ACBEF54E7B8987AFB7B70CB1787E057C2F884
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168661.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168661.jpgsave_picture_168661.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ magnet:?xt=urn:btih:8F33A310B8C99A5CD15F722155BCD48AE0C9C48E
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168662.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168662.jpgsave_picture_168662.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ Motion 5.4.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168663.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168663.jpgsave_picture_168663.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ MWeb Pro 4.2.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168664.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168664.jpgsave_picture_168664.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ magnet:?xt=urn:btih:B5170670DEA963176553FAB5280CBDEE526F0023
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168665.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168665.jpgsave_picture_168665.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ magnet:?xt=urn:btih:966A95CC363828F152CC9F1E91314C6C2BAEB556
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168666.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168666.jpgsave_picture_168666.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:03F56E769292DD7A6E1A1E736B8344F01ABEF69B
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168667.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168667.jpgsave_picture_168667.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ AMD Radeon Software Adrenalin 2020 Edition 19.12.2 WHQL [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168668.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168668.jpgsave_picture_168668.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ IrfanView 4.62 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168669.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168669.jpgsave_picture_168669.jpg" />
 </div>
 
 

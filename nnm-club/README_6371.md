@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202296.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202296.jpgsave_picture_202296.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:1A89C8320329F1978349A19D3D44EC75AE7590C2
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202297.jpgsave_picture_202297.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ TROUBLESHOOTER: Abandoned Children (2020) [Ru/Multi] (Build 88888888/dlc) Repack
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202298.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202298.jpgsave_picture_202298.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:58144E7313C0E9B178A172E4F3E4D7C54701CC21
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202299.jpgsave_picture_202299.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ HTML Academy | Протоколы и сети: веб-безопасность  
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202300.jpgsave_picture_202300.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ magnet:?xt=urn:btih:F42B966006B76C97D277A2ECBA2F92C426852681
 >>Автомобильные обуч.видео
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202301.jpgsave_picture_202301.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ ZTM Academy, Luis Ramirez Jr | Unity Bootcamp: 3D Game Development (2023) WEB-DL
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202302.jpgsave_picture_202302.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ magnet:?xt=urn:btih:AFE5FFCEF3F80EC58F6416BB6B3923E444E2E46C
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202303.jpgsave_picture_202303.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ magnet:?xt=urn:btih:8367525FDBD6E78C5C946B53D4367F222E7E749E
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202304.jpgsave_picture_202304.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ Fallout 4 (2015) [Ru/Multi] (1.10.163.0/dlc) License GOG [Game of the Year Editi
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202305.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202305.jpgsave_picture_202305.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ Podlodka Crew | Java Crew #1 (2022) WEB-DL [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202306.jpgsave_picture_202306.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ magnet:?xt=urn:btih:7BF7F4A59FE5DC7D43BFD4B4187508CDD03446C6
 >>Теория Большого Взрыва / The Big Bang Theory; Детство Шелдона / Young Sheldon
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202307.jpgsave_picture_202307.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ magnet:?xt=urn:btih:F3740C4EC2B764A1F1FD885C860572CDBD8127E2
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202308.jpgsave_picture_202308.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ magnet:?xt=urn:btih:3C5F019CEEE428577088BCC2006C166D383DFBB5
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202309.jpgsave_picture_202309.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ Podlodka Crew | Backend Crew #4 (2022) WEB-DL [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202310.jpgsave_picture_202310.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ magnet:?xt=urn:btih:A233F63C0B9777B8B9585FCD9FFD26C0ADC752E7
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202311.jpgsave_picture_202311.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Brad Traversy | Modern JavaScript From The Beginning 2.0 (2023) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202312.jpgsave_picture_202312.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ magnet:?xt=urn:btih:467C1A6CF71047620DA776DEEF9B83C41E8F890F
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202313.jpgsave_picture_202313.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ magnet:?xt=urn:btih:ADF098A90CCA022F0A9A7301FAAB7DFC6F3906D3
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202314.jpgsave_picture_202314.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Sherlock Holmes and The Hound of the Baskervilles / Шерлок Холмс и �
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202315.jpgsave_picture_202315.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ magnet:?xt=urn:btih:95D3B8DEB7B3A7C57E01199481B35038EC02E1D7
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202316.jpgsave_picture_202316.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ magnet:?xt=urn:btih:E0B08B7BB0E2787E9285D17BCA4F095B250720EF
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202317.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202317.jpgsave_picture_202317.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ magnet:?xt=urn:btih:28FB4F77231A55320E397F75F68972BFF4FFD316
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202318.jpgsave_picture_202318.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ magnet:?xt=urn:btih:8846126A280A802CF1F38D17B4948557476BFC22
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202319.jpgsave_picture_202319.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Total Commander 10.52 (23.02.2023) Portable by MiG [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202320.jpgsave_picture_202320.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ magnet:?xt=urn:btih:5043ABBF30C3DD2401994AA4AB3BD92452597E8C
 >>Теория Большого Взрыва / The Big Bang Theory; Детство Шелдона / Young Sheldon
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202321.jpgsave_picture_202321.jpg" />
 </div>
 
 

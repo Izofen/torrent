@@ -6,7 +6,7 @@ Google Chrome 114.0.5735.110 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_230452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230452.jpgsave_picture_230452.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:46F0134B78234AF88F7E5C05A2803DB210E409B2
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_230453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230453.jpgsave_picture_230453.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:9AD3C9B31E2861D48528CEEABFB4C87ECB32A31A
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_230455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230455.jpgsave_picture_230455.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:0743F9AAEA3A0DE7C6FDE67ABA967EED996C86A4
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230456.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230456.jpgsave_picture_230456.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Simple Sticky Notes 6.0.0.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_230458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230458.jpgsave_picture_230458.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:8C50FB833AC333A210629167558CDF634438B2E6
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_230461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230461.jpgsave_picture_230461.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ VA - Perfect Ballads (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, Ballads>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_230462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230462.jpgsave_picture_230462.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Hot Unkle T - Stay In A Club (2023) [MP3|320 Kbps] <Nu Disco, Funky House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_230465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230465.jpgsave_picture_230465.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ WinToUSB Free / Pro / Enterprise / Technician 7.9 Release 2 RePack (& Portable) 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_230467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230467.jpgsave_picture_230467.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ magnet:?xt=urn:btih:F7CF5A3BF6EF2115F10DC3CF864E181F51D646DB
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_230469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230469.jpgsave_picture_230469.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ magnet:?xt=urn:btih:2CB4A7262933CF1A08EF102F003FDC128DF80BC1
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_230470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230470.jpgsave_picture_230470.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ magnet:?xt=urn:btih:E8F2CDA0A87629B8EE06235B604E19D1B03E4CF4
 >>History Channel
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_230473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230473.jpgsave_picture_230473.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Pino Daniele - Che Dio Ti Benedica (1993) [FLAC|Lossless|tracks + .cue] <Pop, Ro
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230474.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230474.jpgsave_picture_230474.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Topaz Video AI 3.2.8 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_230475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230475.jpgsave_picture_230475.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ magnet:?xt=urn:btih:3C98C55EFC390512BC8B566C3EB7103D5382E44C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_230476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230476.jpgsave_picture_230476.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ magnet:?xt=urn:btih:D68FA0CAD5D340358CC69BDCE0028EBA9D3314D5
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230479.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230479.jpgsave_picture_230479.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ VA - Александр Галич•Я выбираю свободу (2009) [FL
 >>Авторская и Военная песня (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230480.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230480.jpgsave_picture_230480.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ magnet:?xt=urn:btih:381118DC5A110D211B591FA5AD025D790E460000
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_230481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230481.jpgsave_picture_230481.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ magnet:?xt=urn:btih:3E4042834B66FA71CC492D07143A6B8B3141220A
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_230482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230482.jpgsave_picture_230482.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ magnet:?xt=urn:btih:B98C891DBBB7763AB85EEE5185BADB6CE83443FA
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230485.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230485.jpgsave_picture_230485.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ File & Image Uploader 8.3.3 Portable + Skins [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230486.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230486.jpgsave_picture_230486.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ magnet:?xt=urn:btih:65621E23CEC53371746FE6D51890AC1156E4148E
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230487.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230487.jpgsave_picture_230487.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ magnet:?xt=urn:btih:57A57BD8C9F6D2D5AFE225C0C28719749F0D36C3
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_230489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230489.jpgsave_picture_230489.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ magnet:?xt=urn:btih:9D911E6BD5DD942AC65CA88273DB8D5828DF273D
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230490.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230490.jpgsave_picture_230490.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ magnet:?xt=urn:btih:91839244D332A6261143601D3A0A3888634C95F8
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_230491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230491.jpgsave_picture_230491.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ magnet:?xt=urn:btih:704404F4766D03F623001EA4A726AEEB482C0764
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230493.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230493.jpgsave_picture_230493.jpg" />
 </div>
 
 

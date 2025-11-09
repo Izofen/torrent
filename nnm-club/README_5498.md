@@ -6,7 +6,7 @@ Majula - The Blace Tapes, Vol. 1 (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressi
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169902.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169902.jpgsave_picture_169902.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:769448CF9ACF8DF353F4BF4633FC43A436B72930
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169903.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169903.jpgsave_picture_169903.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:62BB052721BE837737827A7C2C947B073ED27855
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169904.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169904.jpgsave_picture_169904.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ The Legend of Heroes: Trails in the Sky: Second Chapter (2015) [En] (2019.12.08)
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169905.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169905.jpgsave_picture_169905.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ magnet:?xt=urn:btih:6EC0AB0655B929EB23D6B67789BC48B6994AE619
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169906.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169906.jpgsave_picture_169906.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ MetaProducts Offline Explorer Enterprise 8.5.0.4970 RePack (& Portable) by elchu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169907.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169907.jpgsave_picture_169907.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ magnet:?xt=urn:btih:01D80B1FA5FA70CC2EC6A81AC217B0982AB91EEA
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169908.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169908.jpgsave_picture_169908.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ Revo Uninstaller Pro 4.2.3 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169909.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169909.jpgsave_picture_169909.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ Silverhead | Detective - 4 albums (1972-2016) [FLAC|Lossless|image + .cue] <Rock
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169911.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169911.jpgsave_picture_169911.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ Oddworld: Soulstorm (2021) [En] (1.162/dlc) License CODEX [Enhanced Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169912.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169912.jpgsave_picture_169912.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ magnet:?xt=urn:btih:8BD4383D44554D5F56698E6671F61ACDE79F3CE6
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169913.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169913.jpgsave_picture_169913.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ magnet:?xt=urn:btih:32B9E5A50A3B9277A0C83D09F95B8C91FDE02869
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169914.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169914.jpgsave_picture_169914.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ magnet:?xt=urn:btih:61D1189EC3965833BCC8571543BE5039BDAB5082
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169915.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169915.jpgsave_picture_169915.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ magnet:?xt=urn:btih:27B5CF43912256E67DA240EA8599030B6CC697FA
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169916.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169916.jpgsave_picture_169916.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ magnet:?xt=urn:btih:BFB9A5490FACEBF45CC793F86563A864DCBC9BD7
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169917.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169917.jpgsave_picture_169917.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ magnet:?xt=urn:btih:637ACC8A2BE17B163490FE9E03833BA6FFFEBE30
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169918.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169918.jpgsave_picture_169918.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ magnet:?xt=urn:btih:83208FCC11DD5CEAE3E76608AD8C20EBA94BB537
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169919.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169919.jpgsave_picture_169919.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Panama - 2 Albums (1978, 1979) LP [MP3|320 Kbps] <Electronic, Disco, Funk Soul>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169920.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169920.jpgsave_picture_169920.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Animal Planet. Секреты природы / Nature's Strangest Mysteries: Sol
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169921.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169921.jpgsave_picture_169921.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ magnet:?xt=urn:btih:581480A02E8485197F64FF3D7FA03243D96EC6D0
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169922.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169922.jpgsave_picture_169922.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ VA - Shazam & Apple Music Chart (Россия Топ 100 Ноябрь) (2021) [M
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169923.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169923.jpgsave_picture_169923.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ We Shine Every Night - Memory and Imagination (2022) [FLAC|Lossless|WEB-DL|track
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169924.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169924.jpgsave_picture_169924.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Aiseesoft FoneLab for Android 5.0.28 RePack (& Portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169925.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169925.jpgsave_picture_169925.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ magnet:?xt=urn:btih:ED5B39A4D881BA8E5FE1C945464364DEFA662E52
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169926.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169926.jpgsave_picture_169926.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ Ardarith - Home (2022) [FLAC|Lossless|WEB-DL|tracks] <Prog-Metal, Prog-Opera, Sy
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169927.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169927.jpgsave_picture_169927.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Animal Planet. Секреты природы / Nature's Strangest Mysteries: Sol
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169928.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169928.jpgsave_picture_169928.jpg" />
 </div>
 
 

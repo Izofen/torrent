@@ -6,7 +6,7 @@ Stardock Start 2.0.3.0 RePack by xetrin [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128059.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128059.jpgsave_picture_128059.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ God of war (2018) [PS4] [EUR] 5.50 [HEN] [License/1.34/DLC] [Ru/Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128060.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128060.jpgsave_picture_128060.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:052EBDA213D9CBBD9C443C5232C5A2EA31E3B489
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128061.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128061.jpgsave_picture_128061.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Windows 11 x64 Rus by OneSmiLe [22631.2861]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128062.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128062.jpgsave_picture_128062.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Aliens: Dark Descent (2023) [Ru/Multi] (98246/dlc) Repack Decepticon
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128063.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128063.jpgsave_picture_128063.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:24AC4ECE7A933638EF7E76A4C53E80C1B4E581B6
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128064.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128064.jpgsave_picture_128064.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Adobe Acrobat Pro 2023.008.20421 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128065.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128065.jpgsave_picture_128065.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Wi-Fi 7 предвещает эпоху сверхбыстрого интерн�
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128066.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128066.jpgsave_picture_128066.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Windows 10 x64 Rus by OneSmiLe [19045.3803]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128067.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128067.jpgsave_picture_128067.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:8B3369151977B461CADAA341A82EBACE65547A1A
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128068.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128068.jpgsave_picture_128068.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:F46D778CDBB89E499E7D3F2B324991E4AE7794BB
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128069.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128069.jpgsave_picture_128069.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Avast Premium Security 23.12.6094 RePack by xetrin [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128070.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128070.jpgsave_picture_128070.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Adrian Cantrill | AWS Certified Developer - Associate (2023) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128071.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128071.jpgsave_picture_128071.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Udemy, Nikita I. | Java Stream API полный курс с нуля для но
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128072.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128072.jpgsave_picture_128072.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ magnet:?xt=urn:btih:9A2A3E4DC42389D79BF3FDA2D6CB688B80009A03
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128073.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128073.jpgsave_picture_128073.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ magnet:?xt=urn:btih:E6C08FC5300DD70711465C71F23227F2F1ACB7EF
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128074.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128074.jpgsave_picture_128074.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ magnet:?xt=urn:btih:FC46B2D07C8B8685E35B0D14FFEE81928B506DAD
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128075.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128075.jpgsave_picture_128075.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ magnet:?xt=urn:btih:093236FA2588AD864903EBBBCDCD3211F8D3E85E
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128076.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128076.jpgsave_picture_128076.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ magnet:?xt=urn:btih:8B96B7DA613337E56D05CD40EFC2FE2BA576AF4E
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128077.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128077.jpgsave_picture_128077.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Radio Moscow - 7 Albums (2007 - 2017) [FLAC|Lossless|tracks + .cue]<Garage Rock,
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128078.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128078.jpgsave_picture_128078.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ magnet:?xt=urn:btih:61712588D00B04E029F47922B235A6E87A0E791F
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128079.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128079.jpgsave_picture_128079.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ Dave McKenna - Christmas Ivory (1997) Concord Jazz [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128080.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128080.jpgsave_picture_128080.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ magnet:?xt=urn:btih:D45C06C13DA1B8885456027C3AEFBF927B9F3676
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128081.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128081.jpgsave_picture_128081.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Thelemite - Thelemism (2021) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128082.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128082.jpgsave_picture_128082.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ Egyptian Blue - A Living Commodity (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <R
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128083.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128083.jpgsave_picture_128083.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ Runemagick - Last Skull Of Humanity (2023) EP [FLAC|Lossless|WEB-DL|tracks] <Dea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128084.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128084.jpgsave_picture_128084.jpg" />
 </div>
 
 

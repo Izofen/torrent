@@ -6,7 +6,7 @@ Center of the Earth - 4 Albums (2018-2023) [MP3|320 Kbps] <Psych, Stoner, Doom M
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244419.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244419.jpgsave_picture_244419.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Celestial Shadows - The Tragedy of Calufrax (2023) [FLAC|Lossless|WEB-DL|tracks]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244420.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244420.jpgsave_picture_244420.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Lethvm - Winterreise (2023) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Sludge, D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244426.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244426.jpgsave_picture_244426.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Upsidedown Cross - 2 Albums (1991-1993) [FLAC|Lossless|WEB-DL|tracks] <Sludge, D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244427.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244427.jpgsave_picture_244427.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Insidious One - Н​и​ч​т​о​ж​е​с​т​в​о (2023) [FLA
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244429.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244429.jpgsave_picture_244429.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Bourbon House - The Fourth Album (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244432.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244432.jpgsave_picture_244432.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Teramaze - I Wonder (2020) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244433.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244433.jpgsave_picture_244433.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ The Bronx Casket Co. - Hellectric (2005) [FLAC|Lossless|image + .cue] <Gothic Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244437.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244437.jpgsave_picture_244437.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ XIV Dark Centuries - ...Den Ahnen Zum Grusse... (2003) [WavPack|Lossless|image +
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244446.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244446.jpgsave_picture_244446.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Guild Of Ages - One (1998) [FLAC|Lossless|image + .cue] <Progressive & Melodic H
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244449.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244449.jpgsave_picture_244449.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Witch Piss - Witch Piss (2023) [FLAC|Lossless|WEB-DL|tracks] <Stoner Metal, Slud
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244468.jpgsave_picture_244468.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ the Poor - High Price Deed (2023) [MP3|320 Kbps] <Hard Rock , AOR>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244474.jpgsave_picture_244474.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Godsleep - Lies to Survive (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Sto
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244488.jpgsave_picture_244488.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Victor Smolski - 3 Albums (2006-2023) [MP3|320 Kbps] <Neo-Classical, Progressive
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244490.jpgsave_picture_244490.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Dozer - Drifting in the Endless Void (2023) [MP3|320 Kbps] <Stoner Rock, Heavy R
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244493.jpgsave_picture_244493.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Peter Lawson - 10 of Swords (2023) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic, S
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244503.jpgsave_picture_244503.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Antim Grahan - Goat Legion (2023) [MP3|320 Kbps] <Symphonic Black, Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244510.jpgsave_picture_244510.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ magnet:?xt=urn:btih:9387C4B06D163AF7CD5BD30FDD89EEE76EC32127
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244511.jpgsave_picture_244511.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Marco Garau's Magic Opera - 2 Albums (2021-2023) [MP3|320 Kbps] <Symphonic Power
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244519.jpgsave_picture_244519.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:C8A81EE261DD548EBFB203F0F47302E296318B72
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244520.jpgsave_picture_244520.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Jon Oliva's Pain - 'Tage Mahal (2004) Japan [FLAC|Lossless|image + .cue] <Progre
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244521.jpgsave_picture_244521.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Equipoise - Demiurgus (2019) [MP3|320 Kbps] <Technical Death Metal, Progressive 
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244530.jpgsave_picture_244530.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Screw - Angel Seed XXIII (1997) [APE|Lossless|image + .cue] <Industrial Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244534.jpgsave_picture_244534.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Djevel - Naa Skrider Natten Sort (2022) [MP3|320 Kbps] <Black Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244542.jpgsave_picture_244542.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Hurry - Every Little Thought (2018) [FLAC|Lossless|tracks + .cue] <Rock, Indie R
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244547.jpgsave_picture_244547.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Diaspora - Pendulum (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244557.jpgsave_picture_244557.jpg" />
 </div>
 
 

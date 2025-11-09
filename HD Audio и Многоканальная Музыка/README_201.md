@@ -6,7 +6,7 @@ KK's Priest - The Sinner Rides Again (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181468.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181468.jpgsave_picture_181468.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Stam1na - X (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive, Thrash, H
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181497.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181497.jpgsave_picture_181497.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Blackbriar - A Dark Euphony (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Symphoni
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181528.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181528.jpgsave_picture_181528.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Bullant - Late Life Circ (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Techno, E
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181553.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181553.jpgsave_picture_181553.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Fat Freddy's Drop & Kings - Blackbird Returns (2023) [FLAC 24/44.1|Lossless|WEB-
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181557.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181557.jpgsave_picture_181557.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ The Hirsch Effekt - Urian (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Mathcore
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181566.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181566.jpgsave_picture_181566.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Psychework - Spark of Hope (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy M
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181570.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181570.jpgsave_picture_181570.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Surrender The Crown - IV - The Healing (2023) [FLAC 24/44.1|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181583.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181583.jpgsave_picture_181583.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Sleeping With Sirens - Complete Collapse (2022) Deluxe Edition [FLAC 24/48|Lossl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181585.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181585.jpgsave_picture_181585.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Dyecrest - Once I Had A Heart (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heav
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181600.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181600.jpgsave_picture_181600.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ October Falls - Tuoni (2003) EP [FLAC|24/192|image + .cue|Vinyl-Rip] <Atmospheri
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181613.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181613.jpgsave_picture_181613.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Atena - Subway Anthem (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181626.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181626.jpgsave_picture_181626.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Green Day - Dookie (1994) 30th Anniversary Deluxe Edition, 2023, Reprise [FLAC 2
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_182129.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_182129.jpgsave_picture_182129.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Martin Simson’s Destroyer of Death - Eternal Reign (2023) [FLAC 24/48|Lossless
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182215.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182215.jpgsave_picture_182215.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Maneskin - Rush! (2023) [FLAC 24/44.1|WEB-DL|tracks] <Glam-rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_182242.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_182242.jpgsave_picture_182242.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ LP (Laura Pergolizzi) - Love Lines (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182244.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182244.jpgsave_picture_182244.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Nancy Sinatra - Keep Walkin': Singles, Demos & Rarities 1965-1978 (2023) [FLAC 2
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182262.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182262.jpgsave_picture_182262.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Ed Sheeran - Autumn Variations (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182286.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182286.jpgsave_picture_182286.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Alter Bridge (Creed, Tremonti) - Studio Albums (7 releases) (2004 - 2022) hand m
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182296.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182296.jpgsave_picture_182296.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Code Orange - The Above (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Metalcore, h
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182361.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182361.jpgsave_picture_182361.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Steven Wilson - The Harmony Codex (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Pr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_182423.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_182423.jpgsave_picture_182423.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Jelusick - Follow The Blind Man (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Ha
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182425.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182425.jpgsave_picture_182425.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Heldmaschine - Flachenbrand (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Indust
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182519.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182519.jpgsave_picture_182519.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Don Letts - Outta Sync (2023) [FLAC 16-24/44.1|Lossless|WEB-DL|tracks] <punk reg
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182527.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182527.jpgsave_picture_182527.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ Nervosa - Jailbreak (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Thrash Metal>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182548.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182548.jpgsave_picture_182548.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ Stepmother - Planet Brutalicon (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <pro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182578.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182578.jpgsave_picture_182578.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12732.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12732.jpgsave_picture_12732.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:ABF264658283BC4BAA1F0BC6B01757F84896E9AA
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12733.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12733.jpgsave_picture_12733.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:0036B69B86A32BDAC22B6ED5C4176B27D4FEBF40
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12734.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12734.jpgsave_picture_12734.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ VA - Skin to Skin Chillout & Lounge for Lovers (2025) [FLAC|Lossless|WEB-DL|trac
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12735.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12735.jpgsave_picture_12735.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:95E904B63CE70C1A2FD52CB9095C4EC94263FC5B
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12736.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12736.jpgsave_picture_12736.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ Tiesto - Live @ PRISMATIC, Palacio De Los Deportes Mexico City (2025-06-14) [MP3
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12737.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12737.jpgsave_picture_12737.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ magnet:?xt=urn:btih:0F7A191347C000530095DB69B9A4C84D8AFCA67E
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12738.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12738.jpgsave_picture_12738.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:6C68E189DE8A4C05A0F769368FE1AD89DD76C11B
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12739.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12739.jpgsave_picture_12739.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ magnet:?xt=urn:btih:31212C3070968D09715ACDC443ECAFE125CC33D4
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12740.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12740.jpgsave_picture_12740.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ VA - Top 11 April 2025 Emotional and Uplifting Trance (2025) [MP3|320 Kbps] <Tra
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12741.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12741.jpgsave_picture_12741.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ magnet:?xt=urn:btih:3F209C5FC55D8F18D7EB3CC549D1427C83AC0521
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12742.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12742.jpgsave_picture_12742.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ Venator - Psychodrome (2025) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12743.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12743.jpgsave_picture_12743.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ Skracken - Echoes From The Void (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12744.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12744.jpgsave_picture_12744.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ Ulvarg - Ulvarg (2025) [MP3|320 Kbps] <Symphonic Black Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12745.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12745.jpgsave_picture_12745.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ magnet:?xt=urn:btih:7F9FE02C140640C2693B209D0B2EA741A2ED76EC
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12746.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12746.jpgsave_picture_12746.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ Art Pepper - Four Classic Albums (1956, 1957) 2CD, 2008, Avid Jazz [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12747.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12747.jpgsave_picture_12747.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ Versatile - Les Litanies du Vide (2025) [MP3|320 Kbps] <Black, Industrial Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12748.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12748.jpgsave_picture_12748.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Warfield - With the Old Breed (2025) [MP3|320 Kbps] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12749.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12749.jpgsave_picture_12749.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ MYR - Helvegen (2025) [MP3|320 Kbps] <Black Metal, Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12750.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12750.jpgsave_picture_12750.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Voracite - White Phosphorus (2025) [MP3|320 Kbps] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12751.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12751.jpgsave_picture_12751.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ Burnt By Hatred - Myth Or Mortal (2025) [MP3|320 Kbps] <Melodic Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12752.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12752.jpgsave_picture_12752.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ Sleep Paralysis - Sleep Paralysis (2025) [FLAC|Lossless|WEB-DL|tracks] <Avant-Ga
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12753.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12753.jpgsave_picture_12753.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ magnet:?xt=urn:btih:AA392C5BB2F9AC4EF67C2F91AEDCB42849258362
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12754.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12754.jpgsave_picture_12754.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ magnet:?xt=urn:btih:CC922978D26BA062898B577CF1326A0E9C8E7BB1
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12755.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12755.jpgsave_picture_12755.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ Glary Utilities Pro 6.28.0.32 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12756.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12756.jpgsave_picture_12756.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ magnet:?xt=urn:btih:A6BAB9A7CBC6218A7A176FB00153D6CE80A8465A
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12757.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12757.jpgsave_picture_12757.jpg" />
 </div>
 
 

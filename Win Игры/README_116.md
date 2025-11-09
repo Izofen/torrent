@@ -6,7 +6,7 @@ Pathfinder: Kingmaker (2018) [Ru/Multi] (2.1.7b.fix/dlc) Repack Wanterlude [Impe
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32890.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32890.jpgsave_picture_32890.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ The Legend of Heroes: Trails from Zero (2022) [Multi] (1.4.13) License GOG [Extr
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32898.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32898.jpgsave_picture_32898.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Mount & Blade II: Bannerlord (2020) [Ru/Multi] (1.2.12.54620) Repack Wanterlude
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32905.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32905.jpgsave_picture_32905.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Moon Mystery (2024) [Ru/Multi] (1.2 Build 16746093) Repack Decepticon
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32907.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32907.jpgsave_picture_32907.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Christmas Stories 13: Clara and the Guiding Star / Рождественские 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32920.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32920.jpgsave_picture_32920.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Christmas Fables 3: The Wishing Store / Рождественские небыл�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32923.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32923.jpgsave_picture_32923.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Mystery of Myths: Heart of Athens (2024) [Multi] (1.0) Unofficial [Collector's E
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32924.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32924.jpgsave_picture_32924.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Critter Café (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32930.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32930.jpgsave_picture_32930.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Exographer (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32954.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32954.jpgsave_picture_32954.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Cooking Simulator (2019) [Ru/Multi] (6.0.14/dlc) Scene Rune
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32962.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32962.jpgsave_picture_32962.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Mouthwashing (2024) [Ru/Multi] (Build 15980018) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32975.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32975.jpgsave_picture_32975.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Hellbreach: Vegas (2024) [Ru/Multi] (1.0.4) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32977.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32977.jpgsave_picture_32977.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Low Magic Age (2017) [Multi] (0.91.75.2) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32985.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32985.jpgsave_picture_32985.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Glorious Companions (2019) [Ru/Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32991.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32991.jpgsave_picture_32991.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Hollowbody (2024) [En] (g2.2 patch 10 hotfix) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33012.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33012.jpgsave_picture_33012.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Christmas Wonderland 15 / Рождество. Страна Чудес 15 (2024) 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33018.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33018.jpgsave_picture_33018.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Tokyo Clanpool (2024) [Multi] (0.30) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33100.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33100.jpgsave_picture_33100.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Conway: Disappearance at Dahlia View (2021) [Multi] (1.2.0.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33107.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33107.jpgsave_picture_33107.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ The Legend of Heroes: Trails to Azure (2023) [Multi] (1.1.19) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33111.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33111.jpgsave_picture_33111.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Bear and Breakfast (2022) [Multi] (1.8.29) License GOG
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33117.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33117.jpgsave_picture_33117.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Moving Out 2 (2023) [Ru/Multi] (1.3.311/dlc) Repack Pioneer
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33153.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33153.jpgsave_picture_33153.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Trans Neuronica (2023) [En] (1.0.13) License GOG
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33154.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33154.jpgsave_picture_33154.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Destiny Star Girlfriend 3 (2019) [Multi] (1.0.0/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33159.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33159.jpgsave_picture_33159.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Opening Encyclopaedia 2024 (2023) [En] (2024) License
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33160.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33160.jpgsave_picture_33160.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Corr Database 2024 (2023) [En] (2024) License
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33165.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33165.jpgsave_picture_33165.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Neva (2024) [Ru/Multi] (1.2.0) Scene SKIDROW
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33189.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33189.jpgsave_picture_33189.jpg" />
 </div>
 
 

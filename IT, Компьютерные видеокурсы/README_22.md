@@ -6,7 +6,7 @@ Merion Academy, Олег Филиппов | Курс по NoSQL (2022) WEB-DL [R
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159956.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159956.jpgsave_picture_159956.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ ZTM Academy, Andrei Dumitrescu | Bash Scripting: Learn Shell Scripting (2022) WE
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159977.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159977.jpgsave_picture_159977.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ podlodka.io | Podlodka Python. Асинхронность (2023) WEB-DL [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160742.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160742.jpgsave_picture_160742.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Proglib.Academy, Наталья Кайда, Александр Пупышев | 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160746.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160746.jpgsave_picture_160746.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Self-Learning, Виталий Трунин | Курс по SQL для начин
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160894.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160894.jpgsave_picture_160894.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Udemy, Happy Rawat | JavaScript Interview Masterclass: Top 200 Questions & Answe
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160967.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160967.jpgsave_picture_160967.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ JUG Ru Group | Joker 2023. Конференция для опытных Java‑�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160978.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160978.jpgsave_picture_160978.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ magnet:?xt=urn:btih:D1D502362BA957F75D8F9F4A6C29E1EC9B5B4E97
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161032.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161032.jpgsave_picture_161032.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ JUG Ru Group | Heisenbug 2023 Autumn. Конференция по тестиро
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161051.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161051.jpgsave_picture_161051.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ magnet:?xt=urn:btih:3F6C04E1760C9CC28964F076082E61DC59AA89F6
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161353.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161353.jpgsave_picture_161353.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ magnet:?xt=urn:btih:F990F1BE197EAA4755718135D5D3326A919463C1
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161360.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161360.jpgsave_picture_161360.jpg" />
 </div>
 
 
@@ -289,7 +289,7 @@ Community Traders, Сергей Привалов | Программируем т
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161634.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161634.jpgsave_picture_161634.jpg" />
 </div>
 
 
@@ -316,7 +316,7 @@ magnet:?xt=urn:btih:B3087F0773A4B3F7F4C4503D9A2EA23AC15F5C4C
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161652.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161652.jpgsave_picture_161652.jpg" />
 </div>
 
 
@@ -340,7 +340,7 @@ Udemy, Banza Academy | SQL для нетехнических специалис�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161688.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161688.jpgsave_picture_161688.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ Udemy, Luis Ramirez Jr | Complete Modern PHP Developer Course in 2023 (2023) WEB
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161725.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161725.jpgsave_picture_161725.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ magnet:?xt=urn:btih:6C4AEF99C83A56ACF9EE437CDC44D5861B04EE43
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161827.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161827.jpgsave_picture_161827.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ magnet:?xt=urn:btih:0C966E7E6B2E79A5684A97C6CAA1B3B250F3D034
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162197.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162197.jpgsave_picture_162197.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ HTML Academy | JavaScript. Архитектура клиентских прил�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162486.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162486.jpgsave_picture_162486.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Udemy, Visadi Khalikov | Этичный хакинг с Metasploit для нач
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162508.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162508.jpgsave_picture_162508.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ magnet:?xt=urn:btih:B3E08F1B68F3844AC2D7A4AE759E1638ECCDC189
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162522.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162522.jpgsave_picture_162522.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Softwaretesting , Наталья Руколь | Школа тест-менедж
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162726.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162726.jpgsave_picture_162726.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ GeekBrains | Факультет веб-разработки (2021) WEB-DL
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163097.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163097.jpgsave_picture_163097.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:C3FAF45C81190D8150272FB87BA57DB7F10C0DFB
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163624.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163624.jpgsave_picture_163624.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ JUG Ru Group | Joker 2022. Конференция для опытных Java-р�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163802.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163802.jpgsave_picture_163802.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ JUG Ru Group | HolyJS 2022 Autumn. Конференция для JavaScript‑р
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163877.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163877.jpgsave_picture_163877.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ SkillUP | Тестировщик ПО с гарантией трудоустро
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163894.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163894.jpgsave_picture_163894.jpg" />
 </div>
 
 

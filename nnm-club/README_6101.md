@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191987.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191987.jpgsave_picture_191987.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:9A61F4B821373AED4DFFE4C8FC682F19AB4CDB2B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191988.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191988.jpgsave_picture_191988.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:C0AFE2BD83471A8D4C095A02148FE526A15937F2
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191989.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191989.jpgsave_picture_191989.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:A32B8B9D1D3AD767356DEDBA75E3E157E9BFC089
 >>Развивающие Игры для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191990.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191990.jpgsave_picture_191990.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:A173C7E453329CBE85F8D848B77FAA136CD3F9C5
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191991.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191991.jpgsave_picture_191991.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:97AD8BD222F3C854C743A5407778FD2E16731B5D
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191992.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191992.jpgsave_picture_191992.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:BE8EBCCA1985D043898CEF2BE4FC77B7C73ABEBD
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191993.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191993.jpgsave_picture_191993.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Tenebris Pictura (2023) [Ru/Multi] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191994.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191994.jpgsave_picture_191994.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:BBB0A5F08CCFE26A4CAEB10B425D1393BCD8F76B
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191995.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191995.jpgsave_picture_191995.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ magnet:?xt=urn:btih:384C8E13899C6366933C7D7CF9D337FA44849CD3
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191996.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191996.jpgsave_picture_191996.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ magnet:?xt=urn:btih:087519BE4D37D15A408DE1A7189543CE352C5475
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191997.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191997.jpgsave_picture_191997.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Queen + Freddie Mercury - Best of [Compiled by Firstlast] (2021) [MP3|192-320 Kb
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191998.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191998.jpgsave_picture_191998.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:F3A64823624E7A5D8B7CF3DE217813081D70E5E7
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191999.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191999.jpgsave_picture_191999.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ magnet:?xt=urn:btih:0D50D2F7D14CD3B06335BCC4555364A738FB9A4B
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192000.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192000.jpgsave_picture_192000.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Google Earth Pro 7.3.6.9277 (x64) Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192001.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192001.jpgsave_picture_192001.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ magnet:?xt=urn:btih:C15BDB2E0EEE0A4F8D00F55E8AE8F3FBDBFDF5E5
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192002.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192002.jpgsave_picture_192002.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ VA - In Mood Styles Dance (2022) [MP3|320 Kbps] <Electropop, Synthpop, Hands Up,
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192003.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192003.jpgsave_picture_192003.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ magnet:?xt=urn:btih:606CE648109DB5B496AC3358226FD479F50DC2C6
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192004.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192004.jpgsave_picture_192004.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Depeche Mode: Духи в лесу / Spirits in the Forest (2019) BDRip [H.264/1
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192005.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192005.jpgsave_picture_192005.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ magnet:?xt=urn:btih:AD603329DB4FE4C4319F2BBA79AE9D14FC91AC0B
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192006.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192006.jpgsave_picture_192006.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ magnet:?xt=urn:btih:5C4257654D53919FE74B2BF56FF88A6CA7F3018B
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192007.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192007.jpgsave_picture_192007.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ W.A. Production & K391 - Put Me On Drums 1.0.1 VST, VST3, AAX (x86/x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192008.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192008.jpgsave_picture_192008.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ VA - Nature's Magic The Voyage of the Whale (1996) [FLAC|Lossless|image + .cue] 
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192009.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192009.jpgsave_picture_192009.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Viber 18.8.0.0 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192010.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192010.jpgsave_picture_192010.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Total Commander 11.01 Extended 23.9 Full / Lite RePack (& Portable) by BurSoft [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192011.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192011.jpgsave_picture_192011.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ MEmu 8.0.8 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192012.jpgsave_picture_192012.jpg" />
 </div>
 
 

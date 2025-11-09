@@ -6,7 +6,7 @@ VA - Miami Vibes (2024) [MP3|320 Kbps] <Progressive House, Melodic House & Techn
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111881.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111881.jpgsave_picture_111881.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Attic - Return of the Witchfinder (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111882.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111882.jpgsave_picture_111882.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:ADF0CC6ACB8F00EFF2D58BD4B24B43E3C5083AC8
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111883.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111883.jpgsave_picture_111883.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:A217151DB2711BE91965C73FAE081A94F0884115
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111884.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111884.jpgsave_picture_111884.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ magnet:?xt=urn:btih:ADF6FA104E636DB79B27F6EDBA0C12236B7496B0
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111885.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111885.jpgsave_picture_111885.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ magnet:?xt=urn:btih:D64CE8CB8B91CAFE7883D0B97F0D2F43563AEB52
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111886.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111886.jpgsave_picture_111886.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ magnet:?xt=urn:btih:1D4C846C4F1CE02ACB9AFF5B267AD6630BA42480
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111887.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111887.jpgsave_picture_111887.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ magnet:?xt=urn:btih:0A837636F0186CC491AE1F057AC75C919DDB7A32
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111888.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111888.jpgsave_picture_111888.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ Missy Higgins - The Sound of White (2004) 20 Year Anniversary Edition, 2024, Ele
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111889.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111889.jpgsave_picture_111889.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Chris Standring - As We Think (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111890.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111890.jpgsave_picture_111890.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ magnet:?xt=urn:btih:2262AA02521C312FE4F147899D25085DB388E1CE
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111891.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111891.jpgsave_picture_111891.jpg" />
 </div>
 
 
@@ -291,7 +291,7 @@ magnet:?xt=urn:btih:96076669C1CCAFBC9E15F146421FA48C7624F256
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111892.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111892.jpgsave_picture_111892.jpg" />
 </div>
 
 
@@ -315,7 +315,7 @@ magnet:?xt=urn:btih:63811C56A200D8E1118536021FF14D31C1F74700
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111893.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111893.jpgsave_picture_111893.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ magnet:?xt=urn:btih:7A79E6573A7BD2FEC6628726E65EEE7FF881D86C
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111894.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111894.jpgsave_picture_111894.jpg" />
 </div>
 
 
@@ -364,7 +364,7 @@ Garbage - Bleed Like Me (2005) Remaster, 2024, Liberator Music [FLAC 24/96|Lossl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111895.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111895.jpgsave_picture_111895.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ magnet:?xt=urn:btih:C0181FB9CEAD37030FD4BDF573FC28D2D0916549
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111896.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111896.jpgsave_picture_111896.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ magnet:?xt=urn:btih:9374F548E30C8CACC49E13F9965CD976FC6BEA7E
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111897.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111897.jpgsave_picture_111897.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ U2 - Discothèque (1997) Remastered, 2024, UMC [FLAC 24/44.1|Lossless|WEB-DL|tra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111898.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111898.jpgsave_picture_111898.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ VA - Pure Synthwave, Vol. 5 (2023) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Ret
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111899.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111899.jpgsave_picture_111899.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ magnet:?xt=urn:btih:EBC2B5E1D4C834E7583CE7467D7273602F467B86
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111900.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111900.jpgsave_picture_111900.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:4AD4D2E0E27E39DE60500B3E06FF11266D2471A2
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111901.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111901.jpgsave_picture_111901.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ FireAlpaca 2.11.18 + Standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111902.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111902.jpgsave_picture_111902.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ VA - Pure Synthwave, Vol. 4 (2021) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Ret
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111903.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111903.jpgsave_picture_111903.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ MORTEN - Tomorrowland Friendship Mix (2024-04-04) [MP3|320 Kbps] <Tech House, Me
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111904.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111904.jpgsave_picture_111904.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ magnet:?xt=urn:btih:BB2EE94C97AA54DD0BD47CD2BDB67FE508304F65
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111905.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111905.jpgsave_picture_111905.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ magnet:?xt=urn:btih:5B34CD3937961CE9FBC6BB6C21BF71AEF002DBBD
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111906.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111906.jpgsave_picture_111906.jpg" />
 </div>
 
 

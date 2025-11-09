@@ -6,7 +6,7 @@ CyberLink PowerDirector Ultimate 20.1.2415.0 (x64) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152439.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152439.jpgsave_picture_152439.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:D70670A06BA16988A4BE350AA6F7B8FA0233AA60
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152441.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152441.jpgsave_picture_152441.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Screenium 3 3.2.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152442.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152442.jpgsave_picture_152442.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Katherine Jenkins - This Is Christmas (2012) [FLAC|Lossless|tracks + .cue] <Clas
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152443.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152443.jpgsave_picture_152443.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:06FD036229EE75B66DCF6DF00227980F42F0427B
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152444.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152444.jpgsave_picture_152444.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:5A4AB64E262B43C99A7DE7FF2BB1E0FCAC087CC2
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152446.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152446.jpgsave_picture_152446.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ Brian Connolly`s Sweet - Best Of (2008) [FLAC|Lossless|image + .cue] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152448.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152448.jpgsave_picture_152448.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ Stephane Grappelli - Live 1994 (1998) Justin Time Records [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152449.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152449.jpgsave_picture_152449.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ Compositing Academy, Alex Hanneman | VFX Color Grading and Re-Lighting in Nuke �
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152450.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152450.jpgsave_picture_152450.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ Kreator - Maximum Hate (2022) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152451.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152451.jpgsave_picture_152451.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ VA - Beautiful Light: New Trance Music (2018) [MP3|320 Kbps] <Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152452.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152452.jpgsave_picture_152452.jpg" />
 </div>
 
 
@@ -291,7 +291,7 @@ magnet:?xt=urn:btih:594BAA7F2B49952E1712A5D259D713A15EE7E699
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152454.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152454.jpgsave_picture_152454.jpg" />
 </div>
 
 
@@ -316,7 +316,7 @@ magnet:?xt=urn:btih:16549036A1829F0E2DB6300AD999889295272BB0
 >>Экстрим
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152456.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152456.jpgsave_picture_152456.jpg" />
 </div>
 
 
@@ -340,7 +340,7 @@ Yusef Lateef - The Complete Yusef Lateef (1967) 2002, Collectables [WavPack|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152457.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152457.jpgsave_picture_152457.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ magnet:?xt=urn:btih:F46AA68D48F47B8AC2884447423C52D1C0147C88
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152458.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152458.jpgsave_picture_152458.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ QuickTextPaste 3.33 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152460.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152460.jpgsave_picture_152460.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ magnet:?xt=urn:btih:073DC0B33550B31091ADE30DB2F6AF7F058D49C8
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152461.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152461.jpgsave_picture_152461.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ magnet:?xt=urn:btih:6C300EA06997B702EEBE3CB0817B0B570019B080
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152463.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152463.jpgsave_picture_152463.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ VA - Fg Top 10: December 2017 [MP3|320 Kbps] <Trance, Progressive House>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152464.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152464.jpgsave_picture_152464.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ magnet:?xt=urn:btih:D9D35110B25F0B017271A9DB56B1F9CE126373BF
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152467.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152467.jpgsave_picture_152467.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:23D22A3222B2E88C29F20737DB5C092302595997
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152468.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152468.jpgsave_picture_152468.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ VA - Last Christmas (2012) [FLAC|Lossless|tracks + .cue] <Pop, Pop Rock, Easy Li
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152469.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152469.jpgsave_picture_152469.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Tania_govorit, Татьяна Шаврова | Полное собрание м�
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152470.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152470.jpgsave_picture_152470.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ magnet:?xt=urn:btih:B8805FF9332CC30FD793E764FC65A563ADCA9632
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152472.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152472.jpgsave_picture_152472.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ magnet:?xt=urn:btih:9105CBE182D1F8CD907C18514A5EE8F0D94A6B31
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152474.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152474.jpgsave_picture_152474.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ VA - Дискотека 2015 Deep House - The Best от NNNB Vol.2 (2015) [MP3|2
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152476.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152476.jpgsave_picture_152476.jpg" />
 </div>
 
 

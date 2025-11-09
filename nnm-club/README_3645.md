@@ -6,7 +6,7 @@
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115145.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115145.jpgsave_picture_115145.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Skillbox, Андрей Миронов, Екатерина Воронина | И�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115146.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115146.jpgsave_picture_115146.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ BBC: Планета Земля 3 / Planet Earth III (2023) UHD BDRemux [H.265/21
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115147.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115147.jpgsave_picture_115147.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Microsoft Activation Scripts (MAS) 2.5 (28.02.2024) Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115148.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115148.jpgsave_picture_115148.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:74B29CCC21650BA846BC4ED6D80BF35BADB31145
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115149.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115149.jpgsave_picture_115149.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:76EA43F33E23BB89EFD31B1A822F56215905B47F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115150.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115150.jpgsave_picture_115150.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ Ace Frehley - 10,000 Volts (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Ro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115151.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115151.jpgsave_picture_115151.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ Anaka - The Oblivion Call (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Groove Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115152.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115152.jpgsave_picture_115152.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ magnet:?xt=urn:btih:F75FD859CBB7CFF651EE3FF1EDC6BDC560139F14
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115153.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115153.jpgsave_picture_115153.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ Anaka - The Unwavering (2015) [MP3|320 Kbps] <Heavy, Groove Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115154.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115154.jpgsave_picture_115154.jpg" />
 </div>
 
 
@@ -262,7 +262,7 @@ Traveler - Traveler (2019) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115155.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115155.jpgsave_picture_115155.jpg" />
 </div>
 
 
@@ -289,7 +289,7 @@ Sahib Shihab - And The Danish Radio Jazz Group (1965) 2008, Oktav [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115156.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115156.jpgsave_picture_115156.jpg" />
 </div>
 
 
@@ -316,7 +316,7 @@ Marian McPartland - Contrasts (1992, 1994) 2CD, 2003, The Jazz Alliance [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115157.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115157.jpgsave_picture_115157.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ DeFilm - Coming to Your Heart Soon (1987) Reissue, 2004, Parlophone [FLAC|Lossle
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115158.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115158.jpgsave_picture_115158.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ DeFilm - DeFilm (1985) Reissue, 2011, Parlophone [FLAC|Lossless|WEB-DL|tracks] <
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115159.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115159.jpgsave_picture_115159.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Benny Andersson - Piano (2017) [FLAC 24/96|Lossless|WEB-DL|tracks] <Classical>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115160.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115160.jpgsave_picture_115160.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ magnet:?xt=urn:btih:1933138BCFA8530AB7FA82BD879F6B4FD7C27EFA
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115161.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115161.jpgsave_picture_115161.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ K-Lite Codec Pack Update 18.1.4 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115162.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115162.jpgsave_picture_115162.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ magnet:?xt=urn:btih:B0AB33617B2CD526871A583ACBA8F562DC8CB8A2
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115163.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115163.jpgsave_picture_115163.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Al Corley - The Big Picture (1988) Expanded Edition, 2023, Mercury [FLAC|Lossles
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115164.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115164.jpgsave_picture_115164.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ magnet:?xt=urn:btih:45BD06A037BD60C6108F8D9DD36E2124066530F1
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115165.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115165.jpgsave_picture_115165.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ magnet:?xt=urn:btih:B8F1279B38EB7E2CCE4B788166418190F3F09606
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115166.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115166.jpgsave_picture_115166.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Al Corley - Riot of Color (1986) Expanded Edition, 2023, Mercury [FLAC|Lossless|
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115167.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115167.jpgsave_picture_115167.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Detraktor - Full Body Stomp (2022) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115168.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115168.jpgsave_picture_115168.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ magnet:?xt=urn:btih:5A93538DBE8F312BF865DD4AA4980E50F7EFE353
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115169.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115169.jpgsave_picture_115169.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ Puddle of Mudd - Studio Albums (8 releases) (1994-2023) hand made [restored, dec
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115170.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115170.jpgsave_picture_115170.jpg" />
 </div>
 
 

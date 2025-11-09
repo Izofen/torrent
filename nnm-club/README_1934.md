@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50641.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50641.jpgsave_picture_50641.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:E1803639C5BE06D1886763DAD04C147B3FE2050F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50642.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50642.jpgsave_picture_50642.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:71878D311C40DE50B349D7E48CACB79532AD42A3
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50643.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50643.jpgsave_picture_50643.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ MediaHuman YouTube Downloader 3.9.9.92 (0704) RePack (& Portable) by TryRooM [Mu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50644.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50644.jpgsave_picture_50644.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:20CCA60ACB0D944865B9A41155FB112603ADB15D
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50645.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50645.jpgsave_picture_50645.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ TweakPower 2.056 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50646.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50646.jpgsave_picture_50646.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:4BC47248F6958E9E70ED11ED4654C6B497BBB1AC
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50647.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50647.jpgsave_picture_50647.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ DVDFab StreamFab 6.1.8.7 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50648.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50648.jpgsave_picture_50648.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Blue Cheer - Lone Star Cafe, New York 1984 Live (2024) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50649.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50649.jpgsave_picture_50649.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ VA - 80s Best of by uDiscover (2023) [OGG Vorbis|480 Kbps] <Pop, Rock, RnB, Danc
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50650.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50650.jpgsave_picture_50650.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Ventusky: Прогноз погоды v36.1 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50651.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50651.jpgsave_picture_50651.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Simple Sticky Notes 6.5.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50652.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50652.jpgsave_picture_50652.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ RarmaRadio Pro 2.75.8 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50653.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50653.jpgsave_picture_50653.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ R-Studio Network  9.4 Build 191332 (x64) RePack (& Portable) by TryRooM [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50654.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50654.jpgsave_picture_50654.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ magnet:?xt=urn:btih:5D7DAD4B6D59283387981E1E86F45DA1CB551A6F
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50655.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50655.jpgsave_picture_50655.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ magnet:?xt=urn:btih:C8D2B10751EE57E23D59FEC21629858845FF6F6B
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50656.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50656.jpgsave_picture_50656.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ magnet:?xt=urn:btih:1B5A2396296A7C613FDEAB004AA1CEAAA5328E9E
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50657.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50657.jpgsave_picture_50657.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ VA - Cardio Dance Summer Hits 2024 Fitness Collection [FLAC|Lossless|WEB-DL|trac
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50658.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50658.jpgsave_picture_50658.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ magnet:?xt=urn:btih:3F24255FDB3F088A230BE542EFC9FD034859D7AF
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50659.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50659.jpgsave_picture_50659.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Free Hex Editor Neo 7.46.00.8715 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50660.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50660.jpgsave_picture_50660.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ VA - Spektra Compilation - Special 600 References (2024) [MP3|320 Kbps] <Breaks,
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50661.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50661.jpgsave_picture_50661.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Adguard 7.18.0 (7.18.4774.0) RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50662.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50662.jpgsave_picture_50662.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ magnet:?xt=urn:btih:D232A03D6C9DF8E97D1CB4251793EB718A6991BE
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50663.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50663.jpgsave_picture_50663.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ GPS АнтиРадар v45.0 Mod by 0x7d [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50664.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50664.jpgsave_picture_50664.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ magnet:?xt=urn:btih:EF0FB97C757503CA63E7BC9430B2369A61545BD5
 >>Экранки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50665.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50665.jpgsave_picture_50665.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ magnet:?xt=urn:btih:E9F7A7D57329FF869811E69FC1AC9F63A2962F32
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50666.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50666.jpgsave_picture_50666.jpg" />
 </div>
 
 

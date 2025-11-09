@@ -6,7 +6,7 @@
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_72029.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_72029.jpgsave_picture_72029.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:E2EE71978214C9330CAA193BB2AE9CEF96040C19
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_72030.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_72030.jpgsave_picture_72030.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:1F5C3B119EFB9617A66B481415CF4B8DC46CB0C9
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_72034.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_72034.jpgsave_picture_72034.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:BA4B170D68292304BE51ADFC37E1615C205C82E1
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_72041.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_72041.jpgsave_picture_72041.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ Ray Charles - Singular Genius: The Complete ABC Singles (2011) 5CD [MP3|320 kbps
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_72105.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_72105.jpgsave_picture_72105.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ magnet:?xt=urn:btih:58C0765B3098ED89444A9E8CD2167C40CE475994
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_72114.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_72114.jpgsave_picture_72114.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ magnet:?xt=urn:btih:7359C3B55B760218F1FCA6D13DF2829704FAA326
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_72115.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_72115.jpgsave_picture_72115.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:9BCF4CF1813291DC210F8D666A1EE69C998C0137
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_72132.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_72132.jpgsave_picture_72132.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ Libera - The Christmas Album (2011) [MP3|320 kbps]<Детские песни, Х
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_72138.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_72138.jpgsave_picture_72138.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ magnet:?xt=urn:btih:7312FC8F02A2BDFF887302AF6500BA681E2E8181
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_72142.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_72142.jpgsave_picture_72142.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ magnet:?xt=urn:btih:A7C72203E103439FC3694928ADD5988E931816AF
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_72168.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_72168.jpgsave_picture_72168.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ VA - Red Hot + Blue: A Tribute to Cole Porter (1990) [MP3|320 kbps]<Pop, Rock, I
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_72188.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_72188.jpgsave_picture_72188.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ magnet:?xt=urn:btih:F324884EBA72D172D23C0D0D4A37DE26C9D1CE8F
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_72192.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_72192.jpgsave_picture_72192.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ magnet:?xt=urn:btih:A23F2C34532D20CB81F427CD1EFEF192DC8D2863
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_72237.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_72237.jpgsave_picture_72237.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ magnet:?xt=urn:btih:995A3CC1BBAB60D5B72E08D748134A90A5A5B51D
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_72242.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_72242.jpgsave_picture_72242.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ magnet:?xt=urn:btih:250CC12CA75F6AE20673F4ED7E42DD41262C1FB2
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_72257.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_72257.jpgsave_picture_72257.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ magnet:?xt=urn:btih:3DBE2C1433518A49676C83EF93810557B1B2EC18
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_72264.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_72264.jpgsave_picture_72264.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ Babylon Zoo - King Kong Groover (1998) [MP3|320 kbps]<Pop/Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_72266.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_72266.jpgsave_picture_72266.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ magnet:?xt=urn:btih:900E7CD74541BA637AE0E5FF006C49C1390BF930
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_72273.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_72273.jpgsave_picture_72273.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ VA - Stolen Moments: Red Hot + Cool (1994) [MP3|320 kbps]<Hip-Hop, Acid Jazz>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_72283.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_72283.jpgsave_picture_72283.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ VA - The Best Of Alternative (1998) [MP3|320 kbps]<Alternative>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_72305.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_72305.jpgsave_picture_72305.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ magnet:?xt=urn:btih:632D7D1EB23D06D8811DC09DBD455597F214FDE4
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_72329.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_72329.jpgsave_picture_72329.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ magnet:?xt=urn:btih:1B08E9160E4649866DC6A87A08BCCC8FD46741F0
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_72344.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_72344.jpgsave_picture_72344.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ magnet:?xt=urn:btih:17AB3CEFF5186E39604D2E7E9B2FE5983EECA000
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_72354.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_72354.jpgsave_picture_72354.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ magnet:?xt=urn:btih:9122D1075C1C416BB8EF840EAEBDDE40EED7F286
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_72359.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_72359.jpgsave_picture_72359.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ Melanie C - Live Hits (Live) (2006) DVDRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_72364.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_72364.jpgsave_picture_72364.jpg" />
 </div>
 
 

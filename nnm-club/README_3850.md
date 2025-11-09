@@ -6,7 +6,7 @@ Gearbox Software | Артбук по игре Homeworld / The Art of Homeworld (
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120510.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120510.jpgsave_picture_120510.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ OneCommander Pro 3.67.0.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120511.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120511.jpgsave_picture_120511.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:3FCFF1657DBAC4EBE5B4E36F0D5B902DDD598FB0
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120512.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120512.jpgsave_picture_120512.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:FC37CB067E8EFB483B3AA1A427D97E087B3275DA
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120513.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120513.jpgsave_picture_120513.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Bazanova Art, Ольга Базанова | Как начать писать м�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120514.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120514.jpgsave_picture_120514.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:307C60A00B9DCA757854AE80C570493651D1A4FA
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120515.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120515.jpgsave_picture_120515.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ magnet:?xt=urn:btih:82C495643C71283F1C4A50DAECDD3EF6BFCD16E7
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120516.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120516.jpgsave_picture_120516.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ XtraTools Professional 24.1.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120517.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120517.jpgsave_picture_120517.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ magnet:?xt=urn:btih:C9C26F8142F7D2C8F38CBED129D8BCFA638F8BC1
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120518.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120518.jpgsave_picture_120518.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ magnet:?xt=urn:btih:31348FB869EDBBE015F1C82116C893E38D23ED04
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120519.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120519.jpgsave_picture_120519.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ Fakin The Funk 5.4.0.158 (х64) Portable by Spirit Summer [Multi/Ru]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120520.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120520.jpgsave_picture_120520.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ AirReceiver AirPlay Cast DLNA v5.0.8 Mod by Alex.Strannik [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120521.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120521.jpgsave_picture_120521.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:FE7E25CD969A51B6E85F45EC5C8BAC77A3583638
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120522.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120522.jpgsave_picture_120522.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ My TTS: Text-to-Speech v1.2.2 Mod by Alex.Strannik [En/Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120523.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120523.jpgsave_picture_120523.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ BioWare | Артбук по играм студии BioWare / BioWare: Stories a
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120525.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120525.jpgsave_picture_120525.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ magnet:?xt=urn:btih:6B69260D187FE137AC26957DC1D172C8772243F8
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120526.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120526.jpgsave_picture_120526.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ ExtraDisks 24.1.1 Home [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120527.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120527.jpgsave_picture_120527.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ GoldWave 6.80 (x64) Portable by Spirit Summer [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120528.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120528.jpgsave_picture_120528.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ magnet:?xt=urn:btih:D92279A5E5647D13114BC7BF49602C9A0813C256
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120529.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120529.jpgsave_picture_120529.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ magnet:?xt=urn:btih:535728DC06BDBAA65744F223C48E19597B213C7C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120530.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120530.jpgsave_picture_120530.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Daniel Wallace | Артбук по фильмам Охотники за прив
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120531.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120531.jpgsave_picture_120531.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ VA - Dance Power 2 (1997) 2 CD [OGG Vorbis|480 Kbps] <Electronic, Euro House>
 >>Eurodance, Euro-House, Technopop
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120532.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120532.jpgsave_picture_120532.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ Mircourse, Ольга Привалова | Художник-дизайнер и�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120533.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120533.jpgsave_picture_120533.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ The Cub (2024) [Multi] (1.0.0) License GOG
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120534.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120534.jpgsave_picture_120534.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ magnet:?xt=urn:btih:ECB426D7BAECB80DAB028CFD77B081E3C01C2ED8
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120535.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120535.jpgsave_picture_120535.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ PreSonus Studio One 6 Professional 6.5.2 + Extensions [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120536.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120536.jpgsave_picture_120536.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111907.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111907.jpgsave_picture_111907.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ The Libertines - All Quiet On The Eastern Esplanade (2024) [FLAC 24/96|Lossless|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111908.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111908.jpgsave_picture_111908.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:50259058015C91546E250309ACC95CC104B710B1
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111909.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111909.jpgsave_picture_111909.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:A7E81C951065C369F3DF35537D01638BAE2763CF
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111910.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111910.jpgsave_picture_111910.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Korpiklaani - Rankarumpu (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Folk Meta
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111911.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111911.jpgsave_picture_111911.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Canned Heat - Finyl Vinyl (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues Rock
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111912.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111912.jpgsave_picture_111912.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ VA - Митьковская тишина (1995) [FLAC|Lossless|tracks + .cue] <R
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111913.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111913.jpgsave_picture_111913.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ VA - Armin van Buuren - A State Of Trance 1167 (2024) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111914.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111914.jpgsave_picture_111914.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ Apollo 100 (Featuring Tom Parker) - Joy (1972) LP [MP3|320 Kbps] <Pop, Neo-Class
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111915.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111915.jpgsave_picture_111915.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ magnet:?xt=urn:btih:0B59BD49279C807F4362EEECBADCFFFFF9F4999D
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111916.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111916.jpgsave_picture_111916.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Fabiana Palladino - Fabiana Palladino (2024) [FLAC 24/44.1|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111917.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111917.jpgsave_picture_111917.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ magnet:?xt=urn:btih:4A2B2F1507CDAC280294E098E619BCB4919FF392
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111918.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111918.jpgsave_picture_111918.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ magnet:?xt=urn:btih:4FC650380456ADE5EA1F183EE2C842E16F90BD5D
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111919.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111919.jpgsave_picture_111919.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Dreamcarnation - Dreamcarnation (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressiv
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111920.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111920.jpgsave_picture_111920.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ Corroded - Studio Albums (6 releases) (2009-2023) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111921.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111921.jpgsave_picture_111921.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ magnet:?xt=urn:btih:84BECAC875B3B4325247E73FF36E878F67BF03C2
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111922.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111922.jpgsave_picture_111922.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ magnet:?xt=urn:btih:84BECAC875B3B4325247E73FF36E878F67BF03C2
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111923.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111923.jpgsave_picture_111923.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Electrolize - Феникс (2024) [FLAC|Lossless|WEB-DL|tracks] <Industrial Meta
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111924.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111924.jpgsave_picture_111924.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Martiria - The Eternal Soul (2004) Remastered, 2013, My Graveyard Productions [F
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111925.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111925.jpgsave_picture_111925.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ magnet:?xt=urn:btih:36EC54B9B9D8C0909E082562547AD162C5984C0E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111926.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111926.jpgsave_picture_111926.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ XYplorer 25.80.0200 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111927.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111927.jpgsave_picture_111927.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ VA - Sport - Hits for Your Workout (2024) [MP3|320 Kbps] <House, Dance>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111928.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111928.jpgsave_picture_111928.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ Opera One 109.0.5097.38  Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111929.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111929.jpgsave_picture_111929.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ magnet:?xt=urn:btih:00A8059C9C88B3D53A45355D85041D3AC4F8E4C6
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111930.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111930.jpgsave_picture_111930.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ Emurasoft EmEditor Professional 24.1.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111931.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111931.jpgsave_picture_111931.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ CherryTree 1.1.2.0 (x64) + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111932.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111932.jpgsave_picture_111932.jpg" />
 </div>
 
 

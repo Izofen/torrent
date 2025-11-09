@@ -6,7 +6,7 @@ Max Cooper - On Being (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Ambient, Tec
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69959.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69959.jpgsave_picture_69959.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Rick Springfield - Big Hits: Rick Springfield's Greatest Hits, Vol. 2 (2025) [FL
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69960.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69960.jpgsave_picture_69960.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Elderbrook - Another Touch (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Deep Ho
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69963.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69963.jpgsave_picture_69963.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Addicted CH - Time Is Endless (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Heavy 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69965.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69965.jpgsave_picture_69965.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Untimely Demise - Studio Albums (6 releases) (2009-2022) hand made [restored, de
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69967.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69967.jpgsave_picture_69967.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ magnet:?xt=urn:btih:2CEF3EEEC755143695A0687DFE87B2F8B96A4D24
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69968.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69968.jpgsave_picture_69968.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Blutengel - Damonen : Sturm (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Darkwa
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69981.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69981.jpgsave_picture_69981.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Robin McAuley - Soulbound (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70009.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70009.jpgsave_picture_70009.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Sirrah (Poland) - Studio Albums (3 releases) (1996-2013) hand made [restored, de
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70020.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70020.jpgsave_picture_70020.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Avantasia - Here Be Dragons (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Power 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70027.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70027.jpgsave_picture_70027.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Slowman - The Invisible Son (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70043.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70043.jpgsave_picture_70043.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Brainstorm - Plague Of Rats (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy-
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70045.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70045.jpgsave_picture_70045.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Arion - Like The Phoenix I Will Rise (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70053.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70053.jpgsave_picture_70053.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Roni Lee - Feels Good 2 Be Bad (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70055.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70055.jpgsave_picture_70055.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Saliva & Judge & Jury - Revelation: Retold (2025) [FLAC 24/48|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70056.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70056.jpgsave_picture_70056.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Roger Street Friedman - Long Shadows (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70058.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70058.jpgsave_picture_70058.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Rumer - In Session (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Soul>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70059.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70059.jpgsave_picture_70059.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Power Word Kill - Power Word Kill (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70060.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70060.jpgsave_picture_70060.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Architects - The Sky, The Earth & All Between (2025) [FLAC 24/48|Lossless|WEB-DL
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70072.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70072.jpgsave_picture_70072.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Saint Asonia - Studio Albums (3 releases) (2015-2022) hand made [restored, decli
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70077.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70077.jpgsave_picture_70077.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ Nightrage - Studio Albums (11 releases) (2003-2024) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70079.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70079.jpgsave_picture_70079.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Greg Coulson - Greg Coulson: Live at Crescent Records Studio (2025) [FLAC 24/48|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70080.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70080.jpgsave_picture_70080.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ Marko Hietala - Roses from the Deep (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70088.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70088.jpgsave_picture_70088.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ Perfect Plan - Heart Of A Lion (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Mel
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70091.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70091.jpgsave_picture_70091.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ Paul&Chucky - Letter From Silence (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70093.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70093.jpgsave_picture_70093.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ Pastor Brad - Cloud of Witnesses (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <M
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70095.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70095.jpgsave_picture_70095.jpg" />
 </div>
 
 

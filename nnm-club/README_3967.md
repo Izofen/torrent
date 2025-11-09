@@ -6,7 +6,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123658.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123658.jpgsave_picture_123658.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Chris Rea - On The Beach (1986) Reissue, 2006, EastWest [OGG Vorbis|480 Kbps] <P
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123659.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123659.jpgsave_picture_123659.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:93997413B9B451A1845CFAD6EEECFAB7D0AD6564
 >>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123660.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123660.jpgsave_picture_123660.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Chris Rea - Dancing With Strangers (1987) Reissue, 1991, EastWest [OGG Vorbis|48
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123661.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123661.jpgsave_picture_123661.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:241C965C0733BB49B8206AFBBC13D3DD4B1831A9
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123662.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123662.jpgsave_picture_123662.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ magnet:?xt=urn:btih:F3248CFFAECE16566AB45741107D4F5438A79501
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123663.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123663.jpgsave_picture_123663.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:FE33C1CC5848B509F0DD810D02FA4E9533DBC8AA
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123664.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123664.jpgsave_picture_123664.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ Fort Firewall 3.10.6 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123665.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123665.jpgsave_picture_123665.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ Igor Pumphonia - Euphonia 60 (2023) [MP3|320 Kbps] <Chillout, Organic House>
 >>Downtempo, Trip-Hop, Lounge
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123666.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123666.jpgsave_picture_123666.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ Q-Dir 11.45 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123667.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123667.jpgsave_picture_123667.jpg" />
 </div>
 
 
@@ -262,7 +262,7 @@ magnet:?xt=urn:btih:578EC2C34804BA28D22E46FB25DB33F1F57AE302
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123668.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123668.jpgsave_picture_123668.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ magnet:?xt=urn:btih:E155A4DA92E08CF8711CF3B67F3CD0E0EE4C63FF
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123669.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123669.jpgsave_picture_123669.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ Igor Pumphonia - Best Of 2023 (2024) [MP3|320 Kbps] <Chillout>
 >>Downtempo, Trip-Hop, Lounge
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123670.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123670.jpgsave_picture_123670.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ magnet:?xt=urn:btih:C5800C29C13D265C71A92984EF517E28614058F3
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123671.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123671.jpgsave_picture_123671.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ Suffocation - Hymns from the Apocrypha (2023) [FLAC|Lossless|image + .cue] <Deat
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123672.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123672.jpgsave_picture_123672.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ VA - Disco Balls Miami 2023 (2023) CD, Compilation [MP3|320 Kbps] <Soulful, Deep
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123673.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123673.jpgsave_picture_123673.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ Wise Disk Cleaner 11.0.7.821 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123674.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123674.jpgsave_picture_123674.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ magnet:?xt=urn:btih:C764BB3ED4A097655ABB6E9DDB6FE25DC801416C
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123675.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123675.jpgsave_picture_123675.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ magnet:?xt=urn:btih:6A89867FEA5F09203050DBDB7F77E0CBAC90A20F
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123676.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123676.jpgsave_picture_123676.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ magnet:?xt=urn:btih:813411166C4791740340E9431E981BBEFACE90B3
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123677.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123677.jpgsave_picture_123677.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ Multi Commander Full Edition 13.4 Build 2977 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123678.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123678.jpgsave_picture_123678.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Twistingo 4: Hummingbird Haven (2023) [En] (1.0) Unofficial [Collector's Edition
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123679.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123679.jpgsave_picture_123679.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ magnet:?xt=urn:btih:495DD105ABC65AEF6BDDCED3D53AA032C9A1823E
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123680.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123680.jpgsave_picture_123680.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ XnView MP 1.6.4 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123681.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123681.jpgsave_picture_123681.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ magnet:?xt=urn:btih:2820B93C8960DC1985065240A9F1DE0ABD8E089E
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123682.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123682.jpgsave_picture_123682.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ magnet:?xt=urn:btih:CA282769C4AE037D3B6D8D2CD3BA8950E2B6E083
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123683.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123683.jpgsave_picture_123683.jpg" />
 </div>
 
 

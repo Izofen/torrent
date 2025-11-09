@@ -6,7 +6,7 @@ Exif Pilot 6.22.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184562.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184562.jpgsave_picture_184562.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Alicate - Butterfly (2022) [FLAC|Lossless|image + .cue] <Melodic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184563.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184563.jpgsave_picture_184563.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Holden Karau, Mika Kimmins | Scaling Python with Dask (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_184566.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_184566.jpgsave_picture_184566.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Brother Jack McDuff - Down Home Style (1969) 1997, Blue Note [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184567.jpgsave_picture_184567.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ VA - Music News vol.301 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184569.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184569.jpgsave_picture_184569.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ Mythosphere - Pathological (2022) [MP3|222-229 kbps VBR] <Psychedelic Prog Metal
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184570.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184570.jpgsave_picture_184570.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ URI Handler – Open With Picker 1.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184572.jpgsave_picture_184572.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ PhotoChef 1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184575.jpgsave_picture_184575.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ magnet:?xt=urn:btih:A8D2BE7570C7CBBCB996623C8239A66C0131F937
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184576.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184576.jpgsave_picture_184576.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ CGcircuit, Bishoy Khalifa | Sand Bag Tearing in Houdini (2021) WEB-DL [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_184577.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_184577.jpgsave_picture_184577.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ Motive 1.3.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184580.jpgsave_picture_184580.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ magnet:?xt=urn:btih:397AF0F504EF806497674ADED671ACB41887C1E4
 >>История
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184581.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184581.jpgsave_picture_184581.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ magnet:?xt=urn:btih:D8F49C3B756A8147D7CB14C5F936C1072CA0E22A
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184582.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184582.jpgsave_picture_184582.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ Kosmik Tomb - Origins of the Horror (2022) [FLAC|Lossless|WEB-DL|tracks] <Death 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184585.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184585.jpgsave_picture_184585.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ Soulver 3 v3.4.13 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184586.jpgsave_picture_184586.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ magnet:?xt=urn:btih:DD5620F00FE810C42D4EB6358AEA7EE2EDD9FE9A
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184587.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184587.jpgsave_picture_184587.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ magnet:?xt=urn:btih:8094E0D48983F5B15477CDF5BD935461D1B964F0
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184590.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184590.jpgsave_picture_184590.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ Magic Sort List 3.3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184591.jpgsave_picture_184591.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ Avatarium - The Fire I Long For (2019) Japan Edition [FLAC|Lossless|image + .cue
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184592.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184592.jpgsave_picture_184592.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ SyncTime 3.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184595.jpgsave_picture_184595.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ Mirillis Action! 4.38.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_184596.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_184596.jpgsave_picture_184596.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Crow's Flight - The Storm (2019) [FLAC|Lossless|image + .cue] <Heavy Metal, Powe
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184597.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184597.jpgsave_picture_184597.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Cruachan - Nine Years of Blood (2018) [FLAC|Lossless|image + .cue] <Irish Folk, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184600.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184600.jpgsave_picture_184600.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Duplicate Photos SweeperOff 3.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184601.jpgsave_picture_184601.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Jackie McLean - Eight Classic Albums (1957 - 1961) 4CD, 2012, Real Gone Jazz [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184604.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184604.jpgsave_picture_184604.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ IconJar 2.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184606.jpgsave_picture_184606.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245243.jpgsave_picture_245243.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ VA - Best Essentials Hype SFR (2023) [MP3|320 Kbps] <Trance, Progressive, Electr
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245244.jpgsave_picture_245244.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ VA - Chill with Style - The Lounge & Chill-Out Collection, Vol. 4 (2015) [AAC|~3
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245245.jpgsave_picture_245245.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:E50AD95441E00B973065CC502302C174318E4087
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245246.jpgsave_picture_245246.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:043AC253EAE27C0A860C0291A1EC7A8BCC51A48A
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245247.jpgsave_picture_245247.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ magnet:?xt=urn:btih:51AB909185D3E111D999E4D2B62622DFB22D1F92
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245248.jpgsave_picture_245248.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:D060C48EAE1E96BE519126B2F75A00BED40EEB55
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245249.jpgsave_picture_245249.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ magnet:?xt=urn:btih:790BE8C38ADA4BED33B2D1D49C523612A20E085D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245250.jpgsave_picture_245250.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Xliff Editor 2.9.8 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245251.jpgsave_picture_245251.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ Duke Ellington & His Famous Orchestra - Happy-Go-Lucky Local (1946) 1992, Musicr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245252.jpgsave_picture_245252.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ magnet:?xt=urn:btih:33D2909F68C5516548841D63E1844A3FA1A99F71
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245253.jpgsave_picture_245253.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ magnet:?xt=urn:btih:7E8BF2967C1C0DF215695E1CD5EC91DB067CA2D5
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245254.jpgsave_picture_245254.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ Alan Parsons - From The New World (2022) Japanese Edition [FLAC|Lossless|image +
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245255.jpgsave_picture_245255.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ magnet:?xt=urn:btih:BDCB67760AADE1EA2A05EFCF7A57DA6AE7415DC4
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245256.jpgsave_picture_245256.jpg" />
 </div>
 
 
@@ -365,7 +365,7 @@ VA - Chill with Style - The Lounge & Chill-Out Collection, Vol. 5 (2015) [AAC|~3
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245257.jpgsave_picture_245257.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ Swift Publisher 5 v5.5.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245258.jpgsave_picture_245258.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ magnet:?xt=urn:btih:E208D0725FACCC04BCC500D757F63F4506F2A230
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245259.jpgsave_picture_245259.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ OmniZip - Universal Extractor Pro for Mac 2.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245260.jpgsave_picture_245260.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ magnet:?xt=urn:btih:7F4F13544EAB7C9C683FD3560AFD07E4EF03E2A4
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245261.jpgsave_picture_245261.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Opera 97.0.4719.26 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245262.jpgsave_picture_245262.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ magnet:?xt=urn:btih:DBBCF6A5A77B9970DF377CE2DDC3C9EFB569A96C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245263.jpgsave_picture_245263.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ VA - Spring Break Miami 2023: Best Of Dance & House (2023) [MP3|320 Kbps] <House
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245264.jpgsave_picture_245264.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ magnet:?xt=urn:btih:2EF7342C8CA5E897595E72BBB0A527E4C0B234D8
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245265.jpgsave_picture_245265.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ magnet:?xt=urn:btih:D15C276F1D2104FB329BF676A864F5F8C0580A2A
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245266.jpgsave_picture_245266.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ magnet:?xt=urn:btih:1C9CA48184FA970A059E62178943B08932EE7CE5
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245267.jpgsave_picture_245267.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Koroshi Ai | Love of Kill | Убийственная любовь [2022, TV, 12 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245268.jpgsave_picture_245268.jpg" />
 </div>
 
 

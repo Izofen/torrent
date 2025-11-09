@@ -6,7 +6,7 @@ Rapsody - Please Don't Cry (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hip-Hop
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109307.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109307.jpgsave_picture_109307.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:A9AA39BDD98B6603F5CD417037416B40E6852542
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109308.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109308.jpgsave_picture_109308.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ magnet:?xt=urn:btih:F8C882C5C480F8E562E9B0388299F08C4EFD35B8
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109309.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109309.jpgsave_picture_109309.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ Godsmack - Awake (2000) Reissue, 2024, Universal Records [FLAC 24/96|Lossless|WE
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109310.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109310.jpgsave_picture_109310.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Combichrist - Everybody Hates You - Darkside (2005) [FLAC|Lossless|WEB-DL|tracks
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109311.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109311.jpgsave_picture_109311.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Martin Lechner - Another Step (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Vocal 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109312.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109312.jpgsave_picture_109312.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Peemai - Gaga Gundul (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109313.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109313.jpgsave_picture_109313.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Archie Shepp - On Green Dolphin Street (1977) 1991, Denon [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109314.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109314.jpgsave_picture_109314.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Rostros Sin Rostro - Features & ShiT (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109315.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109315.jpgsave_picture_109315.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Combichrist - One Fire (2019) [FLAC|Lossless|WEB-DL|tracks] <Industrial Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109316.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109316.jpgsave_picture_109316.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Corey Taylor - CMF2B... or Not 2B (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Al
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109317.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109317.jpgsave_picture_109317.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Alan Braufman - Infinite Love Infinite Tears (2024) [FLAC 24/96|Lossless|WEB-DL|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109318.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109318.jpgsave_picture_109318.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Joe Lovano - Joyous Encounter (2005) Blue Note [FLAC|Lossless|tracks + .cue] <Po
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109319.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109319.jpgsave_picture_109319.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Combichrist - We Love You (2014) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <I
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109320.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109320.jpgsave_picture_109320.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ lostWall - woodwerk (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109321.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109321.jpgsave_picture_109321.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ Combichrist - Live at Summer Breeze 2015 (2016) [FLAC|Lossless|WEB-DL|tracks] <I
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109322.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109322.jpgsave_picture_109322.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ Zoar Miranda - A Happy Day for a Sad Bird (2024) [FLAC 24/48|Lossless|WEB-DL|tra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109323.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109323.jpgsave_picture_109323.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ magnet:?xt=urn:btih:FA64A5A34BF201D64D0725EEEC01B39FFCD61919
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109324.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109324.jpgsave_picture_109324.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ magnet:?xt=urn:btih:A3B884920E8BEA7D914812EE2A27F4BEA4B5B246
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109325.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109325.jpgsave_picture_109325.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ magnet:?xt=urn:btih:A3B884920E8BEA7D914812EE2A27F4BEA4B5B246
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109326.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109326.jpgsave_picture_109326.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Ant-People - Disco Night (2020) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109327.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109327.jpgsave_picture_109327.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Soul Browser 1.4.21 Mod by derrin [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109328.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109328.jpgsave_picture_109328.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ magnet:?xt=urn:btih:1F7D4F84DBEAD5699DBAD20A8EC931C734B109CF
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109329.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109329.jpgsave_picture_109329.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Talking Heads - Stop Making Sense (1984) Deluxe Edition, 2023, Rhino - Warner Re
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109330.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109330.jpgsave_picture_109330.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ Kobra And The Lotus - Studio Albums (7 releases) (2009-2019) hand made [restored
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109331.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109331.jpgsave_picture_109331.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ magnet:?xt=urn:btih:F27B09F64047BFF22507B494009DECF1D777AD80
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109332.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109332.jpgsave_picture_109332.jpg" />
 </div>
 
 

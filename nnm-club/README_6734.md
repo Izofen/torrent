@@ -6,7 +6,7 @@ Veonity - Legend of the Starborn (2018) [FLAC|Lossless|image + .cue] <Power Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231586.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231586.jpgsave_picture_231586.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Rosicrucian - No Cause for Celebration (1994) Japanese Edition [FLAC|Lossless|im
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231587.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231587.jpgsave_picture_231587.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Stats 2.9.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231588.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231588.jpgsave_picture_231588.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:8A04FAD16B0FF36567F28DC015986069A6E97B91
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_231589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231589.jpgsave_picture_231589.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ VA - Armada Electronic Elements - Ibiza (2023) [MP3|320 Kbps] <Progressive House
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_231590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231590.jpgsave_picture_231590.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Order Of Decay - Mortification Rites (2023) [FLAC|Lossless|WEB-DL|tracks] <Death
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231593.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231593.jpgsave_picture_231593.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Color Wheel 7.8 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231594.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231594.jpgsave_picture_231594.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ magnet:?xt=urn:btih:ABA6D6DC4A9B4AAE21D879DA664E73E0EEB0925A
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_231595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231595.jpgsave_picture_231595.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ magnet:?xt=urn:btih:798136040FF5DC0BD87CB30166B4A58DF21AA0C4
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_231596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231596.jpgsave_picture_231596.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ Unchosen Ones - Sorrow Turns to Dust (2023) [MP3|320 Kbps] <Melodic Heavy Metal,
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231597.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231597.jpgsave_picture_231597.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ Ritual - Black Rain (2020) EP [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231599.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231599.jpgsave_picture_231599.jpg" />
 </div>
 
 
@@ -290,7 +290,7 @@ Ricky Castellini - Heartbeats (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231600.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231600.jpgsave_picture_231600.jpg" />
 </div>
 
 
@@ -317,7 +317,7 @@ magnet:?xt=urn:btih:3A08952268ECAA7CF5ECFDDBED095012EE5A948F
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_231602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231602.jpgsave_picture_231602.jpg" />
 </div>
 
 
@@ -341,7 +341,7 @@ Sniff 'n' The Tears - Retrospective (1983) Reissue, 1985, PolyGram [FLAC|Lossles
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231603.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231603.jpgsave_picture_231603.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ magnet:?xt=urn:btih:0E9A49D04A3885EDA5C851DF0F1B4E99D1545A7C
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_231605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231605.jpgsave_picture_231605.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ Vortesvin - The Beauty of Extinction (2023) [FLAC|Lossless|WEB-DL|tracks] <Death
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231606.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231606.jpgsave_picture_231606.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ Induction - Induction (2019) Japanese Edition [FLAC|Lossless|image + .cue] <Symp
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231607.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231607.jpgsave_picture_231607.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ Jimmy Smith - Milestone Profiles (1981 - 1993) 2CD, 2006, Milestone [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231608.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231608.jpgsave_picture_231608.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ Bocchi the Rock! | Рок-тихоня! | Одинокий рокер! [2022, TV
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_231610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231610.jpgsave_picture_231610.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ magnet:?xt=urn:btih:1A04074C6ED1018040BB36090BD8FDA28C65DC57
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_231611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231611.jpgsave_picture_231611.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ Undead Killer - Killer Unleashed (2023) [MP3|320 Kbps] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231612.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231612.jpgsave_picture_231612.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ Wake - Thought Form Descent (2022) [FLAC|Lossless|WEB-DL|tracks] <Black, Death M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231614.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231614.jpgsave_picture_231614.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Amorphis - Far From The Sun (2003) 2004, Album, Enhanced [FLAC|Lossless|image + 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231615.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231615.jpgsave_picture_231615.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ MWeb Pro 4.4.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231616.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231616.jpgsave_picture_231616.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Radiance - Корабли (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Meta
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231617.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231617.jpgsave_picture_231617.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ Registry Finder 2.57 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_231618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231618.jpgsave_picture_231618.jpg" />
 </div>
 
 

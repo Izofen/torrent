@@ -6,7 +6,7 @@ Dispyria - 3 Albums (2012-2023) [MP3|320 Kbps] <Heavy, Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244057.jpgsave_picture_244057.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:B891BFC568AC1FB43A9A2EAFCAB0A51B91D65EC1
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244058.jpgsave_picture_244058.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Slimjet 38.0.8.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244059.jpgsave_picture_244059.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ VA - Disco Made Me Do It Vol. 6 (2023) [MP3|320 Kbps] <Electronic, Nu-Disco>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244060.jpgsave_picture_244060.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:20F2A61639F633DAF0D5F36E2AF8918D4CF8D3FA
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244061.jpgsave_picture_244061.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ AIDA64 Engineer Edition 6.88.6400 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244062.jpgsave_picture_244062.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ magnet:?xt=urn:btih:20ED429FFB4A18D477ACA605CE71798B7C7CE13D
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244063.jpgsave_picture_244063.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ VA - Mega Hits 2016 (2023) [OGG Vorbis|480 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244064.jpgsave_picture_244064.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ T3nors - Naked Soul (2023) [MP3|320 Kbps] <AOR, Melodic Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244065.jpgsave_picture_244065.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Die Apokalyptischen Reiter - Der Rote Reiter (2017) [FLAC|Lossless|image + .cue]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244066.jpgsave_picture_244066.jpg" />
 </div>
 
 
@@ -265,7 +265,7 @@ magnet:?xt=urn:btih:CDE632DFB95BC9733B736F0D0F644A2B6578CCAB
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244067.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244067.jpgsave_picture_244067.jpg" />
 </div>
 
 
@@ -290,7 +290,7 @@ magnet:?xt=urn:btih:CB471C5D415E6A3B6B27F06E6A00BF4EC5BBBFC8
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244068.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244068.jpgsave_picture_244068.jpg" />
 </div>
 
 
@@ -314,7 +314,7 @@ Epic - Starlight (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock, Female
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244069.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244069.jpgsave_picture_244069.jpg" />
 </div>
 
 
@@ -341,7 +341,7 @@ Skype 8.97.0.404 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244070.jpgsave_picture_244070.jpg" />
 </div>
 
 
@@ -365,7 +365,7 @@ Google Chrome 111.0.5563.147 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244071.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244071.jpgsave_picture_244071.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ magnet:?xt=urn:btih:85543C62B91C8E33447E5A6CD082C93C4115F2EC
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244072.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244072.jpgsave_picture_244072.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ magnet:?xt=urn:btih:34A63EFB13DAB8CF51743D9B876B2FE1C46609C3
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244073.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244073.jpgsave_picture_244073.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ The Radio Sun - Unstoppable (2017) [FLAC|Lossless|image + .cue] <Melodic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244074.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244074.jpgsave_picture_244074.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Ad Infinitum - Chapter III: Downfall (2023) [FLAC|Lossless|WEB-DL|tracks] <Symph
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244075.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244075.jpgsave_picture_244075.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ PlistEdit Pro 1.9.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244076.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244076.jpgsave_picture_244076.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ magnet:?xt=urn:btih:B57654EB3AEFF92A0D3E3587199314FBB78EBD76
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244077.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244077.jpgsave_picture_244077.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ INE | Penetration Testing Student v2 [Learning Path] (2022) WEB-DL [EN / EN Sub]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244078.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244078.jpgsave_picture_244078.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ magnet:?xt=urn:btih:9384D636BAD6276BFCFCCF37E9367878F00F123F
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244079.jpgsave_picture_244079.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Mammoth - Deviations (2016) [FLAC|Lossless|WEB-DL|tracks] <Fusion, Jazz-Rock>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244080.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244080.jpgsave_picture_244080.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ Bort - Valhalla (2021) [MP3|320 Kbps] <Stoner, Hard Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244081.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244081.jpgsave_picture_244081.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ Dreamtale - Studio Albums (8 releases) (2002-2022) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244082.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244082.jpgsave_picture_244082.jpg" />
 </div>
 
 

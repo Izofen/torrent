@@ -6,7 +6,7 @@
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138625.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138625.jpgsave_picture_138625.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138626.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138626.jpgsave_picture_138626.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:1A1D29FCBB5B98FF2EF67F204CF105926DFD17EF
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138627.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138627.jpgsave_picture_138627.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:788C56D9271F3791D14B330BEFE65A8757A5048D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138629.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138629.jpgsave_picture_138629.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ magnet:?xt=urn:btih:D5165066BF869AD88365711CE976ECD1D380182A
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138631.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138631.jpgsave_picture_138631.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ magnet:?xt=urn:btih:55C38499CF6D2CBC231634DD8631EAD9944B3A4E
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138632.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138632.jpgsave_picture_138632.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Bellingcat. Правда в мире постправды / Bellingcat. Truth in
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138633.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138633.jpgsave_picture_138633.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Sidify Spotify Music Converter 2.2.0 RePack by F4CG [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138634.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138634.jpgsave_picture_138634.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ BBC: Французские сады с Монти Доном / Monty Don's Fren
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138635.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138635.jpgsave_picture_138635.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ magnet:?xt=urn:btih:E1CB5053BA50D7815B45D3DD6CCF47BDC39292EE
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138636.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138636.jpgsave_picture_138636.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ Norah Jones - First Sessions (2001) Japan 2017 [FLAC|Lossless|image + .cue] <Voc
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138637.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138637.jpgsave_picture_138637.jpg" />
 </div>
 
 
@@ -291,7 +291,7 @@ Wise Folder Hider Pro 3.30.105 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138638.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138638.jpgsave_picture_138638.jpg" />
 </div>
 
 
@@ -315,7 +315,7 @@ magnet:?xt=urn:btih:0084D6541B1D70316D03DEE0FF32F27F067D476B
 >>Сатира, Юмор
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138642.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138642.jpgsave_picture_138642.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ magnet:?xt=urn:btih:AFBFFC236057D4136EF58E1B8AFE03A1AEB2C5F0
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138643.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138643.jpgsave_picture_138643.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ Sabayon 15.01 (KDE, XFCE, GNOME, SpinBase, Minimal) [amd64] 5xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138644.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138644.jpgsave_picture_138644.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ Udemy| Создание административной панели на React
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138645.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138645.jpgsave_picture_138645.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ magnet:?xt=urn:btih:1249BB4F73B2E93F4115091E7187DB4D7CBAA4B9
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138647.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138647.jpgsave_picture_138647.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ magnet:?xt=urn:btih:1BA1F8FE4C609E62A1F18791EEA30FC4F6136C5E
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138648.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138648.jpgsave_picture_138648.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ Robert Parker - The Singles 2013-2015 (2015) [MP3|320 кб/с] <Synthpop, Synthw
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138649.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138649.jpgsave_picture_138649.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Discovery: На дне океана / Expedition Deep Ocean (2021) WEBRip [H.264
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138650.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138650.jpgsave_picture_138650.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ magnet:?xt=urn:btih:9F62C33E6CD7C7FF91132F7900F15117704E42C7
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138651.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138651.jpgsave_picture_138651.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ magnet:?xt=urn:btih:14E3629E65EB31FD18151242587D7CED22E53345
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138652.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138652.jpgsave_picture_138652.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ magnet:?xt=urn:btih:75842C9D090ED475C13902072E26F14B78D924B9
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138653.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138653.jpgsave_picture_138653.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ magnet:?xt=urn:btih:15E53B9F79BAE73556820145DF28625BD457392A
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138654.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138654.jpgsave_picture_138654.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ VA - Singles Chart Hot 100 Billboard (07 January 2017) (2016) [MP3|320 Kbps] <Po
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138657.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138657.jpgsave_picture_138657.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ magnet:?xt=urn:btih:FF685DDFFD91B84286322229624EC16752228C3E
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138658.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138658.jpgsave_picture_138658.jpg" />
 </div>
 
 

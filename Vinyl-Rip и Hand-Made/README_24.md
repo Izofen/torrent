@@ -6,7 +6,7 @@ Nostradameus - Studio Albums (6 releases) (2000-2009) hand made [restored, decli
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71548.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71548.jpgsave_picture_71548.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Myles Kennedy - Solo Studio Albums (3 releases) (2018-2024) hand made [restored,
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71667.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71667.jpgsave_picture_71667.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Epysode - Studio Albums (2 releases) (2011-2013) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71691.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71691.jpgsave_picture_71691.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Paper Lace - The Best Of Paper Lace (1974) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71761.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71761.jpgsave_picture_71761.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Asphyx - Studio Albums (10 releases) (1991-2021) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71791.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71791.jpgsave_picture_71791.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Europe - The Final Countdown (1986)  [APE 2.0 24/48 | tracks (VinylRip)]<hard ro
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85522.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85522.jpgsave_picture_85522.jpg" />
 </div>
 
 
@@ -172,7 +172,7 @@ Scorpions - 2 альбома (1974-1975)  [FLAC 2.0 24/192 | tracks (VinylRip)]<
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87423.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87423.jpgsave_picture_87423.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ magnet:?xt=urn:btih:2CB315CD2F2FB1839040EE4CCCCAD22B83C2C343
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88403.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88403.jpgsave_picture_88403.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ magnet:?xt=urn:btih:E14E85105F90560DED479EC47FD0AEE807526CF9
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88635.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88635.jpgsave_picture_88635.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Red Hot Chili Peppers – Californication (1999) [FLAC 2.0 24/192 | image (Vinyl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88881.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88881.jpgsave_picture_88881.jpg" />
 </div>
 
 
@@ -290,7 +290,7 @@ magnet:?xt=urn:btih:CB63894A9936B5F9F40346F536EFE6F522B6EC9C
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91159.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91159.jpgsave_picture_91159.jpg" />
 </div>
 
 
@@ -317,7 +317,7 @@ Skid Row - Studio Albums (8 releases) (1989-2022) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94694.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94694.jpgsave_picture_94694.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Hypocrisy (Peter Tagtgren) - Studio Albums (19 releases) (1992-2025) hand made [
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94726.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94726.jpgsave_picture_94726.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Sadist - Studio Albums (10 releases) (1993-2025) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100783.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100783.jpgsave_picture_100783.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Sebastian Bach - Studio Albums (5 releases) (2001-2024) hand made [restored, dec
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100931.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100931.jpgsave_picture_100931.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Pallbearer - Studio Albums (5 releases) (2012-2024) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101214.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101214.jpgsave_picture_101214.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Anna Rustikano - Two Albums (1986, 1990) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101220.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101220.jpgsave_picture_101220.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ magnet:?xt=urn:btih:E26C845A01E4662DE6B713C213989FC141584A4E
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101249.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101249.jpgsave_picture_101249.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Terrifier - Studio Albums (3 releases) (2012-2023) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101257.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101257.jpgsave_picture_101257.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Vexovoid - Studio Albums (2 releases) (2014-2017) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101277.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101277.jpgsave_picture_101277.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ The Drowning - Studio Albums (7 releases) (2005-2019) hand made [restored, decli
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101393.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101393.jpgsave_picture_101393.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Volturian - Studio Albums (2 releases) (2020-2022) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101422.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101422.jpgsave_picture_101422.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Jerry Cantrell (Alice in Chains) - Studio Albums (4 releases) (1998-2024) hand m
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101452.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101452.jpgsave_picture_101452.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Eldritch - Studio Albums (13 releases) (1995-2023) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101472.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101472.jpgsave_picture_101472.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ My Silent Wake - Studio Albums (13 releases) (2006-2024) hand made [restored, de
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102721.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102721.jpgsave_picture_102721.jpg" />
 </div>
 
 
@@ -686,7 +686,7 @@ Intronaut - Studio Albums (7 releases) (2006-2020) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102774.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102774.jpgsave_picture_102774.jpg" />
 </div>
 
 

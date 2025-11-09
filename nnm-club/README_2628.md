@@ -6,7 +6,7 @@
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69078.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69078.jpgsave_picture_69078.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Matthew K. Manning, Daniel Wallace | Артбук Бэтмен: Полное р�
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69079.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69079.jpgsave_picture_69079.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Google Chrome 134.0.6998.118 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69080.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69080.jpgsave_picture_69080.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:10A8F8CD213D685EDF909E317CD4FEF3E91137CE
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69081.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69081.jpgsave_picture_69081.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:CDDD8E3413B13E083B332E79476FF6035C017A1B
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69082.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69082.jpgsave_picture_69082.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:0A860026B5EA4FF39F97E0CA0128DEE9FCD41993
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69083.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69083.jpgsave_picture_69083.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Opera One 117.0.5408.142 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69084.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69084.jpgsave_picture_69084.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Genius Art: Image AI Generator v1.2.6 Mod by vadj [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69085.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69085.jpgsave_picture_69085.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:F8653C6E3871852F0C11D57714EBEE7DD07452FD
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69086.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69086.jpgsave_picture_69086.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ TikTok 39.1.3 Mod by Dmitry Nechiporenko + Plugin 2.1 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69087.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69087.jpgsave_picture_69087.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:BB2826401397423292DDB29B60BEF04A35AB9BCE
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69088.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69088.jpgsave_picture_69088.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:2D2DCD60886F76BC86CD1AC18A382F0F7EFF92C4
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69089.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69089.jpgsave_picture_69089.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:0877F4830A27586CBF70F5D9A21EF080CFC615C4
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69090.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69090.jpgsave_picture_69090.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ magnet:?xt=urn:btih:0C301F0ACC7F2667109A056A4982052D8486CA09
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69091.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69091.jpgsave_picture_69091.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ magnet:?xt=urn:btih:AA0C00BFCB0C944FC1EB81A516A899F09D627929
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69092.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69092.jpgsave_picture_69092.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Defile The Crown - Tooth And Nail (2021) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69093.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69093.jpgsave_picture_69093.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ magnet:?xt=urn:btih:CBF29BD330FB69CA3CB66302561BD9D93016CADE
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69094.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69094.jpgsave_picture_69094.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Photo Lab PRO v3.13.51 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69095.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69095.jpgsave_picture_69095.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ Phil Woods - Four Classic Albums (1956 - 1961) 2CD, 2015, Avid Jazz [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69096.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69096.jpgsave_picture_69096.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ magnet:?xt=urn:btih:4EBE867D70B7A6578657F467EDF949E76C5DC33A
 >>Баскетбол, Волейбол, Гандбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69097.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69097.jpgsave_picture_69097.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ magnet:?xt=urn:btih:746E5C5BA8099B71FD2844C0F1244AE55CD25BA5
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69098.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69098.jpgsave_picture_69098.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ magnet:?xt=urn:btih:D00BF4D978AFE6FB55AFF319B7F974A71B8EACA4
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69099.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69099.jpgsave_picture_69099.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ magnet:?xt=urn:btih:5B2C013C8C48AC4272E8E8B3874A028C9498A668
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69100.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69100.jpgsave_picture_69100.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ River of Magma - Into the Unknown (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <He
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69101.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69101.jpgsave_picture_69101.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ magnet:?xt=urn:btih:EA11B3CB5999F83A5FE2012CF5CF5B39EF33E389
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69102.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69102.jpgsave_picture_69102.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ Anita O'Day - Live At Basie (1978) 2007, Ratspack Records [FLAC|Lossless|image +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69103.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69103.jpgsave_picture_69103.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180962.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180962.jpgsave_picture_180962.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Blue System - Magic Symphonies - The Very Best Of Blue System (1987-1997) 3 CD R
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180963.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180963.jpgsave_picture_180963.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ VA - German Top 100 Single Charts 25.11.2022 [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180964.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180964.jpgsave_picture_180964.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ ESET Endpoint Antivirus / ESET Endpoint Security 10.1.2050.0 (24.08.2023) RePack
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180966.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180966.jpgsave_picture_180966.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:3674E693A2199E0A4F6A1FF3FF2A81290D74AFC6
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180967.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180967.jpgsave_picture_180967.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ magnet:?xt=urn:btih:D85DEE9819EABF8DACFE5331D20E241DB3961825
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180971.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180971.jpgsave_picture_180971.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ magnet:?xt=urn:btih:25E81C638B871955C98BBAFAFE8AD512D5F31217
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180973.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180973.jpgsave_picture_180973.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ SolidWorks 2023 SP4.0 Premium RePack by xetrin [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180975.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180975.jpgsave_picture_180975.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ magnet:?xt=urn:btih:8DE3CB04AC260F67DC88DD0EB44E30F14C53CA77
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180977.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180977.jpgsave_picture_180977.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ magnet:?xt=urn:btih:06E011B38ED922465A376F8C58105F6C46D537EF
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180979.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180979.jpgsave_picture_180979.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ magnet:?xt=urn:btih:C3ECBEBD2ED1CB7BD79C882AD05D7239EFC3C443
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180983.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180983.jpgsave_picture_180983.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ magnet:?xt=urn:btih:4D080936FC8FF3E608AE984CE6AD94ED286FFADA
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180985.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180985.jpgsave_picture_180985.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ Javabegin, Тимур Батыршинов | Базы данных и SQL - с �
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_180987.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_180987.jpgsave_picture_180987.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ magnet:?xt=urn:btih:7E1BBAE92C4DB8BFBD25B64BCB96E045E7A8C33A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180994.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180994.jpgsave_picture_180994.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ KMSAuto++ Portable 1.8.4 by Ratiborus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180996.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180996.jpgsave_picture_180996.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Bad Boys Blue - Love Is No Crime (1987) Reissue, 2015, Мирумир [OGG Vorbi
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181001.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181001.jpgsave_picture_181001.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ EditPlus 5.6.0 build 4250 + EditPlus 5.6.0 patch 4290 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181004.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181004.jpgsave_picture_181004.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ magnet:?xt=urn:btih:5797631A0855F6C962167DF2949312B1E3A06FDE
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181006.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181006.jpgsave_picture_181006.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ Jitsu wa Ore, Saikyou Deshita? / Am I Actually the Strongest? / На самом 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181009.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181009.jpgsave_picture_181009.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ magnet:?xt=urn:btih:BB900972B84BD391A7A701347DD249F05684DC6B
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181012.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181012.jpgsave_picture_181012.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ magnet:?xt=urn:btih:5BC980B67765C9FB380A2446046A47F1284C84C5
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181016.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181016.jpgsave_picture_181016.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Black Cat | Чёрный кот [2005, TV, 23 эп. + 1 SP] DVDRip 480p raw+eng
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181020.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181020.jpgsave_picture_181020.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ magnet:?xt=urn:btih:A3059E785624B46D6D4909D1D51ED06BB47705D5
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181021.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181021.jpgsave_picture_181021.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Bjarla - Bifröst (Bifrost) (2022) [FLAC|Lossless|WEB-DL|tracks] <Ambient folk, 
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181024.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181024.jpgsave_picture_181024.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ magnet:?xt=urn:btih:F893F08FAD8373DFFB327C800C2620F1FFBCD671
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_181025.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_181025.jpgsave_picture_181025.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Bleach Sennen Kessen Hen - Ketsubetsu Tan | Bleach: Thousand-Year Blood War - Th
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181027.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181027.jpgsave_picture_181027.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61987.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61987.jpgsave_picture_61987.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:7D2CD983E113962034AE11793D05E17C5BA7176B
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61988.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61988.jpgsave_picture_61988.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:2A645E8FB645F51A47CEA5E4F973B662A8DDF894
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61989.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61989.jpgsave_picture_61989.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:F6F6A79371BDA5B95751D5CA82BD3721D36E238C
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61990.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61990.jpgsave_picture_61990.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Windows 11 PRO 23H2 22631.3296 Update 7.1 by Ghost Spectre x64 [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61991.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61991.jpgsave_picture_61991.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:974D46D05E9DD5D83671B305D046CD6E5BB1C7F0
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61992.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61992.jpgsave_picture_61992.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:6EE13935C3F8591DDAD364B308BA174223506BF6
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61993.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61993.jpgsave_picture_61993.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:6EE13935C3F8591DDAD364B308BA174223506BF6
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61994.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61994.jpgsave_picture_61994.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ Kusuriya no Hitorigoto | The Apothecary Diaries | Записки аптекар�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61995.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61995.jpgsave_picture_61995.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:14A372962984ADD820E0627E6EE127301FB9B908
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61996.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61996.jpgsave_picture_61996.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:F23819E95E3525145BE89FD0D0E6E845FBDABA2E
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61997.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61997.jpgsave_picture_61997.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ magnet:?xt=urn:btih:3E5B321BEC70DE95E22D316CAC1EF6555E0F0063
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61998.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61998.jpgsave_picture_61998.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ magnet:?xt=urn:btih:7629110C421D31A83C5481E69131E65B13508779
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61999.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61999.jpgsave_picture_61999.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ magnet:?xt=urn:btih:9FDE3C100D4661E5405C9EF8F43F179E4D388BBC
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62000.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62000.jpgsave_picture_62000.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ magnet:?xt=urn:btih:8E803D3819C8756E4AD16474DBCCF36E11206FA2
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62001.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62001.jpgsave_picture_62001.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ magnet:?xt=urn:btih:667B24F684F32455ABACC6ED1892DE815A7A6626
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62002.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62002.jpgsave_picture_62002.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ magnet:?xt=urn:btih:3DFE9E8D32A141673B08E38F307E79522F0D89C0
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62003.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62003.jpgsave_picture_62003.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ VA - Music News vol.356 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62004.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62004.jpgsave_picture_62004.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ magnet:?xt=urn:btih:4BF46CDDB1EF189F6C15F33BCBF38794AF4FBFF6
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62005.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62005.jpgsave_picture_62005.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ VA - Наутилус Помпилиус / Бригада С (1988) [FLAC 24/192
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62006.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62006.jpgsave_picture_62006.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Reverso Translation Dictionary / Переводной словарь Reverso 12.
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62007.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62007.jpgsave_picture_62007.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ magnet:?xt=urn:btih:0AB3C26BCE60FF93CE7D4AE76465D311FEF2FDF4
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62008.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62008.jpgsave_picture_62008.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ O&O Defrag Professional 28.0 Build 10006 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62009.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62009.jpgsave_picture_62009.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ magnet:?xt=urn:btih:D2FC5E7E4B39F12D9D45F2FB0BDAC4B1BA62A1C9
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62010.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62010.jpgsave_picture_62010.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Scooter - Video collection - Chapter 3 (2003 - 2005) DVDRip [H.264/1080p-LQ] [ha
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62011.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62011.jpgsave_picture_62011.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ magnet:?xt=urn:btih:38DD2D9A81FA492F5E7FAD2E8DB8D3FEF999A81B
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62012.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62012.jpgsave_picture_62012.jpg" />
 </div>
 
 

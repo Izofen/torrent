@@ -6,7 +6,7 @@
 >>Всё для детей и родителей для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152368.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152368.jpgsave_picture_152368.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:73FCB4BEEEDA5039FFCDFCD21BC6B27E78181F4F
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153230.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153230.jpgsave_picture_153230.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Russian crosswords v1.15.3 [Ru/En] (обновляемая)
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153253.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153253.jpgsave_picture_153253.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:410D325184EA03C3B79DA072C023C1F3E0EA3EC7
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153290.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153290.jpgsave_picture_153290.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Do It Now: RPG список дел, ежедневник, планировщик
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153320.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153320.jpgsave_picture_153320.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Lantern: Лучше, чем VPN v6.8.10 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153490.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153490.jpgsave_picture_153490.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ NYMF: Галерея женской красоты Давида Дубницко
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153638.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153638.jpgsave_picture_153638.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ Electrical Calculations Pro / Электрические расчеты v9.0.5-h
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153691.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153691.jpgsave_picture_153691.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ Reface v3.54.0 Mod by Mixroot [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153735.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153735.jpgsave_picture_153735.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ Lighting calculations / Расчеты освещения v5.3.1 Mod by vedsereg
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153745.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153745.jpgsave_picture_153745.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ magnet:?xt=urn:btih:E8409FC9FD700FD1009892B86FF452B988EBDB6E
 >>Всё для детей и родителей для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153843.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153843.jpgsave_picture_153843.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ Bubble Screen Translate 2.0.9 [Multi] (обновляемая)
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153874.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153874.jpgsave_picture_153874.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Ventusky: Прогноз погоды v29.0 Mod by maxi123444 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153930.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153930.jpgsave_picture_153930.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ magnet:?xt=urn:btih:55B7E4BE2479B41CCC9AA4DC251387EDF2B758EF
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154627.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154627.jpgsave_picture_154627.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ VPN Russia - VPN сервера в России 1.183 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155101.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155101.jpgsave_picture_155101.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Toy Defense 2 / Солдатики-2 v2.7.0.1 + Mod [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155169.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155169.jpgsave_picture_155169.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ magnet:?xt=urn:btih:B89D987C45F3D6DED1C464DD4066CD49167892AC
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155995.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155995.jpgsave_picture_155995.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Photo Map v9.04.05 Mod by Timozhai, misuri78 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158907.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158907.jpgsave_picture_158907.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Filmix v2.1.3 Mod by vadj [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159092.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159092.jpgsave_picture_159092.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Find my kids / Где мои дети v2.6.89-google Mod by Timozhai [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159150.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159150.jpgsave_picture_159150.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ magnet:?xt=urn:btih:2A009AC6FEDDE9953C1AAE2EA54BABE03F90FD8F
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159155.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159155.jpgsave_picture_159155.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ My TTS: Text-to-Speech v1.1.6 [En/Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159156.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159156.jpgsave_picture_159156.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ Enhancer - AI Photo Enhance v1.5.1 Mod by maxi123444 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159217.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159217.jpgsave_picture_159217.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ magnet:?xt=urn:btih:54CEE7A823476478953F0D226FA23BA4BE200224
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159271.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159271.jpgsave_picture_159271.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ Colorfy PLUS - Coloring Book v3.22 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159276.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159276.jpgsave_picture_159276.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ Enhancer - AI Photo Enhance v1.5.1 Mod by Mixroot [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159279.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159279.jpgsave_picture_159279.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117511.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117511.jpgsave_picture_117511.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:80A5291BEDAD35AF7D7D5AD511C5132FB5304DE9
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117512.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117512.jpgsave_picture_117512.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:80A5291BEDAD35AF7D7D5AD511C5132FB5304DE9
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117513.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117513.jpgsave_picture_117513.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ FL Studio Producer Edition 21.2.3.4004 (X64) Portable by 7997 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117514.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117514.jpgsave_picture_117514.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Windows 7 SP1 x64 (3in1) by Updated Edition (14.02.2024) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117515.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117515.jpgsave_picture_117515.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:FA7601CFABAA64F043BBAEB73FB1751B66B964FC
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117516.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117516.jpgsave_picture_117516.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:3CF687299B76DCD8A8766C187E3F2ADC94CD1B5D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117517.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117517.jpgsave_picture_117517.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ HAYDEE II (2020) [Ru/Multi] (1.0.18.11/dlc) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117518.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117518.jpgsave_picture_117518.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:CC16BFB06AB186E4C865DA16795F750EC33460ED
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117519.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117519.jpgsave_picture_117519.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Manjaro 23.1.3 Vulcan (xfce, KDE Plasma, Gnome) (Official images Manjaro Team) [
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117520.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117520.jpgsave_picture_117520.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:798240B6BADA1A99647F51F921704A12973F9B16
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117521.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117521.jpgsave_picture_117521.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:F4B9DCF948E486BAABA621295E9183E683A2F014
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117523.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117523.jpgsave_picture_117523.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:4B097AA8011BBCCE6D13A8DDBF7523D115A7A4B7
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117525.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117525.jpgsave_picture_117525.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ magnet:?xt=urn:btih:DF6EB5E75F2BF7C7C54AD48ABE9111B92A9710EB
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117526.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117526.jpgsave_picture_117526.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Little Nightmares III (3) (2025) [Ru/Multi] (1.0.0/dlc) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117527.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117527.jpgsave_picture_117527.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ magnet:?xt=urn:btih:D9DF81E2384DFCF4E8727422E4700CD6F22A7AF8
 >>Сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117528.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117528.jpgsave_picture_117528.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ magnet:?xt=urn:btih:28DC7CA0861D26C2F9C07BF0BA53181A9D21CEE7
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117529.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117529.jpgsave_picture_117529.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ magnet:?xt=urn:btih:0C594B70AC6CD339C4FD232D08A04AF1158B8A58
 >>Растровый клипарт (иллюстрации)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117530.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117530.jpgsave_picture_117530.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ Spectra: Beneath the Stain (2025) [En] (1.0) Unofficial
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117531.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117531.jpgsave_picture_117531.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ magnet:?xt=urn:btih:DE68F120385875E629F7F680052BDD0EA15C1B6A
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117532.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117532.jpgsave_picture_117532.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Dreams of Another (2025) [Ru/Multi] (1.0) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117533.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117533.jpgsave_picture_117533.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ The Elder Scrolls 3: Morrowind + Tribunal + Bloodmoon [Ru] (L) 2002-2003
 >>11
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117534.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117534.jpgsave_picture_117534.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Little Nightmares III (2025) [Ru/Multi] (1.0.0/dlc) Repack Let'sРlay [Deluxe Ed
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117535.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117535.jpgsave_picture_117535.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ magnet:?xt=urn:btih:1F44D5F66C34AA390A0F34A46E35E984C8B84055
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117536.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117536.jpgsave_picture_117536.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ UFO - The Misdemeanor Tour - Live At The Oxford Apollo (1985) Reissue, 2025, HNE
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117537.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117537.jpgsave_picture_117537.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ magnet:?xt=urn:btih:D40626E134C89E927ED0D8F829235CDC4659C9A6
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117538.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117538.jpgsave_picture_117538.jpg" />
 </div>
 
 

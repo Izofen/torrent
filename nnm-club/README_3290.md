@@ -6,7 +6,7 @@ Bright Light Bright Light - Life Is Easy (2014) 10th Anniversary Deluxe Edition,
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105901.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105901.jpgsave_picture_105901.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:746EE602694A058513A1DF54135B1E8A6A4C00E1
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105902.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105902.jpgsave_picture_105902.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Akroasis - Hubris (2024) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105903.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105903.jpgsave_picture_105903.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ NanoStorm - Mister Dream (2024) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic, Prog
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105904.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105904.jpgsave_picture_105904.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Armin Van Buuren - Live at Tomorrowland Winter 2024 (Mainstage) [Highlights] (20
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105905.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105905.jpgsave_picture_105905.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ Kazaky - The Hills Chronicles (2014) [WavPack|Lossless|image + .cue] <Synth-pop,
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105906.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105906.jpgsave_picture_105906.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ magnet:?xt=urn:btih:2F0F2FFA948488C71A9194659AFB5DBA1314D248
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105907.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105907.jpgsave_picture_105907.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ Adrian Iaies - Cada mañana te trae (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105908.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105908.jpgsave_picture_105908.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ Ron Keel - Keelworld (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Southern R
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105909.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105909.jpgsave_picture_105909.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ magnet:?xt=urn:btih:06119F79DE773A26ADF1E0E672AEA002CE585F31
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105910.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105910.jpgsave_picture_105910.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ magnet:?xt=urn:btih:7D63F4FF6251FE9CBAF4FCCD1BD8E948E5573ACF
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105911.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105911.jpgsave_picture_105911.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ Erin Stevenson - Cover Girl Uncovered (2024) [FLAC 24/44.1|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105912.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105912.jpgsave_picture_105912.jpg" />
 </div>
 
 
@@ -315,7 +315,7 @@ magnet:?xt=urn:btih:B3681FE153BEC1349EA1B14707D62C14CFB0B2D5
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105913.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105913.jpgsave_picture_105913.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ Jeff Coffin - Only the Horizon (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105914.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105914.jpgsave_picture_105914.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ magnet:?xt=urn:btih:C0FE022624B31BB2D386A5EA8CF7827BC4DDCB4D
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105915.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105915.jpgsave_picture_105915.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Gun - Hombres (2024) Damaged Edition [FLAC 16,24/44.1,48|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105916.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105916.jpgsave_picture_105916.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ James - 2001 Singles & B-Sides (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105917.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105917.jpgsave_picture_105917.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:EE5B2EE7C633EA6EE4438937CCAF9E2A112A11F7
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105918.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105918.jpgsave_picture_105918.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ magnet:?xt=urn:btih:0A9E435FB16AF751AF2795F24817D23546A65B16
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105919.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105919.jpgsave_picture_105919.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Jasmin - От Любви До Любви (2013) [WavPack|Lossless|image + .cue] 
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105920.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105920.jpgsave_picture_105920.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ Villano Antillano - Miss Misogyny (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Po
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105921.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105921.jpgsave_picture_105921.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ Train - Live At Royal Albert Hall (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Po
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105922.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105922.jpgsave_picture_105922.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ magnet:?xt=urn:btih:3549AE8AE7E81628D0D9E26BAD472645E4B57C9E
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105923.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105923.jpgsave_picture_105923.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ Slaughter to Prevail - Kostolom (2021) Released, 2022, Sumerian Records [WavPack
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105924.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105924.jpgsave_picture_105924.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ magnet:?xt=urn:btih:DD9F79DE075BDAA586E8B9EAE79829324ED6BB15
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105925.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105925.jpgsave_picture_105925.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ Seventh Dimension - Of Hope & Ordeals (2024) [FLAC|Lossless|WEB-DL|tracks] <Prog
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105926.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105926.jpgsave_picture_105926.jpg" />
 </div>
 
 

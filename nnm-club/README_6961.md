@@ -6,7 +6,7 @@ VA - Acoustic Delight (2023) [MP3|320 Kbps] <Pop, Rock, RnB>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238995.jpgsave_picture_238995.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ RSS Menu 3.0.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238996.jpgsave_picture_238996.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Goot - God's Doubt (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Gothic Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238998.jpgsave_picture_238998.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:8FB1523D49D50A02925D66B283CBDAF1514597EB
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238999.jpgsave_picture_238999.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ magnet:?xt=urn:btih:0128F341880CBD587F58316A44B772C89153B726
 >>Новости
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_239001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_239001.jpgsave_picture_239001.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ RTG. Музей истории религии. Религии востока (20
 >>История
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239002.jpgsave_picture_239002.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ magnet:?xt=urn:btih:F203A203BA8ADD421A6D6590E8D62AE9F2599051
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_239005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_239005.jpgsave_picture_239005.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ magnet:?xt=urn:btih:69B0A980A5F922C195AAE55941B83798078AB1F9
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239006.jpgsave_picture_239006.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ Fault Lines - Quiet Sickness (2022) [FLAC|Lossless|WEB-DL|tracks] <Nu-Metal, Met
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_239008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_239008.jpgsave_picture_239008.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ magnet:?xt=urn:btih:9EED208986EBBCAA180566E94A9A18D89ACBDB91
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_239009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_239009.jpgsave_picture_239009.jpg" />
 </div>
 
 
@@ -262,7 +262,7 @@ Sithu Aye - Senpai III (2021) [MP3|320 Kbps] <Progressive Metal, Instrumental>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_239010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_239010.jpgsave_picture_239010.jpg" />
 </div>
 
 
@@ -289,7 +289,7 @@ Twilight Road - Trapped (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239011.jpgsave_picture_239011.jpg" />
 </div>
 
 
@@ -316,7 +316,7 @@ Cal Tjader - Mambo Sangria (1968, 1969) 2007, Fabulous [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239012.jpgsave_picture_239012.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ magnet:?xt=urn:btih:E7CB215BC16E2CBC713D60D9B49BE846538F2303
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_239013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_239013.jpgsave_picture_239013.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ magnet:?xt=urn:btih:4B8E762A83819F4C88115D91ABA93F1D66CA8F56
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_239015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_239015.jpgsave_picture_239015.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ VA - Armin van Buuren - A State Of Trance 1124 (2023) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239017.jpgsave_picture_239017.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ The Gnomon Workshop, Patrick Przybyla | Creating a Combat Finishing Takedown Wit
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_239018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_239018.jpgsave_picture_239018.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ magnet:?xt=urn:btih:308B408C0195635D877B15B35CFBA624B0CD07F4
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239020.jpgsave_picture_239020.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ Daniel Blumberg - GUT (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Pop-Rock>
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239022.jpgsave_picture_239022.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Sabaton - Defence Of Moscow (2021) WEBRip [VP9/1080p-LQ] <Power Metal>
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239023.jpgsave_picture_239023.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ DJ BoBo - Fantasy (2010) [OGG Vorbis|484 Kbps] <Electronic, Eurodance, Dance-pop
 >>Eurodance, Euro-House, Technopop
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239024.jpgsave_picture_239024.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ VA - Rap NNM (2022) Русский Выпуск [MP3|320 Kbps] <Rap>
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239025.jpgsave_picture_239025.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ IObit Uninstaller Free 12.5.0.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239026.jpgsave_picture_239026.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ Kao the Kangaroo (2022) [PS4] [EUR] 5.05 [HEN] [License / 1.03] [Ru/Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239028.jpgsave_picture_239028.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ Lalo Schifrin - Seven Classic Albums (1959 - 1962) 4CD, 2013, Real Gone Jazz [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239029.jpgsave_picture_239029.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ Catherine Wheel - Happy Days (1995) [FLAC|Lossless|tracks + .cue] <Alternative R
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239030.jpgsave_picture_239030.jpg" />
 </div>
 
 

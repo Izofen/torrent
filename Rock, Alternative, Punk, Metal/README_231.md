@@ -6,7 +6,7 @@ Giraffe Tongue Orchestra - Broken Lines (2016) [MP3|320 Kbps] <Progressive Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148511.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148511.jpgsave_picture_148511.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:C6B31BC4F25314A871045511DCF633FED0AAB1D6
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148522.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148522.jpgsave_picture_148522.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Charetta - Fate Strikes Twice (2016) [MP3|320 Kbps] <Alternative Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148523.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148523.jpgsave_picture_148523.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Allison Crowe - Tidings (2004) [FLAC|Lossless|tracks + .cue] <Folk-Rock, Christm
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148538.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148538.jpgsave_picture_148538.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Lacrimosa - Leidenschaft (2021) [FLAC|Lossless|WEB-DL|tracks] <Gothic Metal, Dar
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148543.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148543.jpgsave_picture_148543.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Swng my prty - Лето 2020 (2020) [MP3|320 Kbps] <Alternative>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148554.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148554.jpgsave_picture_148554.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ magnet:?xt=urn:btih:A43702ABA79F517422AB7076F083C8600C9538B1
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148560.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148560.jpgsave_picture_148560.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Jon Lord - Before I Forget (1982) Remastered /2012, EMI Records /[APE|Lossless]<
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148561.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148561.jpgsave_picture_148561.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ PostNecrum - De Nocte Vento (2020) [MP3|320 Kbps] <Symphonic Black Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148567.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148567.jpgsave_picture_148567.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Le Orme - Collage (1971) 1990,  Philips [WavPack|Lossless|image + .cue] <Prog Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148574.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148574.jpgsave_picture_148574.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ magnet:?xt=urn:btih:A2456E2FDFF0B0583ABB9EAEF11F49ED2F6D23A6
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148576.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148576.jpgsave_picture_148576.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ magnet:?xt=urn:btih:E42EB87302AC8147CC20B020141D6557F03159C5
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148585.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148585.jpgsave_picture_148585.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ Asphyxia Perception - Invalid Shape (2020) [MP3|320 Kbps] <Melodic Death, Doom M
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148591.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148591.jpgsave_picture_148591.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ Scrooge - Scrooge (2020) [MP3|320 Kbps] <Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148612.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148612.jpgsave_picture_148612.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ Khepra - Cosmology Divine (2016) [MP3|320 Kbps] <Oriental, Symphonic Death Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148646.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148646.jpgsave_picture_148646.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ Blops - Blops (aka Marzo, aka Locomotora) (1973) 2006, Shadoks Musi [FLAC|Lossle
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148650.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148650.jpgsave_picture_148650.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Fire Garden - Far and Near (2016) [FLAC|Lossless|image + .cue] <Progressive Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148697.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148697.jpgsave_picture_148697.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Last Autumn's Dream - Secret Treasures (2018) Japanese Edition [MP3|320 Kbps] <H
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148711.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148711.jpgsave_picture_148711.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ magnet:?xt=urn:btih:947CD0D8AD044E2146BF8B82E4CB9359A5AA8FBD
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148717.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148717.jpgsave_picture_148717.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ Belore - Artefacts (2021) [Flac|Lossless|image + .cue] <Atmospheric Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148762.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148762.jpgsave_picture_148762.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ magnet:?xt=urn:btih:03F3410D2D4491465451E1878ACFFF6E2EA6509B
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148769.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148769.jpgsave_picture_148769.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Aephanemer - A Dream Of Wilderness (2021) [FLAC|Lossless|image + .cue] <Melodic 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148770.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148770.jpgsave_picture_148770.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ Jo Jo Gunne - Jo Jo Gunne (1972) Reissue, 2003, Collectors' Choice Music [MP3|32
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148807.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148807.jpgsave_picture_148807.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ Serpent Lord - Apocrypha (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148811.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148811.jpgsave_picture_148811.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ Willard Grant Conspiracy - Untethered (2018) [FLAC|Lossless|WEB-DL|tracks] <Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148831.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148831.jpgsave_picture_148831.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ Desaster - Stormbringer (1997) Reissued 2003 [FLAC|Lossless|image + .cue] <Black
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148852.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148852.jpgsave_picture_148852.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Toyah - The Changeling (1982) Deluxe Edition, Remastered, 2023, Cherry Red Recor
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183071.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183071.jpgsave_picture_183071.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:964756F90654CE19019886E795AE688E0625D066
 >>Футбол. Чемпионаты мира
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183072.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183072.jpgsave_picture_183072.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:B5B1D111A06544DDD2E2B3762085CE08247568B0
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_183073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183073.jpgsave_picture_183073.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:221AC0D86AEF7A8D791ED9D450120FADF70E8C78
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183076.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183076.jpgsave_picture_183076.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Gunship - Unicorn (2023) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Synthwave, R
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183077.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183077.jpgsave_picture_183077.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ Justin Johnson - Rough Edges (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_183078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183078.jpgsave_picture_183078.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ EarthView 7.7.8 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183080.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183080.jpgsave_picture_183080.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ Mp3tag 3.04 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_183082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183082.jpgsave_picture_183082.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ Telegram Desktop 4.3.2 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183083.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183083.jpgsave_picture_183083.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ VA - Trance 2021 (2020) [FLAC|Lossless|tracks] <Trance, Uplifting Trance>
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_183085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183085.jpgsave_picture_183085.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ magnet:?xt=urn:btih:C2A66495A03DC08C85509FAACFBC77740C3C14AD
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183087.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183087.jpgsave_picture_183087.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ magnet:?xt=urn:btih:02AB56194093DA8D03D785F8F67707BE3F75E98E
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183088.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183088.jpgsave_picture_183088.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ C.C. Catch - Super Disco Hits (1994) [OGG Vorbis|480 Kbps] <Electronic, Disco, S
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183091.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183091.jpgsave_picture_183091.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ magnet:?xt=urn:btih:C6D413E8A5988923C905EA4B4BFF7907B1011952
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_183092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183092.jpgsave_picture_183092.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ Kiss - Jersey City 1976 (2023) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183093.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183093.jpgsave_picture_183093.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ magnet:?xt=urn:btih:E3D29CC0CD59844D2183B1DB40EAD10E124ECF8F
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183095.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183095.jpgsave_picture_183095.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ AAF DCH Optimus Sound 6.0.9066.1 Realtek Mod by AlanFinotty1995 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_183097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183097.jpgsave_picture_183097.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ The Hatters - По ходу люблю (2023) Полная версия [MP3|320
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183098.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183098.jpgsave_picture_183098.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ VA - SFR Best Remixes 2022 [MP3|320 Kbps] <Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183101.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183101.jpgsave_picture_183101.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Sade - Diamond Life (1984) Epic CD 26044 [FLAC|Lossless|image + .cue]< Sophisti-
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_183102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183102.jpgsave_picture_183102.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ magnet:?xt=urn:btih:59B53123FDFE2394FF0D92FC9E99CF7C5745C07C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183103.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183103.jpgsave_picture_183103.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ magnet:?xt=urn:btih:1B460813FA6D47DD300C1B7F40F498EC4B1EA968
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183106.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183106.jpgsave_picture_183106.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ magnet:?xt=urn:btih:FC4F9464AF67096A68BB955F77C94865B6386D36
 >>История
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183107.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183107.jpgsave_picture_183107.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Microsoft Visual Studio 2019 Enterprise 16.7.7 (Offline Cache, Unofficial) [Ru/E
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_183108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183108.jpgsave_picture_183108.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ magnet:?xt=urn:btih:497432CC81259B4CCE93D7318B81267006F73928
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_183110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183110.jpgsave_picture_183110.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ magnet:?xt=urn:btih:1648B555723D28A0B290DB8E0308BF601C5658DA
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183111.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183111.jpgsave_picture_183111.jpg" />
 </div>
 
 

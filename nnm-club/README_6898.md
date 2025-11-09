@@ -6,7 +6,7 @@ doPDF 11.8.411 Free [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236930.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236930.jpgsave_picture_236930.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ TaskPaper 3.8.16 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236931.jpgsave_picture_236931.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:6E0D4BCE068CBD5F43B4E0EABE4D78C0D17D94F4
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236933.jpgsave_picture_236933.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ magnet:?xt=urn:btih:5762BDDA4EDD1EAD98FB9AFE9EDDE8FEBDB5034F
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236935.jpgsave_picture_236935.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ magnet:?xt=urn:btih:A4CD3B59F553C9BA3C601DB7DCC3049010BBAA56
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236937.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236937.jpgsave_picture_236937.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ magnet:?xt=urn:btih:D6861BB78DFCCF3D5E3B55660AE1DED6EE963EED
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236941.jpgsave_picture_236941.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ magnet:?xt=urn:btih:40E61CB7183E02A227E4B7E97E2CAB6BFDB115FD
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236942.jpgsave_picture_236942.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ Multitouch 1.24.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236944.jpgsave_picture_236944.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ Black Reflex - Black Reflex (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, F
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236945.jpgsave_picture_236945.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ magnet:?xt=urn:btih:09FC34F6867F1D4A9920B8146D3BDD719691243D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236949.jpgsave_picture_236949.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ magnet:?xt=urn:btih:DA335964EE0533073F7E55C4988C92CC53B1C598
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236951.jpgsave_picture_236951.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ Hex A.D. - Funeral Tango for Gods & Men (2021) [FLAC|Lossless|WEB-DL|tracks] <Pr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236953.jpgsave_picture_236953.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ magnet:?xt=urn:btih:488FF4A79557868747B18837F7A914B86444B86D
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236957.jpgsave_picture_236957.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Tom Harrell - Moving Picture (2017) HighNote [FLAC|Lossless|tracks + .cue] <Post
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236960.jpgsave_picture_236960.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ magnet:?xt=urn:btih:7B80DE17D572B22B448266DD685B9A644E7E50EC
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236966.jpgsave_picture_236966.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ VA - Hit - List Vol 20 (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236967.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236967.jpgsave_picture_236967.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Chris Standring - The Lovers Remix Collection (2023) [FLAC|Lossless|WEB-DL|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236972.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236972.jpgsave_picture_236972.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ magnet:?xt=urn:btih:5AAD6CD3F1E8BFD6C5897E33B48FF6ADFE6A1557
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236973.jpgsave_picture_236973.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ VA - Rock Festival 2023 (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236978.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236978.jpgsave_picture_236978.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ Winstep Nexus Ultimate 20.10 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236980.jpgsave_picture_236980.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ VA - Running - Retro Rock Mix - You Can Do This! (2023) [FLAC|Lossless|WEB-DL|tr
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236982.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236982.jpgsave_picture_236982.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ magnet:?xt=urn:btih:7E02309F7D7EAC03D45E04AD7D2EB5FEACA2034C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236984.jpgsave_picture_236984.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ magnet:?xt=urn:btih:253E4179FA9CB76DC8C86312816DA9E558CCFB49
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236988.jpgsave_picture_236988.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ magnet:?xt=urn:btih:B122B4A03BA96CC756DF0D4BFB9B1E120B5F3715
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236990.jpgsave_picture_236990.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Max Enix - Far From Home (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic, Progre
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236991.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236991.jpgsave_picture_236991.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ magnet:?xt=urn:btih:76E8F7FE65AA81D20E255B4FCF46910E9C5E563D
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236995.jpgsave_picture_236995.jpg" />
 </div>
 
 

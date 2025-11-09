@@ -6,7 +6,7 @@
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174796.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174796.jpgsave_picture_174796.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:E32C0CAC70B270CC7ADB20204458D7FCDBB64689
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174798.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174798.jpgsave_picture_174798.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:C743E015E807F2D178DB8450908B7306A8E313F5
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174801.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174801.jpgsave_picture_174801.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ HoudahGeo 6 v.6.4.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174802.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174802.jpgsave_picture_174802.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ BlueStacks App Player 4.240.30.1002 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174803.jpgsave_picture_174803.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:3B68AED4A1E40049B2ECAFA83ECAA494289FB7D8
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174805.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174805.jpgsave_picture_174805.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Mimestream 1.1.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174806.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174806.jpgsave_picture_174806.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:CFA73C109E9ADA523FB4A494AAAA10F8CDA9C866
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174807.jpgsave_picture_174807.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:AA833D0D69F5AD6787DB4D2F22210B797DBF612E
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174809.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174809.jpgsave_picture_174809.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Vellum 3.5.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174810.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174810.jpgsave_picture_174810.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:A7CB239654BBB6E23A7EBA0304FE52A58E2F6714
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174811.jpgsave_picture_174811.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Microsoft Edge 108.0.1462.42 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174813.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174813.jpgsave_picture_174813.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Fork 2.34 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174814.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174814.jpgsave_picture_174814.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ MAGIX SOUND FORGE Audio Cleaning Lab 3 25.0.0.43 (x64) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174815.jpgsave_picture_174815.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ King Ov Wyrms - The Womb Ov Borealis (2023) [FLAC|Lossless|WEB-DL|tracks] <Death
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174817.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174817.jpgsave_picture_174817.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ BBC. Параллельные Вселенные / BBC: Parallel Universes (2002
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174818.jpgsave_picture_174818.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ A Better Finder Rename 12 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174820.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174820.jpgsave_picture_174820.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ magnet:?xt=urn:btih:16C2F35DB138661466FEFF6E0B791669DD326D76
 >>Ходячие мертвецы / The Walking Dead; Бойтесь ходячих мертвецов / Fear the Walking Dead
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174821.jpgsave_picture_174821.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ OmniFocus Pro 3.15 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174823.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174823.jpgsave_picture_174823.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ magnet:?xt=urn:btih:34A8270ED7DFB717F20F7EAD094A685B583A92B5
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174825.jpgsave_picture_174825.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ SpamSieve 3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174826.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174826.jpgsave_picture_174826.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ File List Export 2.8.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174828.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174828.jpgsave_picture_174828.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Isekai Maou to Shoukan Shoujo Dorei Majutsu | How NOT to Summon a Demon Lord | �
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174829.jpgsave_picture_174829.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Dato 5.1.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174832.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174832.jpgsave_picture_174832.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ magnet:?xt=urn:btih:59B926B68A6EBF3CAAD67F5D3EE6E50FD71FF448
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174833.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174833.jpgsave_picture_174833.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ Tong Ling Fei | Имперская наложница | Принцесса-ме�
 >>Аниме хардсаб
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174834.jpgsave_picture_174834.jpg" />
 </div>
 
 

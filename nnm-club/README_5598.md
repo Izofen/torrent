@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172540.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172540.jpgsave_picture_172540.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:64D95F888CFE5BAD6B865FCBD30DA6C0A724E0EB
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172541.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172541.jpgsave_picture_172541.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:5124E01782E4C01E00B99BD803EC7D68E30054A6
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172542.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172542.jpgsave_picture_172542.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:7031F7FEF1E2AEEBDDC2C0932A46078204F183CE
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172543.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172543.jpgsave_picture_172543.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:FDB676E2F746C77A739FED462A992F48A35B80AB
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172544.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172544.jpgsave_picture_172544.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ Adobe Illustrator for Mac 2024 v.28
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172545.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172545.jpgsave_picture_172545.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ magnet:?xt=urn:btih:960FAA08459CD832C9CA0BE131C558CDA8F0887E
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172546.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172546.jpgsave_picture_172546.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ Adobe Lightroom Classic for Mac 13.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172547.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172547.jpgsave_picture_172547.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:B80FEDBB266645835516D021E88538A234454EAF
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172548.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172548.jpgsave_picture_172548.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ Windows Server 2022 LTSC, Version 21H2 Build 20348.2031 (Updated October 2023) -
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172549.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172549.jpgsave_picture_172549.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:221EF143001556763D315B4A4760CAE8C2ED27AB
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172550.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172550.jpgsave_picture_172550.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Adobe InDesign 2024 v.19.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172551.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172551.jpgsave_picture_172551.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ magnet:?xt=urn:btih:243BCC4246C348485F6C6B0B64CFBBA557B9E458
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172552.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172552.jpgsave_picture_172552.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Adobe Acrobat Reader 2023.006.20360.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172553.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172553.jpgsave_picture_172553.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ VirtualBox 7.0.12 Build 159484 + Extension Pack [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172554.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172554.jpgsave_picture_172554.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ magnet:?xt=urn:btih:4195B46BB1CF650CFBA804E4DE9E00C2A42022EE
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172555.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172555.jpgsave_picture_172555.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ magnet:?xt=urn:btih:FC2A31173428978897A8294DFF55270D724603BB
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172556.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172556.jpgsave_picture_172556.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ magnet:?xt=urn:btih:6623A7BB2221EEFBBA7B93CF686F68BBA778CAE9
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172557.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172557.jpgsave_picture_172557.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ SovaFilm, Игорь Пелинский | Худеем с умом! Меню д�
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172558.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172558.jpgsave_picture_172558.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Vaskaran Sarcar | Introducing Functional Programming Using C# (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172559.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172559.jpgsave_picture_172559.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ magnet:?xt=urn:btih:FEE88DD53DE290E50ABDE390B8C1EEE03CD63E21
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172560.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172560.jpgsave_picture_172560.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ magnet:?xt=urn:btih:FEE88DD53DE290E50ABDE390B8C1EEE03CD63E21
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172561.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172561.jpgsave_picture_172561.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ magnet:?xt=urn:btih:B4AC9A16CFB7F0E66D35B26CE98EF9052EC7187A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172562.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172562.jpgsave_picture_172562.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Microsoft Windows 10.0.19045.3570, Version 22H2 (Updated October 2023) - Ори�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172563.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172563.jpgsave_picture_172563.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Imagenomic Portraiture for Photoshop for PC 4.1.2 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172564.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172564.jpgsave_picture_172564.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ magnet:?xt=urn:btih:F09FAE041EBB424FA23BFA440EF9D04A94A9EB71
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172565.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172565.jpgsave_picture_172565.jpg" />
 </div>
 
 

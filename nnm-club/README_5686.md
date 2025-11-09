@@ -6,7 +6,7 @@ Dark Reader for Safari 1.4.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175152.jpgsave_picture_175152.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Twinkle Tray 1.16.0 BETA4 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175154.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175154.jpgsave_picture_175154.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Rain - Singularity (2020) [FLAC|Lossless|tracks + .cue] <Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175155.jpgsave_picture_175155.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:89F7FF38D573C863227D6604677E9DD276EAAD75
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175157.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175157.jpgsave_picture_175157.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ Oceans Of Slumber - Oceans Of Slumber (2020) [FLAC|Lossless|image + .cue] <Progr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175158.jpgsave_picture_175158.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ George Coleman - The Quartet (2019) Smoke Sessions Records [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175159.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175159.jpgsave_picture_175159.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ Mephistopheles - Songs Of The Desolate Ones (1999) [FLAC|Lossless|image + .cue] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175161.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175161.jpgsave_picture_175161.jpg" />
 </div>
 
 
@@ -187,7 +187,7 @@ AYVY 1.7.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175162.jpgsave_picture_175162.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ magnet:?xt=urn:btih:D3160F13F8324CECDD6A008A94CE444423BBCEC0
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175163.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175163.jpgsave_picture_175163.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ VA - The R&B and SOUL Room (2020) [FLAC|Lossless|WEB-DL|tracks] <Soul, Funk, R&B
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175165.jpgsave_picture_175165.jpg" />
 </div>
 
 
@@ -262,7 +262,7 @@ Meteora - Our Paradise (2017) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175166.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175166.jpgsave_picture_175166.jpg" />
 </div>
 
 
@@ -289,7 +289,7 @@ magnet:?xt=urn:btih:11988D5F2ACD082931F989ECC062DF55187AA690
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175167.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175167.jpgsave_picture_175167.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ Opera One 103.0.4928.26 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175169.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175169.jpgsave_picture_175169.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ magnet:?xt=urn:btih:7145BF942C12FB0412524255987CB81D9975B298
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175170.jpgsave_picture_175170.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ Hazel Scott - 1939 - 1945 (2003) Classics [FLAC|Lossless|tracks + .cue] <Swing, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175171.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175171.jpgsave_picture_175171.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ magnet:?xt=urn:btih:37BA7D0E6C94F8381C2854E304815AEE96039FC9
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175173.jpgsave_picture_175173.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ RarmaRadio Pro 2.75.4 RePack (& Portable) by TryRooM [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175174.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175174.jpgsave_picture_175174.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ magnet:?xt=urn:btih:0B34B51310812E3B70FD84DA30B81F4F98BE8C36
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175175.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175175.jpgsave_picture_175175.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ VA - Best of Smooth Lounge, Vol. 1 (A Finest Selection of Chill & Modern Bar Tra
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175176.jpgsave_picture_175176.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Moon Shepherd - Between The Circles (2022) [Mp3|320kbps] <Heavy, Stoner Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175177.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175177.jpgsave_picture_175177.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ VA - Beatport Tech House: Electro Sound Pack #205 (2020) [MP3|320 Kbps] <Edm, Te
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175178.jpgsave_picture_175178.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Bark - Rambler of Aeons (2022) [FLAC|Lossless|WEB-DL|tracks] <Groove Metal, Deat
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175179.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175179.jpgsave_picture_175179.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Pale King - We Are but Memories (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic De
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175180.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175180.jpgsave_picture_175180.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ magnet:?xt=urn:btih:37EDB540283508AF93DB5BDE0D413AC113356B1E
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175181.jpgsave_picture_175181.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ The Thanatonauts - Зов (2022) [FLAC|Lossless|WEB-DL|tracks] <Post Metal, Alte
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175182.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175182.jpgsave_picture_175182.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ Mephistopheles - Landscape Symphonies (1997) [FLAC|Lossless|image + .cue] <Melod
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175183.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175183.jpgsave_picture_175183.jpg" />
 </div>
 
 

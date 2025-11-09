@@ -6,7 +6,7 @@ Pathen X - Pay (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101477.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101477.jpgsave_picture_101477.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Jola Recchioni - Gone To Find My Blues (2024) [FLAC 24/48|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101478.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101478.jpgsave_picture_101478.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Slears - The Chaos Within (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101479.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101479.jpgsave_picture_101479.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Action Fire - Until The Heat Dies (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Me
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101480.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101480.jpgsave_picture_101480.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Grant Sabin - Work (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101481.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101481.jpgsave_picture_101481.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Ice Exiled - Reset the Sky (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy M
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101482.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101482.jpgsave_picture_101482.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Booker Little - Booker Little (1960) 2017, Solid Records [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101483.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101483.jpgsave_picture_101483.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Nat Adderley Sextet - Autumn Leaves: Live At Sweet Basil (1990) 1994, Evidence [
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101484.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101484.jpgsave_picture_101484.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:1936E56979FFDA637CFE548AF52FB768BB9CE68A
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101485.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101485.jpgsave_picture_101485.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ magnet:?xt=urn:btih:8C60C021C167B3A5E589736783922E9FD09BAF57
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101486.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101486.jpgsave_picture_101486.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Neon Rider - Destination Unknown (2024) [FLAC|Lossless|image + .cue] <Melodic Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101487.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101487.jpgsave_picture_101487.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ magnet:?xt=urn:btih:F8040530D5F9D15EE86256BD926403749D6011E7
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101488.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101488.jpgsave_picture_101488.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Cory Marks - Sorry For Nothing (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101489.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101489.jpgsave_picture_101489.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Whiskey Nips - Whiskey Nips (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101490.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101490.jpgsave_picture_101490.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ VA - Redux Selection Vol. 12 (2024) [MP3|320 Kbps] <Trance, Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101491.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101491.jpgsave_picture_101491.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ Apollo Brown & CRIMEAPPLE - This, Is Not That (2024) [FLAC|Lossless|Web-DL|track
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101492.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101492.jpgsave_picture_101492.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ Herm Solo and the Prompts - Düsterherz (2024) [FLAC 24/48|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101493.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101493.jpgsave_picture_101493.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ magnet:?xt=urn:btih:226497EAABBF6483460EC4FDEC3399EBE70A93EC
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101494.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101494.jpgsave_picture_101494.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ Holler - Reborn (2024) [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101495.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101495.jpgsave_picture_101495.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ magnet:?xt=urn:btih:ACE78CEEDE7FF2D427296127112311FA01D183EB
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101496.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101496.jpgsave_picture_101496.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ magnet:?xt=urn:btih:E3C424FA3EDD5C7E8EAB62DC3BE492BF5103E901
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101497.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101497.jpgsave_picture_101497.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Ella Fitzgerald - Ken Burns Jazz (2000) CD, Compilation, Club Edition [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101498.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101498.jpgsave_picture_101498.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Jill Scott - Beautifully Human: Words and Sounds, Vol. 2 (2004) [FLAC|Lossless|t
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101499.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101499.jpgsave_picture_101499.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ magnet:?xt=urn:btih:CC5D6BD0E625CC5942323205A1F36001A80B32E1
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101500.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101500.jpgsave_picture_101500.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ magnet:?xt=urn:btih:BDCFAE398EF748E77AE2050B55968C56DCD7B5C4
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101501.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101501.jpgsave_picture_101501.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ Jacqueline Tabor feat. Michael Underwood & Jeremy Boettcher - All Shades of Blue
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101502.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101502.jpgsave_picture_101502.jpg" />
 </div>
 
 

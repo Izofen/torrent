@@ -6,7 +6,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210320.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210320.jpgsave_picture_210320.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Moviebase Premium 4.0.6 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210325.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210325.jpgsave_picture_210325.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ dict.cc+ Wörterbuch 11.0.5 [Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210328.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210328.jpgsave_picture_210328.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:A7E4991B0A91EF792B4E060C9EBF8DA2BA5DE59C
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210329.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210329.jpgsave_picture_210329.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:5426DA52CB519C9915D7E06D2288C85CA67DC717
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210332.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210332.jpgsave_picture_210332.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:321F4B5A76C0C814F580461C995A11E6209E07B2
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210334.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210334.jpgsave_picture_210334.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ Mullvad Browser 12.5 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210338.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210338.jpgsave_picture_210338.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ Mirillis Action! 4.33.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210339.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210339.jpgsave_picture_210339.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ magnet:?xt=urn:btih:BEAC12A09A7140572146F2338FA70CFA5B501F2C
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210341.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210341.jpgsave_picture_210341.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ Photomath Plus 8.25.0 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210343.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210343.jpgsave_picture_210343.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ Wondershare UniConverter for Mac 14.2.17 ARM/Intel [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210344.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210344.jpgsave_picture_210344.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ Ultra GPS Logger 3.188 Mod by Balatan [Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210346.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210346.jpgsave_picture_210346.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:83B17D5781217B196CABF318B120677C22F7D2F8
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210348.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210348.jpgsave_picture_210348.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ VA - Sax & Romance (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210350.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210350.jpgsave_picture_210350.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ TechSmith Camtasia 2023 Studio 2023.1.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210352.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210352.jpgsave_picture_210352.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Keka 1.3.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210354.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210354.jpgsave_picture_210354.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ VA - Summer Party 2023 [MP3|320 Kbps] <House, Deep House, Dance, Club>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210358.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210358.jpgsave_picture_210358.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ GeoGebra 6.0.785.0 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210359.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210359.jpgsave_picture_210359.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ magnet:?xt=urn:btih:48B94F95F684A0606EECE3F7E78A7F5C17CBCF04
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210362.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210362.jpgsave_picture_210362.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ VA - Vocal Trance: London (2023) [MP3|320 Kbps] <Trance, Vocal Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210364.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210364.jpgsave_picture_210364.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ VA - Fall in Love this Summer (2023) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210367.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210367.jpgsave_picture_210367.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Path Finder 2156 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210370.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210370.jpgsave_picture_210370.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Dexter Gordon Quartet - Swiss Nights, Vol. 1 (1975) 1987, SteepleChase [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210371.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210371.jpgsave_picture_210371.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ X Lossless Decoder XLD 20230627 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210372.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210372.jpgsave_picture_210372.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Element Eighty - A.D. (2023) [FLAC|Lossless|WEB-DL|tracks] <Alt. Metal, Nu Metal
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210373.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210373.jpgsave_picture_210373.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ MediaInfo 23.06 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210376.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210376.jpgsave_picture_210376.jpg" />
 </div>
 
 

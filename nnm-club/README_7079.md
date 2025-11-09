@@ -6,7 +6,7 @@ Geekbench 6.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242331.jpgsave_picture_242331.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:FE79E901BE59BDC2F75FDA1F0B6B2769FB584382
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242333.jpgsave_picture_242333.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:6DC0E2BE920F912A6A5BAF0286C286DCF8E29E60
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242334.jpgsave_picture_242334.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:C1E9793F8B7B7C8EB5B594B45DF4B4DA33F3833D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242335.jpgsave_picture_242335.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:64F0B09C425B2DAC7D42D4813B82C23960D8683C
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242336.jpgsave_picture_242336.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ Sortilege - Apocalypso (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242338.jpgsave_picture_242338.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ magnet:?xt=urn:btih:4A2BF1A5ED3575D313F811713AF473125FF7128A
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242339.jpgsave_picture_242339.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ magnet:?xt=urn:btih:65141CF47950C63FAC94D35B36EAB6294C5A90E5
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242340.jpgsave_picture_242340.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ Blacktop Deluxe - 2 Album (2014 -2015) [FLAC|Lossless|WEB-DL|tracks + .cue] <Blu
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242341.jpgsave_picture_242341.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ Chromium 112.0.5615.50 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242342.jpgsave_picture_242342.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ magnet:?xt=urn:btih:C4BDC0D0E1F121167834989BF45CA2269E8DD071
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242344.jpgsave_picture_242344.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ magnet:?xt=urn:btih:92D838108E43C3C2862E6F2B2BC8545A77868FED
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242345.jpgsave_picture_242345.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ Various Artists - Чёрная кошка 1-2  (1999) [FLAC|Lossless|tracks + .c
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242346.jpgsave_picture_242346.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ magnet:?xt=urn:btih:B752AAD1F428FA81746E2FD676736E908872C37A
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242347.jpgsave_picture_242347.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Mordacious + Malicious (EDM Project) - Discography 22 Releases (2005-2022) [MP3|
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242350.jpgsave_picture_242350.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ magnet:?xt=urn:btih:205C945EF3386D9A71D7B71D7FC927BF65A98651
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242351.jpgsave_picture_242351.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ magnet:?xt=urn:btih:17332C3292890C99B98F305C91686466968CB40D
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242352.jpgsave_picture_242352.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ magnet:?xt=urn:btih:B1C9988DED8B1C602096CCFABB6A06D9E578087A
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242353.jpgsave_picture_242353.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ VA - Finish Line - Just Rock (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242354.jpgsave_picture_242354.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ magnet:?xt=urn:btih:A228E6579EF7DC330F2107EC8C9FF64731C5656F
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242355.jpgsave_picture_242355.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ PDF Shaper Professional 13.2 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242356.jpgsave_picture_242356.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ magnet:?xt=urn:btih:C3BE1AA771CF6AFEB6275C9FDEF35255800FD998
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242357.jpgsave_picture_242357.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ magnet:?xt=urn:btih:D9E81917F1A2FC3E9986B4CFD77B4BA3BD667F90
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242358.jpgsave_picture_242358.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Piriform Utilities Pro (Defraggler 2.22.995, Recuva 1.53.2078, Speccy 1.32.774) 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242359.jpgsave_picture_242359.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ magnet:?xt=urn:btih:C99CD7ADDB6979E8C2291887436E453C954C6226
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242360.jpgsave_picture_242360.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ SQLPro for SQLite 2022.27 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242361.jpgsave_picture_242361.jpg" />
 </div>
 
 

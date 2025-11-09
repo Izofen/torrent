@@ -6,7 +6,7 @@
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184170.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184170.jpgsave_picture_184170.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:5A774BFCFBB85E46194FC4B95BA2E3F73A30ED9F
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184171.jpgsave_picture_184171.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ magnet:?xt=urn:btih:DCFE5A829FBDF5B209394E124B8E47BD933207E3
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184172.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184172.jpgsave_picture_184172.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ Opera 72.0.3815.400 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184175.jpgsave_picture_184175.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:EEB188BB4D2131718495EFC13179327872F8DEE5
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184176.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184176.jpgsave_picture_184176.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ Undead Girl Murder Farce | Фарс убитой нежити [2023, TV, 13 эп
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184177.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184177.jpgsave_picture_184177.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:EFB10DA3BF40A7436442168168BE1873F607FA96
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184180.jpgsave_picture_184180.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ Windows 11 (v22h2) x64 HSL/PRO by KulHunter v6 (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_184181.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_184181.jpgsave_picture_184181.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ KingStation 0.2a [x86-64]
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184182.jpgsave_picture_184182.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ magnet:?xt=urn:btih:811A97928771197F6CC0BFA006F99A33694F3DE8
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184184.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184184.jpgsave_picture_184184.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ magnet:?xt=urn:btih:A175F98FFD8DC5B7C5570080349B105F8117464A
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184185.jpgsave_picture_184185.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ Suki na Ko ga Megane o Wasureta | The Girl I Like Forgot Her Glasses | Моя в
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184187.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184187.jpgsave_picture_184187.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:0F192C35FBE2426A1F06BF104DE933FBC1BF5628
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184190.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184190.jpgsave_picture_184190.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ magnet:?xt=urn:btih:C287F585F5FB1BD95ED8CA9FA635AA961EF398AE
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184191.jpgsave_picture_184191.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Niehime to Kemono no Ou | Sacrificial Princess and the King of Beasts | Жерт
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184192.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184192.jpgsave_picture_184192.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ VA - Trance 2021 (2020) [MP3|320 Kbps] <Trance, Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184194.jpgsave_picture_184194.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ PotPlayer 230905 (1.7.21999) (x64) Stable RePack (& portable) by 7sh3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184196.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184196.jpgsave_picture_184196.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ magnet:?xt=urn:btih:95D894A8414E67F6AB7E359AA2068953F0E27D70
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184197.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184197.jpgsave_picture_184197.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Google Earth Pro 7.3.6.9264 (x64) Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184200.jpgsave_picture_184200.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ John’s Background Switcher 5.2.0.9 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184201.jpgsave_picture_184201.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ magnet:?xt=urn:btih:2AEB1306853F9D07913D2626BE3E93902923A744
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184202.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184202.jpgsave_picture_184202.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ magnet:?xt=urn:btih:983D46AA758B7982B2358EDB3247BA6DF275CE5F
 >>Футбол
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184204.jpgsave_picture_184204.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ magnet:?xt=urn:btih:8BFA6A69ED61613DF1AB172B09406BBFCBE41B46
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184206.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184206.jpgsave_picture_184206.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ magnet:?xt=urn:btih:BEBE5DAC907EA318CA84420A06B272F81A6DA154
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_184207.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_184207.jpgsave_picture_184207.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ Google Earth Pro 7.3.6.9285 (x64) Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184211.jpgsave_picture_184211.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ VA - Pop Legends (All Time Pop Classics) (2020) [FLAC|Lossless|WEB-DL|tracks] <P
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184212.jpgsave_picture_184212.jpg" />
 </div>
 
 

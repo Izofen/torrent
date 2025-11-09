@@ -6,7 +6,7 @@ Cronos: The New Dawn (2025) [Ru/Multi] (20250908/dlc) Repack Wanterlude
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2704.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2704.jpgsave_picture_2704.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Dead Reset (2025) [Ru/Multi] (1.0.2) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2717.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2717.jpgsave_picture_2717.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Antioma (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2820.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2820.jpgsave_picture_2820.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Infestation: Origins (2024) [Ru/Multi] (1.0.1) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2822.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2822.jpgsave_picture_2822.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Gloomy Eyes (2025) [Multi] (1.0.0) License GOG
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2837.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2837.jpgsave_picture_2837.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Hollow Knight: Silksong (2025) [Ru/Multi] (1.0.28561) Repack Other s
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2839.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2839.jpgsave_picture_2839.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Shape of Dreams (2025) [Ru/Multi] (1.0.0.RC12 s) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3002.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3002.jpgsave_picture_3002.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Shape of Dreams (2025) [Ru/Multi] (build 19939749) Repack seleZen
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3041.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3041.jpgsave_picture_3041.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Adventure of Samsara (2025) [Multi] (1.0.10) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3252.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3252.jpgsave_picture_3252.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Otherskin (2025) [Ru/Multi] (Build 19817814) Repack seleZen
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3265.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3265.jpgsave_picture_3265.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Cronos: The New Dawn (2025) [Ru/Multi] (6.0.0/dlc) License GOG [Deluxe Edition]
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3421.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3421.jpgsave_picture_3421.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Mortal Sin (2025) [Ru/Multi] (1.0 HF1) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3527.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3527.jpgsave_picture_3527.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Metal Eden (2025) [Ru/Multi] (1.01) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3545.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3545.jpgsave_picture_3545.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Sword of the Sea (2025) [Ru/Multi] (build 19645438) Repack seleZen
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3928.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3928.jpgsave_picture_3928.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Sword of the Sea (2025) [Ru/Multi] (build 19645438) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3978.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3978.jpgsave_picture_3978.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Daemon X Machina: Titanic Scion (2025) [Ru/Multi] (1.0.3/dlc) Repack Let'sРlay 
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4000.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4000.jpgsave_picture_4000.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ The Rogue Prince of Persia (2024) [Ru/Multi] (1.0.2) Repack seleZen
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4171.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4171.jpgsave_picture_4171.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ The Rogue Prince of Persia (2024) [Ru/Multi] (1.0.2) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4213.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4213.jpgsave_picture_4213.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ KELDER (2025) [Ru/Multi] (1.0.4) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4222.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4222.jpgsave_picture_4222.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Hollow Knight: Silksong (2025) [Ru/Multi] (1.0.28324) Repack seleZen
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4302.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4302.jpgsave_picture_4302.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Cronos: The New Dawn (2025) [Ru/Multi] (20250831/dlc) Repack FitGirl [Deluxe Edi
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4342.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4342.jpgsave_picture_4342.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ KELDER (2025) [Ru/Multi] (1.0) Scene DOGE
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4352.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4352.jpgsave_picture_4352.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Hollow Knight: Silksong (2025) [Ru/Multi] (1.0.28324) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4357.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4357.jpgsave_picture_4357.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Jotunnslayer: Hordes of Hel (2025) [Ru/Multi] (1.0.0.87547) License GOG [Collect
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4376.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4376.jpgsave_picture_4376.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Hollow Knight Silksong (2025) [Ru/Multi] (1.0.28324) Scene FairLight
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4451.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4451.jpgsave_picture_4451.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Cronos: The New Dawn (2025) [Ru/Multi] (20250831_2044-321866/dlc) Repack Decepti
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4466.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4466.jpgsave_picture_4466.jpg" />
 </div>
 
 

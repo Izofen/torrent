@@ -6,7 +6,7 @@ Tablacus Explorer 24.6.21 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107643.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107643.jpgsave_picture_107643.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:7036D9FDC0D3EF5A7308DA64FAFEA16F286520AD
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107644.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107644.jpgsave_picture_107644.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:C3C81A01226C62E59B23BC27A46E36E2BE9573F6
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107645.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107645.jpgsave_picture_107645.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:C3C81A01226C62E59B23BC27A46E36E2BE9573F6
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107646.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107646.jpgsave_picture_107646.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:F3846A5A6327CEA24ABB2F76DC2394DC59557E4E
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107647.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107647.jpgsave_picture_107647.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ Bootleg Contraband - Mars Colony (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <i
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107648.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107648.jpgsave_picture_107648.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ Kryder - We Rave You Presents Hot & Current #21 (2024-06-06) [MP3|320 Kbps] <Pro
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107649.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107649.jpgsave_picture_107649.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ Ervin Pope - Anomaly (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107650.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107650.jpgsave_picture_107650.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ John Klemmer - Chateau Love (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107651.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107651.jpgsave_picture_107651.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Bill Banfield - Hybridity (2024) [FLAC|Lossless|WEB-DL|tracks] <Contemporary Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107652.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107652.jpgsave_picture_107652.jpg" />
 </div>
 
 
@@ -265,7 +265,7 @@ Christian Galvez - LEVE (2024) [FLAC|Lossless|WEB-DL|tracks] <Contemporary Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107653.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107653.jpgsave_picture_107653.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Jimmy Haslip, Kevin Crockett & Richard D. Ruttenberg - Cold Fusion (2024) [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107654.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107654.jpgsave_picture_107654.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Sonny Rollins - Silver City: A Celebration Of 25 Years On Milestone (1972 - 1995
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107655.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107655.jpgsave_picture_107655.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Malignancy - Eugenics (2012) [FLAC|Lossless|image + .cue] <Brutal Technical Deat
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107656.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107656.jpgsave_picture_107656.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Membaris - Poetry of Chaos (2004) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107657.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107657.jpgsave_picture_107657.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Malignancy - Intrauterine Cannibalism (1999) [FLAC|Lossless|image + .cue] <Bruta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107658.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107658.jpgsave_picture_107658.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Another 247 Production and Dayrod - Blast (2024) [FLAC|Lossless|WEB-DL|tracks] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107659.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107659.jpgsave_picture_107659.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Malignancy - Ignorance Is Bliss (2001) Compilation [FLAC|Lossless|image + .cue] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107660.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107660.jpgsave_picture_107660.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Seven Spires - A Fortress Called Home (2024) [FLAC|Lossless|WEB-DL|tracks] <Symp
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107661.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107661.jpgsave_picture_107661.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ Speedtest от Ookla 5.4.3 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107662.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107662.jpgsave_picture_107662.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ magnet:?xt=urn:btih:0A3D4EF9ADA13E532E8D55B6F15327D5000A9F27
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107663.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107663.jpgsave_picture_107663.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Topaz Gigapixel AI 7.2.0 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107664.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107664.jpgsave_picture_107664.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ magnet:?xt=urn:btih:2A37E41D093C64BBE6FB1B2FED2EF3E651682A10
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107665.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107665.jpgsave_picture_107665.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Fresh & Lipps - Be My Lover 2012 (2012) [FLAC|Lossless|tracks] <Euro House, Deep
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107666.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107666.jpgsave_picture_107666.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ VA - Future Sounds Of Kraut, Vol. 2 - compiled by Fred und Luna (2024) [FLAC 24/
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107667.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107667.jpgsave_picture_107667.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ magnet:?xt=urn:btih:287DF90C9C03812ABC85EB0BFC95CB544B470BE7
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107668.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107668.jpgsave_picture_107668.jpg" />
 </div>
 
 

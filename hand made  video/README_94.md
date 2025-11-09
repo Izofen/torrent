@@ -6,7 +6,7 @@
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165800.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165800.jpgsave_picture_165800.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:7E24BE1A3C885BF0E0EB6C5EC04B75B6F5BC76A1
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165805.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165805.jpgsave_picture_165805.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:BDA84CBE294BB46A98BF0BE4F5EC14E8174552AD
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165874.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165874.jpgsave_picture_165874.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:D1213ED2488B256D1ACFD615071B326FB15607F5
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165917.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165917.jpgsave_picture_165917.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:4DD89A7E217A5DCFFED32ED882EC05A7478A34C9
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166290.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166290.jpgsave_picture_166290.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:52E2C15AAE96596827E7EAA043579DB71934B608
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166615.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166615.jpgsave_picture_166615.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:A2F5A6E2F6F7C32E76D99D2474EA3A15990BA96E
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167157.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167157.jpgsave_picture_167157.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:FDBFED94655546A44F8C5F3DBB703208DF5E4136
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168518.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168518.jpgsave_picture_168518.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:0025311C5AE8E16196952DB465E4C48B8327F18C
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168754.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168754.jpgsave_picture_168754.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ magnet:?xt=urn:btih:CE35618096DBA65CF4A79F980D8C95206618B88C
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168858.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168858.jpgsave_picture_168858.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ magnet:?xt=urn:btih:FDA0FD33F8F06B64D0611C9FF4547DEFE3C0ABD5
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168914.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168914.jpgsave_picture_168914.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ magnet:?xt=urn:btih:4F5F63AABDE240DE1E4A1FCA1BBACDC3B5E12FB2
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168932.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168932.jpgsave_picture_168932.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ magnet:?xt=urn:btih:CA1DA8101FD1A542C167E561011EF763C15A122A
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169045.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169045.jpgsave_picture_169045.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ magnet:?xt=urn:btih:906E5A8597531F411098E253F304FEF11125C14A
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169466.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169466.jpgsave_picture_169466.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ magnet:?xt=urn:btih:CCDAE72031EEBB60B136A3EFA02A4DC9780A66C7
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169651.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169651.jpgsave_picture_169651.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ magnet:?xt=urn:btih:10718A6D9C891B661FA48276A7D5ADF0E40D4F07
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170750.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170750.jpgsave_picture_170750.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ magnet:?xt=urn:btih:D1FF9D7DAFDDB4A9B5FE90147C8705A72DD1199E
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170917.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170917.jpgsave_picture_170917.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ magnet:?xt=urn:btih:D132A629F7ADF88816AE518CC57605890E89E635
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171119.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171119.jpgsave_picture_171119.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ magnet:?xt=urn:btih:56550E6CECF7698B39E9EB8C2CD63456F42A2068
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171489.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171489.jpgsave_picture_171489.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ magnet:?xt=urn:btih:1F5E4AD83185EC3D6E75D01784AD373DB3E8C9CD
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171820.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171820.jpgsave_picture_171820.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ magnet:?xt=urn:btih:4F07DDAB8C10E0F9A6EA412BE23A1DB4C20A3439
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171989.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171989.jpgsave_picture_171989.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ magnet:?xt=urn:btih:E32A2A35299A741DA011D9E996FFE989799B5016
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172014.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172014.jpgsave_picture_172014.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ magnet:?xt=urn:btih:BD5849DED0C03BD828682E2386E79110FB9050E9
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172018.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172018.jpgsave_picture_172018.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ magnet:?xt=urn:btih:C290F20B60BB69345D6FFAF0CE8954C518A76B87
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172192.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172192.jpgsave_picture_172192.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ magnet:?xt=urn:btih:3C8D2A6796A67408DEA0D82E86A792A51C4B14BC
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172197.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172197.jpgsave_picture_172197.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ magnet:?xt=urn:btih:6815D3D14EDC108E1C2F070A3504693CF8506B67
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172232.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172232.jpgsave_picture_172232.jpg" />
 </div>
 
 

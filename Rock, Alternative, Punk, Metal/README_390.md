@@ -6,7 +6,7 @@ Purtenance - The Rot Within Us (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231564.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231564.jpgsave_picture_231564.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Purtenance - ...to Spread the Flame of Ancients (2015) [FLAC|Lossless|image + .c
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231570.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231570.jpgsave_picture_231570.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - Cottage Days (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231574.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231574.jpgsave_picture_231574.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Wasteland Clan - The End of Time (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic T
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231577.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231577.jpgsave_picture_231577.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Ruadh - Sovereign (2019) [FLAC|Lossless|image + .cue] <Atmospheric Folk, Black M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231579.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231579.jpgsave_picture_231579.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ The Luminary - Second Sleep (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231580.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231580.jpgsave_picture_231580.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Immortal Guardian - Psychosomatic (2021) [FLAC|Lossless|image + .cue] <Progressi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231581.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231581.jpgsave_picture_231581.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Veonity - Legend of the Starborn (2018) [FLAC|Lossless|image + .cue] <Power Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231586.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231586.jpgsave_picture_231586.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Rosicrucian - No Cause for Celebration (1994) Japanese Edition [FLAC|Lossless|im
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231587.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231587.jpgsave_picture_231587.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Order Of Decay - Mortification Rites (2023) [FLAC|Lossless|WEB-DL|tracks] <Death
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231593.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231593.jpgsave_picture_231593.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Unchosen Ones - Sorrow Turns to Dust (2023) [MP3|320 Kbps] <Melodic Heavy Metal,
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231597.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231597.jpgsave_picture_231597.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Ritual - Black Rain (2020) EP [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231599.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231599.jpgsave_picture_231599.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Sniff 'n' The Tears - Retrospective (1983) Reissue, 1985, PolyGram [FLAC|Lossles
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231603.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231603.jpgsave_picture_231603.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Vortesvin - The Beauty of Extinction (2023) [FLAC|Lossless|WEB-DL|tracks] <Death
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231606.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231606.jpgsave_picture_231606.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Induction - Induction (2019) Japanese Edition [FLAC|Lossless|image + .cue] <Symp
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231607.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231607.jpgsave_picture_231607.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Undead Killer - Killer Unleashed (2023) [MP3|320 Kbps] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231612.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231612.jpgsave_picture_231612.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Wake - Thought Form Descent (2022) [FLAC|Lossless|WEB-DL|tracks] <Black, Death M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231614.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231614.jpgsave_picture_231614.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Amorphis - Far From The Sun (2003) 2004, Album, Enhanced [FLAC|Lossless|image + 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231615.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231615.jpgsave_picture_231615.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Radiance - Корабли (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Meta
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231617.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231617.jpgsave_picture_231617.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Frenzy - Lethal Protector (2016) EP [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231622.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231622.jpgsave_picture_231622.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ VA - Cottage Brunch (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231625.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231625.jpgsave_picture_231625.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Grotesqueries - Vile Crematory (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231626.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231626.jpgsave_picture_231626.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Exilium Noctis - Fragments of Apocalypse (2022) [FLAC|Lossless|image + .cue] <Bl
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231632.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231632.jpgsave_picture_231632.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Matchbox Twenty - Where The Light Goes (2023) [FLAC 24/44.1|Lossless|WEB-DL|trac
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_231635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231635.jpgsave_picture_231635.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Tormentor / Kreator - Bonecrushing Demos & Rehearsals '84-85 (2023) Compilation,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231640.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231640.jpgsave_picture_231640.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Veilburner - Lurkers in the Capsule of Skull (2021) [FLAC|Lossless|WEB-DL|tracks
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231644.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231644.jpgsave_picture_231644.jpg" />
 </div>
 
 

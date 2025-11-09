@@ -6,7 +6,7 @@
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150086.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150086.jpgsave_picture_150086.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:6ACD941AF5A2A997BA17605388C91C9106142D7A
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150087.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150087.jpgsave_picture_150087.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:F9DD52266EAB715799879F2DA8D9CC88B17AE3FF
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150089.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150089.jpgsave_picture_150089.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:FCF5C57D022FDD2F111CA9EA7404FC49D56FF67D
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150091.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150091.jpgsave_picture_150091.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Deep Purple - Дип Пёрпл (Дым над водой) (1988) [FLAC 2.0 24/1
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150092.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150092.jpgsave_picture_150092.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:195A3BC481818EBF3B7F4BFA3BF1A17F279F3C27
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150093.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150093.jpgsave_picture_150093.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ Jahy-sama wa Kujikenai! | The Great Jahy Will Not Be Defeated! | Великая 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150094.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150094.jpgsave_picture_150094.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:A4C39B83540E8EA82350FD2367A491036A2A760F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150095.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150095.jpgsave_picture_150095.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ John Di Martino's Romantic Jazz Trio - Music Of The Night (2016) [MP3|320 Kbps] 
 >>Jazz
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150096.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150096.jpgsave_picture_150096.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ Wise JetSearch 3.16.154 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150097.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150097.jpgsave_picture_150097.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:E24F1A8260EA5EE67639796AE811F9837E70E700
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150099.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150099.jpgsave_picture_150099.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:D0529E36307F3F01EBFE30C60EE9B46055A14621
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150100.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150100.jpgsave_picture_150100.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ magnet:?xt=urn:btih:3C23F4A614BC6C24B7CC9D23342746B6B3D92B18
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150101.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150101.jpgsave_picture_150101.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ magnet:?xt=urn:btih:BFF0ACEA119C7B98CA42F41B6436CD6C4912526E
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150102.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150102.jpgsave_picture_150102.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ magnet:?xt=urn:btih:1B1E3AA52722A5CBC48ACBE0FFC30EF057500D42
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150103.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150103.jpgsave_picture_150103.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ magnet:?xt=urn:btih:1B1E3AA52722A5CBC48ACBE0FFC30EF057500D42
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150104.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150104.jpgsave_picture_150104.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ magnet:?xt=urn:btih:DE794285C23C59A8393D73C9948203316FD23F91
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150105.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150105.jpgsave_picture_150105.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ magnet:?xt=urn:btih:C6FC17B3745B27389D58B1DD054917DD0B1187FB
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150106.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150106.jpgsave_picture_150106.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ magnet:?xt=urn:btih:F193DB4FABB514AAA7C03AE4B15289E48A64D23A
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150107.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150107.jpgsave_picture_150107.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ magnet:?xt=urn:btih:CE931AFD69CC4F44E2AA71A1D60A7C6E5BC1EE01
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150108.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150108.jpgsave_picture_150108.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ magnet:?xt=urn:btih:2CD824ED84925D88E95508A1034CAD51A2020AE2
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150110.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150110.jpgsave_picture_150110.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Sekai Saikou no Ansatsusha, Isekai Kizoku ni Tensei Suru / Лучший в ми�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150111.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150111.jpgsave_picture_150111.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ SpongeBob SquarePants: Battle for Bikini Bottom - Rehydrated (2020) [Ru/Multi] (
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150113.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150113.jpgsave_picture_150113.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ magnet:?xt=urn:btih:709C77B599A95E3F01CBE0218DA6EF29529383B8
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150115.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150115.jpgsave_picture_150115.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ magnet:?xt=urn:btih:9ED1E35CF595393A6FF50F85BBED8A34681D15E6
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150116.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150116.jpgsave_picture_150116.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Rob Papen - RP-Delay 1.0.2c VST, AAX (x86/x64) RePack by VR [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150117.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150117.jpgsave_picture_150117.jpg" />
 </div>
 
 

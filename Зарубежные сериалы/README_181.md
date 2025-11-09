@@ -6,7 +6,7 @@
 >>Теория Большого Взрыва / The Big Bang Theory; Детство Шелдона / Young Sheldon
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246920.jpgsave_picture_246920.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:E90F498CD3FFA3FA2F59952877B9105D86EF693A
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246921.jpgsave_picture_246921.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:325C16CBFB9FDEE3363561F114EC016E1382D42F
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246930.jpgsave_picture_246930.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:7C0F64AD261B2F595716879FF34AC4F7005FD4A2
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246932.jpgsave_picture_246932.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:C705EBE8F5D975EFC415A891A865A22E92EBAA9B
 >>Теория Большого Взрыва / The Big Bang Theory; Детство Шелдона / Young Sheldon
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246941.jpgsave_picture_246941.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:19418DC386873ADB3721B2B3531A5D148C6C5EBA
 >>Менталист / The Mentalist; Теория Лжи / Lie To Me
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246948.jpgsave_picture_246948.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:31C8DF771579F0C2095CC49F9F6704DA4986164E
 >>Теория Большого Взрыва / The Big Bang Theory; Детство Шелдона / Young Sheldon
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246954.jpgsave_picture_246954.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:16B9CAC68EBCB98BAC5E0EDA8DD9DDD44422555D
 >>Кости / Bones
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246957.jpgsave_picture_246957.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:1B2A12069BE4E62E82E90D06B9D6D2F012030B9E
 >>Кости / Bones
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246959.jpgsave_picture_246959.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ magnet:?xt=urn:btih:534AAC78F0FDC6A4F957120394F6C948DB6EE086
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246972.jpgsave_picture_246972.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ magnet:?xt=urn:btih:D363CA470F5A14829AF4EB64142A19B2285C4A74
 >>Морская полиция / Navy NCIS; Военно-юридическая служба / JAG
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246979.jpgsave_picture_246979.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ magnet:?xt=urn:btih:6FD9FAEC9F4D8BC003D0E208BA112988A6EDE741
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246980.jpgsave_picture_246980.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ magnet:?xt=urn:btih:F82A4D3A94F6B85FB02590E3742D432C16716382
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246987.jpgsave_picture_246987.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ magnet:?xt=urn:btih:96529587C2C13AE473805D6F4F6DA52C55C183BB
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246989.jpgsave_picture_246989.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ magnet:?xt=urn:btih:246BC0E5302127CDFC4464556F9F8AA8D1FC55C3
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246999.jpgsave_picture_246999.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ magnet:?xt=urn:btih:1D84070F8EB1909F38A8CDE1DDA82238B4873AF8
 >>Кости / Bones
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247001.jpgsave_picture_247001.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ magnet:?xt=urn:btih:AF35AFF596295BF976EBA38D530FC4A03D9A00A8
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247004.jpgsave_picture_247004.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ magnet:?xt=urn:btih:22CAD38A4E2A4F5B0F4BBF206D8A885506B3F936
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247006.jpgsave_picture_247006.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ magnet:?xt=urn:btih:85A2C79ED82075D78AAFDFCA9911EAA8A78559DA
 >>Менталист / The Mentalist; Теория Лжи / Lie To Me
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247020.jpgsave_picture_247020.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ magnet:?xt=urn:btih:66950E932392ECBE1561C912A873F90B5F029897
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247025.jpgsave_picture_247025.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ magnet:?xt=urn:btih:4C0C97B26E150A510EA4DE05AB3D6A36CD9B37F6
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247031.jpgsave_picture_247031.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ magnet:?xt=urn:btih:9EAF401B10D2640412B8AF93889239932BEE3715
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247032.jpgsave_picture_247032.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ magnet:?xt=urn:btih:B570DDCEC52F12A7A6C41C3AF0CC26B2FEBC7244
 >>Менталист / The Mentalist; Теория Лжи / Lie To Me
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247038.jpgsave_picture_247038.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ magnet:?xt=urn:btih:524FD5025F9764788AD45CC09B77FFF427F31158
 >>Менталист / The Mentalist; Теория Лжи / Lie To Me
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247040.jpgsave_picture_247040.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ magnet:?xt=urn:btih:094739CE2838F1853611AF38417F5A17C19DB241
 >>Менталист / The Mentalist; Теория Лжи / Lie To Me
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247041.jpgsave_picture_247041.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ magnet:?xt=urn:btih:6EBB2955F3EECCA25AB1CDF4E0290CC8B54E1C4E
 >>Менталист / The Mentalist; Теория Лжи / Lie To Me
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247042.jpgsave_picture_247042.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119050.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119050.jpgsave_picture_119050.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:6BDB1654A1A6BDD038AF4A2D45B256E36590AD0E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119051.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119051.jpgsave_picture_119051.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Star Wars: Jedi Knight II - Jedi Outcast (2002) [Multi] (1.04) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119052.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119052.jpgsave_picture_119052.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:2644B1BDE9E7809231294851333BF54D127EA5B0
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119053.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119053.jpgsave_picture_119053.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Magical Girl Celesphonia (2022) [Multi] (5/dlc) License GOG [18+]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119054.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119054.jpgsave_picture_119054.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:0EEE82F81DC490556F3B782866F05C464076F6F3
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119055.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119055.jpgsave_picture_119055.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Tesla - 22 Albums (1986 - 2023) 30 CD [FLAC|Lossless|image + .cue|tracks + .cue]
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119056.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119056.jpgsave_picture_119056.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Thinknetica PRO, Дмитрий Титов | Cовременная разраб�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119057.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119057.jpgsave_picture_119057.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:4E68882AF6C94F9EAD5F0467B8A38DFF82C6E009
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119058.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119058.jpgsave_picture_119058.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:DAB278F095A3FC97D21106773427A38F24FE968D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119059.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119059.jpgsave_picture_119059.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:8318173C9D596CDD0EACD4FE10CE5187054AD564
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119060.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119060.jpgsave_picture_119060.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Windows Server 2025 Beta builds 23H2 26010.1000 [EN] (Updated January 2024) 23H2
 >>Разное (RC, Beta и Service Packs)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119061.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119061.jpgsave_picture_119061.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ magnet:?xt=urn:btih:9095CDD6E9557828DB3FF6B7DAFA03F973969EDE
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119062.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119062.jpgsave_picture_119062.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Buta no Liver wa Kanetsu Shiro / Heat the Pig Liver / Разогревай св�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119063.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119063.jpgsave_picture_119063.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ magnet:?xt=urn:btih:5F0A5541D01B87B7DE745E31243CC673C939E0E9
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119064.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119064.jpgsave_picture_119064.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ magnet:?xt=urn:btih:F82E3ED69650C9E8A8B7953D5E42BFFF5D2999F3
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119065.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119065.jpgsave_picture_119065.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ magnet:?xt=urn:btih:7A69753D1F01D2F3296A0DE19AF5EF7AE5680EEE
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119066.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119066.jpgsave_picture_119066.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ magnet:?xt=urn:btih:ACAE1E8C0C5E796390FABFEAD43D4C3F88E4861C
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119067.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119067.jpgsave_picture_119067.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ Boxy SVG 4.23.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119068.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119068.jpgsave_picture_119068.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Donald Byrd & Gigi Gryce - Jazz Lab (1957) 2014, Sony Music [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119069.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119069.jpgsave_picture_119069.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ Running Wild - Port Royal (1988) [APE|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119070.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119070.jpgsave_picture_119070.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ magnet:?xt=urn:btih:CB7331FCC8121D7F48AC92F31C9E795D4DBD319F
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119071.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119071.jpgsave_picture_119071.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ Seventh Crystal - Wonderland (2023) Japanese Edition [FLAC|Lossless|image + .cue
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119072.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119072.jpgsave_picture_119072.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ Tavernese - Marea (1978) LP [MP3|320 Kbps] <Pop, Pop Rock, Prog Rock, Funk Soul>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119073.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119073.jpgsave_picture_119073.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ Clearview X 3.0.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119074.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119074.jpgsave_picture_119074.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Kmfdm - Hyëna (2022) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive Rock, I
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119075.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119075.jpgsave_picture_119075.jpg" />
 </div>
 
 

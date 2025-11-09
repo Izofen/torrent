@@ -6,7 +6,7 @@ Stepik, Дмитрий Читалов | Создаем чат-бот на баз
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188312.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188312.jpgsave_picture_188312.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:9635B07281B7E4107691825E54928CCC611644AB
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188313.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188313.jpgsave_picture_188313.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:B99C91118AA598BC31A5D28F6A35F12B63B97B7C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188314.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188314.jpgsave_picture_188314.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ OTUS, Алексей Железной | Data Warehouse Analyst (2023) WEB-DL [RU
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188315.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188315.jpgsave_picture_188315.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Blackmagic Design DaVinci Resolve Studio 18.6 Build 9 RePack by KpoJIuK [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188316.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188316.jpgsave_picture_188316.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:5B01677DCCD86EAB0AC41931C395C52BF2C8F613
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188317.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188317.jpgsave_picture_188317.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Blackmagic Design DaVinci Resolve Studio 18.6 Build 9 RePack by KpoJIuK [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188318.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188318.jpgsave_picture_188318.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:5B01677DCCD86EAB0AC41931C395C52BF2C8F613
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188319.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188319.jpgsave_picture_188319.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:C8FA51B12F9F265B31CD5C8F67DB14C979F875B7
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188320.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188320.jpgsave_picture_188320.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ magnet:?xt=urn:btih:C8FA51B12F9F265B31CD5C8F67DB14C979F875B7
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188321.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188321.jpgsave_picture_188321.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ magnet:?xt=urn:btih:15FC7222A6E92A55DE5A8E2E9C8D3357D9DB1BCD
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188322.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188322.jpgsave_picture_188322.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ magnet:?xt=urn:btih:BCEA7EC96CD9000D6AD9CC3E00491E6A4C2DB4DC
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188324.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188324.jpgsave_picture_188324.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Windows 10 32in1 (22H2 + LTSC 21H2) x86/x64 +/- Office 2019 x86 by SmokieBlahBla
 >>15
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188325.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188325.jpgsave_picture_188325.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ magnet:?xt=urn:btih:74EF59645158E1BD6FE0F92F4099F1FBEE80B19B
 >>Звездный путь / Star Trek; Орвилл / The Orville
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188326.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188326.jpgsave_picture_188326.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ magnet:?xt=urn:btih:CB47FF9E85E2449DB3DE3C72671E53EFD59AB6CD
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188327.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188327.jpgsave_picture_188327.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ The Chant (2022) [Ru/Multi] (Build 9851451/dlc) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188328.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188328.jpgsave_picture_188328.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ magnet:?xt=urn:btih:11A3510AE58D2D8A96A07E6D5DCB8E1852136F66
 >>Ходячие мертвецы / The Walking Dead; Бойтесь ходячих мертвецов / Fear the Walking Dead
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188329.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188329.jpgsave_picture_188329.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ Maxon Cinema 4D Studio 2024.0.0 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188331.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188331.jpgsave_picture_188331.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ magnet:?xt=urn:btih:85E2B9066F9F65282600E5768B4527CCE716C28F
 >>Звездный путь / Star Trek; Орвилл / The Orville
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188332.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188332.jpgsave_picture_188332.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ magnet:?xt=urn:btih:D3392F57986ED2A77AEFAAB8D8FCBD10DD387417
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188334.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188334.jpgsave_picture_188334.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ magnet:?xt=urn:btih:0C2601717451E8D4E3F0597C17CCAD3F36F7C5CA
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188335.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188335.jpgsave_picture_188335.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ magnet:?xt=urn:btih:894557D92BC2A362F2CF6E68B80A039A0B67C9E8
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188336.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188336.jpgsave_picture_188336.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ magnet:?xt=urn:btih:35B47F624ADBBBE68E496947A0F9A42C1FDCE940
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188337.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188337.jpgsave_picture_188337.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ magnet:?xt=urn:btih:2242C70DFCE2FD7036454FA9283E9FF20A3133A1
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188338.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188338.jpgsave_picture_188338.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ magnet:?xt=urn:btih:D2D0354853A6A9CD6C6A40EAC5EC344A493ED280
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188339.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188339.jpgsave_picture_188339.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ magnet:?xt=urn:btih:3030226F53EF896221280D027184A4625E25DEEE
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188340.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188340.jpgsave_picture_188340.jpg" />
 </div>
 
 

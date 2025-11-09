@@ -6,7 +6,7 @@ Royal Romances 3: The Power of Chosen One / Королевские романы 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210860.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210860.jpgsave_picture_210860.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ NeverHome - Hall of Apathy (2023) [En] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211031.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211031.jpgsave_picture_211031.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Bridge to Another World 11: A Trail of Breadcrumbs / Мост в другой м
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211054.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211054.jpgsave_picture_211054.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ How to Say Goodbye (2022) [Multi] (1.0.7) License GOG
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211085.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211085.jpgsave_picture_211085.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Night of Horror (2023) [Ru/En] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211125.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211125.jpgsave_picture_211125.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Unsolved Case 3: The Scarlet Hyacinth (2023) [En] (1.0) Unofficial [Collector's 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211162.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211162.jpgsave_picture_211162.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Unsolved Case 2: Murderous Script / Нераскрытое дело 2: Сцен�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211192.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211192.jpgsave_picture_211192.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Royal Romances 3: The Power of Chosen One (2023) [En] (1.0) Unofficial [Collecto
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211588.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211588.jpgsave_picture_211588.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Ms. Holmes 4: The Case of the Dancing Men (2023) [En] (1.0) Unofficial [Collecto
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211728.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211728.jpgsave_picture_211728.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Strange Investigations 3: Secrets Can Be Deadly (2023) [En] (1.0) Unofficial [Co
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211864.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211864.jpgsave_picture_211864.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Relicta (2020) [Ru/Multi] (1.10/dlc) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212143.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212143.jpgsave_picture_212143.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Heretic + Hexen (2025) [Ru/Multi] (Update 1) Repack Necros
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212166.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212166.jpgsave_picture_212166.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Beneath (2025) [Ru/Multi] (0.9920f/dlc) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212167.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212167.jpgsave_picture_212167.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Silly Polly Beast (2025) [Ru/Multi] (0.97) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212184.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212184.jpgsave_picture_212184.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Ghost of Tsushima (2024) [Ru/Multi] (1053.8.1023.1614/dlc) Repack Wanterlude [Di
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212424.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212424.jpgsave_picture_212424.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Escape Simulator 2 (2025) [Ru/Multi] (16507r) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212426.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212426.jpgsave_picture_212426.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Master of Command (2025) [Ru/Multi] (Build 20565020) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212435.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212435.jpgsave_picture_212435.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Ghost of Tsushima (2024) [Ru/Multi] (1053.8.1023.1614/dlc) Repack Let'sРlay [Di
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212529.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212529.jpgsave_picture_212529.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Hollowbody (2024) [Ru/Multi] (2.1) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212531.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212531.jpgsave_picture_212531.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Happy Holidays 4: Trick or Treat / Счастливые праздники 4: К
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212545.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212545.jpgsave_picture_212545.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Beneath (2025) [Ru/Multi] (20251024 v2) License GOG
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212593.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212593.jpgsave_picture_212593.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ PowerWash Simulator 2 (2025) [Ru/Multi] (1.1.0.59) Repack Necros
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212660.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212660.jpgsave_picture_212660.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Dispatch (2025) [Ru/Multi] (1.0.15103/dlc) Repack Necros [Digital Deluxe Edition
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213423.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213423.jpgsave_picture_213423.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ The Black Ice (2025) [Ru/Multi] (1.0) Repack Other s [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213448.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213448.jpgsave_picture_213448.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Beneath (2025) [Ru/Multi] (0.9920f/dlc) Repack seleZen
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213464.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213464.jpgsave_picture_213464.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Gord (2023) [Ru/Multi] (1.2.0.38299/dlc) Repack DjDI [Deluxe Edition]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213497.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213497.jpgsave_picture_213497.jpg" />
 </div>
 
 

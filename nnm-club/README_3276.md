@@ -6,7 +6,7 @@ DJ Love (Sherwin Tuna) - Budots World (Reloaded) (2024) [FLAC|Lossless|WEB-DL|tr
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105537.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105537.jpgsave_picture_105537.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Bill Wyman - Drive My Car (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Classic Ro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105538.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105538.jpgsave_picture_105538.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Ann Wilson & Tripsitter - Live in Concert (2024) [FLAC|Lossless|WEB-DL|tracks] <
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105539.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105539.jpgsave_picture_105539.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Newman - Colour In Sound (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105540.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105540.jpgsave_picture_105540.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Nathan Haines - Notes (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <House, soul,
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105541.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105541.jpgsave_picture_105541.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ magnet:?xt=urn:btih:FE9B0EB321FDF6310EFA95EBFF043298E2BCAE56
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105542.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105542.jpgsave_picture_105542.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ magnet:?xt=urn:btih:4F13DAB86E80E6C55376FEE31F16AF0C8AEC625F
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105543.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105543.jpgsave_picture_105543.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Phineas Newborn, Jr. - Look Out - Phineas Is Back (1976) 1995, Original Jazz Cla
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105544.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105544.jpgsave_picture_105544.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ magnet:?xt=urn:btih:857D7DED97F55008DD2225CF6B108AC0DC4CE45F
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105545.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105545.jpgsave_picture_105545.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Revolution Saints - Against The Winds (2024) Japanese Edition [FLAC|Lossless|ima
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105546.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105546.jpgsave_picture_105546.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Dagoba - Different Breed (2024) [FLAC|Lossless|WEB-DL|tracks] <Groove, Industria
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105547.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105547.jpgsave_picture_105547.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ magnet:?xt=urn:btih:D98C7A92EC9F0AE3C3FEFE3BBDE8A7635CE57B16
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105548.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105548.jpgsave_picture_105548.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Bronnie - Jaded (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop Punk, Female V
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105549.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105549.jpgsave_picture_105549.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Sinergy - Studio Albums (3 releases) (2000-2006) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105550.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105550.jpgsave_picture_105550.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Jim Peterik & World Stage - Roots & Shoots Volume One (2024) Japanese Edition [F
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105551.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105551.jpgsave_picture_105551.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Schnallo - white fluffy (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Punk / New W
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105552.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105552.jpgsave_picture_105552.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Rewind - I'm In Rewind (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock, Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105553.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105553.jpgsave_picture_105553.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ Asmodai - Soul Collector (2024) [FLAC|Lossless|WEB-DL|tracks] <Industrial Metal,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105554.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105554.jpgsave_picture_105554.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ The Pine Box Boys - Kung Fu Wolfman vs. the Blob (2024) [FLAC|Lossless|WEB-DL|tr
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105555.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105555.jpgsave_picture_105555.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Rhabstallion - Bat Shit Crazy (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105556.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105556.jpgsave_picture_105556.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Elles Bailey - Beneath the Neon Glow (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105557.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105557.jpgsave_picture_105557.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Celesty - Studio Albums (4 releases) (2002-2009) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105558.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105558.jpgsave_picture_105558.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ magnet:?xt=urn:btih:B2B42D8032B468B4AB14C950CE8CD9E5766CFAD1
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105559.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105559.jpgsave_picture_105559.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Conscience - 3 Albums (2024) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, electro-po
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105560.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105560.jpgsave_picture_105560.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ Magnavolt - 3 Albums: Stellar Gun (2023-2024) [FLAC|Lossless|WEB-DL|tracks] <Dar
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105561.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105561.jpgsave_picture_105561.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ Princesa Alba - Como Si Fuese Real (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <P
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105562.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105562.jpgsave_picture_105562.jpg" />
 </div>
 
 

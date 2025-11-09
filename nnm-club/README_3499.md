@@ -6,7 +6,7 @@ VV & The Void - The Cage (2024) [FLAC|Lossless|WEB-DL|tracks] <Gothic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111335.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111335.jpgsave_picture_111335.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Erroll Garner - Closeup in Swing & A New Kind of Love (1961, 1963) 1997, Telarc 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111336.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111336.jpgsave_picture_111336.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:91061BEC676F3F42325A1233FE49C8EE04898266
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111337.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111337.jpgsave_picture_111337.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:326E63FA68CFEA64AD7C62F3EEED5DB142DAEA7C
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111338.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111338.jpgsave_picture_111338.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ DesktopOK 11.21 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111339.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111339.jpgsave_picture_111339.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Deviated Instinct - As the Crow Flies (2024) [FLAC|Lossless|WEB-DL|tracks] <Crus
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111340.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111340.jpgsave_picture_111340.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:7F93CEEFA2C8B2350B29133F8DAF57E59E6768C8
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111341.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111341.jpgsave_picture_111341.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ IObit Driver Booster Pro 11.4.0.57 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111342.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111342.jpgsave_picture_111342.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:6518D98F9D173DDC207575C7A3E50652C4D28446
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111343.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111343.jpgsave_picture_111343.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ magnet:?xt=urn:btih:6BAA9226BB22038F25EF1CC22C796556BBA84570
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111344.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111344.jpgsave_picture_111344.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ magnet:?xt=urn:btih:4458EC24A89EFC6FDB72973D6967F7807D1A394C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111345.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111345.jpgsave_picture_111345.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ YT Downloader 9.7.2 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111346.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111346.jpgsave_picture_111346.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:C93479553B053A1419FF819AF51142E8A59FD2C7
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111347.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111347.jpgsave_picture_111347.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Arcade Fire - Lollapalooza (2024) HDTV [H.264/1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111348.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111348.jpgsave_picture_111348.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Nick Cave & Warren Ellis - Back to Black (2024) Original Motion Picture Score [F
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111349.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111349.jpgsave_picture_111349.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Kevin & JD - 10 From 5 - The Best Of Kevin & JD (2024) [FLAC|Lossless|WEB-DL|tra
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111350.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111350.jpgsave_picture_111350.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ magnet:?xt=urn:btih:8027D045248B5C0910464B7AC3B2A70CE015640C
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111351.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111351.jpgsave_picture_111351.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ VA - Spring Lounge 2024 - Sounds Like Sunshine (2024) [FLAC|Lossless|WEB-DL|trac
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111352.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111352.jpgsave_picture_111352.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ Dempsey Crenshaw & Danny Banda - The Blues Brought Me Through (2024) [FLAC|Lossl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111353.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111353.jpgsave_picture_111353.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ magnet:?xt=urn:btih:E12D6A433B217C6F4AAFB0A94EBAE4895A420A3D
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111354.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111354.jpgsave_picture_111354.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Susan Santos - Sonora (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111355.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111355.jpgsave_picture_111355.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ magnet:?xt=urn:btih:D183FE86C10502B035F15A3D32FD8AB79C2CB30F
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111356.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111356.jpgsave_picture_111356.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ magnet:?xt=urn:btih:A27B21ED5FA76685646D03AD4F3338BE56604D98
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111357.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111357.jpgsave_picture_111357.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Caru de Souza - Amor, Pele e Blues (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <B
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111358.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111358.jpgsave_picture_111358.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Stonehurst - Wild Visions (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111359.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111359.jpgsave_picture_111359.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ Starsailor - Where The Wild Things Grow (2024) [FLAC 24/44.1|Lossless|WEB-DL|tra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111360.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111360.jpgsave_picture_111360.jpg" />
 </div>
 
 

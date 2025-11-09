@@ -6,7 +6,7 @@
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104627.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104627.jpgsave_picture_104627.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:8DBEF26DB33928BC933E2B04BD3D47B120A688BE
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104628.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104628.jpgsave_picture_104628.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Fatima - Eerie (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard-Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104629.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104629.jpgsave_picture_104629.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:0735AEF25E5D3DE7E5CB2DE3DC0FF6924DA70139
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104630.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104630.jpgsave_picture_104630.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:D33FD612DE21021B917B0383D20D5F17F1E4F42F
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104631.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104631.jpgsave_picture_104631.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:720056FD817252D25400C85C1FFA7392E0034D33
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104632.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104632.jpgsave_picture_104632.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:CE2A52A4394C7C9DC9A6A6BDEDBD5E6F0AE00D05
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104633.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104633.jpgsave_picture_104633.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:A5ECCF8E049B9745682F1868018C6ADE3AB92A34
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104634.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104634.jpgsave_picture_104634.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ magnet:?xt=urn:btih:5D9D890B6D71BF2398805A4DD31372920C32CF82
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104635.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104635.jpgsave_picture_104635.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ magnet:?xt=urn:btih:1A0BF8F04AAB112D02CC4AF413D5A986E6CDC953
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104636.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104636.jpgsave_picture_104636.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ Black Sun - Black Sun (2024) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104637.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104637.jpgsave_picture_104637.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ VA - DJ Hits 350 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Italodanc
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104638.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104638.jpgsave_picture_104638.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ Abyss Evolution - Первый (2024) [MP3|320 Kbps] <Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104639.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104639.jpgsave_picture_104639.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ Ashwind - Холодные Камни (2024) [MP3|320 Kbps] <Melodic Doom, Death
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104640.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104640.jpgsave_picture_104640.jpg" />
 </div>
 
 
@@ -364,7 +364,7 @@ VA - DJ Hits Vol. 345 (1997) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Euro
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104641.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104641.jpgsave_picture_104641.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ VA - DJ Hits 333 (1997) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Italodanc
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104642.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104642.jpgsave_picture_104642.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ magnet:?xt=urn:btih:84F064BEBB4716933A4E8563C0BC501E36248393
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104643.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104643.jpgsave_picture_104643.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ Banco De Gaia - Altered Realities, Vol. 1-2 (2023) [FLAC|Lossless|WEB-DL|tracks]
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104644.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104644.jpgsave_picture_104644.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ magnet:?xt=urn:btih:A3FFDF1F5DFB77F9891636FF45E2A0A6468E225A
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104645.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104645.jpgsave_picture_104645.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Camila Cabello - C,XOXO (2024) Magic City Edition [FLAC|Lossless|WEB-DL|tracks] 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104646.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104646.jpgsave_picture_104646.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ Negative - Studio Albums (6 releases) (2003-2010) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104647.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104647.jpgsave_picture_104647.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ VA - Mega Fitness Compilation For Weight Lifting 2024 Best Songs 128 Bpm [FLAC|L
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104648.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104648.jpgsave_picture_104648.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ VA - Ancient Egyptian Deep House (2024) [FLAC|Lossless|WEB-DL|tracks] <House, Fo
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104649.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104649.jpgsave_picture_104649.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ Leathers - Ultraviolet (2024) [FLAC|Lossless|WEB-DL|tracks] <Darkwave / Synthpop
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104650.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104650.jpgsave_picture_104650.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ magnet:?xt=urn:btih:BD0E25080A0DE1522B6D0B10E821152A98DE524B
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104651.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104651.jpgsave_picture_104651.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ XYplorer 26.40.0000 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104652.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104652.jpgsave_picture_104652.jpg" />
 </div>
 
 

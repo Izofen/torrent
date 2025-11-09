@@ -6,7 +6,7 @@ Noob - The Factionless (2023) [Multi] (20250124) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27667.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27667.jpgsave_picture_27667.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Saturn (2024) [Ru/En] (1.35.02.11.16461/dlc) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27779.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27779.jpgsave_picture_27779.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Horizon Zero Dawn Remastered (2024) [Ru/Multi] (1.5.89.0) Repack Wanterlude
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27807.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27807.jpgsave_picture_27807.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Cardfight!! Vanguard Dear Days 2 (2025) [Multi] (1.0.2/dlc) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27969.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27969.jpgsave_picture_27969.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Tails of Iron (2021) [Ru/Multi] (1.52/dlc) Repack Let'sРlay [Complete Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28053.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28053.jpgsave_picture_28053.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Drova - Forsaken Kin (2024) [Ru/Multi] (1.2.3) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28124.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28124.jpgsave_picture_28124.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Techno Banter (2025) [Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28171.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28171.jpgsave_picture_28171.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Sword of the Necromancer: Resurrection (2025) [Multi] (1.0.3) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28184.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28184.jpgsave_picture_28184.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Keep Driving (2025) [En] (1.0.0.1) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28208.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28208.jpgsave_picture_28208.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Sovereign Syndicate (2024) [Ru/En] (1.1.34) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28324.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28324.jpgsave_picture_28324.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Kingdom Come: Deliverance II (2025) [Ru/Multi] (1.1.1-11377/dlc) Repack dixen18 
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28383.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28383.jpgsave_picture_28383.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Horizon Zero Dawn Remastered (2024) [Ru/Multi] (1.5.89.0) Repack Decepticon
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28426.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28426.jpgsave_picture_28426.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Metal Slug Tactics (2024) [Multi] (1.0.3c) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28437.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28437.jpgsave_picture_28437.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Teenage Mutant Ninja Turtles: Splintered Fate / Черепашки-ниндзя:
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28498.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28498.jpgsave_picture_28498.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Teenage Mutant Ninja Turtles: Splintered Fate (2024) [Ru/Multi] (1.7.0/dlc) Repa
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28508.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28508.jpgsave_picture_28508.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Tails of Iron 2: Whiskers of Winter (2025) [Ru/Multi] (1.14327/dlc) Repack FitGi
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28728.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28728.jpgsave_picture_28728.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Asterigos Curse of the Stars (2022) [Ru/Multi] (01.09.0000/dlc) Repack Let'sРla
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28833.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28833.jpgsave_picture_28833.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Cryptical Path (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28967.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28967.jpgsave_picture_28967.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ DeTechtive 2112 (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28994.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28994.jpgsave_picture_28994.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ The Stone of Madness (2025) [Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29015.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29015.jpgsave_picture_29015.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Final Fantasy VII (7) Rebirth (2025) [Multi] (build 17035252) Scene FAiRLIGHT
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29050.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29050.jpgsave_picture_29050.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ DeTechtive 2112 (2025) [Ru/Multi] (Build 17159957) Repack seleZen
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29273.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29273.jpgsave_picture_29273.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ DeTechtive 2112 (2025) [Ru/Multi] (Build 17159957) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29288.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29288.jpgsave_picture_29288.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ VED (2024) [Ru/Multi] (1.03) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29304.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29304.jpgsave_picture_29304.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Enotria: The Last Song (2024) [Ru/Multi] (1.007.28161) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29332.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29332.jpgsave_picture_29332.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Dragon Age: The Veilguard (2024) [Ru/Multi] (1417829 Build 17026604/dlc) Repack 
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29349.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29349.jpgsave_picture_29349.jpg" />
 </div>
 
 

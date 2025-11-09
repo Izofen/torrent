@@ -6,7 +6,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192941.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192941.jpgsave_picture_192941.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Renee - 4 Albums (1978-1983) LP [MP3|320 Kbps] <Electronic, Rock & Roll, Synth-p
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192942.jpgsave_picture_192942.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:F59069D7CDB2A4AE783B1F1E9A5C1280180B1250
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192943.jpgsave_picture_192943.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:34AB59832F8CF8CEC2936AD6368FF6AA6A05DD01
 >>Ноты и обучение музыке
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192944.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192944.jpgsave_picture_192944.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ CCleaner Pro: ПО для очистки 23.17.0 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192945.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192945.jpgsave_picture_192945.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Streetlight Circus - Super Fine Sugar (2022) [FLAC|Lossless|image + .cue] <Hard 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192946.jpgsave_picture_192946.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ Foo Fighters - The Essential Foo Fighters (2022) Compilation [FLAC|Lossless|WEB-
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192947.jpgsave_picture_192947.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ Criminal Archives 2: Alphabetic Murders / Криминальные архивы 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192948.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192948.jpgsave_picture_192948.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ Young Gun Silver Fox - West End Coast (2015) Japanese Edition [FLAC|Lossless|ima
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192949.jpgsave_picture_192949.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ Death Worm™ Deluxe 2.0.050 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192950.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192950.jpgsave_picture_192950.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ magnet:?xt=urn:btih:2841061E3848DB710128BB7A85AD51B3D7DE9520
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192951.jpgsave_picture_192951.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ magnet:?xt=urn:btih:3BD2F1679A1FEBC86D994BD246FB730F5E601103
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192952.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192952.jpgsave_picture_192952.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ The Damned - A Night of a Thousand Vampires (Live in London) (2022) [MP3|320 Kbp
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192953.jpgsave_picture_192953.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ magnet:?xt=urn:btih:1980193BA435FBDEBCE4DC5D8E883165812F84D0
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192954.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192954.jpgsave_picture_192954.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ iTranslate  v5.10 Mod by Dymonyxx [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192955.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192955.jpgsave_picture_192955.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ magnet:?xt=urn:btih:5361784C48E954E59F5B4495E768E8B446446B5F
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192956.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192956.jpgsave_picture_192956.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ magnet:?xt=urn:btih:649E384B15840562F3682178AA8896273B1E4029
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192957.jpgsave_picture_192957.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ magnet:?xt=urn:btih:DF798B5425F4534E2FDA6BEBD1F1D2E8765E7CA0
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192958.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192958.jpgsave_picture_192958.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ magnet:?xt=urn:btih:F5844EE5101EDF68F7009703F582D1062879682F
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192959.jpgsave_picture_192959.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ magnet:?xt=urn:btih:2F7E34A8C5C0134E02EA7B89BAC3740088595994
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192960.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192960.jpgsave_picture_192960.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ magnet:?xt=urn:btih:0CC22C8D4D38A2FC5968E6E791890F586F2D2A4C
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192961.jpgsave_picture_192961.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Rock Playlist Masters - Top 100 Rock Anthems Playlist (2013) [FLAC|Lossless|WEB-
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192962.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192962.jpgsave_picture_192962.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ magnet:?xt=urn:btih:D2E83911B7F364C19BD72B358A37EE72B90C378B
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192963.jpgsave_picture_192963.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Vishwanathan Narayanan | SQL and NoSQL Interview Questions (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192964.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192964.jpgsave_picture_192964.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ The Damned - A Night of a Thousand Vampires (Live in London) (2022) [FLAC 2.0|48
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192965.jpgsave_picture_192965.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ magnet:?xt=urn:btih:ECC210CAD1A260E68705CEC9BC1620D6C168DD8A
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192966.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192966.jpgsave_picture_192966.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159316.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159316.jpgsave_picture_159316.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ MacClean 3.6.1 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159317.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159317.jpgsave_picture_159317.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:2A0B483F89C6600F3E29B3CA2ACE38EEB033C28C
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159318.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159318.jpgsave_picture_159318.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Slade - Singles & Rarities 3CD (2007) (1969-1984) [MP3|320 Kbps] <Rock, Hard Roc
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159319.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159319.jpgsave_picture_159319.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:01336834424AD25622FA9F4B06F9E5400A02A50D
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159320.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159320.jpgsave_picture_159320.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:79731A7DFC2F4A9705008C181AAF61F3B874FBB6
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159321.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159321.jpgsave_picture_159321.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:A35FD9ED43B6860E7DC0CE2E28D86C2C570B487E
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159322.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159322.jpgsave_picture_159322.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ Bishop Briggs - Compilation (2022) [MP3|320 Kbps] <Pop, Dark Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159323.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159323.jpgsave_picture_159323.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ Flyingbee PDF to Word for Mac 8.5.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159324.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159324.jpgsave_picture_159324.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ magnet:?xt=urn:btih:B9FA1D8B31A10E8AE2033D713D6251359F355FDF
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159325.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159325.jpgsave_picture_159325.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:C68E29EBB618899A12542509F0793E403C04E75E
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159326.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159326.jpgsave_picture_159326.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ magnet:?xt=urn:btih:D65F4ADDBB1DAE89C322ED0C6624EF96B1ECDF75
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159327.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159327.jpgsave_picture_159327.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ K-Lite Codec Pack Update 17.3.6 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159328.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159328.jpgsave_picture_159328.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ magnet:?xt=urn:btih:70378C8CFB6978980F62C0D3BBFC067EB4D9F50B
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159329.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159329.jpgsave_picture_159329.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Sarah Brightman - Diva : The Singles Collection (2006) [OGG Vorbis|480 Kbps] <Mo
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159330.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159330.jpgsave_picture_159330.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Live Wallpaper & Themes 4K Pro 14.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159331.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159331.jpgsave_picture_159331.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ magnet:?xt=urn:btih:19E686D01977A10D3CF6F43511FAA394431F22DA
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159332.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159332.jpgsave_picture_159332.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Airtool 2 v.2.5.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159333.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159333.jpgsave_picture_159333.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Gene Ferrari And The Disco Roma Band - Disco Italiano (1978) LP [MP3|320 Kbps] <
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159334.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159334.jpgsave_picture_159334.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ EtreCheck Pro 6.8.3 U2B [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159335.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159335.jpgsave_picture_159335.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Emberstar - Dialogue With The Outside (2023) [FLAC|Lossless|WEB-DL|tracks] <Heav
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159336.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159336.jpgsave_picture_159336.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Dave Stewart & Hannah Koppenburg - Cloud Walking (2023) [FLAC|Lossless|WEB-DL|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159337.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159337.jpgsave_picture_159337.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ magnet:?xt=urn:btih:50682D94E08DA89286F1C2FA8B70865747B2332F
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159338.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159338.jpgsave_picture_159338.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ magnet:?xt=urn:btih:0FAF6BCA5E22689961E0F798D32954016EC6FA68
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159339.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159339.jpgsave_picture_159339.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ magnet:?xt=urn:btih:0BA5406B08E5BBDEF6C8C363D611C5D300E09653
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159340.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159340.jpgsave_picture_159340.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ magnet:?xt=urn:btih:99C9E98A36D7782694B4C0162B3445183800123E
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159341.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159341.jpgsave_picture_159341.jpg" />
 </div>
 
 

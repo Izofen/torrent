@@ -6,7 +6,7 @@ GOM Player Plus 2.3.90.5360 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202958.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202958.jpgsave_picture_202958.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:1718A2DD4678C0E1EC52C2D9C0114BDA15200754
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202959.jpgsave_picture_202959.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ Adobe Media Encoder 2023 23.2.0.63 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202960.jpgsave_picture_202960.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ Opera One 102.0.4880.33 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202961.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202961.jpgsave_picture_202961.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:3C99045D92B12FE4EBD5C235DC12507F72D208E7
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202962.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202962.jpgsave_picture_202962.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ In Flames - Foregone (2023) Limited Edition [MP3|320 Kbps] <Modern Metal, Altern
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202963.jpgsave_picture_202963.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ Tarja Turunen - Best Of: Living The Dream Circus Life (2022) BDRip [H.265/1080p-
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202964.jpgsave_picture_202964.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:395677AA7B4DA9067B78B3C4ADC083B5B49632C0
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202965.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202965.jpgsave_picture_202965.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:395677AA7B4DA9067B78B3C4ADC083B5B49632C0
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202966.jpgsave_picture_202966.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:CE24B3735348FBB397178045DF2E7DA7C5EAD191
 >>Зарубежные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202967.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202967.jpgsave_picture_202967.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:1867270AB80CE904BA26B513C164429A840931B8
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202968.jpgsave_picture_202968.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Memrise: говори на новом языке 2023.08.18.0 Mod by Balatan [Ru
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202969.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202969.jpgsave_picture_202969.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ PIDKey Lite 1.64.4 b32 Portable by Ratiborus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202970.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202970.jpgsave_picture_202970.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:16BC53A9120762049DE65555BFAF6FF9C4641300
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202971.jpgsave_picture_202971.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ magnet:?xt=urn:btih:82370617A039F9D8B1D637F3A8590535E57E980E
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202972.jpgsave_picture_202972.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ magnet:?xt=urn:btih:4C134B2606F020A65D9FA7CDDCC1673C873756C7
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202973.jpgsave_picture_202973.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Ford IDS 125.05, FJDS 125.01, FDRS 31.6.7, Mazda IDS 124 [2022]
 >>Автомобильные программы и навигаторы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202974.jpgsave_picture_202974.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ magnet:?xt=urn:btih:C7B58DE9ACDB2C45ABEFC65006E4E693BB84D015
 >>Автомобильная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202975.jpgsave_picture_202975.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ magnet:?xt=urn:btih:82DE1B816C783A08CEB3D7D218DCA4D24A8E87CA
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202976.jpgsave_picture_202976.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ magnet:?xt=urn:btih:42E53A11620B3F2EC00319144AAE1F642351D9F6
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202977.jpgsave_picture_202977.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ magnet:?xt=urn:btih:9F6034A8B0EDDA487C28C5A14EA2B8932073B24F
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202978.jpgsave_picture_202978.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:9120DC031E548664B3B64506129CD7FD59041FB5
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202979.jpgsave_picture_202979.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Lord of Shadows - Echoes of Yore (2023) [FLAC|Lossless|WEB-DL|tracks] <Gothic Do
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202980.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202980.jpgsave_picture_202980.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Hard Disk Sentinel PRO 6.10 Build 12918 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202981.jpgsave_picture_202981.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ magnet:?xt=urn:btih:A17D6E8B4EDC45682DE6F33498AACB6EC63C53E6
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202982.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202982.jpgsave_picture_202982.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ magnet:?xt=urn:btih:FCDCECD53720429C731EC809FC9FA706F56D0B01
 >>Сериалы Marvel Comics
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202983.jpgsave_picture_202983.jpg" />
 </div>
 
 

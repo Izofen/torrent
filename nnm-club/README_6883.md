@@ -6,7 +6,7 @@ Eddie Gomez - Discovery (1987) Columbia [FLAC|Lossless|tracks + .cue] <Post-Bop,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236310.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236310.jpgsave_picture_236310.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Surge XT 1.2.3 Standalone, CLAP, VSTi 3 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_236311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_236311.jpgsave_picture_236311.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Darkseed - Studio Albums (8 releases) (1996-2010) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236312.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236312.jpgsave_picture_236312.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Udemy, Md. A. Barik | LeetCode in Java: Algorithms Coding Interview Questions (2
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236313.jpgsave_picture_236313.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ Autumn Nostalgie - Ataraxia (2021) [FLAC|Lossless|image + .cue] < Post-Black Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236314.jpgsave_picture_236314.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Dark Sarah - Attack Of Orym (2023) [FLAC|Lossless|image + .cue] <Symphonic Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_236315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_236315.jpgsave_picture_236315.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ magnet:?xt=urn:btih:E10C8AF2DA8D53991A283A80C739D0931F82FFED
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236317.jpgsave_picture_236317.jpg" />
 </div>
 
 
@@ -187,7 +187,7 @@ Dena DeRose - Live at Jazz Standard, Vol. 1 (2007) MaxJazz [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236318.jpgsave_picture_236318.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Udemy, YouRa Allakhverdov | Современный React с Нуля (2022) WEB-
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236320.jpgsave_picture_236320.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ magnet:?xt=urn:btih:141401E590F01E57EC2D3583DE4B6C8D49F91340
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236321.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236321.jpgsave_picture_236321.jpg" />
 </div>
 
 
@@ -262,7 +262,7 @@ PullTube 1.8.5.10 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236322.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236322.jpgsave_picture_236322.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ Charlie Barnet - Giants Of The Big Band Era (1990) MAGMA [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_236323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_236323.jpgsave_picture_236323.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ magnet:?xt=urn:btih:14231214DF08FEC192C301AACF743D4761869C68
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_236325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_236325.jpgsave_picture_236325.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ BetterZip 5 v5.1.1 b2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236326.jpgsave_picture_236326.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ Ozzy Osbourne - Patient Number 9 (2022) [MP3|320 Kbps] <Heavy Metal>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236328.jpgsave_picture_236328.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Sorcerer - 4 Albums (2015-2020) [FLAC|Lossless|image + .cue] <Epic Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236329.jpgsave_picture_236329.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ Gov't Mule - Peace...Like A River (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Ro
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236330.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236330.jpgsave_picture_236330.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:599DD4A41D2890342AC8953E8F4EA96675FCE98E
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236331.jpgsave_picture_236331.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ VA - Climax Chill Out Session Pt.1 (2023) [FLAC|Lossless|WEB-DL|tracks] <Lounge,
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_236333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_236333.jpgsave_picture_236333.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ Allavsoft Video Downloader Converter 3.23.4.7754 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236334.jpgsave_picture_236334.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ VA - Late Night Lounge Music (2021) [AAC|~287 Kbps] <Lounge, Chill Out, Downtemp
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236335.jpgsave_picture_236335.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:E34A3631AE5049783FE51EAB43455AFBEE7A29FC
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_236336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_236336.jpgsave_picture_236336.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ magnet:?xt=urn:btih:4BE04470C20BCEF5D1E91E8AEC3FC2C42ABDB989
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236337.jpgsave_picture_236337.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ Space Engine (2017) [Ru/En] (0.9.8.0e/dlc) License
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236338.jpgsave_picture_236338.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ VA - Armada Subjekt - Ibiza 2023 (2023) [MP3|320 Kbps] <House, Tech House, Afro 
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236339.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236339.jpgsave_picture_236339.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ Image Enhance Pro 5.2 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236341.jpgsave_picture_236341.jpg" />
 </div>
 
 

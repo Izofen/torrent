@@ -6,7 +6,7 @@ The Steve Kuhn Trio - Looking Back (1990) Concord Jazz [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109515.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109515.jpgsave_picture_109515.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:B83365B8770C9C2C921213882BCE48EEDC8DA974
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109516.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109516.jpgsave_picture_109516.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Malachi Thompson - New Standards (1994) Delmark Records [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109517.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109517.jpgsave_picture_109517.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ PotPlayer 240514 (1.7.22230) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109518.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109518.jpgsave_picture_109518.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ Firefox Browser 126.0 (x86/x64) Portable by 7997 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109519.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109519.jpgsave_picture_109519.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ magnet:?xt=urn:btih:16EC585C005AC61BE4B0DB88ED6170CFFA2AD70A
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109520.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109520.jpgsave_picture_109520.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ Firefox Browser ESR 115.11.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109521.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109521.jpgsave_picture_109521.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:47055C15B81EAE23F79BBAE6CC327EFFC51095A6
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109522.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109522.jpgsave_picture_109522.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ Riot V - Mean Streets (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Power M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109523.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109523.jpgsave_picture_109523.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ magnet:?xt=urn:btih:D0B3D6EB5AC9E970425B40A64F300BA0F5901DAE
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109524.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109524.jpgsave_picture_109524.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ magnet:?xt=urn:btih:388C72A71C029AE1848225257B5260B2C72EF3D3
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109525.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109525.jpgsave_picture_109525.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ magnet:?xt=urn:btih:9F6DBB7D71659D21ACCBAEB728F58B4891994E2C
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109526.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109526.jpgsave_picture_109526.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ magnet:?xt=urn:btih:9F01B49E88DA3AEFF080B28BCD9241A6A6876B02
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109527.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109527.jpgsave_picture_109527.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ U2 - Last Night On Earth (1997) Remastered, 2024, UMC [FLAC|Lossless|WEB-DL|trac
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109528.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109528.jpgsave_picture_109528.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Vivaldi 6.7.3329.29 include standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109529.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109529.jpgsave_picture_109529.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ HWiNFO 8.03 Build 5445 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109530.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109530.jpgsave_picture_109530.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Opera GX 109.0.5097.90 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109531.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109531.jpgsave_picture_109531.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ magnet:?xt=urn:btih:21275AE4B8DC5E9B38169A91D9E7CC38F0DAFA3B
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109532.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109532.jpgsave_picture_109532.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ magnet:?xt=urn:btih:87AB2888472986F7D67551125D8EC68A32854B83
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109533.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109533.jpgsave_picture_109533.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Soul Browser 1.4.19 Mod by AnBo39 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109534.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109534.jpgsave_picture_109534.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ magnet:?xt=urn:btih:B3DA21A36EA8D908F32704BA21CABD36360264B2
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109535.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109535.jpgsave_picture_109535.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ magnet:?xt=urn:btih:D1F520A7CCCEF822FA949D8E18375F7E3C36DE05
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109536.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109536.jpgsave_picture_109536.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ magnet:?xt=urn:btih:FA76C27A1902CC59E8E700C8F139115428C05EA2
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109537.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109537.jpgsave_picture_109537.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ VA - The Best of Italo Disco, Vol. 3 (2011) [FLAC|Lossless|WEB-DL|tracks] <Disco
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109538.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109538.jpgsave_picture_109538.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ Ashampoo WinOptimizer 27.00.02 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109539.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109539.jpgsave_picture_109539.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ Microsoft Visual Studio 2022 Enterprise 17.9.7 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109540.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109540.jpgsave_picture_109540.jpg" />
 </div>
 
 

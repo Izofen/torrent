@@ -6,7 +6,7 @@ Ernesto Cortazar - Paris by Night (2015) [FLAC|Lossless|WEB-DL|tracks] <New Age,
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129190.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129190.jpgsave_picture_129190.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Beatport Electro House: Sound Pack #395 (2022) [MP3|320 Kbps] <Electro Hous
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129191.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129191.jpgsave_picture_129191.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Firefox Browser 96.0.2 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129192.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129192.jpgsave_picture_129192.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Kings of Convenience - Peace Or Love (2021) [FLAC|Lossless|tracks + .cue] <Indie
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129193.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129193.jpgsave_picture_129193.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ magnet:?xt=urn:btih:F6C4C70E8C26218327A44E573A06522BF5A28D7C
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129194.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129194.jpgsave_picture_129194.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ magnet:?xt=urn:btih:11FD96C95829D7A0D543996BFD807ABC16F7265B
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129195.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129195.jpgsave_picture_129195.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ VA - Remembering Summer: Chillout Session (2022) [MP3|320 Kbps] <Chillout, Loung
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129196.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129196.jpgsave_picture_129196.jpg" />
 </div>
 
 
@@ -187,7 +187,7 @@ Sketch 82.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129198.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129198.jpgsave_picture_129198.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ VA - Клубные Новинки Vol.66 from AGR (2012) [MP3|320 кб/с]<Club
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129200.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129200.jpgsave_picture_129200.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Nocturna - Daughters Of The Night (2022) [FLAC|Lossless|WEB-DL|tracks] <Symphoni
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129201.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129201.jpgsave_picture_129201.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Mozilla SeaMonkey 2.9 Final [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129202.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129202.jpgsave_picture_129202.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ SeaMonkey — проект, основанный на добрых традиц�
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129203.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129203.jpgsave_picture_129203.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ VA - Beatport Deep House: Sound Pack #397 (2022) [MP3|320 Kbps] <Deep House, Sof
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129205.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129205.jpgsave_picture_129205.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ magnet:?xt=urn:btih:6319632BDA2F8A0E2FD136B92962D69CB2E54499
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129206.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129206.jpgsave_picture_129206.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ magnet:?xt=urn:btih:B62374E15C1E7949D6CF3C21A7EA6F840497B4DA
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129208.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129208.jpgsave_picture_129208.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Suburban Tribe - Дискография (10 Albums) (1994 - 2011) hand made [res
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129209.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129209.jpgsave_picture_129209.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ VA - Colored Clouds: Deep House Soft Session (2022) [MP3|320 Kbps] <Deep House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129210.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129210.jpgsave_picture_129210.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ magnet:?xt=urn:btih:9D5D5B451906E35F71D33A4C41A044BFAE63A93F
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129213.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129213.jpgsave_picture_129213.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ magnet:?xt=urn:btih:D95EF99C6526C7555B297477FA8BC48C44AFC3B0
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129214.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129214.jpgsave_picture_129214.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ magnet:?xt=urn:btih:6F45D14A9E0552B02E8C5BC76C5A04B3936537F0
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129215.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129215.jpgsave_picture_129215.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Cockos REAPER for Mac v6.46 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129217.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129217.jpgsave_picture_129217.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ John Mellencamp - Strictly A One-Eyed Jack (2022) [FLAC|Lossless|WEB-DL|tracks] 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129218.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129218.jpgsave_picture_129218.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ magnet:?xt=urn:btih:3785435F8C55F5AB7D740CE0A01B0CC5B09E6C66
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129220.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129220.jpgsave_picture_129220.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Billy Talent - Crisis of Faith (2022) [FLAC|Lossless|WEB-DL|tracks] <Punk Rock, 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129221.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129221.jpgsave_picture_129221.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ magnet:?xt=urn:btih:49542489F5CC4F12CCC123F66C285E81287E870D
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129222.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129222.jpgsave_picture_129222.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ magnet:?xt=urn:btih:DB0407DF2163384A72C08D599F0DF829CB882F06
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129224.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129224.jpgsave_picture_129224.jpg" />
 </div>
 
 

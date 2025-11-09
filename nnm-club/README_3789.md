@@ -6,7 +6,7 @@
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118894.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118894.jpgsave_picture_118894.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ BeachHead (2024) [En] (1.3.25) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118895.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118895.jpgsave_picture_118895.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Native Instruments - Guitar Rig 7 v7.0.2 Standalone, VST 3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118896.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118896.jpgsave_picture_118896.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Mississippi Shakedown - Mississippi Shakedown QLD (2024) [FLAC|Lossless|WEB-DL|t
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118897.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118897.jpgsave_picture_118897.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ Myrkur - Folkesange (2020) [FLAC|24/192|image + .cue|Vinyl-Rip] <Atmospheric Bla
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118898.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118898.jpgsave_picture_118898.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ Johnny Rawls - Walking Heart Attack (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118899.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118899.jpgsave_picture_118899.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ Kenny Barron Trio - Lemuria-Seascape (1991) 2023, Candid [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118900.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118900.jpgsave_picture_118900.jpg" />
 </div>
 
 
@@ -187,7 +187,7 @@ Tyrants - Warlord (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Speed, Thrash Me
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118901.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118901.jpgsave_picture_118901.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ magnet:?xt=urn:btih:D7047F171D2FA4A188C45B883DED4118900F3121
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118902.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118902.jpgsave_picture_118902.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ Myrkur - Mausoleum (2016) EP [FLAC|24/192|image + .cue|Vinyl-Rip] <Atmospheric B
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118903.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118903.jpgsave_picture_118903.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Siren - Financial Suicide (1989) Reissue, 2018, Blacksmith Productions [FLAC|Los
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118904.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118904.jpgsave_picture_118904.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Myrkur - M (2015) [FLAC|24/192|image + .cue|Vinyl-Rip] <Atmospheric Black Metal,
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118905.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118905.jpgsave_picture_118905.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ magnet:?xt=urn:btih:737582707B432ED1CE9E4C5C2F085355CCC02B2B
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118906.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118906.jpgsave_picture_118906.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Shaytan - Chapter One (2023) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118907.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118907.jpgsave_picture_118907.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ magnet:?xt=urn:btih:3EE8AD7B416749EBF2AE6E16719DB7C06A7F7EAD
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118908.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118908.jpgsave_picture_118908.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ magnet:?xt=urn:btih:1980772FD00045CB510CB32D209E05B5071BF4DC
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118909.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118909.jpgsave_picture_118909.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Lloyd Foulks - They Call Him Joe (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Ja
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118910.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118910.jpgsave_picture_118910.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Mark Dillon - T.A. Vern's (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118911.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118911.jpgsave_picture_118911.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Sacrify Souls - The New Begin (2023) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118912.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118912.jpgsave_picture_118912.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Emanuel Casablanca - Strung Out On Thrills (2024) [FLAC|Lossless|WEB-DL|tracks] 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118913.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118913.jpgsave_picture_118913.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Threestyle - No Matter What (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118914.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118914.jpgsave_picture_118914.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ The Last Dinner Party - Prelude to Ecstasy (2024) [FLAC 24/48|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118915.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118915.jpgsave_picture_118915.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ magnet:?xt=urn:btih:D8F5BC03ACB37A5BD5EA0BBF7B3B70EE2FC28E46
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118916.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118916.jpgsave_picture_118916.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Sean Riley & The Water - Stone Cold Hands (2024) [FLAC|Lossless|WEB-DL|tracks] <
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118917.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118917.jpgsave_picture_118917.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ The CrossRoadBand - Reload (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues, Soul>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118918.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118918.jpgsave_picture_118918.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ magnet:?xt=urn:btih:890437C371B375AB93C6A348F6DB2E0A33BB84B6
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118919.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118919.jpgsave_picture_118919.jpg" />
 </div>
 
 

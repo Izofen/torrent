@@ -6,7 +6,7 @@
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162004.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162004.jpgsave_picture_162004.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:7621C7D61269A96B398BB104C623E50D0B36554A
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162005.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162005.jpgsave_picture_162005.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Sonum X - Metamorpher (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Psych, Stoner>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162006.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162006.jpgsave_picture_162006.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:24D7816CDF46F7BC0BD2EB9123F5D75D0BCEEF5B
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162007.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162007.jpgsave_picture_162007.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ magnet:?xt=urn:btih:29376A9686D9D66CFC9FA2433EB9431470983178
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162008.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162008.jpgsave_picture_162008.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ Eagles - One Of These Nights (1975) Reissue, Remastered, 2022, Mobile Fidelity S
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162009.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162009.jpgsave_picture_162009.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ magnet:?xt=urn:btih:7E59C717B9E9C5B08E6AB713DA1D06E749AF56AE
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162010.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162010.jpgsave_picture_162010.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ Filthy Us (2023) [Multi] (1.0) License GOG [Complete Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162011.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162011.jpgsave_picture_162011.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ magnet:?xt=urn:btih:657D964A06E57B00BE4BC92CD8D76169688AFD6F
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162012.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162012.jpgsave_picture_162012.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ magnet:?xt=urn:btih:01EB657B0CBE6C995B25B5385BC4CCBBC82E9787
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162013.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162013.jpgsave_picture_162013.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ magnet:?xt=urn:btih:97FE248562289022DA04C3A54CCCEB9B2DA1905A
 >>Авиация
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162014.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162014.jpgsave_picture_162014.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ magnet:?xt=urn:btih:8DC425598CC1EF2EAADD26EA24C1ECCE23B39DA3
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162015.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162015.jpgsave_picture_162015.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Sofia Bellini - Favorites Collection Part 6 (2025) [MP3|320 Kbps] <Italodisco, I
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162016.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162016.jpgsave_picture_162016.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ LDPlayer 4.0.44 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162017.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162017.jpgsave_picture_162017.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ magnet:?xt=urn:btih:2EADFA1164398D7B5DC92551ABBCCD1D6D9C7AF2
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162018.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162018.jpgsave_picture_162018.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ magnet:?xt=urn:btih:4A6E1D92CF5FDD2C388FC3125E20725943876998
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162019.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162019.jpgsave_picture_162019.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ magnet:?xt=urn:btih:48A43BDB2E60C70C8BE0D0690CBF6DD0E57DFB6A
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162020.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162020.jpgsave_picture_162020.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ magnet:?xt=urn:btih:EFEA3D035F98555D8A3D50CF6BC18BB7B403B922
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162021.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162021.jpgsave_picture_162021.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ magnet:?xt=urn:btih:D0F44FB49336656501C4786CAF96FDC4836AED11
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162022.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162022.jpgsave_picture_162022.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Lesbian Bed Death - The Plague Sessions (2021) [FLAC|Lossless|WEB-DL|tracks] <Ha
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162023.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162023.jpgsave_picture_162023.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ YouTube ReVanced Extended 18.40.34 (RVP v2.195.12) Mod by Number one' + Micro G 
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162024.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162024.jpgsave_picture_162024.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ magnet:?xt=urn:btih:8493C5FCE30DB9EA80F3EA76ACB801E57B3CC920
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162025.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162025.jpgsave_picture_162025.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ FabFilter - Total Bundle 2021.12 VST, VST3, AAX (x86/x64) RePack by VR [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162026.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162026.jpgsave_picture_162026.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ Mac FoneLab for iOS 10.2.16 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162027.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162027.jpgsave_picture_162027.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ magnet:?xt=urn:btih:F1AE7938C148F51C6471B6C7F09455E95D12C871
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162028.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162028.jpgsave_picture_162028.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ Richard Bargel - Dead Slow Stampede (2022) [FLAC 2.0|88/24|tracks|WEB-DL] <Blues
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162029.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162029.jpgsave_picture_162029.jpg" />
 </div>
 
 

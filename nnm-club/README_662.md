@@ -6,7 +6,7 @@ Resurrection Blues Band - GENESIS (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Bl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17531.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17531.jpgsave_picture_17531.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Djrum - Under Tangled Silence (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Mode
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17532.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17532.jpgsave_picture_17532.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Samael - Passage (1996) Released, 2011, Floga Records [FLAC|24/192|image + .cue|
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17533.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17533.jpgsave_picture_17533.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Carolyn Wonderland - Truth Is (2025) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <Blue
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17534.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17534.jpgsave_picture_17534.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Omegaman - Pillow Talk (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electronic,
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17535.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17535.jpgsave_picture_17535.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Mississippi Shakedown - Play You Now, Dig You Later (2025) [FLAC 24/44.1|Lossles
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17536.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17536.jpgsave_picture_17536.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Citadel - Descension (2025) [FLAC|Lossless|WEB-DL|tracks] <Progressive Death Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17537.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17537.jpgsave_picture_17537.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Child Sized Coffin - Feast (2025) [MP3|320 Kbps] <Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17538.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17538.jpgsave_picture_17538.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:BECD5D61E8EEB81837F1D1689D0A436954FDA87A
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17539.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17539.jpgsave_picture_17539.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ magnet:?xt=urn:btih:4B43C1CD389AE650FD366E27FD6D074F9CCEF6E7
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17540.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17540.jpgsave_picture_17540.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ magnet:?xt=urn:btih:97056A4B00E66E2ACD6CAD689529E6BD962854BF
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17541.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17541.jpgsave_picture_17541.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ VA - Music News For Forum vol.089 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17542.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17542.jpgsave_picture_17542.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ magnet:?xt=urn:btih:677D91FABF07538BC99FB3BE71E7E1B713214028
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17543.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17543.jpgsave_picture_17543.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ magnet:?xt=urn:btih:F34A27484540279B2208D79E0677690028518B89
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17544.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17544.jpgsave_picture_17544.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ FBReader Premium v3.8.11 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17545.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17545.jpgsave_picture_17545.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ magnet:?xt=urn:btih:657261496836CA042E63C4D8CDFA9372EC00290E
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17546.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17546.jpgsave_picture_17546.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ magnet:?xt=urn:btih:66153B7DB003954F77175BB7CE498881F03F3A3A
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17547.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17547.jpgsave_picture_17547.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ PictureThis - Plant Identification v5.3.0 Mod by youarefinished [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17548.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17548.jpgsave_picture_17548.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ magnet:?xt=urn:btih:E7E9FCE5F06275D60DDB9864850E2F44AE5D3A52
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17549.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17549.jpgsave_picture_17549.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ magnet:?xt=urn:btih:A8C237C2BA12D80B66B45936333C6BF6D71A5006
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17550.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17550.jpgsave_picture_17550.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ Royksopp (Röyksopp) - True Electric (2025) 2CD [FLAC|Lossless|tracks + .cue] <I
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17551.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17551.jpgsave_picture_17551.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ magnet:?xt=urn:btih:6360774454DF21D013AB05AAE00E71877D99EDC0
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17552.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17552.jpgsave_picture_17552.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ magnet:?xt=urn:btih:EFB3EEBA5916D940DD9B0738AB9FDC6333377984
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17553.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17553.jpgsave_picture_17553.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ magnet:?xt=urn:btih:CF1DAFFCFDD9684B6D6F6904ED1229D25C043133
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17554.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17554.jpgsave_picture_17554.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Smart AudioBook Player Pro v11.4.2 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17555.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17555.jpgsave_picture_17555.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ magnet:?xt=urn:btih:A0D7B145EECDDB9AAE149B5FA8FEB14CE06E25C7
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17556.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17556.jpgsave_picture_17556.jpg" />
 </div>
 
 

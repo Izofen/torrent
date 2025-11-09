@@ -6,7 +6,7 @@
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11618.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11618.jpgsave_picture_11618.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Krita 5.2.10 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11619.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11619.jpgsave_picture_11619.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:DF5D23FCBB16E282A09C3BA974319CC87BE96D28
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11620.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11620.jpgsave_picture_11620.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:A555CDA1C0DF3516C273D8D12A11E86B60753F1C
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11621.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11621.jpgsave_picture_11621.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:01D83537B1A40484A35114A447ADB6A7B4DEE8C7
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11622.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11622.jpgsave_picture_11622.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:525C5EB462A9DE51083A52AF413CCEBE11007F6E
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11623.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11623.jpgsave_picture_11623.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ OCCT 14.2.1 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11624.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11624.jpgsave_picture_11624.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ Calibre 8.6.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11625.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11625.jpgsave_picture_11625.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:1E4B7454A05A049AB17006140C3E0E03EFE81CD5
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11626.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11626.jpgsave_picture_11626.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Filmmakers Academy, Shane Hurlbut | DIY Lighting Tips and Tricks (2021) WEB-DL [
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11627.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11627.jpgsave_picture_11627.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ magnet:?xt=urn:btih:CF89EB01C9049650497AE716E467AA8BA80B3263
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11628.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11628.jpgsave_picture_11628.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ magnet:?xt=urn:btih:7F24836A1470D572B4C73D670D420B652FCC003C
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11629.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11629.jpgsave_picture_11629.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Forest Asylum 2 (2025) [Multi] (1.1.5) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11630.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11630.jpgsave_picture_11630.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Skillshare, Sasha Luvr | Make everything Fluffy with Blender 4 - 3D illustration
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11631.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11631.jpgsave_picture_11631.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ magnet:?xt=urn:btih:915B0D10098A3A367708D6AB19426B5B42859160
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11632.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11632.jpgsave_picture_11632.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ Kylie Minogue, Jack Savoretti - Music's Too Sad Without You (2018) HDTVRip [H.26
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11633.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11633.jpgsave_picture_11633.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ Kaijuu 8-gou Movie | Kaiju No. 8: Mission Recon | Кайдзю № 8: Мисси
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11634.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11634.jpgsave_picture_11634.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ magnet:?xt=urn:btih:BBF03B1752B2B58B263F5EF58801F76D011927E4
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11635.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11635.jpgsave_picture_11635.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Image Uploader 1.4.3 Build 5352 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11636.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11636.jpgsave_picture_11636.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ magnet:?xt=urn:btih:A1F9DA4E53C1B1D7FB5B71C2159E65E75B8D6B13
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11637.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11637.jpgsave_picture_11637.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ magnet:?xt=urn:btih:5BC1C9DAC14FD7571F7BAE1FB689E3D758FEC9DD
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11638.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11638.jpgsave_picture_11638.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ Udemy, Manal Abdullal | AutoCAD 2026 2D Essentials – Complete Course (2025) WE
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11639.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11639.jpgsave_picture_11639.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ magnet:?xt=urn:btih:4D0B055F0A71447C061668BB2E1BAC5542FB6E8E
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11640.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11640.jpgsave_picture_11640.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ magnet:?xt=urn:btih:B3433CCC6E35A7FF980C71FEB479FA31D1C07664
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11641.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11641.jpgsave_picture_11641.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ magnet:?xt=urn:btih:5C93926733B4B622174848CE70623703FD9FF0C6
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11642.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11642.jpgsave_picture_11642.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ magnet:?xt=urn:btih:BEC72EED06B38E20D64DA98FA947EBA115C6A884
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11643.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11643.jpgsave_picture_11643.jpg" />
 </div>
 
 

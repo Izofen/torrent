@@ -6,7 +6,7 @@
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169501.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169501.jpgsave_picture_169501.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ VA - No Ballads: Hard Rock (2021) [AAC|~335 Kbps] <Rock, Hard Rock>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169502.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169502.jpgsave_picture_169502.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:BAE106F089B790E0D342747A6CE27013705B1789
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169503.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169503.jpgsave_picture_169503.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Ragana - Desolation's Flower (2023) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <black
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169504.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169504.jpgsave_picture_169504.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:F4E0F9B26A78EC48F57839694A15EB140D61157E
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169505.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169505.jpgsave_picture_169505.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ White Noise for Mac 7.4.0 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169506.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169506.jpgsave_picture_169506.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:BD3BB88C9F7165F2E60B4A06F27506B725E943B8
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169507.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169507.jpgsave_picture_169507.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Auslogics Disk Defrag Pro 10.0.0.1 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169508.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169508.jpgsave_picture_169508.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Cinetools - Terminus [WAV]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169509.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169509.jpgsave_picture_169509.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ VA - 50 Chart Hits of 2021.2: The Workout Motivation Album (2021) [AAC|~331 Kbps
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169510.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169510.jpgsave_picture_169510.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ magnet:?xt=urn:btih:D6DB85CD2A88C607CF6273D24A9C8FC3F9EB732B
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169511.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169511.jpgsave_picture_169511.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ Tool - Undertow (1993) [AAC|~327 Kbps] <Hard Rock, Metal>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169512.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169512.jpgsave_picture_169512.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ Joni Dangelo - NOW (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169513.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169513.jpgsave_picture_169513.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ magnet:?xt=urn:btih:D5D7D2A3AEAB462B408583F9C018678855B92E71
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169514.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169514.jpgsave_picture_169514.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ Urara Meirochou / Город предсказательниц [2017, TV, 12] BDR
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169515.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169515.jpgsave_picture_169515.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ magnet:?xt=urn:btih:BE8B69667C156E2837C706AD96B1C447F22678DF
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169516.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169516.jpgsave_picture_169516.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Usher 2.2.1 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169517.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169517.jpgsave_picture_169517.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ magnet:?xt=urn:btih:2FC16B7E396C89D6B4DA8170F88E42DEFF3799F8
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169518.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169518.jpgsave_picture_169518.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ MAGIX Samplitude Pro X4 Suite 15.4.1.645 + справка [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169519.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169519.jpgsave_picture_169519.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ magnet:?xt=urn:btih:81CFBE53A8F54760E5176FB0BAB31B986F6B1712
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169520.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169520.jpgsave_picture_169520.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Araxis Merge Pro Edition 2023.5973 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169521.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169521.jpgsave_picture_169521.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Ben Webster - The Soul Of Ben Webster (1954 - 1958) 2019, MatchBall [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169522.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169522.jpgsave_picture_169522.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ magnet:?xt=urn:btih:C5661D10F868B124B064FBE633BCA9B1DD9F8AB5
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169523.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169523.jpgsave_picture_169523.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ magnet:?xt=urn:btih:CA7CF42A2204C3B44B01D4D9E6B3B4F6651C5B9B
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169525.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169525.jpgsave_picture_169525.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Winamp 5.9.1 RC3 Build 10025 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169526.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169526.jpgsave_picture_169526.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ magnet:?xt=urn:btih:EFC73101E475ED808A4714EA8BF3D96A662B482D
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169527.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169527.jpgsave_picture_169527.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Mad Hatter - Oneironautics (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Heavy Met
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108891.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108891.jpgsave_picture_108891.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Street Panther - Muscle Rock (2024) [FLAC|Lossless|WEB-DL|tracks] <Glam Hard Roc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108892.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108892.jpgsave_picture_108892.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Alice Coltrane - The Carnegie Hall Concert (1971) 2CD, 2024, Impulse! [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108893.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108893.jpgsave_picture_108893.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Killus - XXV Years Feeding the Monster (2024) [FLAC 24/44.1|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108894.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108894.jpgsave_picture_108894.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ magnet:?xt=urn:btih:A3B525CDB1A9BA6462332F3A38469CFD5CBAE061
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108895.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108895.jpgsave_picture_108895.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Rotting Christ - Pro Xristou (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Melodic
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108896.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108896.jpgsave_picture_108896.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Eregion - Non Omnis Moriar (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy, 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108897.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108897.jpgsave_picture_108897.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Bloodorn - Let the Fury Rise (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Power
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108898.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108898.jpgsave_picture_108898.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Skeletal Throne - Barbaric Torment (2023) [FLAC|Lossless|tracks + .cue] <Death M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108899.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108899.jpgsave_picture_108899.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ The Devil Wears Prada - 2 Singles (2024) [FLAC 24/48,44.1|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108900.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108900.jpgsave_picture_108900.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ VA - Ibiza Spring Anthems 2024 (2024) [MP3|320 Kbps] <House, Deep House, Dance, 
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108901.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108901.jpgsave_picture_108901.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ VA - Alternative EDM Party 2024 (2024) [MP3|320 Kbps] <Dance, Club, House, Elect
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108902.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108902.jpgsave_picture_108902.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Night Laser - Call Me What You Want (2024) [FLAC 24/48,44.1|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108903.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108903.jpgsave_picture_108903.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Echo The Beyond - Ambient Noise (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock,
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108904.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108904.jpgsave_picture_108904.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ VA - Tropical House Anthems (2024) [MP3|320 Kbps] <House, Deep House, Dance, Clu
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108905.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108905.jpgsave_picture_108905.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ The Jazz Defenders - Memory in Motion (2024) [FLAC 24/44.1|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108906.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108906.jpgsave_picture_108906.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ Remedy - Pleasure Beats The Pain (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108907.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108907.jpgsave_picture_108907.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Vasilis Xenopoulos & Paul Edis - Feels Like Home (2024) [FLAC 24/44.1|Lossless|W
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108908.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108908.jpgsave_picture_108908.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ magnet:?xt=urn:btih:EC6D84DFB2E570F04F8DD84B3E041A610A7C7AC0
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108909.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108909.jpgsave_picture_108909.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ Wake Up Music Paradise - Contemplative Jazz Train Ride (2024) [FLAC 24/44.1|Loss
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108910.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108910.jpgsave_picture_108910.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Romantic Love Songs Academy - Romantic Drift Away: Love Sensations with Intimate
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108911.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108911.jpgsave_picture_108911.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ MotoGP. Этап 06 из 21. Гран-при Каталонии. Спринт (2
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108912.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108912.jpgsave_picture_108912.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Romantic Music Center, Instrumental Jazz Music Ambient - Late Night Kisses: Roma
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108913.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108913.jpgsave_picture_108913.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ magnet:?xt=urn:btih:B729F8B55A69186E039001EF949C841B3FA6ADBA
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108914.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108914.jpgsave_picture_108914.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ MotoGP. Этап 06 из 21. Гран-при Каталонии. Квалифи�
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108915.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108915.jpgsave_picture_108915.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ Rotting Christ - Pro Xristou (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Black
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108916.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108916.jpgsave_picture_108916.jpg" />
 </div>
 
 

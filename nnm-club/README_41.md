@@ -6,7 +6,7 @@ X4: Foundations (2018) [Ru/Multi] (8.00.577453 HF1/dlc) Repack alexalsp
 >>17
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1103.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1103.jpgsave_picture_1103.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ American Truck Simulator (2016) [Ru/Multi] (1.56.1.2s/dlc) Repack SE7EN
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1104.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1104.jpgsave_picture_1104.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:DB1EF40A0000E957F3713D56A61E1D93CC013616
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1105.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1105.jpgsave_picture_1105.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ S.T.A.L.K.E.R. 2: Heart of Chornobyl (2024) [Ru/Multi] (1.6/dlc) Repack Deceptic
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1106.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1106.jpgsave_picture_1106.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Tainted Grail: The Fall of Avalon (2023) [Ru/Multi] (1.1.0c/dlc) Repack Let'sРl
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1107.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1107.jpgsave_picture_1107.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ The X-Com Files: Transdimesional Express (1994-2025) [Ru/En] (3.9.1b) Repack/Mod
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1108.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1108.jpgsave_picture_1108.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:C0C2D5BC497F64FE8C13FD5776F9B122CEE44239
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1109.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1109.jpgsave_picture_1109.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:00D97848883598FC37CA7ABD5B2C57AA8371A634
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1110.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1110.jpgsave_picture_1110.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:662FD4CBA26E682C0C9DC5B8E1DB0003D84F11D7
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1111.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1111.jpgsave_picture_1111.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Elden Ring Nightreign (2025) [Ru/Multi] (1.02.3/dlc) Repack SE7EN [Deluxe Editio
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1112.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1112.jpgsave_picture_1112.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ magnet:?xt=urn:btih:0655CAA572E613287B5A3F47B82F28CB037B8B44
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1113.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1113.jpgsave_picture_1113.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Sins of a Solar Empire II (2024) [Ru/Multi] (1.45.9/dlc) Repack Let'sРlay [Prem
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1114.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1114.jpgsave_picture_1114.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ magnet:?xt=urn:btih:DA37D4831CD41FE91534054EC37CF3F96A247B40
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1115.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1115.jpgsave_picture_1115.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ METAL GEAR SOLID Δ SNAKE EATER (2025) [Ru/Multi] (1.1.4/dlc) Repack Let'sРlay 
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1116.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1116.jpgsave_picture_1116.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ Old World (2022) [Ru/Multi] (1.0.79871/dlc) Repack Let'sРlay [Complete Bundle]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1117.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1117.jpgsave_picture_1117.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ magnet:?xt=urn:btih:7C9E5BF2383B7376CCF37A1E2C9478D104233BE1
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1118.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1118.jpgsave_picture_1118.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ magnet:?xt=urn:btih:BD2A8CF0A7A3EB4C8DDECACABA4667BD2D20D5E8
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1119.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1119.jpgsave_picture_1119.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ VEXED - Studio Albums (2 releases) (2021-2023) hand made [restored, declipped] [
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1120.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1120.jpgsave_picture_1120.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ magnet:?xt=urn:btih:22A2D3996426ABC4D92EA0611F1709126469CD9E
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1121.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1121.jpgsave_picture_1121.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ magnet:?xt=urn:btih:0360CE9C3C6A01A6B25BF839426A0093801000C8
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1122.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1122.jpgsave_picture_1122.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Thy Art Is Murder - Studio Albums (7 releases) (2008-2023) hand made [restored, 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1123.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1123.jpgsave_picture_1123.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:45F5F06D790367AB841644D345F4DD1A1B7749CD
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1124.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1124.jpgsave_picture_1124.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ magnet:?xt=urn:btih:17BD2D50962FA465BE3DA40E96C6A93459D76D67
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1125.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1125.jpgsave_picture_1125.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ magnet:?xt=urn:btih:8E02BFEF622BEE6F4F8101F99099955233CE292A
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1126.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1126.jpgsave_picture_1126.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ magnet:?xt=urn:btih:BC8289079D1F9F50C1672CB38463B9D944B91EB4
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1127.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1127.jpgsave_picture_1127.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ magnet:?xt=urn:btih:3D8B2B92C537B9C9799FEC4C8D6FFE91E46CFFF1
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1128.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1128.jpgsave_picture_1128.jpg" />
 </div>
 
 

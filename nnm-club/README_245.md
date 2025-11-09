@@ -6,7 +6,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6449.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6449.jpgsave_picture_6449.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:1DE62E7A92A43B863F33600B902C87C8B25DBED4
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6450.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6450.jpgsave_picture_6450.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:E93FBDB172F6271A488B4653F97A5D124CAA06D5
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6451.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6451.jpgsave_picture_6451.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ VA - Ibiza Nights (Deep Strips Records) (2025) [FLAC|Lossless|WEB-DL|tracks] <Ho
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6452.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6452.jpgsave_picture_6452.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ magnet:?xt=urn:btih:C65DD912C114E7E5D638B706F745D2A992920E94
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6453.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6453.jpgsave_picture_6453.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ magnet:?xt=urn:btih:A2BA96C695383B8FDC517548745E46E0508B34C0
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6454.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6454.jpgsave_picture_6454.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ magnet:?xt=urn:btih:12EC5CB46083E1CD19E703E32512E361785693B4
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6455.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6455.jpgsave_picture_6455.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ Michael Schenker's Temple Of Rock - Spirit On A Mission (2015) [FLAC|Lossless|im
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6456.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6456.jpgsave_picture_6456.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ magnet:?xt=urn:btih:EB5CC12A013BD007E1E1C8DDB03238526BAEF0A6
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6457.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6457.jpgsave_picture_6457.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ magnet:?xt=urn:btih:642A4C757615D71B73201B998DD7EF696DB3377B
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6458.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6458.jpgsave_picture_6458.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ XYplorer 27.10.0600 + Portable [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6459.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6459.jpgsave_picture_6459.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ magnet:?xt=urn:btih:EFC1998731D1292FB393AEFC2F0A9ECDC6F4468F
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6460.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6460.jpgsave_picture_6460.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ magnet:?xt=urn:btih:349F9D9AF960F9624F6A29F42A05C0381BBB3713
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6461.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6461.jpgsave_picture_6461.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ magnet:?xt=urn:btih:AE132F43CB1BADD44581D38F0F70AF520C1F7A69
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6462.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6462.jpgsave_picture_6462.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ XYplorer 27.10.0600 RePack (& Portable) by elchupacabra [Ru/En]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6463.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6463.jpgsave_picture_6463.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ magnet:?xt=urn:btih:29C01DF4DE76A5BBFD7E990146A66E1E2307A4CA
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6464.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6464.jpgsave_picture_6464.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Dystopika (2024) [Ru/Multi] (1.5.6+53) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6465.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6465.jpgsave_picture_6465.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ magnet:?xt=urn:btih:081AEA283157810627C4686CD2BE9F2FAFBBA513
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6466.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6466.jpgsave_picture_6466.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Any Video Downloader Pro 9.5.1 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6467.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6467.jpgsave_picture_6467.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ MuseScore 4.5.2 + Portable [Multi/Ru]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6468.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6468.jpgsave_picture_6468.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ magnet:?xt=urn:btih:5AD37F070D41FC450EF4ED967F85414E9FB87E1C
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6469.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6469.jpgsave_picture_6469.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ PDF-XChange PRO 10.7.0.398 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6470.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6470.jpgsave_picture_6470.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Queen - Acoustic (2025) Remastered, 2011, UME - Global Clearing House [FLAC|Loss
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6471.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6471.jpgsave_picture_6471.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ magnet:?xt=urn:btih:C0B47AA187FAEE80ED3026EF8AB9F8E267213C1E
 >>Космос
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6472.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6472.jpgsave_picture_6472.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Fort Firewall 3.19.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6473.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6473.jpgsave_picture_6473.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ magnet:?xt=urn:btih:6CE5A8AAC51C5D48080BC5E50B97676657DDBC3A
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6474.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6474.jpgsave_picture_6474.jpg" />
 </div>
 
 

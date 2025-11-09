@@ -6,7 +6,7 @@
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166830.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166830.jpgsave_picture_166830.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:6040A69A37580DA1AADB152296C337818EC936CC
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166831.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166831.jpgsave_picture_166831.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:35B0F0318BCA6C87C95706258080B95D8DB3104C
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166832.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166832.jpgsave_picture_166832.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:97F82231D6733829886FD390ED1F8E0D1F4AA1AB
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166833.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166833.jpgsave_picture_166833.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:2013398A722B1EAB51B21FE8CC1435F68855B258
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166834.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166834.jpgsave_picture_166834.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ TechSmith Snagit 2024.0.1 build 555 (x64) RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166835.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166835.jpgsave_picture_166835.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:A915E1D6CE67B1FB9CF4EA66357A29CD6A755DF9
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166836.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166836.jpgsave_picture_166836.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Crystal Viper - The Last Axeman (2022) Japanese Edition, Compilation [FLAC|Lossl
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166837.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166837.jpgsave_picture_166837.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:606D647D563792A2A1EF0FE700D097A920CF519A
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166839.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166839.jpgsave_picture_166839.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ Jesse Harms - All Sides - Songwriter Demos Collection (2022) 6xCD [FLAC|Lossless
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166840.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166840.jpgsave_picture_166840.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ Total Commander 11.02 RC5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166841.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166841.jpgsave_picture_166841.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ magnet:?xt=urn:btih:D1401E1997D04AA3A57402D8AA1D48F627E14248
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166842.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166842.jpgsave_picture_166842.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ Wondershare UniConverter 12.5.2.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166843.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166843.jpgsave_picture_166843.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ magnet:?xt=urn:btih:BFFB7BDBA3C5BEEA3F9350875782FADFB4E1E48E
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166844.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166844.jpgsave_picture_166844.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ VA - Armada Music 2022 (2021) [FLAC|Lossless|WEB-DL|tracks] <Deep House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166845.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166845.jpgsave_picture_166845.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ Hosts File Editor+ 1.5.13 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166846.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166846.jpgsave_picture_166846.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ Dream Theater - Distant Memories - Live In London (2020) 3xCD [FLAC|Lossless|ima
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166847.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166847.jpgsave_picture_166847.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ magnet:?xt=urn:btih:0E379809CE63CE11F0BAA7EFE56DF311D2481A59
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166848.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166848.jpgsave_picture_166848.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ magnet:?xt=urn:btih:9993DE8575F6CB1A509798BFF233E63159441AA8
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166849.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166849.jpgsave_picture_166849.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ VA - Эти песни запевает молодёжь - Любимые пес
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166850.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166850.jpgsave_picture_166850.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Balabolka 2.15.0.764 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166851.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166851.jpgsave_picture_166851.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Cozy Magnifier & Microscope Plus v6.3.0 Mod by derrin [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166852.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166852.jpgsave_picture_166852.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Ely Bruna & Papik - In Sweet Harmony (2021) [FLAC|Lossless|WEB-DL|tracks] <Jazz,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166853.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166853.jpgsave_picture_166853.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ magnet:?xt=urn:btih:7B35CC2BC5C768EE99D7C56A2C1A437CDF638BCD
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166854.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166854.jpgsave_picture_166854.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ VA - Remixes 2020 NNM (2019) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166856.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166856.jpgsave_picture_166856.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ magnet:?xt=urn:btih:9077CE7226C4E7D68E988B0C0EF331E87301D729
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166857.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166857.jpgsave_picture_166857.jpg" />
 </div>
 
 

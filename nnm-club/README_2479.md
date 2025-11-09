@@ -6,7 +6,7 @@ PowerDirector – Video Editor v15.5.0 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65204.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65204.jpgsave_picture_65204.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ TuneIn Radio Pro v39.4 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65205.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65205.jpgsave_picture_65205.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:C02E14D6EC99F47D625E0CE845B3D6405CCD301A
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65206.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65206.jpgsave_picture_65206.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:A657E2F8E2B7DB2CE13C2ED345AC569CD7560612
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65207.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65207.jpgsave_picture_65207.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:0D5D988F03E76541AE9CDDB08A09E6B2416AFA78
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65208.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65208.jpgsave_picture_65208.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ VA - Chase the Moon (Rock Hits) (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65209.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65209.jpgsave_picture_65209.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ VA - The Blues Wont Leave Me Alone (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65210.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65210.jpgsave_picture_65210.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ Smart AudioBook Player Pro v11.5.1 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65211.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65211.jpgsave_picture_65211.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ VA - Compilation Part 174 Electronic (2025) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65212.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65212.jpgsave_picture_65212.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ Mary’s recipes: рецепты, меню v6.1.0 Mod by Alex.Strannik [Ru/Multi
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65213.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65213.jpgsave_picture_65213.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ TrackChecker Mobile v2.28.4 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65214.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65214.jpgsave_picture_65214.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ magnet:?xt=urn:btih:7480260F11F104F035701F1E5CCAEE7D55EBB7EC
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65215.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65215.jpgsave_picture_65215.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ magnet:?xt=urn:btih:B3E33D7CD5C305A8619144642B3AA4C49C86552B
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65216.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65216.jpgsave_picture_65216.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ magnet:?xt=urn:btih:9F20C5A2B10254EFE96B7A6CF02E600CD8405E07
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65217.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65217.jpgsave_picture_65217.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Eagles - Hotel California (1976) Reissue, 2017, Asylum 2CD [FLAC|Lossless|tracks
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65218.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65218.jpgsave_picture_65218.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ magnet:?xt=urn:btih:AEC50768D520B621B429FD8AEA6EC839C1C5957B
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65219.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65219.jpgsave_picture_65219.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Daily Yoga (Ежедневная йога) v8.72.00 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65220.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65220.jpgsave_picture_65220.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ PhotoDirector v20.3.2 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65221.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65221.jpgsave_picture_65221.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ magnet:?xt=urn:btih:1B8B60EB77A813681F1B42F0E2411C3A20FAC5E5
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65222.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65222.jpgsave_picture_65222.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ magnet:?xt=urn:btih:F09A2DD0D39C0A20D4B34088011ACDAE67E7BD6C
 >>Трейлеры (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65223.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65223.jpgsave_picture_65223.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Boris Brejcha – Level One (2024) [FLAC|Lossless|WEB-DL|tracks] <Minimal, Tech 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65224.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65224.jpgsave_picture_65224.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ VA - Rock Music - Perfect Blend (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65225.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65225.jpgsave_picture_65225.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Above & Beyond - Bigger Than All Of Us (2025) [FLAC|Lossless|WEB-DL|tracks] <Tra
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65226.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65226.jpgsave_picture_65226.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ magnet:?xt=urn:btih:EDC3641CED53652E96328B37F32C2028BD6B5FA7
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65227.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65227.jpgsave_picture_65227.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ magnet:?xt=urn:btih:62015E9DD7CDDD9CA29D1A3DC6D277A1E0773A7E
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65228.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65228.jpgsave_picture_65228.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ VA - Classic Dad Rock (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65229.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65229.jpgsave_picture_65229.jpg" />
 </div>
 
 

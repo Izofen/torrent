@@ -6,7 +6,7 @@ The Essence - Caverns (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31053.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31053.jpgsave_picture_31053.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Wlodek Gulgowski - Soundcheck (1976) (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31056.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31056.jpgsave_picture_31056.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Soulstance and Lo Greco Bros - The Cinematic Sound Of Soulstance (2025) [FLAC 24
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31057.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31057.jpgsave_picture_31057.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:02FAC45C3571A14284552DC3001DD7BE40684538
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31060.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31060.jpgsave_picture_31060.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Vivaldi Metal Project - Studio Albums (3 releases) (2016-2022) hand made [restor
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31078.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31078.jpgsave_picture_31078.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Paper Lace - First Edition (1972) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop R
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31101.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31101.jpgsave_picture_31101.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Mark Duffy - Tribute To Glen Campbell (1973) [FLAC 2.0|192/24|image +.cue|Vinyl-
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31112.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31112.jpgsave_picture_31112.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ magnet:?xt=urn:btih:50D4B38EF5C7D7EF32B226734F85391AEC28A60B
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31139.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31139.jpgsave_picture_31139.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ Tremonti (Creed, Alter Bridge) - Studio Albums (6 releases) (2012-2025) hand mad
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31199.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31199.jpgsave_picture_31199.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ VA - Legend Rock Ballads vol.1 - vol.3 (1996) Compilation, Unofficial Release [F
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31269.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31269.jpgsave_picture_31269.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Franz Ferdinand - The Human Fear (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <A
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31363.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31363.jpgsave_picture_31363.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Malia - One Grass Skirt to London (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Vo
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31370.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31370.jpgsave_picture_31370.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ The Halo Effect - March Of The Unheard (2025) [FLAC 24/48|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31458.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31458.jpgsave_picture_31458.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Sevendust - Studio Albums (14 releases) (1997-2023) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31463.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31463.jpgsave_picture_31463.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Theatres Des Vampires - Studio Albums (12 releases) (1996-2021) hand made [resto
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31472.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31472.jpgsave_picture_31472.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ Tremonti - The End Will Show Us How (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31473.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31473.jpgsave_picture_31473.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ Conquer Divide - Studio Albums (2 releases) (2015-2024) hand made [restored, dec
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31474.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31474.jpgsave_picture_31474.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ Atreyu - Studio Albums (12 releases) (2001-2024) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31478.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31478.jpgsave_picture_31478.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Ringo Starr - Look Up (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Country>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31488.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31488.jpgsave_picture_31488.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ Umbra Et Imago - Studio Albums (14 releases) (1992-2017) hand made [restored, de
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31813.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31813.jpgsave_picture_31813.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Pink Floyd - Live At Théâtre de Plein Air (Colmar, France, 22 June 1974) (2024
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31883.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31883.jpgsave_picture_31883.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Pink Floyd - Live At Usher Hall (Edinburgh, UK, 4 November 1974) (2024) Live [FL
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31884.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31884.jpgsave_picture_31884.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Pink Floyd - Eclipsed By The Moon - Studio Outtakes 1972 (2022) EP (Live)[FLAC 2
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31886.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31886.jpgsave_picture_31886.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Pink Floyd - Live at Trentham Gardens (Stoke-On-Trent, UK, 19 Nov 1974) (2024) L
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31889.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31889.jpgsave_picture_31889.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ Pink Floyd - Live At The Hippodrome (Bristol, UK, 14 December 1974) (2024) Live 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31894.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31894.jpgsave_picture_31894.jpg" />
 </div>
 
 
@@ -675,7 +675,7 @@ Pink Floyd - Live At Empire Pool (Wembley, London, UK, 15 November 1974) (2024) 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31897.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31897.jpgsave_picture_31897.jpg" />
 </div>
 
 

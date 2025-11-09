@@ -6,7 +6,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117802.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117802.jpgsave_picture_117802.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Infuse PRO 7.7.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117803.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117803.jpgsave_picture_117803.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:660F2B3657E642DAA8FC37130D5BE8E2DC7EE224
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117804.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117804.jpgsave_picture_117804.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ Shindhu (Шинду, Sri Chinmoy) - Eternity’s Dream (Мечта Вечнос�
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117805.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117805.jpgsave_picture_117805.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ VA - Absolute Dance (1994) [OGG Vorbis|480 Kbps] <Electronic, Pop, Euro House, E
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117806.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117806.jpgsave_picture_117806.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ Directory List & Print Pro 4.29 + Standalone [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117807.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117807.jpgsave_picture_117807.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ TechTool Pro 19 v.19.0.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117808.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117808.jpgsave_picture_117808.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ Grateful Dead - It Must Have Been the Roses (2024) [FLAC|Lossless|WEB-DL|tracks]
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117809.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117809.jpgsave_picture_117809.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ magnet:?xt=urn:btih:5B217E0D46E7632012CE45E4561D2983E3429A76
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117810.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117810.jpgsave_picture_117810.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ VA - Maxi Hit-Sensation 97-04 (2007) 3 CD [OGG Vorbis|480 Kbps] <Electronic, Pop
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117811.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117811.jpgsave_picture_117811.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ magnet:?xt=urn:btih:9E250271E2EC526E2D625E9730CA65361F2DDAB6
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117812.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117812.jpgsave_picture_117812.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ magnet:?xt=urn:btih:85931303ADB36F4318A396CA96B70ADF05383173
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117813.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117813.jpgsave_picture_117813.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ magnet:?xt=urn:btih:A49D41D0024D242F50451DB5ED01D5FC3CB196C5
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117814.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117814.jpgsave_picture_117814.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ magnet:?xt=urn:btih:EC8323BC4D9C57821831597A22971A8A7E6169B6
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117815.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117815.jpgsave_picture_117815.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ Lourdes Miquel etc. | серия книг Lola Lago [8 книг] (2003-2020) [PD
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117816.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117816.jpgsave_picture_117816.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Paul McCartney & Wings - Band On The Run (1973) 2 x CD, Reissue, 2023, Capitol R
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117817.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117817.jpgsave_picture_117817.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ magnet:?xt=urn:btih:C9414D0FF6C54EDA1BC2D4C21501D88929480955
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117818.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117818.jpgsave_picture_117818.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Shuumatsu no Walkure II | Record of Ragnarok II | Повесть о конце �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117819.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117819.jpgsave_picture_117819.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ Revo Uninstaller Pro 5.2.5 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117820.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117820.jpgsave_picture_117820.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ Joe Cocker - You Are So Beautiful (2024) Compilation [FLAC|Lossless|WEB-DL|track
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117821.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117821.jpgsave_picture_117821.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Wise Care 365 Pro 6.6.5.635 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117822.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117822.jpgsave_picture_117822.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Q-Dir 11.47 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117823.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117823.jpgsave_picture_117823.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Go-Toubun no Hanayome~ | The Quintessential Quintuplets | Пять невест:
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117824.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117824.jpgsave_picture_117824.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ magnet:?xt=urn:btih:D76DB60F1BA5F3EC613751CB8E73D0417AA1FB2C
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117825.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117825.jpgsave_picture_117825.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ magnet:?xt=urn:btih:78A7589A78953C9A4EF3C5EFDA02699A2E1382FF
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117826.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117826.jpgsave_picture_117826.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Process Lasso Pro 12.5.0.38 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117827.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117827.jpgsave_picture_117827.jpg" />
 </div>
 
 

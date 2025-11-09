@@ -6,7 +6,7 @@
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22959.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22959.jpgsave_picture_22959.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:72208A27D8D2AEB62525C8A1E296FE87BF996522
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22960.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22960.jpgsave_picture_22960.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:72208A27D8D2AEB62525C8A1E296FE87BF996522
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22961.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22961.jpgsave_picture_22961.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:6C56DDDF64F900167D30AC98EF785E3E0CAB1BCE
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22962.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22962.jpgsave_picture_22962.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Spyro Reignited Trilogy (2019) [Ru/En] (Build 3849171) Repack Mizantrop1337
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22963.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22963.jpgsave_picture_22963.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:D584924EEC1FEE362E26898D159DDB6CB9362174
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22964.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22964.jpgsave_picture_22964.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:71C75E78989412FC6062FA868FA16207CA56B5CE
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22965.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22965.jpgsave_picture_22965.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:260E70DCA2A42F6BA9E5D1B2CF2300C17853C32A
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22966.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22966.jpgsave_picture_22966.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:F58F7EE991CF6AAAEB076692FF95A0BCCAECAC3E
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22967.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22967.jpgsave_picture_22967.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ magnet:?xt=urn:btih:076482658A2FE45C1C43C81CBE4BF8288E431DDA
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22968.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22968.jpgsave_picture_22968.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Still Joking (2024) [Ru/En] (1.2251) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22969.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22969.jpgsave_picture_22969.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ magnet:?xt=urn:btih:285087AAA07900D780B43A836E2A5FEAA96867D7
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22970.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22970.jpgsave_picture_22970.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ magnet:?xt=urn:btih:5DE3B4E4E761EBBCCA962437334EB36A73059954
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22971.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22971.jpgsave_picture_22971.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Notification Dots v1.2.58 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22972.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22972.jpgsave_picture_22972.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ magnet:?xt=urn:btih:92F7036A645784D9BF7EDF82BF748B530BFD038A
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22973.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22973.jpgsave_picture_22973.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ Shangri-La Frontier: Kusogee Hunter, Kamige ni Idoman to Su 2nd Season | Фро�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22974.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22974.jpgsave_picture_22974.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ Ubel Blatt | Übel Blatt | Клинoк злa [2024, TV, 12 из 12] WEBRip 1080p
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22975.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22975.jpgsave_picture_22975.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Quilts and Cats of Calico (2024) [Ru/Multi] (55) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22976.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22976.jpgsave_picture_22976.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ magnet:?xt=urn:btih:437AA24E7B88FF3733C922F2342EA92826C33C58
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22977.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22977.jpgsave_picture_22977.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ magnet:?xt=urn:btih:E04EB3FA3A87AA96B8BC8156BF9178EF71F9B2CC
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22978.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22978.jpgsave_picture_22978.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ magnet:?xt=urn:btih:8A1D19DED8B80BF1EDD8B7B91BAD457100F90C64
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22979.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22979.jpgsave_picture_22979.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ magnet:?xt=urn:btih:B831861A848144D23F2AA10EF9F57E18E4418E06
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22980.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22980.jpgsave_picture_22980.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ magnet:?xt=urn:btih:1C2E843ED0F43A3453375EE7EAAD3B26AD59C13B
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22981.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22981.jpgsave_picture_22981.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ magnet:?xt=urn:btih:95873253230916C20DBD90BCB49A65EB47BA9968
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22982.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22982.jpgsave_picture_22982.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ magnet:?xt=urn:btih:282B20E01D86139F011E6480B07CA77333D2AF71
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22983.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22983.jpgsave_picture_22983.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ VA - Compilation Part 151 Electronic (2025) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22984.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22984.jpgsave_picture_22984.jpg" />
 </div>
 
 

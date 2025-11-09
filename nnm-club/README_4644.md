@@ -6,7 +6,7 @@
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145370.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145370.jpgsave_picture_145370.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:26F37D840AEC6AAAE95BFB02020C6B0D8B5DB66D
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145372.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145372.jpgsave_picture_145372.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ ApowerREC 1.6.8.8 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145374.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145374.jpgsave_picture_145374.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:6D8DA3BA8BBEE6C588A87AD69996514F146C5E04
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145375.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145375.jpgsave_picture_145375.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:06860FAD888148CB87784F8E76217AD70D25B3F5
 >>КВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145377.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145377.jpgsave_picture_145377.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ ADSR Sample Manager 1.7.4 STANDALONE, VSTi, VSTi3, AAX [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145378.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145378.jpgsave_picture_145378.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ DVDFab 9.2.2.3 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145379.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145379.jpgsave_picture_145379.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:7068773912EBF99A8DA86D09506BB25277B5E17D
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145380.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145380.jpgsave_picture_145380.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:CEC35B681E408171BBA93C4CAE3054A5C109115A
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145382.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145382.jpgsave_picture_145382.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ The Unarchiver - Unzip RAR ZIP 3.3.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145383.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145383.jpgsave_picture_145383.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Vidmore Player 1.0.58 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145384.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145384.jpgsave_picture_145384.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:A744975E4D645C211204A7A4938579EBE8C3502C
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145386.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145386.jpgsave_picture_145386.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ magnet:?xt=urn:btih:63A53E52B9C06AAD251357B919DBCC5002191A49
 >>Релакс / Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145387.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145387.jpgsave_picture_145387.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ magnet:?xt=urn:btih:3E8864B88B2089AED7ED0748487BDA341912778B
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145388.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145388.jpgsave_picture_145388.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ magnet:?xt=urn:btih:984653E7571DD0109832A1145D4A1F5FA29B7C86
 >>Звуковые дорожки и субтитры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145389.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145389.jpgsave_picture_145389.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ magnet:?xt=urn:btih:15E0156B9CB083E70C6D3AD56578553BA647C1D5
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145390.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145390.jpgsave_picture_145390.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ magnet:?xt=urn:btih:45EA933A2CA1B79441D3530324C371F91F5DFE6E
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145391.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145391.jpgsave_picture_145391.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ RapidWeaver 6.3.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145392.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145392.jpgsave_picture_145392.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ magnet:?xt=urn:btih:8A9392444218FB804B5BA01F2516728528F754AD
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145393.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145393.jpgsave_picture_145393.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ magnet:?xt=urn:btih:BD4B4741DAA5AA00FABD67F999D2007392DD4229
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145394.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145394.jpgsave_picture_145394.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ The BossHoss - Compilation (2021) [MP3|320 Kbps] <Rock/Country/Rockabilly>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145395.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145395.jpgsave_picture_145395.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ ToonMe 0.6.94 Mod by maxi123444 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145396.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145396.jpgsave_picture_145396.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Keith Richards - Crosseyed Heart (Best Buy Edition) (2015) [FLAC|Image+cue] <Blu
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145398.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145398.jpgsave_picture_145398.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ magnet:?xt=urn:btih:566F78820B9B5DAE3CD295B166A3CE78007A476F
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145399.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145399.jpgsave_picture_145399.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Udemy, Holczer Balazs | Параллелизм, многопоточность �
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145400.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145400.jpgsave_picture_145400.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ VA - Хиты под водочку: Поворот на 360 (2005) [MP3|320 Kbp
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145401.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145401.jpgsave_picture_145401.jpg" />
 </div>
 
 

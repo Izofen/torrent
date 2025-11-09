@@ -6,7 +6,7 @@ n-Track Studio Suite 10.1.0.8659 (x32) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110139.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110139.jpgsave_picture_110139.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Mind's Mirrors - Forever Is Not Nearly Long Enough (2024) [FLAC|Lossless|WEB-DL|
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110140.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110140.jpgsave_picture_110140.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:AD3046F73AAF3FA5A74ECE2BA680A0B58787288C
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110141.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110141.jpgsave_picture_110141.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ Allcharters - AllCharters (2024) [FLAC|Lossless|WEB-DL|tracks] <Nu Metal, Rapcor
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110142.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110142.jpgsave_picture_110142.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ The Monarch - A Moment to Lose Your Breath (2024) [FLAC|Lossless|WEB-DL|tracks] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110143.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110143.jpgsave_picture_110143.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Yasru - Bilinmeze (2024) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal, Folk>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110144.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110144.jpgsave_picture_110144.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Juke Cove - Tempest (2024) [FLAC|Lossless|WEB-DL|tracks] <stoner, doom, psych, p
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110145.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110145.jpgsave_picture_110145.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ magnet:?xt=urn:btih:A377CDCA79EE66C57DC775EA3B579749F127CE5A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110146.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110146.jpgsave_picture_110146.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ magnet:?xt=urn:btih:A377CDCA79EE66C57DC775EA3B579749F127CE5A
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110147.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110147.jpgsave_picture_110147.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ n-Track Studio Suite 10.1.0.8659 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110148.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110148.jpgsave_picture_110148.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ magnet:?xt=urn:btih:5270E6E731E434CC2E3C931FEAB9D8EA741B31CA
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110149.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110149.jpgsave_picture_110149.jpg" />
 </div>
 
 
@@ -291,7 +291,7 @@ magnet:?xt=urn:btih:2E3D67F22FC6620A35387D4B56BBC95E7FA54137
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110150.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110150.jpgsave_picture_110150.jpg" />
 </div>
 
 
@@ -315,7 +315,7 @@ VA - Lounge Rock (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Easy Listening, J
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110151.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110151.jpgsave_picture_110151.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ magnet:?xt=urn:btih:4261CE0EAA4E5696303AB4ADA6FE10FF1359FD76
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110152.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110152.jpgsave_picture_110152.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ Death On The Balcony - Forever For Me EP (2024) [FLAC|Lossless|WEB-DL|tracks] <T
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110153.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110153.jpgsave_picture_110153.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ VA - Calming Moments, Vol. 3 (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110154.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110154.jpgsave_picture_110154.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ magnet:?xt=urn:btih:29597487C97FC46A022D21B2FA040D72F7552141
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110155.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110155.jpgsave_picture_110155.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ QOwnNotes 24.4.4 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110156.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110156.jpgsave_picture_110156.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ magnet:?xt=urn:btih:B230E397D853D1BA523782A2B12265CFB2FEE1D3
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110157.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110157.jpgsave_picture_110157.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ VA - Evolving Horizons: Progressive Trance Chronicles, Vol. 02 (2024) [MP3|320 K
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110158.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110158.jpgsave_picture_110158.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ Contention - Artillery From Heaven (2024) [FLAC|Lossless|WEB-DL|tracks] <Metalli
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110159.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110159.jpgsave_picture_110159.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ magnet:?xt=urn:btih:FFA1884BFF4BB8A09160279EACA8B22B50BE0DCA
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110160.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110160.jpgsave_picture_110160.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ magnet:?xt=urn:btih:5E9CB024F288D7C838FF2ED2F6E33B8E363CC7E0
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110161.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110161.jpgsave_picture_110161.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Alestorm - Voyage Of The Dead Marauder (2024) EP [FLAC|Lossless|image + .cue] <P
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110162.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110162.jpgsave_picture_110162.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ magnet:?xt=urn:btih:F586F7BF50AB16C2A24CF3DEAB6CF59BF32D3D9D
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110163.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110163.jpgsave_picture_110163.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Ibibio Sound Machine - Pull the Rope (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110164.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110164.jpgsave_picture_110164.jpg" />
 </div>
 
 

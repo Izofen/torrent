@@ -6,7 +6,7 @@ Cindy Lora-Renard - Journey Through Sound (2009) [MP3|160-320 кб/с]<New age, 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99840.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99840.jpgsave_picture_99840.jpg" />
 </div>
 
 
@@ -36,7 +36,7 @@ magnet:?xt=urn:btih:980C49A1D41A4CBDE7C40509A1684966A74415A3
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99846.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99846.jpgsave_picture_99846.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Randall - Eight Storeys (2004) [MP3|320 кб/с]<Ambient, Istrumental>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99851.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99851.jpgsave_picture_99851.jpg" />
 </div>
 
 
@@ -91,7 +91,7 @@ Astrohenge - II (2011) [MP3|320 кб/с]<Progressive Psychedelic Sludge>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99852.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99852.jpgsave_picture_99852.jpg" />
 </div>
 
 
@@ -118,7 +118,7 @@ Decontrolled - The Circle (2012) [MP3|320 кб/с]<Modern Metal, Nu-Metal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99853.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99853.jpgsave_picture_99853.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Curandero - Aras (2010) [MP3|320 кб/с]<World>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99855.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99855.jpgsave_picture_99855.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ DotEXE - Donations Accepted (2012) [MP3|320 кб/с]<Drum'n'Bass, Dubstep>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99859.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99859.jpgsave_picture_99859.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ Skreatch vs. Joe Smooth - Promised Milkshake (2012) [H.264] WEBRip
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99864.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99864.jpgsave_picture_99864.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ magnet:?xt=urn:btih:46D7812E5FFA15912B09801401205E10A1974F1F
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99865.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99865.jpgsave_picture_99865.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ Various Artists - Hitzone 61 (2012) [MP3|320 кб/с]<Club, Dance>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99867.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99867.jpgsave_picture_99867.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Tomorrow We Hunt - Bitter Words (2012) [MP3|320 кб/с]<Melodic Hardcore>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99869.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99869.jpgsave_picture_99869.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ magnet:?xt=urn:btih:2EA87BC6EFC240CF5FF917DB900D61BA1C8D8394
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99870.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99870.jpgsave_picture_99870.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ magnet:?xt=urn:btih:637269915AD9FEA3AE6F1D0C232180CD4A81B72F
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99872.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99872.jpgsave_picture_99872.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ VA - Клубные новинки Vol. 66 from GvertO (2012) [MP3|320 кб/с]<
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99877.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99877.jpgsave_picture_99877.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ VA - DJ Club Spring (2012) [MP3|160-320 кб/с]<Club, Dance, Electro, House>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99878.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99878.jpgsave_picture_99878.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ magnet:?xt=urn:btih:5AA3E003A567BFD109FE4936D73ADC7C1583C8E2
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99886.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99886.jpgsave_picture_99886.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ magnet:?xt=urn:btih:08A9ABC1C386D552AEE33E4F492EBD0530E360CF
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99888.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99888.jpgsave_picture_99888.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ magnet:?xt=urn:btih:3FAA566A2C441D80C09E18C39018FD2F989E5802
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99890.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99890.jpgsave_picture_99890.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ magnet:?xt=urn:btih:DFBB9A748A46ABEFBB2289E3E84895F66413AD73
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99896.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99896.jpgsave_picture_99896.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:7EDAE7C3F7388A1F1C34A6F237766EB103EB42C7
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99900.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99900.jpgsave_picture_99900.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ VA - Хиты на радио клубнячек и попса vol.8 (2012) [MP3
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99903.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99903.jpgsave_picture_99903.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ Nevergreen - Karmageddon (2012) [MP3|320 кб/с]<Doom Metal, Gothic Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99907.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99907.jpgsave_picture_99907.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ VA - Клубная танцевальная 100-ка (2012) [MP3|160-256 кб/�
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99909.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99909.jpgsave_picture_99909.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ magnet:?xt=urn:btih:60B97026394C867087A998905B327E19877DF54C
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99911.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99911.jpgsave_picture_99911.jpg" />
 </div>
 
 
@@ -686,7 +686,7 @@ magnet:?xt=urn:btih:90F51231A01E201215D1E2B7C6B5E1C885E84E30
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99913.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99913.jpgsave_picture_99913.jpg" />
 </div>
 
 
@@ -710,7 +710,7 @@ Silent Scream - Primiera (2010) [MP3|320 кб/с]<Psytrance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99915.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99915.jpgsave_picture_99915.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155254.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155254.jpgsave_picture_155254.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Icecream Screen Recorder PRO 6.01 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155255.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155255.jpgsave_picture_155255.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:22CC3F162209641889C4CDDCC4FC82567321CBE2
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155258.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155258.jpgsave_picture_155258.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ The Locust - Molecular Genetics From The Gold Standard Labs (2012) [MP3|320 кб
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155259.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155259.jpgsave_picture_155259.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:82EE48758B019CF3FC8FB9828D101C83B383AA18
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155260.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155260.jpgsave_picture_155260.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ ASUS GPU Tweak III 1.7.0.7 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155261.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155261.jpgsave_picture_155261.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:A8F4AF5B0B0DD07060D3CF6FFDC374C3E91AE9A6
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155262.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155262.jpgsave_picture_155262.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:4A091EAEA704111D4BFE64A0DBED100DBC543C49
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155264.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155264.jpgsave_picture_155264.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ Splattered Entrails - Depths Of Obscurity (2012) [MP3|320 кб/с]<Brutal Death>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155265.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155265.jpgsave_picture_155265.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ magnet:?xt=urn:btih:BB13E1479EF7F0FFCCE04801B35C3CFFA762CFB5
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155266.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155266.jpgsave_picture_155266.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ magnet:?xt=urn:btih:1E519A31B1C33C199260E412B4B6B2FA46152B7F
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155267.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155267.jpgsave_picture_155267.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ Unity Pro 2019 2.16f1 x64 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155268.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155268.jpgsave_picture_155268.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ magnet:?xt=urn:btih:D3907D1D84B81B0E59D7C0DE2E07383724B590CA
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155269.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155269.jpgsave_picture_155269.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:30FF1BECDF9D405D03A7D207EBADED6A6BF63BA7
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155270.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155270.jpgsave_picture_155270.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Minecraft Story Mode: A Telltale Games Series - Episodes 1-4 (2015) [Ru/Multi] (
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155271.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155271.jpgsave_picture_155271.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Morger - 2012 (2012) [MP3|320 кб/с]<Death Metal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155272.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155272.jpgsave_picture_155272.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ magnet:?xt=urn:btih:932A9959B777C5B30E725F58A880474578E01D43
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155273.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155273.jpgsave_picture_155273.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ VA - Music News vol.234 (2022) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155274.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155274.jpgsave_picture_155274.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Total Commander 9.0a Freemen 17.0 Repack by notn [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155275.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155275.jpgsave_picture_155275.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ magnet:?xt=urn:btih:BF4C5FA6D6E36974A30907F056E03025B5A9C0DB
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155276.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155276.jpgsave_picture_155276.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ magnet:?xt=urn:btih:D5B4AEAE2B81934A8B52BB1B7FFF16C566D27C2C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155278.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155278.jpgsave_picture_155278.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ magnet:?xt=urn:btih:0E6FCE228A6FBBA0F24E3AAFE9BF661D84CB5EB4
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155279.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155279.jpgsave_picture_155279.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ magnet:?xt=urn:btih:0CC82C933A0DC3B44F919CEEDE8E2D67DF1B887C
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155280.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155280.jpgsave_picture_155280.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ AdGuard for Safari 1.11.9 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155281.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155281.jpgsave_picture_155281.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ magnet:?xt=urn:btih:A51AB8A0FB7530E9DA6D02FFBEB947B0DC687C80
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155282.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155282.jpgsave_picture_155282.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Sexy Girls Pack Wallpapers (13.12.12) [Wallpapers 16+]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155284.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155284.jpgsave_picture_155284.jpg" />
 </div>
 
 

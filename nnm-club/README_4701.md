@@ -6,7 +6,7 @@
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147151.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147151.jpgsave_picture_147151.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:49B31CDEF4794A581986E7B807E3C11E799CDE9C
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147152.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147152.jpgsave_picture_147152.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:61C55C8AA05FF6695D73A77983DFDDCBDF457887
 >>КВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147153.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147153.jpgsave_picture_147153.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Ad Infinitum - Chapter II - Legacy (2021) [FLAC|Lossless|image + .cue] <Symphoni
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147156.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147156.jpgsave_picture_147156.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Aiseesoft Video Converter Ultimate 10.7.32 RePack (& Portable) by elchupacabra [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147158.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147158.jpgsave_picture_147158.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:A25827A1B04EAB5A468DC70310834B9973F1DDD1
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147159.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147159.jpgsave_picture_147159.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:181806586E846179B8AEE49F6F73B12B7641B51E
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147160.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147160.jpgsave_picture_147160.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Adobe Photoshop CC 2017.0.1 (2016.11.30.r.29) RePack by D!akov (25.12.2016) [Mul
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147161.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147161.jpgsave_picture_147161.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:D5A7C711CEB8C4C3164D394DC9633C57D5E638A5
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147162.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147162.jpgsave_picture_147162.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ Air Conflicts: Pacific Carriers / Асы Тихого океана [Ru/En/Multi6
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147163.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147163.jpgsave_picture_147163.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ magnet:?xt=urn:btih:BA69C26A660484CA11798A623478B271A85E3997
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147164.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147164.jpgsave_picture_147164.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ Glarysoft Malware Hunter PRO 1.175.0.795 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147166.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147166.jpgsave_picture_147166.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Udemy, Timur Mashnin | Введение в объектно-ориентиров
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147167.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147167.jpgsave_picture_147167.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ MP3jam 1.1.5.6 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147168.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147168.jpgsave_picture_147168.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ magnet:?xt=urn:btih:22968332E863C0EDE3D556ED197E1AA0966C633A
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147169.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147169.jpgsave_picture_147169.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Keyboard Maestro 11.0.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147170.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147170.jpgsave_picture_147170.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ magnet:?xt=urn:btih:57AF378F84BD824BDDC44DAFE95F10968D1150EC
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147171.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147171.jpgsave_picture_147171.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ magnet:?xt=urn:btih:A89BBBFAF7A0028363D8A854DC107D274F9281F5
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147172.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147172.jpgsave_picture_147172.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ magnet:?xt=urn:btih:988702981E41DA27160592D6E4C844B4B1174311
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147173.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147173.jpgsave_picture_147173.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ magnet:?xt=urn:btih:B3785A863F8F55A5CB2E8F1AC5C980EAF56CCEF7
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147175.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147175.jpgsave_picture_147175.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ magnet:?xt=urn:btih:743A038913B49D28C7D488A0EA8C3C39B187F928
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147176.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147176.jpgsave_picture_147176.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ Clean Space 2015.04 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147177.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147177.jpgsave_picture_147177.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:1AAA3F9BB852B0F7407D439D9E67D95A8AE485E8
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147178.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147178.jpgsave_picture_147178.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:F88FD726641EA6A521686EE0E031AD4480A9F5A6
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147179.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147179.jpgsave_picture_147179.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ ZED (2019) [En] [macOS Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147180.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147180.jpgsave_picture_147180.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Icecream Video Converter Pro 1.38 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147181.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147181.jpgsave_picture_147181.jpg" />
 </div>
 
 

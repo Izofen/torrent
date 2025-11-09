@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104783.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104783.jpgsave_picture_104783.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Firefox Browser 130.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104784.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104784.jpgsave_picture_104784.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ JetBrains RubyMine 2024.2.1 Repack by Sitego [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104785.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104785.jpgsave_picture_104785.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Egali Zunno - Human Foundation (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Har
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104786.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104786.jpgsave_picture_104786.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:490575563CB8EF692BCB1AF64A02F1877FF5AAFC
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104787.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104787.jpgsave_picture_104787.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ VA - Keep It Trance Vol. 24 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104788.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104788.jpgsave_picture_104788.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ VA - Nothing But... Trancetopia Vol. 18 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104789.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104789.jpgsave_picture_104789.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ Cat Stevens - Foreigner (1973) Remastered, 2024, UMC [FLAC 24/96|Lossless|WEB-DL
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104790.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104790.jpgsave_picture_104790.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ Marianas Trench - Haven (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104791.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104791.jpgsave_picture_104791.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ magnet:?xt=urn:btih:BD296AAA7608710CE3477ADCA367444A377D0972
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104792.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104792.jpgsave_picture_104792.jpg" />
 </div>
 
 
@@ -265,7 +265,7 @@ Euge Valovirta - Hardtones (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104793.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104793.jpgsave_picture_104793.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Body Meat - Starchris (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Pop Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104794.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104794.jpgsave_picture_104794.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Bonsai Kitten - Let It Burn (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Hard Roc
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104795.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104795.jpgsave_picture_104795.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Korrosive - Katastrophic Creation (2024) [FLAC|Lossless|WEB-DL|tracks] <Thrash M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104796.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104796.jpgsave_picture_104796.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Stan Getz - Blue Skies (1982) 1995, Concord Jazz [FLAC|Lossless|image + .cue] <P
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104797.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104797.jpgsave_picture_104797.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Palaye Royale - Death or Glory (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104798.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104798.jpgsave_picture_104798.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Ragnar​ö​k - Schicksal der G​ö​tter, Tod der Menschen und Ende der Wel
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104799.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104799.jpgsave_picture_104799.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Stan Getz - In Stockholm (1955) 2008, Verve [FLAC|Lossless|tracks + .cue] <Bop, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104800.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104800.jpgsave_picture_104800.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Oceano - Living Chaos (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Deathcore>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104801.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104801.jpgsave_picture_104801.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ Loose Ends - Look How Long (1990) [FLAC|Lossless|tracks + .cue] <Contemporary R&
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104802.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104802.jpgsave_picture_104802.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Piper and The Hard Times - Revelation (2024) [FLAC 24/44.1|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104803.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104803.jpgsave_picture_104803.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Shane Allessio - Tripp City (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104804.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104804.jpgsave_picture_104804.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Breaklight - I (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104805.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104805.jpgsave_picture_104805.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ magnet:?xt=urn:btih:B47B88CDCC6B2D7900E1BF708FA89236CECD3C88
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104806.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104806.jpgsave_picture_104806.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ VA - DJ Hits Vol. 174 (1996) [OGG Vorbis|480 Kbps] <Electronic, Europop, Euro Ho
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104807.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104807.jpgsave_picture_104807.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ Relaxing Piano Man - On the Road Again (2024) [FLAC 24/44.1|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104808.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104808.jpgsave_picture_104808.jpg" />
 </div>
 
 

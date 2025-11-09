@@ -6,7 +6,7 @@ Razorblade Messiah - Age of Oppression (2022) EP [FLAC|Lossless|WEB-DL|tracks] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234814.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234814.jpgsave_picture_234814.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Mammatus - Expanding Majesty (2023) [FLAC|Lossless|WEB-DL|tracks] <Psych, Stoner
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234815.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234815.jpgsave_picture_234815.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Sermon - Till Birth Do Us Part (2023) [FLAC|Lossless|WEB-DL|tracks] <Gothic Doom
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234821.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234821.jpgsave_picture_234821.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Silvertrain - Steel Against Steel (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234823.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234823.jpgsave_picture_234823.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Dream Widow & Foo Fighters - Dream Widow (2022) [FLAC 2.0|44.1/24|WEB-DL|tracks]
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234824.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234824.jpgsave_picture_234824.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Slipknot - The End, So Far (2022) [MP3|320 Kbps] <Nu-Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234832.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234832.jpgsave_picture_234832.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Animals As Leaders - Parrhesia (2022) [FLAC 2.0|48/24|WEB-DL|tracks] <Instrument
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234840.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234840.jpgsave_picture_234840.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ King Abyss - Snake Oil (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Thrash, Dea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234850.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234850.jpgsave_picture_234850.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Champlin Williams Friestedt - Carrie (2023) EP, Japanese Edition [FLAC|Lossless|
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234854.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234854.jpgsave_picture_234854.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Hope Hole - Beautiful Doom (2023) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234857.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234857.jpgsave_picture_234857.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:620232A7DAACEA55EC769B422967F1B05B24BBA2
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234859.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234859.jpgsave_picture_234859.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ InnerSiege - Fury Of Ages (2021) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234860.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234860.jpgsave_picture_234860.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Luna Ad Noctum - Sempiternal Consecration (2004) [APE|Lossless|image + .cue] <Sy
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234868.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234868.jpgsave_picture_234868.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Stinking Lizaveta - Anthems And Phantoms (2023) [FLAC|Lossless|WEB-DL|tracks] <D
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234869.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234869.jpgsave_picture_234869.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Solfar - Light Tomb (2023) [FLAC|Lossless|WEB-DL|tracks] <Doom, Post-Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234873.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234873.jpgsave_picture_234873.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Red Bazar - Tales From The Bookcase (2016) [FLAC|Lossless|tracks + .cue]<Progres
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234874.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234874.jpgsave_picture_234874.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ The Preachers - Stay Out Of My World (1960) Remaster, 2022 [FLAC 2.0|44.1/24|WEB
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234894.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234894.jpgsave_picture_234894.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Concrete Age - Bardo Thodol (2023) [FLAC|Lossless|image + .cue] <Thrash, Death M
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234899.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234899.jpgsave_picture_234899.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:F9E6A6B5EB73A9E721CFD76B397708E2D4009385
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234902.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234902.jpgsave_picture_234902.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Eremit - Bearer of Many Names (2021) [MP3|320 Kbps] <Atmospheric Sludge, Doom Me
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234917.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234917.jpgsave_picture_234917.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ Manzana - Neon Darkness (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Gothic,
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234922.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234922.jpgsave_picture_234922.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Alvarez - Digitaria (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death, Doom Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234927.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234927.jpgsave_picture_234927.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ Perpetual Etude - Now Is The Time (2021) [FLAC|Lossless|image + .cue] <Hard Rock
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234943.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234943.jpgsave_picture_234943.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ Ronnie Atkins - Make It Count (2022) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234950.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234950.jpgsave_picture_234950.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ magnet:?xt=urn:btih:B77DB82CE321A76BA87D308F05848B2C41006F35
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234954.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234954.jpgsave_picture_234954.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ Sleep Braids - Improvised Lives (2023) [FLAC|Lossless|WEB-DL|tracks] <pop punk, 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234956.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234956.jpgsave_picture_234956.jpg" />
 </div>
 
 

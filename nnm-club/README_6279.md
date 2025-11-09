@@ -6,7 +6,7 @@
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196829.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196829.jpgsave_picture_196829.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:C04F64F061DE4E4EF8ABFF43A47395D4D5CDE5AC
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196830.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196830.jpgsave_picture_196830.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:5175F5F4738F308A62CA89164B4DD0ECE84343D6
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196831.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196831.jpgsave_picture_196831.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Microsoft Windows 11 [10.0.22000.2057], Version 21H2 (Updated June 2023) - Ор�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196832.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196832.jpgsave_picture_196832.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ James Cotton - 24 Albums (1967 - 2013) 27 CD [FLAC|Lossless|image + .cue|tracks 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_196833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196833.jpgsave_picture_196833.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:E0F2642DF9A86756B18965CA8B5593D343FBFF8A
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196834.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196834.jpgsave_picture_196834.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ Tensei Kizoku no Isekai Boukenroku: Jichou o Shiranai Kamigami no Shito | Хро
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_196835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196835.jpgsave_picture_196835.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:6BD904869247B1A76AB6FF5A3DE980BAD9D6A122
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196836.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196836.jpgsave_picture_196836.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:7B3184D947FFDED2ACF62A9A58F7F01ED9FF89A0
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196837.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196837.jpgsave_picture_196837.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:DC36C5B865A7E896845640382B3AC03DA77F3691
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196838.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196838.jpgsave_picture_196838.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:60B86092B229394E69895993D079529EC012033C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196839.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196839.jpgsave_picture_196839.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ magnet:?xt=urn:btih:BBF87900C53FCB7CA71EDDFE3B61389CFE4FEAEC
 >>Образование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196841.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196841.jpgsave_picture_196841.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ magnet:?xt=urn:btih:898795A2C0E0DABEB68852609F2B1094A4E8249A
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196842.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196842.jpgsave_picture_196842.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ magnet:?xt=urn:btih:8D602044F0A35027B024E1530253089259C40218
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196843.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196843.jpgsave_picture_196843.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ magnet:?xt=urn:btih:C97242BC04FB6129E8501A485B9D02369F7F965F
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_196844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196844.jpgsave_picture_196844.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ StartAllBack 3.6.8 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196846.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196846.jpgsave_picture_196846.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ English with Mary, Mary Serebriakova | Pronunciation with Mary (2022) WEB-DL [AD
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196847.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196847.jpgsave_picture_196847.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ novaPDF Lite 11.8 сборка 411 [Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196848.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196848.jpgsave_picture_196848.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ magnet:?xt=urn:btih:A5C81121E2AFE466C5726B52904DD2B0382C19E1
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196849.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196849.jpgsave_picture_196849.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ magnet:?xt=urn:btih:29E49EAE6F0FDE5901056BF5821577535F914EE8
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196850.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196850.jpgsave_picture_196850.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ magnet:?xt=urn:btih:ED733AFB7B09C4973C293D59D5B11BDEDDECA55C
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196851.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196851.jpgsave_picture_196851.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ PDF Expert 3.2. [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196852.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196852.jpgsave_picture_196852.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ magnet:?xt=urn:btih:63CFEA4B9E80EBBC70449082E0A88B9A78C1BF74
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196853.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196853.jpgsave_picture_196853.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Chronicles of Galdurvale (2023) [Multi] (1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196854.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196854.jpgsave_picture_196854.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ magnet:?xt=urn:btih:993948CEC6A16F7F6D61BCD4A23DBC4CAE83AB14
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196855.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196855.jpgsave_picture_196855.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ NG. Титаник: 20 лет спустя с Джеймсом Кэмероно�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196856.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196856.jpgsave_picture_196856.jpg" />
 </div>
 
 

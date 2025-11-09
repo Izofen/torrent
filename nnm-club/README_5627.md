@@ -6,7 +6,7 @@ Torn Away (2023) [Ru/Multi] (12315550) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173295.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173295.jpgsave_picture_173295.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:EB7F789992A95BC712EA84BAA12D39CD977B41C4
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173296.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173296.jpgsave_picture_173296.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:057AFA0BDBDAD132DF4086299F2AEDDD68DD0852
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173297.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173297.jpgsave_picture_173297.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:CB562F4E8FEBF452916D9D508658CB7F3D415811
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173298.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173298.jpgsave_picture_173298.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Storyteller (2023) [Ru/Multi] (20230927) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173299.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173299.jpgsave_picture_173299.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:4862752B0D217EDD6DDABAD83227614249439BA3
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173300.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173300.jpgsave_picture_173300.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Dicey Dungeons v.2.1 (58189). (2019) [Multi/Ru] [macOS Native game]
 >>Strategy, RPG для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173301.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173301.jpgsave_picture_173301.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:525C552DE1E4740BCDA9042FBC5FC25D0B395458
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173302.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173302.jpgsave_picture_173302.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:6B9F4297F61C07C37D04A36D431B2760CAE0BC6D
 >>Музыка (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173303.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173303.jpgsave_picture_173303.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:69CD14BAE9396A1005A78D6751032B50967207AA
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173304.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173304.jpgsave_picture_173304.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Symantec Encryption Desktop Professional 10.5.0 MP1 [Multi]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173305.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173305.jpgsave_picture_173305.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Scars Above (2023) [PS4] [USA] 5.05 [HEN] [License] [Ru/Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173306.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173306.jpgsave_picture_173306.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Rhinoceros 3D 7.34.23267.11001 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173307.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173307.jpgsave_picture_173307.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Joshua Picolet | Hash Crack Password Cracking Manual v3 - Russian (2023) [PDF]
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173308.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173308.jpgsave_picture_173308.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Tor Browser Bundle 13.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173309.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173309.jpgsave_picture_173309.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ magnet:?xt=urn:btih:0E7007161AE1C0627BD63C1DD23D783B5FD72537
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173310.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173310.jpgsave_picture_173310.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ The Medium v.1.1.22 (2021) [Multi/Ru] [macOS Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173311.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173311.jpgsave_picture_173311.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Dave Hole - 11 Albums  (1990 - 2018) 14 CD [FLAC|Lossless|image + .cue|tracks + 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173312.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173312.jpgsave_picture_173312.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ Rufus 4.3 (Build 2089) Beta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173313.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173313.jpgsave_picture_173313.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ magnet:?xt=urn:btih:B1F773A0417BC5F6960F9DE60F0A0F28AA470340
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173314.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173314.jpgsave_picture_173314.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ magnet:?xt=urn:btih:8FDD93D2D2C504944C55B7CAA5C56A90C7833103
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173315.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173315.jpgsave_picture_173315.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:23FD9F0C4556523E818974D237A0D6351B1812C2
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173316.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173316.jpgsave_picture_173316.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Bee Gees - 19 Albums (1967-1993) LP Collection [MP3|320 Kbps] <Pop, Rock, Disco>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173317.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173317.jpgsave_picture_173317.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ magnet:?xt=urn:btih:4B0DBF2D847A8372BCD2A1F3324FB958CFEB704C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173318.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173318.jpgsave_picture_173318.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Topaz Photo AI 2.0.6 (x64) RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173319.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173319.jpgsave_picture_173319.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ magnet:?xt=urn:btih:4F68589F94C5DB6EE6D0704F5B82B33454EDF272
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173320.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173320.jpgsave_picture_173320.jpg" />
 </div>
 
 

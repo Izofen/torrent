@@ -6,7 +6,7 @@
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43413.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43413.jpgsave_picture_43413.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:6D5B13B0574EAAB68BD79C03EB0D68BA2B86E784
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43414.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43414.jpgsave_picture_43414.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Hard Disk Sentinel PRO 6.20.3 Build 13190 Beta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43415.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43415.jpgsave_picture_43415.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Fears to Fathom: Woodbury Getaway (2024) [Ru/Multi] (1.3) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43416.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43416.jpgsave_picture_43416.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:5697DEE6F5B8D88B57C9A52758EBA0B3455665D4
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43417.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43417.jpgsave_picture_43417.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:8090777D2F0A1D5DE7CA79D25C342877BCC06EE1
 >>Новости P2P, Копирайт, Блокировки, Цензура
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43418.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43418.jpgsave_picture_43418.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:8090777D2F0A1D5DE7CA79D25C342877BCC06EE1
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43419.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43419.jpgsave_picture_43419.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Call of Duty Коллекция (2003-2010) [Ru] (1.0) Repack R.G. ReCoding
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43420.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43420.jpgsave_picture_43420.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:0418FF8E8B0E87C3F9A8E7AAA91BC61035675A47
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43421.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43421.jpgsave_picture_43421.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Roadwarden (2022) [En] (1.2.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43422.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43422.jpgsave_picture_43422.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ METAL DOGS (2023) [Multi] (1.5.0/dlc) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43423.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43423.jpgsave_picture_43423.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ magnet:?xt=urn:btih:3B0ACDB49F036FB039E0BFC7CAAC22649DBAC67C
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43424.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43424.jpgsave_picture_43424.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Slipstream (2018) [En] (1.3.3-r6) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43425.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43425.jpgsave_picture_43425.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ magnet:?xt=urn:btih:D34B7ED593646047DA7CE046C77C769417C46FCE
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43426.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43426.jpgsave_picture_43426.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ ZBrush 2025.0.0 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43427.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43427.jpgsave_picture_43427.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Dead Space: Trilogy (2008-2013) [Ru/En] (1.0.0.222/1.0/1.0.1) Repack dixen18
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43428.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43428.jpgsave_picture_43428.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ magnet:?xt=urn:btih:BAAA22ADF8228175A75FB918A6406F24E8F46398
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43429.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43429.jpgsave_picture_43429.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ magnet:?xt=urn:btih:BAAA22ADF8228175A75FB918A6406F24E8F46398
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43430.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43430.jpgsave_picture_43430.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ magnet:?xt=urn:btih:BAAA22ADF8228175A75FB918A6406F24E8F46398
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43431.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43431.jpgsave_picture_43431.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ magnet:?xt=urn:btih:AA80B5A74D8D7AC0C91C5E8368FF2476C647B354
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43432.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43432.jpgsave_picture_43432.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ magnet:?xt=urn:btih:9C20832A093D05A253CC8E8D4EB5B7F5E69BB836
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43433.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43433.jpgsave_picture_43433.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ magnet:?xt=urn:btih:A788F12D04C54F77971B300DFC82205EFD9120BE
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43434.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43434.jpgsave_picture_43434.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ magnet:?xt=urn:btih:F0A62E94815ED296DBECEC1F8AE03DAB433FE5F7
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43435.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43435.jpgsave_picture_43435.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ magnet:?xt=urn:btih:1FDE52738458A769B040015113B441685CC3A84C
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43436.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43436.jpgsave_picture_43436.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ magnet:?xt=urn:btih:D32D6213CA6A89D62F981B27DA36E24AC354EDE0
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43437.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43437.jpgsave_picture_43437.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ magnet:?xt=urn:btih:CEED6C01CB51ADD70429E3C7116562B64C1A2B94
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43438.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43438.jpgsave_picture_43438.jpg" />
 </div>
 
 

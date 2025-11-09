@@ -6,7 +6,7 @@
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45519.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45519.jpgsave_picture_45519.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:9B37113EC876569DE5DB79876433999BB73BDF32
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45520.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45520.jpgsave_picture_45520.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Windows 11 PRO 23H2 22631.4037 Update 10 by Ghost Spectre [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45521.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45521.jpgsave_picture_45521.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:C2375BFF3166F736EECAAD8C30B053E1D6562996
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45522.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45522.jpgsave_picture_45522.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:E060C70130A6ECCFA2FC16B862C095208E192AB2
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45523.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45523.jpgsave_picture_45523.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Adobe Acrobat Pro 2024.003.20054 [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45524.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45524.jpgsave_picture_45524.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ DOOM (2016) [Ru/Multi] (Build 13954591/dlc) Lossy Repack Decepticon
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45525.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45525.jpgsave_picture_45525.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Joe Cocker  - The Best Of Joe Cocker Live (1992-2002 ) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45526.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45526.jpgsave_picture_45526.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:7DDA164D4C0E33D93D46968965D27C7B62C36A75
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45527.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45527.jpgsave_picture_45527.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ magnet:?xt=urn:btih:D87C1E5D7D85422C1869938C2220BB1B0D2E37DB
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45528.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45528.jpgsave_picture_45528.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ magnet:?xt=urn:btih:1E854403C9A1F953E3969990A8877A0F7646A598
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45529.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45529.jpgsave_picture_45529.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ Landlord's Super (2023) [Multi] (1.0.09) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45530.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45530.jpgsave_picture_45530.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:C4F9A1E341B07BAA7CD6E214BE84876966FC7B33
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45531.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45531.jpgsave_picture_45531.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Adobe Acrobat Pro 2024.003.20054 (x32-x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45532.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45532.jpgsave_picture_45532.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ magnet:?xt=urn:btih:317DEFCB943F0C8D50384EB4A1050580793465E6
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45533.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45533.jpgsave_picture_45533.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ magnet:?xt=urn:btih:E54B9C78BCAFA3AA980BB8EB03EDDAB12392580C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45534.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45534.jpgsave_picture_45534.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ magnet:?xt=urn:btih:D33C76550C67214E661A2AC7522C86DD2F96CFDA
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45535.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45535.jpgsave_picture_45535.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ magnet:?xt=urn:btih:0CBFAA705FBE0E3287C583D76FA53C7EA7A855F1
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45536.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45536.jpgsave_picture_45536.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ magnet:?xt=urn:btih:B28E908C992D2CF3E5DA88E61F550D16BC65A2D7
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45537.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45537.jpgsave_picture_45537.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ magnet:?xt=urn:btih:778CE9490E5061A627072F4325845D73625B5C12
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45538.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45538.jpgsave_picture_45538.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ magnet:?xt=urn:btih:761258C8CCD10ADBEC4040A2761851A6646F073F
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45539.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45539.jpgsave_picture_45539.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:922BDDFBAB931C517C1E3B11AEA138D9BB4963D1
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45540.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45540.jpgsave_picture_45540.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ VA - Music News For Forum vol.016 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45541.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45541.jpgsave_picture_45541.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ magnet:?xt=urn:btih:47B05833A444B96C2D26D3DF9A367C3CD2908413
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45542.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45542.jpgsave_picture_45542.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ magnet:?xt=urn:btih:13003BE66D9B0257886AAA74D41AD6C7341FA402
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45543.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45543.jpgsave_picture_45543.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Steinberg SpectraLayers Pro 11.0.20.378 (x64) Portable by 7997 [Multi]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45544.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45544.jpgsave_picture_45544.jpg" />
 </div>
 
 

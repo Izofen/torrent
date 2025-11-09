@@ -6,7 +6,7 @@ MoonFire: A Seeker's Saga (2024) [En] (1.3.2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46536.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46536.jpgsave_picture_46536.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ DREDGE (2023) [Ru/Multi] (1.5.1/dlc) Repack Other s [Complete Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46558.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46558.jpgsave_picture_46558.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ The Star Named EOS (2024) [Ru/Multi] (1.0.0_04) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46644.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46644.jpgsave_picture_46644.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Snufkin: Melody of Moominvalley / Снусмумрик: Мелодия Муми-
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46785.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46785.jpgsave_picture_46785.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ The Bathhouse (2024) [Multi] (1.03) Repack FitGirl [Restored Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46873.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46873.jpgsave_picture_46873.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ A Space for the Unbound (2023) [Multi] (1.0.35.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47007.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47007.jpgsave_picture_47007.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Eternal Escape: castle of shadows (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47033.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47033.jpgsave_picture_47033.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Moonless Moon (2024) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47255.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47255.jpgsave_picture_47255.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Blacklist Mafia (2024) [Ru/En] (Build 15226435) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47277.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47277.jpgsave_picture_47277.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Universe For Sale (2023) [Multi] (1.3.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47280.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47280.jpgsave_picture_47280.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Zombie Police: Christmas Dancing with Police Zombies (2024) [Multi] (1.0) Scene 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47359.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47359.jpgsave_picture_47359.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Kanon (2024) [Multi] (1.2.0.3) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47460.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47460.jpgsave_picture_47460.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Nine Noir Lives (2022) [Multi] (1.0.3.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47512.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47512.jpgsave_picture_47512.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Cursed Bet (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47538.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47538.jpgsave_picture_47538.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ SCHiM (2024) [Ru/Multi] (1.0.3.a) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47548.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47548.jpgsave_picture_47548.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Etera (2024) [En] (1.0.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47549.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47549.jpgsave_picture_47549.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Conscript (2024) [Ru/Multi] (1.0.0.2/dlc) Repack FitGirl [Officer Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47559.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47559.jpgsave_picture_47559.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Sylvio: Black Waters (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47568.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47568.jpgsave_picture_47568.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ magnet:?xt=urn:btih:39AB623545994D0EE9382C0349E1221723A2DABA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47679.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47679.jpgsave_picture_47679.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Setteeh / Сэттээх (2024) [Ru/En] (Build 15264138) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47704.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47704.jpgsave_picture_47704.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Subnautica: Below Zero (2019) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47709.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47709.jpgsave_picture_47709.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Minds Beneath Us (2024) [Multi] (1.0.1) Scene Skidrow
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47733.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47733.jpgsave_picture_47733.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ My Lovely Wife (2022) [Ru/Multi] (1.1.14f2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47780.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47780.jpgsave_picture_47780.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Thank Goodness You're Here! (2024) [Ru/Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47783.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47783.jpgsave_picture_47783.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ realMyst (2000) [En] (1.11) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47872.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47872.jpgsave_picture_47872.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Shift 87 (2024) [Ru/Multi] (1.0f9) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47884.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47884.jpgsave_picture_47884.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Microsoft Windows 11 [10.0.22631.2861], Version 23H2 (Updated December 2023) - �
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126837.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126837.jpgsave_picture_126837.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:A0CEAA64CD6F299BDDA7EAEAFB712B2561B7B029
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126838.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126838.jpgsave_picture_126838.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Windows 10 22H2 (19045.3803) x64 (3in1) by Brux [Ru]
 >>Сборки Windows 10
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126839.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126839.jpgsave_picture_126839.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Helck | Хельк [2023, TV, 24 эп.] WebRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126840.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126840.jpgsave_picture_126840.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ PyCharm Professional 2023.3.1 [x64] (tar.gz)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126841.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126841.jpgsave_picture_126841.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ PARANOID (2023) [Ru/Multi] (1.0) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126842.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126842.jpgsave_picture_126842.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Hellblade: Senua's Sacrifice (2017) [Ru/Multi] (1.03.1.202112071122) Repack Dece
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126843.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126843.jpgsave_picture_126843.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:A2208AB2FDC982E0CEB858D07F66314158F315D2
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126844.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126844.jpgsave_picture_126844.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:345E3C164282C55A4F75E98E42D7E31D380F074D
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126845.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126845.jpgsave_picture_126845.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ VA - Workout Motivation (Flex Edition) (2019-2023) [MP3|320 Kbps] <Relax, Chill�
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126846.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126846.jpgsave_picture_126846.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Dr. Stone: New World | Доктор Стоун [ТВ-3] [2023, TV, 22 эп.] Web
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126847.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126847.jpgsave_picture_126847.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:AC3BEF293D54FDF2B2BED9C39E2A45804FED04D5
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126848.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126848.jpgsave_picture_126848.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Skillbox, Андрей Митрохин | Excel для рабочих и лич�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126849.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126849.jpgsave_picture_126849.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ magnet:?xt=urn:btih:71310AA419B0DF42695D85E23A41FABE07A84CB6
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126850.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126850.jpgsave_picture_126850.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Kage no Jitsuryokusha ni Naritakute! 2 / The Eminence in Shadow 2 / Восхож
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126851.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126851.jpgsave_picture_126851.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ The Brecker Brothers - Score (1988) 1991, Jazz Door [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126852.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126852.jpgsave_picture_126852.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Warpath - Uprising Of The Oppressed (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126853.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126853.jpgsave_picture_126853.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ magnet:?xt=urn:btih:40247F09233EBDC238F0F2DA68D78B7A03FD1AA0
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126854.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126854.jpgsave_picture_126854.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ Tears Of Asclepius - Город призрак (2023) [FLAC|Lossless|WEB-DL|trac
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126855.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126855.jpgsave_picture_126855.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ magnet:?xt=urn:btih:C27F8EF2F0B378C3C54DA70DD0CA2FF4E95FE860
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126856.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126856.jpgsave_picture_126856.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Stoned Statues - Guardian (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Punk, Pr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126857.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126857.jpgsave_picture_126857.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ magnet:?xt=urn:btih:22F6F4BB388A12D4C7800C96566C17BAAAA9FC00
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126858.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126858.jpgsave_picture_126858.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ magnet:?xt=urn:btih:A441B0CCDCE05946B4D4B1D7BD1A20E72A787C7B
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126859.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126859.jpgsave_picture_126859.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Dusk - My Infinite Nature Alone (1999) Remaster, 2021, rearts records [FLAC 24/4
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126860.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126860.jpgsave_picture_126860.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ magnet:?xt=urn:btih:9BBE72797DD4FFC7107DB3472018333D13F24C68
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126861.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126861.jpgsave_picture_126861.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ magnet:?xt=urn:btih:396C4E1DDD4AE8BFC7399F11CD2102CD9955B7E7
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126862.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126862.jpgsave_picture_126862.jpg" />
 </div>
 
 

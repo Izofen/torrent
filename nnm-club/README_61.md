@@ -6,7 +6,7 @@ Haken - Liveforms: An Evening With Haken (2025) 3 x CD, Limited Edition [FLAC|Lo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1623.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1623.jpgsave_picture_1623.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:AE3AD8439E875A5E3FB8E5E2776FB782F2C66131
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1624.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1624.jpgsave_picture_1624.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ magnet:?xt=urn:btih:E0416F8BABB94EB8C8504B1841E939FA528E6958
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1625.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1625.jpgsave_picture_1625.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:4DC32F0C60AD990654CA7334898C5C4AC1A94DBC
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1626.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1626.jpgsave_picture_1626.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:C1B49556FA9D9DB6B4175BC6B44A9B678E0B43AA
 >>Медитации (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1627.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1627.jpgsave_picture_1627.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ Flud v1.11.8 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1628.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1628.jpgsave_picture_1628.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ reaConverter Pro 7.853 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1629.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1629.jpgsave_picture_1629.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ Dashcam Viewer 4.0.7 Repack (& Portable) by elchupacabra [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1630.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1630.jpgsave_picture_1630.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ Serif Affinity Designer 2.6.3.3322 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1631.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1631.jpgsave_picture_1631.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ magnet:?xt=urn:btih:ADFB45FA7B34B24F9285E821817B2F699D103EDA
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1632.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1632.jpgsave_picture_1632.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ magnet:?xt=urn:btih:35892B9F61BA0DBAA572962CBA3005DEFE22A7EE
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1633.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1633.jpgsave_picture_1633.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ magnet:?xt=urn:btih:9EE61C747C242AEFAE05B9983A5B3B525430DA3A
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1634.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1634.jpgsave_picture_1634.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ magnet:?xt=urn:btih:77538F9B2761294B716A151285522E61D2E72A93
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1635.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1635.jpgsave_picture_1635.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ Glary Utilities Pro 6.31.0.35 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1636.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1636.jpgsave_picture_1636.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ VA - Tanzlokal-Musik - Premium Playlist (int) [#] (2012-2025) [MP3|320 Kbps] <Da
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1637.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1637.jpgsave_picture_1637.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Jigsawscapes® - Пазлы v4.2.1 Mod by vadj [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1638.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1638.jpgsave_picture_1638.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ ExamDiff Pro 16.0.1.8 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1639.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1639.jpgsave_picture_1639.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ magnet:?xt=urn:btih:A6DA05E142B9BF445A62D144DC57738A195C1EF0
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1640.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1640.jpgsave_picture_1640.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ Serif Affinity Publisher 2.6.3.3322 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1641.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1641.jpgsave_picture_1641.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ magnet:?xt=urn:btih:F5726C7181343E105FE00374F6560F1E684204F2
 >>Картинки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1642.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1642.jpgsave_picture_1642.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ magnet:?xt=urn:btih:BC9FBEE56A171B2115C5FBBDBC73C3700DB34050
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1643.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1643.jpgsave_picture_1643.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ magnet:?xt=urn:btih:A59113DE3378280E4017B4FFA16246688145F144
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1644.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1644.jpgsave_picture_1644.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ VA - Tanzlokal-Musik - Premium Playlist (int) [a003] (2012-2025) [MP3|320 Kbps] 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1645.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1645.jpgsave_picture_1645.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ magnet:?xt=urn:btih:9CE523942A6A0BD56852F257D6CE5441AA5AED08
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1646.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1646.jpgsave_picture_1646.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Bad Cheese (2025) [Ru/Multi] (1.0.0) Repack seleZen
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1647.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1647.jpgsave_picture_1647.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ Dead Rising Deluxe Remaster (2024) [Ru/Multi] (1.3.0.0/dlc) Repack FitGirl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1648.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1648.jpgsave_picture_1648.jpg" />
 </div>
 
 

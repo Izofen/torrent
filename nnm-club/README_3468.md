@@ -6,7 +6,7 @@ PSPaudioware - PSP stompDelay 1.1.4 VST, VST 3, AAX (x64) RePack by R2R [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110529.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110529.jpgsave_picture_110529.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:BFE393BF2173A0B6D03CE8D78B4EA6C70674DA05
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110530.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110530.jpgsave_picture_110530.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:D46E6ED10A8EDD8C10EB1933407EE28BBD6FE080
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110531.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110531.jpgsave_picture_110531.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:B76B647EF7B49A3DACDF4271B34C5A82FB33EC0C
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110532.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110532.jpgsave_picture_110532.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:5CD395DCE2BD3D0581E03650FBAAF2327AAEA303
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110533.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110533.jpgsave_picture_110533.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:77E71C64A9C2C334CC2050BD1A0529382CC9AF22
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110534.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110534.jpgsave_picture_110534.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Cavern of Dreams (2023) [En] (7.5) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110535.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110535.jpgsave_picture_110535.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ Registry Finder 2.59.0 + Portable [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110536.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110536.jpgsave_picture_110536.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:95E78BEA0D81C8E032D6F450120549E5D346C9BB
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110537.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110537.jpgsave_picture_110537.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ magnet:?xt=urn:btih:39BA843D14003B84D17C520BAE6EADB0E60F68F4
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110538.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110538.jpgsave_picture_110538.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:DFBB3BB4698FB3F6A898834CE21BA82D70C5071E
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110539.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110539.jpgsave_picture_110539.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Ant Download Manager Pro 2.11.4 Build 87517 (x32) / Build 87518 (x64) Portable b
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110540.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110540.jpgsave_picture_110540.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:A7AD0684233F6E7C36D4F8D2A80708A670489BAE
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110541.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110541.jpgsave_picture_110541.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ magnet:?xt=urn:btih:568F6E800E2383FB720560383710827573E763DA
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110542.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110542.jpgsave_picture_110542.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ magnet:?xt=urn:btih:A458954727C2324D574421470498AB1B63502937
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110543.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110543.jpgsave_picture_110543.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Wondershare UniConverter 15.5.8.70 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110544.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110544.jpgsave_picture_110544.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ Deep Purple - Portable Door (2024) Single [FLAC 24/48|Lossless|WEB-DL|track] <Ro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110545.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110545.jpgsave_picture_110545.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ magnet:?xt=urn:btih:644FD8011FC789180A5C6B8C4BAFB75E876C56FB
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110546.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110546.jpgsave_picture_110546.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ magnet:?xt=urn:btih:B664B631D6D726D7436975F38EEBF20E0F5990BA
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110547.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110547.jpgsave_picture_110547.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ magnet:?xt=urn:btih:05BB7F754055E88BDDC11F7F595E8150D8A2473F
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110548.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110548.jpgsave_picture_110548.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ magnet:?xt=urn:btih:F2DA2BEC4BB16D8684EEB2F0BB8B3DB298EECEB1
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110549.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110549.jpgsave_picture_110549.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ Shotcut 24.04.28 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110550.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110550.jpgsave_picture_110550.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Big Star - Radio City (1974) Remastered, 2024, Craft Recordings [FLAC 24/192|Los
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110551.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110551.jpgsave_picture_110551.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Maria Chiara Argiro - Closer (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Elect
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110552.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110552.jpgsave_picture_110552.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Ultimate - One Step Ahead (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110553.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110553.jpgsave_picture_110553.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ Cos - Viva Boma (1976) Japanese Edition, SHM-CD, Reissue, Remastered, 2010, Bell
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110554.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110554.jpgsave_picture_110554.jpg" />
 </div>
 
 

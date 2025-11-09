@@ -6,7 +6,7 @@
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7573.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7573.jpgsave_picture_7573.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Odd Realm (2019) [En] (1.0.37.8) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7574.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7574.jpgsave_picture_7574.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Windows 11 24H2 Lite (26100.4946) x64 by Bruxer [Ru]
 >>Сборки Windows 11
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7575.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7575.jpgsave_picture_7575.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Strategic Command WWII: War in the Pacific (2024) [Multi] (1.03.05/dlc) License 
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7576.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7576.jpgsave_picture_7576.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:3105EC381E969296F50B7EFED21FF51B17FA16C7
 >>Обход блокировок на мобильных устройствах
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7577.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7577.jpgsave_picture_7577.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:3105EC381E969296F50B7EFED21FF51B17FA16C7
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7578.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7578.jpgsave_picture_7578.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Everafter Falls (2024) [Multi] (2.1.4) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7579.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7579.jpgsave_picture_7579.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:91FFE2197C3A7E4A38F4F962AA86AC1BA9F56AB0
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7580.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7580.jpgsave_picture_7580.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:C70B052334AEA80FFDB5C36B1F591B027D4C82FA
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7581.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7581.jpgsave_picture_7581.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Sins of a Solar Empire II (2) (2024) [Ru/Multi] (1.43.11/dlc) Repack Wanterlude
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7582.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7582.jpgsave_picture_7582.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ False Skies (2022) [En] (1.12aa) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7583.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7583.jpgsave_picture_7583.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Signal 7.66.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7584.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7584.jpgsave_picture_7584.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Guards II (2): Chaos in Hell (2025) [Ru/Multi] (1.1) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7585.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7585.jpgsave_picture_7585.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Dragon Ruins II (2) (2025) [En] (250701) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7586.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7586.jpgsave_picture_7586.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ GearCity (2022) [Ru/Multi] (2.0.0.14 hf1) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7587.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7587.jpgsave_picture_7587.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ magnet:?xt=urn:btih:6AA4B7EC245AE5A950CEA988E71210089EC111D0
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7588.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7588.jpgsave_picture_7588.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ The Edge of Allegoria (2024) [Multi] (1.0.1.22) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7589.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7589.jpgsave_picture_7589.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ Northgard (2018) [Ru/Multi] (3.7.30.42250/dlc) License GOG [The Viking Age Editi
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7591.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7591.jpgsave_picture_7591.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Going Medieval (2021) [Ru/Multi] (0.26.42-rel) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7592.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7592.jpgsave_picture_7592.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Songs of Conquest (2022) [Ru/Multi] (1.6.3/dlc) License GOG [Supporter Pack Bund
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7593.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7593.jpgsave_picture_7593.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ Stoneshard (2020) [Ru/Multi] (0.9.3.5/dlc) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7594.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7594.jpgsave_picture_7594.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Quasimorph (2023) [Ru/Multi] (0.9.5.1.100g.409ff48) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7595.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7595.jpgsave_picture_7595.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ magnet:?xt=urn:btih:F4270B9304CD956003641C9D2CA517778F97A9F9
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7596.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7596.jpgsave_picture_7596.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ magnet:?xt=urn:btih:A4E3E703A8EC8A761770BD5ABB4253BB13A78086
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7597.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7597.jpgsave_picture_7597.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ magnet:?xt=urn:btih:FE9921EB0F1FFD42F4AEFC9964A7BD174A075CFD
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7598.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7598.jpgsave_picture_7598.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Incubation: Time Is Running Out / Incubation: Космодесант [Ru] (L) 19
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7599.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7599.jpgsave_picture_7599.jpg" />
 </div>
 
 

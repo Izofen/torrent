@@ -6,7 +6,7 @@
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2429.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2429.jpgsave_picture_2429.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Sea of Stars (2023) [Ru/Multi] (2.0.58940/dlc) Repack dixen18
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2430.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2430.jpgsave_picture_2430.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Ravenswatch (2023) [Ru/Multi] (1.03.01.00.26879/dlc) Repack Let'sРlay [Supporte
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2431.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2431.jpgsave_picture_2431.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Crusader Kings III (3) (2020) [Ru/Multi] (1.17.1/dlc) Repack Pioneer [Royal Edit
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2432.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2432.jpgsave_picture_2432.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:FFF26D05B9A09AD57B26687542C0653A53B1C4F5
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2433.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2433.jpgsave_picture_2433.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ American Truck Simulator (2016) [Ru/Multi] (1.56.1.0s/dlc) Repack Other s
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2434.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2434.jpgsave_picture_2434.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:0D3442D2FA5CD405119457D482DB9AC7006E7BB0
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2435.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2435.jpgsave_picture_2435.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Warhammer 40,000: Dawn of War (2025) [Ru/Multi] (2.2.1.1) Repack Let'sРlay [Def
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2436.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2436.jpgsave_picture_2436.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:49CEB1ABD9E40AB236BD08AA90B2469C91B6E84A
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2437.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2437.jpgsave_picture_2437.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Cat Quest II (2019) [Ru/Multi] (1.7.7.3) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2438.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2438.jpgsave_picture_2438.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ magnet:?xt=urn:btih:1E691E6E6E0DA92DCD83672C07A51256769EE0B6
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2439.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2439.jpgsave_picture_2439.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ magnet:?xt=urn:btih:B781021F6B47C3CB4DD2F798B5421E8675D38819
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2440.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2440.jpgsave_picture_2440.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ magnet:?xt=urn:btih:8000686A3DC055A39F930BCD5457A85ED673C7D3
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2441.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2441.jpgsave_picture_2441.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ magnet:?xt=urn:btih:99FD1797759CD1DE934C5BAFDBA91FF1A1D65AC0
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2442.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2442.jpgsave_picture_2442.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ Microsoft Windows 10 [10.0.19045.6332], Version 22H2 (Updated September 2025) - 
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2443.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2443.jpgsave_picture_2443.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Ui Kits - UI8 - FRQNCY STUDIO [FIG]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2444.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2444.jpgsave_picture_2444.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ magnet:?xt=urn:btih:AA41C9BEEDF182DB6212B82DB72A65B1233EBD20
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2445.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2445.jpgsave_picture_2445.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Zuori Qing Kong | Crystal Sky of Yesterday | Хрустальное небо в�
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2446.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2446.jpgsave_picture_2446.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Berserk: Ougon Jidai Hen - Memorial Edition | Berserk: The Golden Age Arc - Memo
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2447.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2447.jpgsave_picture_2447.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Sweet Savage - Bang (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2448.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2448.jpgsave_picture_2448.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Dreamlord - Artificial Imprisonment (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2449.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2449.jpgsave_picture_2449.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ magnet:?xt=urn:btih:F7AF70F69EBF248E5A1983E4862B1F9A53147A1D
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2450.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2450.jpgsave_picture_2450.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Dagoba - Studio Albums (10 releases) (2001-2024) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2451.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2451.jpgsave_picture_2451.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ magnet:?xt=urn:btih:A23FB35512F71E2FAE57E257994D48E9B14E21C5
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2452.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2452.jpgsave_picture_2452.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ magnet:?xt=urn:btih:7CC8F368DBD41C487D8FE0391547B4ECDC4BF86A
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2453.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2453.jpgsave_picture_2453.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ magnet:?xt=urn:btih:2D9BD596F66461833431563D1BCBD9BEC49205AE
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2454.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2454.jpgsave_picture_2454.jpg" />
 </div>
 
 

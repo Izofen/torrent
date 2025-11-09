@@ -6,7 +6,7 @@ Incinerate - Back to Reality (2021) [FLAC|Lossless|WEB-DL|tracks] <Death Metal, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154395.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154395.jpgsave_picture_154395.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ McAfee Endpoint Security for Mac 10.7.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154396.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154396.jpgsave_picture_154396.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Ernie Watts, Pete Christlieb, Rickey Woodard - The Tenor Trio (1997) JVC [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154397.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154397.jpgsave_picture_154397.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:B3B6DEE32DF2BC05826731B43C20430EFD06E0E8
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154398.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154398.jpgsave_picture_154398.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:5959A1867F916E450592DC8FCCC4A8C8BEBB4CFC
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154399.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154399.jpgsave_picture_154399.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ TCH - Sinflower (1997) Iridium [FLAC|Lossless|tracks+.cue] <Experimental, IDM, A
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154400.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154400.jpgsave_picture_154400.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:6C6CFBA952F6D36690A3B8DDEF8944E04CF4569C
 >>Отечественное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154401.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154401.jpgsave_picture_154401.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Deliver Express 2.7.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154402.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154402.jpgsave_picture_154402.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Stats 2.6.24 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154403.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154403.jpgsave_picture_154403.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:E78BDF36B5EC70D6B2208F0225D5D59F0EB2BA61
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154404.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154404.jpgsave_picture_154404.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:AE96C7F87F87CE96A6BC180A551C68B3156A6EDD
 >>История
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154405.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154405.jpgsave_picture_154405.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:6A8D586E654B04B8D124BF6EF4C9E84A34C72B74
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154406.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154406.jpgsave_picture_154406.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ IObit Uninstaller Pro 13.2.0.3 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154407.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154407.jpgsave_picture_154407.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Dollar Brand Duo - Good News from Africa (1973) 2008, Enja [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154408.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154408.jpgsave_picture_154408.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Type Fu 4.6.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154409.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154409.jpgsave_picture_154409.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ UctoX 2 v2.8.14 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154410.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154410.jpgsave_picture_154410.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Yusef Lateef - Prayer To The East (1957) 1993, Savoy Jazz [WavPack|Lossless|imag
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154411.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154411.jpgsave_picture_154411.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Eric Legnini - Six Strings Under (2019) Bendo Music [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154412.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154412.jpgsave_picture_154412.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ Wondershare PDFelement with OCR 5.7.0 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154413.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154413.jpgsave_picture_154413.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Kdenlive 20.12.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154414.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154414.jpgsave_picture_154414.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Microsoft .NET 7.0.14 Runtime [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154415.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154415.jpgsave_picture_154415.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ magnet:?xt=urn:btih:AD61FD47FF87D7F4BCBAFF419C5273DFA49EC281
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154416.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154416.jpgsave_picture_154416.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ VA - Global Lounge Masters, Vol. 4 (2021) [AAC|~328 Kbps] <Lounge, Chill Out, Do
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154417.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154417.jpgsave_picture_154417.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ magnet:?xt=urn:btih:941D365FFDB5FB2762F8053703F283AEB8A754F9
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154418.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154418.jpgsave_picture_154418.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ magnet:?xt=urn:btih:027B3283650026C00E2470ADD50484129614C225
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154419.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154419.jpgsave_picture_154419.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ magnet:?xt=urn:btih:755A1F470D7E942463035B7B5DF6D6BE155BFB98
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154420.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154420.jpgsave_picture_154420.jpg" />
 </div>
 
 

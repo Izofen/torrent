@@ -6,7 +6,7 @@ IMMORTALITY (2022) [Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63670.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63670.jpgsave_picture_63670.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ REVEIL (2024) [Ru/Multi] (1.0.3f4/dlc) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63676.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63676.jpgsave_picture_63676.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Saints Row (2022) [Ru/Multi] (1.1.2.4374033/dlc) Repack dixen18
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63679.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63679.jpgsave_picture_63679.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Evil Nun: The Broken Mask (2023) [Ru/Multi] (1.671) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63754.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63754.jpgsave_picture_63754.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ The Bunker 69 (2019) [Ru/En] (1.0/dlc) Repack Other s [18+]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63780.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63780.jpgsave_picture_63780.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ The Divine Invasion (2020) [Ru/Multi] (Build 20224638) Repack Let'sРlay
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63849.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63849.jpgsave_picture_63849.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Villages & Dungeons (2025) [Ru/Multi] (10033/dlc) Repack Let'sРlay [Crystal Edi
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63889.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63889.jpgsave_picture_63889.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Halloween Stories 9: The Death Card (2025) [En] (1.0) Unofficial [Collector's Ed
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63904.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63904.jpgsave_picture_63904.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ The Unseen Fears 7: Inner Darkness (2025) [En] (1.0) Unofficial [Collector's Edi
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64658.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64658.jpgsave_picture_64658.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Sun Haven (2023) [Ru/Multi] (2.5.1E/dlc) Repack FitGirl [Ultra Bundle]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65587.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65587.jpgsave_picture_65587.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Ever 17 - The Out of Infinity (2025) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65641.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65641.jpgsave_picture_65641.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ WYRMHALL: Brush and Banter (2025) [Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65642.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65642.jpgsave_picture_65642.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ The Hungry Lamb: Traveling in the Late Ming Dynasty / Epiao: Ming Mo Qianli Xing
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65661.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65661.jpgsave_picture_65661.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Papers, Please (2013) [Ru/Multi] (1.4.11.124) Repack EXROW
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65663.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65663.jpgsave_picture_65663.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Teardown (2022) [Ru/Multi] (1.7.0/dlc) Scene Rune
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65755.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65755.jpgsave_picture_65755.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Teardown (2022) [Ru/Multi] (1.7.0/dlc) Repack seleZen [Deluxe Edition]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65759.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65759.jpgsave_picture_65759.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Tesla Effect: A Tex Murphy Adventure (2014) [Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65798.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65798.jpgsave_picture_65798.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Warhammer 40,000: Rogue Trader (2023) [Ru/Multi] (1.4.0/dlc) Repack seleZen [Lex
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65804.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65804.jpgsave_picture_65804.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Sally Face (2016) [Ru/Multi] (1.5.44) Repack EXROW
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65891.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65891.jpgsave_picture_65891.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Leafing Home (2025) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65896.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65896.jpgsave_picture_65896.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Castle Crashers (2012) [Ru/Multi] (2.9.1/dlc) Repack EXROW
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66147.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66147.jpgsave_picture_66147.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Sengoku Dynasty (2023) [Ru/Multi] (1.0.3.1) Repack Pioneer
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66419.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66419.jpgsave_picture_66419.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Firefighting Simulator: The Squad (2020) [Ru/Multi] (1.0.41.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66449.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66449.jpgsave_picture_66449.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Delivery INC (2023) [Ru/Multi] (1.8.3/dlc) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66739.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66739.jpgsave_picture_66739.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Synergy (2024) [Ru/Multi] (1.0) Repack seleZen
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67728.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67728.jpgsave_picture_67728.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Slime Rancher 2 (2022) [Ru/Multi] (0.6.3) Repack Pioneer [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67734.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67734.jpgsave_picture_67734.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Fergus McCreadie - Stream (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Contempora
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110207.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110207.jpgsave_picture_110207.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Gothminister - Pandemonium II: The Battle of the Underworlds (2024) [FLAC 24/44.
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110208.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110208.jpgsave_picture_110208.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Win Pongsakorn - Time Has Changed (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Co
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110209.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110209.jpgsave_picture_110209.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Tim Garland - Moment Of Departure (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110210.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110210.jpgsave_picture_110210.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Nick Kamen - Nick Kamen (1987) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Synth-po
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110212.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110212.jpgsave_picture_110212.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ U.D.O. - Game Over (2021) Limited Edition,2022, AFM Records[FLAC|24/192|tracks|V
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110218.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110218.jpgsave_picture_110218.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Kevin Ito - 000 (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Smooth Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110220.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110220.jpgsave_picture_110220.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Coffee Shop Vibes - Possibilities (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110222.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110222.jpgsave_picture_110222.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Raff Ranieri - Flows (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Contemporary Ja
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110227.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110227.jpgsave_picture_110227.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Mekong Delta - Studio Albums (6 releases) (1996-2020) hand made [restored, decli
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110228.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110228.jpgsave_picture_110228.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ P.O.D. - Veritas (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alt.Metal / Rapcore
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110244.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110244.jpgsave_picture_110244.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ U.D.O. - We Are One (2020) Collaboration[FLAC|24/192|image + .cue|Vinyl-Rip]  <H
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110246.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110246.jpgsave_picture_110246.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Garbage - Lie To Me (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Alternative>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110264.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110264.jpgsave_picture_110264.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ V.A. - Best Sound of Chill & Lounge 2024 - Summer Edition (2024) [FLAC 24/44.1|L
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110302.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110302.jpgsave_picture_110302.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Rudi Tuesday Band - Before The Petrichor (2024) [FLAC 24/44.1|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110353.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110353.jpgsave_picture_110353.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Most Relaxing Music Academy, Jazz Lounge Zone - Jazz Affinity: Connecting Throug
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110356.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110356.jpgsave_picture_110356.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Jazz Chillout - Jazz in Eden (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Chill
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110358.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110358.jpgsave_picture_110358.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Opera Trance featuring Emma Shapplin - Spente Le Steele (Part 2 - The Remixes) (
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110359.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110359.jpgsave_picture_110359.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Written on Water - Like dewdrops, like diamonds (2024) [FLAC 24/44.1|Lossless|WE
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110360.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110360.jpgsave_picture_110360.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Sergio (Sérgio) Pereira - Bossa+ (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Ja
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110363.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110363.jpgsave_picture_110363.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Gothminister - Pandemonium II: The Battle of the Underworlds (2024) [FLAC 24/44.
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110364.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110364.jpgsave_picture_110364.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Mob Rules - Celebration Day - 30 Years Of Mob Rules (2024) [FLAC 24/44.1|Lossles
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110365.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110365.jpgsave_picture_110365.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Jola Recchioni - Wrongtime (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110367.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110367.jpgsave_picture_110367.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ Jeff Pitchell - Brown Eyed Blues (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <B
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110368.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110368.jpgsave_picture_110368.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ Mitch Polzak & The Kaw-Ligas - Down South Blues (2024) [FLAC 24/48|Lossless|WEB-
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110370.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110370.jpgsave_picture_110370.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ Bart Bryant - Backstage II (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues R
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110371.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110371.jpgsave_picture_110371.jpg" />
 </div>
 
 

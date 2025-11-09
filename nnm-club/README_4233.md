@@ -6,7 +6,7 @@ OTUS, Евгений Аристов, Виталий Попов, Владимир
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131232.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131232.jpgsave_picture_131232.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:96724668521D852E59981CDC43B7ABCA67126BF0
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131233.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131233.jpgsave_picture_131233.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:96724668521D852E59981CDC43B7ABCA67126BF0
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131235.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131235.jpgsave_picture_131235.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ SpeedFan 4.48 beta 6 [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131236.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131236.jpgsave_picture_131236.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Abelssoft SSD Fresh Plus 2024 13.0.51115 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131237.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131237.jpgsave_picture_131237.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:017F5AB1CA4CCFD98A7174983BDB0A5D27AD82CD
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131238.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131238.jpgsave_picture_131238.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Gary Moore & Projects: Skid Row, Colosseum II, Greg Lake, BBM -54 Albums, 2EP, 1
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131239.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131239.jpgsave_picture_131239.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:E32B45526850893D90ECA558AB69201B7921319C
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131240.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131240.jpgsave_picture_131240.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:1A7A0C4B59366D3F6F264A5B31D924EE9552B008
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131241.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131241.jpgsave_picture_131241.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ AIDA64 Extreme | Engineer | Business Edition | Network Audit 7.00.6700 RePack (&
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131242.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131242.jpgsave_picture_131242.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Stereoscopic Player 1.9.6 Final [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131243.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131243.jpgsave_picture_131243.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Stereoscopic Player - многоцелевой проигрыватель для
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131244.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131244.jpgsave_picture_131244.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Stereoscopic Player - многоцелевой проигрыватель для
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131245.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131245.jpgsave_picture_131245.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ magnet:?xt=urn:btih:87F1DB4B5FF2D8764B449062CBFA4109D85893EB
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131246.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131246.jpgsave_picture_131246.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ magnet:?xt=urn:btih:698922B09499DF8EDB7D3FC69A4B87CAC1A56A83
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131247.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131247.jpgsave_picture_131247.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ onOne Perfect Effects 4.0.1 Premium Edition [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131248.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131248.jpgsave_picture_131248.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Perfect Effects — включает в себя полную библиотек
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131249.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131249.jpgsave_picture_131249.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ BBC. Horizon: Вся правда об упражнениях / The Truth About 
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131250.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131250.jpgsave_picture_131250.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ magnet:?xt=urn:btih:A9F4B0635D860995D9CFEE15418D3906DC40D376
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131251.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131251.jpgsave_picture_131251.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ magnet:?xt=urn:btih:1556C63217E17F486DF5016B405418195D665A87
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131253.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131253.jpgsave_picture_131253.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ magnet:?xt=urn:btih:2A6AE49069973BBF686426CA4FB90B089BF977E3
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131255.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131255.jpgsave_picture_131255.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ John Woo Presents Stranglehold [Ru/En] (Repack/1.1) 2007 | R.G. Origami
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131256.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131256.jpgsave_picture_131256.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ magnet:?xt=urn:btih:0E916028BBC1B0F0488AF0510F4C0A83B8FC79BE
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131257.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131257.jpgsave_picture_131257.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ King's Field IV: The Ancient City [Multi-5] (2002) [PS2]
 >>PS2
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131258.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131258.jpgsave_picture_131258.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ magnet:?xt=urn:btih:DD5A530B23B6D2CE000722571C9E27BB2D765417
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131259.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131259.jpgsave_picture_131259.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ magnet:?xt=urn:btih:F43A3B37462A10F64118ECF2155F03B877880FD8
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131261.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131261.jpgsave_picture_131261.jpg" />
 </div>
 
 

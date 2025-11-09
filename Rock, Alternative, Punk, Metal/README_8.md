@@ -6,7 +6,7 @@ VA - Оргазм Нострадамуса: Трибьют Vol.1-2-3 (2020-2025)
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11823.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11823.jpgsave_picture_11823.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Celestial Wizard - Regenesis (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11922.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11922.jpgsave_picture_11922.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Dire Straits - Brothers In Arms (1985) Box Set, 3xCD, Reissue, 2025 ,Mercury Rec
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11963.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11963.jpgsave_picture_11963.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Royale Lynn - Black Magic (2025) [FLAC|Lossless|WEB-DL|tracks] <Alternative Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12020.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12020.jpgsave_picture_12020.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Manic Depression - Escapade (2025) [MP3|320 Kbps] <Thrash Metal>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12026.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12026.jpgsave_picture_12026.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ AC/DC - Problem Child The Best Of The Bon Scott Years (2018) Box Set, 8 x CD, Co
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12061.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12061.jpgsave_picture_12061.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Type O Negative - Dead Again (2007) Reissue, 2022, Nuclear Blast [FLAC|Lossless|
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12112.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12112.jpgsave_picture_12112.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Dance Gavin Dance - Pantheon (2025) [MP3|320 Kbps] <Post-Hardcore, Progressive, 
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12119.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12119.jpgsave_picture_12119.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Main-De-Gloire - Ravecore (2025) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Post-
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12122.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12122.jpgsave_picture_12122.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Anger Machine - Human Error (2025) [FLAC|Lossless|WEB-DL|tracks] <Thrash, Groove
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12126.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12126.jpgsave_picture_12126.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ VA - 25 Indie Rock Hits (2025) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock/Rock po
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12139.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12139.jpgsave_picture_12139.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ VA - Road Trip Rock Ballads (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12141.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12141.jpgsave_picture_12141.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ VA - Summer Rock Songs (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12142.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12142.jpgsave_picture_12142.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ magnet:?xt=urn:btih:6D5B9507554F014AFDD75DFC265661D9E3978E30
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12146.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12146.jpgsave_picture_12146.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ magnet:?xt=urn:btih:F72DA1C0BB7E9F42052FCDA0146D8AC77541D5F0
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12151.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12151.jpgsave_picture_12151.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Kiss - Love Gun (1977) Deluxe Edition, 2014, UMe Direct 2 [FLAC|Lossless|WEB-DL|
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12325.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12325.jpgsave_picture_12325.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ The Essence - Есенин (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12414.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12414.jpgsave_picture_12414.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ The Essence - Есенин (2025) [MP3|320 Kbps] <Pop Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12422.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12422.jpgsave_picture_12422.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:38AA5A1E7758155A42C4E845353D959FC0547AED
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12534.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12534.jpgsave_picture_12534.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:A83A6301FA012FD398477341209ACCDCD8334422
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12538.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12538.jpgsave_picture_12538.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:0751BC4DF95C1CF36F4E7750FDA7AF8437896824
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12541.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12541.jpgsave_picture_12541.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Queen - Pop (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock, Progressive-Rock, Glam-R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12566.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12566.jpgsave_picture_12566.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Bruce Springsteen - Lost And Found (Selections From The Lost Albums) (2025) Comp
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12646.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12646.jpgsave_picture_12646.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ UFO(Unidentified Flying Objects) - Champions Of Rock (1996) Compilation [FLAC|Lo
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12730.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12730.jpgsave_picture_12730.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Venator - Psychodrome (2025) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12743.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12743.jpgsave_picture_12743.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Skracken - Echoes From The Void (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12744.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12744.jpgsave_picture_12744.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ The Classic Crime - GRIM AGE (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative R
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245399.jpgsave_picture_245399.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:40F3618496937529CD895CEE58F6AC5A035BD617
 >>Отечественные Мультфильмы 21-го века (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245400.jpgsave_picture_245400.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:3D14AD428B8C6F2F1BBDAE0769158709AFCF6EA3
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245401.jpgsave_picture_245401.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Studies 1.8.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245402.jpgsave_picture_245402.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ Microsoft Visual Studio 2019 Enterprise 16.8.4 (Offline Cache, Unofficial) [Ru/E
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245403.jpgsave_picture_245403.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:CEEC9FC25F8BC8D5BCAD73A7F34404B894B2398C
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245404.jpgsave_picture_245404.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ Mike McShaffry, David Graham | Game Coding Complete (2012) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245405.jpgsave_picture_245405.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ Macrorit Partition Expert 6.1.0 Unlimited Edition RePack (& Portable) by elchupa
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245406.jpgsave_picture_245406.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ Vanish - A Hint Of Solace (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive, Pow
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245407.jpgsave_picture_245407.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ magnet:?xt=urn:btih:637DFA09A4B21623E0F4AD3C7751960D83F207CE
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245408.jpgsave_picture_245408.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ SQLPro Studio 2021.102 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245409.jpgsave_picture_245409.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ Discreation - Iron Times (2023) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245410.jpgsave_picture_245410.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ magnet:?xt=urn:btih:E4EAC766CE10A001A17EEB15364D22E40DD83318
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245411.jpgsave_picture_245411.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ Reg Organizer 8.91 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245412.jpgsave_picture_245412.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ magnet:?xt=urn:btih:C5C02859281E09F8F8E3A2E044284F37F15C1394
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245413.jpgsave_picture_245413.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Persian Risk - Who Am I? - Once A King (2012-2014) 2xCD, Reissue, 2019, Escape M
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245414.jpgsave_picture_245414.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ VA - Musica para: Rejuvenecer y sentirse bella (2021) [AAC|~309 Kbps] <Lounge, C
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245415.jpgsave_picture_245415.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ magnet:?xt=urn:btih:12DE4E26E952D8C506450D590DC19A4A9DFA4904
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245416.jpgsave_picture_245416.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Thirteen of everything - Time and Other Delusions (2023) [FLAC|Lossless|WEB-DL
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245417.jpgsave_picture_245417.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ magnet:?xt=urn:btih:25EE6768A18A0C872842A5435E35642B6A91A3D9
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245418.jpgsave_picture_245418.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ magnet:?xt=urn:btih:598F087B0633A23E1508A501292EEF65562B1FFD
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245419.jpgsave_picture_245419.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Aiseesoft Video Converter Ultimate 10.5.22 RePack (& Portable) by TryRooM [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245420.jpgsave_picture_245420.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ magnet:?xt=urn:btih:B84D5F83607C02BA5A19C5CF8FE6E907D8566FCB
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245421.jpgsave_picture_245421.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Duplicate File Finder Pro 7.0.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245422.jpgsave_picture_245422.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Withering Worlds - The Long Goodbye (2021) [FLAC|Lossless|image + .cue] <Atmosph
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245423.jpgsave_picture_245423.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ Windows 10 Manager 3.7.8 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245424.jpgsave_picture_245424.jpg" />
 </div>
 
 

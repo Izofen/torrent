@@ -6,7 +6,7 @@ Image Uploader 1.4.1 Build 5153 Nightly + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108605.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108605.jpgsave_picture_108605.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:BE65A4FA339010BBD0D84DF78D4165D278F8259F
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108606.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108606.jpgsave_picture_108606.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ Bad Omens - Concrete Jungle (2024) The OST [FLAC 24/48|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108607.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108607.jpgsave_picture_108607.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ magnet:?xt=urn:btih:92D93C6468550E3069C33E8A78BA04518DCA1001
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108608.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108608.jpgsave_picture_108608.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ Lucius - Wildewoman - The New Recordings (2024) [FLAC 24/96|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108609.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108609.jpgsave_picture_108609.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ Tim Warfield - One For Shirley (2008) Criss Cross Jazz [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108610.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108610.jpgsave_picture_108610.jpg" />
 </div>
 
 
@@ -161,7 +161,7 @@ David Schumacher - Every Corner (1993) Amosaya Records [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108611.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108611.jpgsave_picture_108611.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ CamelPhat - Live @ Opening Party, Pacha Ibiza, Spain (2024-05-21) [MP3|320 Kbps]
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108612.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108612.jpgsave_picture_108612.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ VA - Armin van Buuren - A State Of Trance 1175 (2024) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108613.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108613.jpgsave_picture_108613.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Mary Lou Williams - Zodiac Suite (1945) 1991, Vintage Jazz Classics [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108614.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108614.jpgsave_picture_108614.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ magnet:?xt=urn:btih:D57ADF9D0A5171AA5373EC61A4AD8BB7C83E4161
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108615.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108615.jpgsave_picture_108615.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Rhapsody Of Fire - Challenge the Wind (2024) [FLAC 24/44.1|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108616.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108616.jpgsave_picture_108616.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ magnet:?xt=urn:btih:12790A4324505CC9670E1358A1497CCE33A287BC
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108617.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108617.jpgsave_picture_108617.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ magnet:?xt=urn:btih:BB0C08C0E52C4904D71D9860D304BB94E5C0C6EA
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108618.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108618.jpgsave_picture_108618.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ Suffering Souls - An Iconic Taste Of Demise (2024) [FLAC|Lossless|WEB-DL|tracks]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108619.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108619.jpgsave_picture_108619.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ magnet:?xt=urn:btih:21A752CC1633CBF1D4B51ED5B8653110DB3B4962
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108620.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108620.jpgsave_picture_108620.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ Troy Redfern - Invocation (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Southern B
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108621.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108621.jpgsave_picture_108621.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ Thirsty Zombie - Dead But Still...Drunk!! (2024) [FLAC|Lossless|WEB-DL|tracks] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108622.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108622.jpgsave_picture_108622.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ magnet:?xt=urn:btih:1740923A5E832157904651BBEB7C3E745F4E99EC
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108623.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108623.jpgsave_picture_108623.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ Thirsty Zombie - Dead But Still...Drunk!! (2024) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108624.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108624.jpgsave_picture_108624.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ magnet:?xt=urn:btih:C35DAB14408BCA81A1A0BA62CFEDB2F09F52448F
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108625.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108625.jpgsave_picture_108625.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ magnet:?xt=urn:btih:5206EE75E11080580638C4D09D1748A73BEFF333
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108626.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108626.jpgsave_picture_108626.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:6E41562BF9978B5C5F7E7C9D45D2D8596365454C
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108627.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108627.jpgsave_picture_108627.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Coldrain - Final Destination  & Vengeance (Xv Re Recorded) (2024) [FLAC 24/48|Lo
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108628.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108628.jpgsave_picture_108628.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ magnet:?xt=urn:btih:33F46A8ED59E554CC4ED65C16063FC60E588585C
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108629.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108629.jpgsave_picture_108629.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ The Troops Of Doom - A Mass To The Grotesque (2024) [FLAC|Lossless|WEB-DL|tracks
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108630.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108630.jpgsave_picture_108630.jpg" />
 </div>
 
 

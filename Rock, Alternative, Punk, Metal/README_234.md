@@ -6,7 +6,7 @@ Destructor - Blood, Bone, And Fire (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150566.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150566.jpgsave_picture_150566.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Sydra - Call of the Void (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Thra
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150567.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150567.jpgsave_picture_150567.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Dyecrest - The Way of Pain (2004) [APE|Lossless|image + .cue] <Heavy, Power Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150573.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150573.jpgsave_picture_150573.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Repossession - Repossession (2015) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150574.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150574.jpgsave_picture_150574.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Dyecrest - This Is My World (2005) [APE|Lossless|image + .cue] <Heavy, Power Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150575.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150575.jpgsave_picture_150575.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Bryan Adams - Down The Marquee (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150715.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150715.jpgsave_picture_150715.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Daedric - As the Light Left (2025) [FLAC|Lossless|WEB-DL|tracks] <Alt.Metal, Ind
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150720.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150720.jpgsave_picture_150720.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ VA - Pink Floyd Tribute (2021) 2xSet [FLAC|Lossless|WEB-DL|tracks] <Psychedelic 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150818.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150818.jpgsave_picture_150818.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:1C26B37E44010779815AEAE9FDF4756EAAD20F48
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150891.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150891.jpgsave_picture_150891.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Neu! - 50! (2022) 5xCD, Compilation,  Box Set, Reissue, 2022, Grönland Records 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150901.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150901.jpgsave_picture_150901.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Gnarbot - Mystery Lodge (2022) [MP3|320 Kbps] <Progressive Rock / Jazz Rock / Ma
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150913.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150913.jpgsave_picture_150913.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Tyketto - Don't Come Easy (1991) Japanese Edition [FLAC|Lossless|image + .cue] <
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150937.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150937.jpgsave_picture_150937.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Metaline - Hidden Hand (2022) EP [FLAC|Lossless|WEB-DL|tracks] <Alternative Meta
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150961.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150961.jpgsave_picture_150961.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ In Depth Of My Mind - Reflection of Self-Destruction (2022) 2CD [FLAC|Lossless|W
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150974.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150974.jpgsave_picture_150974.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ magnet:?xt=urn:btih:42EC5FBFB0648E6B043885665E2DE897DADD1329
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151007.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151007.jpgsave_picture_151007.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Citadel - Chosen Bereft (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Death 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151008.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151008.jpgsave_picture_151008.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Sombria - Chirographon Dei (2020) [FLAC|Lossless|WEB-DL|tracks] <Doom Dark Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151017.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151017.jpgsave_picture_151017.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ magnet:?xt=urn:btih:2FB46C50EECC1D8E1E0E3A524664BB6614375A21
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151021.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151021.jpgsave_picture_151021.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Doomocracy - Visions & Creatures of Imagination (2017) [FLAC|Lossless|WEB-DL|tra
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151026.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151026.jpgsave_picture_151026.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:8F451F1C19B13BCAA5F44C06216BACA97797FE28
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151029.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151029.jpgsave_picture_151029.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Ulrich Ellison - Power Of Soul (2021) A Tribute to Jimi Hendrix [MP3|320 Kbps] <
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151030.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151030.jpgsave_picture_151030.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:90D788E014351380C30877102571309A761349DF
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151036.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151036.jpgsave_picture_151036.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Decrepit Cadaver - Revelations (2022) [FLAC|Lossless|WEB-DL|tracks] <Brutal Deat
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151048.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151048.jpgsave_picture_151048.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Desert Voices - Never Ending (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151065.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151065.jpgsave_picture_151065.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ magnet:?xt=urn:btih:3DC31CDF080D93263DBD0277719073D0B1A62CB1
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151188.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151188.jpgsave_picture_151188.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Hard Times - Tales From The Wild Cat Place (2021) [FLAC|Lossless|image + .cue] <
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151212.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151212.jpgsave_picture_151212.jpg" />
 </div>
 
 

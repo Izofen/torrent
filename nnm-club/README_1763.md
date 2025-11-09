@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46195.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46195.jpgsave_picture_46195.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Dark The Suns - Studio Albums (6 releases) (2007-2023) hand made [restored, decl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46196.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46196.jpgsave_picture_46196.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:EA7B138A5659D759D9EB59F1B4277CF4B60CCB6F
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46197.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46197.jpgsave_picture_46197.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:4CA7C60193784A9217C1CA14A2955DC674221AEA
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46198.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46198.jpgsave_picture_46198.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:91B7B4A284B3B115B8BAD990340AD30E288A98DD
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46199.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46199.jpgsave_picture_46199.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:65D6EDDC29034EB2C238622C4400BF959155C91F
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46200.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46200.jpgsave_picture_46200.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:39B6FC6A39C3598299588B514ED51C65F1F80F54
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46201.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46201.jpgsave_picture_46201.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Dogs D'Amour - Greatest Hits (2017) [MP3|320 Kbps] <Hard Rock, Glam Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46202.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46202.jpgsave_picture_46202.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:1B7ABF17DAC62B9473E1ED61DE259AF503509C45
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46203.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46203.jpgsave_picture_46203.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:1C9AAF8D0F4D96F1A8F5FCA6F5603C37DAC0A7BF
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46204.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46204.jpgsave_picture_46204.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Exit Eden - Femmes Fatales (2024) [FLAC|Lossless|image + .cue] <Symphonic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46205.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46205.jpgsave_picture_46205.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:AB883D2B58A4C89DAD3D507EAAEEA20D0215B383
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46206.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46206.jpgsave_picture_46206.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ The Voidness - Lidar Horror Survival Game (2023) [En] (v1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46207.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46207.jpgsave_picture_46207.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ The Bathhouse (2024) [Multi] (1.03) Scene Tenoke [Restored Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46208.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46208.jpgsave_picture_46208.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ magnet:?xt=urn:btih:CD8B1412771FBFF03BB12E0B21B74600E447E6B6
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46209.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46209.jpgsave_picture_46209.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ MMCodingWriter 2.1 [Ru/En]
 >>Автомобильные программы и навигаторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46210.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46210.jpgsave_picture_46210.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ magnet:?xt=urn:btih:D433C1F39706420D4C06EBAFFEA98888BB00DA67
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46211.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46211.jpgsave_picture_46211.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ Tokyo Coffee: Grinding in the Pandemic (2024) [Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46212.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46212.jpgsave_picture_46212.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ Blender 4.2.1 LTS + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46213.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46213.jpgsave_picture_46213.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ TikTok 36.0.4 Mod by Dmitry Nechiporenko + Plugin 1.50 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46214.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46214.jpgsave_picture_46214.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ The Crush House (2024) [Multi] (1.1.9679) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46215.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46215.jpgsave_picture_46215.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Hero's Adventure: Road to Passion (2023) [Multi] (1.2.0813b65/dlc) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46216.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46216.jpgsave_picture_46216.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Among the Sleep (2017) [Ru/Multi] (3.1.0.41) Repack Other s [Enhanced Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46217.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46217.jpgsave_picture_46217.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ magnet:?xt=urn:btih:091AB4FC075DB3E45491FA3F749E1DF2407F2623
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46218.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46218.jpgsave_picture_46218.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ magnet:?xt=urn:btih:71303597ABE67096DEABB7FFEA4D37511447B9FF
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46219.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46219.jpgsave_picture_46219.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ magnet:?xt=urn:btih:2D38B5F7566080079EAB5378C38C36F89811C113
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46220.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46220.jpgsave_picture_46220.jpg" />
 </div>
 
 

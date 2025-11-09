@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59907.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59907.jpgsave_picture_59907.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:CEA0B43A165F6F4AAC5D756637B6151493D89A03
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59908.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59908.jpgsave_picture_59908.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:62199284FD3C446D9AC5643DB1764933371D7883
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59909.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59909.jpgsave_picture_59909.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ VA - Italo Dance Top Charts (2014) [FLAC|Lossless|WEB-DL|tracks] <Italo Dance, I
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59910.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59910.jpgsave_picture_59910.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Kuramerukagari | Ослепляющая Кагари [2024, Movie] WEBRip 544p r
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59911.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59911.jpgsave_picture_59911.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Macrorit Partition Expert 8.1.6 Technician Edition RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59912.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59912.jpgsave_picture_59912.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Malwarebytes Windows Firewall Control 6.9.9.7 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59913.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59913.jpgsave_picture_59913.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Duolingo: изучай языки 5.146.3 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59914.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59914.jpgsave_picture_59914.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ ASUS GPU Tweak III 1.7.6.1 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59915.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59915.jpgsave_picture_59915.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Topaz Video AI 5.0.0 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59916.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59916.jpgsave_picture_59916.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ The Harmony Chronicles: Chaos Realms (2024) [En] (1.0) Unofficial [Collector's E
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59917.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59917.jpgsave_picture_59917.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ VA - Armin van Buuren - A State of Trance (Celebration Weekend) (unmixed tracks)
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59918.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59918.jpgsave_picture_59918.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Linkin Park - Papercuts (2024) Singles Collection 2000-2023 [FLAC|Lossless|WEB-D
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59919.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59919.jpgsave_picture_59919.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Ocenaudio 3.13.8 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59920.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59920.jpgsave_picture_59920.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ VA - A State Of Trance Radio Top 50 - 2024, Vol. 1 (2024) [MP3|320 Kbps] <Trance
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59921.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59921.jpgsave_picture_59921.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ magnet:?xt=urn:btih:47ECC571AE54684B489569CB9CB7AFE809587A12
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59922.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59922.jpgsave_picture_59922.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ WinTools.net Premium / Professional / Classic 24.3.1 RePack (& Portable) by Doda
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59923.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59923.jpgsave_picture_59923.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ VA - Music News vol.364 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59924.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59924.jpgsave_picture_59924.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ magnet:?xt=urn:btih:2BDA07070E8EA4B48C1A3F8B028C920A159B8454
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59925.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59925.jpgsave_picture_59925.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ magnet:?xt=urn:btih:2BDA07070E8EA4B48C1A3F8B028C920A159B8454
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59926.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59926.jpgsave_picture_59926.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ magnet:?xt=urn:btih:2BDA07070E8EA4B48C1A3F8B028C920A159B8454
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59927.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59927.jpgsave_picture_59927.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ magnet:?xt=urn:btih:8580C77BB91BDAD0B093ADE15BFAA4DDA50E6F84
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59928.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59928.jpgsave_picture_59928.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Eagles - To the Limit: The Essential Collection (2024) 3CD [FLAC|Lossless|WEB-DL
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59929.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59929.jpgsave_picture_59929.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ OpenVPN 2.6.10 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59930.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59930.jpgsave_picture_59930.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Garden Group, Иван Шаферов | Благоустройство. Тари
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59931.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59931.jpgsave_picture_59931.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ magnet:?xt=urn:btih:2F385A882032E64BFF6D43DE61A34753304DDAD6
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59932.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59932.jpgsave_picture_59932.jpg" />
 </div>
 
 

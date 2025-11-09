@@ -6,7 +6,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126707.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126707.jpgsave_picture_126707.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:2E4602226F365EF3DDCFE87405EB05EF3229EDAC
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126708.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126708.jpgsave_picture_126708.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:0023DAC3696299E9F961C4BD16370929239A2D97
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126709.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126709.jpgsave_picture_126709.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:526C4952633EC6C6CA788FA99916F78879FACA03
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126710.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126710.jpgsave_picture_126710.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:BC8D8A4F5EA9ECFB97B4EB91CE57A4BE4D481420
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126711.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126711.jpgsave_picture_126711.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:B62C5D6A077BBEB15DAFCD9AB6A101FF156E9C96
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126712.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126712.jpgsave_picture_126712.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:C94AB20B1A899DF3B9DD29DE54686CEF44BD738E
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126713.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126713.jpgsave_picture_126713.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:FD93DE917609FB212D93A5A28499619339289D15
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126714.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126714.jpgsave_picture_126714.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:1F12DD62039F9B56EE6E2DC77D53BCA70DD41622
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126715.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126715.jpgsave_picture_126715.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Hametsu no Oukoku | The Kingdoms of Ruin | Королевство руин [2023
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126716.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126716.jpgsave_picture_126716.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:6A234CD6F695E758E0A62828BB60CF6A6C37BBB3
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126717.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126717.jpgsave_picture_126717.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:33F4F2DCBC86FC82D56B5D8E1BA003FD3A12B69F
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126718.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126718.jpgsave_picture_126718.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:33F4F2DCBC86FC82D56B5D8E1BA003FD3A12B69F
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126719.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126719.jpgsave_picture_126719.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Need For Speed: Hot Pursuit (2010) [Ru/En] (1.0.5.0s/dlc) Repack Decepticon [Lim
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126720.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126720.jpgsave_picture_126720.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ magnet:?xt=urn:btih:26C4CEB4778A8D511FF6F48D1868F37CFD44450A
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126721.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126721.jpgsave_picture_126721.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ magnet:?xt=urn:btih:FA9B560FDC41EFEB4897BD49B3187BB3360B49F5
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126722.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126722.jpgsave_picture_126722.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ magnet:?xt=urn:btih:61E619570338341CB1969F457E0A6E17625FF8C0
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126723.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126723.jpgsave_picture_126723.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ magnet:?xt=urn:btih:0081DE307DF4585351DE18BE86C498907BE8E599
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126724.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126724.jpgsave_picture_126724.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ magnet:?xt=urn:btih:F6643E69662A61E919369A0CB4760A2B2B94B7CF
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126725.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126725.jpgsave_picture_126725.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ magnet:?xt=urn:btih:B8A833D48B7FD4CAC35AF06C93359BD26638C169
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126726.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126726.jpgsave_picture_126726.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Frank Morgan - Reflections (1988) 2000, Original Jazz Classics [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126727.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126727.jpgsave_picture_126727.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ The Bud Shank Sextet - New Gold! (1994) Candid [FLAC|Lossless|tracks + .cue] <Co
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126728.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126728.jpgsave_picture_126728.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Horrifier - Horrid Resurrection (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126729.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126729.jpgsave_picture_126729.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Apostasy - Accuser of Brethren (1993) Reissue, 2020, Pathologically Explicit Rec
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126730.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126730.jpgsave_picture_126730.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Uncircle - Via Dolorosa (2023) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Modern 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126731.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126731.jpgsave_picture_126731.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ V.A. - Montecarlo Night, Vol. 3 (2023) [FLAC|Lossless|WEB-DL|tracks] <Nu Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126732.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126732.jpgsave_picture_126732.jpg" />
 </div>
 
 

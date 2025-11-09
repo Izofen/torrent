@@ -6,7 +6,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68818.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68818.jpgsave_picture_68818.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ VA - Exhibition: Raw - Mixed by Ben Lost (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68819.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68819.jpgsave_picture_68819.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Manic Street Preachers - Critical Thinking (2025) [FLAC 24/44.1|Lossless|WEB-DL|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68820.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68820.jpgsave_picture_68820.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Sodom - Tapping The Vein (1992) 3 x CD, Reissue, Remastered, Noise Records [FLAC
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68821.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68821.jpgsave_picture_68821.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ RaiNao - Capicu (2025) [FLAC|Lossless|WEB-DL|tracks] <Alternative Pop, jazz, R&B
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68822.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68822.jpgsave_picture_68822.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Aska - Knight Strike (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68823.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68823.jpgsave_picture_68823.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ magnet:?xt=urn:btih:9550EF7E8398234EFA1C47C61CB642D555C3413C
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68824.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68824.jpgsave_picture_68824.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Kenny Wayne Shepherd & Bobby Rush - Young Fashioned Ways (2025) [FLAC 24/96|Loss
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68825.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68825.jpgsave_picture_68825.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Defender - Dying to Live (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Met
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68826.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68826.jpgsave_picture_68826.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ The Lewis Express featuring Chip Wickham - Doo-Ha! (2025) [FLAC 24/96|Lossless|W
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68827.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68827.jpgsave_picture_68827.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Dawn Brothers - Cry Alone (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues, Roc
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68828.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68828.jpgsave_picture_68828.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Sons Of Samsara - Sons of Samsara (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68829.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68829.jpgsave_picture_68829.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Mimoucremeux - Dreamer in a screamer world (2025) [FLAC 24/48|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68830.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68830.jpgsave_picture_68830.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ magnet:?xt=urn:btih:0929434355B8283D56996DC2246B2F03CB8E5D86
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68831.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68831.jpgsave_picture_68831.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ TuneIn Radio Pro v37.8 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68832.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68832.jpgsave_picture_68832.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ magnet:?xt=urn:btih:D9713AE996215897325132D6289458D662CEB72A
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68833.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68833.jpgsave_picture_68833.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ arcologies - Symmetry Beyond (2025) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass, 
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68834.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68834.jpgsave_picture_68834.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ magnet:?xt=urn:btih:C737AC241F45BC4EF26E0858EDCD57FCD908781F
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68835.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68835.jpgsave_picture_68835.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Menschenwahn - Nach Uns Stille (2025) [MP3|320 Kbps] <Industrial Metal, NDH>
 >>Industrial, EBM, Dark Electro
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68836.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68836.jpgsave_picture_68836.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ VA - Apocalypse Domani (2020) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Dark-Ele
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68837.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68837.jpgsave_picture_68837.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Nightwish - Oceanborn (1998) Released, 2015, Spinefarm Records [FLAC|24/192|imag
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68838.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68838.jpgsave_picture_68838.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ magnet:?xt=urn:btih:603D8567EE8CB3760963FC09ED549EDBB1046FC8
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68839.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68839.jpgsave_picture_68839.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ magnet:?xt=urn:btih:362AD9F270516678431FE3B7816D48DD2A2A706C
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68840.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68840.jpgsave_picture_68840.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ VA - WMC 2025 (2025) [MP3|320 Kbps] <Dance, Club, House, Electronic>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68841.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68841.jpgsave_picture_68841.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ Gabi Hartmann - La femme aux yeux de sel (2025) [FLAC 24/44.1|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68842.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68842.jpgsave_picture_68842.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ magnet:?xt=urn:btih:506968C660A02820375026EEE9D10D9B211A7873
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68843.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68843.jpgsave_picture_68843.jpg" />
 </div>
 
 

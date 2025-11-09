@@ -6,7 +6,7 @@ Disney Classic Games Collection: Aladdin, The Lion King, The Jungle Book (2021) 
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156147.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156147.jpgsave_picture_156147.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Anno 1503: The New World (2003) [Ru] (1.0) License Новый Диск [Колл
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156198.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156198.jpgsave_picture_156198.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Sine Mora [En/Multi6] (Steam-Rip/1.0.0.1) 2012 | R.G. Игроманы
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156219.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156219.jpgsave_picture_156219.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Redout (2016) [Ru/Multi] (1.6.0/dlc) License PLAZA [Enhanced Edition]
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156291.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156291.jpgsave_picture_156291.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Human: Fall Flat (2016) [Ru/Multi] (842523) Repack R.G. Механики
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156304.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156304.jpgsave_picture_156304.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ The Watchmaker (2018) [Ru/Multi] (1.1) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156313.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156313.jpgsave_picture_156313.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ The House of Da Vinci 3 (2022) [Multi] (Build 10193115) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156341.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156341.jpgsave_picture_156341.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Gunz The Duel / Поединок на оружии (P) [En/8672] 2005 | R.G. Act
 >>Online Action (MMO)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156351.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156351.jpgsave_picture_156351.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ ECHO (2017) [En/Fr/Ge] (1.05) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156377.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156377.jpgsave_picture_156377.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Lunistice (2022) [Multi] (1.05a) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156466.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156466.jpgsave_picture_156466.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Road 96 (2021) [Ru/Multi] (1.04/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156531.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156531.jpgsave_picture_156531.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Secret Government (2020) [Ru/Multi] (1.0.6.3) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156559.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156559.jpgsave_picture_156559.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ The Christmas Spirit. Trouble in Oz / Дух Рождества: Неприят�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156652.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156652.jpgsave_picture_156652.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ White Shadows (2021) [Ru/Multi] (1.31) License GOG
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156774.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156774.jpgsave_picture_156774.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Redemption Cemetery 11: One Foot In The Grave / Кладбище искупле�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156958.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156958.jpgsave_picture_156958.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Redemption Cemetery 5: Bitter Frost / Кладбище Обреченных 5: �
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157033.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157033.jpgsave_picture_157033.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Phantasmat 12: Death in Hardcover / Фантазмат 12: Смерть в ст�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157220.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157220.jpgsave_picture_157220.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Assetto Corsa (2014) [En/It] (1.11.0/dlc) License RELOADED [Porsche Season Pass]
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157504.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157504.jpgsave_picture_157504.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Edge of Reality 6: Mark of Fate (2019) [En] (1.0) Unofficial [Collector's Editio
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157594.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157594.jpgsave_picture_157594.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Kingdom Rush: Frontiers (2016) [Ru/Multi] (1.4.4) SteamRip R.G. Игроманы
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157847.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157847.jpgsave_picture_157847.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Christmas Stories 4: Puss in Boots / Рождественские истории
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158002.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158002.jpgsave_picture_158002.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Shadow Warrior 2 (2016) [Ru/Multi] (1.1.13/dlc) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158004.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158004.jpgsave_picture_158004.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Secret City 5: Mysterious Collection (2020) [En] (1.0) Unofficial [Collector's E
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158094.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158094.jpgsave_picture_158094.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Phantasmat 5: Behind The Mask (2015) [En] Unofficial [Collector's Edition / Ко
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158230.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158230.jpgsave_picture_158230.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Christmas Stories 4: Puss in Boots (2015) [En] Unofficial [Collector's Edition /
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158235.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158235.jpgsave_picture_158235.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Statue Of Liberty. The Lost Symbol (2014) [En] Unofficial
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158412.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158412.jpgsave_picture_158412.jpg" />
 </div>
 
 

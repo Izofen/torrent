@@ -6,7 +6,7 @@
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232192.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232192.jpgsave_picture_232192.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:EB4817032481ED4907F57246068DEF6E454D9562
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232193.jpgsave_picture_232193.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Fiona Boyes - Ramblified (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232194.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232194.jpgsave_picture_232194.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ URL Manager Pro 6.2 U2B [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232195.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232195.jpgsave_picture_232195.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ magnet:?xt=urn:btih:C12194C14791DECBCA5433B8841C12CA1E53C585
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232198.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232198.jpgsave_picture_232198.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ magnet:?xt=urn:btih:B1AB21381B1E5DA7A04D24F7406591855E1E6909
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232200.jpgsave_picture_232200.jpg" />
 </div>
 
 
@@ -161,7 +161,7 @@ magnet:?xt=urn:btih:2817B8F7A324FD019B3C1690C91D997351EE40BB
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232201.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232201.jpgsave_picture_232201.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Cosmic Pimp Band - Space Punk Blues Chicken (2023) [FLAC|Lossless|WEB-DL|tracks]
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232202.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232202.jpgsave_picture_232202.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Maegi - Skies Fall (2013) [WavPack|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232203.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232203.jpgsave_picture_232203.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Houston - Re-Launch III (2023) [FLAC|Lossless|WEB-DL|tracks] <Vintage-Melodic-Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232206.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232206.jpgsave_picture_232206.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ magnet:?xt=urn:btih:E146815F0C81C39E00C2B1352737E6EE0623DA64
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232208.jpgsave_picture_232208.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Pandrador - Seidr (2023) [MP3|320 Kbps] <Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232209.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232209.jpgsave_picture_232209.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ AmongRuins - Land of the Black Sun (2023) [MP3|320 Kbps] <Melodic Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232210.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232210.jpgsave_picture_232210.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ magnet:?xt=urn:btih:39FB6927C0CDDD706A1CFFF345644C39F1A6E4FA
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232212.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232212.jpgsave_picture_232212.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Lance Lopez - Trouble Is Good (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232213.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232213.jpgsave_picture_232213.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ magnet:?xt=urn:btih:51CBE356A74218A760A552663D2A44B0222877C3
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232215.jpgsave_picture_232215.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Boris Vian - Les Annees Jazz (1930-e - 1940-e) 2002, Puzzle Productions [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232216.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232216.jpgsave_picture_232216.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ The Kryptik - A Journey to the Darkest Kingdom (2023) [MP3|320 Kbps] <Black Meta
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232217.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232217.jpgsave_picture_232217.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ magnet:?xt=urn:btih:1E357F67BD165418C305D809E3785278F523191A
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232218.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232218.jpgsave_picture_232218.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Marco Ragni - 2 Albums (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, C
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232220.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232220.jpgsave_picture_232220.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ magnet:?xt=urn:btih:B7A8A1F5CE3CA66EA0EDF4985A87A1017AD40DE3
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232223.jpgsave_picture_232223.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ DethOps - Myślonur (2023) [MP3|320 Kbps] <Heavy, Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232224.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232224.jpgsave_picture_232224.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ magnet:?xt=urn:btih:828D866157D9DF0DC01834E98A805CDD61870B3E
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232225.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232225.jpgsave_picture_232225.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ magnet:?xt=urn:btih:C7EA840695761247D845F9067C5F9A0CF8183C32
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232226.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232226.jpgsave_picture_232226.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ Eleine - We Shall Remain (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232229.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232229.jpgsave_picture_232229.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ Abstractian - Box Of Frogs (Poison) (2021) [MP3|320 Kbps] <Progressive Metal, Ro
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232230.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232230.jpgsave_picture_232230.jpg" />
 </div>
 
 

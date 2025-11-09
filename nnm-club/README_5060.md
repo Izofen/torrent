@@ -6,7 +6,7 @@
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158246.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158246.jpgsave_picture_158246.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:B68B0310790B1B689D4E4706C819CB664304F946
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158247.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158247.jpgsave_picture_158247.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Troels Hammer - Trans/For/Mation (2015) Deluxe [FLAC|Lossless|tracks] <Piano, Lo
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158248.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158248.jpgsave_picture_158248.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:0064EB4C8020D3E1940E19B8096A53C4C1B5651A
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158249.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158249.jpgsave_picture_158249.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ magnet:?xt=urn:btih:9A2121D5BBE602373A871379BBE05572DB00F130
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158251.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158251.jpgsave_picture_158251.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ magnet:?xt=urn:btih:098B55670FD0B1B58F1EAB00299A9C978D5F54F9
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158252.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158252.jpgsave_picture_158252.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:03354B17C3CE79F7020DEEB937CFD1F11C4A4446
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158253.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158253.jpgsave_picture_158253.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:AB7F621D26855B45EE98FF6966384B79D63EBEA0
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158254.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158254.jpgsave_picture_158254.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:12B053D8C509587B68D6293934BFBF98BED97EF7
 >>Общественно-политические и пропагандистские ток-шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158255.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158255.jpgsave_picture_158255.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ magnet:?xt=urn:btih:CAED6E2200AAA288F6B87ECF3C57A4B44370A501
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158256.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158256.jpgsave_picture_158256.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ magnet:?xt=urn:btih:B24BBC5F591CC2B9E535BC16E14206C13A55F8DE
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158257.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158257.jpgsave_picture_158257.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ magnet:?xt=urn:btih:A22ADE056F4090C5E7D9B8189CAC967CB2034974
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158258.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158258.jpgsave_picture_158258.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Ornament - Bleu (2004) [FLAC|Lossless|tracks] <Downtempo, Ambient>
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158260.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158260.jpgsave_picture_158260.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ VA - Sunlight Project: Vocal Trance Solar Mix (2015) [MP3|320 кб/с] <Vocal, P
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158261.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158261.jpgsave_picture_158261.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ magnet:?xt=urn:btih:A31DDD83E45475364E7ECD54D6FE211DDF426019
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158262.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158262.jpgsave_picture_158262.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ magnet:?xt=urn:btih:2F2B6A9C4C7474CB580FFCC773B1EA193B1E2AE6
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158263.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158263.jpgsave_picture_158263.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ Nemo & Jaymon - Jahreszeiten (2015) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Dub 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158264.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158264.jpgsave_picture_158264.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ magnet:?xt=urn:btih:ACF2C9181EE288F9F58BCFB32C18AFD940F712CB
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158265.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158265.jpgsave_picture_158265.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Sunless Rise - Unrevealed (2015) [MP3|320 кб/с] <Melodic Death Metal, Progres
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158266.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158266.jpgsave_picture_158266.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ LPF12 - The White Room (2010) [FLAC|Lossless|WEB-DL|tracks] <Industrial, IDM, Da
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158267.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158267.jpgsave_picture_158267.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ VA - The Sound Of Whartone Winter 2015 (21.12.2015) [MP3|320 кб/с] <Funky, Cl
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158268.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158268.jpgsave_picture_158268.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ magnet:?xt=urn:btih:A57B18C5AE954F1F332C825093AEA1EF652B2BE1
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158269.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158269.jpgsave_picture_158269.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ VA - Soulful Love Smooth and Sexy Grooves 25 Tracks (2015) [MP3|320 кб/с] <Do
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158270.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158270.jpgsave_picture_158270.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ magnet:?xt=urn:btih:B5C8D2603D8F2A7B584CB241542A070409836A66
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158271.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158271.jpgsave_picture_158271.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ magnet:?xt=urn:btih:F19D85EE36AFB5F3ED41BA39C582C75814D58020
 >>Общественно-политические и пропагандистские ток-шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158272.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158272.jpgsave_picture_158272.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ magnet:?xt=urn:btih:9A318B071EBF5B0A9126FF597435F44FCC5F0FA1
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158273.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158273.jpgsave_picture_158273.jpg" />
 </div>
 
 

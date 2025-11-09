@@ -6,7 +6,7 @@
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186452.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186452.jpgsave_picture_186452.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:7D08721FBA217A08A4C03A16A90AD08E939D5667
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186453.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186453.jpgsave_picture_186453.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:5555213F331BC16094976F5C276883959DF69BE5
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_186454.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_186454.jpgsave_picture_186454.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ VA - Horizon's Trance 2023 (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_186455.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_186455.jpgsave_picture_186455.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:A463F2595CF4583CBF360B508D575A5DA6F5BE6E
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186456.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186456.jpgsave_picture_186456.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Eva Under Fire - Love, Drugs & Misery (2022) Deluxe Edition, 2023, Better Noise 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186457.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186457.jpgsave_picture_186457.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ Octavus Lupus - Octavus Lupus (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186458.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186458.jpgsave_picture_186458.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ Apostolica - Animae Haeretica (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Po
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186459.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186459.jpgsave_picture_186459.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ magnet:?xt=urn:btih:7E3931AB5C562CAC7F908DDDC6D5923B103F0B37
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186460.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186460.jpgsave_picture_186460.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ Starbenders - Take Back The Night (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Gla
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186461.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186461.jpgsave_picture_186461.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ magnet:?xt=urn:btih:06E82D59BCF375D4002880073489438A2FBD4C01
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186462.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186462.jpgsave_picture_186462.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ MotoGP. Этап 13. Гран-при Индии. Спринт (23.09.2023) WEBRi
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186463.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186463.jpgsave_picture_186463.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ Samurai Pizza Cats - You're Hellcome (2023) [FLAC|Lossless|WEB-DL|tracks] <Metal
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186464.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186464.jpgsave_picture_186464.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ magnet:?xt=urn:btih:9A051C934F4805982F9A774BB11D4C476DA81BA8
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186465.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186465.jpgsave_picture_186465.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ magnet:?xt=urn:btih:EBCF8674E3F7A6C6D089E13BEB02ECA5172B2545
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186466.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186466.jpgsave_picture_186466.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ magnet:?xt=urn:btih:2D27E6261B0A0105018829B5536DB6C5E094C727
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186467.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186467.jpgsave_picture_186467.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Domino Drive - Smoke And Mirrors (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic H
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186468.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186468.jpgsave_picture_186468.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ magnet:?xt=urn:btih:60D55283CC91AC5037554987599181A77FB142B2
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186469.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186469.jpgsave_picture_186469.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ magnet:?xt=urn:btih:A7DCB5DEE3DED0C58AC019464B4829A540A5C4D7
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186470.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186470.jpgsave_picture_186470.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ magnet:?xt=urn:btih:E83EC62B52289C997CABF3094B53FE4ECCC2618A
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186471.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186471.jpgsave_picture_186471.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ MotoGP. Этап 13. Гран-при Индии. Квалификация (23.09
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186472.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186472.jpgsave_picture_186472.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ magnet:?xt=urn:btih:19EE3B61BC7ED50AD8F7825D979CC4B20D0FCFBC
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186473.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186473.jpgsave_picture_186473.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ magnet:?xt=urn:btih:4633EE145AA13DAF4385BBF56C7B45BDCB5550DC
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186474.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186474.jpgsave_picture_186474.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Corey Taylor - CMF2 (2023) [FLAC|Lossless|WEB-DL|tracks] <Alt.Metal, Hard Rock>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186475.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186475.jpgsave_picture_186475.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Great Master - Montecristo (2023) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186476.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186476.jpgsave_picture_186476.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ magnet:?xt=urn:btih:7169FBC6218A5C74BC97C946D1304654051BDF9E
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186477.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186477.jpgsave_picture_186477.jpg" />
 </div>
 
 

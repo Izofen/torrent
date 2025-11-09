@@ -6,7 +6,7 @@ Start Menu X 7.77 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56486.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56486.jpgsave_picture_56486.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ DVDInfo 1.3.7 + Portable [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56799.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56799.jpgsave_picture_56799.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ TeraCopy Pro 3.17.0.0 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57126.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57126.jpgsave_picture_57126.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Emurasoft EmEditor Professional 24.1.2 + Portable [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57216.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57216.jpgsave_picture_57216.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ IObit Uninstaller Pro 13.5.0.1 Portable by  FC Portables [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57281.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57281.jpgsave_picture_57281.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ ScrollNavigator 5.15.5 RePack by KpoJIuK [Ru/En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57322.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57322.jpgsave_picture_57322.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ TreeSize Free 4.7.3.550 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57341.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57341.jpgsave_picture_57341.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:B9592DC34A0D95DFC2DA6C68FE69BDEDFDA9FB43
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57348.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57348.jpgsave_picture_57348.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ FrostWire 6.13.2 build 321 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57507.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57507.jpgsave_picture_57507.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ Snooper Professional 3.4.9 [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57517.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57517.jpgsave_picture_57517.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Delete.On.Reboot 3.31 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57525.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57525.jpgsave_picture_57525.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Microsoft Edge 124.0.2478.80 Portable by Cento8 [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57553.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57553.jpgsave_picture_57553.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ PDF-XChange Editor Plus 10.3.0.386 Portable by FC Portables [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57605.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57605.jpgsave_picture_57605.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ iTubeGo YouTube Downloader 7.6.2 Portable by zeka.k [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57673.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57673.jpgsave_picture_57673.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Icecream Ebook Reader 6.49 Pro Portable by 7997 [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57722.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57722.jpgsave_picture_57722.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ IceCream Ebook Reader Pro 6.49 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57778.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57778.jpgsave_picture_57778.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ MiniTool ShadowMaker Pro 4.2.0.66 (x64) Portable by 7997 [Multi]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57780.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57780.jpgsave_picture_57780.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ MathType 7.8.0.0 Portable by 7997 [Ru/En]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57783.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57783.jpgsave_picture_57783.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ NewFileTime 7.21 Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57822.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57822.jpgsave_picture_57822.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ AutoPowerOptionsOK 5.77 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57824.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57824.jpgsave_picture_57824.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Auslogics Duplicate File Finder 10.0.0.5 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57826.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57826.jpgsave_picture_57826.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Total Uninstall 7.6.1.677 Pro RePack (& Portable) by TryRooM [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57871.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57871.jpgsave_picture_57871.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ CrystalMark Retro 1.0.2 + Portable [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57961.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57961.jpgsave_picture_57961.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ FictionBook Editor 2.7.4 [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57993.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57993.jpgsave_picture_57993.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ AOMEI Partition Assistant Standard Edition 10.4.0 [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58098.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58098.jpgsave_picture_58098.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Total Uninstall Pro 7.6.1.677 (x64) Portable by FC Portables [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58266.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58266.jpgsave_picture_58266.jpg" />
 </div>
 
 

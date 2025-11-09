@@ -6,7 +6,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57723.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57723.jpgsave_picture_57723.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:B6E7370D38A3AEEAB1292FD2CB0A6C8C43D13ECC
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57724.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57724.jpgsave_picture_57724.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ AIMP 5.30 Build 2549 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57725.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57725.jpgsave_picture_57725.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ TreeSize Professional 9.1.4.1881 (x64) RePack (& Portable) by elchupacabra [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57726.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57726.jpgsave_picture_57726.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:80F552B155243796EACEB18A67C12CC44D31359A
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57727.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57727.jpgsave_picture_57727.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ tvQuickActions Pro 3.4.0 (172) Mod by Alex.Stranik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57728.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57728.jpgsave_picture_57728.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:A9BD23B4F71FD1932B583B0F3AA06A04847C8D87
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57729.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57729.jpgsave_picture_57729.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ InPixio Eclipse HDR PRO 1.3.700.620 (x64) Portable by 7997 [Ru/En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57730.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57730.jpgsave_picture_57730.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ AIMP 5.30 Build 2549 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57731.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57731.jpgsave_picture_57731.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ FileMenu Tools 8.4.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57732.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57732.jpgsave_picture_57732.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Visual Studio Code 1.89.0 + Автономная версия (standalone) [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57733.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57733.jpgsave_picture_57733.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ magnet:?xt=urn:btih:9CE18B52517732230ADF2C3963AA6184E537F162
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57734.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57734.jpgsave_picture_57734.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ DiskDigger 2.0.1.3923 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57735.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57735.jpgsave_picture_57735.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Cyberlink ColorDirector Ultra 12.1.3723.0 (x64) Portable by 7997 [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57736.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57736.jpgsave_picture_57736.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Various Artists - Punk Floyd: A Tribute To Pink Floyd (2024) [MP3|320 Kbps] <Roc
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57737.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57737.jpgsave_picture_57737.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ R-Studio Network 9.4 Build 191310 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57738.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57738.jpgsave_picture_57738.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Auslogics Disk Defrag Pro 11.0.0.5 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57739.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57739.jpgsave_picture_57739.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ magnet:?xt=urn:btih:92C95E60F08BB1E73940A2E7ABD3B5B89A785B2D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57740.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57740.jpgsave_picture_57740.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:92C95E60F08BB1E73940A2E7ABD3B5B89A785B2D
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57741.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57741.jpgsave_picture_57741.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Sia - Reasonable Woman (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57742.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57742.jpgsave_picture_57742.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ Dua Lipa - Radical Optimism (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57743.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57743.jpgsave_picture_57743.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ magnet:?xt=urn:btih:83E01EE3DEED478132B29628516CBF07A95F1BF3
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57744.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57744.jpgsave_picture_57744.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:7C1C623EE21FCB08C0E4CE0C7F31AB2870A39F19
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57745.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57745.jpgsave_picture_57745.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Topaz Video AI 5.0.3 (x64) + All Models Portable by FC Portables [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57746.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57746.jpgsave_picture_57746.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ magnet:?xt=urn:btih:AF79468962D77AA6896AA64531C595DBF4043D02
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57747.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57747.jpgsave_picture_57747.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ magnet:?xt=urn:btih:F3FAA28485A54DC19345895EFF6C333E78932EE6
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57748.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57748.jpgsave_picture_57748.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ PixARK (2019) [Ru/Multi] (1.151/dlc) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203797.jpgsave_picture_203797.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Criminal Expert (2023) [Multi] (1.4) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204000.jpgsave_picture_204000.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Prison Princess (2020) [Multi] (1.1) License GOG [18+]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204048.jpgsave_picture_204048.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Unforeseen Incidents (2018) [Ru/Multi] (1.0.9.1) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204094.jpgsave_picture_204094.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Broken Pieces (2022) [Ru/Multi] (1.21) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204382.jpgsave_picture_204382.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ A Plague Tale: Requiem (2022) [Ru/Multi] (20221017_1052/dlc) Repack DjDI
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_205009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205009.jpgsave_picture_205009.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Demetrios - The BIG Cynical Adventure (2016) [Ru/Multi] (1.2.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_205116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205116.jpgsave_picture_205116.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ The Plague Doctor of Wippra (2022) [Multi] (1.0.3) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_205205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205205.jpgsave_picture_205205.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Knights and Bikes (2019) [En] (1.12_rc3_v0_u) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_205679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205679.jpgsave_picture_205679.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Sludge Life (2021) [Ru/Multi] (251013) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_205685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205685.jpgsave_picture_205685.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Strange Antiquities (2025) [Ru/Multi] (1.0.40) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205689.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205689.jpgsave_picture_205689.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Our Battle Has Just Begun! episode 2 (2022) [Multi] (1.0) Scene Darksiders
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206436.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206436.jpgsave_picture_206436.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ The Inheritance of Crimson Manor (2022) [Multi] (1.11) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206465.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206465.jpgsave_picture_206465.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ The Manhole (1994) [En] (2.0.0.5) License GOG [Masterpiece Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208506.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208506.jpgsave_picture_208506.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Reverie: Sweet As Edition (2023) [Multi] (1.0.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210195.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210195.jpgsave_picture_210195.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ MY LITTLE PONY: A Maretime Bay Adventure (2022) [Multi] (1.0.1_003) Scene Fairli
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210838.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210838.jpgsave_picture_210838.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Night of Horror (2023) [Ru/En] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211125.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211125.jpgsave_picture_211125.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Hollowbody (2024) [Ru/Multi] (2.1) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212531.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212531.jpgsave_picture_212531.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ LOST EMBER (2019) [Ru/Multi] (1.0.0.11965) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229470.jpgsave_picture_229470.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Don't Starve Together (2016) [Ru] (Build 696980/dlc) Repack Pioneer
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230562.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230562.jpgsave_picture_230562.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ A Golden Wake (2014) [En] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_231934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231934.jpgsave_picture_231934.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Goetia 2 (2022) [Multi] (1.0.4) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233614.jpgsave_picture_233614.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Recursive Ruin (2022) [Ru/Multi] (22.05.17) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233780.jpgsave_picture_233780.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Whateverland (2022) [Ru/Multi] (0.9.21) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234577.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234577.jpgsave_picture_234577.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Chinatown Detective Agency (2022) [Multi] (1.0.17) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235338.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235338.jpgsave_picture_235338.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Ecstatica: A State of Mind (1997) [En] (1.0) License
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236275.jpgsave_picture_236275.jpg" />
 </div>
 
 

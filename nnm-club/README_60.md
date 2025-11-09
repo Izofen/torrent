@@ -6,7 +6,7 @@ VA - Tanzlokal-Musik - Premium Playlist (int) [b001] (2012-2025) [MP3|320 Kbps] 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1597.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1597.jpgsave_picture_1597.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:6EC336C331C5C5823B293331DABF841D7FE7E131
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1598.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1598.jpgsave_picture_1598.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - Tanzlokal-Musik - Premium Playlist (int) [a007] (2012-2025) [MP3|320 Kbps] 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1599.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1599.jpgsave_picture_1599.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ In Mourning - The Immortal (2025) [FLAC|Lossless|image + .cue] <Melodic Death Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1600.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1600.jpgsave_picture_1600.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ VA - Matadora (mixed by Dj V) (2025) [MP3|320 Kbps] <Club House, Afro House, Ind
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1601.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1601.jpgsave_picture_1601.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ VA - Tanzlokal-Musik - Premium Playlist (int) [b002] (2012-2025) [MP3|320 Kbps] 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1602.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1602.jpgsave_picture_1602.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ magnet:?xt=urn:btih:A8CCE8D03052BC4513ED3BF952A0FACEDA34DC68
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1603.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1603.jpgsave_picture_1603.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ magnet:?xt=urn:btih:D9A9784C7D638D3CA507F2CDD83FBA6E3E740C13
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1604.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1604.jpgsave_picture_1604.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ iFastZip - Extract RAR & ZIP & 7Z 8.8 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1605.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1605.jpgsave_picture_1605.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ magnet:?xt=urn:btih:EB259449C17308835DBC74F32BAFE39C361DAD69
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1606.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1606.jpgsave_picture_1606.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ magnet:?xt=urn:btih:3A72E527FA956349B3A84E323C697D6D1A2D0B08
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1607.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1607.jpgsave_picture_1607.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Hoshi o Ou Kodomo | Children Who Chase Lost Voices from Deep Below | Ловцы 
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1608.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1608.jpgsave_picture_1608.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ VA - A Whirlpool Of Melodies (2025) [MP3|320 Kbps] <Pop, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1609.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1609.jpgsave_picture_1609.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ magnet:?xt=urn:btih:676690D8A6020A601C99C174EADF4793DFFDF42B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1610.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1610.jpgsave_picture_1610.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ magnet:?xt=urn:btih:44F8F41C3824FA4C313948B52100C02A3E9D546E
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1611.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1611.jpgsave_picture_1611.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ magnet:?xt=urn:btih:34090F5E205DB2D08CE9FE26FCF75AC8CA241DBF
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1612.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1612.jpgsave_picture_1612.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ magnet:?xt=urn:btih:EB82F7C3CF7A99F5915E5C755442D621FFE555ED
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1613.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1613.jpgsave_picture_1613.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ magnet:?xt=urn:btih:A7B2AF698BCA3E5F0557647BF087FFAC6579E2DC
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1614.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1614.jpgsave_picture_1614.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ magnet:?xt=urn:btih:93A1D4564765F1D102B69DA322951F4C9F619CDC
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1615.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1615.jpgsave_picture_1615.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:51780FD28BCE41A756FABD45DC2E9CD2CC0D4FB5
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1616.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1616.jpgsave_picture_1616.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ magnet:?xt=urn:btih:09BBF025D4EEEAF38FDFC02E0364F8A1AC5C488C
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1617.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1617.jpgsave_picture_1617.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ magnet:?xt=urn:btih:79C8EC81EBA838CDA9E7859C376991F5A53C63B7
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1618.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1618.jpgsave_picture_1618.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ magnet:?xt=urn:btih:3E0667EF9F5724412BE5105EB20145022EF418C9
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1619.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1619.jpgsave_picture_1619.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ magnet:?xt=urn:btih:1EA8D600414484A111281203802DBAED12AEB885
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1620.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1620.jpgsave_picture_1620.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ magnet:?xt=urn:btih:FB3ABDF0C278F2BCC7F74AC163F1E2E2CACF3241
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1621.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1621.jpgsave_picture_1621.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ magnet:?xt=urn:btih:06721C4358950114EE1AF2E5471C9C4E65AE234C
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1622.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1622.jpgsave_picture_1622.jpg" />
 </div>
 
 

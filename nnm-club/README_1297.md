@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34077.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34077.jpgsave_picture_34077.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ FontExpert 2025 20.0 Release 2 (x64) [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34078.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34078.jpgsave_picture_34078.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Lunacy Audio  - CUBE 1.6.0 Standalone, VSTi 3, AAX  (x64) + Samples [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34079.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34079.jpgsave_picture_34079.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Röyksopp (Royksopp) - Nebulous Nights - An Ambient Excursion into Profound Myst
 >>Downtempo, Trip-Hop, Lounge
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34080.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34080.jpgsave_picture_34080.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ Eloy - Hidden Treasures (2024) Compilation, Remixed, Remastered, 2024, MIG [FLAC
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34081.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34081.jpgsave_picture_34081.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ magnet:?xt=urn:btih:AC550397F06FC758A2D24FE628560CD2B699FF8E
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34082.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34082.jpgsave_picture_34082.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ magnet:?xt=urn:btih:362FE62C3B9D9EFB4E21D2BAE042E201BCE35335
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34083.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34083.jpgsave_picture_34083.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ VA - Great Classical Music (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34084.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34084.jpgsave_picture_34084.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ magnet:?xt=urn:btih:C01E6D5D919676B605674294E199248A72FF9C82
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34085.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34085.jpgsave_picture_34085.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ RAM Saver Professional 24.12.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34086.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34086.jpgsave_picture_34086.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ Keylocker | Turn Based Cyberpunk Action (2024) [Multi] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34087.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34087.jpgsave_picture_34087.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ magnet:?xt=urn:btih:4690AB34541C5A7A8B517D3413C3CBED829890A4
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34088.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34088.jpgsave_picture_34088.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ TRANSFORMERS: Galactic Trials (2024) [Multi] (1.0) Scene Skidrow
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34089.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34089.jpgsave_picture_34089.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ WinTools.net Premium 24.12.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34090.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34090.jpgsave_picture_34090.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ magnet:?xt=urn:btih:BFED4E9876B51B87C89C2C58FF2601EA7AD828A9
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34091.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34091.jpgsave_picture_34091.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Baby Blues Nightmares - Toddler Horror Game (2024) [En] (1.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34092.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34092.jpgsave_picture_34092.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ magnet:?xt=urn:btih:E12A4EBEFCEB186951F24BE5789D95E9A5A73A0D
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34093.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34093.jpgsave_picture_34093.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ magnet:?xt=urn:btih:D87D66189C29736B8F77D2B5C633153884CAA588
 >>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34094.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34094.jpgsave_picture_34094.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ GRIS 1.0.3 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34095.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34095.jpgsave_picture_34095.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ magnet:?xt=urn:btih:5409832A24B7AB226B2AEE794988583E81EBBC35
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34096.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34096.jpgsave_picture_34096.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ magnet:?xt=urn:btih:35FEEB1CE566A631A1843C2E05DB0082414A45D5
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34097.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34097.jpgsave_picture_34097.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ magnet:?xt=urn:btih:0F06E9F0431D62FFA729ADEB8701057075A8027A
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34098.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34098.jpgsave_picture_34098.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ magnet:?xt=urn:btih:ECA5CA26B1AC2546C845FB2356F2B8EC346CABDE
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34099.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34099.jpgsave_picture_34099.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ YT Downloader 9.11.6 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34100.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34100.jpgsave_picture_34100.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ magnet:?xt=urn:btih:08F7FDE9A6230D6854434B1D2492F16272C43F9A
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34101.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34101.jpgsave_picture_34101.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ The Painscreek Killings (2017) [Ru/Multi] (1.1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34102.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34102.jpgsave_picture_34102.jpg" />
 </div>
 
 

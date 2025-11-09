@@ -6,7 +6,7 @@ Snakebite Delight - Swamp Walker (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Roc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185123.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185123.jpgsave_picture_185123.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Jeff Lynne's ELO - From Out Of Nowhere (2019) Japanese Edition [FLAC|Lossless|im
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_185188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185188.jpgsave_picture_185188.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ The Smashing Pumpkins - CYR (2020) [MP3|320 Kbps] <Alternative Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_185241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185241.jpgsave_picture_185241.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Morbid Angel - Abominations Of Desolation (1991) [WavPack|Lossless|image + .cue]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185251.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185251.jpgsave_picture_185251.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Illuminate - Discography (1996-2019) [FLAC|Lossless|image + .cue] <Darkwave, Got
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185295.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185295.jpgsave_picture_185295.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Moratory - 10 Relises (2016-2022) [MP3|320 Kbps] <Crossover, Hardcore Punk, Thra
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_185331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185331.jpgsave_picture_185331.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Jared Dines - the grey (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metalco
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185336.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185336.jpgsave_picture_185336.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Odonata - Gravitational Perturbation (2022) [FLAC|Lossless|WEB-DL|tracks] <Psych
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185342.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185342.jpgsave_picture_185342.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Tallah - 2 Albums (2020-2022) [FLAC|Lossless|WEB-DL|tracks] <Nu-Metal, Hardcore,
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185353.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185353.jpgsave_picture_185353.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Vinnie Moore - Double Exposure (2022) [MP3|320 Kbps] <Neoclassical, Classic Rock
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185378.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185378.jpgsave_picture_185378.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Katatonia - Dead Air (2020) 2CD [FLAC|Lossless|image + .cue] <Doom Metal, Progre
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_185379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185379.jpgsave_picture_185379.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ magnet:?xt=urn:btih:1CCF1114A63510ADC177CDC73C1539D9D533800D
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_185402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185402.jpgsave_picture_185402.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Candlemass - Sweet Evil Sun (2022) [FLAC|Lossless|WEB-DL|tracks] <Epic Doom Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185436.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185436.jpgsave_picture_185436.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Our Last Night - Disney Goes Heavy (2022) [FLAC|Lossless|WEB-DL|tracks] <Modern 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185438.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185438.jpgsave_picture_185438.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Stonehand - Rock n Roll Wizards (2023) [MP3|320 Kbps] <Hard 'n' Heavy Metal>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185439.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185439.jpgsave_picture_185439.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Headcat 13 - Headcat 13 (2020) [MP3|320 Kbps] <Rockabilly>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_185443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185443.jpgsave_picture_185443.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ magnet:?xt=urn:btih:4E6380FAB8BF1625D684F39F00F5CDE3C0BCD8D6
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185447.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185447.jpgsave_picture_185447.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Moonlight Haze - De Rerum Natura (2019) Japanese Edition [FLAC|Lossless|image + 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185455.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185455.jpgsave_picture_185455.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Antimatter - A Profusion Of Thought (2022) [FLAC|Lossless|WEB-DL|tracks] <Atmosh
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185472.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185472.jpgsave_picture_185472.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Thorium - Empires In The Sun (2021) [FLAC|Lossless|image + .cue] <Heavy Metal, P
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185477.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185477.jpgsave_picture_185477.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Wind Rose - Wintersaga (2019) Japanese Edition [FLAC|Lossless|image + .cue] <Pow
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185481.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185481.jpgsave_picture_185481.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Blowmind - 2 Albums (2018-2023) [FLAC|Lossless|WEB-DL|tracks] <Doom, Stoner Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185495.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185495.jpgsave_picture_185495.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Applehead - The Light Side Of The Apple (2023) [FLAC|Lossless|WEB-DL|tracks] <Ha
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185500.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185500.jpgsave_picture_185500.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Riccardo D'attis - The Right Path (2023) [FLAC|Lossless|WEB-DL|tracks] <Progress
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185504.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185504.jpgsave_picture_185504.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ Final Gasp - Mourning Moon (2023) [FLAC|Lossless|WEB-DL|tracks] <Gothic Rock, Ha
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185507.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185507.jpgsave_picture_185507.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ Shawn Pittman & Jay Moeller - Straight Blues From Crooked Fools (2020) [MP3|320 
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_185508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185508.jpgsave_picture_185508.jpg" />
 </div>
 
 

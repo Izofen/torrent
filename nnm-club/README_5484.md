@@ -6,7 +6,7 @@ Kazumi Tateishi Trio - Ghibli Meets Jazz: Memorable Songs (2011) Victor [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169528.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169528.jpgsave_picture_169528.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:C5B121861C53007414675C7F44269CC5EAC08BAE
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169529.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169529.jpgsave_picture_169529.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Waterfox 2019.12 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169530.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169530.jpgsave_picture_169530.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ VA - Eurodance Power Hits for Workout Sessions 2022 (2021) [AAC|~342 Kbps] <Danc
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169531.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169531.jpgsave_picture_169531.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:F2AA2BEC3E7972055921695655C3921F4CA3C9EA
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169532.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169532.jpgsave_picture_169532.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ J.J. Johnson - The Eminent Jay Jay Johnson, Vol. 1 (1953, 1954) 1995, Blue Note,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169533.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169533.jpgsave_picture_169533.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:20FF776C29FE55623C8FEE70984C8CB4E716A697
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169534.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169534.jpgsave_picture_169534.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:8FEA6926EE76260A5DEB06179240D94C2D9096DB
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169535.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169535.jpgsave_picture_169535.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:EC5954A4D3105E459A7C01188CB6EE67203190B1
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169536.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169536.jpgsave_picture_169536.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ Loft - New World (2021) [AAC|~345 Kbps] <Dance, House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169537.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169537.jpgsave_picture_169537.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ Native Instruments Komplete Kontrol 3.0.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169538.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169538.jpgsave_picture_169538.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ Raymond Lacoste, Bradley Edgeworth | CCNP Enterprise Advanced Routing ENARSI 300
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169539.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169539.jpgsave_picture_169539.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ magnet:?xt=urn:btih:D11FB9F3C1065249ADDA3490A4CD761C70AD8756
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169540.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169540.jpgsave_picture_169540.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Tool - 10,000 Days (2006) [AAC|~311 Kbps] <Hard Rock, Metal>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169541.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169541.jpgsave_picture_169541.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Toshiyuki Miyama & The New Herd - Sunday Thing (1976) 2021, Three Blind Mice [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169542.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169542.jpgsave_picture_169542.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ magnet:?xt=urn:btih:545D87D2FB58416DB6ED7AC3736E8DAD8B680F01
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169543.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169543.jpgsave_picture_169543.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ magnet:?xt=urn:btih:3C323FF6C89B6B7F47B5D2AA00B3FAAF71F2950E
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169544.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169544.jpgsave_picture_169544.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ RAR Extractor  - unzi‪p‬ 8.3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169545.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169545.jpgsave_picture_169545.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ Prospective - Reasons To Leave (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169546.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169546.jpgsave_picture_169546.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ magnet:?xt=urn:btih:F4813BBD4055478643D187227B5157E1BADC1DA3
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169547.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169547.jpgsave_picture_169547.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ magnet:?xt=urn:btih:731BF575E8A48A4E72FF1E133E9FD77F409974B2
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169548.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169548.jpgsave_picture_169548.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Mac DVDRipper Pro 10.0.3 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169549.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169549.jpgsave_picture_169549.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Picture Fish - Fish Identifier v2.4.15 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169550.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169550.jpgsave_picture_169550.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ magnet:?xt=urn:btih:0F9C0002F282F23C3ABBB41990BA5C36D8ED2681
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169551.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169551.jpgsave_picture_169551.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ VA - A Tribe Called Kotori 6 (2021) [AAC|~329 Kbps] <Progressive House, Deep Hou
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169552.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169552.jpgsave_picture_169552.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ magnet:?xt=urn:btih:FD60563FEB018A4905E2660A20605B1AAC80CCB7
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169553.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169553.jpgsave_picture_169553.jpg" />
 </div>
 
 

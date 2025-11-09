@@ -6,7 +6,7 @@ MSMG ToolKit 13.6 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189989.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189989.jpgsave_picture_189989.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:D05CD90682CE3B19A7F13DBA42D4ABCC224449DD
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189991.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189991.jpgsave_picture_189991.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ K-Lite Codec Pack Update 17.2.8 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189992.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189992.jpgsave_picture_189992.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ PDF-XChange Editor Plus 10.1.0.380 Portable + RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189993.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189993.jpgsave_picture_189993.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Epica - The Alchemy Project (2022) EP [MP3|320 Kbps] <Symphonic Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189994.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189994.jpgsave_picture_189994.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ VA - Winter Blues 2023 (2022) [MP3|320 Kbps] <Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189995.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189995.jpgsave_picture_189995.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:67FB4E473FCD0360DEA3ACBB64CB31B9D6C96EBB
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189996.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189996.jpgsave_picture_189996.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:DAD2B3EC36B7D045808C09FD7B8CC4BFC2AA683D
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189997.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189997.jpgsave_picture_189997.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ magnet:?xt=urn:btih:7656D6E915C980E1189ACD049511995A0E222628
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189998.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189998.jpgsave_picture_189998.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ magnet:?xt=urn:btih:FDEDF4853718D3EBB083D3C651A4EA627335DEE7
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189999.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189999.jpgsave_picture_189999.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ magnet:?xt=urn:btih:B56DE4A6897E928020387F597E5CE31E6075B82C
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190000.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190000.jpgsave_picture_190000.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ FileMenu Tools 8.2.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190001.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190001.jpgsave_picture_190001.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ magnet:?xt=urn:btih:C0642D76B74227CD8905B70C11F1A452DCB45E39
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190002.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190002.jpgsave_picture_190002.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ magnet:?xt=urn:btih:90A16DC580A2D22410D618193C6F1559237AA48D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190003.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190003.jpgsave_picture_190003.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Antivirus Removal Tool 2023.09 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190004.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190004.jpgsave_picture_190004.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ magnet:?xt=urn:btih:2324D4DBE46D724F7E17C987E1DF11891F09F5B2
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190005.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190005.jpgsave_picture_190005.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ magnet:?xt=urn:btih:139A07DA6AAA1523CEB2070A982CBB17943AAF18
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190007.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190007.jpgsave_picture_190007.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Picture Bird - Bird Identifier v2.9.25 Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190008.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190008.jpgsave_picture_190008.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ magnet:?xt=urn:btih:3D3F0238EF4C11997D87763F1EC0C167B1267641
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190009.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190009.jpgsave_picture_190009.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ magnet:?xt=urn:btih:574730BBEA2914360375D70E468EF7EE6129E0E1
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190010.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190010.jpgsave_picture_190010.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ Air. Большой прыжок / Air (2023) BDRip [H.264/720p-LQ] [MVO]
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190011.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190011.jpgsave_picture_190011.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ PictureThis - Plant Identification v3.65 Mod by youarefinished [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190012.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190012.jpgsave_picture_190012.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:A25B13CBB17DA93FBB7D91E0082067B5120FC5D1
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190013.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190013.jpgsave_picture_190013.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Galderia - Endless Horizon (2022) [MP3|320 Kbps] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190014.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190014.jpgsave_picture_190014.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Warkings - 4 Albums (2018-2022) [MP3|320 Kbps] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190015.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190015.jpgsave_picture_190015.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ LibreOffice 7.6.1.2 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190016.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190016.jpgsave_picture_190016.jpg" />
 </div>
 
 

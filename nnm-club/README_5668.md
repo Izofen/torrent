@@ -6,7 +6,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174517.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174517.jpgsave_picture_174517.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Downie 4 v4.1.11 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174518.jpgsave_picture_174518.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:B9CF4BA05A2563E0FB89C5EB7971F81EEC9F092D
 >>Прочие зимние виды спорта
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174519.jpgsave_picture_174519.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ Google Chrome 118.0.5993.71 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174521.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174521.jpgsave_picture_174521.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ magnet:?xt=urn:btih:DD86926EE2E114C496211329ACDE6D9422D5CF62
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174522.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174522.jpgsave_picture_174522.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ DxO PhotoLab 4 ELITE Edition 4.1.0.46 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174523.jpgsave_picture_174523.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ magnet:?xt=urn:btih:FCA785DF270F02130E23DC185A21F83DBFD2FD8F
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174525.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174525.jpgsave_picture_174525.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ magnet:?xt=urn:btih:9C29B3B052057520A132E617C651BCA515A9F1C5
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174526.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174526.jpgsave_picture_174526.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ magnet:?xt=urn:btih:2FB7E312483D7492D85513662AA326264BB75058
 >>Прочие зимние виды спорта
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174527.jpgsave_picture_174527.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ Telegram for Android 9.2.0 (2956) [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174529.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174529.jpgsave_picture_174529.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ Topaz Photo AI 2.0.5 (x64) RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174530.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174530.jpgsave_picture_174530.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ magnet:?xt=urn:btih:A013C80778FD1179BA7AD254B8D5B997D9CBA0CB
 >>Прочие зимние виды спорта
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174531.jpgsave_picture_174531.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ Google Chrome 118.0.5993.71 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174533.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174533.jpgsave_picture_174533.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ magnet:?xt=urn:btih:A0F3D720EF584877DB85D10FE87073B1B23FA3D2
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174534.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174534.jpgsave_picture_174534.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ R-Studio Network  9.3 Build 191248 (x64) RePack (& Portable) by TryRooM [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174536.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174536.jpgsave_picture_174536.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ magnet:?xt=urn:btih:376B117202EA880281C66DA08FB937B0856A4601
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174537.jpgsave_picture_174537.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ magnet:?xt=urn:btih:22F1C68AB8665C6E9F3D4BEF7BB6F1FEAD7A4513
 >>Футбол. Чемпионаты мира
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174538.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174538.jpgsave_picture_174538.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ Opera GX 93.0.4585.52 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174540.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174540.jpgsave_picture_174540.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ Rhinoceros 7 v.7.34 [Multi/Ru]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174541.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174541.jpgsave_picture_174541.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ magnet:?xt=urn:btih:35F0FBA33C8B199AC94662B250A622269E03647B
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174543.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174543.jpgsave_picture_174543.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ magnet:?xt=urn:btih:79636E1BFDE8DC8F4B45A162AA625A0746A48026
 >>Футбол. Чемпионаты мира
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174544.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174544.jpgsave_picture_174544.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ magnet:?xt=urn:btih:5C72422B4E78A6592E60F394D752CB1E2AAB873E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174545.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174545.jpgsave_picture_174545.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ magnet:?xt=urn:btih:AEAF6B99CDA4242C49FE3530557614356135D162
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174546.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174546.jpgsave_picture_174546.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ magnet:?xt=urn:btih:9DACBD052AF7700012B70D10212F8D88472695CE
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174547.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174547.jpgsave_picture_174547.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ magnet:?xt=urn:btih:061FDD76B575E6C5B1C9FC6931E16742D06A7864
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174548.jpgsave_picture_174548.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Puscifer - 2 Albums (2022) [FLAC|Lossless|WEB-DL|tracks] <Post Industrial, Exper
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174549.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174549.jpgsave_picture_174549.jpg" />
 </div>
 
 

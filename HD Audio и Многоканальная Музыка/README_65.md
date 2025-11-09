@@ -6,7 +6,7 @@ Travellin' Blue - Take The Edge Off (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67380.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67380.jpgsave_picture_67380.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Game Over - Studio Albums (6 releases) (2012-2025) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67381.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67381.jpgsave_picture_67381.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Brainstorm - Wall of Skulls (2021) [FLAC|24/96|tracks|Vinyl-Rip] <Heavy, Power M
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67382.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67382.jpgsave_picture_67382.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Skyla Owen - In My Dreams (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67383.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67383.jpgsave_picture_67383.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ The Damn Truth - The Damn Truth (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Cl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67384.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67384.jpgsave_picture_67384.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Steve Howell & The Mighty Men - Yeah Man (2025) [FLAC 24/96|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67385.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67385.jpgsave_picture_67385.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Helena Vondrackova - Music (1980) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Soul,
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67405.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67405.jpgsave_picture_67405.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Deserted Fear - Studio Albums (6 releases) (2012-2025) hand made [restored, decl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67412.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67412.jpgsave_picture_67412.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ No King - Roadside Rhythms - No King - Roadside Rhythms (2025) [FLAC 24/44.1|Los
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67422.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67422.jpgsave_picture_67422.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Philipp Fankhauser - Ain't That Something (2025) [FLAC 24/44.1|Lossless|WEB-DL|t
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67423.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67423.jpgsave_picture_67423.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Outlaw Patriots Blues and Chicago Blues Collective - The Hollow Road Sessions (2
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67429.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67429.jpgsave_picture_67429.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Sign Of The Wolf - Sign Of The Wolf (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67430.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67430.jpgsave_picture_67430.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Orlndo - The Vintage of Own Way (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Bl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67437.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67437.jpgsave_picture_67437.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Paul Thorn - Life Is Just A Vapor (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67438.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67438.jpgsave_picture_67438.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Missy Sippy All Stars - Vol II (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blu
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67440.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67440.jpgsave_picture_67440.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Samantha Fish - Paper Doll (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Roc
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67441.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67441.jpgsave_picture_67441.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Michael Prunner - Dirty Times (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blue
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67443.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67443.jpgsave_picture_67443.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ Samael - Rebellion (1995) (EP) Reissue, 2014, Floga Records [FLAC|24/96|tracks|V
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67446.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67446.jpgsave_picture_67446.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Mike Farris - The Sound Of Muscle Shoals (2025) [FLAC 24/48|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67447.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67447.jpgsave_picture_67447.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Nikhil Korula Power Trio, Bob Malone, and Gregg Wright - Sight & Sound Episode 4
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67448.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67448.jpgsave_picture_67448.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Vegas Two Times - Challenge (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Roc
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67450.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67450.jpgsave_picture_67450.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Karen Lee Andrews - Survival (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67451.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67451.jpgsave_picture_67451.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Elegant People, Lo Greco Bros and Soulstance - Atlantis (2025) [FLAC 24/44.1|Los
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67452.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67452.jpgsave_picture_67452.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ Jeff Krause & Brokedown Gramophone - Brokedown Gramophone (Live at Marigny Studi
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67453.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67453.jpgsave_picture_67453.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ Limbes - Liernes (2024) [FLAC|24/192|tracks|Vinyl-Rip] <Atmospheric Black Metal>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67454.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67454.jpgsave_picture_67454.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ Hands Of Despair - Studio Albums (4 releases) (2011-2021) hand made [restored, d
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67455.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67455.jpgsave_picture_67455.jpg" />
 </div>
 
 

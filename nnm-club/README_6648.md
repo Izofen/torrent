@@ -6,7 +6,7 @@
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222994.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222994.jpgsave_picture_222994.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Bob Marley & The Wailers - Africa Unite (2023) [MP3|320 Kbps] <Reggae>
 >>RnB, Reggae
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_223005.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_223005.jpgsave_picture_223005.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ XY VPN - Security Proxy VPN 4.5.302 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_223012.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_223012.jpgsave_picture_223012.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Renaud Hantson s Furious Zoo - Fishnet - Furioso X (2023) [FLAC|Lossless|WEB-DL|
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_223017.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_223017.jpgsave_picture_223017.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Skindred - Smile (2023) [FLAC|Lossless|WEB-DL|tracks] <Alt. Metal, Ragga-Metal>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_223025.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_223025.jpgsave_picture_223025.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ magnet:?xt=urn:btih:BDB12B464CBCBE84122446B0A47E898E161CD364
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_223032.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_223032.jpgsave_picture_223032.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:14984F6D4D09B7825A41303D6633BE9D8C00A8BF
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_223042.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_223042.jpgsave_picture_223042.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ Calibre 6.24.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_223060.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_223060.jpgsave_picture_223060.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ Brave Browser 1.56.20 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_223069.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_223069.jpgsave_picture_223069.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ VA - Sensual Chilling Moves (2023) [MP3|320 Kbps] <Downtempo, Lounge, Easy Liste
 >>Downtempo, Trip-Hop, Lounge
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_223078.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_223078.jpgsave_picture_223078.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ magnet:?xt=urn:btih:5DC7C06B460CAD09447D4C0CF28C6E1250B911F7
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_223088.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_223088.jpgsave_picture_223088.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ magnet:?xt=urn:btih:71774909DF1CA9B73E528AB0C6EA24F9177ECCA5
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_223097.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_223097.jpgsave_picture_223097.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ VA - NOW That's What I Call Music! Vol. 86 (2023) CD, Compilation [MP3|320 Kbps]
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_223104.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_223104.jpgsave_picture_223104.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ magnet:?xt=urn:btih:2D6915DA5C9F9EE097C82C55FF7FB445F143E950
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_223116.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_223116.jpgsave_picture_223116.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ QOwnNotes 23.8.0 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_223154.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_223154.jpgsave_picture_223154.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ magnet:?xt=urn:btih:63ABA535BFC79D46764741DF5FE66957BB38F45C
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_223161.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_223161.jpgsave_picture_223161.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ magnet:?xt=urn:btih:06408EDD7BFA978A0422AADAA5521FA1B38AF427
 >>Азиатское кино (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_223170.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_223170.jpgsave_picture_223170.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Papik - Bossarama (2023) [FLAC|Lossless|WEB-DL|tracks] <Bossa Nova, Easy Listeni
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_223182.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_223182.jpgsave_picture_223182.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ magnet:?xt=urn:btih:FCB7326535AAB7C40AE1FD4E7D0F46C831B3B3DD
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_223190.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_223190.jpgsave_picture_223190.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ magnet:?xt=urn:btih:C5B362CB0F43A7D39E3C548E3252FAD678388EFC
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_223200.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_223200.jpgsave_picture_223200.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Spiritual Front - The Queen Is Not Dead (2023) [FLAC|Lossless|WEB-DL|tracks] <Ne
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_223211.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_223211.jpgsave_picture_223211.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ magnet:?xt=urn:btih:F0CCAD6B6F05A0E9840734500201043684ADF53F
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_223220.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_223220.jpgsave_picture_223220.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ magnet:?xt=urn:btih:3E354B63B7A9F29DA016D0137C8C48949FB218C3
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_223228.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_223228.jpgsave_picture_223228.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Proxifier for Mac 3.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_223234.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_223234.jpgsave_picture_223234.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ magnet:?xt=urn:btih:5C8422949AA75A041F260DE6CCD562DD2966D39F
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_223239.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_223239.jpgsave_picture_223239.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ magnet:?xt=urn:btih:D8AA6B212D550E366AFDD8F200656699B8352C91
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_223250.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_223250.jpgsave_picture_223250.jpg" />
 </div>
 
 

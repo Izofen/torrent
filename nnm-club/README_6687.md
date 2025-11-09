@@ -6,7 +6,7 @@ Angra - Secret Garden (2015) [MP3|320 кб/с]<Power / Progressive Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229445.jpgsave_picture_229445.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:AC91514589DD2DBD2C4215542996A2C56D356795
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229446.jpgsave_picture_229446.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Jacque Fresco | The Venus Project (2004-2012) WEBRip [H.264] [EN]
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229449.jpgsave_picture_229449.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ In Mourning - The Bleeding Veil (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressiv
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229450.jpgsave_picture_229450.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ magnet:?xt=urn:btih:0A916F4C92EC262208CF20ADD44B5E137322024B
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229451.jpgsave_picture_229451.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ Astralborne - Across The Aeons (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Dea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_229454.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_229454.jpgsave_picture_229454.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ magnet:?xt=urn:btih:98B2DA26D4873CCCB32785FB70CB16B5DD9993DC
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229456.jpgsave_picture_229456.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ magnet:?xt=urn:btih:5112B996337FBF15DB6804C2434223A8EC034682
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229457.jpgsave_picture_229457.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ djay - DJ App & AI Mixer 3.1.8  [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229458.jpgsave_picture_229458.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ Windows 7 Pro SP1 x64 JAWS15 для незрячих. 2015.12.3 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229460.jpgsave_picture_229460.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ Green Labyrinth - Shadow of My Past (2014) [MP3|320 Kbps] <Symphonic Metal, Fema
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_229462.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_229462.jpgsave_picture_229462.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ Mutant Year Zero: Road to Eden (2018) [Ru/Multi] (23289/dlc) License GOG [Deluxe
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229463.jpgsave_picture_229463.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ ExamDiff Pro Master Edition 10.0.1.6 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229464.jpgsave_picture_229464.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ magnet:?xt=urn:btih:86B88061E52F9C5BAC439EC005E92FE47B252605
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229465.jpgsave_picture_229465.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ VA - Chillout Adventures, Pt. 2 (2021) [AAC|~317 Kbps] <Ambient, Chill Out, Down
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229467.jpgsave_picture_229467.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ Airtool 2 v.2.5.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_229468.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_229468.jpgsave_picture_229468.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ LOST EMBER (2019) [Ru/Multi] (1.0.0.11965) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229470.jpgsave_picture_229470.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ VA - Chillout Adventures, Pt. 4 (2021) [AAC|~330 Kbps] <Ambient, Chill Out, Down
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229471.jpgsave_picture_229471.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ magnet:?xt=urn:btih:795616356D81F8742F8C3DF14EFF71B9DDC365C3
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229472.jpgsave_picture_229472.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ magnet:?xt=urn:btih:B7297F321BB627A5557474952331328DF4FBFEBA
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229473.jpgsave_picture_229473.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ GlueMotion 2 v.2.1.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_229474.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_229474.jpgsave_picture_229474.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ magnet:?xt=urn:btih:DEF292E649E072E6FD03A9A6166771CE06EBE8D5
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229475.jpgsave_picture_229475.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ magnet:?xt=urn:btih:080B301586B0FBE321F5C84BA247521C540AC162
 >>Футбол
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229476.jpgsave_picture_229476.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Bartender 4 v4.1.20 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229477.jpgsave_picture_229477.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ magnet:?xt=urn:btih:9B5A340F1FDB04D00CF98C59798C544120928A9B
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229478.jpgsave_picture_229478.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ magnet:?xt=urn:btih:6A6BA8F0F8912F91C3AF645676697B7DA9E5CA67
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229479.jpgsave_picture_229479.jpg" />
 </div>
 
 

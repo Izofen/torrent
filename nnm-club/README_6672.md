@@ -6,7 +6,7 @@
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_228908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228908.jpgsave_picture_228908.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:599B88A0B6A5DAB8AA0E55738899F325F1B06E81
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_228909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228909.jpgsave_picture_228909.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ My Memory of Us (2018) [Ru/Multi] (1.3057) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_228910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228910.jpgsave_picture_228910.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ Wildness - Resurrection (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_228911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228911.jpgsave_picture_228911.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ Ummy Video Downloader 1.10.6.2 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_228912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228912.jpgsave_picture_228912.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ xxxHOLIC Kei | Триплексоголик (второй сезон) [2008 , TV
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_228913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228913.jpgsave_picture_228913.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:EE5E0B4DEE579A88DE4A8F587331DBB763BA6628
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_228914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228914.jpgsave_picture_228914.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Linux Mint 17.3 Rosa OEM (Mate, Cinnamon) [64bit] 2xDVD
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_228915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228915.jpgsave_picture_228915.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:F0CD8D22BBA2814F2EA5795493348FE06DB73AB5
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_228916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228916.jpgsave_picture_228916.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ Stand Up (2018.12.09) SATRip (сезон 6, выпуск 15)
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_228918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228918.jpgsave_picture_228918.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Blue Cat's All Plug-Ins Pack (2020.11) STANDALONE, VST, VST3, RTAS, AAX RePack b
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_228919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228919.jpgsave_picture_228919.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:0667962C8BD1AD7DF405AECE54B98188903C2725
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_228920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228920.jpgsave_picture_228920.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ magnet:?xt=urn:btih:2F06F989A0ABECD1D5657E6B4D23E2F265C542CE
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_228921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228921.jpgsave_picture_228921.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ magnet:?xt=urn:btih:661C6D6799DBD8335F3C4BB59C853C735D84FBB6
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_228922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228922.jpgsave_picture_228922.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ magnet:?xt=urn:btih:C08E1565AA68FE36B79A8D475645CEDD043DA4B3
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228923.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228923.jpgsave_picture_228923.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ magnet:?xt=urn:btih:FA40D493E325A35E4004B82C39BDB1A4BEA4C938
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_228925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228925.jpgsave_picture_228925.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ magnet:?xt=urn:btih:0B8991D44BCC6CFCC046D2669E1A48AFE91E215C
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_228927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228927.jpgsave_picture_228927.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ ClipGrab 3.8.7 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_228928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228928.jpgsave_picture_228928.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ magnet:?xt=urn:btih:BC056B83183B439AA0E05FB56B4212E4171388C2
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_228929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228929.jpgsave_picture_228929.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ magnet:?xt=urn:btih:D88449297879F48C246866BC3169B8ED0F37D0DC
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_228930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228930.jpgsave_picture_228930.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ magnet:?xt=urn:btih:96A9AA8A23F77657E5B9A0B322865AAC04714B3F
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_228931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228931.jpgsave_picture_228931.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ magnet:?xt=urn:btih:0F2722EC2F2B703FEAC9D2AFEE091C550E6E74F4
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_228933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228933.jpgsave_picture_228933.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ Time Mysteries: Inheritance / Тайны времени: Наследие (2010)
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_228934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228934.jpgsave_picture_228934.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ NG. Путешествия с Гордоном Рамзи / Gordon Ramsay - Unch
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_228935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228935.jpgsave_picture_228935.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ magnet:?xt=urn:btih:5D429F58B038C24C872E71D6DC31F88BE692624A
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_228936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228936.jpgsave_picture_228936.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Topaz Sharpen AI 2.2.0 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_228937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228937.jpgsave_picture_228937.jpg" />
 </div>
 
 

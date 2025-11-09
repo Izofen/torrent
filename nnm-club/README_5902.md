@@ -6,7 +6,7 @@ Wes - Welenga (1996) [FLAC|Lossless|image + .cue] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_185846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185846.jpgsave_picture_185846.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ AntiPlagiarism.NET 4.129.0.0 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185847.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185847.jpgsave_picture_185847.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Heart of the Woods (2019) [Multi] (2.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185849.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185849.jpgsave_picture_185849.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ magnet:?xt=urn:btih:10560F577006FC4AF5E67B84D3E680BDB4DB9BDB
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_185850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185850.jpgsave_picture_185850.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ magnet:?xt=urn:btih:10A41DF7DA603553D93700542F7690F159B3923A
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_185852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185852.jpgsave_picture_185852.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ magnet:?xt=urn:btih:ACFD8E3B8F6F0DAA1D55B7DB68EC503241C0A5EF
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185853.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185853.jpgsave_picture_185853.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ magnet:?xt=urn:btih:174C15652BE42C876D249AF2F50E945D3C9B5742
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_185854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185854.jpgsave_picture_185854.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ Isekai One Turn Kill Nee-san: Ane Douhan no Isekai Seikatsu Hajimemashita | My O
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185856.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185856.jpgsave_picture_185856.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ VA - Celtic Chill Out Lounge (2010) [FLAC|Lossless|image + .cue] <Chillout>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_185858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185858.jpgsave_picture_185858.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ Space Runaway Ideon | Densetsu Kyojin Ideon | Космический бегле�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185859.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185859.jpgsave_picture_185859.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ magnet:?xt=urn:btih:96EDA7CBC178BB45AE87D298DA925454E8DFEF3F
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185861.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185861.jpgsave_picture_185861.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ magnet:?xt=urn:btih:C5E6770D57D565F1573A237B3E8A6884D6AF5D47
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_185862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185862.jpgsave_picture_185862.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ DaisyDisk 4.12.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_185863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185863.jpgsave_picture_185863.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ magnet:?xt=urn:btih:536DFD4FBDC023EE3B39568382B8152FF8462809
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185865.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185865.jpgsave_picture_185865.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ magnet:?xt=urn:btih:5B3F034742402913F7C88DADE30520E024B6BA77
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185866.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185866.jpgsave_picture_185866.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ magnet:?xt=urn:btih:2766A1A6182F1B753842EFA083A851406338C05A
 >>Космос
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_185868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185868.jpgsave_picture_185868.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ magnet:?xt=urn:btih:6C2E5A299B53389CB2DCCD435BD11E40CAC76A4B
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185869.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185869.jpgsave_picture_185869.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ QuickPanel 0.1.0 + Portable [Ru] [Авторская раздача]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185870.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185870.jpgsave_picture_185870.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ magnet:?xt=urn:btih:02DB00FD8C6A11EA2E6858FDC1C499A473D76DF4
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_185871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185871.jpgsave_picture_185871.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Ungoogled Chromium 117.0.5938.89-1.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185873.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185873.jpgsave_picture_185873.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ C.C. Catch - Diamonds - Her Greatest Hits (1988) [OGG Vorbis|480 Kbps] <Electron
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185875.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185875.jpgsave_picture_185875.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Yuusha ga Shinda! | The Legendary Hero is Dead! | Герой мёртв! [2023, 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185877.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185877.jpgsave_picture_185877.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ Blender 2.91.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_185878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185878.jpgsave_picture_185878.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ magnet:?xt=urn:btih:8DD31396729E1C82F08ECCF6BF245044C5104B84
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_185879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185879.jpgsave_picture_185879.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ Dark City 5: Budapest / Мрачный город 5: Будапешт (2020) [Ru
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_185880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185880.jpgsave_picture_185880.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ magnet:?xt=urn:btih:56BFA10F8EDF95C2C37862800710D80816DB0D1E
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185882.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185882.jpgsave_picture_185882.jpg" />
 </div>
 
 

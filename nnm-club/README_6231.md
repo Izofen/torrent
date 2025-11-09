@@ -6,7 +6,7 @@
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_195515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195515.jpgsave_picture_195515.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:28BED2B880EAE9746EDC21E72C9CA566AA0CD28D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195517.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195517.jpgsave_picture_195517.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:08A3DCB5798FCEBC48E12FE89AC6894E969D2419
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195518.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195518.jpgsave_picture_195518.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:AB7A60B44B0E447E791E47DFD18B5067004F72BC
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195519.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195519.jpgsave_picture_195519.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:5E0FC3ECF29DB672E2DF93CD16DCA31C2833DCE8
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_195520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195520.jpgsave_picture_195520.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ CCleaner 6.14.10584 Free / Pro / Business / Technician Edition RePack (& Portabl
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195521.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195521.jpgsave_picture_195521.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:33E0765E59FEAB545E3E6EAF900385532F819E6D
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195523.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195523.jpgsave_picture_195523.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ MAGIX Sound Forge Pro Suite 17.0.2 Build 109 RePack by elchupacabra [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195524.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195524.jpgsave_picture_195524.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Granich.Design, Вадим Гранич | Графдизайн Копирайт�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195525.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195525.jpgsave_picture_195525.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:85A0E639C2D4E37F6CFD2F7185E41733BD3CD38D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195526.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195526.jpgsave_picture_195526.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ FrontendMasters, Jen Kramer | Practical CSS Layouts (2023) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195527.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195527.jpgsave_picture_195527.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ magnet:?xt=urn:btih:EED5E9353F1DFC0C2DE72A7E671C66B4FAB40A2E
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195528.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195528.jpgsave_picture_195528.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ uTorrent Pro 3.6.0 Build 46830 Stable RePack (& Portable) by Dodakaedr [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195529.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195529.jpgsave_picture_195529.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ magnet:?xt=urn:btih:C56456FE83516952B3691D154AA38E0C2FCB0CA5
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195530.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195530.jpgsave_picture_195530.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ magnet:?xt=urn:btih:4BEA2BC9430CF2FA84587F982DE19A50940AF0B3
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195531.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195531.jpgsave_picture_195531.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ OXENFREE II: Lost Signals (2023) [Multi] (1.2.14) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195532.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195532.jpgsave_picture_195532.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ Total Commander 11.00 RC2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195533.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195533.jpgsave_picture_195533.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ magnet:?xt=urn:btih:3AF40F63BFF4A80612B7733C7A5F0F22FBC7BEC1
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_195534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195534.jpgsave_picture_195534.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Siemens Simcenter FloEFD 2021.2.1 Build 5446 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195535.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195535.jpgsave_picture_195535.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ KkartSchool, Карина Кино | Акварельная иллюстраци
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195537.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195537.jpgsave_picture_195537.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:3CF882DFA5499B4B45518C8387A4B889234A1C46
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195538.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195538.jpgsave_picture_195538.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ leerob | Mastering Next.js (2023) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195539.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195539.jpgsave_picture_195539.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Bandicam 6.2.4.2083 RePack (& portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195540.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195540.jpgsave_picture_195540.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ magnet:?xt=urn:btih:2B5CB43D4AFF89C9F928B5BB1E7D9DF17E977655
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195541.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195541.jpgsave_picture_195541.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ magnet:?xt=urn:btih:07A62BB1C9EA3341E9CB71E90D4385474EC089DA
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_195542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195542.jpgsave_picture_195542.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ VA - Relax FM for a Good Evening 2 (2023) [MP3|320 Kbps] <Pop, Easy Listening>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195543.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195543.jpgsave_picture_195543.jpg" />
 </div>
 
 

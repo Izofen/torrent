@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168400.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168400.jpgsave_picture_168400.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:EE6393A7CA9175E6F5157589FA23D2CD03DDFD5E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168401.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168401.jpgsave_picture_168401.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Firefox Browser 95.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168402.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168402.jpgsave_picture_168402.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:EBE11820E09F790A7A66B2D6575D4E62FAD86BDD
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168403.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168403.jpgsave_picture_168403.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ DxO ViewPoint 3 v3.2.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168404.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168404.jpgsave_picture_168404.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:CE3B51042CEF8DB6A17B624EBB9BBDB0E371E56B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168405.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168405.jpgsave_picture_168405.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Adobe Photoshop Lightroom Classic 2019 9.1.0.10 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168406.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168406.jpgsave_picture_168406.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:7DA6BC6307CFD4664A1282737800C7F64057DDC8
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168407.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168407.jpgsave_picture_168407.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ Microsoft Office 2016-2019 Professional Plus / Standard + Visio + Project 16.0.1
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168408.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168408.jpgsave_picture_168408.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ magnet:?xt=urn:btih:A3388F36CFA72B0799204A3BDD435E097AC0EC84
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168409.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168409.jpgsave_picture_168409.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ VA - Milk & Sugar Winter Sessions 2022 (2021) [AAC|~318 Kbps] <Deep House, House
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168410.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168410.jpgsave_picture_168410.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ magnet:?xt=urn:btih:BB6B2F566CE72930C36473EA72CBE778816F5AE6
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168412.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168412.jpgsave_picture_168412.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ magnet:?xt=urn:btih:CE06654DF209744E5C6399CF7915843408A92593
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168413.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168413.jpgsave_picture_168413.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ FurMark 1.24.1.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168414.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168414.jpgsave_picture_168414.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ magnet:?xt=urn:btih:92FDEE74C465BED20BCD36D1B656668E9182C101
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168415.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168415.jpgsave_picture_168415.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ The Sphinx - Пески Времени (2022) [MP3|320 Kbps] <Alternative Metal>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168416.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168416.jpgsave_picture_168416.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ magnet:?xt=urn:btih:1E3745843EB1E9FE7DDF2A3F201E0C534C08815D
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168417.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168417.jpgsave_picture_168417.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Sonus Mortis - Collapse the Mountain (2022) [FLAC|Lossless|WEB-DL|tracks] <Melod
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168418.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168418.jpgsave_picture_168418.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ magnet:?xt=urn:btih:EB727DE6E6730D3256C3B0968A88F8785680EDA4
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168419.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168419.jpgsave_picture_168419.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ magnet:?xt=urn:btih:80C4DF88B7A814424E1F216C6B37007C7ABA8903
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168420.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168420.jpgsave_picture_168420.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ magnet:?xt=urn:btih:724D65397AE5768B1A2F50AB5A5211FF21F8CCF4
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168421.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168421.jpgsave_picture_168421.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ magnet:?xt=urn:btih:7EE4156E89811A142DADECC6A0173F90E82FF1EB
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168422.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168422.jpgsave_picture_168422.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ V.A. - Dance Hits 2020 (2019) [FLAC|Lossless|WEB-DL|tracks] <Dance>
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168423.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168423.jpgsave_picture_168423.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ magnet:?xt=urn:btih:7B6B9C73040FC7AB3371444F5DA52684AF983BB5
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168424.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168424.jpgsave_picture_168424.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ magnet:?xt=urn:btih:13BE065B6B702E04B0102D709667ADD95E9CAD27
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168425.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168425.jpgsave_picture_168425.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ Monty Alexander - The Montreux Years (1993 - 2016) 2022, BMG [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168426.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168426.jpgsave_picture_168426.jpg" />
 </div>
 
 

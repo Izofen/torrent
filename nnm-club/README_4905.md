@@ -6,7 +6,7 @@
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153532.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153532.jpgsave_picture_153532.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Apparent Symmetry - Enveloping White Noise (2015) [FLAC|Lossless|WEB-DL|tracks] 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153533.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153533.jpgsave_picture_153533.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Firefox Browser 84.0.1 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153534.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153534.jpgsave_picture_153534.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ VA - Truly Passionate Chillout (2015) [MP3|320 кб/с] <Downtempo, Chillout, Lo
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153535.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153535.jpgsave_picture_153535.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ VA - How Low Can You Go? (1993) Timeless Records[FLAC|Lossless|image + .cue] <Ma
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153536.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153536.jpgsave_picture_153536.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ magnet:?xt=urn:btih:1149FA4B7DFC892CF0D40ECD3A0382420A5506DC
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153537.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153537.jpgsave_picture_153537.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ Yuki – Ad Blocker+ for YouTube 1.8 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153538.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153538.jpgsave_picture_153538.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ J.J. Johnson - Quintergy: Live At The Village Vanguard (1988) 1991, Island Recor
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153539.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153539.jpgsave_picture_153539.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ magnet:?xt=urn:btih:140290B57C816E6132254054342B70C18AE4A18F
 >>Общественно-политические и пропагандистские ток-шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153540.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153540.jpgsave_picture_153540.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ magnet:?xt=urn:btih:921DFE16EDF703E854FC25B1FD8CAA57786BA3F7
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153541.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153541.jpgsave_picture_153541.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ magnet:?xt=urn:btih:57670459AA376A273C277DF8399B752C5C78A1D7
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153542.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153542.jpgsave_picture_153542.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ magnet:?xt=urn:btih:79B42B3F007FE7E52BFF48052B49673F2BE3B8A7
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153543.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153543.jpgsave_picture_153543.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ RAR Extractor – The Unarchiver Pro 6.2.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153544.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153544.jpgsave_picture_153544.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ Lee Morgan - Last Album (1971) Remaster, 2014, Universal[FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153545.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153545.jpgsave_picture_153545.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ magnet:?xt=urn:btih:E6A49235346EAF91045731D797C8EEFC4B0DCD49
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153546.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153546.jpgsave_picture_153546.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ magnet:?xt=urn:btih:C983835C9F5FFABAC428B383E86586B7DC8289EA
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153547.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153547.jpgsave_picture_153547.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ magnet:?xt=urn:btih:B5241EDC47895E2602CF600907ED7EBCF1E0E214
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153548.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153548.jpgsave_picture_153548.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ magnet:?xt=urn:btih:6FC20CD7C35F0ECAAC3E87A6BEEC3661701FA03D
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153549.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153549.jpgsave_picture_153549.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ magnet:?xt=urn:btih:3524B5F1BA16BB519C1224D35D4D3F3B8E26BB39
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153550.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153550.jpgsave_picture_153550.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ magnet:?xt=urn:btih:0AB8816C7724D74625589EF8F172A73BC350A221
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153551.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153551.jpgsave_picture_153551.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ magnet:?xt=urn:btih:06DB8CDB796FB36CE706A77C1CF9859CCBA78A9F
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153552.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153552.jpgsave_picture_153552.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Glary Disk Cleaner 5.0.1.227 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153553.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153553.jpgsave_picture_153553.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ ScrollNavigator 5.7.2 RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153554.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153554.jpgsave_picture_153554.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ magnet:?xt=urn:btih:6F0C8DE14323193884AEE0CE953EFCC8CA283CDC
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153555.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153555.jpgsave_picture_153555.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Ivanhoe - Last Warning (2020) 2xCD, Compilation, Japan Edition [MP3|320 Kbps] <P
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153556.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153556.jpgsave_picture_153556.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Enrico Rava & Enrico Pieranunzi - Nausicaa (1993) Egea[FLAC|Lossless|image + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153557.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153557.jpgsave_picture_153557.jpg" />
 </div>
 
 

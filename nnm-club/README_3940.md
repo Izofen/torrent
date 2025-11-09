@@ -6,7 +6,7 @@ VA - Real Hits 2024 (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122928.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122928.jpgsave_picture_122928.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Korolova - Live @ Captive Soul , 2GTHR Buenos Aires (2024-01-12) [MP3|320 Kbps] 
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122929.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122929.jpgsave_picture_122929.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:7EFE2AC17F53C3C1E83CF8C08966022E29CD7C9C
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122930.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122930.jpgsave_picture_122930.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ These Days & Those Days - Eminent Pleasurment – Fucked Into Sextasy (2024) [MP
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122931.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122931.jpgsave_picture_122931.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Chris Rea - God's Great Banana Skin (1992) [OGG Vorbis|480 Kbps] <Blues Rock, Co
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122932.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122932.jpgsave_picture_122932.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ magnet:?xt=urn:btih:F36BD2B09F8E266F55EBA199D9E98A1E3B990486
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122933.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122933.jpgsave_picture_122933.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ The Tiger Lillies - Onepenny Opera (2022) [MP3|320 Kbps] <Indie Rock, Dark Cabar
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122934.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122934.jpgsave_picture_122934.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ magnet:?xt=urn:btih:36324C6671FF9912E07756C6243977C228013EE2
 >>Авторская и Военная песня (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122935.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122935.jpgsave_picture_122935.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Frozen Rain - One Mile From Heartsville (2023) Japanese Edition [FLAC|Lossless|i
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122936.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122936.jpgsave_picture_122936.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Hex - From Dust To Metal (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122937.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122937.jpgsave_picture_122937.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Speedio: Internet Speed Test 3.9 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122938.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122938.jpgsave_picture_122938.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ magnet:?xt=urn:btih:E6132FE9A037249289CA03BFF214B7BEB91B2D33
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122939.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122939.jpgsave_picture_122939.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ VA - Dance Vibes for Your Ears (2024) [MP3|320 Kbps] <Dance, Club, House, Electr
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122940.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122940.jpgsave_picture_122940.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ magnet:?xt=urn:btih:DF81C3F431652CBE3050E74F4CDE1A4FF534AF42
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122941.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122941.jpgsave_picture_122941.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ magnet:?xt=urn:btih:BC5F7AC4F9609B5E8D90375AB5BA8F0690C0A8FA
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122942.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122942.jpgsave_picture_122942.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Ableton Live Suite 11 v.11.3.20 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122943.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122943.jpgsave_picture_122943.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ magnet:?xt=urn:btih:4FEF5976596C93B0BBF5F334158E388281379B12
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122944.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122944.jpgsave_picture_122944.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ magnet:?xt=urn:btih:8D0273F056E12C5FA542C2C326B73C81C32C6D2B
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122945.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122945.jpgsave_picture_122945.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ UniBook - Аудиокниги v0.8.8 [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122946.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122946.jpgsave_picture_122946.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ magnet:?xt=urn:btih:0E02F7CC6987AE058C7BD734899E21E5F3A9A3AA
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122947.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122947.jpgsave_picture_122947.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ magnet:?xt=urn:btih:CDFBC6019F0D0C88B17E1C39415528B6B556E5FB
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122948.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122948.jpgsave_picture_122948.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:CDE42669ABCEF0B58B170E7CFE71A21D92770F63
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122949.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122949.jpgsave_picture_122949.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ magnet:?xt=urn:btih:1A38A9E47214B4A462D2503328761F025C26C023
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122950.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122950.jpgsave_picture_122950.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Pet Shop Boys - SMASH - The Singles 1985–2020 (2023) 3CD, Remaster [FLAC|Lossl
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122951.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122951.jpgsave_picture_122951.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ magnet:?xt=urn:btih:651533885025B80851AC6AC1DBAA0DF7A31346DA
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122952.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122952.jpgsave_picture_122952.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ magnet:?xt=urn:btih:AE918E2816C3ACD9C5166E75358EEEB4D276A1EA
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122953.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122953.jpgsave_picture_122953.jpg" />
 </div>
 
 

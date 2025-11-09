@@ -6,7 +6,7 @@ Marco Ragni - Psychedelic Trips & Artificial Dreams (2023) [MP3|320 Kbps] <Psych
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186855.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186855.jpgsave_picture_186855.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ MediaHuman YouTube Downloader 3.9.9.76 (1811) RePack (& Portable) by Dodakaedr [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186856.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186856.jpgsave_picture_186856.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:60C4F0B9D101E92CBEA1ABBBEB42A21B6002B3ED
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186857.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186857.jpgsave_picture_186857.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:4C7176C7626B6D393228F5717A14E92C98F69F31
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186858.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186858.jpgsave_picture_186858.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:26E1EE7EBFFB1A8C22ED56692A491D23293D9D9C
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186859.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186859.jpgsave_picture_186859.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ Corinne Bailey Rae - Black Rainbows (2023) [FLAC|Lossless|tracks + .cue] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186860.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186860.jpgsave_picture_186860.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ magnet:?xt=urn:btih:DFD5C66CFB53E1622DCA1C87A86FAE6E2C84A969
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186861.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186861.jpgsave_picture_186861.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ magnet:?xt=urn:btih:9A390FCDC1860667D7740DEB5A5F93F291E6DDFF
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186862.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186862.jpgsave_picture_186862.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ magnet:?xt=urn:btih:BAC03D0F324FD238803A1F0432301DABC747975B
 >>Единоборства, Бои без правил
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186863.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186863.jpgsave_picture_186863.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ Nergard - Eternal White (2021) [FLAC|Lossless|image + .cue] <Heavy, Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186864.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186864.jpgsave_picture_186864.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ magnet:?xt=urn:btih:A88B0258C9C1397E970422F6A3D305233BED5AF4
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186865.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186865.jpgsave_picture_186865.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ Soen - Memorial (2023) [FLAC|Lossless|tracks + .cue] <Alternative Metal, Progres
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186866.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186866.jpgsave_picture_186866.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ Mercenary - Soundtrack For The End Times (2023) [FLAC|Lossless|WEB-DL|tracks] <M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186867.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186867.jpgsave_picture_186867.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ Bruce Soord - Luminescence (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186868.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186868.jpgsave_picture_186868.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ Mitski - The Land Is Inhospitable And So Are We (2023) [FLAC|Lossless|tracks + .
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186869.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186869.jpgsave_picture_186869.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ Neonfly - The Future, Tonight (2021) [FLAC|Lossless|image + .cue] <Melodic Power
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186870.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186870.jpgsave_picture_186870.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ Xiphos - New World (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Gothic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186871.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186871.jpgsave_picture_186871.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ Sekta Core - Sinfonia del Caos (2023) [FLAC|Lossless|WEB-DL|tracks] <ska punk, g
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186872.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186872.jpgsave_picture_186872.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ AIR Music Technology - TubeSynth 1.1.0  Standalone, VSTi, VSTi3, AAX (x64) RePac
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186873.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186873.jpgsave_picture_186873.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ magnet:?xt=urn:btih:7630FA270D34A2AC1413DDDE3961501DA94858D6
 >>Единоборства, Бои без правил
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186874.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186874.jpgsave_picture_186874.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ The Promise Of Plague - Let Those Unjust Creatures Be Burnt (2023) [FLAC|Lossles
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186875.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186875.jpgsave_picture_186875.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:82A205F4E68602C67E0D92BF3D5561A408BEBC8A
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186876.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186876.jpgsave_picture_186876.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ magnet:?xt=urn:btih:5CCE9CEC786E8452FA9571E24C31DB758E0B4B36
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186877.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186877.jpgsave_picture_186877.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ magnet:?xt=urn:btih:061CFB3859220DA7B824E12EFF6212CBAAB7C00B
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186878.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186878.jpgsave_picture_186878.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ magnet:?xt=urn:btih:560CA3CF4E6DF09051B0DC6D6F5254F9F825E588
 >>Единоборства, Бои без правил
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186879.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186879.jpgsave_picture_186879.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ magnet:?xt=urn:btih:23DACEE1EF07447E91D5E0635BC2101E62735522
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186880.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186880.jpgsave_picture_186880.jpg" />
 </div>
 
 

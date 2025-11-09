@@ -6,7 +6,7 @@ VA - Love Lounge, Vol. 1 (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39134.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39134.jpgsave_picture_39134.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Dance With The Dead - Dark Matter (2024) [FLAC|Lossless|WEB-DL|tracks] <DarkWave
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39167.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39167.jpgsave_picture_39167.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - Autumn Deep House Hits 2024 (2024) [MP3|320 Kbps] <House, Deep House, Dance
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39176.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39176.jpgsave_picture_39176.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Benassi Bros. x Dhany - Every Single Day (remix) (2021) [FLAC|Lossless|WEB-DL|tr
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39273.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39273.jpgsave_picture_39273.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ VA - Armin van Buuren - A State Of Trance 1196 (2024) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39281.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39281.jpgsave_picture_39281.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ V.A. - Vintage Cafe Remixes (2024) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Tri
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39384.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39384.jpgsave_picture_39384.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ VA - Deep Blue Lounge: Chillout Your Mind (2024) [FLAC|Lossless|WEB-DL|tracks] <
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39569.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39569.jpgsave_picture_39569.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Ital - Rukapillan (2024) [FLAC|Lossless|WEB-DL|tracks] <PsyTrance>
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39570.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39570.jpgsave_picture_39570.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ Kyau & Albert - All in Good Time (2024) [MP3|320 Kbps] <Trance, Progressive, Ele
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39573.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39573.jpgsave_picture_39573.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ VA - Nightfall Dreams: Chillout Your Mind) (2024) [FLAC|Lossless|WEB-DL|tracks] 
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39578.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39578.jpgsave_picture_39578.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ VA - Balearic Chill out Winter 2025 (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39579.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39579.jpgsave_picture_39579.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Deejay Laura - Euphoria (2013) [FLAC|Lossless|tracks] <Pop Trance, Scouse House>
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39643.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39643.jpgsave_picture_39643.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ VA - Amsterdam After Disco (2024) [MP3|320 Kbps] <Funky, Club House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39665.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39665.jpgsave_picture_39665.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Luttrell - Life at Full Speed (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Tech
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39666.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39666.jpgsave_picture_39666.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Lane 8 - Childish (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Tech House, Deep H
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39668.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39668.jpgsave_picture_39668.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ High Contrast - Restoration (2024) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39743.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39743.jpgsave_picture_39743.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Ott - Hiraeth (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Tech House, Dub, Tec
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39746.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39746.jpgsave_picture_39746.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ Bassnectar (Lorin Ashton) - 13 Albums (2009-2024) [FLAC|Lossless|WEB-DL|tracks] 
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39748.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39748.jpgsave_picture_39748.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ VA - Alaloom (2024) [MP3|320 Kbps] <Dark PsyTrance>
 >>Psychedelic, psytrance, fullon
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39751.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39751.jpgsave_picture_39751.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ Giobbi - Dotr (2024) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House, Prog
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39752.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39752.jpgsave_picture_39752.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ VA - Armin van Buuren - A State Of Trance 1195 (Ade Special) (2024) [MP3|192 Kbp
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39754.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39754.jpgsave_picture_39754.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Jaycee Madoxx x DJ Zkydriver x Plastik Bass - Smells Like Teen Spirit (2023) [FL
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39758.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39758.jpgsave_picture_39758.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ VA - Arab Music by Dust & Grooves (2024) 19CD [FLAC|Lossless|WEB-DL|tracks] <Hou
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39779.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39779.jpgsave_picture_39779.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ VA - Armin van Buuren - A State Of Trance 1195 (2024) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39968.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39968.jpgsave_picture_39968.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ Rufus Du Sol - Inhale / Exhale (2024) [MP3|320 Kbps] <Electronic, Breaks, House,
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40056.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40056.jpgsave_picture_40056.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ Lusa - The Colour Of Space (2024) [MP3|320 Kbps] <Electronic, Synthpop, Pop>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40090.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40090.jpgsave_picture_40090.jpg" />
 </div>
 
 

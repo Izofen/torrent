@@ -6,7 +6,7 @@ Empyrion - Galactic Survival (2020) [Ru/Multi] (1.13.2 4801/dlc) Repack Pioneer
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3056.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3056.jpgsave_picture_3056.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:1ADC7EEDC41D659A148BE634FF394B069D052C3B
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3057.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3057.jpgsave_picture_3057.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:700FC806C020DE4E441B38B9D8A911F30B9BF23B
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3058.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3058.jpgsave_picture_3058.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:160FC9DCA273FEC56A4F1DAC13C1E46529C87D96
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3059.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3059.jpgsave_picture_3059.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:E597989B4F31D4F94DE107AD95CCACD0F59FB05E
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3060.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3060.jpgsave_picture_3060.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ magnet:?xt=urn:btih:D68311CD9FBCDA87A9F8DB179C2A616B963A0303
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3061.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3061.jpgsave_picture_3061.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ magnet:?xt=urn:btih:E769599DA90A0E48FF39846FB491329002BE6061
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3062.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3062.jpgsave_picture_3062.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:2A1BCB5D6822F675EB7E235F6D6B8D0AC5C5628E
 >>КВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3063.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3063.jpgsave_picture_3063.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ magnet:?xt=urn:btih:7606AF0A59E00CC007B4049E27833AA704C414A7
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3064.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3064.jpgsave_picture_3064.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ magnet:?xt=urn:btih:69FFCD3CBD12B4546DBAA2E701CDFDD1FFE76BEC
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3065.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3065.jpgsave_picture_3065.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ magnet:?xt=urn:btih:CDCF3477987BECEA2E8C8206BBA095A6BB07FC36
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3066.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3066.jpgsave_picture_3066.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ Virtua Fighter 5 R.E.V.O. (2025) [Multi] (1.05/dlc) Repack Let'sРlay [30th Anni
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3067.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3067.jpgsave_picture_3067.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ Reus 2 (2024) [Ru/Multi] (1.9.0/dlc) Repack Let'sРlay [Complete edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3068.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3068.jpgsave_picture_3068.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Windows 11 PRO 24H2 26100.6584 Update 19 by Ghost Spectre [En]
 >>Сборки Windows 11
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3069.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3069.jpgsave_picture_3069.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ magnet:?xt=urn:btih:BE622A7408E05E56A7ED84F5191E37AE5B9E05DD
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3070.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3070.jpgsave_picture_3070.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Microsoft Office LTSC 2021 Professional Plus / Standard + Visio + Project 16.0.1
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3071.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3071.jpgsave_picture_3071.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ magnet:?xt=urn:btih:E6E09BB2362D7D0BDB029D8EA1FF7A13AC629407
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3072.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3072.jpgsave_picture_3072.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ magnet:?xt=urn:btih:E6E09BB2362D7D0BDB029D8EA1FF7A13AC629407
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3073.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3073.jpgsave_picture_3073.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ magnet:?xt=urn:btih:2F2B63D06983B936C3861C0C0BEE803BDE7B861C
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3074.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3074.jpgsave_picture_3074.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ magnet:?xt=urn:btih:10655AB18641DE649917270EC7E097CD1EF8FA73
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3076.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3076.jpgsave_picture_3076.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ magnet:?xt=urn:btih:D748E7C8AF01C87733394CE8A460A2A9C7FFF0FD
 >>Новости P2P, Копирайт, Блокировки, Цензура
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3077.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3077.jpgsave_picture_3077.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ Rufus 4.10 (Build 2278) Beta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3078.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3078.jpgsave_picture_3078.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ magnet:?xt=urn:btih:CE433F63AA0A54D4D2003920894022E6819ED99E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3079.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3079.jpgsave_picture_3079.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:06D7D39E7D2E064C79AEB4C134CA9EFE3C45CFE8
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3080.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3080.jpgsave_picture_3080.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ magnet:?xt=urn:btih:68FD080D5C8D4ED24E9EB57F14165C426DDCB3FB
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3081.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3081.jpgsave_picture_3081.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Iron Core: Mech Survivor (2025) [Ru/Multi] (3.0.8) Repack Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3082.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3082.jpgsave_picture_3082.jpg" />
 </div>
 
 

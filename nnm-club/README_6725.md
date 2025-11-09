@@ -6,7 +6,7 @@ Step By Step [ex. Lime] - Reason Of My Life (1994) [MP3|320 Kbps] <Electronic, H
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231285.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231285.jpgsave_picture_231285.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:E0C1FBEDCBAC5F22AD12716F0608F1692839977F
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231286.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231286.jpgsave_picture_231286.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ VA - Deep House Summer 2023 [MP3|320 Kbps] <House, Deep House, Dance, Club>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231287.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231287.jpgsave_picture_231287.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ CrystalDiskInfo 9.0.1 + Portable (Shizuku Edition & Kurei Kei Edition) [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_231288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231288.jpgsave_picture_231288.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Emerald Sun - Kingdom of Gods (2022) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231290.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231290.jpgsave_picture_231290.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ WiFi Explorer 3.4.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231291.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231291.jpgsave_picture_231291.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ Renaissance Rock Orchestra - The Ice Age Cometh (2023) [FLAC|Lossless|image + .c
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231292.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231292.jpgsave_picture_231292.jpg" />
 </div>
 
 
@@ -187,7 +187,7 @@ Mark7 - Clockwork Century (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive, Pow
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231293.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231293.jpgsave_picture_231293.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ magnet:?xt=urn:btih:6DE14396DBF32BA833C9FD789BB6956DA8D840C7
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231294.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231294.jpgsave_picture_231294.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ magnet:?xt=urn:btih:21BF88037AA635BA93B574A89BBAA00C99AFCA30
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_231295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231295.jpgsave_picture_231295.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ SOG - Man Demonic (2023) [MP3|320 Kbps] <Speed, Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231296.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231296.jpgsave_picture_231296.jpg" />
 </div>
 
 
@@ -290,7 +290,7 @@ magnet:?xt=urn:btih:B98CDF9BBCA9E2B317600B437A1305FAB9AE135C
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231297.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231297.jpgsave_picture_231297.jpg" />
 </div>
 
 
@@ -317,7 +317,7 @@ Dead or Alive - Let Them Drag My Soul Away Singles, Demos, Sessions And Live Rec
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231299.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231299.jpgsave_picture_231299.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ BatchPhoto Pro for Mac 5.0 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231300.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231300.jpgsave_picture_231300.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ Viber 20.5.1.2 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231301.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231301.jpgsave_picture_231301.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ magnet:?xt=urn:btih:3B8A0B5C3492D02DECEF387D7B81E958DBC4594B
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_231302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231302.jpgsave_picture_231302.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ YT Downloader 9.1.9 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231303.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231303.jpgsave_picture_231303.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Sound Siphon 3.5.0 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231304.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231304.jpgsave_picture_231304.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ magnet:?xt=urn:btih:B21DC084625F0AC2BFB0DA214A235A5A71A63898
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231305.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231305.jpgsave_picture_231305.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ MacCleanse 12 v.12.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231306.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231306.jpgsave_picture_231306.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ magnet:?xt=urn:btih:B3641912FA7670946C86F62BBA9B5A6EDA4408C0
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231307.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231307.jpgsave_picture_231307.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ magnet:?xt=urn:btih:DC1F5C63CA9222DFF316A26EFFBFBAEDAC12B20A
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231308.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231308.jpgsave_picture_231308.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Ashampoo WinOptimizer 26.00.11 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_231309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231309.jpgsave_picture_231309.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Velvet Viper - Nothing Compares To Metal (2023) [FLAC|Lossless|WEB-DL|tracks] <P
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231311.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231311.jpgsave_picture_231311.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ VA - Uplifting Only Top 15: July 2023 (Extended Mixes) (2023) [MP3|320 Kbps] <Tr
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231312.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231312.jpgsave_picture_231312.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ Iris 1.5.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231313.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231313.jpgsave_picture_231313.jpg" />
 </div>
 
 

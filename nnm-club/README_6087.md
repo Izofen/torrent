@@ -6,7 +6,7 @@ BBC. Рим. Тайны, скрытые под землей / Rome: What Lies Be
 >>История
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191611.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191611.jpgsave_picture_191611.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:D0F5A5BCD78E82633DEEB1C7255431F388B4DDAD
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191612.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191612.jpgsave_picture_191612.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:5BD19827A25C150FC6A19AAF546709213AE81CF4
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191613.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191613.jpgsave_picture_191613.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Speedtest от Ookla 5.1.0 Mod by maxi123444 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191614.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191614.jpgsave_picture_191614.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ LibreWolf 106.0.4-1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_191615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191615.jpgsave_picture_191615.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Alcatrazz - Take No Prisoners (2023) Japanese Edition [FLAC|Lossless|image + .cu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191616.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191616.jpgsave_picture_191616.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ magnet:?xt=urn:btih:5DF89BF40C7F8DCA55040E4EC45E5AA9C893CD11
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191617.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191617.jpgsave_picture_191617.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:7894322C0EE3B29964D337D255A3F1C1548E2F31
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191618.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191618.jpgsave_picture_191618.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:695F3B49CC07D5C5B9FE7DE01E4EC0487D6182BB
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191619.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191619.jpgsave_picture_191619.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ Bosphorus Night - New Era (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Roc
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191620.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191620.jpgsave_picture_191620.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ magnet:?xt=urn:btih:D1DE1CD20B69FE6B5118E73CEC1585954D080412
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191621.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191621.jpgsave_picture_191621.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ magnet:?xt=urn:btih:5D85398CC6E574D71EF717DC96D64FE31C15A280
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_191622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191622.jpgsave_picture_191622.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ PhotoRoom 4.6.7 Mod by Maximoff [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191623.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191623.jpgsave_picture_191623.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ ApowerREC 1.5.9.26 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191624.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191624.jpgsave_picture_191624.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Marduk - Memento Mori (2023) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191625.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191625.jpgsave_picture_191625.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ VA - Trance 2022 Vol 10 (2022) [MP3|320 Kbps] <Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191626.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191626.jpgsave_picture_191626.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Ashes and Bereavement - Before the Eternal Birth (2023) [FLAC|Lossless|WEB-DL|tr
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191627.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191627.jpgsave_picture_191627.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Kane Roberts - Kane Roberts (1987) ex-guitar Alice Cooper [FLAC|Lossless|image +
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191628.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191628.jpgsave_picture_191628.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Bangalore Choir - Center Mass (2023) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191629.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191629.jpgsave_picture_191629.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ magnet:?xt=urn:btih:471145E153479D860739AD34E15A95992384ABF6
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191630.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191630.jpgsave_picture_191630.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ magnet:?xt=urn:btih:76E983AAF8CFAB6D71817DADC090F2496F69AABA
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191631.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191631.jpgsave_picture_191631.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ magnet:?xt=urn:btih:43B56572F4EDB55C59DF40F4A5797F12696C0CED
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191632.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191632.jpgsave_picture_191632.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ magnet:?xt=urn:btih:654760F11A7F6C5E2900D5565FD12AC2F40A429C
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191633.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191633.jpgsave_picture_191633.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Firefox Browser 106.0.4 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_191634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191634.jpgsave_picture_191634.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ magnet:?xt=urn:btih:17D414E1485A7EA01918B21942D77A7B24F2759C
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191635.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191635.jpgsave_picture_191635.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ Mal Waldron & Jackie McLean - Left Alone '86 (1987) Bellaphon [FLAC|Lossless|ima
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191636.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191636.jpgsave_picture_191636.jpg" />
 </div>
 
 

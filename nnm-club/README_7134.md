@@ -6,7 +6,7 @@ Aiseesoft Video Converter Ultimate 10.7.8 RePack (& Portable) by TryRooM [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244423.jpgsave_picture_244423.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ VueScan Pro 9.7.99 (27.03.2023) RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244424.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244424.jpgsave_picture_244424.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ VA - I Love The 90's - The Party (2019) 4CD, Compilation, Mixed [FLAC|Lossless|t
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244425.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244425.jpgsave_picture_244425.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Lethvm - Winterreise (2023) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Sludge, D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244426.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244426.jpgsave_picture_244426.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Upsidedown Cross - 2 Albums (1991-1993) [FLAC|Lossless|WEB-DL|tracks] <Sludge, D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244427.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244427.jpgsave_picture_244427.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ VA - Coffee Chill Time, Vol. 4 (2018) [AAC|~314 Kbps] <Lounge, Chill Out, Smooth
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244428.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244428.jpgsave_picture_244428.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ Insidious One - Н​и​ч​т​о​ж​е​с​т​в​о (2023) [FLA
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244429.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244429.jpgsave_picture_244429.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ Juno Reactor - Discography 48 Releases (1993-2022) [MP3|320 Kbps] <Goa Trance, T
 >>Psychedelic, psytrance, fullon
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244430.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244430.jpgsave_picture_244430.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ magnet:?xt=urn:btih:1D9A8BC208F0410DD3DA50F2E29D5042361BFB64
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244431.jpgsave_picture_244431.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ Bourbon House - The Fourth Album (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244432.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244432.jpgsave_picture_244432.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ Teramaze - I Wonder (2020) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244433.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244433.jpgsave_picture_244433.jpg" />
 </div>
 
 
@@ -291,7 +291,7 @@ magnet:?xt=urn:btih:37AF4D8BB724CB87182B0D19F12125CC54BD5B80
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244434.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244434.jpgsave_picture_244434.jpg" />
 </div>
 
 
@@ -315,7 +315,7 @@ eM Client Pro 9.1.2053.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244435.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244435.jpgsave_picture_244435.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ VA - Coffee Chill Time, Vol. 2 (2016) [AAC|~334 Kbps] <Lounge, Chill Out, Smooth
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244436.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244436.jpgsave_picture_244436.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ The Bronx Casket Co. - Hellectric (2005) [FLAC|Lossless|image + .cue] <Gothic Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244437.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244437.jpgsave_picture_244437.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ magnet:?xt=urn:btih:7B609EC64E25BFB92A73E3D188A82C2653CE341B
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244438.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244438.jpgsave_picture_244438.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ VA - Disco Boy, I'm A Disco Boy: Weekend Party Hits (2023) [FLAC|Lossless|WEB-DL
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244439.jpgsave_picture_244439.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ Magic Media Marker 3.3 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244440.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244440.jpgsave_picture_244440.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ magnet:?xt=urn:btih:F9C389F05AE79EEDF33B5896DEF361516F0B24C8
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244441.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244441.jpgsave_picture_244441.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ KLS Backup 2023 Professional 12.0.0.1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244442.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244442.jpgsave_picture_244442.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Dare to Stay (2022) [En] (1.0) License TiNYiSO
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244443.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244443.jpgsave_picture_244443.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ GoldWave 6.75 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244444.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244444.jpgsave_picture_244444.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ VA - Lisboa Orange: Urban Chillout Music (2022) [AAC|~318 Kbps] <Lounge, Chill O
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244445.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244445.jpgsave_picture_244445.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ XIV Dark Centuries - ...Den Ahnen Zum Grusse... (2003) [WavPack|Lossless|image +
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244446.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244446.jpgsave_picture_244446.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ magnet:?xt=urn:btih:F3FAA1F8A37108CA2FED957A786FBE64700E11F6
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244447.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244447.jpgsave_picture_244447.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ magnet:?xt=urn:btih:C7C086A3A54B2A400F7F7302B267DE47138158A7
 >>Религия (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244448.jpgsave_picture_244448.jpg" />
 </div>
 
 

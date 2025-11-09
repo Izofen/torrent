@@ -6,7 +6,7 @@ Galahad - Beyond The Realms Of Euphoria (2012) [FLAC|Lossless]<Neo Progressive>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131467.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131467.jpgsave_picture_131467.jpg" />
 </div>
 
 
@@ -37,7 +37,7 @@ Galahad - Beyond The Realms Of Euphoria (2012) [FLAC|Lossless]<Neo Progressive>
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131468.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131468.jpgsave_picture_131468.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ magnet:?xt=urn:btih:21A03391D22A2B6128A77792FD7AD5DE381602F4
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131469.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131469.jpgsave_picture_131469.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ magnet:?xt=urn:btih:21A03391D22A2B6128A77792FD7AD5DE381602F4
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131470.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131470.jpgsave_picture_131470.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ magnet:?xt=urn:btih:B90C631CEF3A8D23E17E1F6EFB9235FB2649944D
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131471.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131471.jpgsave_picture_131471.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ magnet:?xt=urn:btih:9B2A003D4B27CA0E57FED093F5FE54AAEF1E34FD
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131472.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131472.jpgsave_picture_131472.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ magnet:?xt=urn:btih:FE16B8D622CC49318AC8720D1F2F2C2C6EFCE08D
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131473.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131473.jpgsave_picture_131473.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ Miss Li - Tangerine Dream (2012) [FLAC|Lossless]<Indie Pop/Blues/Jazz>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131474.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131474.jpgsave_picture_131474.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Miss Li - Tangerine Dream (2012) [FLAC|Lossless]<Indie Pop/Blues/Jazz>
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131475.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131475.jpgsave_picture_131475.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ magnet:?xt=urn:btih:71E3549AD449C778F6053BD51A763C3211F9F189
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131477.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131477.jpgsave_picture_131477.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Bazaart: Photo Editor & Graphic Design v2.4.0 Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131479.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131479.jpgsave_picture_131479.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ magnet:?xt=urn:btih:7D03A7F1DC6BBDD258F6AFA4FA33E69DF67C4CFD
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131480.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131480.jpgsave_picture_131480.jpg" />
 </div>
 
 
@@ -317,7 +317,7 @@ magnet:?xt=urn:btih:879B1DEAF3D5EBB35DA279E1DD5324795DB5E8A3
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131481.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131481.jpgsave_picture_131481.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ magnet:?xt=urn:btih:0E8D37A9213AB457A683B102E128003DE254D0CB
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131483.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131483.jpgsave_picture_131483.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Porcupine Tree - Closure / Continuation.Live (2023) [MP3|320 Kbps] <Progressive 
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131485.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131485.jpgsave_picture_131485.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ Steve Shanahan - Blue Ranchero (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131487.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131487.jpgsave_picture_131487.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ magnet:?xt=urn:btih:CA7685C7712480CCE7351F5C2F8AEB06B2C0CFBA
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131489.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131489.jpgsave_picture_131489.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ FastPictureViewer Pro 1.9.287 [Мульти\Рус.]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131490.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131490.jpgsave_picture_131490.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Toshiyuki Miyama & The New Herd - A Love Story: This Is Latin Music (1970) 2006,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131491.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131491.jpgsave_picture_131491.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ The Runaway Wild - Wild Night (2023) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131493.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131493.jpgsave_picture_131493.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ magnet:?xt=urn:btih:900EEEB4BFBD0A65E251590E3549C3C2CF332ED7
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131495.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131495.jpgsave_picture_131495.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ magnet:?xt=urn:btih:E8BD932FAE28CE781762BD0FBD2EE92BE8E7C974
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131497.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131497.jpgsave_picture_131497.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Porcupine Tree - Closure / Continuation.Live (2023) [FLAC 24/96|Lossless|WEB-DL|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131499.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131499.jpgsave_picture_131499.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Baker & Cas - Hooligans (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues, Rock n Roll
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131501.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131501.jpgsave_picture_131501.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ magnet:?xt=urn:btih:B7B8F3BA46538B6577423CCAE3F1826CBD7E6FC2
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131502.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131502.jpgsave_picture_131502.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ magnet:?xt=urn:btih:7E298310F11E9285A3411A8069AA9FDE3C2B3C22
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131505.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131505.jpgsave_picture_131505.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36521.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36521.jpgsave_picture_36521.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:7B0D2D5DE40058380BA8523D9103C56C57F3CF3B
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36522.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36522.jpgsave_picture_36522.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:C40ECE91EA4C34276311589A4EB29B3E62F51555
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36523.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36523.jpgsave_picture_36523.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:40F9994BE6097D13B9572216D42D92FB73A22853
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36524.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36524.jpgsave_picture_36524.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Once Alive (2024) [Ru/Multi] (0.9.9.8) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36525.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36525.jpgsave_picture_36525.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:7041E0BFF2BD1B96FA5E768E063AB561CF3CFA24
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36526.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36526.jpgsave_picture_36526.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Expeditions: Rome (2022) [Ru/Multi] (1.6.0.741.23995/dlc) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36527.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36527.jpgsave_picture_36527.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:FCE443769BD56636C346D0964BBFF0A958650DC4
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36528.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36528.jpgsave_picture_36528.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:9095BB6EFD0C50D75894B56E47CDDBACBAB0D41F
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36529.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36529.jpgsave_picture_36529.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ AdGuard Ad Blocker  Nightly Premium [No-Root] v4.7.142 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36530.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36530.jpgsave_picture_36530.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ MEGATON MUSASHI W: WIRED (2024) [Multi] (3.1.4/dlc) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36531.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36531.jpgsave_picture_36531.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Cult of the Lamb (2022) [Ru/Multi] (1.4.6/dlc) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36532.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36532.jpgsave_picture_36532.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Microsoft® Windows® 11 x64 Ru 24H2 4in1 Upd 11.2024 by OVGorskiy
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36533.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36533.jpgsave_picture_36533.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ magnet:?xt=urn:btih:9E2EDC7842613494237C5988447F763A29675DC6
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36534.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36534.jpgsave_picture_36534.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ magnet:?xt=urn:btih:4A7D53C5EAD2DB42511772781E3CDDC2D7191F18
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36535.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36535.jpgsave_picture_36535.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ Vaporum: Lockdown (2020) [Ru/Multi] (Patch 5) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36536.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36536.jpgsave_picture_36536.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ magnet:?xt=urn:btih:BB5341EB473240004582D82DD26AE9192185C2F1
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36537.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36537.jpgsave_picture_36537.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ magnet:?xt=urn:btih:635E9812A1F573C4F0C73D8DD769A67ADDD29D82
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36538.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36538.jpgsave_picture_36538.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ magnet:?xt=urn:btih:D3F099E2E3EFE2F89CC1C4B61B4AC1A923B9C292
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36539.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36539.jpgsave_picture_36539.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ magnet:?xt=urn:btih:08CFAD8AABB7E539FCD15333CC041B6E0363303D
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36540.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36540.jpgsave_picture_36540.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ magnet:?xt=urn:btih:91DEB4F489D038E12CC4B3E90D3A96175EADE366
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36541.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36541.jpgsave_picture_36541.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ magnet:?xt=urn:btih:7B00B7501ED87419006FA074593CEFEE982DB57A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36542.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36542.jpgsave_picture_36542.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Revhead (2017) [Multi] (1.9.11049/dlc) Scene Skidrow
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36543.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36543.jpgsave_picture_36543.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ magnet:?xt=urn:btih:096241EC9E98CE19BE504CE13C1B76D8B2BF1495
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36544.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36544.jpgsave_picture_36544.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Windows 11 PRO 23H2 22631.4460 Update 13 by Ghost Spectre [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36545.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36545.jpgsave_picture_36545.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ magnet:?xt=urn:btih:8DE1BAD6C4C4328E3916A28771F5A6C72838687E
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36546.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36546.jpgsave_picture_36546.jpg" />
 </div>
 
 

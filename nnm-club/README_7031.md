@@ -6,7 +6,7 @@ VA - Лучший русский шансон. Сборник № 7 (2017) [MP3|
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240982.jpgsave_picture_240982.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Nat King Cole - BD Jazz (1940 - 1952) 2CD, 2003, Nocturne [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240983.jpgsave_picture_240983.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ EASTERN WIZARD - The Land of Mysteries (2022) [AAC|~326 Kbps] <Organic House, Do
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240984.jpgsave_picture_240984.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Riviere - Passage (2020) [MP3|320 Kbps] <Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240985.jpgsave_picture_240985.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Opera Crypto Browser 97.0.4719.81 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240987.jpgsave_picture_240987.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Adobe Substance 3D Painter 7.4.3 Build 1608 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240988.jpgsave_picture_240988.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ magnet:?xt=urn:btih:4DB430E669BD84801B4A75E4E3CA78AB91EE0775
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240989.jpgsave_picture_240989.jpg" />
 </div>
 
 
@@ -187,7 +187,7 @@ magnet:?xt=urn:btih:25E869FFF5FAC60A400768BBE137BDFBE68B8F7D
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240991.jpgsave_picture_240991.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ magnet:?xt=urn:btih:7FCF473B13EF92006D5FB2E3AA8E147B65009EB8
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240992.jpgsave_picture_240992.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ magnet:?xt=urn:btih:141702F4B5B72CF7C0537E8AE5625FC7EDBBEE7A
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240993.jpgsave_picture_240993.jpg" />
 </div>
 
 
@@ -262,7 +262,7 @@ Primer - Incubator (2022) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Technopop>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240994.jpgsave_picture_240994.jpg" />
 </div>
 
 
@@ -289,7 +289,7 @@ magnet:?xt=urn:btih:22739B248AD8CDC1A4907FAA1907C287A356A309
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240995.jpgsave_picture_240995.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ magnet:?xt=urn:btih:71E40938F17151BA8BCEB700044550960D8D7BE3
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240996.jpgsave_picture_240996.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ GPU Caps Viewer 1.59.0.0 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240997.jpgsave_picture_240997.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ VA - Зайцев.нет Лучшие новинки Апреля (2022) [MP3|32
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241000.jpgsave_picture_241000.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ VA - Сотка популярных весенних хитов от Европ
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241001.jpgsave_picture_241001.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ magnet:?xt=urn:btih:029CAFFC341D3ADD7199B3DDC30169A9FCD7F46A
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241002.jpgsave_picture_241002.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ magnet:?xt=urn:btih:7216E4102465A5C3EB752E08C53C7872A087E95F
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241003.jpgsave_picture_241003.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ magnet:?xt=urn:btih:575C0DA1D23267C3B2E7BEE590FF179B0DEAC28C
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241004.jpgsave_picture_241004.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ magnet:?xt=urn:btih:7127F987097F2ECA5F87F3554CC839AB62CB2463
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241005.jpgsave_picture_241005.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ magnet:?xt=urn:btih:80D742B50FDC0E3C61379E5089D443C08150783D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241006.jpgsave_picture_241006.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ magnet:?xt=urn:btih:C1614EFCF20B04FC3F47BD9C53AB9B8447C855ED
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241007.jpgsave_picture_241007.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ magnet:?xt=urn:btih:188219F667CEBD3AE9839C1B1AD397FFA7B4F83E
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241008.jpgsave_picture_241008.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Perfect Nme - Remains to Be Seen (2020) [MP3|320 Kbps] <Thrash Metal, Heavy Meta
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241009.jpgsave_picture_241009.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ AIMP 5.02 build 2370 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241010.jpgsave_picture_241010.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ magnet:?xt=urn:btih:E29671DF2881BF690F7300F706C906A9B9CB570D
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241011.jpgsave_picture_241011.jpg" />
 </div>
 
 

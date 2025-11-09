@@ -6,7 +6,7 @@
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18786.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18786.jpgsave_picture_18786.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ The Midnight Walk (2025) [Ru/Multi] (Build 18383361) Repack seleZen [VR]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18787.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18787.jpgsave_picture_18787.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:06320BA34FB83A5B7D4CFFE0DB3431CE5FE0CE4B
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18788.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18788.jpgsave_picture_18788.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:66F245010AE42BDBF75E601DA8CF09ABB2BA5980
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18789.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18789.jpgsave_picture_18789.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:24DCE4877AAEB025D34B79E7DD1C2603FD1572B1
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18790.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18790.jpgsave_picture_18790.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:9C779367221AD8C9F4263A98B3041961518857B5
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18791.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18791.jpgsave_picture_18791.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:6EC445A3625242744A5AE8FD7C91ED1ED6418EAD
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18792.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18792.jpgsave_picture_18792.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:61E59480465D4ACF3740C50D48332A6470B8DB5D
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18793.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18793.jpgsave_picture_18793.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:52A004FB58DAD6D0C33858A7C91FD1B0A0E2E9E6
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18794.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18794.jpgsave_picture_18794.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ magnet:?xt=urn:btih:75F1EE151B3459CF9A0F729DE4E3359EC4DDB7CE
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18795.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18795.jpgsave_picture_18795.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ magnet:?xt=urn:btih:75F1EE151B3459CF9A0F729DE4E3359EC4DDB7CE
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18796.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18796.jpgsave_picture_18796.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ magnet:?xt=urn:btih:B914AA53E7059EAE8A30D756777570119DADAF26
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18797.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18797.jpgsave_picture_18797.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ magnet:?xt=urn:btih:58F87579E54F85066FD294714FA8DECD6CA165B8
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18798.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18798.jpgsave_picture_18798.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ magnet:?xt=urn:btih:48C968525B0C3179548E98B9FC4770678AA1C07F
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18799.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18799.jpgsave_picture_18799.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ magnet:?xt=urn:btih:B38E16503572244EB924EF366940601AF5B89E52
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18800.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18800.jpgsave_picture_18800.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ magnet:?xt=urn:btih:B46AC46E6F49BAD9F79EF37DD41198CF458C355C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18801.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18801.jpgsave_picture_18801.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ magnet:?xt=urn:btih:BE622F57A32365FB798EC512A37AFF1ECA3E0D01
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18802.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18802.jpgsave_picture_18802.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ magnet:?xt=urn:btih:C37EE9FB59CFE100B4A74C40B5CE05DEAACC53C4
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18803.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18803.jpgsave_picture_18803.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Volcanoids (2019) [Ru/Multi] (1.33.502.0) Repack Pioneer [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18804.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18804.jpgsave_picture_18804.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ magnet:?xt=urn:btih:A2F87D1831A70A3D253695A2BFBD06E5C50D7BFB
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18805.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18805.jpgsave_picture_18805.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ magnet:?xt=urn:btih:1A77E0D49213E7E96744D0FC87009D4FCD709CA5
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18806.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18806.jpgsave_picture_18806.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ Proton VPN 5.11.29 Mod [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18807.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18807.jpgsave_picture_18807.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Ary and the Secret of Seasons (2020) [Ru/Multi] (1.0) Repack Yaroslav98
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18808.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18808.jpgsave_picture_18808.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ magnet:?xt=urn:btih:735F82A14BE8DAA6206A72E31487CCB354E84105
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18809.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18809.jpgsave_picture_18809.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ magnet:?xt=urn:btih:2CDAF67D7416F0D61F3230F0C6A6F9C64B058078
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18810.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18810.jpgsave_picture_18810.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Breath of Fire IV (4) (2000) [Multi] (1.0 HotFix 4) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18811.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18811.jpgsave_picture_18811.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Aeonian Sorrow - Studio Albums (4 releases) (2018-2025) hand made [restored, dec
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68420.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68420.jpgsave_picture_68420.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Nightwish - Amaranth (2007) (Single) [FLAC|24/192|image + .cue|Vinyl-Rip] <Symph
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68435.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68435.jpgsave_picture_68435.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Einherjer - Dragons of the North XX (1996) Released, 2016, Circle Of The 111 Vin
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68466.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68466.jpgsave_picture_68466.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Einherjer - Av oss, for oss (2014) [FLAC|24/192|image + .cue|Vinyl-Rip] <Viking 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68467.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68467.jpgsave_picture_68467.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Occult - Prepare to Meet Thy Doom (1994) Released, 2016, Cosmic Key Creations [F
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68469.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68469.jpgsave_picture_68469.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Nightwish - End Of An Era (2006) Live, Reissue, 2018, Nuclear Blast [FLAC|24/192
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68486.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68486.jpgsave_picture_68486.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Defacement - Defacement (2021) [FLAC|24/192|image + .cue|Vinyl-Rip] <Death, Blac
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68522.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68522.jpgsave_picture_68522.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Don Dokken - Up From The Ashes (1990) [APE|24/96|image + .cue|Vinyl-Rip] <Hard R
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68534.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68534.jpgsave_picture_68534.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ Nightwish - Once (2004) Released, 2013, Nuclear Blast [FLAC|24/192|image + .cue|
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68535.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68535.jpgsave_picture_68535.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Einherjer - Norrøn (2011) [FLAC|24/192|image + .cue|Vinyl-Rip] <Viking Metal>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68560.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68560.jpgsave_picture_68560.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Occult - 1992-1993 (2016) (Compilation) [FLAC|24/192|image + .cue|Vinyl-Rip] <De
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68561.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68561.jpgsave_picture_68561.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Nightwish - Century Child (2002) Released, 2015, Spinefarm Records [FLAC|24/192|
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68574.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68574.jpgsave_picture_68574.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Sebastian Bach - Kicking & Screaming (2011) [FLAC|24/96|image + .cue|Vinyl-Rip] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68595.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68595.jpgsave_picture_68595.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Solefald - Norron livskunst (2010) [FLAC|24/192|image + .cue|Vinyl-Rip] <Post-Bl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68619.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68619.jpgsave_picture_68619.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Nightwish - Century Child (2002) Released, 2007, Universal Music Group Internati
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68635.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68635.jpgsave_picture_68635.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Metallica - Load (1996) Released, 2001, Vertigo [FLAC|24/192|tracks|Vinyl-Rip] <
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68645.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68645.jpgsave_picture_68645.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ Einherjer - Odin Owns Ye All (1998) Released, 2020, Funeral Industries [WavPack|
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68678.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68678.jpgsave_picture_68678.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Autopsy - The Tomb Within (2010) EP, Released, 2017, Peaceville [WavPack|32/192|
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68679.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68679.jpgsave_picture_68679.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Nightwish - Over the Hills and Far Away (2001) EP, Released, 2014, Music On Viny
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68689.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68689.jpgsave_picture_68689.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Savatage - Handful of Rain (1994) Released, 2022, Ear Music Classics [FLAC|24/96
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68695.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68695.jpgsave_picture_68695.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ Switch Opens - Switch Opens (2009) Released, 2010, GMR Music Group [WavPack|32/1
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68726.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68726.jpgsave_picture_68726.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Solefald - Pills Against The Ageless Ills (2001) Released, 2021, Abstract Emotio
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68729.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68729.jpgsave_picture_68729.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ Nightwish - Wishmaster (2000) [FLAC|24/192|image + .cue|Vinyl-Rip] <Symphonic Po
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68735.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68735.jpgsave_picture_68735.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ Nightwish - Wishmaster (2000) Released, 2015, Spinefarm Records [FLAC|24/192|ima
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68760.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68760.jpgsave_picture_68760.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ Siberian - Modern Age Mausoleum (2014) [WavPack|32/192|image + .cue|Vinyl-Rip] <
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68771.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68771.jpgsave_picture_68771.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ Nightwish - Oceanborn (1998) Released, 2010, Drakkar Records [FLAC|24/192|image 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68775.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68775.jpgsave_picture_68775.jpg" />
 </div>
 
 

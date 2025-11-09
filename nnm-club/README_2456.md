@@ -6,7 +6,7 @@
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64606.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64606.jpgsave_picture_64606.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:4E690FA32C974DC17CE6E3F9E1A80D087C72539A
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64607.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64607.jpgsave_picture_64607.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ Roxette - It Must Have Been Love (CDM) (1990) 1st German Press [APE|Lossless|ima
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64608.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64608.jpgsave_picture_64608.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ iDownerGo Video Downloader 10.6.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64609.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64609.jpgsave_picture_64609.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:F6C3E8A11C72D755F766DBC8F138550C5C16D316
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64610.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64610.jpgsave_picture_64610.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ magnet:?xt=urn:btih:CB2084C7FCC04D0D0434CE37E967A6A17E49FC95
 >>Трейлеры (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64611.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64611.jpgsave_picture_64611.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ Genius Art: Image AI Generator v1.4.3 Mod by vadj [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64612.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64612.jpgsave_picture_64612.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ magnet:?xt=urn:btih:2A8D0542F4A09B8CB7335C2A6A16EE86E76EE736
 >>Картинки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64613.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64613.jpgsave_picture_64613.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ The Alan Parsons Project - Collection (1976-1987) [DSD 128|tracks|Vinyl-Rip] <Ro
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64614.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64614.jpgsave_picture_64614.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ magnet:?xt=urn:btih:8C8FA323DC7C23C2EDFA43C9EF2A7C3FF27ABCC4
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64615.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64615.jpgsave_picture_64615.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ magnet:?xt=urn:btih:9E4D76D3B8A0B59A2D4D4F0F10D0611BF00F5660
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64616.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64616.jpgsave_picture_64616.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ magnet:?xt=urn:btih:C0F4BA805B1FFC2E230094C9624FB32F1E1E813B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64617.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64617.jpgsave_picture_64617.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ Allavsoft Video Downloader Converter 3.28.2.9336 RePack (& Portable) by elchupac
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64618.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64618.jpgsave_picture_64618.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ XYplorer 27.10.0200 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64619.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64619.jpgsave_picture_64619.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ magnet:?xt=urn:btih:0BAAE191196FE81FE23588BDD2EBB91CD2CBF018
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64620.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64620.jpgsave_picture_64620.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ magnet:?xt=urn:btih:173A98DA99FBF49A7D0AF02C13DAA8C06E8DB11A
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64621.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64621.jpgsave_picture_64621.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Microsoft Visual Studio 2022 Professional 17.14.10 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64622.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64622.jpgsave_picture_64622.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ magnet:?xt=urn:btih:27291F9D7B19841F4F9C6C44517260E56AA80773
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64623.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64623.jpgsave_picture_64623.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Findroid | Возвращение демонического мастера (К�
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64624.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64624.jpgsave_picture_64624.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ magnet:?xt=urn:btih:D5F33C7D4A2BBFCD5FDECFFF5D95827A274C7102
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64625.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64625.jpgsave_picture_64625.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ magnet:?xt=urn:btih:622F3CCF3543D532FCA162C978A813303E00A6FA
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64626.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64626.jpgsave_picture_64626.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ magnet:?xt=urn:btih:622F3CCF3543D532FCA162C978A813303E00A6FA
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64627.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64627.jpgsave_picture_64627.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:950118982FA72DDC7DFFEF77219F696B5B8E4827
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64628.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64628.jpgsave_picture_64628.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Findroid | Возвращение демонического мастера (К�
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64629.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64629.jpgsave_picture_64629.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Bengal Tigers - Cry Havoc (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64630.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64630.jpgsave_picture_64630.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ magnet:?xt=urn:btih:CB8F72FE4A3CF8E88234F8C4B227B9384DA54580
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64631.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64631.jpgsave_picture_64631.jpg" />
 </div>
 
 

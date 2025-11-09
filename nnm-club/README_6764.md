@@ -6,7 +6,7 @@ PowerDirector – Video Editor 12.3.0 Mod by 0x7d [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232759.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232759.jpgsave_picture_232759.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:36DF65B18042923A9159E118458E8F154C722F22
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232760.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232760.jpgsave_picture_232760.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Dizzy Gillespie Quintet featuring Lalo Schifrin - A Musical Safari (1961) 2015, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232761.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232761.jpgsave_picture_232761.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:8DFBA0E0EFB5BC1636AA2A1E457A34EA16E32176
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232763.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232763.jpgsave_picture_232763.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Text Edit Plus 12.8 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232766.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232766.jpgsave_picture_232766.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ ISO Workshop 12.0 Pro RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232767.jpgsave_picture_232767.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ Chemicide - Common Sense (2022) [MP3|320 Kbps] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232768.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232768.jpgsave_picture_232768.jpg" />
 </div>
 
 
@@ -187,7 +187,7 @@ magnet:?xt=urn:btih:E70BB61A0B02777EDD3B48204C5737B054B80FD5
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232771.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232771.jpgsave_picture_232771.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ Text Workflow 1.6.4  [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232772.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232772.jpgsave_picture_232772.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ Windows 11 Manager 1.2.6 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232773.jpgsave_picture_232773.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ magnet:?xt=urn:btih:5EC00337D015396E34943641D87075B107702578
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232774.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232774.jpgsave_picture_232774.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ magnet:?xt=urn:btih:807DA7F93B938D660E907F32647AA8AA2991F2DD
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232777.jpgsave_picture_232777.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ magnet:?xt=urn:btih:34EA5F5BDC799D6A899F206C995018C1E3D59FD5
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232778.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232778.jpgsave_picture_232778.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ Lift The Curse - Suffer And Survive (2023) [FLAC|Lossless|WEB-DL|tracks] <Alt.Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232781.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232781.jpgsave_picture_232781.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ Voodoo Trees - Ego Death (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Stone
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232783.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232783.jpgsave_picture_232783.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ A Life Divided - Down The Spiral Of A Soul (2023) [FLAC|24/44.1|tracks|WEB-DL] <
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232785.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232785.jpgsave_picture_232785.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ magnet:?xt=urn:btih:34F4063CDCF284BC27576E7C8F371FB7055A4CC1
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232786.jpgsave_picture_232786.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ SiteSucker 5.1.8 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232787.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232787.jpgsave_picture_232787.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ magnet:?xt=urn:btih:E893207F5468201B7BF390436F2FD80C4E6A343C
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232788.jpgsave_picture_232788.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ HitPaw Screen Recorder for Mac 1.0.4 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232789.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232789.jpgsave_picture_232789.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Beelinguapp 2.935 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232793.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232793.jpgsave_picture_232793.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ VueScan Pro 9.8.02 (24.05.2023) RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232794.jpgsave_picture_232794.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Emma Hewitt - Ghost of the Light (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressi
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232795.jpgsave_picture_232795.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ VA - Armin van Buuren - A State Of Trance 1126 (2023) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232796.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232796.jpgsave_picture_232796.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Kenny Drew Jr. Trio - Portraits Of Charles Mingus & Thelonious Monk (1995) Clave
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232797.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232797.jpgsave_picture_232797.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ The Jimmy Giuffre 3 - The Easy Way (1959) 2003, Verve Records [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232800.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232800.jpgsave_picture_232800.jpg" />
 </div>
 
 

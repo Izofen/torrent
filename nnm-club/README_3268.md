@@ -6,7 +6,7 @@
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105329.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105329.jpgsave_picture_105329.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:A69B54C2AEE39DDE9443BA34C6852162760F285A
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105330.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105330.jpgsave_picture_105330.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Spektra - Hypnotized (2024) Japanese Edition [FLAC|Lossless|image + .cue] <Melod
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105331.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105331.jpgsave_picture_105331.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ MotoGP. Этап 11 из 20. Гран-при Австрии. Гонка (18.08.2
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105332.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105332.jpgsave_picture_105332.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:79F19B29D344364BB4F3FD2709CE1AD87B7790CC
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105333.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105333.jpgsave_picture_105333.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:4FCF72045667F900D1B0736E30A8DD0A2CDE25E5
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105334.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105334.jpgsave_picture_105334.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:8C0474EE80B280C3B75FB80370F0A4F78942DFD6
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105335.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105335.jpgsave_picture_105335.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:BCECC631A298071A0C220D853324E129CB19597B
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105336.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105336.jpgsave_picture_105336.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ Master Spensor - Чужой (2009) [WavPack|Lossless|image + .cue] <Rap, Hip Hop
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105337.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105337.jpgsave_picture_105337.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ magnet:?xt=urn:btih:B02D0285D00459BAEEDA8C91871EE780C307A2BB
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105338.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105338.jpgsave_picture_105338.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ Nestor - Teenage Rebel (2024) Japanese Edition [FLAC|Lossless|image + .cue] <Mel
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105339.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105339.jpgsave_picture_105339.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ magnet:?xt=urn:btih:66E0758CAAEE1A02E8E8A4046688EAD7C59F1034
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105340.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105340.jpgsave_picture_105340.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ magnet:?xt=urn:btih:2ED191E724181B5481DD9C03423878256F78C525
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105341.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105341.jpgsave_picture_105341.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ magnet:?xt=urn:btih:80A54251AAA0DDF77C0C4EEE92D1B5A057C75799
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105342.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105342.jpgsave_picture_105342.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ magnet:?xt=urn:btih:372FBD71C7FC597EABA41DE3F42A5243AD21A7B5
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105343.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105343.jpgsave_picture_105343.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ And So I Watch You From Afar - 7 Albums (2009-2024) [MP3|320 Kbps] <Post-Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105344.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105344.jpgsave_picture_105344.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ PowerDirector – Video Editor v14.3.0 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105345.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105345.jpgsave_picture_105345.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ PeaZip 9.9.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105346.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105346.jpgsave_picture_105346.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ Johann-Strauss-Orchester - Opernball (2008) [WavPack|Lossless|image + .cue] <Cla
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105347.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105347.jpgsave_picture_105347.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ Logic - Ultra 85 (2024) [MP3|320 Kbps] <Hip-Hop, Rap>
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105348.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105348.jpgsave_picture_105348.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ magnet:?xt=urn:btih:0854CE2643D4DF02C08448609B24A2651789253F
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105349.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105349.jpgsave_picture_105349.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ magnet:?xt=urn:btih:00D104D4265EFA26440B4C10BF45DBD19D4161E6
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105350.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105350.jpgsave_picture_105350.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ DailyArt - Daily Dose of Art v3.3.1 Mod by youarefinished [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105351.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105351.jpgsave_picture_105351.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Kalax - LOST (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Synthwave>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105352.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105352.jpgsave_picture_105352.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ Kalax - LOST (2024) [MP3|320 Kbps] <Synthwave>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105353.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105353.jpgsave_picture_105353.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ magnet:?xt=urn:btih:E661143B3E1EC5ABDEF8835A5370476374505865
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105354.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105354.jpgsave_picture_105354.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103332.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103332.jpgsave_picture_103332.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Suidakra - Darkanakrad (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103333.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103333.jpgsave_picture_103333.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Laurindo Almeida - Concierto de Aranjuez (1978) 1984, East Wind [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103334.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103334.jpgsave_picture_103334.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Viperwitch - Witch Hunt: Road to Vengeance (2024) [FLAC|Lossless|WEB-DL|tracks] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103335.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103335.jpgsave_picture_103335.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Toshiko Akiyoshi Trio - Time Stream (1985) Toshiba-EMI [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103336.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103336.jpgsave_picture_103336.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Bunkiman - Bunkiman 2023 Best (2024) [FLAC|Lossless|WEB-DL|tracks] <Electro Swin
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103337.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103337.jpgsave_picture_103337.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ MotoGP. Этап 19 из 20. Гран-при Малайзии. Гонка (03.11
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103338.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103338.jpgsave_picture_103338.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Frank Sinatra - Where Are You? (2002) Capitol Records [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103339.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103339.jpgsave_picture_103339.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ magnet:?xt=urn:btih:1FD688184A250D65D5C93B4D971E4893D13B0255
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103340.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103340.jpgsave_picture_103340.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Brad Smith - Broken Bones & Bullet Holes (2024) [FLAC|Lossless|WEB-DL|tracks] <H
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103341.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103341.jpgsave_picture_103341.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ magnet:?xt=urn:btih:CD9484D9693E2B67A3E989ADBF0BE474BE64F408
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103342.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103342.jpgsave_picture_103342.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:97738DC86294B872ED1D79C211D7D4A25F3C9A7B
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103343.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103343.jpgsave_picture_103343.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Molly Miller Trio - Last Sunday (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Ja
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103344.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103344.jpgsave_picture_103344.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ magnet:?xt=urn:btih:2E2A059FDB149A0F922AF3B218B918EA9F74010A
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103345.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103345.jpgsave_picture_103345.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Pink Magic Orchestra - Pink Magic Orchestra (2024) [FLAC 24/48|Lossless|WEB-DL|t
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103346.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103346.jpgsave_picture_103346.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ magnet:?xt=urn:btih:FB18FD4570B4678E44389DED22BE0B609E795730
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103347.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103347.jpgsave_picture_103347.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Odrysian - Third Eye Blind (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz Fusi
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103348.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103348.jpgsave_picture_103348.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Michael Mayo - Fly (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Vocal Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103349.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103349.jpgsave_picture_103349.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Randy Hoexter - Tomorrowsville (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Con
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103350.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103350.jpgsave_picture_103350.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ magnet:?xt=urn:btih:C5AD40454D48C9289AC968B3BBF5C4907125A56F
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103351.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103351.jpgsave_picture_103351.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ magnet:?xt=urn:btih:8480166AF4DEC05A4E89912E29FBF30C8CA8926F
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103352.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103352.jpgsave_picture_103352.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ magnet:?xt=urn:btih:6BA8DB3DE327EFD6057162CF6568D8034EAA1618
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103353.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103353.jpgsave_picture_103353.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Hayla - Dusk (2024) [FLAC|Lossless|WEB-DL|tracks] <Dance>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103354.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103354.jpgsave_picture_103354.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Firefox Browser 132.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103355.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103355.jpgsave_picture_103355.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Togu Audio Line - TAL-J-8 1.9.0 VSTi, VSTi 3, AAX, CLAP (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103356.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103356.jpgsave_picture_103356.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ magnet:?xt=urn:btih:9D5246A21E7BC937C96CDEB7CAE1FD66DD12FD43
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103357.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103357.jpgsave_picture_103357.jpg" />
 </div>
 
 

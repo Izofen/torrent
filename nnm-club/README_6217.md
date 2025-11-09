@@ -6,7 +6,7 @@ JetBrains IntelliJ IDEA Ultimate for Mac 2023.1.4 Intel/ARM [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195130.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195130.jpgsave_picture_195130.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Maxthon Browser 7.1.6.1000 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195132.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195132.jpgsave_picture_195132.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Ape Out (2019) [Ru/Multi] (1.3) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_195133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195133.jpgsave_picture_195133.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ SanDisk (Western Digital) SSD Dashboard 3.8.2.10 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195134.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195134.jpgsave_picture_195134.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:B54717A2B5BDC4FF68C05D7947F5F73F15EB1CBF
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_195135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195135.jpgsave_picture_195135.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ macOS 14 Sonoma Public 1 Beta (Installer) [Multi/Ru]
 >>macOS (Apple)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195136.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195136.jpgsave_picture_195136.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:4A85FB8D69763A5B84655F6320C90F16393BE763
 >>Авторская и Военная песня (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_195137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195137.jpgsave_picture_195137.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:A954DD1D7381E5067226BB82D3DDCD270DF904EC
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195138.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195138.jpgsave_picture_195138.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ magnet:?xt=urn:btih:DDEFD8147B035DB97053E00FCCC857DD9B668A9D
 >>Авторская и Военная песня (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_195139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195139.jpgsave_picture_195139.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ HWiNFO 7.60 Build 5170 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195140.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195140.jpgsave_picture_195140.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ magnet:?xt=urn:btih:FD38CC5D1669689A66200E9A070A79865FE2A7DB
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_195141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195141.jpgsave_picture_195141.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ magnet:?xt=urn:btih:FEC45DC60FB632396562AFB84FD0D772AF40521F
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195142.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195142.jpgsave_picture_195142.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ magnet:?xt=urn:btih:8D9778BA56E53CAE23A1BFD5656D2AD6EA61993C
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_195143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195143.jpgsave_picture_195143.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ magnet:?xt=urn:btih:CED78C8D34012DF635AFE564676FB16EDCB23965
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195144.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195144.jpgsave_picture_195144.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ magnet:?xt=urn:btih:C8C6C0D303970F685118336309A77574A40DE8E0
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_195145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195145.jpgsave_picture_195145.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ Floorp Browser 10.16.0 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195146.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195146.jpgsave_picture_195146.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ magnet:?xt=urn:btih:7D28D5247579B10466A7923FE5D0E315BDA05B2F
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_195147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195147.jpgsave_picture_195147.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ Luminar Neo 1.12.2 U2B [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195148.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195148.jpgsave_picture_195148.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ magnet:?xt=urn:btih:23576CA3A9ABDF16B345422DB87E56F06EFADADB
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_195149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195149.jpgsave_picture_195149.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ Visual Studio Code 1.80.0 + Автономная версия (standalone) [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195150.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195150.jpgsave_picture_195150.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ magnet:?xt=urn:btih:85172AA16B6C529D15FD117B6BF55A0B6D4306EA
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195151.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195151.jpgsave_picture_195151.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Daniel Sipos | Drupal 10 Module Development (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195152.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195152.jpgsave_picture_195152.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ magnet:?xt=urn:btih:A6A35FF19051C30F37FAE6EAC93467169734925C
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_195153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195153.jpgsave_picture_195153.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ magnet:?xt=urn:btih:6C57A2DCE53B9FE34A8E78D8B40DDECEB7F15954
 >>Авторская и Военная песня (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_195154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195154.jpgsave_picture_195154.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ magnet:?xt=urn:btih:1DD80CAFD99A879417E2D762271D07CC814CBE9F
 >>Авторская и Военная песня (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_195155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195155.jpgsave_picture_195155.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ The Repair House: Restoration Sim (2023) [Multi] (1.0) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195156.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195156.jpgsave_picture_195156.jpg" />
 </div>
 
 

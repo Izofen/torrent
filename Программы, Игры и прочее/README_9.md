@@ -6,7 +6,7 @@ Email Aqua Mail - Fast, Secure v1.55.1 Pro Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17374.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17374.jpgsave_picture_17374.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ File Manager Plus / Файловый менеджер + v3.5.9 Mod by Balatan [R
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17477.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17477.jpgsave_picture_17477.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Face Swap - AI Photo Editor v1.4.1 Mod by MixRoot [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17573.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17573.jpgsave_picture_17573.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ Adguard Pro 4.10.35 Mod by FreeApkexe [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18001.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18001.jpgsave_picture_18001.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ Fitness Online / Фитнес онлайн v2.20.5 Mod by vadj [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18005.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18005.jpgsave_picture_18005.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Motivation - Каждый день v4.79.2 Mod by PieMods [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18321.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18321.jpgsave_picture_18321.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:97D22D022A3930BD7360B7D4AB8A1CA38B32A5E9
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18325.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18325.jpgsave_picture_18325.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ TestMaker / Создатель запоминания v10.5.1 Mod by PieMods [Ru
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18326.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18326.jpgsave_picture_18326.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Darts Club: PvP Multiplayer v6.0.3 Mod by Viktorovich31 [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18452.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18452.jpgsave_picture_18452.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ Squid - рукописные заметки v4.4.0 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18598.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18598.jpgsave_picture_18598.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:2ED73128326FC1331ED310BC2DC56FECBA838A07
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18604.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18604.jpgsave_picture_18604.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ TickTick: Список дел и задачи v7.6.6.0 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18652.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18652.jpgsave_picture_18652.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Blaze - Виртуальный Камин 4K v1.8.0 Mod by SurvivalHorror [Ru/Mu
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18674.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18674.jpgsave_picture_18674.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ EPIK - AI Photo & Video Editor 5.6.22 Mod by MustHave [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18724.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18724.jpgsave_picture_18724.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ WPS Office + PDF v18.17.1 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18738.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18738.jpgsave_picture_18738.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ CCleaner Pro: ПО для очистки 25.08.0 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18752.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18752.jpgsave_picture_18752.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ WeNote: заметки блокнот планер v6.32 Mod by Balatan [Ru/Mult
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18819.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18819.jpgsave_picture_18819.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ Garage: Bad Dream Adventure v1.1.263 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18864.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18864.jpgsave_picture_18864.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ Through the Darkest of Times v1.0.18 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18944.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18944.jpgsave_picture_18944.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Sunset Hills v1.0.22 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18949.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18949.jpgsave_picture_18949.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ Brave People WW2 Point & click / Храбрые люди vBuild 265 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18950.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18950.jpgsave_picture_18950.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Voodoo Detective v0.0.33 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18952.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18952.jpgsave_picture_18952.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ TMNT: Shredder's Revenge v1.2.15 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18958.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18958.jpgsave_picture_18958.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Eastern Exorcist v1.00.0 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18973.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18973.jpgsave_picture_18973.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Way of the Hunter Wild America v1.0.1 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19173.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19173.jpgsave_picture_19173.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ GIF Maker - GIF Editor v3.0.4 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19241.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19241.jpgsave_picture_19241.jpg" />
 </div>
 
 

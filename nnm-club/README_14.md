@@ -6,7 +6,7 @@ Circus of Pain (2025) [Ru/Multi] (1.02) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_393.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_393.jpgsave_picture_393.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:48A0F81D511507A1433CB16E6D8AF4E2ACD949A4
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_394.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_394.jpgsave_picture_394.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:C0EF55D404B0FF95AF84E3E41135B7AD58363AF8
 >>Сериалы DC Comics
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_395.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_395.jpgsave_picture_395.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:BC6E492D38E7E6BEC9F3BEA006B4B3AAB3479138
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_396.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_396.jpgsave_picture_396.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:BC6E492D38E7E6BEC9F3BEA006B4B3AAB3479138
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_397.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_397.jpgsave_picture_397.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:20AFF6714F58AF19A5CD726409CDFF27FB663A00
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_398.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_398.jpgsave_picture_398.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:236504E2649A163FC73EEDE2F1487FA06FE89F98
 >>Сериалы DC Comics
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_399.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_399.jpgsave_picture_399.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Kaijuu 8 Gou (2025) | Kaiju No. 8 (2025) | Кайдзю номер 8 [ТВ-2] [2
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_400.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_400.jpgsave_picture_400.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:77597E3D537C95142B6CD97B427BE0AD7B4CFC6D
 >>Сериалы DC Comics
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_401.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_401.jpgsave_picture_401.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:72481BE0FD1341D2F9DDE87C62915AB9234F4314
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_402.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_402.jpgsave_picture_402.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ magnet:?xt=urn:btih:69B8F69C5466994DEDB308559D77992491F28181
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_403.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_403.jpgsave_picture_403.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ magnet:?xt=urn:btih:A1FACC4B499813A47CA17B01167240D5A89887C9
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_404.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_404.jpgsave_picture_404.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Fights in Tight Spaces (2021) [Ru/Multi] (1.2.11564 HF2)/dlc) Repack Let'sРlay 
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_405.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_405.jpgsave_picture_405.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ magnet:?xt=urn:btih:0E870A851AB1CD52B3AC6144ED5635DA511C2648
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_406.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_406.jpgsave_picture_406.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ magnet:?xt=urn:btih:D69ECCCE841CACB0398A7EC6E61B43EDEF33FCAA
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_407.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_407.jpgsave_picture_407.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ magnet:?xt=urn:btih:C200DCA44E5B5249A5AB1D210C9B42A7EC8C645C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_408.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_408.jpgsave_picture_408.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ magnet:?xt=urn:btih:3F9481B6FBA1A69C53FB0F9A31F0A1DFE0DAB923
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_409.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_409.jpgsave_picture_409.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ magnet:?xt=urn:btih:0B09F1855AB8733DFC867712C8B1046F6816B34A
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_410.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_410.jpgsave_picture_410.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Hades II (2024) [Ru/Multi] (1.131346) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_411.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_411.jpgsave_picture_411.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ magnet:?xt=urn:btih:35D863CA2364F103478223D4A13F3853AA448BE0
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_412.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_412.jpgsave_picture_412.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ magnet:?xt=urn:btih:AE87ACFC45840D543DD83B89E00015185E3EB194
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_413.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_413.jpgsave_picture_413.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ Ruri no Houseki / Ruri Rocks / Рури любит камни [2025, TV, 13] WEB
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_414.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_414.jpgsave_picture_414.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ magnet:?xt=urn:btih:6603BF775B7715A5D2628073AF3049303EC54ACC
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_415.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_415.jpgsave_picture_415.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ magnet:?xt=urn:btih:73E258DD6BAA6762C55A0A785340A41BD953E4EC
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_416.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_416.jpgsave_picture_416.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ magnet:?xt=urn:btih:4DD04199E115324FDFBA889C85B62496D98F1AD0
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_417.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_417.jpgsave_picture_417.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Windows 11 Pro х64 Version 24H2 Build 26100.6584 by Igors_VL [RU]
 >>Сборки Windows 11
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_418.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_418.jpgsave_picture_418.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133340.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133340.jpgsave_picture_133340.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:9A97B2CFAF91506189EFA6F2A1869D192689A490
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133341.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133341.jpgsave_picture_133341.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:8EB64267D67369DFFC334B786D4F8980C577DA7D
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133342.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133342.jpgsave_picture_133342.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Enterclass, Илья Ибряев | Состояние неба. Пейзажи 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133343.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133343.jpgsave_picture_133343.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ James Last - Non Stop Dancing Box (2023) 20 CD, Polydor [ACC|360 Kbps] <Instrume
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133344.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133344.jpgsave_picture_133344.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:C14E263208539F9CAE1C8C7115C5C5A52EB8B1B8
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133345.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133345.jpgsave_picture_133345.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:9492333815215B537C0CBD8F1497A15DB5C183A1
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133346.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133346.jpgsave_picture_133346.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Topaz Photo AI 2.1.3 (x64) RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133348.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133348.jpgsave_picture_133348.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:8228D5C4F086888B33ABC2CDC93F03F2F2DB7486
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133349.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133349.jpgsave_picture_133349.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Fancy - Viva La Vida (2023) [FLAC|Lossless|WEB-DL|tracks] <Euro-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133350.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133350.jpgsave_picture_133350.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Ashampoo Photo Optimizer 10.0.0.19 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133352.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133352.jpgsave_picture_133352.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:84F920BB1E91D3D4B6AF035BD0397FF0CFE28429
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133353.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133353.jpgsave_picture_133353.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Telegram Desktop 4.12.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133354.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133354.jpgsave_picture_133354.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ magnet:?xt=urn:btih:822D1CBE1B1EE19E0A4C487BA52C99ABF0A78541
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133356.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133356.jpgsave_picture_133356.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ magnet:?xt=urn:btih:B56BE4AC766692AFED4371FE42D354FF2AED8923
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133357.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133357.jpgsave_picture_133357.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Topaz Photo AI for Mac 2.1.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133358.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133358.jpgsave_picture_133358.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ The Darkness 2 / II: Limited Edition [Ru/En] (L/1.0/4 DLC) 2012 | 2DVD5
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133359.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133359.jpgsave_picture_133359.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Adobe Director MX 2004 [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133360.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133360.jpgsave_picture_133360.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Torchlight 2 [WineSkin]
 >>Strategy, RPG для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133361.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133361.jpgsave_picture_133361.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ MediaInfo 23.11 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133362.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133362.jpgsave_picture_133362.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ magnet:?xt=urn:btih:30B41F19A72F6E504C592471F257CF13DF4A868A
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133363.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133363.jpgsave_picture_133363.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ magnet:?xt=urn:btih:30B41F19A72F6E504C592471F257CF13DF4A868A
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133364.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133364.jpgsave_picture_133364.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ magnet:?xt=urn:btih:C7AB385B4CC8673B39CFD0F32FC1F7F5E13334F3
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133367.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133367.jpgsave_picture_133367.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ magnet:?xt=urn:btih:C7AB385B4CC8673B39CFD0F32FC1F7F5E13334F3
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133368.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133368.jpgsave_picture_133368.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ RealPlayer 16.0.0.282 [English]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133369.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133369.jpgsave_picture_133369.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Sparrow 1.6.4 [EN+RU]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133370.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133370.jpgsave_picture_133370.jpg" />
 </div>
 
 

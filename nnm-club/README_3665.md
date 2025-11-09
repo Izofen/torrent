@@ -6,7 +6,7 @@ Anubis - Dark Paradise (2024) [FLAC|Lossless|WEB-DL|tracks] <Power, Thrash Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115665.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115665.jpgsave_picture_115665.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Blutgott - Drachenkult (Balgeroth Version) (2024) [FLAC|Lossless|WEB-DL|tracks] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115666.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115666.jpgsave_picture_115666.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Without Me - Revelations (2022) [FLAC|Lossless|WEB-DL|tracks] <Post-Hardcore>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115667.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115667.jpgsave_picture_115667.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ He Was A God - Muckraker (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Progressive
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115668.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115668.jpgsave_picture_115668.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Avacost - A Peace of the Sky (1993) Reissue 2010, Nudibranch Records [FLAC|Lossl
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115669.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115669.jpgsave_picture_115669.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Mezzrow - Then Came The Demos (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Thra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115670.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115670.jpgsave_picture_115670.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Saffire - For The Greater Good (2015) Redux, 2024, Rock Of Angels Records [FLAC 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115671.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115671.jpgsave_picture_115671.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Cycleam - Dream Cycle (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Thrash Metal
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115672.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115672.jpgsave_picture_115672.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Sullivan Fortner - Moments Preserved (2018) Impulse! [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115673.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115673.jpgsave_picture_115673.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Rodney Whitaker - All Too Soon: The Music Of Duke Ellington (2017) 2019, Origin 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115674.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115674.jpgsave_picture_115674.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Blue Mitchell - Boss Horn (1966) 2005, Blue Note [FLAC|Lossless|tracks + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115675.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115675.jpgsave_picture_115675.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Marian McPartland - Just Friends (1998) Concord Jazz [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115676.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115676.jpgsave_picture_115676.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:0EFA722447CE40BE206E431A75AE02B3585A9A29
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115677.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115677.jpgsave_picture_115677.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ magnet:?xt=urn:btih:58DF5A55FC191F72C4DB9033002BB5F982413718
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115678.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115678.jpgsave_picture_115678.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ magnet:?xt=urn:btih:C322D8A9E4B536E6ADCD4378AEC5C335FABB956A
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115679.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115679.jpgsave_picture_115679.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ Yes - Drama (1993 (1980)) [FLAC 24/192|Lossless|tracks] <Prog Rock, Classic Rock
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115680.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115680.jpgsave_picture_115680.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ magnet:?xt=urn:btih:C22259174722198FBDA1B17E0E78CA4C4919794A
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115681.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115681.jpgsave_picture_115681.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ Public Image Limited - End Of World (2023) Japanese Edition [FLAC|Lossless|image
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115682.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115682.jpgsave_picture_115682.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ magnet:?xt=urn:btih:2E160652DA6DFB0A75A9FD3FE3C075B9C077B793
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115683.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115683.jpgsave_picture_115683.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ Kyuss - Studio Albums (4 releases) (1991-1995) hand made [restored, declipped] [
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115684.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115684.jpgsave_picture_115684.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ magnet:?xt=urn:btih:B93F25AEA29F1A18F38064095A3A9A56D4AB36F2
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115685.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115685.jpgsave_picture_115685.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Without Me - Revelations (2022) Deluxe Edition, 2024, Without Me [FLAC|Lossless|
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115686.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115686.jpgsave_picture_115686.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ magnet:?xt=urn:btih:448F3A158C2FD01007F99FC6E052B41DA8AC9765
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115687.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115687.jpgsave_picture_115687.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ magnet:?xt=urn:btih:597F7F8C7C703543E64E0DF06506248331D6682D
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115688.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115688.jpgsave_picture_115688.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ magnet:?xt=urn:btih:BEE23F42BE27DF7DA99846AC0D500BCB4AC35CD1
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115689.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115689.jpgsave_picture_115689.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ magnet:?xt=urn:btih:1DB1C79624086E97661A1DC795A53C585C225202
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115690.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115690.jpgsave_picture_115690.jpg" />
 </div>
 
 

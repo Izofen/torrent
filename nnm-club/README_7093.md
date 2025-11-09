@@ -6,7 +6,7 @@ The Korea - Яд (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal, Modern
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243304.jpgsave_picture_243304.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ A.K. Salim - Blues Suite (1958) 1991, Savoy[FLAC|Lossless|image + .cue] <Hard Bo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243305.jpgsave_picture_243305.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Valentino Mora - Underwater (2021) Spazio Disponibile [FLAC|Lossless|WEB-DL|trac
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243306.jpgsave_picture_243306.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:1195B8920777A0A5DFEEC3BAA80A379BF3428613
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243307.jpgsave_picture_243307.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Blodkvalt - Algor Mortis (2022) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243308.jpgsave_picture_243308.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Receipts 1.9.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243309.jpgsave_picture_243309.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ L.A.Guns - Black Diamonds (2023) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243310.jpgsave_picture_243310.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Balabolka 2.15.0.843 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243311.jpgsave_picture_243311.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ VA - Infinite Contemporary Lounge Vol.4 (2016) [MP3|320 Kbps] <Downtempo, Chillo
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243312.jpgsave_picture_243312.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Barry Goudreau’s Engine Room - The Road (2021) [FLAC|Lossless|WEB-DL|tracks] <
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243313.jpgsave_picture_243313.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ The Wailin Walker Band - The Devil Made Me Play It (1990) [FLAC|Lossless|WEB-DL|
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243314.jpgsave_picture_243314.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Permute 3 v3.4.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243316.jpgsave_picture_243316.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ magnet:?xt=urn:btih:0CB8BFDF643527BE8CCAF782BDEC04E7675354B9
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243317.jpgsave_picture_243317.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ magnet:?xt=urn:btih:332D4CC8530C34F7C55A14B0F0DBFABB184114B4
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243319.jpgsave_picture_243319.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ magnet:?xt=urn:btih:B6F0BCDFADFFE36A244BAA23C153A3B1CDBB01A7
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243320.jpgsave_picture_243320.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ magnet:?xt=urn:btih:F31255DD343AF829915A87263C370B24382BDF18
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243321.jpgsave_picture_243321.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ VA - Uplifting Trance Now! (2016) [MP3|320 Kbps] <Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243322.jpgsave_picture_243322.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ magnet:?xt=urn:btih:64E6FC1906A18B08E31F35BB538E7AA8CE4C06B1
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243323.jpgsave_picture_243323.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Keep It 1.7.9 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243324.jpgsave_picture_243324.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ magnet:?xt=urn:btih:70BAF6A013B3DAA956F7F66570B94299263E2743
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243326.jpgsave_picture_243326.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ magnet:?xt=urn:btih:D47440874D21D491BEDD58C4B1EB26E361C05DC2
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243327.jpgsave_picture_243327.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ magnet:?xt=urn:btih:5AE9471AC6B9D669C4DA53260404FC96596EFD66
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243328.jpgsave_picture_243328.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ magnet:?xt=urn:btih:8D40F64D78560FE020CE39BC617D87A5726DCD04
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243329.jpgsave_picture_243329.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ magnet:?xt=urn:btih:08C5F3815E1D24EBC9E6CC3D8CE19447FE805F6A
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243330.jpgsave_picture_243330.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ Kamikaze Veggies (2022) [Ru/Multi] (1.0) License DARKSiDERS
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243332.jpgsave_picture_243332.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ FinePrint 11.35 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243333.jpgsave_picture_243333.jpg" />
 </div>
 
 

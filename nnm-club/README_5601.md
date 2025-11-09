@@ -6,7 +6,7 @@ Scrivener 3.3.6 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172618.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172618.jpgsave_picture_172618.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Alt SwitchER 21.2 Portable [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172619.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172619.jpgsave_picture_172619.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:68E65E934B2FCA9A11E0ED31B6745DEA1C4918C7
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172620.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172620.jpgsave_picture_172620.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:1F172B93DD4A4D9E0C233D11D283354B2391863D
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172621.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172621.jpgsave_picture_172621.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Keysight IC-CAP 2018 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172622.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172622.jpgsave_picture_172622.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ GOM Player Plus 2.3.90.5360 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172623.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172623.jpgsave_picture_172623.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ IceCream Ebook Reader Pro 6.39 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172624.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172624.jpgsave_picture_172624.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:1F55EA7757E4CB959F668C3FA31DC27EF2F33EC6
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172625.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172625.jpgsave_picture_172625.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ Kdenlive 23.08.2 + Standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172626.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172626.jpgsave_picture_172626.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Keysight Model Quality Assurance 2019 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172627.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172627.jpgsave_picture_172627.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ K-Lite Codec Pack Update 17.8.6 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172628.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172628.jpgsave_picture_172628.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Glary Tracks Eraser 5.0.1.265 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172629.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172629.jpgsave_picture_172629.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Mozilla Thunderbird 115.3.2 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172630.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172630.jpgsave_picture_172630.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Keysight Model Builder Program 2019 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172631.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172631.jpgsave_picture_172631.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ The Hillbilly Moon - Compilation (2023) [MP3|320 Kbps] <Rockabilly>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172632.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172632.jpgsave_picture_172632.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ magnet:?xt=urn:btih:14F6C83896DD32BB86269B8E5B68142DF641F93D
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172633.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172633.jpgsave_picture_172633.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ AndroVid Pro Video Editor v6.7.3 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172634.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172634.jpgsave_picture_172634.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ File & Image Uploader 8.3.6 Portable + Skins [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172635.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172635.jpgsave_picture_172635.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Opera GX 102.0.4880.99 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172636.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172636.jpgsave_picture_172636.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ magnet:?xt=urn:btih:66E36E5B5228B9D0B7D73CA83F72CEF13AF4C174
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172637.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172637.jpgsave_picture_172637.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Bartender 5 v.5.0.41 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172638.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172638.jpgsave_picture_172638.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Keysight WaferPro Express 2016.04 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172639.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172639.jpgsave_picture_172639.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ magnet:?xt=urn:btih:550CCDDE33EBD9E55D44E1439A9180D0E149E855
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172640.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172640.jpgsave_picture_172640.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ RegCool 1.344 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172641.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172641.jpgsave_picture_172641.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Dominance - Slaughter of Human Offerings in the New Age Of Pan (2023) [MP3|320 K
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172642.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172642.jpgsave_picture_172642.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Ronnie Atkins - Trinity (2023) [FLAC|Lossless|image + .cue] <Hard Rock, Melodic 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172643.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172643.jpgsave_picture_172643.jpg" />
 </div>
 
 

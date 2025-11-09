@@ -6,7 +6,7 @@ iCompta 6.1.9 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135371.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135371.jpgsave_picture_135371.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ VA - DubStep Pro V.9 (2012) [MP3|320 кб/с]<DubStep>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135372.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135372.jpgsave_picture_135372.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ PrintLab Studio 3.0.2 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135373.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135373.jpgsave_picture_135373.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Memorial Day - Embark Hades (1995) [FLAC|Lossless|tracks] <Gothic, Doom, Death M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135375.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135375.jpgsave_picture_135375.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ magnet:?xt=urn:btih:009ED584D7CB230E755BF3EED1DB0B392B97A27A
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135379.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135379.jpgsave_picture_135379.jpg" />
 </div>
 
 
@@ -147,7 +147,7 @@ magnet:?xt=urn:btih:8AAA8D6E96789388F4530E0E633F8916789E9567
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135384.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135384.jpgsave_picture_135384.jpg" />
 </div>
 
 
@@ -171,7 +171,7 @@ VA - Cafe La Guitarra Vol.1 (La Seleccion Musica Balearica - The Best In Guitar 
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135386.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135386.jpgsave_picture_135386.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:EDFE9BCBFF97553B6883A16B8BA153C110875418
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135391.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135391.jpgsave_picture_135391.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:1F5F89338544B860A5518F604109F38931ABDDAE
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135392.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135392.jpgsave_picture_135392.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Noel Quinlan - 7 albums (1991-2004) [MP3|320 кб/с]<New Age, World, Instrument
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135397.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135397.jpgsave_picture_135397.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ magnet:?xt=urn:btih:E23401DB621165DD9C05E42106C3812B14CBDF5C
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135400.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135400.jpgsave_picture_135400.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ Xenia - Understand (2012) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135403.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135403.jpgsave_picture_135403.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ Planet X - Quantum (2007) [MP3|320 кб/с]<Progressive Fusion Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135404.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135404.jpgsave_picture_135404.jpg" />
 </div>
 
 
@@ -365,7 +365,7 @@ Pulp - Different Class (1995) [MP3|320 кб/с]<BritPop>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135406.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135406.jpgsave_picture_135406.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ magnet:?xt=urn:btih:DFB7B331C4B9A3385BE8DF411ED59FB1A7EA1B1F
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135407.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135407.jpgsave_picture_135407.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Chamras Saewataporn - Green the World (2011) [MP3|320 кб/с]<New age, Instrume
 >>Other Asian
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135408.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135408.jpgsave_picture_135408.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ VA - Creative Music Box 6 (2012) [MP3|320 кб/с]<Dub Step/Glitch Hop/Drum'n'Ba
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135410.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135410.jpgsave_picture_135410.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ magnet:?xt=urn:btih:34D9A6E0E12F409DF5BC70019504C1BF1BF2A7C3
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135411.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135411.jpgsave_picture_135411.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ VA - Christmas in St. Moritz (Chilled Tunes For Relaxed X-Mas Days) (2012) [MP3|
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135416.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135416.jpgsave_picture_135416.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ magnet:?xt=urn:btih:272E7BA9B6CB6B0F6E05154AC52A65FAE6A51D79
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135425.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135425.jpgsave_picture_135425.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ magnet:?xt=urn:btih:E40E244D70E151ED235D1C51961AD65D5A32FC30
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135433.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135433.jpgsave_picture_135433.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ magnet:?xt=urn:btih:5285F423CFC90E0A924F22C85C8234A435CB5156
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135439.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135439.jpgsave_picture_135439.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ deeB - Daydream (EP) (2012) [MP3|320 кб/с]<trip-hop, acid jazz, insrumental h
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135440.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135440.jpgsave_picture_135440.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ New year wallpapers 2013 (18.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135443.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135443.jpgsave_picture_135443.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ Ananda Shankar - Ananda Shankar (1970) [MP3|320 кб/с]<World Fusion, Psychedel
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135446.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135446.jpgsave_picture_135446.jpg" />
 </div>
 
 
@@ -705,7 +705,7 @@ Magic Island Recordings - Best Of 2012 (2012) [MP3|320 кб/с]<Trance, Progress
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135450.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135450.jpgsave_picture_135450.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ VA - Chilled Christmas (Finest Chill Out & Ambient Christmas Tunes) (2015) [MP3|
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145694.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145694.jpgsave_picture_145694.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ BELLATRIX - I Love KOTO - Covers and Remixes (2018) [MP3|320 Kbps] <Spacesynth, 
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145733.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145733.jpgsave_picture_145733.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Rencontre Nocturne - Recap 2021 (2021) [MP3|320 Kbps] <Electro House, Progressiv
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145742.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145742.jpgsave_picture_145742.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - Fines de Semana Perezosos (2015) [MP3|320 кб/с] <Downtempo, Chillout, Lo
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145816.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145816.jpgsave_picture_145816.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ SZMC - Dark Energy - The Album (2018) [MP3|320 Kbps] <Spacesynth, Synthpop>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145823.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145823.jpgsave_picture_145823.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ VA - Black Hole Trance Music 12-18 (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145829.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145829.jpgsave_picture_145829.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ VA - Smooth & Relaxed (2018) [FLAC|Lossless|WEB-DL|tracks] <Chill House, Lounge,
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145846.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145846.jpgsave_picture_145846.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ VA - Dreamful Moments Chillout Music (2015) [MP3|320 кб/с] <Downtempo, Chillo
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145854.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145854.jpgsave_picture_145854.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ VA - The Best Of Suanda Music (Mixed By Roman Messer & Ruslan Radriges) (2018) [
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145856.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145856.jpgsave_picture_145856.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ VA - Best Of Trance Vol.09 (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145886.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145886.jpgsave_picture_145886.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ VA - Sunset Aperitive Chillout (2015) [MP3|320 кб/с] <Downtempo, Chillout, Lo
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145898.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145898.jpgsave_picture_145898.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ VA - King Of Chillout (2015) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145910.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145910.jpgsave_picture_145910.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ VA - Abora Progressive Best Of 2017-2018 (Mixed by Mhammed El Alami) (2018) [MP3
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145925.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145925.jpgsave_picture_145925.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ VA - Wir Lieben Sommerabende: Feinste Lounge Musik Selektion (2015) [MP3|320 к�
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145960.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145960.jpgsave_picture_145960.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ VA - SoSexy - Deep House Selection Vol.1-2 (2012) [MP3|320 кб/с]<House, Deep 
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146176.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146176.jpgsave_picture_146176.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ VA - Space Holidays Vol. 11 (2019) 3CD [FLAC|Lossless|WEB-DL|tracks] <Spacesynth
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146239.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146239.jpgsave_picture_146239.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ VA - AFTR:HRS (Mixed by Tiesto) (2016) [FLAC|Lossless|WEB-DL|tracks|image] <Deep
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146572.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146572.jpgsave_picture_146572.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Christine And The Queens - Chaleur Humaine (2014) 2016, Because Music [FLAC|Loss
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146646.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146646.jpgsave_picture_146646.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ Liebe - Revolution Of Love (2016) [FLAC|Lossless|image + .cue] <Synthpop, New Wa
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146684.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146684.jpgsave_picture_146684.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ Skrillex & Diplo - Skrillex and Diplo Present Jack U (2015) [FLAC|Lossless|Web-D
 >>Dubstep, Future Garage, Bass Music, UK Garage (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146685.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146685.jpgsave_picture_146685.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ MORTEN - Live @ TESstudio954, United States (2020-12-23) [MP3|320 Kbps] <Electro
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146739.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146739.jpgsave_picture_146739.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ VA - End of 2016 (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146938.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146938.jpgsave_picture_146938.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ VA - Winter Chillout 2017 (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146948.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146948.jpgsave_picture_146948.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ VA - Cosy Winter Lounge, Vol.1 (2016) [MP3|320 Kbps] <Downtempo, Chillout, Loung
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146984.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146984.jpgsave_picture_146984.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ VA - Sensual Lounge Stage Selection (2016) [MP3|320 Kbps] <Downtempo, Chillout, 
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146987.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146987.jpgsave_picture_146987.jpg" />
 </div>
 
 
@@ -687,7 +687,7 @@ VA - Winterbreath Vol.3 (Chilled Lounge Tunes For The Winter Season) (2016) [MP3
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147006.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147006.jpgsave_picture_147006.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ FATAL FURY: City of the Wolves (2025) [Ru/Multi] (1.1.2-72904/dlc) Repack Wanter
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19974.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19974.jpgsave_picture_19974.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ The Last Man Survivor (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19987.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19987.jpgsave_picture_19987.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ DRAGON BALL: Sparking! ZERO (2024) [Ru/Multi] (2011.010.003.007.006/dlc) Repack 
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19999.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19999.jpgsave_picture_19999.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Night Slashers: Remake (2024) [Multi] (1.0.6) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20025.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20025.jpgsave_picture_20025.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Another Crab's Treasure (2024) [Ru/Multi] (2.0.000.2) Repack Wanterlude
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20068.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20068.jpgsave_picture_20068.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ World of Goo 2 (2024) [Ru/Multi] (1.0.13112) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20141.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20141.jpgsave_picture_20141.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ World of Goo 2 (2024) [Ru/Multi] (13112W) Repack seleZen
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20181.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20181.jpgsave_picture_20181.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Pecker (2024) [Ru/Multi] (1.0.2) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20511.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20511.jpgsave_picture_20511.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ FATAL FURY: City of the Wolves (2025) [Ru/Multi] (1.1.2-72904/dlc) Repack FitGir
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20610.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20610.jpgsave_picture_20610.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ House of Golf 2 (2024) [Ru/Multi] (1.2.6) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20639.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20639.jpgsave_picture_20639.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Subverse (2018) [En] (1.1.1) License GOG [18+]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20761.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20761.jpgsave_picture_20761.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Entropy Survivors (2024) [Ru/Multi] (1.4.0.22794) Repack Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21390.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21390.jpgsave_picture_21390.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ LEGO City Undercover (2017) [Ru/Multi] (1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21573.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21573.jpgsave_picture_21573.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ The Alpha Wolf (2024) [En] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21795.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21795.jpgsave_picture_21795.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ BLEACH Rebirth of Souls (2025) [Ru/Multi] (1.03/dlc) Repack DjDI
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22349.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22349.jpgsave_picture_22349.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ Pull Stay (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22396.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22396.jpgsave_picture_22396.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ Paleo Pines (2023) [Ru/Multi] (1.5.22/dlc) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22499.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22499.jpgsave_picture_22499.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ My Friend Pedro (2019) [Ru/Multi] (1.03) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22513.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22513.jpgsave_picture_22513.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Fiora (2025) [Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22540.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22540.jpgsave_picture_22540.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ Haste: Broken Worlds (2025) [Ru/Multi] (1.0.b) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22622.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22622.jpgsave_picture_22622.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ Haste: Broken Worlds (2025) [Ru/Multi] (1.0.b) Repack Wanterlude
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22667.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22667.jpgsave_picture_22667.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Tekken 8 (2024) [Ru/Multi] (2.00.01/dlc) Repack Wanterlude
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22757.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22757.jpgsave_picture_22757.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Which Way Up: Galaxy Games (2025) [Ru/Multi] (1.0.0+e1d15/dlc) Repack seleZen
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22802.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22802.jpgsave_picture_22802.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Spyro Reignited Trilogy (2019) [Ru/En] (Build 3849171) Repack Mizantrop1337
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22963.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22963.jpgsave_picture_22963.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ The Riftbreaker (2021) [Ru/Multi] (Exe:1033 Data:640/dlc) Repack Wanterlude
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23041.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23041.jpgsave_picture_23041.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Poop Killer: Flush or Die (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23146.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23146.jpgsave_picture_23146.jpg" />
 </div>
 
 

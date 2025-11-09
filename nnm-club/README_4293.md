@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133276.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133276.jpgsave_picture_133276.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:45031E043ACEF2784E50FB7654246F1FD04AAA2B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133277.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133277.jpgsave_picture_133277.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:21808DE078B7EA7B30285EE6609022BAEE5D7E54
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133278.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133278.jpgsave_picture_133278.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:A19105A8B66CF1340CA72CE572654B37D4D0D2F6
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133279.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133279.jpgsave_picture_133279.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:1D1C151A5A6E609B4ACCAE3FCF2271932AA9B952
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133281.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133281.jpgsave_picture_133281.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:ECF4C8187708D3BFE2FD665EBE3B0616B03DF4BB
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133282.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133282.jpgsave_picture_133282.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - Sunset High Dreaming (2012) [MP3|320 кб/с]<Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133287.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133287.jpgsave_picture_133287.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ magnet:?xt=urn:btih:96C225F557304B3311EFF3AAACF5D87CFCCF67BE
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133288.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133288.jpgsave_picture_133288.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ magnet:?xt=urn:btih:34BACABAA19894DB4A732AB437119FAFB2E9B031
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133289.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133289.jpgsave_picture_133289.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ Adobe Photoshop Lightroom Classic 2024 13.0.2.1 (x64) Portable by 7997 [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133290.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133290.jpgsave_picture_133290.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ magnet:?xt=urn:btih:549A807C7E2DCCE86111061F80DE926E3D45235F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133292.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133292.jpgsave_picture_133292.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ magnet:?xt=urn:btih:CDACD2F05E6CA176332CDA132E8A3F4A41C31092
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133294.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133294.jpgsave_picture_133294.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ Stand Up (2023.12.01) SATRip (сезон 11, выпуск 11)
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133295.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133295.jpgsave_picture_133295.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ SamDrivers 23.12 LAN [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133296.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133296.jpgsave_picture_133296.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ magnet:?xt=urn:btih:6DD9F9E5F67CB5617E7866FAC33ACA0907256BEE
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133297.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133297.jpgsave_picture_133297.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Dark Souls: Prepare To Die Edition [Ru/En/Multi9) [Steam-Rip/1.0.0.1] 2012 | R.G
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133298.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133298.jpgsave_picture_133298.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ GPU-Z 2.56.0 RePack by druc [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133299.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133299.jpgsave_picture_133299.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Windows 7 Ultimate SP1 x64 Beslam Edition (v.8 Updated) 20.12.2012 [Русски
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133300.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133300.jpgsave_picture_133300.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ W10Privacy 5.0.0.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133301.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133301.jpgsave_picture_133301.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Paragon Домашний Эксперт 12 10.1.19.16240 Retail + BootCD + Boot 
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133302.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133302.jpgsave_picture_133302.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Compressor 4.7 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133303.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133303.jpgsave_picture_133303.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ magnet:?xt=urn:btih:BA13825A2443DFE2BD8777D04056DB539DFB3502
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133305.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133305.jpgsave_picture_133305.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ Windows 7 Ultimate SP1 x86 Beslam Edition (v.8 Updated) 20.12.2012 [Русски
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133306.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133306.jpgsave_picture_133306.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ ru_windows_7_ultimate_with_sp1_x86_dvd_u_677463.
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133307.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133307.jpgsave_picture_133307.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ magnet:?xt=urn:btih:4C90074C3B744405C2F0F03AF981EE970655E0B9
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133308.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133308.jpgsave_picture_133308.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ magnet:?xt=urn:btih:9757D9314E5D5966FBE989E3F6303F60CD973308
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133310.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133310.jpgsave_picture_133310.jpg" />
 </div>
 
 

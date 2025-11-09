@@ -6,7 +6,7 @@ MediaHuman YouTube Downloader 3.9.15 (2607) RePack (& Portable) by elchupacabra 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10168.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10168.jpgsave_picture_10168.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ StartAllBack 3.9.13 build 5291 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10169.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10169.jpgsave_picture_10169.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Abiotic Factor (2024) [Ru/Multi] (1.0.0.20061/dlc) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10170.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10170.jpgsave_picture_10170.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:EAAB88F76419FF72049001DE29034BFAC164D261
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10171.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10171.jpgsave_picture_10171.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Kunitsu-Gami: Path of the Goddess (2024) [Ru/Multi] (Build 19024694/dlc) Repack 
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10172.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10172.jpgsave_picture_10172.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Starmetal Crusaders (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10173.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10173.jpgsave_picture_10173.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:99F71CA449AB2170E14E66B9B3CA20159408666B
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10174.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10174.jpgsave_picture_10174.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Alice Cooper - Studio Albums (11 releases) (2000-2025) hand made [restored, decl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10175.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10175.jpgsave_picture_10175.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Tintin Reporter Cigars of the Pharaoh (2023) [Ru/Multi] (1.0.39277) Repack Let's
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10176.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10176.jpgsave_picture_10176.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Kick'n Hell (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10177.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10177.jpgsave_picture_10177.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:A590BC3A95B719718B71925FE7461CB7EE09779A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10178.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10178.jpgsave_picture_10178.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:2B84D82CF9FE5A85762849BE13724D27B02D9739
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10179.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10179.jpgsave_picture_10179.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Rekindled Trails (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10180.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10180.jpgsave_picture_10180.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Endzone 2 (2024) [Ru/Multi] (1.0.9336.24144/dlc) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10181.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10181.jpgsave_picture_10181.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ No More Heroes / No More Heroes 2: Desperate Struggle (2021) [Ru] (Patch 4/29/25
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10182.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10182.jpgsave_picture_10182.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ magnet:?xt=urn:btih:0DFD65257E339E571E3C0D0DD6FF3543880800D6
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10183.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10183.jpgsave_picture_10183.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ Flyoobe 0.23.28 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10184.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10184.jpgsave_picture_10184.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ magnet:?xt=urn:btih:7A13C94008E1BE6E773DCC3525B426C9A262E37E
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10185.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10185.jpgsave_picture_10185.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Blue System - Album Collection 13CDs (1987-1997) 1st German Press [APE|Lossless|
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10186.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10186.jpgsave_picture_10186.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ magnet:?xt=urn:btih:DD58BE9A844D9C3F3FEC8242C8D7FBC60EA81A5F
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10188.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10188.jpgsave_picture_10188.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ magnet:?xt=urn:btih:D51827C4A9AC5A6E2099A746833FAD045E2486B1
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10189.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10189.jpgsave_picture_10189.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:EF450BFB109D44714755FFEFD74C267687858682
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10191.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10191.jpgsave_picture_10191.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ magnet:?xt=urn:btih:2E040921A3915E7CE7830391506C0B438B11A429
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10192.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10192.jpgsave_picture_10192.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Death Relives (2025) [Ru/Multi] (0.14.68.398) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10195.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10195.jpgsave_picture_10195.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ magnet:?xt=urn:btih:14D8BA0C07F7B9624CB3CB5C7BB5C80B3F320542
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10196.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10196.jpgsave_picture_10196.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ magnet:?xt=urn:btih:14D8BA0C07F7B9624CB3CB5C7BB5C80B3F320542
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10197.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10197.jpgsave_picture_10197.jpg" />
 </div>
 
 

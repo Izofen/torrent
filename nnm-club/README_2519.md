@@ -6,7 +6,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66244.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66244.jpgsave_picture_66244.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Unna & Helge Tallqvist Band - Today I Sing the Blues (2025) [FLAC|Lossless|WEB-D
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66245.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66245.jpgsave_picture_66245.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Jimmy Barnes - DEFIANT (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66246.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66246.jpgsave_picture_66246.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Sol Raven - Wanderer No More (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66247.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66247.jpgsave_picture_66247.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Simon Kinny-Lewis - Pouring Water On A Drowning Man (2025) [FLAC|Lossless|WEB-DL
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66248.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66248.jpgsave_picture_66248.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Strong Bow & Wry - Rosin N' Blues (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66249.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66249.jpgsave_picture_66249.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Ron D Bowes - Vampire in the Basement (2025) [FLAC|Lossless|WEB-DL|tracks] <Blue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66250.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66250.jpgsave_picture_66250.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ magnet:?xt=urn:btih:ABCC0BFF97A4CCF3AC682A2DC50AEC263E553C99
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66251.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66251.jpgsave_picture_66251.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Ronny Smith - Cruisin (2025) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66252.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66252.jpgsave_picture_66252.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ The River Arkansas - Tin Years (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66253.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66253.jpgsave_picture_66253.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ The Christopher Dean Band - Steppin out Tonight (2025) [FLAC|Lossless|WEB-DL|tra
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66254.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66254.jpgsave_picture_66254.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Sean Poluk - Gamut (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66255.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66255.jpgsave_picture_66255.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Reverend Freakchild - A Bluesman of Sorts (2025) (2CD) [FLAC|Lossless|WEB-DL|tra
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66256.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66256.jpgsave_picture_66256.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Ice Nine Kills - I Heard They Kill Live 2 (2025) Live in Lowell 2022 [FLAC 24/48
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66257.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66257.jpgsave_picture_66257.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ magnet:?xt=urn:btih:7AC83A9DC9AB4B7134EF8E0D2CA93F05F79F1B48
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66258.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66258.jpgsave_picture_66258.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ magnet:?xt=urn:btih:E9F3B8742CC6E4A33E6B7D5528CE0324C0C307BA
 >>Книжная иллюстрация
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66259.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66259.jpgsave_picture_66259.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ magnet:?xt=urn:btih:7320E1A6AD4E206B0E11FDAD5F599F23CE54448B
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66260.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66260.jpgsave_picture_66260.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ magnet:?xt=urn:btih:47A3FA885C7A4832ADF12D9531B67FD72640CEC0
 >>Книжная иллюстрация
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66261.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66261.jpgsave_picture_66261.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ magnet:?xt=urn:btih:6ED01356860188982EC5737AC83915690C9FDDE1
 >>Растровый клипарт (иллюстрации)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66262.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66262.jpgsave_picture_66262.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ magnet:?xt=urn:btih:B511D380C9F03658BD1EBCB72BB50F08EA50B3F5
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66263.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66263.jpgsave_picture_66263.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ magnet:?xt=urn:btih:B14CAC4F55F4188336BC211B3C688084CDEBFCA7
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66264.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66264.jpgsave_picture_66264.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ magnet:?xt=urn:btih:BD31CB2EB9BC359199399B927CED5DBCE8C4C601
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66265.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66265.jpgsave_picture_66265.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ magnet:?xt=urn:btih:0A08C107EB3E3E91CD7B892306AB769F8B048C8F
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66266.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66266.jpgsave_picture_66266.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ The B-52's - Cosmic Thing (1989) CD, Album, Club Edition, Columbia House [FLAC|L
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66267.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66267.jpgsave_picture_66267.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ magnet:?xt=urn:btih:735CB2DF2E724D82C10CD4168CF9532AB2120BDF
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66268.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66268.jpgsave_picture_66268.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ Markus Schulz - Global DJ Broadcast World Tour, Epic Club Prague, Czech Republic
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66269.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66269.jpgsave_picture_66269.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Topaz Video AI 3.4.1 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203653.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203653.jpgsave_picture_203653.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:D6329ECDFF919D45E6C0BE554136F9256A697F85
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203654.jpgsave_picture_203654.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Rebelway, Saber Jlassi | Рендеринг в Karma в Houdini 19 (2021) WEB-DL
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203655.jpgsave_picture_203655.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:522D283E1E1007029602146114EB4677F28AAE94
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203656.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203656.jpgsave_picture_203656.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:96877CEB5D5C41CC764A547D64475E563E79C8FB
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203657.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203657.jpgsave_picture_203657.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ USB Device Tree Viewer 3.8.4.0 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203658.jpgsave_picture_203658.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Alice Cooper - Road (2023) [FLAC|Lossless|tracks + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203659.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203659.jpgsave_picture_203659.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:562B9C29E28C3901F33BB353D14DDA4A4D52E0B9
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203660.jpgsave_picture_203660.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Win10 All Settings 2.0.3.27(x32) / 2.0.3.30(x64) Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203661.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203661.jpgsave_picture_203661.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:E367625A644F8B6718E07CDEAFA89E8A7C189643
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203662.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203662.jpgsave_picture_203662.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:576FF046AFCB85E674B42A01E8ECCC4A212D8EB8
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203663.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203663.jpgsave_picture_203663.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:2EF1916CC3A4F1D7ABFD5E983A8E7D9F7E1ECAA1
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203664.jpgsave_picture_203664.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:756A8680067194CB574557A8ADD19B010175C4EA
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203665.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203665.jpgsave_picture_203665.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ magnet:?xt=urn:btih:FB0D5CF1A59A1E0AF00F87BD7E34071D63C30400
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203666.jpgsave_picture_203666.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Firefox Browser ESR 115.2.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203667.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203667.jpgsave_picture_203667.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ magnet:?xt=urn:btih:804DA80D4A266DAB16C55D0B2EBCB7948C51786C
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203668.jpgsave_picture_203668.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ Macrorit Partition Expert 7.9.8 Unlimited Edition RePack (& Portable) by TryRooM
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203669.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203669.jpgsave_picture_203669.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ WinRAR 6.20 Final [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203670.jpgsave_picture_203670.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Black Stone Cherry - Smile, World (2023) EP [FLAC 24/48|WEB-DL|tracks] <Southern
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203671.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203671.jpgsave_picture_203671.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ magnet:?xt=urn:btih:884187F5C3D84EA722B25D4A1B2E1FD5B4883118
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203672.jpgsave_picture_203672.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ Ana Popovic - Power (2023) Deluxe Edition [FLAC|Lossless|image + .cue] <Blues, S
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203673.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203673.jpgsave_picture_203673.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ magnet:?xt=urn:btih:4050C1BF388603D8B395CFDE9EFD4FE0523B233D
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203674.jpgsave_picture_203674.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ HiBit Uninstaller 3.1.50 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203675.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203675.jpgsave_picture_203675.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ World Championship Boxing Manager 2 (2023) [Multi] (0.12.6.0) License GOG
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203676.jpgsave_picture_203676.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ magnet:?xt=urn:btih:9333A2063620729E925EEE185EB560E1F7362C0E
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203677.jpgsave_picture_203677.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ magnet:?xt=urn:btih:29396940A2C7E975DB982337972A8CDA4C80956F
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203678.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203678.jpgsave_picture_203678.jpg" />
 </div>
 
 

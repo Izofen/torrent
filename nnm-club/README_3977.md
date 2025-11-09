@@ -6,7 +6,7 @@
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123925.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123925.jpgsave_picture_123925.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:9D23348D5A6186D1F3328A93BE3B1BEC9EEB2746
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123926.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123926.jpgsave_picture_123926.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ MasterPeace - The Dylan Project (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123927.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123927.jpgsave_picture_123927.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:7F51C4A4A0160053FA62386409EF24DD45733C55
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123928.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123928.jpgsave_picture_123928.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:6A35C3058DC39B5AE731EB40A72BCB7CD52BFE61
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123929.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123929.jpgsave_picture_123929.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ magnet:?xt=urn:btih:ABE3FFB4961BF82FDF842A94360D1B4D0A6E9AE8
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123930.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123930.jpgsave_picture_123930.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:F37400AB3EC10B511B7D78407298BAA363B5CBCA
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123931.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123931.jpgsave_picture_123931.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Subtitle Edit 4.0.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123932.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123932.jpgsave_picture_123932.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Opera One 106.0.4998.28 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123933.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123933.jpgsave_picture_123933.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ Cabballero - The Elements (1995) [FLAC|Lossless|image + .cue] <Trance, Eurodance
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123934.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123934.jpgsave_picture_123934.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ magnet:?xt=urn:btih:BB82E9C94C3891DF98F287C69F224FD590995107
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123935.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123935.jpgsave_picture_123935.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ Telegram Desktop 4.14.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123936.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123936.jpgsave_picture_123936.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ magnet:?xt=urn:btih:6C7F461C242607B74B34FD52590A6FBACD068DCD
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123937.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123937.jpgsave_picture_123937.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Unsolved Case 5: Killer Popularity (2024) [En] (1.0) Unofficial [Collector's Edi
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123938.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123938.jpgsave_picture_123938.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Akuma-kun: Youkoso Akuma Land e!! | Дьяволёнок (1990) [1990, Movie] WE
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123939.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123939.jpgsave_picture_123939.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ magnet:?xt=urn:btih:B27BEE6C4C83607339C41F17E8F746434941E1EA
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123940.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123940.jpgsave_picture_123940.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Opera One 106.0.4998.28 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123941.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123941.jpgsave_picture_123941.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Atomic Freak - Nuclear Meltdown (2024) [MP3|320 Kbps] <Hard-Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123942.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123942.jpgsave_picture_123942.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ magnet:?xt=urn:btih:BD8D10B67151EA424CA417A2A7BCB6D422AC1653
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123943.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123943.jpgsave_picture_123943.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Akuma-kun (1989) | Дьяволёнок (1989) [1989, Movie] WEBRip 1040p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123944.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123944.jpgsave_picture_123944.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Blank & Jones - Relax (Edition Five) (2010) 2 CD [FLAC|Lossless|image + .cue] <E
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123945.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123945.jpgsave_picture_123945.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ Vivaldi 6.5.3206.50 include standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123946.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123946.jpgsave_picture_123946.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ Chromium 120.0.6099.200 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123947.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123947.jpgsave_picture_123947.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ magnet:?xt=urn:btih:374B50BAFF94FC7C889E22A1EAFFA2FD8B9B1498
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123948.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123948.jpgsave_picture_123948.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ magnet:?xt=urn:btih:3CAF602A0002746874D583010DA09E8D890F90C1
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123949.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123949.jpgsave_picture_123949.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ magnet:?xt=urn:btih:D47294A35C25B0D8E0B82CC35EC1947550E0A714
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123950.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123950.jpgsave_picture_123950.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Alex Okami - Strange As Angels (2025) [FLAC 16,24/44.1,48|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67882.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67882.jpgsave_picture_67882.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:7306BA225FCA50E532DDA060BC7AA76629AA8044
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67883.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67883.jpgsave_picture_67883.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:A3285798890E0F5D685194D8AC9C6A8090166D80
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67884.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67884.jpgsave_picture_67884.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Sunwalter - Rebuilding The Universe (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67885.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67885.jpgsave_picture_67885.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Wolfgang Lohr - The Lohring 20s (2025) [FLAC|Lossless|WEB-DL|tracks] <Electro Sw
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67886.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67886.jpgsave_picture_67886.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Ryoji Shinomoto - Children of Bushido (2025) [FLAC 24/48|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67887.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67887.jpgsave_picture_67887.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Macbeth (Italy) - Studio Albums (5 releases) (1998-2014) hand made [restored, de
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67888.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67888.jpgsave_picture_67888.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ magnet:?xt=urn:btih:25051DCFDB15ADED0E3744665FC2153A3EA98249
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67889.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67889.jpgsave_picture_67889.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Robbert Duijf - Silver Spoon (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67890.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67890.jpgsave_picture_67890.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ magnet:?xt=urn:btih:C133AB2EE9CF2972EFC6C84DBF9D9410515B9BB4
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67891.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67891.jpgsave_picture_67891.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ magnet:?xt=urn:btih:7146C7535754A7CE435E50F4FDDA3C9C53BED8E0
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67892.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67892.jpgsave_picture_67892.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ magnet:?xt=urn:btih:C91B0A5F8752A65C31A567BD5B6EFC7EDFB54A5E
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67893.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67893.jpgsave_picture_67893.jpg" />
 </div>
 
 
@@ -316,7 +316,7 @@ magnet:?xt=urn:btih:A710B6BD3CEE70C8B9118E4A6A500F3A8226C569
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67894.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67894.jpgsave_picture_67894.jpg" />
 </div>
 
 
@@ -340,7 +340,7 @@ magnet:?xt=urn:btih:3A6E079BBFD5E8DD629929FF5452F94ED0ACD683
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67895.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67895.jpgsave_picture_67895.jpg" />
 </div>
 
 
@@ -364,7 +364,7 @@ magnet:?xt=urn:btih:44E3CF5EE6A9AC80553D464F60D35A09405885F4
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67896.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67896.jpgsave_picture_67896.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ magnet:?xt=urn:btih:6FD5D13BAFD51408475940E7AE87FFBA776A3FBA
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67897.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67897.jpgsave_picture_67897.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ Epica - Aspiral (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Symphonic-Metal>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67898.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67898.jpgsave_picture_67898.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ magnet:?xt=urn:btih:4E6D81BBFD84D96486ED57F162A44716B9774437
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67899.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67899.jpgsave_picture_67899.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ magnet:?xt=urn:btih:E753B99378C1A374975FF782D0A2D96DE25F7874
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67900.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67900.jpgsave_picture_67900.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ magnet:?xt=urn:btih:E4FB9EDE3069500771ACFF39C046783C2FA2BBC6
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67901.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67901.jpgsave_picture_67901.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ magnet:?xt=urn:btih:83E705CD78930C1C22F88308AA94163B0C10EA1E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67902.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67902.jpgsave_picture_67902.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ magnet:?xt=urn:btih:83E705CD78930C1C22F88308AA94163B0C10EA1E
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67903.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67903.jpgsave_picture_67903.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ VA - Zero Dancefloor [mixed by DJ Юrkanik] (2013) [MP3|320 Kbps] <Disco, Synth-
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67904.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67904.jpgsave_picture_67904.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ VA - Ibiza Lounge Hits (2025) [MP3|320 Kbps] <House, Deep House, Dance, Club>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67905.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67905.jpgsave_picture_67905.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ magnet:?xt=urn:btih:30B04F44F499542353955BA8E6F98E8062492FFE
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67906.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67906.jpgsave_picture_67906.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ magnet:?xt=urn:btih:CFC19ECCCA606D0E16D1FD953D510AED08ABF3B3
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67907.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67907.jpgsave_picture_67907.jpg" />
 </div>
 
 

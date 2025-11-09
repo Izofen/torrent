@@ -6,7 +6,7 @@ Genesis - BBC Broadcasts (1978-1992) (2023) 5CD Box Set, Compilation, UMR/EMI [F
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250253.jpgsave_picture_250253.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:72E48F9D993A421631B4C8FA4C809C037D7D87E5
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_250254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_250254.jpgsave_picture_250254.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ magnet:?xt=urn:btih:72E48F9D993A421631B4C8FA4C809C037D7D87E5
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250255.jpgsave_picture_250255.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:1C4D303B0A72FD1D3FEFC420F9B6A3F0387916B4
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250256.jpgsave_picture_250256.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:BF3981B935AB2702D68A8B6350A6188BF0F2E62E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250257.jpgsave_picture_250257.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:68B30D591EA2C3DA5A75C724A726ED7A85DB31C0
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250258.jpgsave_picture_250258.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:77633F17D52818CACAE36F44313F9D46593EAB6A
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250259.jpgsave_picture_250259.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ Insomnium - Studio Albums (10 releases) (2002-2023) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250260.jpgsave_picture_250260.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ magnet:?xt=urn:btih:E13F03859AF8AF05B4966658D8C66F58A9A09AF3
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250261.jpgsave_picture_250261.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ magnet:?xt=urn:btih:928C66435B7E74CA194241B6B9CC33FF5116676A
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250262.jpgsave_picture_250262.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:928C66435B7E74CA194241B6B9CC33FF5116676A
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250263.jpgsave_picture_250263.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ Warrior Pope - 3 Albums (2017-2023) [MP3|320 Kbps] <Drone-doom>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250264.jpgsave_picture_250264.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ magnet:?xt=urn:btih:D9B23F0957310746CBB37707C75D4DA387708F0E
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250265.jpgsave_picture_250265.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Michael Dobrzycki | Искусство рисования драконов, ми
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250266.jpgsave_picture_250266.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ magnet:?xt=urn:btih:B21AF6E3FC650D3FAEEA648965BFEC3E4B2B3E5D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250267.jpgsave_picture_250267.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ magnet:?xt=urn:btih:CF1909D788D8C31F84171F015F8845103796ED82
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250268.jpgsave_picture_250268.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Horojo Trio - Set The Record (2022) Scene [FLAC|Lossless|tracks] <Rock, Blues, S
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250269.jpgsave_picture_250269.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ VMware Fusion Pro 12 v12.2.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250270.jpgsave_picture_250270.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ magnet:?xt=urn:btih:541280981E23CF50474267959E6E3D32279D9535
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250271.jpgsave_picture_250271.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Intent:Outtake - Der Stille Tod (2023) [FLAC|Lossless|WEB-DL|tracks] <Dark Elect
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250272.jpgsave_picture_250272.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ magnet:?xt=urn:btih:8CFFBC9E6C36F724EBC7AAF2E817D207E3F219B9
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250273.jpgsave_picture_250273.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ magnet:?xt=urn:btih:35EEDB93866743A45387D5FDDFC7A191A8CC73A5
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250274.jpgsave_picture_250274.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ magnet:?xt=urn:btih:35EEDB93866743A45387D5FDDFC7A191A8CC73A5
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250275.jpgsave_picture_250275.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ magnet:?xt=urn:btih:BF0715971AEE9B2B37DB8DFEA4AFCCF52A8B8547
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250276.jpgsave_picture_250276.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ magnet:?xt=urn:btih:5283B47ED302648E2B4A05D580D29A177572A405
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250277.jpgsave_picture_250277.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ magnet:?xt=urn:btih:7184EE0C818E841BEACDC4D5BBD0E22B1A35D6A2
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250278.jpgsave_picture_250278.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Hellfire (2023) [En] (5) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193617.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193617.jpgsave_picture_193617.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Memories Of Old - Never Stop Believing (2025) [FLAC 24/48|Lossless|WEB-DL|tracks
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193618.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193618.jpgsave_picture_193618.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:F5E0B05D65A3DBD2BC94E42D164E1A2D421F3255
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193619.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193619.jpgsave_picture_193619.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Hetman Uneraser Unlimited Edition 6.9 RePack (& Portable) by elchupacabra [Multi
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193620.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193620.jpgsave_picture_193620.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:E0C8358E042FC70BA34EC8DC3ADA25EAE3ADAB3E
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193621.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193621.jpgsave_picture_193621.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ R-Studio Network 9.3 Build 191230 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193622.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193622.jpgsave_picture_193622.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ DxO PhotoLab Elite 6.9.0 build 267 RePack by KpoJIuK [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193623.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193623.jpgsave_picture_193623.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:5BF75A53330BE0D4A5D09A9F6980959E1B375BA9
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193624.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193624.jpgsave_picture_193624.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:216132C890280699603F85878EE5BBBABBB699F3
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193625.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193625.jpgsave_picture_193625.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:4812A0D6294A3CB199ED37D5930F538B3CF83C70
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193626.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193626.jpgsave_picture_193626.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Slap Fight (2023) [En] (5) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193628.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193628.jpgsave_picture_193628.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:E55AF25598D9CCEA75E3B414C7DBD4D836BC667F
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_193629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193629.jpgsave_picture_193629.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:5132BC696EDC694B1A935033C0AC29A8C01B6594
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193630.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193630.jpgsave_picture_193630.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ magnet:?xt=urn:btih:7433F4B4C5D4E03EA0C1470224E2A9A4908A272B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193631.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193631.jpgsave_picture_193631.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ magnet:?xt=urn:btih:81F1AA62D69CDF64C0F6CBA4E08FEDC0CA095B50
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193632.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193632.jpgsave_picture_193632.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ magnet:?xt=urn:btih:188E765A455FA6C1826E2F52A25BAB08EA0920D7
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193634.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193634.jpgsave_picture_193634.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ Doro - Warriors Of The Sea (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193635.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193635.jpgsave_picture_193635.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ magnet:?xt=urn:btih:B09747B96EFCFB7A68A2914D834E54D1B185D039
 >>Бокс
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193636.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193636.jpgsave_picture_193636.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ CorelDRAW Graphics Suite 2025 26.2.0.170 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193637.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193637.jpgsave_picture_193637.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ magnet:?xt=urn:btih:FA2D084F5198CE4A5739A9B593A88E3624647BF4
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193638.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193638.jpgsave_picture_193638.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Francis Goya - Douce France, Vol.1-2 (2022) 2CD [FLAC 24/44.1|Lossless|WEB-DL|tr
 >>Instrumental (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193639.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193639.jpgsave_picture_193639.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ magnet:?xt=urn:btih:BE0952DE778488A53381527D4573E0FE64CB0183
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_193640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193640.jpgsave_picture_193640.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ magnet:?xt=urn:btih:84B40A60E237129EE7C10C6B8E276883C562A1A9
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193641.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193641.jpgsave_picture_193641.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ magnet:?xt=urn:btih:DEA7A5F158F10DDC6CADF1A9978AA12D6AAFEE07
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193642.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193642.jpgsave_picture_193642.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ magnet:?xt=urn:btih:0A98A21D7F88FDCECD5649978DC299F992FEB3F1
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193643.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193643.jpgsave_picture_193643.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ magnet:?xt=urn:btih:86096714D57AEE9A86FB1E6AB636D463A62C55C1
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193644.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193644.jpgsave_picture_193644.jpg" />
 </div>
 
 

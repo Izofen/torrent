@@ -6,7 +6,7 @@ Trailer Park Tycoon: Raccoon Ranch (2025) [Ru/En ] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250337.jpgsave_picture_250337.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Roman Triumph: Survival City Builder (2025) [Ru/Multi] (1.0.0) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250338.jpgsave_picture_250338.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Those Who Rule (2025) [En] (1.4.2) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250339.jpgsave_picture_250339.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ The Outer Worlds 2 (2025) [Ru/Multi] (1.0.3.0 Build 20467470/dlc) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250340.jpgsave_picture_250340.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Thief's Shelter (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250341.jpgsave_picture_250341.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ PowerWash Simulator 2 (2025) [Ru/Multi] (1.1.0.59) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250342.jpgsave_picture_250342.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Little Nightmares (2017-2025) [Ru/Multi] (build 19756066/1160/build 20018821/dlc
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250343.jpgsave_picture_250343.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Plus Ultra: Legado (2025) [Ru/Multi] (1.0.11) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250344.jpgsave_picture_250344.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ The Scouring (2025) [Ru/Multi] (02.11.25) Repack R.G. Freedom [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250345.jpgsave_picture_250345.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Painkiller (2025) [Ru/Multi] (224001/dlc) Repack Decepticon
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250346.jpgsave_picture_250346.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Need for Speed: Heat (2019) [Ru/Multi] (1.0.60.7040/dlc) Repack FitGirl [Deluxe 
 >>Racing
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250347.jpgsave_picture_250347.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ House Flipper 2 / Хаус Флиппер 2 (2023) [Ru/Multi] (1.10.2/dlc) Repac
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250350.jpgsave_picture_250350.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ The Bench (2025) [Ru/Multi] (Build 20633602) Repack Necros
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250351.jpgsave_picture_250351.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ The Remains And The Residue (2025) [Multi] (Build 19745628) Repack Necros
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250352.jpgsave_picture_250352.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Asterix & Obelix - Mission Babylon (2025) [Ru/Multi] (Build 20404417) Repack Let
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250353.jpgsave_picture_250353.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Need for Speed: Heat (2019) [Ru/Multi] (1.0.60.7040/dlc) Repack Wanterlude [Delu
 >>Racing
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250354.jpgsave_picture_250354.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Dementium: The Ward (2025) [Multi] (1.1.5) Repack Necros
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250355.jpgsave_picture_250355.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Shrine's Legacy (2025) [Multi] (1.04) Repack Necros
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250356.jpgsave_picture_250356.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Earth vs Mars (2025) [Ru/Multi] (001.000.4207100) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250436.jpgsave_picture_250436.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Vellum (2025) [En] (1.2.0) Repack Necros
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250465.jpgsave_picture_250465.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Microtopia (2025) [Ru/Multi] (1.1.2f2/dlc) Repack Let'sРlay [Supporter Edition]
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250466.jpgsave_picture_250466.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Onirism (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250467.jpgsave_picture_250467.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Death Roads: Tournament (2023) [Ru/Multi] (1.0.9.127) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250474.jpgsave_picture_250474.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Rogue Hex (2025) [Ru/Multi] (1.1.0/dlc) Repack Let'sРlay [Supporter Edition]
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250475.jpgsave_picture_250475.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ GODBREAKERS (2025) [Ru/Multi] (1.0/dlc) Repack FitGirl [Juice Edition]
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250481.jpgsave_picture_250481.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Gunfire Reborn (2021) [Ru/Multi] (20506329/dlc) Repack FitGirl [Bundles Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250482.jpgsave_picture_250482.jpg" />
 </div>
 
 

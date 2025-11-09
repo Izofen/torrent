@@ -6,7 +6,7 @@ HEIRS / Наследники (2024) [Ru/En] (Build 14928619) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50088.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50088.jpgsave_picture_50088.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Deep Rock Galactic (2020) [Ru/Multi] (1.39.102179.0/dlc) Scene Tenoke
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50097.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50097.jpgsave_picture_50097.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Land of the Vikings (2023) [Ru/Multi] (1.2.1a) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50105.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50105.jpgsave_picture_50105.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Songs of Syx (2020) [En] (0.66.49) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50107.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50107.jpgsave_picture_50107.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Eternal Escape: castle of shadows (2024) [Ru/Multi] (1.0) Scene TiNYiSO
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50166.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50166.jpgsave_picture_50166.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Grand Theft Auto San Andreas (2021) [Ru/Multi] (1.17.37984884) Scene Razor 1911 
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50180.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50180.jpgsave_picture_50180.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Frostpunk (2018) [Ru/Multi] (1.6.2/dlc) Repack dixen18
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50193.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50193.jpgsave_picture_50193.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Wolfenstein: Youngblood (2019) [Ru/Multi] (11991189/dlc) Repack Decepticon [Delu
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50199.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50199.jpgsave_picture_50199.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Clash II (2) (2022) [Multi] (497) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50208.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50208.jpgsave_picture_50208.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Euro Truck Simulator 2 (2013) [Ru/Multi] (1.50.3.7s/dlc) Repack dixen18
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50213.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50213.jpgsave_picture_50213.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ SunnySide (2024) [Multi] (1.15.11) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50246.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50246.jpgsave_picture_50246.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Ms. Holmes 6: Letter M (2024) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50251.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50251.jpgsave_picture_50251.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Tabletop Simulator (2015) [En] (13.1.1/dlc) Scene Doge [VR]
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50269.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50269.jpgsave_picture_50269.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ The Riftbreaker (2021) [Ru/Multi] (11738015/dlc) Scene Rune
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50271.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50271.jpgsave_picture_50271.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ DRAGON QUEST BUILDERS (2024) [Multi] (1.0.1/dlc) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50277.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50277.jpgsave_picture_50277.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ SaGa Emerald Beyond (2024) [Multi] (1.0.2/dlc) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50286.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50286.jpgsave_picture_50286.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Empyrion - Galactic Survival (2020) [Ru/Multi] (1.11.4448/dlc) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50296.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50296.jpgsave_picture_50296.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Mushoku Tensei: Jobless Reincarnation Quest of Memories (2024) [Multi] (14569299
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50297.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50297.jpgsave_picture_50297.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Baten Kaitos I & II HD Remaster (2024) [Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50367.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50367.jpgsave_picture_50367.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Tunguska: The Visitation / Тунгуска: Посещение (2021) [Ru/Multi
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50370.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50370.jpgsave_picture_50370.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Demeo (2021) [Multi] (1.36.256496) Scene Tenoke [VR]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50372.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50372.jpgsave_picture_50372.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ SAMURAI WARRIORS 4 DX (2024) [Multi] (1.0.1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50390.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50390.jpgsave_picture_50390.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ With My Past (2024) [Ru/Multi] (20240601) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50394.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50394.jpgsave_picture_50394.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Whispering Lane: Horror (2024) [Ru/Multi] (1.0) Repack FitGirl [Collector's Edit
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50401.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50401.jpgsave_picture_50401.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ FlashBack 2 (2023) [Multi] (1.00) Repack dixen18
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50414.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50414.jpgsave_picture_50414.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Robin Hood: Sherwood Builders (2024) [Ru/Multi] (2.01.31.01) Scene DINOByTES
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50420.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50420.jpgsave_picture_50420.jpg" />
 </div>
 
 

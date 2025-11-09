@@ -6,7 +6,7 @@ Comcast объявляет о первом в мире испытании мод
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130260.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130260.jpgsave_picture_130260.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Comcast объявляет о первом в мире испытании мод
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130261.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130261.jpgsave_picture_130261.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ magnet:?xt=urn:btih:5DD79072719767573C5C2BF776CDAF60A444919D
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130262.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130262.jpgsave_picture_130262.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ VA - Native American Sacred Sky (2011) [MP3|320 кб/с]<New age, World, Native 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130263.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130263.jpgsave_picture_130263.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ magnet:?xt=urn:btih:5C7C9F271107C6FF5DE3BD96D27EFAE4DE615BDE
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130265.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130265.jpgsave_picture_130265.jpg" />
 </div>
 
 
@@ -143,7 +143,7 @@ magnet:?xt=urn:btih:689D09BF80AAF63FF6C4E1B23A2862C08329F5C4
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130266.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130266.jpgsave_picture_130266.jpg" />
 </div>
 
 
@@ -170,7 +170,7 @@ VA - Sun & Chill, Vol. 3 (2015) [AAC|~319 Kbps] <Lounge, Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130269.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130269.jpgsave_picture_130269.jpg" />
 </div>
 
 
@@ -197,7 +197,7 @@ Daniel Wanrooy - Slice Of Life (2012) [MP3|320 кб/с]<Progressive Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130270.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130270.jpgsave_picture_130270.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ VA - Sun & Chill, Vol. 4 (2019) [AAC|~303 Kbps] <Lounge, Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130271.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130271.jpgsave_picture_130271.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ VA - Pure Deluxe 3 (2014) [AAC|~321 Kbps] <Lounge, Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130273.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130273.jpgsave_picture_130273.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ Triage - Rage (2012) [MP3|~245 кб/с (V0)]<Dubstep>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130274.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130274.jpgsave_picture_130274.jpg" />
 </div>
 
 
@@ -317,7 +317,7 @@ FSNotes 5.3.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130275.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130275.jpgsave_picture_130275.jpg" />
 </div>
 
 
@@ -341,7 +341,7 @@ For Found Future - Ambient Story (An Electronic Downbeat Journey from Chill to L
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130276.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130276.jpgsave_picture_130276.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ VA - Sun & Chill, Vol. 2 (2014) [AAC|~318 Kbps] <Lounge, Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130277.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130277.jpgsave_picture_130277.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ Shanti People - Urban Mantras (2015) [AAC|~295 Kbps] <Folk, EDM>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130278.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130278.jpgsave_picture_130278.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ VA - Deep Relaxation 2k22 (2022) [AAC|~299 Kbps] <Lounge, Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130279.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130279.jpgsave_picture_130279.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Downie 4 v4.4.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130280.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130280.jpgsave_picture_130280.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Exxperior - Escalating Conflicts (2021) [FLAC|Lossless|image + .cue] <Thrash Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130282.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130282.jpgsave_picture_130282.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ DeepChord Presents Echospace - [LIVE] (2010) [MP3|320 кб/с]<Dub Techno>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130283.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130283.jpgsave_picture_130283.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ TunesKit Video Cutter 2.3.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130284.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130284.jpgsave_picture_130284.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Feeder 4 v4.3.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130286.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130286.jpgsave_picture_130286.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Library Monkey Pro 3.2.2 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130288.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130288.jpgsave_picture_130288.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ MacClean360 5.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130290.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130290.jpgsave_picture_130290.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ VA - Peace Garden (2018) [AAC|~311 Kbps] <Lounge, Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130292.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130292.jpgsave_picture_130292.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ VA - Русские Новинки Vol.50 from AGR (2012) [MP3|320 кб/с]<Pop>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130293.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130293.jpgsave_picture_130293.jpg" />
 </div>
 
 
@@ -690,7 +690,7 @@ SideNotes 1.4.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130294.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130294.jpgsave_picture_130294.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Digital Emotion - The Maxi-Singles Collection (2023) Compilation [FLAC|Lossless|
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112493.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112493.jpgsave_picture_112493.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:71EB81FB3F07376313407780D76E30CFE521B942
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112494.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112494.jpgsave_picture_112494.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Spoq - Solace (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Breaks, DubStep,
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112495.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112495.jpgsave_picture_112495.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ VA - Dance Party Night (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112496.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112496.jpgsave_picture_112496.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:FA21FABD878453E33A012FCB7833E6B120C04EF3
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112497.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112497.jpgsave_picture_112497.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ Joe Satriani & Steve Vai - Satch/Vai: The Sea of Emotion, Pt. 1 (2024) [FLAC 24/
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112498.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112498.jpgsave_picture_112498.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ Q-Dir 11.51 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112499.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112499.jpgsave_picture_112499.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ Bonfire - Fireworks: MMXXIII Version (2023) [FLAC|Lossless|image + .cue] <Hard R
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112500.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112500.jpgsave_picture_112500.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ Enrique Iglesias - Final (Vol.2) (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <L
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112501.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112501.jpgsave_picture_112501.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ AudFree Audio Capture for Mac 3.1.0 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112502.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112502.jpgsave_picture_112502.jpg" />
 </div>
 
 
@@ -262,7 +262,7 @@ The Cynz - Little Miss Lost (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112503.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112503.jpgsave_picture_112503.jpg" />
 </div>
 
 
@@ -289,7 +289,7 @@ Emurasoft EmEditor Professional 24.1.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112504.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112504.jpgsave_picture_112504.jpg" />
 </div>
 
 
@@ -314,7 +314,7 @@ magnet:?xt=urn:btih:33298EC7A2E94DBFB3EB70CFA5E92CEB6FF98184
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112505.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112505.jpgsave_picture_112505.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ Tenchi Muyou! GXP: Paradise Shidou Hen | Тэнти - лишний! GXP Заро
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112506.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112506.jpgsave_picture_112506.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ magnet:?xt=urn:btih:A1A4617D57EE36BC6E8FD02D495BB72046E1319C
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112507.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112507.jpgsave_picture_112507.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ magnet:?xt=urn:btih:681876336EDEAC1226DB26521A23B71424C20AB4
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112508.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112508.jpgsave_picture_112508.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ magnet:?xt=urn:btih:153B1153FB6622B820BF2C7970086883DD3A5CF3
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112509.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112509.jpgsave_picture_112509.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ MishRooms - Пьяные драконы (2024) [MP3|320 Kbps] <Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112510.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112510.jpgsave_picture_112510.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ magnet:?xt=urn:btih:DA5D843387BC137587E52F408750887370BC7A7E
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112511.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112511.jpgsave_picture_112511.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ magnet:?xt=urn:btih:425B8C1A937A6BA62048AD75B92557B1B0B16D21
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112512.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112512.jpgsave_picture_112512.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ magnet:?xt=urn:btih:FCB313D11279CA4454B5F20EF89B993B57688872
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112513.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112513.jpgsave_picture_112513.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Lane 8 - Spring 2024 Mixtape (2024-03-19) [MP3|320 Kbps] <Progressive House, Mel
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112514.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112514.jpgsave_picture_112514.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ magnet:?xt=urn:btih:831C1975E267D87C48986DE76715F209705187BE
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112515.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112515.jpgsave_picture_112515.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ magnet:?xt=urn:btih:0FE7B6DF05553FB1493FCF926CE427141E8A4C0E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112516.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112516.jpgsave_picture_112516.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Sante DICOM Editor 10.0.7 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112517.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112517.jpgsave_picture_112517.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ magnet:?xt=urn:btih:D39993E4AA8AD89BBF1FE4399DDBA6696036A151
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112518.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112518.jpgsave_picture_112518.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_193446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193446.jpgsave_picture_193446.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:6B6AED324B758025BAA606108B5DB539FF068A12
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193447.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193447.jpgsave_picture_193447.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:25A8B384E25C489AB11DEBB33F860645BC5A65FB
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193448.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193448.jpgsave_picture_193448.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:47C8CF3E0BA9364505E1C4C99A1AF90AE663ACE2
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193449.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193449.jpgsave_picture_193449.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Magic Partition Recovery Home / Office / Unlimited Edition 4.9 RePack (& Portabl
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193450.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193450.jpgsave_picture_193450.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:143B279AA41526C51094F5FB6B4F9A86AFEE272F
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193451.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193451.jpgsave_picture_193451.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:CE71F8B5A0AEBE1E49F3CF75C3C3889588964E50
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_193452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193452.jpgsave_picture_193452.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:214787B669825F97F43B9A78078D3403B1C8D831
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193453.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193453.jpgsave_picture_193453.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:19DC56111EAA7F7882DEAC783758B6E8BEF3B8F0
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193454.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193454.jpgsave_picture_193454.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ magnet:?xt=urn:btih:1C561228E88EF493380DF502900012E1BC515DB5
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_193455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193455.jpgsave_picture_193455.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ magnet:?xt=urn:btih:237F213411FBC5AC37AABFC4FDE0223923F6C69C
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193456.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193456.jpgsave_picture_193456.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ VA - Lounge Pool (Deep Strips Records) (2025) [FLAC|Lossless|WEB-DL|tracks] <Hou
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193457.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193457.jpgsave_picture_193457.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:E72C0012CE2CBB8A9C6BB5280F4FA7690D28AE8A
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193458.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193458.jpgsave_picture_193458.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Internet Download Manager 6.42 Build 52 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193459.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193459.jpgsave_picture_193459.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ It's a Wrap! (2023) [Ru/Multi] (1.0.6) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193460.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193460.jpgsave_picture_193460.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Metal Eden (2025) [Ru/Multi] (85667) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193461.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193461.jpgsave_picture_193461.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ Dispatch (2025) [Ru/Multi] (1.0.14864/dlc) Repack Other s [Digital Deluxe Editio
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193462.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193462.jpgsave_picture_193462.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ magnet:?xt=urn:btih:EA2741383A34D6AC843A5FB90FF90A7C15B9F6B0
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193463.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193463.jpgsave_picture_193463.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ magnet:?xt=urn:btih:BA61BF0E6B1C1B9A89D739909D33DAD129DDACC0
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193464.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193464.jpgsave_picture_193464.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Deep Purple - Machine Head (1972) Remaster SMRP, Russia, 2020, De-Noised [MP3|32
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_193465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193465.jpgsave_picture_193465.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Serious Sam 2 / Крутой Сэм 2 (2005) [Ru/En] (2.100.00:739578) Repack Fi
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193466.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193466.jpgsave_picture_193466.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:8564AF14244C8DFA1B0657BDFAE878ED7BA26DC2
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193467.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193467.jpgsave_picture_193467.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Onirism (2025) [Ru/Multi] (1.0) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193468.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193468.jpgsave_picture_193468.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ magnet:?xt=urn:btih:95502885601C731261D7E82D243D795DBF2C29D8
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_193469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193469.jpgsave_picture_193469.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Lady Mabel Mysteries: Death on Board (2025) [En] (1.0) Unofficial [Collector's E
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193470.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193470.jpgsave_picture_193470.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ magnet:?xt=urn:btih:FF0732185C1EFAB2795B8A235AD0E26614A68976
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193471.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193471.jpgsave_picture_193471.jpg" />
 </div>
 
 

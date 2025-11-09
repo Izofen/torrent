@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242018.jpgsave_picture_242018.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Slimjet 26.0.3.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242019.jpgsave_picture_242019.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:A96B43BB88FBFF01823D264638F93ED48399D3C5
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242020.jpgsave_picture_242020.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:420741679F3D08BE2B59A0C8470E03D7B55C5AA9
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242021.jpgsave_picture_242021.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ Daniel.B. (DANIEL B.) - Six+Six (2020) [FLAC|Lossless|image + .cue] <Industrial,
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242022.jpgsave_picture_242022.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ VA - German Top 40 DBC Deutsche Black Charts 24.02.(2017) [MP3|192-320 Kbps] <Hi
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242023.jpgsave_picture_242023.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ Aiseesoft Video Converter Ultimate 10.6.28 RePack (& Portable) by TryRooM [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242024.jpgsave_picture_242024.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ System of a Down - Studio Albums (6 releases) (1998 - 2020) hand made [restored,
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242025.jpgsave_picture_242025.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ magnet:?xt=urn:btih:A4B52FC75A5D695BEDD3F19D3BACF06980CD2F82
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242026.jpgsave_picture_242026.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ Topaz Photo AI 1.2.10 (x64) RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242027.jpgsave_picture_242027.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ magnet:?xt=urn:btih:3143A04F805E6266719D49A156303C4BE8933B20
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242028.jpgsave_picture_242028.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ magnet:?xt=urn:btih:AEC82D46A490917C3E92B88E9E0BCACD74F5930A
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242029.jpgsave_picture_242029.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ Synthatic - Take A Ride (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance>
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242030.jpgsave_picture_242030.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ SideFX, Simon Verstraete | Post Apocalyptic Ruins for UE4 in Houdini (2020) PCRe
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242031.jpgsave_picture_242031.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Wise Care 365 Pro 6.5.3.625 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242032.jpgsave_picture_242032.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ CPU-Z 2.01.0 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242033.jpgsave_picture_242033.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ magnet:?xt=urn:btih:B210A08E2A853689288561949997F3AE8F73AF39
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242034.jpgsave_picture_242034.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ magnet:?xt=urn:btih:90D032BD11FE6FCCCCA76583F4E0EBE106767D62
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242035.jpgsave_picture_242035.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ ExamDiff Pro 13.0.1.17 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242036.jpgsave_picture_242036.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Cycling'74 Max 8.5.4 + RNBO U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242038.jpgsave_picture_242038.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ magnet:?xt=urn:btih:6DBFDDD08E69996BDD9C2356169E33EDFE361FFB
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242039.jpgsave_picture_242039.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ magnet:?xt=urn:btih:4B318F2A71923E7A0E1E5B4D0FC5AE749178C866
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242040.jpgsave_picture_242040.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Dead Animal Assembly Plant - Bring Out The Dead (2021) [FLAC|Lossless|WEB-DL|tra
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242041.jpgsave_picture_242041.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ magnet:?xt=urn:btih:61554EF801906F6398460E3E46B82322AADA103A
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242042.jpgsave_picture_242042.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Vivaldi 2.11.1811.52 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242044.jpgsave_picture_242044.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ magnet:?xt=urn:btih:4D7B5A4EF6864F31F76C20FAEBC166FC7F61D645
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242045.jpgsave_picture_242045.jpg" />
 </div>
 
 

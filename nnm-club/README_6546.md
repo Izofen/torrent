@@ -6,7 +6,7 @@
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208752.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208752.jpgsave_picture_208752.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ SamDrivers 23.7 LAN [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208754.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208754.jpgsave_picture_208754.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Spotify 1.2.15.828 (Repack & Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208755.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208755.jpgsave_picture_208755.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:0855F47849F0C2E230DA9459F3336D5615DFA8B4
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208757.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208757.jpgsave_picture_208757.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:4674A3707E9B9D777916599963E65E76EE17B3DA
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208759.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208759.jpgsave_picture_208759.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ Blur - The Ballad Of Darren (2023) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208763.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208763.jpgsave_picture_208763.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ SIV (System Information Viewer) 5.71 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208764.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208764.jpgsave_picture_208764.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:867D2F2F168A757D04D36E55363378397D083102
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208765.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208765.jpgsave_picture_208765.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ magnet:?xt=urn:btih:DD755C06D72D7997F522C6B031B413E36AFE11B6
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208768.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208768.jpgsave_picture_208768.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ DIGI Clock Widget Plus 3.3.2 (build 25408) [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208771.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208771.jpgsave_picture_208771.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:2B5595C79F91D975493AB42D4BDF737A52C44121
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208772.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208772.jpgsave_picture_208772.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ Glarysoft Malware Hunter PRO 1.169.0.787 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208773.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208773.jpgsave_picture_208773.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ magnet:?xt=urn:btih:A7E766725F391385DE4D08D18CDB1D0559FA6AA5
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208776.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208776.jpgsave_picture_208776.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ A Dark Halo - Omnibus One (2023) [FLAC|Lossless|WEB-DL|tracks] <Industrial Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208778.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208778.jpgsave_picture_208778.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ magnet:?xt=urn:btih:CF3AB2E4BC8ECB5D54B7477633ACAECC28DB5ED8
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208780.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208780.jpgsave_picture_208780.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Mixxx 2.3.5 (x64) [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208783.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208783.jpgsave_picture_208783.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ magnet:?xt=urn:btih:3D398EDB2F4F8602E84AE138895E459CA1A9CA15
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208785.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208785.jpgsave_picture_208785.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ magnet:?xt=urn:btih:B68D846909860F61040F149E7D9CC03EED60AFE3
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208788.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208788.jpgsave_picture_208788.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ magnet:?xt=urn:btih:66A3FA9163146EF1A8A286351DA0858E03E8E356
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208789.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208789.jpgsave_picture_208789.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ magnet:?xt=urn:btih:B83AE78818501999F92F9ABAE4DDF756C943FB6B
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208792.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208792.jpgsave_picture_208792.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ VA - Music News vol.281 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208795.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208795.jpgsave_picture_208795.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ magnet:?xt=urn:btih:A9BA5E0E9C7ADB1C0338D5360A8E44E1CD74A10A
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208798.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208798.jpgsave_picture_208798.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Scream Maker - Land Of Fire (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208799.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208799.jpgsave_picture_208799.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Zardonic - Superstars (2023) [FLAC|Lossless|WEB-DL|tracks] <Industrial Rock, Dru
 >>Dubstep, Future Garage, Bass Music, UK Garage (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208802.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208802.jpgsave_picture_208802.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Udemy, Michael Pogrebinsky | Software Architecture & Design of Modern Large Scal
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208804.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208804.jpgsave_picture_208804.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ magnet:?xt=urn:btih:9A12256A94A48B3AAB7111608DEF7059A45B5822
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208806.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208806.jpgsave_picture_208806.jpg" />
 </div>
 
 

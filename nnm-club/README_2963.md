@@ -6,7 +6,7 @@
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88046.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88046.jpgsave_picture_88046.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88047.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88047.jpgsave_picture_88047.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Sandra - Greatest Hits (2008) [MP3|320 кб/с]<Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88048.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88048.jpgsave_picture_88048.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:14CD2BCC3A2891766B7C5255A68684353626F12D
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88051.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88051.jpgsave_picture_88051.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ magnet:?xt=urn:btih:5325B53EF10DB45BB91AAF87B0A1A070C237E55F
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88053.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88053.jpgsave_picture_88053.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ magnet:?xt=urn:btih:5325B53EF10DB45BB91AAF87B0A1A070C237E55F
 >>Мобильное Видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88054.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88054.jpgsave_picture_88054.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ magnet:?xt=urn:btih:5325B53EF10DB45BB91AAF87B0A1A070C237E55F
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88055.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88055.jpgsave_picture_88055.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ magnet:?xt=urn:btih:CACA1E9359301F5659B1A0DE8C316F3D8478F361
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88057.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88057.jpgsave_picture_88057.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ magnet:?xt=urn:btih:CACA1E9359301F5659B1A0DE8C316F3D8478F361
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88058.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88058.jpgsave_picture_88058.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ LabVIEW 2011 sp1 (x86+x64) + NI-DAQmx 9.5.1 + NI-VISA 5.1.2 + Device Drivers 201
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88060.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88060.jpgsave_picture_88060.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ LabVIEW 2011 sp1 (x86+x64) + NI-DAQmx 9.5.1 + NI-VISA 5.1.2 + Device Drivers 201
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88063.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88063.jpgsave_picture_88063.jpg" />
 </div>
 
 
@@ -290,7 +290,7 @@ LabVIEW 2011 sp1 (x86+x64) + NI-DAQmx 9.5.1 + NI-VISA 5.1.2 + Device Drivers 201
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88065.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88065.jpgsave_picture_88065.jpg" />
 </div>
 
 
@@ -315,7 +315,7 @@ magnet:?xt=urn:btih:E40FF50A4015C29A0EC6A1128E997063EAA7184A
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88066.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88066.jpgsave_picture_88066.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ magnet:?xt=urn:btih:E40FF50A4015C29A0EC6A1128E997063EAA7184A
 >>PSP
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88069.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88069.jpgsave_picture_88069.jpg" />
 </div>
 
 
@@ -365,7 +365,7 @@ magnet:?xt=urn:btih:C3F850846311E738E76FB268D9621DC062C3FA98
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88070.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88070.jpgsave_picture_88070.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ magnet:?xt=urn:btih:E21387C59073230B9D037447DF0EDF9E62D4F8DC
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88073.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88073.jpgsave_picture_88073.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ Zолушка (2012) [1080p] BDRip
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88076.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88076.jpgsave_picture_88076.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ VA - Super Classic Hits (2006) 2 CD [FLAC|Lossless]<Classic>
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88077.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88077.jpgsave_picture_88077.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ JoJo's Fashion Show 3: World Tour Express / Модный показ 3. Миро�
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88078.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88078.jpgsave_picture_88078.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ magnet:?xt=urn:btih:2ACBBD8C1BAC7E8DB68AB4EA9D56686609EED77D
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88079.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88079.jpgsave_picture_88079.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ Windows 7 Start Orb Changer 4.0 + 17 кнопок [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88080.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88080.jpgsave_picture_88080.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Windows 7 Start Orb Changer v4 разработан специально для 
 >>Прошедшие конкурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88081.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88081.jpgsave_picture_88081.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Windows 7 Start Orb Changer v4 разработан специально для 
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88083.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88083.jpgsave_picture_88083.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ magnet:?xt=urn:btih:966C09E3B66A695629DCCE12049A67D1B3F4ACDD
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88084.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88084.jpgsave_picture_88084.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ magnet:?xt=urn:btih:FF984B577AECB8F4170BA9C969FC6EE899823B52
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88085.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88085.jpgsave_picture_88085.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ magnet:?xt=urn:btih:2A2C97CDE8B8B97730A584D15B12DF8C4C17EF20
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88086.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88086.jpgsave_picture_88086.jpg" />
 </div>
 
 

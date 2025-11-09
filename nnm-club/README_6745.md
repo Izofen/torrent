@@ -6,7 +6,7 @@
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231976.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231976.jpgsave_picture_231976.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ AIDA64 Extreme Edition 6.88.6441 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231977.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231977.jpgsave_picture_231977.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Topaz Photo AI 1.3.6 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_231978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231978.jpgsave_picture_231978.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Arkham Witch - Beer and Bullet Belts (2023) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231981.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231981.jpgsave_picture_231981.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Yate 6.16 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231982.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231982.jpgsave_picture_231982.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ VA - Midnight Blues (2023) [MP3|320 Kbps] <Blues>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_231983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231983.jpgsave_picture_231983.jpg" />
 </div>
 
 
@@ -161,7 +161,7 @@ magnet:?xt=urn:btih:7DD06E786275921B9BA046906AAB386D07288F72
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231984.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231984.jpgsave_picture_231984.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ magnet:?xt=urn:btih:19F7D76649E6784C87C29339A274DE6290F9CE59
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231987.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231987.jpgsave_picture_231987.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Mourning Knight - A World of Dreams (2023) [MP3|320 Kbps] <Progressive Rock, Sym
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231988.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231988.jpgsave_picture_231988.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ FanControl V163 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231989.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231989.jpgsave_picture_231989.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ magnet:?xt=urn:btih:A8BA43183F104BFE35C1C3C8ED7042E487E8684E
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_231990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231990.jpgsave_picture_231990.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ Tokyo Blade - Fury (2022) [FLAC|Lossless|image + .cue] <NWOBHM, Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231993.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231993.jpgsave_picture_231993.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ SoulSplit - Пустой ад. Часть 1-2 (2021-2023) [MP3|320 Kbps] <Gothic
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231994.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231994.jpgsave_picture_231994.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ Live Wallpaper & Themes 4K Pro 17.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231995.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231995.jpgsave_picture_231995.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ magnet:?xt=urn:btih:8B79A665F089BC4362787FD8B5549B42D2B41AD5
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_231996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231996.jpgsave_picture_231996.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ Lectoroom, Мария Павлова | Букет клубники маслом 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231997.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231997.jpgsave_picture_231997.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ The Mighty Bard - Beyond The Gate (2023) [FLAC|Lossless|WEB-DL|tracks] <Progress
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232000.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232000.jpgsave_picture_232000.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ VA - Chill Out, Vol. 1 (2023) [MP3|320 Kbps] <Chillout, Downtempo, Balearic>
 >>Downtempo, Trip-Hop, Lounge
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232001.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232001.jpgsave_picture_232001.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ magnet:?xt=urn:btih:1A923530AF435995C4CD5ADC4AFE3379AD595D81
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232002.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232002.jpgsave_picture_232002.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ magnet:?xt=urn:btih:202F71565090495F0D9A7B0BCE6909A17E736B5B
 >>Религии и культы (Док/TV)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232003.jpgsave_picture_232003.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ Degreed - Public Address (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard-Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232004.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232004.jpgsave_picture_232004.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ magnet:?xt=urn:btih:C25B774FC006343102DD7F232A00FF4134FC55B3
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232007.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232007.jpgsave_picture_232007.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Abstractian - Sharpened Hearts (2023) [MP3|320 Kbps] <Progressive Metal, Rock>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232008.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232008.jpgsave_picture_232008.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Swinsian 3.0 Preview 7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232009.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232009.jpgsave_picture_232009.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ magnet:?xt=urn:btih:FE6E6A0E043212EBA3A59BE34146F6D95166FA2A
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232010.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232010.jpgsave_picture_232010.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ magnet:?xt=urn:btih:FDB39C95527EEF1FCEFCA06FC696E1BC7E5782EB
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232011.jpgsave_picture_232011.jpg" />
 </div>
 
 

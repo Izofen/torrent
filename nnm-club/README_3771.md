@@ -6,7 +6,7 @@ QOwnNotes 24.2.0 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118426.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118426.jpgsave_picture_118426.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:0A0164CD30DC98B2E5B1B04EF6E96A26B5377EB4
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118427.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118427.jpgsave_picture_118427.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ CrossOver 24.0-b2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118428.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118428.jpgsave_picture_118428.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ PhotoRoom v4.8.4 b1280 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118429.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118429.jpgsave_picture_118429.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:D67C673455A5DECCBD9E2BBC26F05F9AF7D571C5
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118430.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118430.jpgsave_picture_118430.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:3DC612225DEFC52469ED6435E4BFF15980387A67
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118431.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118431.jpgsave_picture_118431.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:49963D46DE49DBECDE6838C434F65E6F38867750
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118432.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118432.jpgsave_picture_118432.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Last In Time - Too Late (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118433.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118433.jpgsave_picture_118433.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ Hitman Blues Band - "Hey, Can You Guys Play..." (2023) [FLAC|Lossless|WEB-DL|tra
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118434.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118434.jpgsave_picture_118434.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ magnet:?xt=urn:btih:CE75BD9E7C7DB690993A245270254DBBFFE58190
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118435.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118435.jpgsave_picture_118435.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ magnet:?xt=urn:btih:9B6752BAB4A6B21B57CC046025916D40B99767B8
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118436.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118436.jpgsave_picture_118436.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ magnet:?xt=urn:btih:D383623C32E40DA67CFB4C9613A4ECC99352DD64
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118437.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118437.jpgsave_picture_118437.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ magnet:?xt=urn:btih:4D0E07C89FEDBC80856C8D1C8F82DDBF341EB44A
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118438.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118438.jpgsave_picture_118438.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ PortableApps.com Platform 29.1.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118439.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118439.jpgsave_picture_118439.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ magnet:?xt=urn:btih:AEF304853F0AD2C259D82275B82AFDF75D6868EF
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118440.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118440.jpgsave_picture_118440.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ PDFsam Basic 5.2.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118441.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118441.jpgsave_picture_118441.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ Legendary Tales 3: Stories (2024) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118442.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118442.jpgsave_picture_118442.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ TheAeroClock 8.51 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118443.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118443.jpgsave_picture_118443.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ magnet:?xt=urn:btih:716E4714FAB84ECDDF448BA89EAB08519C256E69
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118444.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118444.jpgsave_picture_118444.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ tTorrent Pro  1.8.7 Paid [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118445.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118445.jpgsave_picture_118445.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ magnet:?xt=urn:btih:2BE6F06ED343CE78148BFBA33825D1A93B277B2B
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118446.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118446.jpgsave_picture_118446.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ magnet:?xt=urn:btih:95BA2E2D9BC47990915281A8613F4DEBD825D18C
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118447.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118447.jpgsave_picture_118447.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ Don't Sleep 9.47 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118448.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118448.jpgsave_picture_118448.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:2F0A08369EDFF82291B99AED4875C56A963F905D
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118449.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118449.jpgsave_picture_118449.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ VA - Music News vol.338 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118450.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118450.jpgsave_picture_118450.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ VA - Music News vol.339 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118451.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118451.jpgsave_picture_118451.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74589.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74589.jpgsave_picture_74589.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:5DCEACFD841EA60F86DADA3DA2A9B8713C83DFD7
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74593.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74593.jpgsave_picture_74593.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ McAfee Avert Stinger Portable 10.2.0.502 [eng]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74598.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74598.jpgsave_picture_74598.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ McAfee Avert Stinger - это бесплатный, не требующий ус
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74613.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74613.jpgsave_picture_74613.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:20F9DA58374CFCD9872430515EBAF25F44726114
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74625.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74625.jpgsave_picture_74625.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:980A8B9E68921B74EF8AA1509A29985C431EB25F
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74633.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74633.jpgsave_picture_74633.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Van Canto - Live at Wacken (2008) DVDRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74637.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74637.jpgsave_picture_74637.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:6D4A2193FE1115C7F92BE06C97C4D5D2FA9E8BE9
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74658.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74658.jpgsave_picture_74658.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ Van Canto - Клипы (2006-2011) DVDRip, WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74681.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74681.jpgsave_picture_74681.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ magnet:?xt=urn:btih:4D5FA095EB1E6BB65AC868C607A608046F1EC381
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74683.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74683.jpgsave_picture_74683.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ magnet:?xt=urn:btih:12AEB124BA6E2810419EE0953DC4E595F5078BDD
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74704.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74704.jpgsave_picture_74704.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ magnet:?xt=urn:btih:12AEB124BA6E2810419EE0953DC4E595F5078BDD
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74723.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74723.jpgsave_picture_74723.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ magnet:?xt=urn:btih:12AEB124BA6E2810419EE0953DC4E595F5078BDD
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74728.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74728.jpgsave_picture_74728.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ magnet:?xt=urn:btih:12AEB124BA6E2810419EE0953DC4E595F5078BDD
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74729.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74729.jpgsave_picture_74729.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ magnet:?xt=urn:btih:D6DEC7928CB26876252782BFA80C93E7FC8B58CA
 >>Азиатское кино (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74747.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74747.jpgsave_picture_74747.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ magnet:?xt=urn:btih:D6DEC7928CB26876252782BFA80C93E7FC8B58CA
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74754.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74754.jpgsave_picture_74754.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ magnet:?xt=urn:btih:D6DEC7928CB26876252782BFA80C93E7FC8B58CA
 >>Отечественные Мультфильмы 21-го века (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74763.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74763.jpgsave_picture_74763.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ magnet:?xt=urn:btih:7F34249DE188D332A3354881B142D02AD43D2B5D
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74774.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74774.jpgsave_picture_74774.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ Game Prelauncher 3.2.6 [Русский\англ]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74778.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74778.jpgsave_picture_74778.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Game Prelauncher — это популярный полный оптимизат
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74782.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74782.jpgsave_picture_74782.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ magnet:?xt=urn:btih:FEB9B0BA9CF9CAE9A6B6FC78EACC4933BE5E5738
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74800.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74800.jpgsave_picture_74800.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ The Fray - Scars & Stories (2012) [FLAC|Lossless]<Alternative, Rock, Piano Rock>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74806.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74806.jpgsave_picture_74806.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ The Fray - Scars & Stories (2012) [FLAC|Lossless]<Alternative, Rock, Piano Rock>
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74816.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74816.jpgsave_picture_74816.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ magnet:?xt=urn:btih:E60A22DE7497AD1294253C5F0B1F61323FBE580E
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74821.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74821.jpgsave_picture_74821.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ magnet:?xt=urn:btih:758D108946FA112CCA50D8AD204D68411424076C
 >>Религии и культы (Док/TV)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74824.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74824.jpgsave_picture_74824.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ magnet:?xt=urn:btih:95E29F9664CABA5B5C7E34719DD9AAB11187F03D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74832.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74832.jpgsave_picture_74832.jpg" />
 </div>
 
 

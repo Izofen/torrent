@@ -6,7 +6,7 @@ Wise Care 365 Pro 6.6.3.633 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133683.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133683.jpgsave_picture_133683.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:5FB3001B6DE5623DDF5B72374E8CE44C128A4C0A
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133684.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133684.jpgsave_picture_133684.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:C8E2412C2118CD4ACEB58CEAF007C3D422E41560
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133685.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133685.jpgsave_picture_133685.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Miss Li - Singles and Selected (2012) [MP3|320 кб/с]<Soul \ Vocal Jazz \ Indi
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133686.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133686.jpgsave_picture_133686.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ magnet:?xt=urn:btih:209AAA62DC86F22143BD314D318097FF28A23F1E
 >>Звуковые дорожки и субтитры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133687.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133687.jpgsave_picture_133687.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Teorex Inpaint 10.2.3 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133689.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133689.jpgsave_picture_133689.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ magnet:?xt=urn:btih:E78C496707B80CFBE3D3FC415151ECB496B3F876
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133690.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133690.jpgsave_picture_133690.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ National Geographic. Подземный мир майя: настоящий ко
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133691.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133691.jpgsave_picture_133691.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ Capture One 23 Pro 16.3.2.32 [En/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133693.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133693.jpgsave_picture_133693.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ magnet:?xt=urn:btih:75D1E2837D54980367BD8770F8592C0468E6CACD
 >>Авторская и Военная песня (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133695.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133695.jpgsave_picture_133695.jpg" />
 </div>
 
 
@@ -262,7 +262,7 @@ magnet:?xt=urn:btih:BE6BEDC65CD734EB2F04330B6074FD86D69CFA09
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133696.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133696.jpgsave_picture_133696.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ ID Photos Pro  8.11.2.2 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133697.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133697.jpgsave_picture_133697.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ magnet:?xt=urn:btih:848A4CE2E351D5321541924CCE796CA2DF7A026B
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133698.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133698.jpgsave_picture_133698.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ magnet:?xt=urn:btih:91396B3FAEF04E8903D76D1C82A6338526CDC9EB
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133699.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133699.jpgsave_picture_133699.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ Serif Affinity Photo 2.3.0.2165 RePack by KpoJIuK [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133701.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133701.jpgsave_picture_133701.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ Alice Cooper - Road (2023) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133703.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133703.jpgsave_picture_133703.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ magnet:?xt=urn:btih:2E6F673E7931A4B6BC1FE81310576EB605384DFE
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133704.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133704.jpgsave_picture_133704.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ magnet:?xt=urn:btih:AE00DD6D756A883E8B90E34F6CE328414125AEFF
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133705.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133705.jpgsave_picture_133705.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ magnet:?xt=urn:btih:22E13B9812E470B90C53E48D082F2D6EA3282F09
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133706.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133706.jpgsave_picture_133706.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ simplewall 3.7.6 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133707.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133707.jpgsave_picture_133707.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ Teorex Inpaint 10.2.3 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133708.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133708.jpgsave_picture_133708.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ magnet:?xt=urn:btih:90CBFC153D3400D5797AB6A60737233451591524
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133710.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133710.jpgsave_picture_133710.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ magnet:?xt=urn:btih:F01E057B2F54F794A4AC59E8E61626B75ACABD9F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133712.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133712.jpgsave_picture_133712.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Topaz Video AI 4.0.5 (x64) RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133714.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133714.jpgsave_picture_133714.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ VA - Christmas Chillout: 20 Smooth & Holy Lounge Tunes (2012) [MP3|320 кб/с]<
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133715.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133715.jpgsave_picture_133715.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ magnet:?xt=urn:btih:54677BA1E36683ED84CF3FEAFF4859221895C6C6
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133716.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133716.jpgsave_picture_133716.jpg" />
 </div>
 
 

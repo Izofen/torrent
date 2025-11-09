@@ -6,7 +6,7 @@
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138093.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138093.jpgsave_picture_138093.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:306AB12056575B4BD0EBA83EEC413E8B4CF68860
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138094.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138094.jpgsave_picture_138094.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ magnet:?xt=urn:btih:7C4F143EC4DE56B6C5A7AA88C47126674B02D5C6
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138097.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138097.jpgsave_picture_138097.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:2FD09D97F3035EA0D01F3C08FC8B442870B87784
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138099.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138099.jpgsave_picture_138099.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ Sandboxie 5.67.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138101.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138101.jpgsave_picture_138101.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:C5C7838C70E16045B2F1C7AFDA5E502461F2CDB7
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138103.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138103.jpgsave_picture_138103.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:48B9278B23BC6F58C5803D6C025C0E80306F5EF1
 >>Мобильное Видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138104.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138104.jpgsave_picture_138104.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - Best Of Piston Recordings 2021 (2021) [AAC|~308 Kbps] <Deep House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138105.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138105.jpgsave_picture_138105.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ Noblesse | Дворянство [2020, TV, 13] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138107.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138107.jpgsave_picture_138107.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ Old Gods of Asgard feat. Alan Wake & Mr. Door - Herald of Darkness (2023) Single
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138108.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138108.jpgsave_picture_138108.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ magnet:?xt=urn:btih:4D98D321DFE4B900D86604718F346467064EBAEB
 >>Мобильное Видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138109.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138109.jpgsave_picture_138109.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ magnet:?xt=urn:btih:138141AF745EB0274BD17F9CEA8B08B72CA77A76
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138110.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138110.jpgsave_picture_138110.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ magnet:?xt=urn:btih:5D22FB36CF19DADD3FA6A104B3722C16057A79A4
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138111.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138111.jpgsave_picture_138111.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ Foster & Allen - Reflections. 20 Best Loved Favorites (1987) [FLAC 2.0|24/192|im
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138112.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138112.jpgsave_picture_138112.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ magnet:?xt=urn:btih:52A7AA0F1D98679ACFBF1ACB9AD27491F0398F8A
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138113.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138113.jpgsave_picture_138113.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ VA - Steyoyoke Gems Solar 10 (2021) [AAC|~337 Kbps] <Progressive House, Deep Hou
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138114.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138114.jpgsave_picture_138114.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ Niji-iro Hotaru: Eien no Natsuyasumi | Rainbow Fireflies | Радужные св
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138117.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138117.jpgsave_picture_138117.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ magnet:?xt=urn:btih:71B70B3CCD40DE71FDDCE9D913E043CC9EE00F2C
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138118.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138118.jpgsave_picture_138118.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ magnet:?xt=urn:btih:C247C3C83A630D7A2F08D15B22B8DFEC17A890F3
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138119.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138119.jpgsave_picture_138119.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ Yes - Fragile (1971) Remaster, 2015, Atlantic Records [ALAC|2.0 24/88|tracks]<Sy
 >>Музыка Lossless (ALAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138120.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138120.jpgsave_picture_138120.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ magnet:?xt=urn:btih:600456F21BCD987F88FD85BE8BAA97C2C76C6900
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138121.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138121.jpgsave_picture_138121.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ magnet:?xt=urn:btih:1D7E6ADD2CE570759ED411B434B6CA4AA50328F9
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138122.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138122.jpgsave_picture_138122.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ VA - Organica - Sound Tales 2 (2021) [AAC|~303 Kbps] <Deep House, Dub Techno>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138123.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138123.jpgsave_picture_138123.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ magnet:?xt=urn:btih:CCF355571D710DFE6DF8A8DAB370B87434464582
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138125.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138125.jpgsave_picture_138125.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ MCShield 3.0.5.28 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138128.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138128.jpgsave_picture_138128.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ magnet:?xt=urn:btih:04E4C591A600E1A9EB3F0604FBBCE9194E56CB86
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138130.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138130.jpgsave_picture_138130.jpg" />
 </div>
 
 

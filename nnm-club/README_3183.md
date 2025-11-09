@@ -6,7 +6,7 @@ Denzel Curry - KING OF THE MISCHIEVOUS SOUTH (2024) [FLAC|Lossless|Web-DL|tracks
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103096.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103096.jpgsave_picture_103096.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:A21E99675CE49ED6548707B2BDA26FF43E860EA7
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103097.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103097.jpgsave_picture_103097.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Satyrian - The Dark Gift (2007) [FLAC|Lossless|image + .cue] <Symphonic Gothic M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103098.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103098.jpgsave_picture_103098.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:78592767348756494839A3039206E8A9B7009A9D
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103099.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103099.jpgsave_picture_103099.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Eden On Fire - Unresolved (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103100.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103100.jpgsave_picture_103100.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ magnet:?xt=urn:btih:E80A4EE61913E651172E37A06D59C287F3765659
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103101.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103101.jpgsave_picture_103101.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ magnet:?xt=urn:btih:F2861BA25E3CD4FA00125128F7B3B27F14247540
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103102.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103102.jpgsave_picture_103102.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Voltstorm - Break The Silence (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103103.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103103.jpgsave_picture_103103.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ magnet:?xt=urn:btih:3753D25F5F1F0109013D0CC991ADE7F10264203F
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103104.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103104.jpgsave_picture_103104.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Don Ellis - Three Classic Albums Plus (1959 - 1962) 2CD, 2018, Avid Jazz [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103105.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103105.jpgsave_picture_103105.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Earthcorpse - The Taste Of Sin (1999) [FLAC|Lossless|image + .cue] <Doom Death M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103106.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103106.jpgsave_picture_103106.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ magnet:?xt=urn:btih:D397E312D8DD94C68EC727D1255EFDC558CBBFDB
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103107.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103107.jpgsave_picture_103107.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Eden On Fire - Unresolved (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock,
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103108.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103108.jpgsave_picture_103108.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Embrace By Dark - Sculpture Of The Godforsaken Aeons (2003) [FLAC|Lossless|image
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103109.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103109.jpgsave_picture_103109.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ magnet:?xt=urn:btih:6239D4CD50AF924DF685F959E5D929BF767F9754
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103110.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103110.jpgsave_picture_103110.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Extinkt - Postnucleartrip To Nowhere (2016) [FLAC|Lossless|image + .cue] <Thrash
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103111.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103111.jpgsave_picture_103111.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ magnet:?xt=urn:btih:D35D574D5A350B6BA14C6F1D0DBC712FF6EFBE9D
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103112.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103112.jpgsave_picture_103112.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ magnet:?xt=urn:btih:A857E0AD97B461EC48CA1516C396DB1DB1F78CCB
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103113.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103113.jpgsave_picture_103113.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ magnet:?xt=urn:btih:8C6B4616246E228583CBE2AD8DA6B5116BFE2FD9
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103114.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103114.jpgsave_picture_103114.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Telegram Desktop 5.8.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103115.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103115.jpgsave_picture_103115.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ magnet:?xt=urn:btih:F1903EEB35746C4911DB76EB7E744BCC80559ACE
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103116.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103116.jpgsave_picture_103116.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ VivaVideo Video Editor v9.22.5 Mod by MustHave [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103117.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103117.jpgsave_picture_103117.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Underworld - Strawberry Hotel (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Tech H
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103118.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103118.jpgsave_picture_103118.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ magnet:?xt=urn:btih:8EF5A5B646148EBE584730029470E08C056F0B0A
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103119.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103119.jpgsave_picture_103119.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ VA - Steel Bars - A Rock Tribute To Michael Bolton (2024) [FLAC 24/44.1|Lossless
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103120.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103120.jpgsave_picture_103120.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ magnet:?xt=urn:btih:4E132ED6A0B625CC959BD79C10E881EF07895C58
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103121.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103121.jpgsave_picture_103121.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Dirty Ducks - Yearmix (2018) [MP3|320 Kbps] <Electro House, Progressive House>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145935.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145935.jpgsave_picture_145935.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Pink - The Truth About Love Tour (Live From Melbourne) (2013) BDRip [720p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145936.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145936.jpgsave_picture_145936.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:A4205CEA4EABD4888BB3289D904BC541D70C2DF2
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145937.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145937.jpgsave_picture_145937.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:C77DC619BB29742211BD78A8E92BB44229931348
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145938.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145938.jpgsave_picture_145938.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ magnet:?xt=urn:btih:7AC6DB76C78DD840281FD7BD6A083D0CF673EEF8
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145939.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145939.jpgsave_picture_145939.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ magnet:?xt=urn:btih:8FE22013CD7F9914DFF16BACE36E21905905EE4B
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145940.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145940.jpgsave_picture_145940.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ magnet:?xt=urn:btih:E8AFB5CD80D406501CEDCB283D337C751F1967DA
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145941.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145941.jpgsave_picture_145941.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ magnet:?xt=urn:btih:ECB51220488ED4A03FFD1D0216F024AD85675E42
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145942.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145942.jpgsave_picture_145942.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ magnet:?xt=urn:btih:C2961F616F60727BAD0D5081F878335E077C304C
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145943.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145943.jpgsave_picture_145943.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ MJG - Bitches Money Guns (2012) [MP3|320 кб/с]<Dirty South, Southern Rap>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145945.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145945.jpgsave_picture_145945.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ magnet:?xt=urn:btih:7566C143AEDB8E5925D095ABD0FABC3626FA879E
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145946.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145946.jpgsave_picture_145946.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ In Memory - LaKrima (2015) [FLAC|Lossless|image + .cue] <Progressive Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145947.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145947.jpgsave_picture_145947.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ magnet:?xt=urn:btih:774F987AD905B3A57D6A7E0BA816AF4F362ACBE3
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145948.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145948.jpgsave_picture_145948.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ magnet:?xt=urn:btih:F1C821997D426EEFA2A1194A344CEE18179DA577
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145949.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145949.jpgsave_picture_145949.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Winter landscapes Wallpapers (15.12.12) [Wallpapers]
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145950.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145950.jpgsave_picture_145950.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Metusa - 4 альбома (2009 - 2016) [FLAC|Lossless|image + .cue] <Folk Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145951.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145951.jpgsave_picture_145951.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ magnet:?xt=urn:btih:51EDF73E66CA7A892E8C23F8E16282725DCC9DD9
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145952.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145952.jpgsave_picture_145952.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Immortal Guardian - Age of Revolution (2018) [MP3|320 Kbps] <Progressive, Power 
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145953.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145953.jpgsave_picture_145953.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Eran Dinur | PNT205 3D Plants and Digital Environments (2013) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145955.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145955.jpgsave_picture_145955.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ magnet:?xt=urn:btih:1F990C12CDF534A276340CF0162257E091FEB78B
 >>DailyTechInfo
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145956.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145956.jpgsave_picture_145956.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Immortal Guardian - Revolution, Pt. 1 (2014) EP [MP3|320 Kbps] <Progressive, Pow
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145957.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145957.jpgsave_picture_145957.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ MarsEdit 4 v4.2.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145959.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145959.jpgsave_picture_145959.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ VA - Wir Lieben Sommerabende: Feinste Lounge Musik Selektion (2015) [MP3|320 к�
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145960.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145960.jpgsave_picture_145960.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ magnet:?xt=urn:btih:5980EA472933BF14EF699F6379CDE32B5C8BE76A
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145961.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145961.jpgsave_picture_145961.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ magnet:?xt=urn:btih:387696E4AD3683E1758E8D1E039CA0BD958C1101
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145963.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145963.jpgsave_picture_145963.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ Exotheria - Angels Are Calling (2015) [FLAC|Lossless|image + .cue] <Progressive 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145964.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145964.jpgsave_picture_145964.jpg" />
 </div>
 
 

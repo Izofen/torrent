@@ -6,7 +6,7 @@ Barney Kessel, Shelly Manne, Ray Brown - The Poll Winners (1957) 1986, Contempor
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241270.jpgsave_picture_241270.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Mick Kolassa - Slow Blues Essentials (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241271.jpgsave_picture_241271.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - Summer Beach Party (2017) [MP3|320 Kbps] <House, Electro House, Progressive
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241272.jpgsave_picture_241272.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ QuickLinks 2.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241273.jpgsave_picture_241273.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Ornette Coleman - Blue Note Best Jazz Collection, Vol. 32 (2013) EMI Music Japan
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241274.jpgsave_picture_241274.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ magnet:?xt=urn:btih:8AEA02AF07D5BD4E8EF6A8DCF6B78359C051EE99
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241275.jpgsave_picture_241275.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Movavi Video Editor Plus 22.4.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241276.jpgsave_picture_241276.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ The Jazz Renegades - A Summer To Remember (1988) Re-Elect the President [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241277.jpgsave_picture_241277.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ VA - Best of Winter Relaxing Warm Jazzy Tunes (2023) [FLAC|Lossless|WEB-DL|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241278.jpgsave_picture_241278.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ magnet:?xt=urn:btih:F691BA74D6BF65033410FF9FF82CB8960B4594B0
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241279.jpgsave_picture_241279.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Steve Dalton - Primitive (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241280.jpgsave_picture_241280.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Martillo Austral - Requiem (2022) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241281.jpgsave_picture_241281.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Bobby Patterson - I Get My Groove From You (1996) [FLAC|Lossless|tracks + .cue] 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241282.jpgsave_picture_241282.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ SideFX, Jeff Wagner | Top Ten Under-the-Radar Features in Houdini 18.5 (2020) PC
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241283.jpgsave_picture_241283.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Mortillery - Murder Death Kill (2011) [FLAC|Lossless|image + .cue] <Thrash Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241284.jpgsave_picture_241284.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ magnet:?xt=urn:btih:0C7903C25EDDE83955CFDACF934AC1D465EDCFCE
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241285.jpgsave_picture_241285.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Integrity Pro 12.3.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241286.jpgsave_picture_241286.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ magnet:?xt=urn:btih:401DD6446B264E10FF2B24772FD1E860F87481E0
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241287.jpgsave_picture_241287.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ magnet:?xt=urn:btih:31A4A696D19441C06A83BDD920D992B322B2EFAA
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241288.jpgsave_picture_241288.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ magnet:?xt=urn:btih:3B7AC6C97FA9733188CB0CE44E5D29C510BCA09B
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241289.jpgsave_picture_241289.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Twixl Publisher Pro 11.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241290.jpgsave_picture_241290.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ Garage Dayz - Take One (2023) [MP3|320 Kbps] <Heavy Metal>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241291.jpgsave_picture_241291.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ GraphicConverter 11 v11.6.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241292.jpgsave_picture_241292.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ magnet:?xt=urn:btih:0D4879ADA502E341A7175D834EBEBB184188AF83
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241293.jpgsave_picture_241293.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ Cedar Walton, Ron Carter, Billy Higgins - Sweet Basil Trio: My Funny Valentine (
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241294.jpgsave_picture_241294.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ Framer Studio v88 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241295.jpgsave_picture_241295.jpg" />
 </div>
 
 

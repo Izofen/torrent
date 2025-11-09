@@ -6,7 +6,7 @@
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20451.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20451.jpgsave_picture_20451.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:F276099E04700CA1627D0D4CF796442FCC430A7B
 >>Экранки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20452.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20452.jpgsave_picture_20452.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:02599EEE69DE1311EB269ED1A850E68B3EB5F484
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20453.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20453.jpgsave_picture_20453.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Fort Solis (2023) [Ru/Multi] (1.3) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20454.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20454.jpgsave_picture_20454.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:AD0EF3612E6B00A3B0F8D95BEBAAEE983E8162EF
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20455.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20455.jpgsave_picture_20455.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Adobe Photoshop Lightroom Classic 2025 14.3.0.8 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20456.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20456.jpgsave_picture_20456.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:A5AFDE683704823AA6740F67EC548B7C41221531
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20457.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20457.jpgsave_picture_20457.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:E00B3155FBC5C80FAFB701BE6EFD3ACCD5AF0BA1
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20458.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20458.jpgsave_picture_20458.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:DDF9F8FB61ABA5C63B2EA4E2C2F6CFA2936251DF
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20459.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20459.jpgsave_picture_20459.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ StartAllBack 3.9.8 StartIsBack++ 2.9.20 (2.9.1) StartIsBack + 1.7.6 RePack by Kp
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20460.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20460.jpgsave_picture_20460.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ magnet:?xt=urn:btih:005245C2A12A0B5C2A984249C41E575B7BAEFE2E
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20461.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20461.jpgsave_picture_20461.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ magnet:?xt=urn:btih:82228BA1A8B6373EB29AC2B30D61DE48A61F5491
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20462.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20462.jpgsave_picture_20462.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ magnet:?xt=urn:btih:E423FAECA8136C5C1DCEB910BACB3456FD09FE29
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20463.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20463.jpgsave_picture_20463.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Cradle of Filth - Studio Albums (26 releases) (1994-2025) hand made [restored, d
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20464.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20464.jpgsave_picture_20464.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Reg Organizer 9.71 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20465.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20465.jpgsave_picture_20465.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ magnet:?xt=urn:btih:5F9FCA3830F44545AF70640EFCD5A376ED819759
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20466.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20466.jpgsave_picture_20466.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ magnet:?xt=urn:btih:FA4387C43E6B9898879F1E4442C5842493D680B1
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20467.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20467.jpgsave_picture_20467.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ Hyperviolent (2023) [En] (0.9.0.6) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20468.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20468.jpgsave_picture_20468.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ magnet:?xt=urn:btih:4A55173BDE5ABB217CAE7C05D1311DE344F40AB6
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20469.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20469.jpgsave_picture_20469.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ magnet:?xt=urn:btih:93C110D61C0C0475BBBA74EFF86D7364CB67BAA4
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20470.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20470.jpgsave_picture_20470.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Audiority Complete Effects Bundle 2025.4.16 STANDALONE, VST, VST 3, AAX, CLAP (x
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20471.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20471.jpgsave_picture_20471.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ magnet:?xt=urn:btih:98386B5F82517405F0FB5403B5F25487F05A6078
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20472.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20472.jpgsave_picture_20472.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ magnet:?xt=urn:btih:50BD7BAC26F9AD2C4FB5C3CAC8E85DE0F0121BA4
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20473.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20473.jpgsave_picture_20473.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Pulsar Modular Complete Effects Bundle 2025.4.21 VST 3, AAX (x64) RePack by TCD 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20474.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20474.jpgsave_picture_20474.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Kazrog - Retro STA-LEVEL 1.0.0 VST, VST 3, AAX (x64) Retail [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20475.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20475.jpgsave_picture_20475.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ magnet:?xt=urn:btih:B37C209C26F1FC470C401E6DF3623BF719577F40
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20476.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20476.jpgsave_picture_20476.jpg" />
 </div>
 
 

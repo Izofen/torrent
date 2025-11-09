@@ -6,7 +6,7 @@
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41645.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41645.jpgsave_picture_41645.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Microsoft начала распространение Windows 11 24H2: Wi-Fi 7, 
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41646.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41646.jpgsave_picture_41646.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Microsoft приступила к развёртыванию обновлени�
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41647.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41647.jpgsave_picture_41647.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:B1B13E994E6FF5C77674073F5ABE636511379983
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41648.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41648.jpgsave_picture_41648.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:F0BD14195A774EE6443B2FE251FB1208852505E1
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41649.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41649.jpgsave_picture_41649.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:13BCB581E899FC4DA9B631D042777A17450AB2A6
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41650.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41650.jpgsave_picture_41650.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:801E54A9399E1C3E99C70B11DE098F31A1847FC5
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41651.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41651.jpgsave_picture_41651.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:BC006F570A640C1DB7BCA53C025AD08E154B433C
 >>Латиноамериканские сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41652.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41652.jpgsave_picture_41652.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Gravity Circuit (2023) [Multi] (1.2.1) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41653.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41653.jpgsave_picture_41653.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:6522C2C1532227AD0887EA20A425844BEC04896E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41654.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41654.jpgsave_picture_41654.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ NieR Replicant ver.1.22474487139... (2021) [Ru/Multi] (1.0.3.0/dlc) Repack Other
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41655.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41655.jpgsave_picture_41655.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Kill Knight / Рыцарь Бездны (2024) [Ru/Multi] (1.0.0.108) Scene Rune
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41656.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41656.jpgsave_picture_41656.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Total Commander 11.03 MAX-Pack 2024.09.13 by Mellomann [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41657.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41657.jpgsave_picture_41657.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ magnet:?xt=urn:btih:00A8D6E2AF97A0FDE7501A8E23D8E96BC1D28D00
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41658.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41658.jpgsave_picture_41658.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ magnet:?xt=urn:btih:9012F6313F5E257669B0FFACD51CC61EA2ACC1AD
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41659.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41659.jpgsave_picture_41659.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ magnet:?xt=urn:btih:9D9FEF679F658C66205FC57F15F59E79553A0567
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41660.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41660.jpgsave_picture_41660.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ Blackmagic Design DaVinci Resolve Studio 19.0.2 Build 7 RePack by KpoJIuK [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41661.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41661.jpgsave_picture_41661.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ Pavlov's Dog - Essential Recordings 1974-2018 Pavlov's Dog (1974-2018) Remastere
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41662.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41662.jpgsave_picture_41662.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ Cigar Box Band - Time To Go (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41663.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41663.jpgsave_picture_41663.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Frank Sinatra - Everybody Loves Somebody (1939 - 1954) 2005, MCSA Entertainment 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41664.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41664.jpgsave_picture_41664.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ magnet:?xt=urn:btih:E81F1EE5DC9F102FC90F1035F0F49DF27D6464CE
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41665.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41665.jpgsave_picture_41665.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ magnet:?xt=urn:btih:778E1EC8048FE7E1A8D1E159C8FC3D0B7FAA1249
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41666.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41666.jpgsave_picture_41666.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ magnet:?xt=urn:btih:76AF6D8FBE6D0734BB6E7EA5789EF7E5949BF839
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41667.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41667.jpgsave_picture_41667.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ magnet:?xt=urn:btih:4D460CC04EEEDBAC968A39DDD1E98E97CE50A3CB
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41668.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41668.jpgsave_picture_41668.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Chick Corea - Priceless Jazz Collection (1986 - 1993) 1997, GRP [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41669.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41669.jpgsave_picture_41669.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ magnet:?xt=urn:btih:320F4B3F516B529F999CF5F0B9B77575500686EF
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41670.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41670.jpgsave_picture_41670.jpg" />
 </div>
 
 

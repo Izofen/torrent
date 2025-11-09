@@ -6,7 +6,7 @@ Blind Vision - Happily Never After (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161429.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161429.jpgsave_picture_161429.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Unheilig - MTV Unplugged - Unter Dampf - Ohne Strom (2015) Deluxe Edition Box [F
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161430.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161430.jpgsave_picture_161430.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:917AC4F6E04B86E2C3A3D0C27C97136FCBB3A21B
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161431.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161431.jpgsave_picture_161431.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:568E220F28CC8A154ACAA74233D5DB45A16A613D
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161432.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161432.jpgsave_picture_161432.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Rising Wings - Reach (2023) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161433.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161433.jpgsave_picture_161433.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Big Mouthers - Wishes (2018) [FLAC|Lossless|image + .cue] <Melodic Hard Rock, AO
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161434.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161434.jpgsave_picture_161434.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ magnet:?xt=urn:btih:FF3DD78130C27AC9C82AFED6F0AC2D2A775CB632
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161435.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161435.jpgsave_picture_161435.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ The Lust - Black Dahlia Poem (2017) [FLAC|Lossless|image + .cue] <Gothic Metal>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161436.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161436.jpgsave_picture_161436.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ magnet:?xt=urn:btih:DC714C14F710888CC847446195BF1E37BF249212
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161437.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161437.jpgsave_picture_161437.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Sonny Rollins - Go West!: The Contemporary Records Albums (1957, 1958) 3CD, 2023
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161438.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161438.jpgsave_picture_161438.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ magnet:?xt=urn:btih:21700499B017DF76968B3D5382B13E25349BB2DB
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161439.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161439.jpgsave_picture_161439.jpg" />
 </div>
 
 
@@ -291,7 +291,7 @@ magnet:?xt=urn:btih:90B191158D32BC45D66B80D48D4C0EDEE0016AE0
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161440.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161440.jpgsave_picture_161440.jpg" />
 </div>
 
 
@@ -315,7 +315,7 @@ magnet:?xt=urn:btih:78F48029484309349FD1B09138BA2C642F37A56A
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161441.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161441.jpgsave_picture_161441.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ Brian Bart - Future Vision (1987) Reissue, Remastered, 2023, MelodicRock Classic
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161442.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161442.jpgsave_picture_161442.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Stealing Death - Speed Force (2020) [MP3|320 Kbps] <Heavy-Metal, Thrash-Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161443.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161443.jpgsave_picture_161443.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ magnet:?xt=urn:btih:2C9F8BC61869F891225C6BB019836082E66337DF
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161444.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161444.jpgsave_picture_161444.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ Bacchus Baracus - All Art Is Theft (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy P
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161445.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161445.jpgsave_picture_161445.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ Station - And Time Goes On (2023) [FLAC|Lossless|image + .cue] <Melodic Hard Roc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161446.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161446.jpgsave_picture_161446.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ DiskCatalogMaker 8.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161447.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161447.jpgsave_picture_161447.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ magnet:?xt=urn:btih:A13DBF2F435760C2425A583E3189757D1733BBEA
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161448.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161448.jpgsave_picture_161448.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Voivod - Warriors Of Ice (2011) Japan, Reissue, 2014, Avalon [FLAC|Lossless|imag
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161449.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161449.jpgsave_picture_161449.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ WidsMob HDR 3.20 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161450.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161450.jpgsave_picture_161450.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Overlay 3.70 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161451.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161451.jpgsave_picture_161451.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ DxO PhotoLab 6 ELITE Edition 6.10.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161452.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161452.jpgsave_picture_161452.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ magnet:?xt=urn:btih:BD00181895FCB98434A45AC8EEAD854CD67DFE4E
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161453.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161453.jpgsave_picture_161453.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Binary Creed - Restitution (2014) [FLAC|Lossless|WEB-DL|tracks] <Progressive Pow
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161454.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161454.jpgsave_picture_161454.jpg" />
 </div>
 
 

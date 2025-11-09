@@ -6,7 +6,7 @@ Plugin Alliance - Maag EQ4 v1.1 x86.x64 By ASSiGN [английский]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84990.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84990.jpgsave_picture_84990.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ AIDA64 Extreme Edition l Extreme Engineer Edition l Business Edition 2.30.1900 F
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84991.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84991.jpgsave_picture_84991.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ AVG Internet Security / AVG Internet Security Business Edition / AVG Anti-Virus 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84992.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84992.jpgsave_picture_84992.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ VA - Romantic Collection Disco 80 vol. 1 (2012) [MP3|256 kbps]<Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84993.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84993.jpgsave_picture_84993.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ magnet:?xt=urn:btih:8289318092C5369C37A9AE184C50A40C77A18403
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84994.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84994.jpgsave_picture_84994.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ magnet:?xt=urn:btih:5D534A30E1559ACDACA5C586A9C097897F115ADE
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84995.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84995.jpgsave_picture_84995.jpg" />
 </div>
 
 
@@ -161,7 +161,7 @@ ASUS Eee PC 1000HE вспомогательный DVD-диск версия 3.0 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84996.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84996.jpgsave_picture_84996.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ ASUS Eee PC 1000HE вспомогательный DVD-диск версия 3.0 
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84997.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84997.jpgsave_picture_84997.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ magnet:?xt=urn:btih:80D77465792F1B345F21CCCF17963EBA6C9841C8
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84998.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84998.jpgsave_picture_84998.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ magnet:?xt=urn:btih:736B7027FCD70E8FA81E4C44716AE5CE4C478CC6
 >>Аниме арт
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85001.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85001.jpgsave_picture_85001.jpg" />
 </div>
 
 
@@ -262,7 +262,7 @@ magnet:?xt=urn:btih:14274EF6788E1B7364D450D2DBA4C68EADB6894D
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85003.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85003.jpgsave_picture_85003.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ magnet:?xt=urn:btih:14274EF6788E1B7364D450D2DBA4C68EADB6894D
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85004.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85004.jpgsave_picture_85004.jpg" />
 </div>
 
 
@@ -314,7 +314,7 @@ magnet:?xt=urn:btih:F0C15ACD2F534058C429481B73D2BA27498601E4
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85006.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85006.jpgsave_picture_85006.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ magnet:?xt=urn:btih:1AD54A4C897B03636B68580DC6728BB01D7F7629
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85007.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85007.jpgsave_picture_85007.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ magnet:?xt=urn:btih:1AD54A4C897B03636B68580DC6728BB01D7F7629
 >>Развивающие Игры для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85009.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85009.jpgsave_picture_85009.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ XLaunchpad 1.0.5.317 [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85011.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85011.jpgsave_picture_85011.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ XLaunchpad 1.0.5.317 [Multi/Русский]
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85012.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85012.jpgsave_picture_85012.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ magnet:?xt=urn:btih:84E29AA6331969BF79BE52E9CB8990E957FCB5C6
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85014.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85014.jpgsave_picture_85014.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ magnet:?xt=urn:btih:F7CBFF79EF22977E2C6821BA0026F1CA00515EB1
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85016.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85016.jpgsave_picture_85016.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ magnet:?xt=urn:btih:6DF3BF80055FFC225812300906520D9C3AEBEEC7
 >>Другие мультимедийные материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85017.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85017.jpgsave_picture_85017.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ Lady GaGa Presents: The Monster Ball Tour at Madison Square Garden (2011) [1080p
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85018.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85018.jpgsave_picture_85018.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Lady GaGa Presents: The Monster Ball Tour at Madison Square Garden (2011) [1080p
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85019.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85019.jpgsave_picture_85019.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ magnet:?xt=urn:btih:18902CE99A638B5802CAA9B05DE9407C140BB311
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85020.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85020.jpgsave_picture_85020.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ HD Moods: Аквариум / HD Moods - Aquarium (2008) BDRip [1080p]
 >>Релакс / Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85021.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85021.jpgsave_picture_85021.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ magnet:?xt=urn:btih:1577A1997078EF76C39CE4BC41AD42C902C0D47C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85022.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85022.jpgsave_picture_85022.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ The Regiment / The Regiment. Британский спецназ [Ru] (P) 2006
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85023.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85023.jpgsave_picture_85023.jpg" />
 </div>
 
 

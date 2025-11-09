@@ -6,7 +6,7 @@
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81799.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81799.jpgsave_picture_81799.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Blue October - Any Man In America (2011) [MP3|320 кб/с]<Alternative Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81800.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81800.jpgsave_picture_81800.jpg" />
 </div>
 
 
@@ -67,7 +67,7 @@ magnet:?xt=urn:btih:6D553BA33585B1F0950D14F6C4687D1E21184915
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81804.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81804.jpgsave_picture_81804.jpg" />
 </div>
 
 
@@ -91,7 +91,7 @@ Pink - Can't Take Me Home (2000) [MP3|320 кб/с]<Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81805.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81805.jpgsave_picture_81805.jpg" />
 </div>
 
 
@@ -124,7 +124,7 @@ magnet:?xt=urn:btih:7D5683742A3C2BD657085CDC86879DF60441420E
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81807.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81807.jpgsave_picture_81807.jpg" />
 </div>
 
 
@@ -148,7 +148,7 @@ magnet:?xt=urn:btih:7769E80F02DBB170C8376FB8760C7150FA6C4E77
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81808.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81808.jpgsave_picture_81808.jpg" />
 </div>
 
 
@@ -172,7 +172,7 @@ magnet:?xt=urn:btih:7769E80F02DBB170C8376FB8760C7150FA6C4E77
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81810.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81810.jpgsave_picture_81810.jpg" />
 </div>
 
 
@@ -196,7 +196,7 @@ magnet:?xt=urn:btih:1D8A089571D67CAD4F0F2AE4281B0B6FAD75FE9B
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81811.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81811.jpgsave_picture_81811.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ magnet:?xt=urn:btih:1D8A089571D67CAD4F0F2AE4281B0B6FAD75FE9B
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81812.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81812.jpgsave_picture_81812.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ VA - Настоящий блюз (2010) [FLAC|Lossless]<Blues, Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81814.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81814.jpgsave_picture_81814.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ VA - Настоящий блюз (2010) [FLAC|Lossless]<Blues, Blues Rock>
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81819.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81819.jpgsave_picture_81819.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ magnet:?xt=urn:btih:0B49EF530D3C960A05EC3BBE73AC2CD0B6B57C0D
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81823.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81823.jpgsave_picture_81823.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ VA - 100 Best Jazz Piano Standards (2006) 6 CD [APE|Lossless]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81824.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81824.jpgsave_picture_81824.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ VA - 100 Best Jazz Piano Standards (2006) 6 CD [APE|Lossless]<Jazz>
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81834.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81834.jpgsave_picture_81834.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ Dance Midi Samples Darwins Piano Sessions Vol.2 [MIDI, WAV Samles][англий�
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81838.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81838.jpgsave_picture_81838.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Dance Midi Samples Darwins Piano Sessions Vol.2 [MIDI, WAV Samles][англий�
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81842.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81842.jpgsave_picture_81842.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ magnet:?xt=urn:btih:6BB0674FC678235DA6046AC1E32B6A81C18C3A34
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81845.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81845.jpgsave_picture_81845.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ magnet:?xt=urn:btih:6BB0674FC678235DA6046AC1E32B6A81C18C3A34
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81846.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81846.jpgsave_picture_81846.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:726444257FB6864030D8D7CCBE95745337A0FE50
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81850.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81850.jpgsave_picture_81850.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ magnet:?xt=urn:btih:0AFB34E5D0C5C025970C8147FC5302A0D13E3A43
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81852.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81852.jpgsave_picture_81852.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ magnet:?xt=urn:btih:ADB7318B82A6C7998EE7B16DB26DCEE3308F4ACE
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81853.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81853.jpgsave_picture_81853.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Tansu Warashi / Drawer Hobs / Обитатели комода [2011, TV-special]
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81859.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81859.jpgsave_picture_81859.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ VA - Любимые мелодии Советского кино (2012) [MP3|320
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81860.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81860.jpgsave_picture_81860.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ magnet:?xt=urn:btih:1629151A5A7EEA837BCE8505B08F312D27D0E2EE
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81861.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81861.jpgsave_picture_81861.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ magnet:?xt=urn:btih:AA0AE1AAA6E4775614BA7D31902D25C15D821640
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81864.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81864.jpgsave_picture_81864.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ magnet:?xt=urn:btih:AA0AE1AAA6E4775614BA7D31902D25C15D821640
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81865.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81865.jpgsave_picture_81865.jpg" />
 </div>
 
 

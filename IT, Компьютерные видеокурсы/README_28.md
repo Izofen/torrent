@@ -6,7 +6,7 @@ Deworker Pro, Дмитрий Елисеев | Использование HTTP з
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_186628.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_186628.jpgsave_picture_186628.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Deworker Pro, Дмитрий Елисеев | Устройство HTTP-фрей
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_186658.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_186658.jpgsave_picture_186658.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Deworker Pro, Дмитрий Елисеев | Модульное разделе�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_186669.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_186669.jpgsave_picture_186669.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Deworker Pro, Дмитрий Елисеев | Практический рефа�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_186687.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_186687.jpgsave_picture_186687.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ Deworker Pro, Дмитрий Елисеев | Техзадание и дизай
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186700.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186700.jpgsave_picture_186700.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Deworker Pro, Дмитрий Елисеев | Доменная модель и E
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_186704.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_186704.jpgsave_picture_186704.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Traversymedia | MERN From Scratch (2023) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186725.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186725.jpgsave_picture_186725.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ Udemy, Eincode by Filip Jerga, Filip Jerga | Svelte and Firebase: The Full Cours
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186768.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186768.jpgsave_picture_186768.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Udemy, Bogdan Stashchuk | Python - Полный Курс по Python, Django, Da
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186900.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186900.jpgsave_picture_186900.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Udemy, Alpha Omondi Ogilo | MERN Invoice Web App with Docker,NGINX and ReduxTool
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187005.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187005.jpgsave_picture_187005.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Rebrain, Fevlake | NGINX онлайн-практикум (2023) WEB-DL [AD] [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187226.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187226.jpgsave_picture_187226.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Udemy, Andrei Dumitrescu | OpenAI API with Python Bootcamp: ChatGPT API, GPT-4, 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187238.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187238.jpgsave_picture_187238.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Udemy, Learn IT University, Andrii Piatakha | Java from Zero to First Job, Pract
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187250.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187250.jpgsave_picture_187250.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Web Dev Simplified | React Simplified - Advanced (2023) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187928.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187928.jpgsave_picture_187928.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Web Dev Simplified | React Simplified - Beginner (2023) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187940.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187940.jpgsave_picture_187940.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Udemy, ASOMobile ASOTeam | Стань ASO специалистом: базовы
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187958.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187958.jpgsave_picture_187958.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Stepik, Дмитрий Читалов | Создаем чат-бот на баз
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188312.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188312.jpgsave_picture_188312.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ OTUS, Алексей Железной | Data Warehouse Analyst (2023) WEB-DL [RU
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188315.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188315.jpgsave_picture_188315.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Stepik, Evgeniy Lestopadov | Регулярные выражения на при
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188354.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188354.jpgsave_picture_188354.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Stepik, Evgeniy Lestopadov | Xml на примерах (2023) WEB-DL [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188383.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188383.jpgsave_picture_188383.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ kobezzza.channel, Андрей Кобец | «Computer Science во Frontend». 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188652.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188652.jpgsave_picture_188652.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Babok-school, Анна Вичугова | Разработка ТЗ на инф�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188699.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188699.jpgsave_picture_188699.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ magnet:?xt=urn:btih:88269D8B761E32E575AE3BDC0C2AAC5B49C4238E
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188734.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188734.jpgsave_picture_188734.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Laravelcreative.ru | Laravel 10 Vue 3 Inertia SPA Вебсокет Форум (2
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189072.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189072.jpgsave_picture_189072.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Stepik, Evgeniy Lestopadov | Windows CMD - быстрый старт (2023) WEB-
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189095.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189095.jpgsave_picture_189095.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Proglib.Academy, Евгений Тюменцев | Архитектура и ш�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189101.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189101.jpgsave_picture_189101.jpg" />
 </div>
 
 

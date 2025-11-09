@@ -6,7 +6,7 @@
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144207.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144207.jpgsave_picture_144207.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:13C7FC6B3DEB638945421680293DE775F5E15C22
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144208.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144208.jpgsave_picture_144208.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Sleep Therapy - nothing, nowhere. (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternat
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144209.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144209.jpgsave_picture_144209.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Adobe Photoshop 2022 Build 23.1.0.143 (x64) RePack by SanLex [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144210.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144210.jpgsave_picture_144210.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Cinema Grade Pro 1.1.3 (build 486) [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144212.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144212.jpgsave_picture_144212.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ magnet:?xt=urn:btih:37B2F5AEB95DD33615FC85FF1077504A56F54C9F
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144213.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144213.jpgsave_picture_144213.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ VA - Shazam Хит-парад Russia Top 200 Новогодний (2019) [MP3|32
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144214.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144214.jpgsave_picture_144214.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ Nevercenter CameraBag Pro 2024.0.1 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144215.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144215.jpgsave_picture_144215.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ magnet:?xt=urn:btih:2123728878D8E0BD93B6454D5F126123AC194196
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144216.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144216.jpgsave_picture_144216.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ JRiver Media Center 27.0.47 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144217.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144217.jpgsave_picture_144217.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ Rufus 2.6 (Build 818) Final Portable by PortableApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144219.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144219.jpgsave_picture_144219.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ magnet:?xt=urn:btih:A7151ACFD6B09CD4FCC6B4EF8E0C0F043ECFDACB
 >>Универ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144220.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144220.jpgsave_picture_144220.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ VA - Подставляйте ладони-я насыплю Вам солнца
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144221.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144221.jpgsave_picture_144221.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ magnet:?xt=urn:btih:356B24100A106AD0CB3A5CC98E29778EB7C5A20F
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144222.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144222.jpgsave_picture_144222.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ magnet:?xt=urn:btih:E1716CF541FC7C73C2231D943182C700CFE2E252
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144223.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144223.jpgsave_picture_144223.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ magnet:?xt=urn:btih:7A6BE28E073BFD7B3A21374C510F5F63C75E1D08
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144224.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144224.jpgsave_picture_144224.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ magnet:?xt=urn:btih:1F090C3888729E921EF6C1CFC14E317AF4A2C437
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144226.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144226.jpgsave_picture_144226.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ Winter Stars (2011) [PS3] [EUR] 3.72 [Cobra ODE / E3 ODE PRO ISO] [License] [En]
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144227.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144227.jpgsave_picture_144227.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ Bad Boys Blue - Video Collection от ALEXnROCK (2018) WEBRip
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144228.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144228.jpgsave_picture_144228.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ FoneDog Toolkit for Android on Mac 2.1.10 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144229.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144229.jpgsave_picture_144229.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ Stan Getz - Quartets (1950) 1991, Original Jazz Classics [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144230.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144230.jpgsave_picture_144230.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ magnet:?xt=urn:btih:6408401D246BA80F91847E5D32579C0C4BA82484
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144231.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144231.jpgsave_picture_144231.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ VA - Подставляйте ладони-я насыплю Вам солнца
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144232.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144232.jpgsave_picture_144232.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ magnet:?xt=urn:btih:D9847791A3552F36EC0D2D7EBCBE5B8A17EAC60F
 >>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144233.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144233.jpgsave_picture_144233.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ magnet:?xt=urn:btih:0592C021DAADF9C697F030FF86292B44B6FD5DB5
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144234.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144234.jpgsave_picture_144234.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ PROMT Home 11 Build 9.0.556 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144235.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144235.jpgsave_picture_144235.jpg" />
 </div>
 
 

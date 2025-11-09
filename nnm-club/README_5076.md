@@ -6,7 +6,7 @@ GiliSoft File Lock Pro 10.1.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158677.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158677.jpgsave_picture_158677.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ VA - Ibiza 2016 Winter Clubbing (Deluxe Version) (2015) [MP3|320 кб/с] <House
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158678.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158678.jpgsave_picture_158678.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ VA - Trap Vol.1 (Compiled by Zebyte) (2015) [MP3|160-320 кб/с] <Trap>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158679.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158679.jpgsave_picture_158679.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:7098EC6BF0994559E0B7E8C950FBBA9A1B9C27AC
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158680.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158680.jpgsave_picture_158680.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Dash 3.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158681.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158681.jpgsave_picture_158681.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ Kingdom Come - In Your Face (1989) Japanese Edition, 2013,  Polydor [FLAC|Lossle
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158682.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158682.jpgsave_picture_158682.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ magnet:?xt=urn:btih:62E69D8E0836422A832706A84E3D9F6A89DCE026
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158683.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158683.jpgsave_picture_158683.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ magnet:?xt=urn:btih:C9AAD4B87F8E26DE9A92AF4D18E419BE5434495F
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158684.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158684.jpgsave_picture_158684.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ magnet:?xt=urn:btih:76552D281DA13BE415B2ED867905DC9D39947380
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158685.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158685.jpgsave_picture_158685.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ magnet:?xt=urn:btih:A2CF177E8CB19FF9CF8FACFB4811532C99440D58
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158686.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158686.jpgsave_picture_158686.jpg" />
 </div>
 
 
@@ -262,7 +262,7 @@ magnet:?xt=urn:btih:BACF02116287542D7AC99E8F73AD217B20B26112
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158687.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158687.jpgsave_picture_158687.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ magnet:?xt=urn:btih:70E7C1798E375E611C453FEC08B89DBB3FDE96F2
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158688.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158688.jpgsave_picture_158688.jpg" />
 </div>
 
 
@@ -316,7 +316,7 @@ magnet:?xt=urn:btih:A3137402A1F58C8608A1079AF41FE49EF5CA8912
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158689.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158689.jpgsave_picture_158689.jpg" />
 </div>
 
 
@@ -341,7 +341,7 @@ magnet:?xt=urn:btih:E5D9458FA34D57DC061D9FF94CEF18FA623D26B6
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158690.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158690.jpgsave_picture_158690.jpg" />
 </div>
 
 
@@ -365,7 +365,7 @@ MediaFire 1.8.12.11026 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158691.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158691.jpgsave_picture_158691.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ magnet:?xt=urn:btih:5CDE16327B11AB06E47F5D28690E8C770B85B58C
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158692.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158692.jpgsave_picture_158692.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ iMazing 1.4.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158693.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158693.jpgsave_picture_158693.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ magnet:?xt=urn:btih:11FD43498565BB06DDA5483A09133EC1F4C6AA4A
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158695.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158695.jpgsave_picture_158695.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ magnet:?xt=urn:btih:046D3D172BF8EB6437A5822C3C42AE478C135F03
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158696.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158696.jpgsave_picture_158696.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Wise Program Uninstaller 1.83.98 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158698.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158698.jpgsave_picture_158698.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ magnet:?xt=urn:btih:3A8FE95791405B9A98CF8CD6751A604A4CAD2087
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158699.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158699.jpgsave_picture_158699.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ magnet:?xt=urn:btih:8C72536DCB9BCF492D90BF40CD0D0E51CE6787F7
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158700.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158700.jpgsave_picture_158700.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ magnet:?xt=urn:btih:BA9210AE33979A8C40A58349457DB758F4D28875
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158701.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158701.jpgsave_picture_158701.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ magnet:?xt=urn:btih:B29FCCC10485D2655CC15DD6EA51CF86C043523C
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158702.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158702.jpgsave_picture_158702.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Mourning Beloveth - Rust & Bone (2015) [MP3|320 кб/с] <Doom-Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158703.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158703.jpgsave_picture_158703.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ Adam Ben Ezra - Can't Stop Running (2015) [FLAC|Lossless|WEB-DL|tracks] <Contemp
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158704.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158704.jpgsave_picture_158704.jpg" />
 </div>
 
 

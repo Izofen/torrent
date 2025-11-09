@@ -6,7 +6,7 @@
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158438.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158438.jpgsave_picture_158438.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Farhad Mahdavi - Tehran Echoes (Extended Mixes) (2015) [MP3|320 кб/с] <Trance
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158439.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158439.jpgsave_picture_158439.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:EAE199C49CC3714AC829B3D3E280561FFEF66AC3
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158440.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158440.jpgsave_picture_158440.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Secret of the Pendulum (2015) [En] (1.0) Unofficial
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158441.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158441.jpgsave_picture_158441.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ George Thorogood & The Destroyers / Live at Montreux (2013) BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158442.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158442.jpgsave_picture_158442.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:229FA4B5FE9AD02B2C23DEB7C8E2EEE68DB30D39
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158443.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158443.jpgsave_picture_158443.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ magnet:?xt=urn:btih:45B038F88C4A7BEAFE2DC069241AF6E8F763A149
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158444.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158444.jpgsave_picture_158444.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:F240DB5BE26EC3E43DDF729A2839AEC76C2AD0D9
 >>Автомобильная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158445.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158445.jpgsave_picture_158445.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ VA - Charming Bourgeois Vol 5 (2015) [MP3|320 кб/с] <Downtempo, Chillout, Lou
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158446.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158446.jpgsave_picture_158446.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ magnet:?xt=urn:btih:D53CCA1E58B97E288F1E3B82CD8980C6338FC466
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158447.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158447.jpgsave_picture_158447.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ magnet:?xt=urn:btih:87F15E0E9FCF8A0017E69B9B178522D576750CD9
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158448.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158448.jpgsave_picture_158448.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ VA - Стая белых голубей. Академия хитов шансо�
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158449.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158449.jpgsave_picture_158449.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ magnet:?xt=urn:btih:2F5409201D5FDD07626D352F377F04D7022D2BAA
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158450.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158450.jpgsave_picture_158450.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ VA - Levitation: Easy Listening And Chillout Party (2015) [MP3|320 кб/с] <Eas
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158451.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158451.jpgsave_picture_158451.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ magnet:?xt=urn:btih:29F89B99F0A7B36D014ED2FAA3A4085E04267D26
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158452.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158452.jpgsave_picture_158452.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ Ominous Objects 3: Trail of Time (2015) [En] Unofficial [Collector's Edition / �
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158453.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158453.jpgsave_picture_158453.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ magnet:?xt=urn:btih:CC70E21E24D4ECEA701874AEC75382F12A695449
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158454.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158454.jpgsave_picture_158454.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ magnet:?xt=urn:btih:2ECE4C2ED750C0A5B12337A8F01356E09945AEC5
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158455.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158455.jpgsave_picture_158455.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ magnet:?xt=urn:btih:3CAD5F4BD6C604A6AFF12D0F3085103E49A97409
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158456.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158456.jpgsave_picture_158456.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ Comedy Woman  (2015.12.11) WEB-DL [H.264/720p-LQ]
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158459.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158459.jpgsave_picture_158459.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ VA - Sounds Of Happiness (2015) [MP3|320 кб/с] <Dance, Pop, Club House>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158460.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158460.jpgsave_picture_158460.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Slimjet 6.0.9.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158461.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158461.jpgsave_picture_158461.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ VA - Chill Out (2015) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158462.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158462.jpgsave_picture_158462.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ magnet:?xt=urn:btih:DD310095D21FD336C22753AAB20BB72D3C10F1AC
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158463.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158463.jpgsave_picture_158463.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ magnet:?xt=urn:btih:A03C358CB1D1B83676D4E50AA141C73BB3C890BA
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158464.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158464.jpgsave_picture_158464.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ magnet:?xt=urn:btih:E26248F7A90DDD20F97CFE39F68D14998029FDA2
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158465.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158465.jpgsave_picture_158465.jpg" />
 </div>
 
 

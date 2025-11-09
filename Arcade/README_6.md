@@ -6,7 +6,7 @@ Trailmakers (2019) [Ru/Multi] (2.0.1.65085/dlc) Scene Rune
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25404.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25404.jpgsave_picture_25404.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Trailmakers (2019) [Ru/Multi] (2.0.1.65085/dlc) Repack FitGirl [Ultimate Edition
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25445.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25445.jpgsave_picture_25445.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Rogue Samurai (2024) [Ru/Multi] (1.0.6) Repack Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25706.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25706.jpgsave_picture_25706.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Rogue Samurai (2024) [Ru/Multi] (1.0.1) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25785.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25785.jpgsave_picture_25785.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Overcooked! 2 (2018) [Ru/Multi] (#1034.799570/dlc) Repack Pioneer
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25924.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25924.jpgsave_picture_25924.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Nunholy (2025) [Ru/Multi] (1.0.01) Repack Let'sРlay [18+]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26010.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26010.jpgsave_picture_26010.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Vampire Survivors (2021) [Ru/Multi] (1.12.108/dlc) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26386.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26386.jpgsave_picture_26386.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Smushi Come Home (2023) [Multi] (1.1.0.4.2) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26727.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26727.jpgsave_picture_26727.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ WARRIORS: Abyss (2025) [Multi] (1.0) Scene Rune
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26735.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26735.jpgsave_picture_26735.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Warden's Will (2025) [Ru/Multi] (1.0.1) Repack Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26818.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26818.jpgsave_picture_26818.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Spinch (2020) [Ru/Multi] (1.1) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26867.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26867.jpgsave_picture_26867.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Plants vs. Zombies / Растения против Зомби (2009) [Ru] (1.2.0
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27040.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27040.jpgsave_picture_27040.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Commando Hero 2: First Blood (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27243.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27243.jpgsave_picture_27243.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Get Tilted! :) (2025) [Ru/Multi] (1.1) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27531.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27531.jpgsave_picture_27531.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Clone Drone in the Danger Zone (2021) [Ru/Multi] (1.6.0.34) Repack EXROW
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27707.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27707.jpgsave_picture_27707.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Let's Cook Together 2 (2025) [Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27745.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27745.jpgsave_picture_27745.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ The Smurfs - Dreams (2024) [Ru/Multi] (1.0.27/dlc) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28099.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28099.jpgsave_picture_28099.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ BORE BLASTERS (2024) [Multi] (1.52) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28122.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28122.jpgsave_picture_28122.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Guns, Gore & Cannoli (2015) [Ru/Multi] (1.2.21) Repack Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28578.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28578.jpgsave_picture_28578.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Big Helmet Heroes (2025) [Ru/Multi] (1.0.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28605.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28605.jpgsave_picture_28605.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Warhammer 40,000: Shootas, Blood & Teef (2022) [Ru/Multi] (1.0.36) Repack Let's�
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28606.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28606.jpgsave_picture_28606.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Guns, Gore and Cannoli 2 (2018) [Ru/Multi] (1.0.8) Repack Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28607.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28607.jpgsave_picture_28607.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Big Helmet Heroes (2025) [Ru/Multi] (27289703) Scene FairLight
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28688.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28688.jpgsave_picture_28688.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ River City Girls 2 (2022) [Ru/Multi] (1.1.3/dlc) Repack Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28729.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28729.jpgsave_picture_28729.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Big Helmet Heroes (2025) [Ru/Multi] (1.0.0) Repack seleZen
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28732.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28732.jpgsave_picture_28732.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ ReSetna (2025) [Ru/Multi] (1.0.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28789.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28789.jpgsave_picture_28789.jpg" />
 </div>
 
 

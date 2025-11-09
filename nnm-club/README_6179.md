@@ -6,7 +6,7 @@ Zombie Shooting Star: ARCADE (2022) [Multi] (1.1) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194087.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194087.jpgsave_picture_194087.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Babokschool, Анна Вичугова | Методы описания бизн�
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194088.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194088.jpgsave_picture_194088.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:B1C255E488531AB363B41D93F064BBC27EF8B9E0
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194089.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194089.jpgsave_picture_194089.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:B47C574519072F88BB7231D291E09C440F4B169B
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194090.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194090.jpgsave_picture_194090.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:98329B7CB74D9728E992277328C4A52AC0C82A91
 >>Автомобильная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194091.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194091.jpgsave_picture_194091.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:646D084E5441F625B335DE8B5961FEDE99FA4BBB
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_194092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_194092.jpgsave_picture_194092.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Depeche Mode - Classics. Rarities. Revelations. (2023) Compilation [FLAC|Lossles
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194093.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194093.jpgsave_picture_194093.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:2CD8B52F10C852FA9B78161144D6B438E70B8268
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194094.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194094.jpgsave_picture_194094.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:7AE71E237D27E022F726EBC7D24626659C6E91B1
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_194095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_194095.jpgsave_picture_194095.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:311064DED412AC2F8258E963FC5DA24ADDCAE14E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194096.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194096.jpgsave_picture_194096.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:36DC9A298E3440B3371EC5A059C89E807D9E9C9C
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194097.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194097.jpgsave_picture_194097.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ magnet:?xt=urn:btih:01BD30652311F032B12726ABC8157A11F037CC91
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_194098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_194098.jpgsave_picture_194098.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ magnet:?xt=urn:btih:74BDCB2FA421FB390BF0228D47E49EBB621A85B4
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194099.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194099.jpgsave_picture_194099.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ magnet:?xt=urn:btih:1C7D2E6FE4EAF612646F8236B9A95E3C39B733AA
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194100.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194100.jpgsave_picture_194100.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ TraceRouteOK 3.33 Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194101.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194101.jpgsave_picture_194101.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ magnet:?xt=urn:btih:D34E37914612667C88BE42549DABBFE818B937B9
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194102.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194102.jpgsave_picture_194102.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ jetAudio HD Music Player Plus 11.2.6 Mod by derrin [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194103.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194103.jpgsave_picture_194103.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ magnet:?xt=urn:btih:96E28A3212B145697B75F22CE58CB4C99AFB8E90
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194104.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194104.jpgsave_picture_194104.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ Tomo-chan wa Onnanoko! | Tomo-chan Is a Girl! | Томо - девушка! [2023
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_194105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_194105.jpgsave_picture_194105.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ magnet:?xt=urn:btih:B7FD69CC4FA0A2AF434BF6EE23898C61ABCF6E66
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194106.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194106.jpgsave_picture_194106.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Aerosmith - Greatest Hits (2023) [FLAC|24/96|tracks|WEB-DL] <Classic Rock, Blues
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194107.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194107.jpgsave_picture_194107.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ magnet:?xt=urn:btih:B5AF66CBD376D65EEF36F268CF206D9A22D67818
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194108.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194108.jpgsave_picture_194108.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ magnet:?xt=urn:btih:2A067156059C8D829643DA1F3268BF8BBFCF0363
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194109.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194109.jpgsave_picture_194109.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ magnet:?xt=urn:btih:D9F23EFFEE9DEB375DBF67854F8B870BD661648A
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194110.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194110.jpgsave_picture_194110.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Otonari no Tenshi-sama ni Itsunomanika Dame Ningen ni Sareteita Ken | The Angel 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194111.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194111.jpgsave_picture_194111.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ magnet:?xt=urn:btih:4F3D53EE084C6471C9656213D4571B52C84D80ED
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194112.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194112.jpgsave_picture_194112.jpg" />
 </div>
 
 

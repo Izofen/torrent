@@ -6,7 +6,7 @@
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212120.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212120.jpgsave_picture_212120.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:D87603685E8D32B39965059AF3282256F6BDB65D
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212121.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212121.jpgsave_picture_212121.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:4014AD05668942DEA268C9039313AC30D47F66EE
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212122.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212122.jpgsave_picture_212122.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:D1199084F25A13615101C7DEF7A95190DA22CB8D
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212123.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212123.jpgsave_picture_212123.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:3045DC2B26E33E7A37ABB6C49A005BDF446719D1
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212124.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212124.jpgsave_picture_212124.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ YT Downloader 9.17.16 [En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212125.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212125.jpgsave_picture_212125.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Serif Affinity Photo 2.6.5.3782 [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212126.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212126.jpgsave_picture_212126.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ Serif Affinity Publisher 2.6.5.3782 [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212127.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212127.jpgsave_picture_212127.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ Serif Affinity Designer 2.6.5.3782 [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212128.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212128.jpgsave_picture_212128.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Microsoft Visual Studio 2022 Enterprise 17.14.19 (Offline Cache) [Ru/En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212129.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212129.jpgsave_picture_212129.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Reaper 7.49 RePack (& Portable) by elchupacabra [En/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212130.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212130.jpgsave_picture_212130.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Screaming Frog SEO Log File Analyser 6.4 [Multi]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212131.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212131.jpgsave_picture_212131.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:55B2453A031A54123FEFE1F58159415B50A5C48F
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212132.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212132.jpgsave_picture_212132.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Ginga Senpuu Braiger | Галактический Вихрь Брайгер [198
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212133.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212133.jpgsave_picture_212133.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ magnet:?xt=urn:btih:916B299558EB62C752BF957E2E8A6D25BB6E5E1C
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212134.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212134.jpgsave_picture_212134.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ magnet:?xt=urn:btih:340A24934D956EB19836DA357A2358A1DE45F67F
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212135.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212135.jpgsave_picture_212135.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ magnet:?xt=urn:btih:AF5DBEBEB9CC2A2B39F1F9E54BA42F6FCFCB8736
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212136.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212136.jpgsave_picture_212136.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Ui Kits - UI8 - Carsova - Electric Cars Website [FIG]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212137.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212137.jpgsave_picture_212137.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ magnet:?xt=urn:btih:14AF83EDDC5DB987C7A262A2C638AEF1967C884F
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212138.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212138.jpgsave_picture_212138.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ magnet:?xt=urn:btih:0E58D89C6A2E2ED06D0C1E53A33E630942502659
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212139.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212139.jpgsave_picture_212139.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ The Apartments - 4 Albums (1996-2025) [MP3|320 Kbps] <Indie Rock, Folk Rock, Aco
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212140.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212140.jpgsave_picture_212140.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ FBReader Premium v3.8.20 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212141.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212141.jpgsave_picture_212141.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ TapScanner v3.0.88 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212142.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212142.jpgsave_picture_212142.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Relicta (2020) [Ru/Multi] (1.10/dlc) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212143.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212143.jpgsave_picture_212143.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ SoundHound ∞ - Music Discovery v10.5.6 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212144.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212144.jpgsave_picture_212144.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Flud v1.12.0 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212145.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212145.jpgsave_picture_212145.jpg" />
 </div>
 
 

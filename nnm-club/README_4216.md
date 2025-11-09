@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130643.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130643.jpgsave_picture_130643.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:29329A138123A2DBA13626CF7A7A85C542ACA48B
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130644.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130644.jpgsave_picture_130644.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:D7F3DA75B080833258A8515527E115853A36E168
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130645.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130645.jpgsave_picture_130645.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:3365CE797C43047C47CC24C72C3D1891733B6DE1
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130646.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130646.jpgsave_picture_130646.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ Three Minutes To Eight (2023) [Ru/Multi] (0.6.3) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130648.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130648.jpgsave_picture_130648.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:D57B508E4043AAF8F81F7D3C147C1201E28EC1D6
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130649.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130649.jpgsave_picture_130649.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ magnet:?xt=urn:btih:7F5FB947B19D4738405E90C7BA32F59F4A2C0399
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130650.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130650.jpgsave_picture_130650.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ Office 2013-2024 C2R Install + Lite 7.7.7.3 ++ Portable by Ratiborus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130652.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130652.jpgsave_picture_130652.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ magnet:?xt=urn:btih:3EFF138F121E21FE002426F8C87438FCADF1F3D5
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130653.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130653.jpgsave_picture_130653.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ King Arthur: Knight's Tale (2022) [Ru/Multi] (2.0.0/dlc) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130654.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130654.jpgsave_picture_130654.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ magnet:?xt=urn:btih:3012942D184CC5E2FF5A743A487C6F9BA5B9FCB3
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130655.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130655.jpgsave_picture_130655.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ magnet:?xt=urn:btih:1C505AF35B3D48CB079250EA94F3DA4BE324E17D
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130658.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130658.jpgsave_picture_130658.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ Gran Turismo 7 (2022) [PS4] [USA] 9.00 (backport 5.05/6.72/7.xx/8.xx) [License] 
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130660.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130660.jpgsave_picture_130660.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Udemy, Mrawan Hussain | BLENDER: Creating Jeep Gladiator Rubicon from A to Z (20
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130662.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130662.jpgsave_picture_130662.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ magnet:?xt=urn:btih:21B7DF5400CA21C07F85BD4712A161508C7A8507
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130664.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130664.jpgsave_picture_130664.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ magnet:?xt=urn:btih:0362F8994C2E611DE7812BCCF5464920FBA198CF
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130665.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130665.jpgsave_picture_130665.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ magnet:?xt=urn:btih:6F2BF084A17BF193068DE9C748F9CBF8670021BB
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130668.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130668.jpgsave_picture_130668.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Mylene Farmer - Monkey Me (2012) [LPCM 2.0 96/24|Audio-DVD (Blu-ray Audio) <Inte
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130669.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130669.jpgsave_picture_130669.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ magnet:?xt=urn:btih:9D4B9F88A9775504FD5B9E35DBAE139FF492BC47
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130671.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130671.jpgsave_picture_130671.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ magnet:?xt=urn:btih:3D0C96ED987BF41A3604FF0925D5D495BDDB70E5
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130672.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130672.jpgsave_picture_130672.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ VA - Love-Rap BEST (2012) [MP3|320 кб/с]<Rap>
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130673.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130673.jpgsave_picture_130673.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ magnet:?xt=urn:btih:C289663F773B60BB3FA1861C216071286E709000
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130675.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130675.jpgsave_picture_130675.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ magnet:?xt=urn:btih:1266FA31495AA3D2B2339302D21AC326BCA4591F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130676.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130676.jpgsave_picture_130676.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ Fan Ren Xiu Xian Chuan | Путешествие к бессмертию [2022, W
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130677.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130677.jpgsave_picture_130677.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ magnet:?xt=urn:btih:A058EECE6DED20972462D491B11EE3E5ED73554F
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130678.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130678.jpgsave_picture_130678.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ magnet:?xt=urn:btih:2EF8A9590D8616C133C7DD9E8A6694B8E02D25C8
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130679.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130679.jpgsave_picture_130679.jpg" />
 </div>
 
 

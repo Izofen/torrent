@@ -6,7 +6,7 @@ Pacifico - Success, Luck and Happiness (2024) [FLAC 24/48|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108787.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108787.jpgsave_picture_108787.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:F9DDC04D2A0DF5800C701C05BDD847141E3057E3
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108788.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108788.jpgsave_picture_108788.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - Metal Massacre 08 (1987) [FLAC|24/192|image + .cue|Vinyl-Rip] <Heavy Metal,
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108789.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108789.jpgsave_picture_108789.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Unnamed Feeling - Наша Последняя Ночь (2024) [FLAC|Lossless|WEB
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108790.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108790.jpgsave_picture_108790.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ PhotoRoom 4.9.7 (b1411) Mod by CMAPTOC [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108791.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108791.jpgsave_picture_108791.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Jeffrey Stevenson - Hypsometric (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Ja
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108792.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108792.jpgsave_picture_108792.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ The Boxx Orchestra - The Horn of Plenty (2024) [FLAC 24/48|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108793.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108793.jpgsave_picture_108793.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Paula Atherton - Dancin' Shoes (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108794.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108794.jpgsave_picture_108794.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Randy Scott - Oasis (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108795.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108795.jpgsave_picture_108795.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ VA - Metal Massacre 07 (1986) [FLAC|24/192|image + .cue|Vinyl-Rip] <Thrash, Spee
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108796.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108796.jpgsave_picture_108796.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Pau Casares - Sobretaula a casa (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108797.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108797.jpgsave_picture_108797.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ dB Bluesband - Do You Need a Ring (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108798.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108798.jpgsave_picture_108798.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Roy Eldridge - Little Jazz & The Jimmy Ryan All-Stars (1975) 2001, Original Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108799.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108799.jpgsave_picture_108799.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Spike Wilner Trio - Contrafactus (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Con
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108800.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108800.jpgsave_picture_108800.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Cypecore - The Alliance (2018) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108801.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108801.jpgsave_picture_108801.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Andralls - Universal Collapse (2024) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108802.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108802.jpgsave_picture_108802.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Motörhead, Lemmy & Larry Wallis - The Boys of Ladbroke Grove (2023) [FLAC|Lossl
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108803.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108803.jpgsave_picture_108803.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ magnet:?xt=urn:btih:63F8E2FBE1E38DF87D31448BBCF073C132849849
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108804.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108804.jpgsave_picture_108804.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ Sequoia Grove - Tales from Midgard (2024) [FLAC|Lossless|WEB-DL|tracks] <Pagan, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108805.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108805.jpgsave_picture_108805.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ VA - Love Making Music (Sensual Saxophone Jazz) (2024) [FLAC 24/44.1|Lossless|WE
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108806.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108806.jpgsave_picture_108806.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ magnet:?xt=urn:btih:D60A601FA851E07034E81D41CF42D6097E810DA6
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108807.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108807.jpgsave_picture_108807.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Studying Music Group, Instrumental Music Ensemble - 2024 Relaxing Saxophone for 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108808.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108808.jpgsave_picture_108808.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Smooth Jazz Music Ensemble, Jazz Sax Lounge Collection, Restaurant Jazz Music Co
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108809.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108809.jpgsave_picture_108809.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ John Haydock - A Few More Miles (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108810.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108810.jpgsave_picture_108810.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ magnet:?xt=urn:btih:42580CA44C4C67BF215DDF5D71E6B23B5C6F34D8
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108811.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108811.jpgsave_picture_108811.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Soundset City - Always Lounge (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108812.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108812.jpgsave_picture_108812.jpg" />
 </div>
 
 

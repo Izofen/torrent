@@ -6,7 +6,7 @@ Udemy, Илья Зернов | Энциклопедия Adobe Premiere 2.0. На
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130864.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130864.jpgsave_picture_130864.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:D9C932AE9EE27E36C2F60317D79F9C8EC905EC9D
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130866.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130866.jpgsave_picture_130866.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:EA0BB80AB1A0576E73261D0F3B6028EEA2C94FA2
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130867.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130867.jpgsave_picture_130867.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:49EFB05EDF56C41F4B874520DECADDD3C3D02284
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130869.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130869.jpgsave_picture_130869.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:FF5DEAFF3641AD68DBA706CE00E24E160A04ADF5
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130870.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130870.jpgsave_picture_130870.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:285D82675700F29A6894CA854F1BC03233D6BB16
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130871.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130871.jpgsave_picture_130871.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:88EDAC58D77BB18D2B2EBD802F8B8F204679C63C
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130872.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130872.jpgsave_picture_130872.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:BF931069145F022D0E3E6560490AFD76D6D0CB25
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130873.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130873.jpgsave_picture_130873.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ USB Safely Remove 7.0.5.1320 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130874.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130874.jpgsave_picture_130874.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Lacuna Coil - Live at Wacken (2007) + Swamped (Single) (2004) [FLAC|Lossless]<Go
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130875.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130875.jpgsave_picture_130875.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Lacuna Coil - Live at Wacken (2007) + Swamped (Single) (2004) [FLAC|Lossless]<Go
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130876.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130876.jpgsave_picture_130876.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ magnet:?xt=urn:btih:F3FDE0A6BB96895BDBE9893072B1B9489FD0283A
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130877.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130877.jpgsave_picture_130877.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ magnet:?xt=urn:btih:B285AA6A970DE5CCCB7EE3234D52BCD5614CF794
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130878.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130878.jpgsave_picture_130878.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ magnet:?xt=urn:btih:4A7D4F06BE0CEA13775E888DAC9149FFC5CC6749
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130879.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130879.jpgsave_picture_130879.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ magnet:?xt=urn:btih:7D6ECD65C31F6AFFE00DDF3F8959E280CC5535E1
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130880.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130880.jpgsave_picture_130880.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ magnet:?xt=urn:btih:A0F83CDF0702C0EDE1A271E80EC7ECA346D6F361
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130882.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130882.jpgsave_picture_130882.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ magnet:?xt=urn:btih:3A408A5CFE35BE6FEC45FE1674969A0ADC25562C
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130883.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130883.jpgsave_picture_130883.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ magnet:?xt=urn:btih:FA1761460E09FBDDA42BEE465E0A82EC16473ED4
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130884.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130884.jpgsave_picture_130884.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Glenn Miller - Luxury Edition (2xCD) (2006) [FLAC|Lossless]<Jazz / Swing>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130885.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130885.jpgsave_picture_130885.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Udemy, Neil Bettison | Blender 4 Creator Course Stylized 3D Models (2023) WEB-DL
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130886.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130886.jpgsave_picture_130886.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ magnet:?xt=urn:btih:63BF187ECEDDACC77512A943CC63F0CFC1F45ECA
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130888.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130888.jpgsave_picture_130888.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ magnet:?xt=urn:btih:A2CCBBAEAEE1CCAAD67BB2304E655468BA9D0B54
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130891.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130891.jpgsave_picture_130891.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ VA - Отдыхай на все 100% (2012) [MP3|192 кб/с]<Pop, Dance, кав
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130892.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130892.jpgsave_picture_130892.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Advanced SystemCare Pro 17.1.0.157 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130893.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130893.jpgsave_picture_130893.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ magnet:?xt=urn:btih:785F116DFA44449025E77858FF7723D3C6290517
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130894.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130894.jpgsave_picture_130894.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ Mozart - Symphonies 39, 40 & 41, A Little Night Music, Divertismento 17, Serenad
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130895.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130895.jpgsave_picture_130895.jpg" />
 </div>
 
 

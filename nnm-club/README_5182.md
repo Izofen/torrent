@@ -6,7 +6,7 @@ Endstille - DetoNation (2023) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161481.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161481.jpgsave_picture_161481.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Cookie 6.8.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161482.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161482.jpgsave_picture_161482.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Cardhop 2.2.4 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161483.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161483.jpgsave_picture_161483.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ PDF Search 13.6 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161484.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161484.jpgsave_picture_161484.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ magnet:?xt=urn:btih:BE7442267FFFD81632AE2E41240D8C44D5942F8A
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161485.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161485.jpgsave_picture_161485.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ Death Stranding (2020) [Ru/Multi] (1.06/dlc) SteamRip =nemos=
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161486.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161486.jpgsave_picture_161486.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ magnet:?xt=urn:btih:058E8AC2D03AA72C77E366EECE11F2CF60A590E5
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161487.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161487.jpgsave_picture_161487.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:23B2E8262D08726A960495A4C834D40A31AFA0DB
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161488.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161488.jpgsave_picture_161488.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ Warseid - A New Land to Find (2017) [FLAC|Lossless|image + .cue] <Symphonic Folk
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161489.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161489.jpgsave_picture_161489.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ magnet:?xt=urn:btih:F4211DEE70D2DC46461916E54266C74D8C404EA6
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161490.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161490.jpgsave_picture_161490.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ PullTube 1.8.5.18 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161491.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161491.jpgsave_picture_161491.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ System Toolkit 5.9.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161492.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161492.jpgsave_picture_161492.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ magnet:?xt=urn:btih:EF6A138B05C0388DC99185E0BAE82CADAE0C6D59
 >>Авиация
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161493.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161493.jpgsave_picture_161493.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ BELOFF 2020.12 Full (Юбилейный сборник)
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161494.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161494.jpgsave_picture_161494.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ magnet:?xt=urn:btih:9B17C63E68B5F2A43E3B0EDEA50842552C3EEA91
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161495.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161495.jpgsave_picture_161495.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Asmodean - By a Thread (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161496.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161496.jpgsave_picture_161496.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Black Anvil - Regenesis (2022) [FLAC|Lossless|WEB-DL|tracks] <Black, Thrash Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161497.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161497.jpgsave_picture_161497.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Desperados III (3) (2020) [Ru/Multi] (1.7/1.5.8/dlc) License GOG [Digital Deluxe
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161498.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161498.jpgsave_picture_161498.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ OpenNumismat 1.8.12 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161499.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161499.jpgsave_picture_161499.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ AnyMP4 iOS Cleaner 1.0.12 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161500.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161500.jpgsave_picture_161500.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Wizard - Odin (2003) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161501.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161501.jpgsave_picture_161501.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Microsoft® Windows® 7 Ultimate Ru x86/x64 nBook IE11 by OVGorskiy 12.2020 1DVD
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161502.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161502.jpgsave_picture_161502.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ magnet:?xt=urn:btih:762308BA8383B56A7FAE8EAEDEDFCAD23639BBFE
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161503.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161503.jpgsave_picture_161503.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Arsenic - Seeds of Darkness (2006) Compilation, Metalhit [FLAC|Lossless|WEB-DL|t
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161504.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161504.jpgsave_picture_161504.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ PowerPhotos 2.1.3 beta [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161505.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161505.jpgsave_picture_161505.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ magnet:?xt=urn:btih:C377AF1BB5DB9892BFAC89BA19D43CCD71BE18B5
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161506.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161506.jpgsave_picture_161506.jpg" />
 </div>
 
 

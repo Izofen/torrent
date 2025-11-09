@@ -6,7 +6,7 @@ Adobe Photoshop Lightroom Classic 2024 13.0.2.1 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133235.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133235.jpgsave_picture_133235.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Adobe Photoshop 2024 25.2.0.196 Full (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133236.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133236.jpgsave_picture_133236.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:6D333922DC9E9A9527F84E3C24A92F9073EDD000
 >>3D графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133237.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133237.jpgsave_picture_133237.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:C06199F37A12884D7CD95B571D5AE52897FCC5CA
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133238.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133238.jpgsave_picture_133238.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:10F85339DC6F2F017ABEFF7A6261FC3537187260
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133239.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133239.jpgsave_picture_133239.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:3C42E86363013B0C1CF262A1735ABF7897AED242
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133240.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133240.jpgsave_picture_133240.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:CCC099EAB713041C7AF60FB7C716B70168575FD0
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133242.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133242.jpgsave_picture_133242.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ SUMo 3.4.15.190 [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133245.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133245.jpgsave_picture_133245.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ VA - Ferry Corsten presents Best Of Corsten's Countdown (2012) [MP3|320 кб/с]
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133246.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133246.jpgsave_picture_133246.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ magnet:?xt=urn:btih:692F398EBDA796D11BCA2B7CFA75F4D011733677
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133248.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133248.jpgsave_picture_133248.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ magnet:?xt=urn:btih:3A43017BF88B1A52D14F36041F8317674549D01A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133250.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133250.jpgsave_picture_133250.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ magnet:?xt=urn:btih:CC634BA2509F6E8BBF42BE7838FC8CF971C0D722
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133252.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133252.jpgsave_picture_133252.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ magnet:?xt=urn:btih:951889CF905E8D36D142C1AAAC591A917C22029D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133254.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133254.jpgsave_picture_133254.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ magnet:?xt=urn:btih:951889CF905E8D36D142C1AAAC591A917C22029D
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133256.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133256.jpgsave_picture_133256.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ magnet:?xt=urn:btih:90B80C3ED559972EC2D8C8C357D11E23E9F1AA81
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133258.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133258.jpgsave_picture_133258.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ THE MULLER-POWELL PRINCIPLE (2023) [Ru/En] (1.1.2.0) Repack DjDI
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133259.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133259.jpgsave_picture_133259.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ Axxis - 2CD (2006-2007) [WavPack|Lossless]<Power / Heavy Metal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133261.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133261.jpgsave_picture_133261.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Axxis - 2CD (2006-2007) [WavPack|Lossless]<Power / Heavy Metal>
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133262.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133262.jpgsave_picture_133262.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ magnet:?xt=urn:btih:0F27B2FED8C6435E40D1BCF279F3CED20F954998
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133264.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133264.jpgsave_picture_133264.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Logic Pro X 10.8.1 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133266.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133266.jpgsave_picture_133266.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ magnet:?xt=urn:btih:B5FE95A208AA65646E87B4BE882596279B9468EA
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133268.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133268.jpgsave_picture_133268.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ magnet:?xt=urn:btih:1873B2ADC6518B70A8E4D156037B10BDF2AAB348
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133270.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133270.jpgsave_picture_133270.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Skinwalker Hunt (2022) [Ru/Multi] (1.011) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133272.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133272.jpgsave_picture_133272.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ magnet:?xt=urn:btih:8B60A0E514BE039F3467FE7D27E1533F5A7EBBE2
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133273.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133273.jpgsave_picture_133273.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ magnet:?xt=urn:btih:860141B9BCF8A75B8D1BF3DF18BD66199DB926C9
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133274.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133274.jpgsave_picture_133274.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ magnet:?xt=urn:btih:9235CBA98354F2875BC09398B3D1C696C285A6D6
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133275.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133275.jpgsave_picture_133275.jpg" />
 </div>
 
 

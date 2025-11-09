@@ -6,7 +6,7 @@ Anbaric - Energy Flow (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71470.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71470.jpgsave_picture_71470.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Across the Shade - Madness (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Gothic Me
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71471.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71471.jpgsave_picture_71471.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Empire Of The Sun - Ask That God (2024) Deluxe Edition, 2025, EMI Recorded Music
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71479.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71479.jpgsave_picture_71479.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ DJ Maretimo - Winter Time Vol.13 - 18 Premium Trax...Chillout, Chillhouse, Downb
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71480.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71480.jpgsave_picture_71480.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Amaranthe - The Catalyst (2024) Bonus Version, 2025, Nuclear Blast [FLAC 24/44.1
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71483.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71483.jpgsave_picture_71483.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Wildness - Avenger (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71491.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71491.jpgsave_picture_71491.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Holly Cole - Dark Moon (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Vocal Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71492.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71492.jpgsave_picture_71492.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ VA - To My Valentine: Romantic Lounge Tunes (2025) [FLAC 16,24/44.1|Lossless|WEB
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71499.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71499.jpgsave_picture_71499.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Wardruna - Birna (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Nordic folk, ambien
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71501.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71501.jpgsave_picture_71501.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Armik - Gitano Amor (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Flamenco, Instru
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71504.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71504.jpgsave_picture_71504.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Avatarium - Between You, God, The Devil and The Dead (2025) [FLAC 24/44.1|Lossle
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71509.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71509.jpgsave_picture_71509.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ The Great Old Ones - Kadath (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Post-B
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71514.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71514.jpgsave_picture_71514.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Bonfire - Higher Ground (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71522.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71522.jpgsave_picture_71522.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Witchwood (ex-Buttered Bacon Biscuits) - Studio Albums (4 releases) (2009-2020) 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71532.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71532.jpgsave_picture_71532.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Kariny Phonsy - CHECKMATE (2024) Super Deluxe, 2025, Kariny Phonsy [FLAC 24/44.1
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71535.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71535.jpgsave_picture_71535.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Afterlife - Timelines 2 (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Ambient>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71539.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71539.jpgsave_picture_71539.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Nostradameus - Studio Albums (6 releases) (2000-2009) hand made [restored, decli
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71548.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71548.jpgsave_picture_71548.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Landfall - Wide Open Sky (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic H
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71562.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71562.jpgsave_picture_71562.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Bruno cattiste - Warriors of God (HARD ROCK) (2025) [FLAC 24/44.1|Lossless|WEB-D
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71565.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71565.jpgsave_picture_71565.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Ronald Snijders - Penta (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz-Funk,
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71566.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71566.jpgsave_picture_71566.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ gAIno - More To Come (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71567.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71567.jpgsave_picture_71567.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ The BIG Deal - Electrified (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71575.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71575.jpgsave_picture_71575.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Odyssey - Reinventing The Past (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71595.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71595.jpgsave_picture_71595.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Steve Hackett - Live Magic At Trading Boundaries (2025) [FLAC 24/44.1|Lossless|W
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71603.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71603.jpgsave_picture_71603.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Rigor Samsa - Severance (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressiv
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71613.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71613.jpgsave_picture_71613.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ TesseracT - War Of Being (2025) Tour Edition [FLAC 24/44.1|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71614.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71614.jpgsave_picture_71614.jpg" />
 </div>
 
 

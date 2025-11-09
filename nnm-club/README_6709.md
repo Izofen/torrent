@@ -6,7 +6,7 @@ Money Pro - Personal Finance 2.9.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230690.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230690.jpgsave_picture_230690.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ K-Lite Codec Pack Update 17.6.4 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_230691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230691.jpgsave_picture_230691.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ From Ashes to New - Blackout (2023) [FLAC|Lossless|WEB-DL|tracks] <Nu Metal, Rap
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230692.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230692.jpgsave_picture_230692.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ VA - Keep It Trance Vol. 14 (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230693.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230693.jpgsave_picture_230693.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ magnet:?xt=urn:btih:681E1921A757229C460DBCECB833ECC984350933
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_230695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230695.jpgsave_picture_230695.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ Duolingo: изучай языки 5.111.6 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230697.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230697.jpgsave_picture_230697.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ KeePass Password Safe 2.54 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_230698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230698.jpgsave_picture_230698.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ VA - 15 Years Of Enhanced Music, Mixed by Tritonal (2023) [MP3|320 Kbps] <Trance
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230699.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230699.jpgsave_picture_230699.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ magnet:?xt=urn:btih:6A7CD9067F824CF724CB4BB184618B1F421CB562
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230701.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230701.jpgsave_picture_230701.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ magnet:?xt=urn:btih:933891F16C0C4402CE42116BE4C3BC3677388C9C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230703.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230703.jpgsave_picture_230703.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ magnet:?xt=urn:btih:2F99B32501662CB9294EF3F24358627181BA505E
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_230704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230704.jpgsave_picture_230704.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ PSY2.0, Михаил Филяев, Екатерина Пыхарева и др. 
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_230705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230705.jpgsave_picture_230705.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ Photomath Plus 8.27.0 (b70000924) Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230706.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230706.jpgsave_picture_230706.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ magnet:?xt=urn:btih:5ED968A41DF18B6AF086F90E7B81E7B6A901C12C
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230707.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230707.jpgsave_picture_230707.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ magnet:?xt=urn:btih:636C34A474A2E2B917AF5D1AEE188E924545713C
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_230709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230709.jpgsave_picture_230709.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ magnet:?xt=urn:btih:89BDC4A3ECCB68BEF1E1AADAAD26C0940C752953
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230711.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230711.jpgsave_picture_230711.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Humanity-Life, Владлен Статный | Оперативная психо
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_230712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230712.jpgsave_picture_230712.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Aiseesoft iPhone Unlocker for Mac 2.0.12 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230713.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230713.jpgsave_picture_230713.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Reality's Despair - Perfidious Depopulation (2021) [FLAC|Lossless|image + .cue] 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230714.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230714.jpgsave_picture_230714.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ magnet:?xt=urn:btih:C48D688CD9EC7C78205CE7EC29776D299B3BB96F
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_230717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230717.jpgsave_picture_230717.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ VA - Silent Shore Trance - Summer (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230718.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230718.jpgsave_picture_230718.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ magnet:?xt=urn:btih:64AB6B6B527981AE3D3F31DAC3BC39FE685CDFA5
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_230719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230719.jpgsave_picture_230719.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ VueScan Pro 9.8.13 ARM/Intel [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230720.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230720.jpgsave_picture_230720.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ magnet:?xt=urn:btih:77BFAAF5B66A179644339C6DD2097D86C961C357
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230721.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230721.jpgsave_picture_230721.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ OS Cleaner Pro - Disk Cleaner 10.2.60 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230722.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230722.jpgsave_picture_230722.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ Alekon (2021) [En] (1.3) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_230723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230723.jpgsave_picture_230723.jpg" />
 </div>
 
 

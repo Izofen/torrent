@@ -6,7 +6,7 @@ OpenVPN 2.5.8 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191880.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191880.jpgsave_picture_191880.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:2E73B5BAEFD9AB43408BC99E906B4AB466B0B37C
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191881.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191881.jpgsave_picture_191881.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:D09E550B38DAE6C978A91018F00640CD92CB626F
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191882.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191882.jpgsave_picture_191882.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Wondershare PDFelement 10.0.5.2453 RePack by elchupacabra + OCR Plugin [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191883.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191883.jpgsave_picture_191883.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Danger Forever (2022) [En] (845) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191884.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191884.jpgsave_picture_191884.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:DC260F068A5F08EDF4CDD632AC83D859A07CD2B5
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191885.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191885.jpgsave_picture_191885.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Kaspersky Tweak Assistant 22.10.30.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191886.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191886.jpgsave_picture_191886.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:A2A6DA0D030BC10589FFE6CF2D6F5E79C9D131E0
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191887.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191887.jpgsave_picture_191887.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:85753763D466F0224E3F45790397C9EE66979E26
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191888.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191888.jpgsave_picture_191888.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:51090D220CFA33C40D7DF1894D186FD5BF54A4E7
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191889.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191889.jpgsave_picture_191889.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ MographPlus, Kamel Khezri | The Ultimate Introduction to Redshift 3 and 3.5 For 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191890.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191890.jpgsave_picture_191890.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ magnet:?xt=urn:btih:176947930479A91585445473E89C0146EA36C714
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191891.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191891.jpgsave_picture_191891.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ magnet:?xt=urn:btih:7D85985198783C2A788630809731EA587B4BEEF8
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191892.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191892.jpgsave_picture_191892.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ GAYAZOVS BROTHERS - Синглы и ремиксы (2015 - 2022) [MP3|320 Kbps] 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191893.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191893.jpgsave_picture_191893.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ magnet:?xt=urn:btih:64C0747ED6E4D7AC3A7AE781520BC0564E5ADB5A
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191894.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191894.jpgsave_picture_191894.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ magnet:?xt=urn:btih:E1FC79FF85A323F5D990402166511793074CB873
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191895.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191895.jpgsave_picture_191895.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ SysAdmin Software Portable v.0.6.4.0 by rezorustavi (Update 31.10.2022) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191896.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191896.jpgsave_picture_191896.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ VA - Outburst Records Presents Prism Volume 4 (2023) [FLAC|Lossless|tracks] <Har
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191897.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191897.jpgsave_picture_191897.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ Kodachi Linux 8.26 [анонимный доступ в сети] 1xDVD [amd64]
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_191898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191898.jpgsave_picture_191898.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ BT-84 - Lost Years (2023) [MP3|320 Kbps] <Synth-pop, Synthwave>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191899.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191899.jpgsave_picture_191899.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ PotPlayer 221102 (1.7.21831) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191900.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191900.jpgsave_picture_191900.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ magnet:?xt=urn:btih:8DB0ECE0470505B7901948071BE643451BBFD831
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191901.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191901.jpgsave_picture_191901.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ StaxRip 2.29.0 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191902.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191902.jpgsave_picture_191902.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Dark Hall - Dark Hall (1998) Re-Master, 2023, Dark Hall [MP3|320 Kbps] <jazzrock
 >>Jazz
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191904.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191904.jpgsave_picture_191904.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ CCleaner 6.05.10110 Free / Professional / Business / Technician Edition RePack (
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191905.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191905.jpgsave_picture_191905.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ DesktopOK 11.08 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191906.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191906.jpgsave_picture_191906.jpg" />
 </div>
 
 

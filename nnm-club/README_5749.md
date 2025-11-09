@@ -6,7 +6,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178006.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178006.jpgsave_picture_178006.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:718693454E1937FA7D87DA8C13F1D1A993C9A248
 >>Футбол. Чемпионаты мира
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_178007.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_178007.jpgsave_picture_178007.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Print Conductor 9.0.2308.32170 [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178009.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178009.jpgsave_picture_178009.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ Ancient Machine - Distance Between Us (2022) [MP3|320 Kbps] <Melodic Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178010.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178010.jpgsave_picture_178010.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ magnet:?xt=urn:btih:4A9DA9ADD4A5E0CC1DFF1E291CD0478D9318C1E2
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178012.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178012.jpgsave_picture_178012.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ magnet:?xt=urn:btih:7D13DF9968585270AF14AB0636B563B964D08BB7
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178013.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178013.jpgsave_picture_178013.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ Stand Up (2023.10.06) SATRip (сезон 11, выпуск 3)
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178015.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178015.jpgsave_picture_178015.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ Funny Twins - You And Me (1987) [OGG Vorbis|700 Kbps] <Electronic, Disco, Italo-
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178016.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178016.jpgsave_picture_178016.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ magnet:?xt=urn:btih:F8BE832A9C0E0B3E424C1C8C9E7D202F93B47FD5
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178018.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178018.jpgsave_picture_178018.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ magnet:?xt=urn:btih:485B92C367C19134218BA927D3D7A60832A0D3F8
 >>Футбол. Чемпионаты мира
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_178019.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_178019.jpgsave_picture_178019.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ magnet:?xt=urn:btih:A2DAFD3A6BE160CDF0C9E206685D65CDBBB0BB25
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178022.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178022.jpgsave_picture_178022.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ Black Rain - Untamed (2022) [MP3|320 Kbps] <Hard Rock, Glam Metal>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178023.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178023.jpgsave_picture_178023.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ magnet:?xt=urn:btih:DE5581013CBCA808237D10AEBAF3347F91E03C89
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178026.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178026.jpgsave_picture_178026.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ Topaz Photo AI 2.0.4 (x64) RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178027.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178027.jpgsave_picture_178027.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ magnet:?xt=urn:btih:0EE0B5B25D458A141AE11B0D33ADBE435C3CE369
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178030.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178030.jpgsave_picture_178030.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ magnet:?xt=urn:btih:1B7FADB2FC72B3CCF5046B8E9E459E8507FA0707
 >>Футбол. Чемпионаты мира
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_178031.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_178031.jpgsave_picture_178031.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ MyNotes Keeper 3.9.6 Build 2268 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_178033.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_178033.jpgsave_picture_178033.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Amberian Dawn - Take A Chance - A Metal Tribute to Abba (2022) [MP3|320 Kbps] <N
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178034.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178034.jpgsave_picture_178034.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ magnet:?xt=urn:btih:F300975DE8397B3389B133B1AB5A857FCFD9BB3E
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178037.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178037.jpgsave_picture_178037.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ magnet:?xt=urn:btih:B0D0FC31FF23F69ABE5F3DE539089553F50E7A09
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178038.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178038.jpgsave_picture_178038.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ magnet:?xt=urn:btih:ECA4F81DF149055AC86F9BFAC9D7153D71143490
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178042.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178042.jpgsave_picture_178042.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ magnet:?xt=urn:btih:97300489586CDBDBC40AB2ED980EF8A201C33FDA
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178043.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178043.jpgsave_picture_178043.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ magnet:?xt=urn:btih:7D01E0A87D9E4D04E160A37442CADD14AFF80654
 >>История
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178046.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178046.jpgsave_picture_178046.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ FileMenu Tools 8.2.2 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178047.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178047.jpgsave_picture_178047.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Dr.X - Music as Soul Assistance (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178049.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178049.jpgsave_picture_178049.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ CoolUtils Total Doc Converter 5.1.0.318 RePack (& Portable) by elchupacabra [Mul
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178051.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178051.jpgsave_picture_178051.jpg" />
 </div>
 
 

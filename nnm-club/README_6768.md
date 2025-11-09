@@ -6,7 +6,7 @@
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232936.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232936.jpgsave_picture_232936.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Monkey's Audio 10.17 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232940.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232940.jpgsave_picture_232940.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:E7A3A602CBFB9CD58BC62D32B1C13F6CCF986A1C
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232942.jpgsave_picture_232942.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ CleanShot X 4.5.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232943.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232943.jpgsave_picture_232943.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Chick Corea - 5 Original Albums (1973 - 1976) 5CD, 2016, Verve Records [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232944.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232944.jpgsave_picture_232944.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Gwen Hughes - Native Land (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz Blues, Coun
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232946.jpgsave_picture_232946.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ Stray Gods - Olympus (2023) [MP3|320 Kbps] <Heavy, Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232947.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232947.jpgsave_picture_232947.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ FanControl V162 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232951.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232951.jpgsave_picture_232951.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ magnet:?xt=urn:btih:31D4C6F314F95D5570CF1E88BA886068A2B0A00D
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232952.jpgsave_picture_232952.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ Gorilla Pulp - Mask Off! (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232955.jpgsave_picture_232955.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ magnet:?xt=urn:btih:61028A51A2B7A651C3966983A093D0529CAA4B15
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232956.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232956.jpgsave_picture_232956.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ The Raven Age - Blood Omen (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic-Groove-
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232957.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232957.jpgsave_picture_232957.jpg" />
 </div>
 
 
@@ -315,7 +315,7 @@ EssentialPIM Pro 11.5.2 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232959.jpgsave_picture_232959.jpg" />
 </div>
 
 
@@ -340,7 +340,7 @@ magnet:?xt=urn:btih:CB7FBB92E74BB1F8ADC1E0CCB69618B57E673F40
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232961.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232961.jpgsave_picture_232961.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ Kevin Morby - More Photographs (A Continuum) (2023) [FLAC 24/96|Lossless|WEB-DL|
 >>Alternative, Punk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232962.jpgsave_picture_232962.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ magnet:?xt=urn:btih:060CADE3A3AD2CBAA418BD06788DEF4FAC02C2B1
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232964.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232964.jpgsave_picture_232964.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ FireAlpaca 2.11.2 + Standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232965.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232965.jpgsave_picture_232965.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ OCCT 12.0.4 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232966.jpgsave_picture_232966.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Richard Koechli - Transcendental Blues (2023) [FLAC|Lossless|WEB-DL|tracks] <Blu
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232970.jpgsave_picture_232970.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ NetLimiter 5.2.8.0 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232971.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232971.jpgsave_picture_232971.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:B163BB08D185A456A480FB5216DE51714B970F8D
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232972.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232972.jpgsave_picture_232972.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ VA - Музыка для машины Vol.18 (2023) [MP3|320 Kbps] <Pop, Dance, 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232973.jpgsave_picture_232973.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ magnet:?xt=urn:btih:1063A493BBE402A2FA63D36EB7CEB28A365B7339
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232975.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232975.jpgsave_picture_232975.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Trespass - Wolf At The Door (2023) [MP3|320 Kbps] <NWOBHM, Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232978.jpgsave_picture_232978.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ magnet:?xt=urn:btih:98C632CC661FAA925243687F609A8D815E529CE5
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232979.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232979.jpgsave_picture_232979.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ Topaz Video AI 3.2.6 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232981.jpgsave_picture_232981.jpg" />
 </div>
 
 

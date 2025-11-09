@@ -6,7 +6,7 @@
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142085.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142085.jpgsave_picture_142085.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:B9ACE95DD982ED89A6E40AC870F043561C003A60
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142086.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142086.jpgsave_picture_142086.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:64EB5ACF645BCA8E0A69465DB6192E83700993F1
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142087.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142087.jpgsave_picture_142087.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ VA - Psychotic Episodes (Selected by Psycatrick) (2021) [AAC|~324 Kbps] <Psy-Tra
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142088.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142088.jpgsave_picture_142088.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:2E5C2720A8FCD7633DC4A8E5469478E81EC02CA6
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142089.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142089.jpgsave_picture_142089.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Opera GX 104.0.4944.74 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142090.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142090.jpgsave_picture_142090.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ magnet:?xt=urn:btih:10825765BBD8604C51DF61A5222AD619548D0BC9
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142091.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142091.jpgsave_picture_142091.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ magnet:?xt=urn:btih:5465CBFC774EFFFE7F1B9E1EB7052B8EC8FCC507
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142092.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142092.jpgsave_picture_142092.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ Acronis Disk Director 12 Build 12.0.3270 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142093.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142093.jpgsave_picture_142093.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ SiteSucker Pro 4.3.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142094.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142094.jpgsave_picture_142094.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ magnet:?xt=urn:btih:657B8ABECF1CCAC9938D16D3DAE5BAF41C55354E
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142095.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142095.jpgsave_picture_142095.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ Dungortheb - Intended To... (2003) [WavPack|Lossless|image + .cue] <Technical De
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142098.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142098.jpgsave_picture_142098.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ magnet:?xt=urn:btih:9C42C41866C060FD5187E88D6FA3F7A88473712E
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142099.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142099.jpgsave_picture_142099.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ magnet:?xt=urn:btih:182B3DFD2133ACB1322543F4121912E516F249F3
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142101.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142101.jpgsave_picture_142101.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ magnet:?xt=urn:btih:BB6FF5E66AA2833F136F7166183DA305C54AB771
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142102.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142102.jpgsave_picture_142102.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ magnet:?xt=urn:btih:C678FC3942AFCDE9920321F1030728FCD3904791
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142103.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142103.jpgsave_picture_142103.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ XCap 1.2.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142105.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142105.jpgsave_picture_142105.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ magnet:?xt=urn:btih:4764F1996FCD35D781F5D6BEBD85291D1A261619
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142106.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142106.jpgsave_picture_142106.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ magnet:?xt=urn:btih:506C6E234CE32579E34D77697942386007B55CC5
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142107.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142107.jpgsave_picture_142107.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ magnet:?xt=urn:btih:A4FD998322949024928E3AE0A043BD1DA4B8C71C
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142108.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142108.jpgsave_picture_142108.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ magnet:?xt=urn:btih:C6BC44833ACBB495C63EDFF01026CB9B80147C17
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142110.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142110.jpgsave_picture_142110.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ magnet:?xt=urn:btih:B0EC7DB770EFFF11F71A88B3E92276ECC408C3E1
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142111.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142111.jpgsave_picture_142111.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ magnet:?xt=urn:btih:89362CE1863D7FD629A29B287B41F3F0DBD5B5A2
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142112.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142112.jpgsave_picture_142112.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ The Ray Brown Trio featuring Gene Harris - Soular Energy (1984) 2013, Analogue P
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142113.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142113.jpgsave_picture_142113.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ magnet:?xt=urn:btih:2779EC0531361DC276ECAEA0EE457294BEEDF12D
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142117.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142117.jpgsave_picture_142117.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ Acronis Disk Director 12 Build 12.0.3270 BootCD [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142118.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142118.jpgsave_picture_142118.jpg" />
 </div>
 
 

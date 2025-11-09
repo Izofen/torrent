@@ -6,7 +6,7 @@ Blueprint's - Organic Life Hazards (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphon
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242417.jpgsave_picture_242417.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Acres - Burning Throne (2023) [FLAC|Lossless|WEB-DL|tracks] <Post-Hardcore, Alt.
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242434.jpgsave_picture_242434.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Enter Shikari - A Kiss for the Whole World (2023) [MP3|320 Kbps] <Alternative Ro
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242702.jpgsave_picture_242702.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Wheel - Resident Human (2021) [MP3|320 Kbps] <Progressive Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242780.jpgsave_picture_242780.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Band of Spice - By the Corner of Tomorrow (2021) [MP3|320 Kbps] <Hard Rock, Ston
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242803.jpgsave_picture_242803.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Cinderheart - I Want To Feel Okay (2022) [FLAC|Lossless|WEB-DL|tracks] <Psychede
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242810.jpgsave_picture_242810.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ As Everything Unfolds - Within Each Lies the Other (2021) [MP3|320 Kbps] <Post-H
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242812.jpgsave_picture_242812.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Celtic Hills - Huldufolk (2022) [FLAC|Lossless|WEB-DL|tracks] <Power, Thrash Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242824.jpgsave_picture_242824.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Dиверсант - Ненависть и отчаяние (2022) [FLAC|Lossless
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242831.jpgsave_picture_242831.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Andy Qunta - Legend In A Loungeroom (2021) 2xCD [FLAC|Lossless|image + .cue] <Me
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242837.jpgsave_picture_242837.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Esoctrilihum - Consecration of the Spiritus Flesh (2022) [FLAC|Lossless|WEB-DL|t
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243067.jpgsave_picture_243067.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Jason Bieler And The Baron Von Bielski Orchestra - Postcards from the Asylum (20
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243069.jpgsave_picture_243069.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Misery - Risk It All (1992) Reissue, 2023, Eonian Records [FLAC|Lossless|WEB-DL|
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243083.jpgsave_picture_243083.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Mike Tramp - Songs of White Lion (2023) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243088.jpgsave_picture_243088.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Outpost 11 - 4 Albums (2018-2023) [MP3|320 Kbps] <electro-industrial, EBM>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243094.jpgsave_picture_243094.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Aviator - Aviator (1986) Reissue, 1997, Escape [MP3|320 Kbps] <Melodic Hard Rock
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243096.jpgsave_picture_243096.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Tank - Re-Ignition (2019) [FLAC|Lossless|tracks + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243100.jpgsave_picture_243100.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Ben Sollberger Project - I Hate to Say (2021) [FLAC|Lossless|WEB-DL|tracks] <Mod
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243117.jpgsave_picture_243117.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Ellende - Ellenbogengesellschaft (2022) [FLAC|Lossless|WEB-DL|tracks] <Ambient P
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243119.jpgsave_picture_243119.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:B23AB5E08F5BF401D4E62E1CCFDA2D68F17D53C9
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243128.jpgsave_picture_243128.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Aphyxion - Aftermath (2016) [MP3|320 Kbps] <Modern Melodic Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243132.jpgsave_picture_243132.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Exit North - Book of Romance and Dust (2018) [FLAC|Lossless|WEB-DL|tracks] <Alte
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243144.jpgsave_picture_243144.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Modern Man - Modern Man (1987) [MP3|320 Kbps] <Pop Rock, Synth-pop>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243145.jpgsave_picture_243145.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Kevin M. Thomas - Generation Rock (2016) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243147.jpgsave_picture_243147.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Graveworm - Ascending Hate (2015) Limited Edition [FLAC|Lossless|image + .cue] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243149.jpgsave_picture_243149.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Burning Shadows - Gather, Darkness! (2012) [FLAC|Lossless|image + .cue] <Heavy M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243160.jpgsave_picture_243160.jpg" />
 </div>
 
 

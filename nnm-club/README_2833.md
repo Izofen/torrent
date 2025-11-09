@@ -6,7 +6,7 @@
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82123.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82123.jpgsave_picture_82123.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:FE06594E5758A38252B5BCBFFD53064177BFCC7A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82124.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82124.jpgsave_picture_82124.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ magnet:?xt=urn:btih:6CC27ECB7C7486B4720AE6F4ACFBD0ECBDA0BD1B
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82125.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82125.jpgsave_picture_82125.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ AdFender 1.50 [Английский + русификатор]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82127.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82127.jpgsave_picture_82127.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ AdFender - бесплатный аналог AdGuard и Ad Muncher. Предст
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82129.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82129.jpgsave_picture_82129.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ magnet:?xt=urn:btih:4D5009F2CB9779DD4C353EB7A2AC293D21093A53
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82134.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82134.jpgsave_picture_82134.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ magnet:?xt=urn:btih:2E8A75D341DCE0CDE44860E3562C8395F07A6239
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82138.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82138.jpgsave_picture_82138.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ magnet:?xt=urn:btih:F2C38C457A7963BBA753F0B00ACAA638C2A0DAD9
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82139.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82139.jpgsave_picture_82139.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ magnet:?xt=urn:btih:F2C38C457A7963BBA753F0B00ACAA638C2A0DAD9
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82140.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82140.jpgsave_picture_82140.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ magnet:?xt=urn:btih:DEF2248A227BE59B2DF48118C2F64C02FB6796C7
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82141.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82141.jpgsave_picture_82141.jpg" />
 </div>
 
 
@@ -262,7 +262,7 @@ magnet:?xt=urn:btih:DEF2248A227BE59B2DF48118C2F64C02FB6796C7
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82145.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82145.jpgsave_picture_82145.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ magnet:?xt=urn:btih:AC67FB38F59FBB75C1A68E5C5C1672628934F244
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82146.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82146.jpgsave_picture_82146.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ magnet:?xt=urn:btih:AC67FB38F59FBB75C1A68E5C5C1672628934F244
 >>Автомобильная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82154.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82154.jpgsave_picture_82154.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ magnet:?xt=urn:btih:1426BE3A3575DB801099069915EEC9961EA7CB80
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82155.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82155.jpgsave_picture_82155.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ Command & Conquer: Red Alert 3 Uprising [Ru] (Rip) 2009 | Fenixx
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82157.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82157.jpgsave_picture_82157.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Galactic Civilizations 2 Ultimate Edition / Космическая Федера�
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82160.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82160.jpgsave_picture_82160.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Dragon Age: Origins & Awakening [MacOS X] [Native] [Eng + Rus]
 >>Strategy, RPG для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82161.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82161.jpgsave_picture_82161.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ magnet:?xt=urn:btih:85ED604C1CBE99AE860544FEA1A5878D5C31D8AE
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82163.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82163.jpgsave_picture_82163.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ UralSOFT | Курс по WPI [2011] [ISO]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82164.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82164.jpgsave_picture_82164.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ magnet:?xt=urn:btih:513274D6F2DF45125F570E292AAB48EEFADA1626
 >>Другие мультимедийные материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82167.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82167.jpgsave_picture_82167.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ magnet:?xt=urn:btih:632074DBE37609E7F3337FB98286A3B992BA8B85
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82170.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82170.jpgsave_picture_82170.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ magnet:?xt=urn:btih:A208B1F2174C97ADAC786846425BBC4827FFCF22
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82174.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82174.jpgsave_picture_82174.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ magnet:?xt=urn:btih:EFEDEFF550D894B7DD0B49E1A4222B8A7D720FD6
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82175.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82175.jpgsave_picture_82175.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ magnet:?xt=urn:btih:58DC2D51C343BE8B4306F33D12AEEAE7DD3D53F8
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82176.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82176.jpgsave_picture_82176.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ ArcSoft Perfect365 1.1.0.1 [Английский + русификатор]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82177.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82177.jpgsave_picture_82177.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ Guadalinex 8 [i386] (1xDVD)
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82180.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82180.jpgsave_picture_82180.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107799.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107799.jpgsave_picture_107799.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Exodus - British Disaster! The Battle Of '89 (2024) Live At The Astoria [FLAC|Lo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107800.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107800.jpgsave_picture_107800.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ RivetSkull - Absence of Time (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107801.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107801.jpgsave_picture_107801.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ magnet:?xt=urn:btih:511D3B83CEFC8773FD52CC8F643A83C43E38C45C
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107802.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107802.jpgsave_picture_107802.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Sam Morton - Daffodils & Dirt (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alte
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107803.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107803.jpgsave_picture_107803.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Jimmie Noone - Apex Blues (1928 - 1930) 1994, Decca Jazz [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107804.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107804.jpgsave_picture_107804.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Loch Vostok - Reveal No Secrets (2009) [FLAC|Lossless|image + .cue] <Extreme Pro
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107805.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107805.jpgsave_picture_107805.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Loch Vostok - V: The Doctrine Decoded (2012) [FLAC|Lossless|image + .cue] <Extre
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107806.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107806.jpgsave_picture_107806.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Loch Vostok - Dystopium (2011) [FLAC|Lossless|image + .cue] <Extreme Progressive
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107807.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107807.jpgsave_picture_107807.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ magnet:?xt=urn:btih:25742972EB4595CCC649E7603FB435DCF9456CF7
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107808.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107808.jpgsave_picture_107808.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ magnet:?xt=urn:btih:5EE3537158E26D6E9C32D63FB9D2283F760D7DFA
 >>Футбол. Чемпионаты Европы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107809.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107809.jpgsave_picture_107809.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Redemm - Be My Lover (2024) [FLAC|Lossless|tracks] <Euro House, Deep House>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107810.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107810.jpgsave_picture_107810.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Google Chrome 126.0.6478.62 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107811.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107811.jpgsave_picture_107811.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ PrivaZer 4.0.87 Free + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107812.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107812.jpgsave_picture_107812.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ BAND-MAID - The Day of Maid (2021) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107813.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107813.jpgsave_picture_107813.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ magnet:?xt=urn:btih:E85226131D511E0F8CF4DABFC439049E9546C892
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107814.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107814.jpgsave_picture_107814.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ Chillymouse - Only You (Bootmasters & Visioneight remix) (2021) [FLAC|Lossless|t
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107815.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107815.jpgsave_picture_107815.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ BAND-MAID - Online Okyu-Ji (2021) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107816.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107816.jpgsave_picture_107816.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ Dutch Rhythm Combo Ft. Isa GT - Alerta (remixes) (2010) [FLAC|Lossless|tracks] <
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107817.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107817.jpgsave_picture_107817.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Tarkan - Kuantum 51 (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107818.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107818.jpgsave_picture_107818.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ VA - Валентинка для тебя (2024) [FLAC|Lossless|WEB-DL|tracks] <
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107819.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107819.jpgsave_picture_107819.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ VA - Весеннеее настроение - 2024 (2024) [FLAC|Lossless|WEB-DL
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107820.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107820.jpgsave_picture_107820.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ VA - DJ Hits Vol. 66 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Euro 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107821.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107821.jpgsave_picture_107821.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ VA - DJ Hits Vol. 65 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Euro 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107822.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107822.jpgsave_picture_107822.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Loch Vostok - Dark Logic (2003) [FLAC|Lossless|image + .cue] <Extreme Progressiv
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107823.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107823.jpgsave_picture_107823.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ VA - DJ Hits Vol. 57 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Euro 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107824.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107824.jpgsave_picture_107824.jpg" />
 </div>
 
 

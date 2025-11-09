@@ -6,7 +6,7 @@ Atlanta - Nugrybauti (2020) [MP3|320 Kbps] <Psychedelic Rock, Prog Rock, Jam Ban
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164506.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164506.jpgsave_picture_164506.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:563F2B643A2E8B7252C74C65E6A968CB4C3447F6
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164521.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164521.jpgsave_picture_164521.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Leprous - Pitfalls (2019) [FLAC|Lossless|image + .cue] <Progressive Rock, Progre
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164540.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164540.jpgsave_picture_164540.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Fish On Friday - 8mm (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock/Cros
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164551.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164551.jpgsave_picture_164551.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Elm Street - The Great Tribulation (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164558.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164558.jpgsave_picture_164558.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Edenbridge - The Chronicles Of Eden (2008) 2CD [FLAC|Lossless|image + .cue] <Sym
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164561.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164561.jpgsave_picture_164561.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Aeonian Sorrow - Into the Eternity a Moment We Are (2018) [FLAC|Lossless|image +
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164582.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164582.jpgsave_picture_164582.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Edenbridge - MyEarthDream (2008) [FLAC|Lossless|image + .cue] <Symphonic Power M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164592.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164592.jpgsave_picture_164592.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Netra - Ingrats (2017) [FLAC|Lossless|tracks + .cue] <Depressive Black Metal, Po
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164597.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164597.jpgsave_picture_164597.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Netra - Mélancolie Urbaine (2010) [FLAC|Lossless|tracks + .cue] <Depressive Bla
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164601.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164601.jpgsave_picture_164601.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Edenbridge - Shine (2004) [FLAC|Lossless|image + .cue] <Symphonic Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164602.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164602.jpgsave_picture_164602.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Netra - Sørbyen (2011) [FLAC|Lossless|tracks + .cue] <Depressive Black Metal, P
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164606.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164606.jpgsave_picture_164606.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Edenbridge - ...Sunrise In Eden... (2000) [FLAC|Lossless|image + .cue] <Symphoni
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164622.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164622.jpgsave_picture_164622.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Edenbridge - Arcana (2001) [FLAC|Lossless|image + .cue] <Symphonic Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164627.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164627.jpgsave_picture_164627.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Edenbridge - Aphelion (2003) [FLAC|Lossless|image + .cue] <Symphonic Power Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164646.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164646.jpgsave_picture_164646.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Aeonian Sorrow - Forever Misery (2017) Single [FLAC|Lossless|WEB-DL|tracks] <Got
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164650.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164650.jpgsave_picture_164650.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ magnet:?xt=urn:btih:8835EC5B4590CF7D745A9623C7831CB24239E874
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164717.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164717.jpgsave_picture_164717.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Rainbow - Stranger In Us All (1995) Japan 1-st Press [FLAC|Lossless]<Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164810.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164810.jpgsave_picture_164810.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ The Tea Party - Blood Moon Rising (2021) Compilation [FLAC|Lossless|image + .cue
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164943.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164943.jpgsave_picture_164943.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ magnet:?xt=urn:btih:7EE551291CF395A092DE730DE8C1E3BFB00A911E
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164994.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164994.jpgsave_picture_164994.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ magnet:?xt=urn:btih:F3939AEC92E1687DF58F9C219CEB4F8FBB66FB6D
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165002.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165002.jpgsave_picture_165002.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Demon Hunter - Exile (2022) Deluxe Edition [MP3|320 Kbps] <Nu Metal, Alternative
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165021.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165021.jpgsave_picture_165021.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Volbeat - Servant Of The Mind (2021) 2xCD, Limitеd Еditiоn [FLAC|Lossless|ima
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165038.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165038.jpgsave_picture_165038.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Kin Ping Meh - 6 albums, 1 Box-set, 12 CD (1971-2016) [FLAC|Lossless|image + .cu
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165055.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165055.jpgsave_picture_165055.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ Bonnie Tyler - 7 Albums (1983 - 2019) [FLAC|Lossless|tracks + .cue] <Pop Rock, S
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165062.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165062.jpgsave_picture_165062.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ Dimmu Borgir - Alive In Torment (2001) [FLAC|Lossless|image + .cue] <Black Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165071.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165071.jpgsave_picture_165071.jpg" />
 </div>
 
 

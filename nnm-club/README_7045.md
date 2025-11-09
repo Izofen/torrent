@@ -6,7 +6,7 @@
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241378.jpgsave_picture_241378.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Glarysoft Malware Hunter PRO 1.154.0.771 RePack (& Portable) by 9649 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241379.jpgsave_picture_241379.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Udemy, Art Studio | Complete Blender Course: Creating Game Assets for Beginners 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241380.jpgsave_picture_241380.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ Loqiemean - Контроль (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241382.jpgsave_picture_241382.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Dudley Taft - Guitar Kingdom (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241383.jpgsave_picture_241383.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ magnet:?xt=urn:btih:FA1B518A8EAE3ADBC0337A023087B44F10D8B3E3
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241384.jpgsave_picture_241384.jpg" />
 </div>
 
 
@@ -161,7 +161,7 @@ Van der Graaf Generator - The Bath Forum Concert (2023) Live, 2CD [FLAC|Lossless
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241385.jpgsave_picture_241385.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Graham Collier - British Conversations (2021) [FLAC|Lossless|tracks + .cue] <Con
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241386.jpgsave_picture_241386.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ magnet:?xt=urn:btih:53D8565DA6AFCAC7686987CC47C3948B86FD3852
 >>Космос
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241387.jpgsave_picture_241387.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ VA - Villa del Mar Vol.2: Deluxe Luxury and Spa Resort Chill Out (2017) [MP3|320
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241388.jpgsave_picture_241388.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ magnet:?xt=urn:btih:B34238CCF77D66D238940ED57681EFCDEE7F4D56
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241389.jpgsave_picture_241389.jpg" />
 </div>
 
 
@@ -290,7 +290,7 @@ FireAlpaca 2.10.2 + Standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241390.jpgsave_picture_241390.jpg" />
 </div>
 
 
@@ -314,7 +314,7 @@ magnet:?xt=urn:btih:39BDB239D8B1714C92A9F0D38A305471F8F89732
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241391.jpgsave_picture_241391.jpg" />
 </div>
 
 
@@ -341,7 +341,7 @@ magnet:?xt=urn:btih:A9C676B83F25D6310A1D652AB60368921DDECFF7
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241392.jpgsave_picture_241392.jpg" />
 </div>
 
 
@@ -365,7 +365,7 @@ HitPaw Watermark Remover 1.4.1.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241393.jpgsave_picture_241393.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ Photo Image Editor Pixelstyle 3.8.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241395.jpgsave_picture_241395.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Dream Awake - Enigma (2023) [FLAC|Lossless|WEB-DL|tracks] <Post-Hardcore, Altern
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241396.jpgsave_picture_241396.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Mindsphere - Mental Triplex - Mindream (2017) [MP3|320 Kbps] <Psybient>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241397.jpgsave_picture_241397.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ magnet:?xt=urn:btih:E4A3F7CD56A2872F021EF3D9BCEBC7CD78BACDF3
 >>Историческая проза, Мифы и Легенды
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241398.jpgsave_picture_241398.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:E8A08A1A3E6D0F206478B95F5277E7875BB1D5AE
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241399.jpgsave_picture_241399.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ GeoGebra 6.0.772.0 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241400.jpgsave_picture_241400.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ magnet:?xt=urn:btih:0BC6080A8FAA6DA01EC858D338329EFDA98E1DA6
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241401.jpgsave_picture_241401.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Azaghal - Alttarimme on Luista Tehty (2023) [FLAC|Lossless|WEB-DL|tracks] <Black
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241402.jpgsave_picture_241402.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ VA - IBIZA Vol.1 (Chill Out and Lounge) (2017) [MP3|320 Kbps] <Downtempo, Chillo
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241404.jpgsave_picture_241404.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ The Curse Within - Heartless (2022) EP [FLAC|Lossless|WEB-DL|tracks] <Melodic Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241405.jpgsave_picture_241405.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ magnet:?xt=urn:btih:7C394790655B0420E25AC4A42F7CBDEF8EFD66F8
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241406.jpgsave_picture_241406.jpg" />
 </div>
 
 

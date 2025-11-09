@@ -6,7 +6,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231548.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231548.jpgsave_picture_231548.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:032A74D385377A901B6155EED5EEBE06C6383119
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_231549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231549.jpgsave_picture_231549.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ Any Given Day - Сollection (2014 - 2016) 2 CD [FLAC|Lossless|image + .cue|track
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231551.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231551.jpgsave_picture_231551.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ Hellbearer - For Those About to Bear Hell (2023) [MP3|320 Kbps] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231552.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231552.jpgsave_picture_231552.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ Outer Heaven - Infinite Psychic Depths (2023) [FLAC|Lossless|WEB-DL|tracks] <Dea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231553.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231553.jpgsave_picture_231553.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ magnet:?xt=urn:btih:383857CC2DE617B8B693A65FA3ACCE69ADE637CE
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_231554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231554.jpgsave_picture_231554.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Volcandra - Into the Azure (2020) [FLAC|Lossless|WEB-DL|tracks] <Melodic Black M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231556.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231556.jpgsave_picture_231556.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ PullTube 1.8.5.12 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231558.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231558.jpgsave_picture_231558.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ GeoSetter 3.5.3 + Portable [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_231559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231559.jpgsave_picture_231559.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ Fynal Stand - Tribulation Saint (2023) [MP3|320 Kbps] <Power, Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231560.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231560.jpgsave_picture_231560.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ White Falcon - Nueva era (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231561.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231561.jpgsave_picture_231561.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ AOMEI Backupper Technician Plus 7.2.2 Repack (& Portable) by elchupacabra [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_231562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231562.jpgsave_picture_231562.jpg" />
 </div>
 
 
@@ -317,7 +317,7 @@ Purtenance - The Rot Within Us (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231564.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231564.jpgsave_picture_231564.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ magnet:?xt=urn:btih:AA5700127CE8606FCA870295A63E00842B878CFA
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_231566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231566.jpgsave_picture_231566.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ Athentech Perfectly Clear Video for Mac 4.5.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231567.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231567.jpgsave_picture_231567.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ magnet:?xt=urn:btih:32971214D3FC3196A3C72A090DD48844F5B931FD
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_231569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231569.jpgsave_picture_231569.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ Purtenance - ...to Spread the Flame of Ancients (2015) [FLAC|Lossless|image + .c
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231570.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231570.jpgsave_picture_231570.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ PowerPhotos 2.4.2b2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231572.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231572.jpgsave_picture_231572.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ magnet:?xt=urn:btih:C742C97A1EE676F1515C2A597AC337BC1078E2B7
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_231573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231573.jpgsave_picture_231573.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ VA - Cottage Days (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231574.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231574.jpgsave_picture_231574.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ PDF Reader Pro 2.9.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_231576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231576.jpgsave_picture_231576.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ Wasteland Clan - The End of Time (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic T
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231577.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231577.jpgsave_picture_231577.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Ruadh - Sovereign (2019) [FLAC|Lossless|image + .cue] <Atmospheric Folk, Black M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231579.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231579.jpgsave_picture_231579.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ The Luminary - Second Sleep (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231580.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231580.jpgsave_picture_231580.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ Immortal Guardian - Psychosomatic (2021) [FLAC|Lossless|image + .cue] <Progressi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231581.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231581.jpgsave_picture_231581.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ Icecream Image Resizer Pro 2.13 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_231582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231582.jpgsave_picture_231582.jpg" />
 </div>
 
 

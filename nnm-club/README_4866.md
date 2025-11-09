@@ -6,7 +6,7 @@
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152255.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152255.jpgsave_picture_152255.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Gregorian - Pure Chants (2021) BDRip [H.264/1080p-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152256.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152256.jpgsave_picture_152256.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ Amorphis - Borderland (2025) [FLAC|Lossless|image + .cue] <Heavy Metal, Melodic 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152259.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152259.jpgsave_picture_152259.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ magnet:?xt=urn:btih:EAADDD5164491FC99770B83B8AA27935E8520E8F
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152260.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152260.jpgsave_picture_152260.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ magnet:?xt=urn:btih:21D1EC5AB9F7D93B8C32B1631820A51FC5622775
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152261.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152261.jpgsave_picture_152261.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ magnet:?xt=urn:btih:2EA8EB7B7E3DA410C87EC640F34926DED4B7359C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152262.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152262.jpgsave_picture_152262.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ magnet:?xt=urn:btih:4270F29453E012819D18D47323FDFE9BA0B92B64
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152263.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152263.jpgsave_picture_152263.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ magnet:?xt=urn:btih:2F619A78A183D2FEEE084DCF9758A09691E97DA8
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152264.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152264.jpgsave_picture_152264.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ magnet:?xt=urn:btih:C54812B70B865D55B866DB7495244EE14F6C7478
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152265.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152265.jpgsave_picture_152265.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ magnet:?xt=urn:btih:AC78F8316CE221A2774C9890CC740AB588832E33
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152266.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152266.jpgsave_picture_152266.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ magnet:?xt=urn:btih:16A9A8EDE74026712D25793A956B3665C730354D
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152268.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152268.jpgsave_picture_152268.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ Downie 3.1.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152269.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152269.jpgsave_picture_152269.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ magnet:?xt=urn:btih:6F7412E86512C4098DCB782A53F553137BF7504F
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152271.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152271.jpgsave_picture_152271.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ magnet:?xt=urn:btih:97A2E57676C7985C065AC0AE230AE3B679240B59
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152272.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152272.jpgsave_picture_152272.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ magnet:?xt=urn:btih:B9121440FD9E4B350097AA46538B3EF1E8237DD9
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152273.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152273.jpgsave_picture_152273.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ magnet:?xt=urn:btih:A8713A4D993F33EA1E50BC5FB0D14DBC91DF98F7
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152274.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152274.jpgsave_picture_152274.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ magnet:?xt=urn:btih:F62944F9E3F7508CE7391489831C5CFD84C65DF6
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152276.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152276.jpgsave_picture_152276.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ Nitzinger - One Foot In History (1973) Reissue, 1999, Buy Or Die Records [MP3|32
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152278.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152278.jpgsave_picture_152278.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ Imperialism (1997) [Multi] (1.1) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152279.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152279.jpgsave_picture_152279.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ magnet:?xt=urn:btih:8367512C24ECC4F58717596009EF6AB0ADF438E9
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152280.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152280.jpgsave_picture_152280.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ magnet:?xt=urn:btih:9CBCAC9D243B323E644A916853630E9C1652B65A
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152281.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152281.jpgsave_picture_152281.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ magnet:?xt=urn:btih:69F063E00DBCD1FE9147D523CF198FB87ED9F450
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152282.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152282.jpgsave_picture_152282.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ magnet:?xt=urn:btih:BFDAE2F4F5387BDB71A1CE662F75862010E9A859
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152283.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152283.jpgsave_picture_152283.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Macrium Reflect v7.2 .3957 Free Edition [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152284.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152284.jpgsave_picture_152284.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ SOA Academy | Photorealism with Corona Renderer Online (2021) WEB-DL [AD] [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152285.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152285.jpgsave_picture_152285.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ magnet:?xt=urn:btih:662524D1C4DCB3156124EE43FD1BF2DD8EAE3FD4
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152288.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152288.jpgsave_picture_152288.jpg" />
 </div>
 
 

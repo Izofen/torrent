@@ -6,7 +6,7 @@ Imagenomic Noiseware for PS (Mac) 6.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172670.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172670.jpgsave_picture_172670.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:7919F26B8A2FFF77C8409FF9B72ECE69CB528A22
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172671.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172671.jpgsave_picture_172671.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Decembre Noir - Your Sunset | My Sunrise (2023) [MP3|320 Kbps] <Melodic Doom, De
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172672.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172672.jpgsave_picture_172672.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ Sieges Even - Life Cycle (1988) Reissue, 2022, Golden Core [FLAC|24/192|image + 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172673.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172673.jpgsave_picture_172673.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ Crocodile - The Tale of Otter, Thorn Eater, And the Colored Coyotes of Hidden Ci
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172674.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172674.jpgsave_picture_172674.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Default Folder X 6.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172675.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172675.jpgsave_picture_172675.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ Roland Hanna Trio - Dream (2001) Venus Records [FLAC|Lossless|tracks + .cue] <Po
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172676.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172676.jpgsave_picture_172676.jpg" />
 </div>
 
 
@@ -187,7 +187,7 @@ Roland Hanna & George Mraz - Romanesque (2023) Solid Records [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172677.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172677.jpgsave_picture_172677.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Highway - Viral (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172678.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172678.jpgsave_picture_172678.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Nox Sinister - Knight Terrors (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Thras
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172679.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172679.jpgsave_picture_172679.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Birth Asphyxia - Human Obelisk (2012) [MP3|320 Kbps] <Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172680.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172680.jpgsave_picture_172680.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ David Hazeltine - The New Classic Trio (2012) Sharp Nine Records [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172681.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172681.jpgsave_picture_172681.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Isengard - Vårjevndøgn (2012) Compilation, Peaceville [FLAC|24/192|image + .cu
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172682.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172682.jpgsave_picture_172682.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Isengard - Traditional Doom Cult (2016) EP [FLAC|24/192|tracks|Vinyl-Rip] <Black
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172683.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172683.jpgsave_picture_172683.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Sieges Even - Steps (1990)  [FLAC|24/192|image + .cue|Vinyl-Rip]<Progressive Thr
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172684.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172684.jpgsave_picture_172684.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Permutation - Transience (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death, Bl
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172685.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172685.jpgsave_picture_172685.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Profanatica - Crux Simplex (2023) [FLAC|Lossless|WEB-DL|tracks] <Black, Death Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172686.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172686.jpgsave_picture_172686.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ EdgeView 4.3.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172687.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172687.jpgsave_picture_172687.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ SiteSucker 5.1.13 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172688.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172688.jpgsave_picture_172688.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ magnet:?xt=urn:btih:8A760E530B52E265432FE0352E196C985F883733
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172689.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172689.jpgsave_picture_172689.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ magnet:?xt=urn:btih:500D3FD5D8A7FC02ADDE3CDC1CF326F03FACB727
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172690.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172690.jpgsave_picture_172690.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ English Galaxy v1.6.1 Mod by Alex.Strannik [Ru/Multi]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172691.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172691.jpgsave_picture_172691.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ SketchUp Pro 2023 23.1.340 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172692.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172692.jpgsave_picture_172692.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Lords of the Fallen (2023) [Ru/Multi] (1.1.191/dlc) Repack Other s
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172693.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172693.jpgsave_picture_172693.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ OratoricaMedia, Владимир Тарасов - Искусство управ�
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172694.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172694.jpgsave_picture_172694.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ magnet:?xt=urn:btih:A346A211A876E902BC8E3D40C9BDBE10629D1F17
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172695.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172695.jpgsave_picture_172695.jpg" />
 </div>
 
 

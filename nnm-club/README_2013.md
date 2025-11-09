@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52705.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52705.jpgsave_picture_52705.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:84D60E83D3496123A84AB2E8506C1CA2C49D1A03
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52706.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52706.jpgsave_picture_52706.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:9CE78F5F5527EF0F1167D0F1855300192789AE57
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52707.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52707.jpgsave_picture_52707.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Thomas Booth | English for everyone. English vocabulary Builder (2018) [PDF] [EN
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52708.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52708.jpgsave_picture_52708.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ RogueKiller Anti-Malware 15.17.3.0 + Portable [Multi]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52709.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52709.jpgsave_picture_52709.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:F3C944165A21A267C737C953680B076FB3962420
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52710.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52710.jpgsave_picture_52710.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ SuperImage Pro - AI Enhancer 3.0.2 (ARM64) Mod by ApplicazioniCR [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52711.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52711.jpgsave_picture_52711.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:C3AF78F92F830AFB5530B495D2A889E97BB89A10
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52712.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52712.jpgsave_picture_52712.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:F3E1B45FB314DB4A43609EB50733EC64702F4697
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52713.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52713.jpgsave_picture_52713.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:97480C68DAEBBD40060C2BDC837355A087ACC82B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52714.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52714.jpgsave_picture_52714.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ iFind Data Recovery 9.1.4.0 RePack (& Portable) by elchupacabra [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52715.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52715.jpgsave_picture_52715.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ magnet:?xt=urn:btih:2EB332FD02A8E721E8273AE771C0A142EFC47AE7
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52716.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52716.jpgsave_picture_52716.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ magnet:?xt=urn:btih:D5896531C5723D7B244D108FF1FF3F1967D10B82
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52717.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52717.jpgsave_picture_52717.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ magnet:?xt=urn:btih:C841EEE479EB4EC606000C22149A577FF487697F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52718.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52718.jpgsave_picture_52718.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Ascold Flow | Мертвецкий круиз (Книга 2). Карибский
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52719.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52719.jpgsave_picture_52719.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ magnet:?xt=urn:btih:5C50A7F7FF4F59E5853F023D7922C9BCF8A60D05
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52720.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52720.jpgsave_picture_52720.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ magnet:?xt=urn:btih:D797E47680A86C1A3A7B09BC4C2AED5E30C8ECCB
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52721.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52721.jpgsave_picture_52721.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Windows and Office Genuine ISO Verifier 11.18.45.24 Portable [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52722.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52722.jpgsave_picture_52722.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ magnet:?xt=urn:btih:FDC1D74FB9C1910A3214FACCAFEACBE7C3EE4B56
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52723.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52723.jpgsave_picture_52723.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ KeePassXC 2.7.9 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52724.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52724.jpgsave_picture_52724.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ Display Driver Uninstaller 18.0.7.7 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52725.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52725.jpgsave_picture_52725.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ Tricky Doors / Хитрые двери (2024) [Ru] (1.0) Unofficial
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52726.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52726.jpgsave_picture_52726.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ magnet:?xt=urn:btih:74064FE7BC7281138BBB92814AF008328E48F2C9
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52727.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52727.jpgsave_picture_52727.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ magnet:?xt=urn:btih:FE5E03FE69F2F0B4F5F1ABB4C19224F545952931
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52728.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52728.jpgsave_picture_52728.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ CorelDRAW Technical Suite 2024 25.1.0.269 (x64) RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52729.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52729.jpgsave_picture_52729.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Henjin no Salad Bowl | A Salad Bowl of Eccentrics | Салатница эксц�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52730.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52730.jpgsave_picture_52730.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141198.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141198.jpgsave_picture_141198.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:B10C3A034D59394AF7B2F04515F4F82053B3EE8E
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141199.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141199.jpgsave_picture_141199.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ magnet:?xt=urn:btih:D6FB7EA2945C0A0AB71E9BD5270AD3F48F5696D5
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141200.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141200.jpgsave_picture_141200.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:C547456EB90165C5DA32F2A8722D80355B6999D3
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141201.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141201.jpgsave_picture_141201.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:E68E9FB6952030B88B26A2C12F57EAD9C59DD692
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141202.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141202.jpgsave_picture_141202.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Yello - You Gotta Say Yes To Another Excess (1983) [FLAC 2.0 24/96|traks(Vinil-R
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141203.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141203.jpgsave_picture_141203.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ magnet:?xt=urn:btih:D891DA1AE4586B582B8C619B9581245841CD0075
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141206.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141206.jpgsave_picture_141206.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ magnet:?xt=urn:btih:50D65499AD3F279F9474C84F8AFEFCE0025652C9
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141208.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141208.jpgsave_picture_141208.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ magnet:?xt=urn:btih:3DB3949E454A560F1A31186849321690F81FA219
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141209.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141209.jpgsave_picture_141209.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ magnet:?xt=urn:btih:BBBC233BED102486312FD4EA7F16C686CC90962B
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141210.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141210.jpgsave_picture_141210.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ magnet:?xt=urn:btih:9500ED773F17962D668C9A5A5B5632E755183CDA
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141211.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141211.jpgsave_picture_141211.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ magnet:?xt=urn:btih:078BC91D3830A5065EF65DDED3F75A5AE9303F1B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141212.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141212.jpgsave_picture_141212.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ VA - Apollo Four Forty - Best275z (1994 - 2012) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141213.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141213.jpgsave_picture_141213.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ magnet:?xt=urn:btih:42EC92BEB1E9FE9AA1F6E151A7FFF86E1843719A
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141214.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141214.jpgsave_picture_141214.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ VA - Antagon Cybernetic: 130 Hard Technostyle (2016) [MP3|320 Kbps] <Hardstyle, 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141215.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141215.jpgsave_picture_141215.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ magnet:?xt=urn:btih:F734E49D2FF7439E41B93386611FFA1A0E3A2A97
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141216.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141216.jpgsave_picture_141216.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ magnet:?xt=urn:btih:F734E49D2FF7439E41B93386611FFA1A0E3A2A97
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141217.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141217.jpgsave_picture_141217.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ magnet:?xt=urn:btih:3DB20B9CC6CE2FFC45CB2ACF52DEB76C77B1C023
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141219.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141219.jpgsave_picture_141219.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ Boruto: Naruto Next Generations / Боруто: Следующее поколе�
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141221.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141221.jpgsave_picture_141221.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ Photocasa, Андрей Васильев | Чистый цвет = Чистый 
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141222.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141222.jpgsave_picture_141222.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ VA - Always Alive Recordings - Best Of 2016 (Mixed By Daniel Kandi) (2016) [MP3|
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141225.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141225.jpgsave_picture_141225.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ magnet:?xt=urn:btih:1A7C1FBB4AE67FB452E2510A235CEDD175A9BAB7
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141226.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141226.jpgsave_picture_141226.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Windows 10 (v21h2) x64 HSL/PRO by KulHunter v2 (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141227.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141227.jpgsave_picture_141227.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ magnet:?xt=urn:btih:AFE38BDC4F05ED68074C2BA265082C7EBFA7C919
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141228.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141228.jpgsave_picture_141228.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ magnet:?xt=urn:btih:B7DAF0FD26955C7CF2195B35CFB4589C1698B759
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141229.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141229.jpgsave_picture_141229.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ VA - Disco Fever CD3 (1998) [FLAC|Lossless|tracks + .cue]<Pop, Disco>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141230.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141230.jpgsave_picture_141230.jpg" />
 </div>
 
 

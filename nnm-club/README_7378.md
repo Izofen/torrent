@@ -6,7 +6,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252319.jpgsave_picture_252319.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:DC065983E16DBDB2356E8F77F582248E483705B5
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252320.jpgsave_picture_252320.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:EC5E368CAF67B88581D55812D73FF4F516CEEAC4
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252321.jpgsave_picture_252321.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ MotoGP. Этап 21 из 22. Гран-при Португалии. Квалиф�
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252322.jpgsave_picture_252322.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:976378F86F7D499ECBA7CA43AAF7DFB373613C5E
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252323.jpgsave_picture_252323.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ MKVToolNix 96.0 Stable + Portable [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252324.jpgsave_picture_252324.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:4204DA009E928F236B1CB47162AA876FA64AF43E
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252325.jpgsave_picture_252325.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Armin van Buuren - Piano (2025) [FLAC|Lossless|WEB-DL|tracks] <Classical, Piano>
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252326.jpgsave_picture_252326.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ Perturbator - Age of Aquarius (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Darkwa
 >>Synthpop, New Wave, Retro (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252327.jpgsave_picture_252327.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ magnet:?xt=urn:btih:6BB937B87C9D3D494DB577E2075DC11997FA1347
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252328.jpgsave_picture_252328.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:E44E08462BCD3BD45F8A5BB6AA40C9FFF087DD57
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252329.jpgsave_picture_252329.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ Dopamine 3.0.0 [Multi/Ru]
 >>Аудио Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252330.jpgsave_picture_252330.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ magnet:?xt=urn:btih:0FBE25D20D0403D7F94ED44462516B14986667F9
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252331.jpgsave_picture_252331.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ magnet:?xt=urn:btih:DD722A59946FF4AD7BC1F1B908B7076078232E8B
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252332.jpgsave_picture_252332.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ magnet:?xt=urn:btih:DAA076AC5C37211E8423073B3AFE97E3E99BECA9
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252333.jpgsave_picture_252333.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Amanda Lear - LOOKING BACK (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop>
 >>Pop (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252334.jpgsave_picture_252334.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ magnet:?xt=urn:btih:3D142F4BE2FCEC8D132BF733356AB4A0F9224902
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252335.jpgsave_picture_252335.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ magnet:?xt=urn:btih:4CA859B32DA55DC1099597F225521620A6AD754C
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252336.jpgsave_picture_252336.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ magnet:?xt=urn:btih:BF0F5CA01A4AD0C163428CB1E5A26633BFB19E50
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252337.jpgsave_picture_252337.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ magnet:?xt=urn:btih:3DF42E19BD2E30E6C0A422BBA8EFAADFE888DE07
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252338.jpgsave_picture_252338.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Sculpt Art, Александр Спиридонов, Сергей Носолюк
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252339.jpgsave_picture_252339.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ magnet:?xt=urn:btih:98C17543D3D9310DA95EE01DC5363638CB614037
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252340.jpgsave_picture_252340.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ magnet:?xt=urn:btih:7F0C9709465FDB241A8A098176D53BC8956E96C6
 >>Элементы (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252341.jpgsave_picture_252341.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ magnet:?xt=urn:btih:B7A7957F2CDA7290370A8B1720DE9FAF0055AA0F
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252342.jpgsave_picture_252342.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ magnet:?xt=urn:btih:341CC11F17DBA71FEE17C281BADCEFCB44BB2A36
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252343.jpgsave_picture_252343.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ magnet:?xt=urn:btih:3C38D381858200C23FF5D9C092A88A3C38EA5104
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252344.jpgsave_picture_252344.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54603.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54603.jpgsave_picture_54603.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:DD47599353B0E352FEA14930C249F681093D4BA9
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54604.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54604.jpgsave_picture_54604.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:DD47599353B0E352FEA14930C249F681093D4BA9
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54605.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54605.jpgsave_picture_54605.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Jetbrains WebStorm 2024.1.3 Repack by Sitego [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54606.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54606.jpgsave_picture_54606.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Need for Speed: Жажда скорости / Need for Speed (2014) WEB-DLRip [H
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54607.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54607.jpgsave_picture_54607.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:4506D2F2DAB6CCBAD9EA05D6C79AE67F9C964595
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54608.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54608.jpgsave_picture_54608.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:8AA50C80B110C248D5A13A5C04F5C154B002BBAF
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54609.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54609.jpgsave_picture_54609.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:393AB4E594B5E61B5ACA98F4FAC4142105551E0E
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54610.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54610.jpgsave_picture_54610.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:36229DC7F7EC127DFE0195C7D25585DEBB9D5663
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54611.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54611.jpgsave_picture_54611.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Windows 10 (v22h2) x64 PRO by KulHunter v18 (esd) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54612.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54612.jpgsave_picture_54612.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:E8C8CA9FD2C8941FEEC749BB9B823B2F34BA80BE
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54613.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54613.jpgsave_picture_54613.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Far Cry Primal (2016) [Ru/Multi] (1.3.3/dlc) Repack FitGirl [Apex Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54614.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54614.jpgsave_picture_54614.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:5148FF0778F9FBA422445670B26041CBADB5CEBD
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54615.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54615.jpgsave_picture_54615.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:DB52C97922F45B9DF44B59782B294BDA8C3F31D0
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54616.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54616.jpgsave_picture_54616.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ magnet:?xt=urn:btih:1D1CEAC5EF5F59D7D3E5229D4358DE181B8CE161
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54617.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54617.jpgsave_picture_54617.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ RoboCop: Rogue City (2023) [Ru/Multi] (1.6.0.0/dlc) Scene Tenoke [Alex Murphy Ed
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54618.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54618.jpgsave_picture_54618.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ magnet:?xt=urn:btih:05E8DEFFD987BEB93766406AC9B4C3473FFE3D7D
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54619.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54619.jpgsave_picture_54619.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Gary Clark Jr. - 9 Albums (2005 - 2024) 10 CD[FLAC|Lossless|tracks + .cue|image 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54620.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54620.jpgsave_picture_54620.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ magnet:?xt=urn:btih:5ABC51A8D36DDFF94A3A13A27CA7F3FE077AAB73
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54621.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54621.jpgsave_picture_54621.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Omamori Himari / Защитница Химари [2010, TV, 12 серий] BDrip
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54622.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54622.jpgsave_picture_54622.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ Phantom Fury (2024) [Ru/Multi] (17384) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54623.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54623.jpgsave_picture_54623.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ magnet:?xt=urn:btih:9472EF6A8D2FEB620B227C0BD4BB45D327B2CD8D
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54624.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54624.jpgsave_picture_54624.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ magnet:?xt=urn:btih:7652B5A2FD54D63A631FF83792823B9063E190CC
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54625.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54625.jpgsave_picture_54625.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Vendir: Plague of Lies (2024) [Ru/Multi] (1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54626.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54626.jpgsave_picture_54626.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Taboo Trial (2023) [Multi] (5.0/dlc) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54627.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54627.jpgsave_picture_54627.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ magnet:?xt=urn:btih:A634E5C0770DF75C8F8C64801273A1CF541FAB15
 >>Менты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54628.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54628.jpgsave_picture_54628.jpg" />
 </div>
 
 

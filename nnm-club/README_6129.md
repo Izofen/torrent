@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192728.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192728.jpgsave_picture_192728.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:BE1E22D2567E5DD73184A15C477623D603135914
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192729.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192729.jpgsave_picture_192729.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ ChernobyLite (2021) [Ru/Multi] (48723/dlc) Repack Other s [Enhanced Edition]
 >>11
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192730.jpgsave_picture_192730.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Bitter Breath - Oh How Carefully We Collapse (2023) [FLAC|Lossless|WEB-DL|tracks
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192731.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192731.jpgsave_picture_192731.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:F6878C95773F88F3DE74D58A134AF8A93D669EC7
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192732.jpgsave_picture_192732.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:59C8FF6BAB8D67F50FEDFB17C41F5632D9893759
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192733.jpgsave_picture_192733.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ Text Editor Pro 27.5.1 + Portable + Bonus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192734.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192734.jpgsave_picture_192734.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ Jag Panzer - Thane to the Throne (2000) [FLAC|Lossless|image + .cue] <Heavy, Pow
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192735.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192735.jpgsave_picture_192735.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ BELOFF 2022.10 (Авторская раздача)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192736.jpgsave_picture_192736.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ YouTube Vanced (Extended) 17.33.42 Mod by Number one' [Ru/Multi]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192737.jpgsave_picture_192737.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ Firewind - Still Raging (2023) 2CD 20th Anniversary Show [FLAC|Lossless|WEB-DL|t
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192738.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192738.jpgsave_picture_192738.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ CrystalDiskMark 8.0.4c + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192739.jpgsave_picture_192739.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ magnet:?xt=urn:btih:9CC80C79B0894855B8EBB285FEA61A5169BD390E
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192740.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192740.jpgsave_picture_192740.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ Fernando Express - Der schonste Tanz mit dir (2023) [FLAC|Lossless|WEB-DL|tracks
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192741.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192741.jpgsave_picture_192741.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ magnet:?xt=urn:btih:DFF3BCAC314BEF03FF688DCDB8FDCD60F0E2DDD9
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192742.jpgsave_picture_192742.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ magnet:?xt=urn:btih:216AE22222508F9A6DE06F0763616563464E4A72
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192743.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192743.jpgsave_picture_192743.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ magnet:?xt=urn:btih:5D12E3D70F569F58D88C091B661400FFD9C9D25E
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192744.jpgsave_picture_192744.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ Lingua Mortis Orchestra - LMO (2013) [FLAC|24/192|image + .cue|Vinyl-Rip] <Symph
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192745.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192745.jpgsave_picture_192745.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ magnet:?xt=urn:btih:12C3A8194433F5153129A7C321C087E5142BB8CF
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192746.jpgsave_picture_192746.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ Mr. Myst - 7 Deadly Sins (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Glam Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192747.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192747.jpgsave_picture_192747.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ magnet:?xt=urn:btih:2EC3A67BF2E97D239A0F10D72DFC7E7B88E26E7D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192748.jpgsave_picture_192748.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ magnet:?xt=urn:btih:F47277CD6CA8A194B615964C40E808ECCC65E2F9
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192749.jpgsave_picture_192749.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ magnet:?xt=urn:btih:A610F40EFCEADB06B90118626C6769206DCE98AA
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192750.jpgsave_picture_192750.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ magnet:?xt=urn:btih:B951906374F86837E81444BA3BEBE178E57EAE4D
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192751.jpgsave_picture_192751.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ magnet:?xt=urn:btih:C9DCBDF014D0B8BA08AE4C8E931F5556F5176A11
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192752.jpgsave_picture_192752.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ magnet:?xt=urn:btih:2E64019BFD1881A39311BD3B0971DC0634D25E80
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192753.jpgsave_picture_192753.jpg" />
 </div>
 
 

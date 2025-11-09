@@ -6,7 +6,7 @@ Varg - Ewige Wacht (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pagan Metal, Viki
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160217.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160217.jpgsave_picture_160217.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:0A63579A7DB7B58E85D099C042B21FCD64B0B8DC
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160218.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160218.jpgsave_picture_160218.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ magnet:?xt=urn:btih:824EC19D9A96B28DE73DE0B6F596DDA071A6C3C9
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160219.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160219.jpgsave_picture_160219.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Aiseesoft Audio Converter for Mac 9.2.18 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160220.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160220.jpgsave_picture_160220.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ Bob Brookmeyer - Holiday: Bob Brookmeyer Plays Piano (2001) Challenge Records [F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160221.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160221.jpgsave_picture_160221.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Tipard Mac Video Converter Ultimate for Mac 10.2.22 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160222.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160222.jpgsave_picture_160222.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ Flip Phillips - Swinging With Flip (1952) 2007, Membran Music [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160223.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160223.jpgsave_picture_160223.jpg" />
 </div>
 
 
@@ -187,7 +187,7 @@ Default Folder X 5.7.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160224.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160224.jpgsave_picture_160224.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ Adastra - Death Or Domination (2008) [APE|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160225.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160225.jpgsave_picture_160225.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ magnet:?xt=urn:btih:9C67C4A8D6F64A772098802AD76DAF8F7B9872DD
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160226.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160226.jpgsave_picture_160226.jpg" />
 </div>
 
 
@@ -265,7 +265,7 @@ Aiseesoft AnyCoord for Mac 1.0.16 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160227.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160227.jpgsave_picture_160227.jpg" />
 </div>
 
 
@@ -289,7 +289,7 @@ Apeaksoft iOS Unlocker 1.0.50 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160228.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160228.jpgsave_picture_160228.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ GraphicConverter 11 v.11.7.1 beta [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160229.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160229.jpgsave_picture_160229.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ PDF Reader Pro 3.0.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160230.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160230.jpgsave_picture_160230.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ PotPlayer 231109 (1.7.22036) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160231.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160231.jpgsave_picture_160231.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ Aiseesoft Mac Data Recovery for Mac  1.6.18 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160232.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160232.jpgsave_picture_160232.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ AlDente Pro fo Mac 1.23 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160233.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160233.jpgsave_picture_160233.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ War Curse - Confession (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Metal, Heav
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160234.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160234.jpgsave_picture_160234.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ MediaHuman YouTube Downloader 3.9.9.87 (0811) RePack (& Portable) by TryRooM [Mu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160235.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160235.jpgsave_picture_160235.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ Chromium 119.0.6045.124 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160236.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160236.jpgsave_picture_160236.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ magnet:?xt=urn:btih:AA5969FF546A360FA273A192FFF521F5F7A2F54F
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160237.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160237.jpgsave_picture_160237.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ magnet:?xt=urn:btih:A724A1089B0DF3F4957E0531824706606F0E6265
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160238.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160238.jpgsave_picture_160238.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ PotPlayer 231109 (1.7.22036) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160239.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160239.jpgsave_picture_160239.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Project Office X Pro 1.1.11 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160240.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160240.jpgsave_picture_160240.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ magnet:?xt=urn:btih:612196BA21741886D6C0538058123AA548E96367
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160241.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160241.jpgsave_picture_160241.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Battle Born - Blood, Fire, Magic And Steel (2023) [MP3|320 Kbps] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160242.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160242.jpgsave_picture_160242.jpg" />
 </div>
 
 

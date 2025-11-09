@@ -6,7 +6,7 @@ VA - That Ole Devil Called Love (2016) 2 x CD, Compilation [FLAC|Lossless|tracks
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65854.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65854.jpgsave_picture_65854.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:7CFD4473443CB9AF0D93BBF754024E22242E73DB
 >>Старые Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65855.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65855.jpgsave_picture_65855.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Obiymy Doschu - Vidrada (2025) [MP3|320 Kbps] <Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65856.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65856.jpgsave_picture_65856.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:5CB1E3B1CF00E075F48020EAB56C133357693CB0
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65857.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65857.jpgsave_picture_65857.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:86A7F96F00EC6C469B10EA7A9A21E5C7FCF83D7E
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65858.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65858.jpgsave_picture_65858.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Notification Dots v1.2.65 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65859.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65859.jpgsave_picture_65859.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:53E0D49BE1EA03CF0CF72493DA8E489FCB10A33C
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65860.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65860.jpgsave_picture_65860.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:5DD794EE3CA6E78343DCDDCC35D198C4DFC0DBA7
 >>Растровый клипарт (иллюстрации)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65861.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65861.jpgsave_picture_65861.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:011116A38F0A79A23A2358D0564271422C9B7808
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65862.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65862.jpgsave_picture_65862.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ VA - Sounds Like Summer, Vol. 4 (2025) [MP3|320 Kbps] <House, Deep House, Dance,
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65863.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65863.jpgsave_picture_65863.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ magnet:?xt=urn:btih:A67A02DFD94F36A2691AC0F30EDEF4A5B21D10FE
 >>Растровый клипарт (иллюстрации)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65864.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65864.jpgsave_picture_65864.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ magnet:?xt=urn:btih:CC480B10BCD1F5E674F0E7B8D6060898C9F70B2C
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65865.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65865.jpgsave_picture_65865.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ MotoGP. Этап 09 из 22. Гран-при Италии. Гонка (22.06.202
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65866.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65866.jpgsave_picture_65866.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ magnet:?xt=urn:btih:D65B06D8B16E190E7624EAAF32A49AFFC504C078
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65867.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65867.jpgsave_picture_65867.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ magnet:?xt=urn:btih:71AD82647D2D43D9DC317655D61E98BA81BF5553
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65868.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65868.jpgsave_picture_65868.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ magnet:?xt=urn:btih:A0C20EA14368F544BAD82BC028E49AD6710A1F65
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65869.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65869.jpgsave_picture_65869.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ magnet:?xt=urn:btih:617AEC98F7683F200CB1E40C5A7612CA83C7C835
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65870.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65870.jpgsave_picture_65870.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ VA - Самые новые песни о любви 9 (2025) [FLAC|Lossless|WEB-
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65871.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65871.jpgsave_picture_65871.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ VA - Billboard Top Hits: 1987 (1994) [FLAC|Lossless|tracks + .cue] <Soft Rock, S
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65872.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65872.jpgsave_picture_65872.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ magnet:?xt=urn:btih:2D460B737B6C42F93C8D5BD67D75934D9084FD2E
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65873.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65873.jpgsave_picture_65873.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ magnet:?xt=urn:btih:5D99A22CC3F7BC615BCD5ABAC2E921BA87D56679
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65874.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65874.jpgsave_picture_65874.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ magnet:?xt=urn:btih:24B7F65D7F8D2B71FBC4A58ACB39D0501C771B11
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65875.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65875.jpgsave_picture_65875.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Photo Supreme 2025.2.0.7838 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65876.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65876.jpgsave_picture_65876.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ magnet:?xt=urn:btih:862608C11A53282F5ACE96A136B9775A6E404CEB
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65877.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65877.jpgsave_picture_65877.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ magnet:?xt=urn:btih:05AD9E66A85D16FD822305A032F83F4BEB0B7EB7
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65878.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65878.jpgsave_picture_65878.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ magnet:?xt=urn:btih:4FF762D7B8CC23112689163C30580AF8CAEFCEF5
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65879.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65879.jpgsave_picture_65879.jpg" />
 </div>
 
 

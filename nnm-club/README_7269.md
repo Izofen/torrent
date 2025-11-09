@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_248661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_248661.jpgsave_picture_248661.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ VA - Песни Великой Победы (10CD) (2012) [MP3|320 кб/с]<Ре
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248662.jpgsave_picture_248662.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ Aone Ultra Video Joiner/Splitter 6.3.0506 [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_248666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_248666.jpgsave_picture_248666.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ StarCraft 2: Wings of Liberty Platinum Edition + LAN Multiplayer [Ru] (Lossless 
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248668.jpgsave_picture_248668.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:EB8A3B745DBC3B4506E02708DA7C7B4E94C766AA
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248670.jpgsave_picture_248670.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:0B2683C6BDC3519F0E24D3EDECCCCBC055EF5EE5
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248671.jpgsave_picture_248671.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:B2DBC6834C7279597A3AF890F42E3A8857841B98
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248672.jpgsave_picture_248672.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ magnet:?xt=urn:btih:8CA41591B1AFE5A73FA89CEDB88648B66D659F4A
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248674.jpgsave_picture_248674.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ magnet:?xt=urn:btih:1B96EBAB79368A0DC4E3132A4DC57817CCD21275
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248675.jpgsave_picture_248675.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ Street Fighter x Tekken [Ru/En] (RePack) 2012 | R.G. Origami
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248676.jpgsave_picture_248676.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ magnet:?xt=urn:btih:29B1435AA311C6AAA0774EBB713D113BCF5DF026
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248677.jpgsave_picture_248677.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ magnet:?xt=urn:btih:53CCCD03311CFE2435570F9D8C25317122A66912
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248678.jpgsave_picture_248678.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ magnet:?xt=urn:btih:18526652E9A807885826B47F88B3083D3124C03F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248679.jpgsave_picture_248679.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ magnet:?xt=urn:btih:BCAA9DF31A47BA706B6FCB9885E53285A50A8F14
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_248680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_248680.jpgsave_picture_248680.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ magnet:?xt=urn:btih:BCAA9DF31A47BA706B6FCB9885E53285A50A8F14
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_248685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_248685.jpgsave_picture_248685.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ magnet:?xt=urn:btih:BCAA9DF31A47BA706B6FCB9885E53285A50A8F14
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248689.jpgsave_picture_248689.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ magnet:?xt=urn:btih:03C8A2F05394AFC74A84644AFAA8A3FEF5A254BF
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248693.jpgsave_picture_248693.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ magnet:?xt=urn:btih:175C06F8FEC088BE034D6F4A01F3C83C32A2C2DB
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248694.jpgsave_picture_248694.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ magnet:?xt=urn:btih:F2A253B99F51912032361E530FB7E4824F62B39A
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248696.jpgsave_picture_248696.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ magnet:?xt=urn:btih:C98B514A994974CDD2C29ABCF135DE20CB94536A
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248698.jpgsave_picture_248698.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ Al Cohn - Standards Of Excellence & Nonpareil (1998) [APE|Lossless]<Bop, Mainstr
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_248700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_248700.jpgsave_picture_248700.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Al Cohn - Standards Of Excellence & Nonpareil (1998) [APE|Lossless]<Bop, Mainstr
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248702.jpgsave_picture_248702.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ magnet:?xt=urn:btih:48B98BDB82D6FE386BCCA8FFBD8D870EEFCC38DA
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248708.jpgsave_picture_248708.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Google признали виновным в нарушении авторски�
 >>Новости
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_248710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_248710.jpgsave_picture_248710.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ VA - Клубные Новинки Vol.74 from AGR (2012) [MP3|320 кб/с]<Club
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248711.jpgsave_picture_248711.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ magnet:?xt=urn:btih:495E045C8CE4253C8BE7132FF757B665CCBC343F
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248712.jpgsave_picture_248712.jpg" />
 </div>
 
 

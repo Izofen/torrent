@@ -6,7 +6,7 @@ Batman: Arkham Knight (2015) [Ru/Multi] (1.999/dlc) License GOG [Premium Edition
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48743.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48743.jpgsave_picture_48743.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:1FDF8CEA79465DB51B27CF9F181FC3D43792598E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48744.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48744.jpgsave_picture_48744.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:D6EC284D9F55F59F12D4EE4BF5F30892CF59D966
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48745.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48745.jpgsave_picture_48745.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:9CC1B19F2B7515B2A27AF35FEB614BBD193EF01D
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48746.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48746.jpgsave_picture_48746.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ XXXIII Летние Олимпийские Игры 2024. Церемония о�
 >>Летние Олимпийские игры и Паралимпийские игры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48747.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48747.jpgsave_picture_48747.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:CBC574EE9A8D9D3BCA654645B9DD99FC4CFC7D82
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48748.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48748.jpgsave_picture_48748.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:D726097B37E78E2FE3711C944A07C16B34E2B09A
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48749.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48749.jpgsave_picture_48749.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:1CD4C991489B2932EC4F40EA127192A9F001E024
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48750.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48750.jpgsave_picture_48750.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:18C87449E7DA21C97F6E5D802D3933A1498E4E5B
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48751.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48751.jpgsave_picture_48751.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:23DD64C45358CC3ED09A63EEB469C5D4CE7C9D5E
 >>Ноты и обучение музыке
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48752.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48752.jpgsave_picture_48752.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Sugar Bytes - WOW2 2.2.8 Standalone, VST, VST 3, AAX (x64) RePack by TCD [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48753.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48753.jpgsave_picture_48753.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ magnet:?xt=urn:btih:65E71BF42F78896555F7E7D312AD2CB0320A0BC1
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48754.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48754.jpgsave_picture_48754.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ magnet:?xt=urn:btih:2D5BDDEEF628F9809EE345B34C2AE01DE014679B
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48755.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48755.jpgsave_picture_48755.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Topaz Photo AI 3.1.2 (x64) Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48756.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48756.jpgsave_picture_48756.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Topaz Photo AI 3.1.2 (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48757.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48757.jpgsave_picture_48757.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ magnet:?xt=urn:btih:DB70A262EC6B58E9A6A27A169BE67BF96DED0CBF
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48758.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48758.jpgsave_picture_48758.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ Empire Of The Sun - Ask That God (2024) [FLAC|Lossless|WEB-DL|tracks] <Electroni
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48759.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48759.jpgsave_picture_48759.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ VA - compilation  part 104 Eurodance (2024) [MP3|320 Kbps] <Eurodance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48760.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48760.jpgsave_picture_48760.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ VA - Movement Vol. 2 (Live from Cape Town - Mixed By James Grant) - 2024 [FLAC|L
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48761.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48761.jpgsave_picture_48761.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ VA - compilation part 103 Electronic (2024) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48762.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48762.jpgsave_picture_48762.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ magnet:?xt=urn:btih:E64F116B3D4238D2F625A3071A981E52C9A901E9
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48763.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48763.jpgsave_picture_48763.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ magnet:?xt=urn:btih:33D872BD67C1906B17336A754361CF6325059D84
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48764.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48764.jpgsave_picture_48764.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ magnet:?xt=urn:btih:33D872BD67C1906B17336A754361CF6325059D84
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48765.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48765.jpgsave_picture_48765.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ magnet:?xt=urn:btih:5ADA44A1E0371AD3A97F14B9E04AB009F01AF378
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48766.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48766.jpgsave_picture_48766.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ Re-Main | Ре-Мейн [2021, TV, 12] WEBRip 1080p raw+rus
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48767.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48767.jpgsave_picture_48767.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ Inazuma Eleven: GO – Chrono Stone | Одиннадцать Молний: То�
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48768.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48768.jpgsave_picture_48768.jpg" />
 </div>
 
 

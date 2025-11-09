@@ -6,7 +6,7 @@
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192571.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192571.jpgsave_picture_192571.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:816A025BE075F9A44671AD2BDA030AAF3A35F822
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192572.jpgsave_picture_192572.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:A545F923ECF3BEFB1E3F64121B63DFF7DE684958
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192573.jpgsave_picture_192573.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:CCA83D49DC2330D14D6073BB75A9B0A9A7B4A6BD
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192574.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192574.jpgsave_picture_192574.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:841F79B4862A9C554D96B476BCD9BB3DDA13479C
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192575.jpgsave_picture_192575.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:CBD9CE25F3D1D2D9BBBCC3F29BA1998675471C8D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192576.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192576.jpgsave_picture_192576.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:713544926D118832087B874FF490740590A5D7CE
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192577.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192577.jpgsave_picture_192577.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ Gary Moore - The Best of the Blues (2002) 2CD [FLAC|Lossless|image + .cue] <Blue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192578.jpgsave_picture_192578.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:4EE702EE24C68035E0820A280CB0F98A04D2C6A4
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192579.jpgsave_picture_192579.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:C30D3F89795B3E126C8212FAF1A04CB62BC7B045
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192580.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192580.jpgsave_picture_192580.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ VA - Oriental Deep 3 (2023) [MP3|320 Kbps] <Deep House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192581.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192581.jpgsave_picture_192581.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ magnet:?xt=urn:btih:BE6CD3B44A4F994BA6366000781A58EEAEB07787
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192582.jpgsave_picture_192582.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ magnet:?xt=urn:btih:1CEB8FAE0B0AEB63D85B51D8D0693B1AC4D84EBF
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192583.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192583.jpgsave_picture_192583.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ magnet:?xt=urn:btih:BA868E48EB1DB19B607D766398A001C731FED36F
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192584.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192584.jpgsave_picture_192584.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ magnet:?xt=urn:btih:3B0D410A7A5CC3034D72281D103AB0D8FDAA0E35
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192585.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192585.jpgsave_picture_192585.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Asia – Axis XXX Live San Francisco (2015)  DVD5 (Recorded Live at the Regency 
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192586.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192586.jpgsave_picture_192586.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ magnet:?xt=urn:btih:BA0DD003D230BD470273967FE3C3226202D280EE
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192587.jpgsave_picture_192587.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Photo Supreme 7.4.1.4590 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192588.jpgsave_picture_192588.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ magnet:?xt=urn:btih:2607AB1628D05206BF1CE0349628DB120AFEB47A
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192589.jpgsave_picture_192589.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ magnet:?xt=urn:btih:07F5DB268F62756536F056369445444306411F1F
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192590.jpgsave_picture_192590.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ DP Animation Maker 3.5.12 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192591.jpgsave_picture_192591.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ Filab, Діма Малєєв, Кріс Косик | Engineering Management (2023
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192592.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192592.jpgsave_picture_192592.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ magnet:?xt=urn:btih:28E6E6C14752940AF55F17B09F995F7D0809D5BB
 >>Экстрим
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192593.jpgsave_picture_192593.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:F5440248C346DA188855174253A493F341130C63
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192594.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192594.jpgsave_picture_192594.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ magnet:?xt=urn:btih:FADBEAAD2DD4D4D926298976AE37AB8A4DC52A78
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192595.jpgsave_picture_192595.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ magnet:?xt=urn:btih:7931F1C2CEAFBC2BB63A667C925F57D5BDF77A85
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192596.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192596.jpgsave_picture_192596.jpg" />
 </div>
 
 

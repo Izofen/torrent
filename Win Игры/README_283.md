@@ -6,7 +6,7 @@ Space Engine (2017) [Ru/En] (0.9.8.0e/dlc) License
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236338.jpgsave_picture_236338.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Magic City Detective 2: Secret Desire / Волшебный город 2: Тай�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237064.jpgsave_picture_237064.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Eldest Souls (2021) [Ru/Multi] (1.1.23f2-master) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237068.jpgsave_picture_237068.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ South of the Circle (2022) [Ru/Multi] (23) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237353.jpgsave_picture_237353.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Glover (2022) [En] (1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237638.jpgsave_picture_237638.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Mists of Aiden (2020) [Ru/Multi] (1.0 Build 8798754) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237664.jpgsave_picture_237664.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Warpips (2022) [Ru/Multi] (2.0.5) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237839.jpgsave_picture_237839.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Blast Brigade vs. The Evil Legion of Dr. Cread (2022) [Ru/Multi] (1.0.23) Licens
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237858.jpgsave_picture_237858.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:85A23ABE3E77C1195388788A2D0CF2CB82641F2C
 >>Patch/Tweak/Trainer/Other для Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238881.jpgsave_picture_238881.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Tacticool (2019) [Ru] (28.07.22) License (обновляемая)
 >>Online Action (MMO)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242152.jpgsave_picture_242152.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Kamikaze Veggies (2022) [Ru/Multi] (1.0) License DARKSiDERS
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243332.jpgsave_picture_243332.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Bridge To Another World 10: Cursed Clouds (2022) [En] (1.0) Unofficial [Collecto
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243527.jpgsave_picture_243527.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ The Swindle (2015) [En] (1.061) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243869.jpgsave_picture_243869.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Onde (2022) [En] (1.2) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244231.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244231.jpgsave_picture_244231.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ The Chronicle (2022) [En] (1.0) License TiNYiSO
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244343.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244343.jpgsave_picture_244343.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Dare to Stay (2022) [En] (1.0) License TiNYiSO
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244443.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244443.jpgsave_picture_244443.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Noctem (2022) [Multi] (1.0) License TiNYiSO
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244581.jpgsave_picture_244581.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Catie in MeowmeowLand (2022) [Ru/Multi] (0.1.0.2_65f17ebd) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244676.jpgsave_picture_244676.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ In The Space - Escape Room (2022) [Ru/Multi] (1.0) License DARKSiDERS
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244694.jpgsave_picture_244694.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Glitchhikers: The Spaces Between (2022) [Multi] (1.0.3) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244766.jpgsave_picture_244766.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Maze of Realities 2: Reflection of Light (2022) [En] (1.0) Unofficial [Collector
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244934.jpgsave_picture_244934.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Expedition Zero (2022) [Ru/Multi] (1.01.1) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245153.jpgsave_picture_245153.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ A Musical Story (2022) [Ru/Multi] (1.0.5b) License GOG [Digital Deluxe Version]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245498.jpgsave_picture_245498.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Hidden Through Time (2020) [Ru/Multi] (1.0.9b/dlc) License GOG
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246003.jpgsave_picture_246003.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Hollowbody (2024) [Ru/Multi] (2.1) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246192.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246192.jpgsave_picture_246192.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ CUFFBUST (2025) [Ru/Multi] (1.0/dlc) Repack FitGirl [Deluxe Edition]
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246221.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246221.jpgsave_picture_246221.jpg" />
 </div>
 
 

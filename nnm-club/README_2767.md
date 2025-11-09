@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76602.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76602.jpgsave_picture_76602.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76605.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76605.jpgsave_picture_76605.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:C61A4C459182FD7E16F7CF938A18353E066CD8AF
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76608.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76608.jpgsave_picture_76608.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:4B5C61A3CB6B07DAF72A9E0F466AF01BE1AB35A8
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76618.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76618.jpgsave_picture_76618.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:D8BF4908D22DF0A9611DB1A5C2CD536F13634A4B
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76625.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76625.jpgsave_picture_76625.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:D8BF4908D22DF0A9611DB1A5C2CD536F13634A4B
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76627.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76627.jpgsave_picture_76627.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:872B8E70E918E19FD8116C31CA0B96AF2F5CE228
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76628.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76628.jpgsave_picture_76628.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:872B8E70E918E19FD8116C31CA0B96AF2F5CE228
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76637.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76637.jpgsave_picture_76637.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:3154DC6E83EBAD099E8F78F42CC0FAB228EF8522
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76638.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76638.jpgsave_picture_76638.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ Deep Purple - Deep Purple (1969) Remastered /2000, EMI Records/ [FLAC|Lossless]<
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76642.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76642.jpgsave_picture_76642.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ Scientific Linux 6.2 (DVD&NetInstall) [i386 + x86_64] (2xCD + 2xDVD)
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76655.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76655.jpgsave_picture_76655.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ Volbeat - Live From Beyond Hell - About Heaven (2011) [FLAC|Lossless]<Heavy / Gr
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76659.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76659.jpgsave_picture_76659.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Volbeat - Live From Beyond Hell - About Heaven (2011) [FLAC|Lossless]<Heavy / Gr
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76663.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76663.jpgsave_picture_76663.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Kubuntu 10.04.4 LTS [i386 + x86_64] (2xCD)
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76669.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76669.jpgsave_picture_76669.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ magnet:?xt=urn:btih:6712D98B0782A760AC12BDDCB926D15A49C540DD
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76670.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76670.jpgsave_picture_76670.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ magnet:?xt=urn:btih:957AAC141EF05BA6001B090687568BCD32132784
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76672.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76672.jpgsave_picture_76672.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ magnet:?xt=urn:btih:957AAC141EF05BA6001B090687568BCD32132784
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76686.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76686.jpgsave_picture_76686.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ magnet:?xt=urn:btih:AB3DF7667E23B6472C93D7062E3990C9EFF9FB91
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76690.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76690.jpgsave_picture_76690.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ magnet:?xt=urn:btih:9165A9F53AF6FEC3D4DC10CFBF18FB1713945B5F
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76696.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76696.jpgsave_picture_76696.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ magnet:?xt=urn:btih:580FCC33068B8FB2C04ADF51B256290C648F9DBC
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76705.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76705.jpgsave_picture_76705.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ magnet:?xt=urn:btih:F0C973F0881222963F5A7689EADD8A826DB88A5E
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76708.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76708.jpgsave_picture_76708.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ magnet:?xt=urn:btih:581FE231A2D243C4A81AF316D40FAC35D8D6F0CF
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76709.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76709.jpgsave_picture_76709.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ magnet:?xt=urn:btih:AB8EDD15BABB19FA64316B9D531ECE7ECEA2902B
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76712.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76712.jpgsave_picture_76712.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ magnet:?xt=urn:btih:48136865F39309076603733173382E8F616D3244
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76719.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76719.jpgsave_picture_76719.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ magnet:?xt=urn:btih:172E5D81BAF0F8391E3789E78AA6AB32663063BF
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76733.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76733.jpgsave_picture_76733.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ magnet:?xt=urn:btih:172E5D81BAF0F8391E3789E78AA6AB32663063BF
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76735.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76735.jpgsave_picture_76735.jpg" />
 </div>
 
 

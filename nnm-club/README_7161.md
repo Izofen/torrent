@@ -6,7 +6,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245136.jpgsave_picture_245136.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Batch Rename & Convert Photos for Mac 1.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245137.jpgsave_picture_245137.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:162400C50462E60A3A827174D78EE74D097BAF58
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245138.jpgsave_picture_245138.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:3F6268FEBF75E1CB3BB9F6C5125D5F4172D1175D
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245139.jpgsave_picture_245139.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:F3B098514BDDE89C458E28F2EAF08618AB1B4CB1
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245140.jpgsave_picture_245140.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ Gensou Sangokushi: Tengen Reishinki | Fantasia Sango: Realm of Legends | Фан�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245141.jpgsave_picture_245141.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ VA - Redux At Amsterdam (2016) [MP3|320 Kbps] <Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245142.jpgsave_picture_245142.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:37498A09CB1B5EFD482B0D27B3899D20FF6F889F
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245143.jpgsave_picture_245143.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ SQLPro for SQLite 2022.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245144.jpgsave_picture_245144.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ Opera GX 97.0.4719.61 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245145.jpgsave_picture_245145.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ Athentech Perfectly Clear WorkBench for Mac 4 v.4.3.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245146.jpgsave_picture_245146.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ magnet:?xt=urn:btih:D049E3688580AACCAB72A5B3E41EA63E5582CF69
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245147.jpgsave_picture_245147.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ Wondershare Filmora for Mac  12.1.3  [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245148.jpgsave_picture_245148.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:3C426F3E0B9F0697380BBCF4062C745F6B0B26F9
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245149.jpgsave_picture_245149.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Powerhouse - Powerhouse (1986) [FLAC|Lossless|image + .cue] <Hard Rock, Classic 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245150.jpgsave_picture_245150.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ magnet:?xt=urn:btih:F3AAB5B8F6F44F0998E901EB1943684D9A932B8B
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245151.jpgsave_picture_245151.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Sumatra PDF 3.5.15457 (x64) Pre-release + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245152.jpgsave_picture_245152.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ Expedition Zero (2022) [Ru/Multi] (1.01.1) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245153.jpgsave_picture_245153.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ magnet:?xt=urn:btih:C4DFF655397B9CC64648C43E4AE3907B1A58A041
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245154.jpgsave_picture_245154.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ TransData: Internet Data Speed 2.9 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245155.jpgsave_picture_245155.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ MR PEEL - Mixtape #3 Hip Hop & BeBop (2018) [FLAC|Lossless|Web-DL|tracks] <Hip H
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245156.jpgsave_picture_245156.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Capture One 23 Pro 16.1.2.20 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245157.jpgsave_picture_245157.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Invisible 2.5.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245158.jpgsave_picture_245158.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ MouseBoost 3.0.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245159.jpgsave_picture_245159.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ magnet:?xt=urn:btih:471008885EF7F881E80BABD2D45090AF9E91E997
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245160.jpgsave_picture_245160.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ magnet:?xt=urn:btih:4AA392B3530CAB7DC726D6C1509A72A3A83C815F
 >>Флот
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245161.jpgsave_picture_245161.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229125.jpgsave_picture_229125.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:890976D19DBC21EACD071459624AB4CCEFE89AA4
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230421.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230421.jpgsave_picture_230421.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:A6AA5FCA9CC9B7E98825DEBD9A7F8FF70839ED43
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_230461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230461.jpgsave_picture_230461.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:D57848432F79E772B16E3771711202A1C820D16F
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230726.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230726.jpgsave_picture_230726.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:928831F03D48443935D98497B64938F908C1E860
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231848.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231848.jpgsave_picture_231848.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:E69591A07BE5714DE485668997EFABC36EE9BF58
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232102.jpgsave_picture_232102.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:9CCB0A4A2A1F6269BDB0AD19EDE48A54DFEED23F
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232681.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232681.jpgsave_picture_232681.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:D462472F49D0FBFE6D458DE1B51DDD4F0B4A13EB
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234024.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234024.jpgsave_picture_234024.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:93C49E2964ED7D81E5AB6CE1975C51E693D64D09
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234341.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234341.jpgsave_picture_234341.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:FE3B94FC774969E7E5340BA353E9BEB6500B7744
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235053.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235053.jpgsave_picture_235053.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:363F6B242116C55C3629365E5939AAA36F07CB1E
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235245.jpgsave_picture_235245.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:C909525A1D3BD44D675C70ACA12284EED5D1E8A1
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235944.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235944.jpgsave_picture_235944.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ magnet:?xt=urn:btih:B9B97B1BB11511DBB7085ECDFB5112B6A694FE3A
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_236077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_236077.jpgsave_picture_236077.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ magnet:?xt=urn:btih:BCCBF29519D44312E81325E228A6B719E4FFF5A4
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236573.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236573.jpgsave_picture_236573.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ magnet:?xt=urn:btih:EE8A6DA64C30256D3BDCBAA48257A7DFAE7177BC
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236842.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236842.jpgsave_picture_236842.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ magnet:?xt=urn:btih:0E552B5F587F2F01CC130C9AC4A4D2DA78DCF9CC
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237469.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237469.jpgsave_picture_237469.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ magnet:?xt=urn:btih:ADEF5444BCA472CE31A504F220E1D80FEC47885D
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237542.jpgsave_picture_237542.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ magnet:?xt=urn:btih:41419F0ECA870F08232D56A63894816A4FEE1B7D
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237755.jpgsave_picture_237755.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ magnet:?xt=urn:btih:9D081E1B6D8B18375C9C57F2418B4BDD203EAD97
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241322.jpgsave_picture_241322.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ magnet:?xt=urn:btih:357DDCEC964288227EC90E6489C9A5C3ED1F3841
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241505.jpgsave_picture_241505.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ magnet:?xt=urn:btih:C6B200B8DC5DB7C6617B7172D4041AC02DF987E3
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245323.jpgsave_picture_245323.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ magnet:?xt=urn:btih:C1938FD51E60D8DE392AFDD0AB71A40E502BBB7D
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245505.jpgsave_picture_245505.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ magnet:?xt=urn:btih:7C2F2E5DBE632F89928EF6386D8B8A16610AA037
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245713.jpgsave_picture_245713.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:149476C2169C898AAF10879D91507A789DF37098
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246096.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246096.jpgsave_picture_246096.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ magnet:?xt=urn:btih:A1AE4D7767C029917677E8870F1FB4AF55974C80
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246143.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246143.jpgsave_picture_246143.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ magnet:?xt=urn:btih:508D2182DC7429211438B8EA80986CEEE9739F8B
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246176.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246176.jpgsave_picture_246176.jpg" />
 </div>
 
 

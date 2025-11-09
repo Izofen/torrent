@@ -6,7 +6,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237639.jpgsave_picture_237639.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:59801305949805909A2EEB22346158B75D424875
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237640.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237640.jpgsave_picture_237640.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Coronary - Sinbad (2021) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237641.jpgsave_picture_237641.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:C650B7A1F154C566CB745BD42BE09BF98156D366
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237642.jpgsave_picture_237642.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Eyes of Eva - Temptation (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237643.jpgsave_picture_237643.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Kaz Hawkins - Until We Meet Again (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues, B
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237644.jpgsave_picture_237644.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ Michael Pavlovich | Substance Painter Quick Start (2015) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237645.jpgsave_picture_237645.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ magnet:?xt=urn:btih:38A1A7C49983506916C42838163586A9E11F613F
 >>История
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237646.jpgsave_picture_237646.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ magnet:?xt=urn:btih:9390FF5F257D2815F712F20B7103DF3FF5DFE5E6
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237647.jpgsave_picture_237647.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ KCNcrew Pack 06-15-23 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237648.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237648.jpgsave_picture_237648.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ Hard Buds - Fire (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237649.jpgsave_picture_237649.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ Black & Damned - Heavenly Creatures (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237650.jpgsave_picture_237650.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ SMASH! Юные супергерои / S.M.A.S.H! (2022) WEBRip [H.264/1080p] (�
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237651.jpgsave_picture_237651.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ magnet:?xt=urn:btih:3DA5384C55098B461B3AA6BE18F8E686638E916D
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237652.jpgsave_picture_237652.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ magnet:?xt=urn:btih:002588589BBBCA7E1A0B3C466F44661D18E0C5DB
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237653.jpgsave_picture_237653.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ magnet:?xt=urn:btih:BD6A3E7DF83BCB8A17F4470214D7E3B2A101201E
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237654.jpgsave_picture_237654.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ magnet:?xt=urn:btih:4705C80F0A63344757AE8E1F1B00125538A8BFBD
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237655.jpgsave_picture_237655.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Elvenpath - Faith Through The Fire (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237656.jpgsave_picture_237656.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ magnet:?xt=urn:btih:C904C3949334D6E5D49ED1EFD940400EB53A9AC0
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237657.jpgsave_picture_237657.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ magnet:?xt=urn:btih:5A8650628DE7003C54985BFD5FA931D45B7DBBBD
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237658.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237658.jpgsave_picture_237658.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Total - 4 Albums + 7 Singles (2001-2021) [FLAC, WV|Lossless|image + .cue, tracks
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237659.jpgsave_picture_237659.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ VA - Lounge Remixes (2021) [AAC|~308 Kbps] <Lounge, Chill Out, Deep House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237660.jpgsave_picture_237660.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ MotorTrinken - 2 Albums (2017-2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237661.jpgsave_picture_237661.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ magnet:?xt=urn:btih:903E7E40775125BA08A082D8B995FEE0B3956EF2
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237662.jpgsave_picture_237662.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Majuu Sensen | The Demonic Beast Front | Битва с демонами [1990, O
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237663.jpgsave_picture_237663.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Mists of Aiden (2020) [Ru/Multi] (1.0 Build 8798754) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237664.jpgsave_picture_237664.jpg" />
 </div>
 
 

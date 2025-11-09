@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179603.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179603.jpgsave_picture_179603.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:D6BC9F6DB39098E56D3E0E40086D7EB0BF1AFE40
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179606.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179606.jpgsave_picture_179606.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ X-plore File Manager 4.30.06 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179608.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179608.jpgsave_picture_179608.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ Auslogics BoostSpeed 13.0.0.2 RePack (& Portable) by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179609.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179609.jpgsave_picture_179609.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ Iron Savior - Firestar (2023) [MP3|320 Kbps] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179611.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179611.jpgsave_picture_179611.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ Unheilig - Lichterland - Best Of (2021) 2CD Deluxe Edition [FLAC|Lossless|image 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179613.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179613.jpgsave_picture_179613.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ Dimi Kaye - The Neon Shredder (2023) [FLAC|Lossless|WEB-DL|tracks] <Retrowave, S
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179615.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179615.jpgsave_picture_179615.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ magnet:?xt=urn:btih:88EBBEFC323BAAA3D38533605FCCA093635E623B
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179618.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179618.jpgsave_picture_179618.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Above & Beyond - Group Therapy 500 Live From Los Angeles - Deep Set (2022) DJ Mi
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179620.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179620.jpgsave_picture_179620.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ Makeup and Vanity Set - FM (2023) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Dark
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179621.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179621.jpgsave_picture_179621.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ magnet:?xt=urn:btih:7ACAF391042A71B52FFE96D0C06FD7887C09087C
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179624.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179624.jpgsave_picture_179624.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ Crossroads 2: Escaping the Dark / Перекресток 2: Побег из ть
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179626.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179626.jpgsave_picture_179626.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ magnet:?xt=urn:btih:5CB2F548CA319A9862A523592AC68508738D2C77
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179629.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179629.jpgsave_picture_179629.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ QuickMemoryTestOK 4.21 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179630.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179630.jpgsave_picture_179630.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ Evile - The Unknown (2023) Japanese Edition [FLAC|Lossless|image + .cue] <Thrash
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179633.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179633.jpgsave_picture_179633.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ magnet:?xt=urn:btih:33A8A09C71C0CB871368383DE0C6CC2AA31EEC15
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179634.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179634.jpgsave_picture_179634.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ magnet:?xt=urn:btih:E225BF1A9FD807E9A20B46E04AB0D8B9497C16FF
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179636.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179636.jpgsave_picture_179636.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ VA - Dance Hits (2022) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179638.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179638.jpgsave_picture_179638.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ USB Device Tree Viewer 3.8.2.0 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179639.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179639.jpgsave_picture_179639.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Saypink! - Когда погаснет свет (2023) [FLAC|Lossless|WEB-DL|tra
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_179642.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_179642.jpgsave_picture_179642.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ The Veer Union - Covers Collection Vol.1-2 (2020-2023) [FLAC|Lossless|WEB-DL|tra
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179644.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179644.jpgsave_picture_179644.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ magnet:?xt=urn:btih:A57571A35E6E56CD74E1B86182AAE1CB9A1989B9
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179646.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179646.jpgsave_picture_179646.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ magnet:?xt=urn:btih:1EC9B5474540CCFF1E5205E01D013CE244D07493
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179647.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179647.jpgsave_picture_179647.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Monkey's Audio 10.24 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179650.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179650.jpgsave_picture_179650.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ AccuBattery Pro 2.0.7 Mod by Dymonyxx [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179652.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179652.jpgsave_picture_179652.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ magnet:?xt=urn:btih:1102EFD0726B35A30E5A0B0A6B7FD31C90D9A2DD
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179653.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179653.jpgsave_picture_179653.jpg" />
 </div>
 
 

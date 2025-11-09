@@ -6,7 +6,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17139.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17139.jpgsave_picture_17139.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:22488D2C6C5867297F2650AB1475F2E03F1404CB
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17140.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17140.jpgsave_picture_17140.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:5960D992563453DDDFDA53BE9957D621C5D69C93
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17141.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17141.jpgsave_picture_17141.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:16219B6019DD2F29E650588A546863E49112249D
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17142.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17142.jpgsave_picture_17142.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:12E0B62FDD09F78FDDE68F27E61FBB80D6EE8D54
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17143.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17143.jpgsave_picture_17143.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:4D437C84DFE524DCFDEC998796B54673CB27A72D
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17144.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17144.jpgsave_picture_17144.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:3E3A364A4F0D4159861364376178880C8E328E70
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17145.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17145.jpgsave_picture_17145.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:61313B56189E7E2E2BD3607273372AFA9551E906
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17146.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17146.jpgsave_picture_17146.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:BFE16607CF88F536A21F25F7440179F8B2F0EE2A
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17147.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17147.jpgsave_picture_17147.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:C0FAB325E16A7FC5923EB1AC214930D99D964779
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17148.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17148.jpgsave_picture_17148.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ magnet:?xt=urn:btih:96DE77F195CF7801E163BF94CB5FFA3B03A97776
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17149.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17149.jpgsave_picture_17149.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ magnet:?xt=urn:btih:3BE7F4EAAC9418B8D0DB52CF996FAD64A6DD7620
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17150.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17150.jpgsave_picture_17150.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ magnet:?xt=urn:btih:A874B617B33A405EC1575B75C6DC8A22FD159BE4
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17151.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17151.jpgsave_picture_17151.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Duck Detective: The Ghost of Glamping (2025) [Multi] (2.2.4) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17152.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17152.jpgsave_picture_17152.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ magnet:?xt=urn:btih:3778A8967279DBC12FEC9494DBBCA3B8D03F4EC7
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17153.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17153.jpgsave_picture_17153.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ magnet:?xt=urn:btih:1D94483A82E8CAB7D0BCFCBAD9C003EB6BB353CC
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17154.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17154.jpgsave_picture_17154.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ magnet:?xt=urn:btih:DD2C614AB6536A4AA8F699C244B851E41E196CD1
 >>Теория Большого Взрыва / The Big Bang Theory; Детство Шелдона / Young Sheldon
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17155.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17155.jpgsave_picture_17155.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ Bloodshed (2024) [Ru/Multi] (1.0.4) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17156.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17156.jpgsave_picture_17156.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Display Driver Uninstaller 18.1.1.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17157.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17157.jpgsave_picture_17157.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ Vanced Tube v5.3.81.304 Mod by TRUMods [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17158.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17158.jpgsave_picture_17158.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ magnet:?xt=urn:btih:DF8F5BF4C09574CBC959DA1F278FFA67EB0D9FEA
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17159.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17159.jpgsave_picture_17159.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ GPU Shark II 2.8.1.0+ Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17160.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17160.jpgsave_picture_17160.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ magnet:?xt=urn:btih:D5CCBF63EFFCC435AA993325DA27BB8311BC5B43
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17161.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17161.jpgsave_picture_17161.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ magnet:?xt=urn:btih:CE6ECEB542A795404289E230A00B6714B304BF26
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17162.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17162.jpgsave_picture_17162.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ magnet:?xt=urn:btih:A83BFFF679A3D510B7C595930471E4BF6D9B5B80
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17163.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17163.jpgsave_picture_17163.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ magnet:?xt=urn:btih:78FDCC2C0A0CB4D440503A1035E4E189F3555A57
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17164.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17164.jpgsave_picture_17164.jpg" />
 </div>
 
 

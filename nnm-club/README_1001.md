@@ -6,7 +6,7 @@
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26376.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26376.jpgsave_picture_26376.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:40132A7A48A8A5FBDE94510E41DCD3D9EBD58290
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26377.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26377.jpgsave_picture_26377.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ The Little Brave (2025) [Ru/En] (1.0.0) Repack seleZen
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26378.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26378.jpgsave_picture_26378.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ VA - Pop Gold 100 Greatest Hits Ever (2025) [MP3|320 Kbps] <Pop, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26379.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26379.jpgsave_picture_26379.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:C4BEA7E47AEFA3D187E1677AB4A612676A294A22
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26380.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26380.jpgsave_picture_26380.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ magnet:?xt=urn:btih:A1BC1AC1D15223E19569D8CDF429A17E064E03FA
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26381.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26381.jpgsave_picture_26381.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ PotPlayer 250226 (1.7.22492) Stable RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26382.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26382.jpgsave_picture_26382.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:AEFC4511C2F2535D179DB7FD5A45CD3BB1283600
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26383.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26383.jpgsave_picture_26383.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:D98047DF1F512B0A16C251C73270228EB636D0DA
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26384.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26384.jpgsave_picture_26384.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ VA - Motivation Mix 8 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26385.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26385.jpgsave_picture_26385.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ Vampire Survivors (2021) [Ru/Multi] (1.12.108/dlc) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26386.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26386.jpgsave_picture_26386.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ magnet:?xt=urn:btih:CDCABBB8D2D496A3CB858ACB604463538711C7D7
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26387.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26387.jpgsave_picture_26387.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:B2DA05E716F837917CA7197B95D126C5D1C4AD2A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26388.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26388.jpgsave_picture_26388.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ magnet:?xt=urn:btih:B2DA05E716F837917CA7197B95D126C5D1C4AD2A
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26389.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26389.jpgsave_picture_26389.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ magnet:?xt=urn:btih:2F3C1946A5E4E708F72EF38B954FFEFAD678CEF4
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26390.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26390.jpgsave_picture_26390.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ magnet:?xt=urn:btih:2F3C1946A5E4E708F72EF38B954FFEFAD678CEF4
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26391.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26391.jpgsave_picture_26391.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ NVIDIA GeForce Desktop Game Ready 572.47 WHQL + DCH [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26392.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26392.jpgsave_picture_26392.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ The Little Brave (2025) [Ru/En] (1.0.0) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26393.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26393.jpgsave_picture_26393.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ Adguard 7.20.0 (7.20.4960.0) RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26394.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26394.jpgsave_picture_26394.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ magnet:?xt=urn:btih:6C6948B8E9B552884A9C2F8906263CE0C8F54EA8
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26395.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26395.jpgsave_picture_26395.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ magnet:?xt=urn:btih:55F20286054B76DBDB9A6844617142DF108C4F3F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26396.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26396.jpgsave_picture_26396.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ ELSA 6.0 AUDI - 03.2017 6.0 [Multi/Ru]
 >>Автомобильные программы и навигаторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26397.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26397.jpgsave_picture_26397.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ magnet:?xt=urn:btih:6563A6A76BEF1AA89AE23D037799F02D74E36CBE
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26398.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26398.jpgsave_picture_26398.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Windows Repair Toolbox 3.0.4.5 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26399.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26399.jpgsave_picture_26399.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ magnet:?xt=urn:btih:AF92CCD7BFD5612B4C64BB8DEFCCD3A5B45D816A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26400.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26400.jpgsave_picture_26400.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ ELSA 6.0 VW - 01.2017 6.0 [Multi/Ru]
 >>Автомобильные программы и навигаторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26401.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26401.jpgsave_picture_26401.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239952.jpgsave_picture_239952.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:F2AF83792511355BC4A0A6A4A0699C9788132C01
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239953.jpgsave_picture_239953.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:8589FF8BEF7A405D3AD5746FB556C133456EEDF8
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239954.jpgsave_picture_239954.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ Google Chrome 112.0.5615.121 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239955.jpgsave_picture_239955.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ Rexoria - Imperial Dawn (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Heavy, Pow
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239956.jpgsave_picture_239956.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ Topaz Gigapixel AI 6.0.0 RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239957.jpgsave_picture_239957.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ Torch - Reignited (2020) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239958.jpgsave_picture_239958.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ Perc3ption - Reason and Faith (2013) [FLAC|Lossless|WEB-DL|tracks] <Progressive,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239959.jpgsave_picture_239959.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ AirFoil+Airfoil Satellite 5.10.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239960.jpgsave_picture_239960.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ Sandboxie plus 1.9.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239961.jpgsave_picture_239961.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ Markster 2.12.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239962.jpgsave_picture_239962.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ Thomas Anders - Whispers (1991) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Synth-p
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239963.jpgsave_picture_239963.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ FinePrint Software (FinePrint 11.22 / pdfFactory Pro 8.22) RePack by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239964.jpgsave_picture_239964.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ magnet:?xt=urn:btih:E6BD9F81DD7BDDD0C48B39DE221EC810AA31F4C3
 >>Экстрим
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239965.jpgsave_picture_239965.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ Handy Note 1.1.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239966.jpgsave_picture_239966.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Space - Deeper Zone (1980) 1996, PolyGram [FLAC|Lossless|image + .cue] <Electro,
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239967.jpgsave_picture_239967.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ magnet:?xt=urn:btih:6DB6B80C0520F9E27AD53A95CEB0258A18E4205F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239968.jpgsave_picture_239968.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ SuperDuper! 3.5 beta1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239969.jpgsave_picture_239969.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ magnet:?xt=urn:btih:A51D92FB5EDB8D9A4EFEE7E80D73BA85BE63AEE9
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239970.jpgsave_picture_239970.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Tanlines - The Big Mess (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternative,
 >>Alternative, Punk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239971.jpgsave_picture_239971.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ Amadine 1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239972.jpgsave_picture_239972.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ VA - The Best of Classical Music - The Greatest Piano Sonatas (2023) [FLAC|Lossl
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239973.jpgsave_picture_239973.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ NG: Затерянные сокровища Египта / Lost Treasures of Egy
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239974.jpgsave_picture_239974.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Immortal - War Against All (2023) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239975.jpgsave_picture_239975.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ OCCT 12.0.0.b4 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239976.jpgsave_picture_239976.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ MetaImage  2.0.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239977.jpgsave_picture_239977.jpg" />
 </div>
 
 

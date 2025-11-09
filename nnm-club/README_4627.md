@@ -6,7 +6,7 @@ Cachorro Grande - Todos Os Tempos (2007) [FLAC|Lossless|tracks + .cue] <Alternat
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144832.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144832.jpgsave_picture_144832.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:1221B4779CACE273632E38AFF9CB8F8C3BEA247E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144833.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144833.jpgsave_picture_144833.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:39ACA88D2875F06027242277AF74B7DEA04EB543
 >>Сериалы DC Comics
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144834.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144834.jpgsave_picture_144834.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:AAFBC4BEB0F37E52A2187C89B6AA950E4E9C9570
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144836.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144836.jpgsave_picture_144836.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:DB2A9D26EC30D3042F8920DFEC3732CAADC2BA2A
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144837.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144837.jpgsave_picture_144837.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ Lionel Hampton And His All-Stars - Complete Jazztone Recordings (1956) 2CD, 2007
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144838.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144838.jpgsave_picture_144838.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ magnet:?xt=urn:btih:ACAD522BC0F4B50F0773F060F692D889F8F39EC8
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144839.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144839.jpgsave_picture_144839.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ MInstAll v.25.12.2020 By Andreyonohov & Leha342 (ISO) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144840.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144840.jpgsave_picture_144840.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ The Yashin - Miles Away But Getting Closer (2008) EP [FLAC|Lossless|tracks + .cu
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144842.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144842.jpgsave_picture_144842.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ magnet:?xt=urn:btih:30EC346085EE0050812DA59492DD08224CE1BB67
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144843.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144843.jpgsave_picture_144843.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ magnet:?xt=urn:btih:65AC7AEFC36F9AA5D4C1871532E67D22EE0B0E65
 >>DailyTechInfo
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144844.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144844.jpgsave_picture_144844.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ Xiaoice - это система искусственного интеллект�
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144845.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144845.jpgsave_picture_144845.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ magnet:?xt=urn:btih:0BD6D891B94928CA04326B755F61014B9A102CFF
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144846.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144846.jpgsave_picture_144846.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:CE4ACA5BC08F7638F35D46A28AD0C6CB254A9067
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144848.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144848.jpgsave_picture_144848.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ magnet:?xt=urn:btih:DD63C052DFA2A717C45AA221743312B25065646D
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144849.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144849.jpgsave_picture_144849.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ R-Studio Network 9.3 Build 191259 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144850.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144850.jpgsave_picture_144850.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ magnet:?xt=urn:btih:1C0E8E4EF636891EBA96B5E9F7AA48324C89F6C1
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144851.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144851.jpgsave_picture_144851.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ magnet:?xt=urn:btih:03723EDBE0689D6340F2AD4D874DE27BDB45B4E1
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144852.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144852.jpgsave_picture_144852.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ magnet:?xt=urn:btih:FD2E9FB7BAD8650E4F40CF4E14583413D505B5B6
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144853.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144853.jpgsave_picture_144853.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ ThunderSoft GIF Converter 2.7.0.0 [En]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144854.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144854.jpgsave_picture_144854.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ magnet:?xt=urn:btih:73EE62B250B49FEC2A36FC4313D9ED33C9121558
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144855.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144855.jpgsave_picture_144855.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ magnet:?xt=urn:btih:BE36EB552FAC83E15307D7896783CA6748FE9620
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144856.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144856.jpgsave_picture_144856.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ magnet:?xt=urn:btih:B226D36E1F1D1BBCDF60E7EA7B36A0A5B8F0C509
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144857.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144857.jpgsave_picture_144857.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ PotPlayer 231113 (1.7.22038) Stable + Portable (x86/x64) by SamLab [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144858.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144858.jpgsave_picture_144858.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ magnet:?xt=urn:btih:C4E757FCA3E46998FCF4E1989D6B72FB22FF8F85
 >>Сериалы Marvel Comics
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144859.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144859.jpgsave_picture_144859.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ magnet:?xt=urn:btih:6BE46872DD05BFB406D00EFD190C490EB50E8BB3
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144862.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144862.jpgsave_picture_144862.jpg" />
 </div>
 
 

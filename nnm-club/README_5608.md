@@ -6,7 +6,7 @@
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172800.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172800.jpgsave_picture_172800.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Resource Hacker 5.2.3.379 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172801.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172801.jpgsave_picture_172801.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Room Arranger 9.8.0.640 (x64) RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172802.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172802.jpgsave_picture_172802.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ VA - Club Beats (2023) [MP3|320 Kbps] <Club, Dance, Other>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172803.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172803.jpgsave_picture_172803.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ JetBrains Clion 2023.2.2 for Mac Intel/ARM [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172804.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172804.jpgsave_picture_172804.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:7177B8D01887BDCF3517E5264490EF0563F8DE27
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172805.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172805.jpgsave_picture_172805.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ OneCommander Pro 3.56.0.0 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172806.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172806.jpgsave_picture_172806.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:D3FA78C5051D6843431E6B48A29A1DF144E06195
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172807.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172807.jpgsave_picture_172807.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ The Orb & David Gilmour - Metallic Spheres In Colour (2023) [MP3|320 Kbps] <Ambi
 >>Ambient, Experimental, Modern Classical
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172808.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172808.jpgsave_picture_172808.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ XnViewMP 1.6.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172809.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172809.jpgsave_picture_172809.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ Maaike van Putten, Sean Kennedy | Java Memory Management (2022) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172810.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172810.jpgsave_picture_172810.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ IObit Uninstaller Pro 13.1.0.3 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172811.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172811.jpgsave_picture_172811.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:6D09075B137BC835B7110B27ECDDA42D54D23DCC
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172812.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172812.jpgsave_picture_172812.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Optimizer 16.0 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172813.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172813.jpgsave_picture_172813.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ VueScan Pro 9.8.18 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172814.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172814.jpgsave_picture_172814.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Adobe Media Encoder 24.0.0.54 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172815.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172815.jpgsave_picture_172815.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ magnet:?xt=urn:btih:593629FAC7D2553BC60340BDEC04957EDC736E8B
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172816.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172816.jpgsave_picture_172816.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ magnet:?xt=urn:btih:E1111F487AB2D2A8004D66AF4E26A1723C1B856A
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172817.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172817.jpgsave_picture_172817.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ magnet:?xt=urn:btih:48B5B825250354D919AC06DD6231F09F9321A04A
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172818.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172818.jpgsave_picture_172818.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ magnet:?xt=urn:btih:16157B6F1CC00D302CABD4F944ECA68618418B5A
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172819.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172819.jpgsave_picture_172819.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ magnet:?xt=urn:btih:BDED45DFE938E5CFB6E5AD70C66CEFF3F2FFA913
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172820.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172820.jpgsave_picture_172820.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ PDF Reader Pro Edition 2.9.8.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172821.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172821.jpgsave_picture_172821.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ magnet:?xt=urn:btih:CB077F176B4535F3493F0A67B3811ABA6923C734
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172822.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172822.jpgsave_picture_172822.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Text Editor Pro 27.8.0 + Portable + Bonus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172823.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172823.jpgsave_picture_172823.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ magnet:?xt=urn:btih:2A6DFB0D20D5C4B6FBE922F8B9EF219225AAD716
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172824.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172824.jpgsave_picture_172824.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ n-Track Studio Suite 10.0.0.8038 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172825.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172825.jpgsave_picture_172825.jpg" />
 </div>
 
 

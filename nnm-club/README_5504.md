@@ -6,7 +6,7 @@ PopChar X 9.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170062.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170062.jpgsave_picture_170062.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:DEAB4EA995E32A21E11BC6D67950BE412846E68F
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170063.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170063.jpgsave_picture_170063.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:DD6B9FA7A94DEC712FB41A3D59A49332C3B8285A
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170064.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170064.jpgsave_picture_170064.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ SoundPad 3.3.2.0 RePack by elchupacabra [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170065.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170065.jpgsave_picture_170065.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:CCAA69B76ECA9A994DEE62EF18E038480037B59A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170067.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170067.jpgsave_picture_170067.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ WinNTSetup 5.1.2 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170068.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170068.jpgsave_picture_170068.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:EB342BEF0372151F762EDF9645A4ED5B1470F5F0
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170069.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170069.jpgsave_picture_170069.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Money Pro - Personal Finance 2.6.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170070.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170070.jpgsave_picture_170070.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ MacPilot 12.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170071.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170071.jpgsave_picture_170071.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ MAGIX SOUND FORGE Audio Cleaning Lab 4 26.0.0.23 (x64) [Multi]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170072.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170072.jpgsave_picture_170072.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:399D8319225A91957AAE9C8F31B5378A03C06EA7
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170073.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170073.jpgsave_picture_170073.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:7CA5ABA689C0529EAF783E2E7E42A4AEFD0CF805
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170074.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170074.jpgsave_picture_170074.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:025E4F5242BB9F5927223CEB05FE7104361B21DF
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170075.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170075.jpgsave_picture_170075.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ CaptureGRID 4 v4.19 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170076.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170076.jpgsave_picture_170076.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Roxette - The RoxBox! (A Collection Of Roxette's Greatest Songs) (2015) 4CD Box 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170077.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170077.jpgsave_picture_170077.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ JUG Ru Group | C++ Russia 2021. Конференция для C++ разрабо
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170078.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170078.jpgsave_picture_170078.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Stand Up (2023.10.27) SATRip (сезон 11, выпуск 6)
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170079.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170079.jpgsave_picture_170079.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ magnet:?xt=urn:btih:93158D10AE679E90899A352DD82401522E46402E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170080.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170080.jpgsave_picture_170080.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ Adobe Acrobat Pro DC 2019.021.20058 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170081.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170081.jpgsave_picture_170081.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Rainmeter 4.5.6 Build 3573 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170082.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170082.jpgsave_picture_170082.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ In Nightmare (2022) [Ru/Multi] (9999022) License FLT
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170083.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170083.jpgsave_picture_170083.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Screens 4 v4.8.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170084.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170084.jpgsave_picture_170084.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ magnet:?xt=urn:btih:60BAD6F9DA4E36010DAFFB7A0EBE51D95B36BD6F
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170085.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170085.jpgsave_picture_170085.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Librarian Pro 6 v6.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170086.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170086.jpgsave_picture_170086.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ magnet:?xt=urn:btih:12F3428B95787089AA1AAFEFD7054DDC9D3F35E0
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170087.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170087.jpgsave_picture_170087.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Crash Time 4: The Syndicate (2010) [PS3] [EUR] 3.73 [Cobra ODE / E3 ODE PRO ISO]
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170088.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170088.jpgsave_picture_170088.jpg" />
 </div>
 
 

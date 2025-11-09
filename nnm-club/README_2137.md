@@ -6,7 +6,7 @@ VA - The Essentials: Classical Crossover (2024) [FLAC|Lossless|WEB-DL|tracks] <C
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55929.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55929.jpgsave_picture_55929.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Glary Utilities Pro 6.10.0.14 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55930.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55930.jpgsave_picture_55930.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Mark Knopfler - Duets & Collaborations (2024) [MP3|320 Kbps] <Rock, Country, Blu
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55931.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55931.jpgsave_picture_55931.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ TikTok 34.8.3 Mod by Dmitry Nechiporenko + Plugin 1.37 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55932.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55932.jpgsave_picture_55932.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:3C75D43CE01C015CEA0DC3F57D2C7555C85B25C1
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55933.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55933.jpgsave_picture_55933.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ OpenNumismat 1.9.8 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55934.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55934.jpgsave_picture_55934.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ Audio Reign - The Perfect Sea (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, P
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55935.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55935.jpgsave_picture_55935.jpg" />
 </div>
 
 
@@ -187,7 +187,7 @@ magnet:?xt=urn:btih:4E6164DE4D5331866E5E6410DD45D31C0EF6E5CA
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55936.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55936.jpgsave_picture_55936.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ Pulsar Modular Complete Effects Bundle 2024.5.20 VST3, AAX (x64) RePack by TCD [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55937.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55937.jpgsave_picture_55937.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ VA - Fulltime Production Disco Classic, Vol. 1 (2013) [FLAC|Lossless|WEB-DL|trac
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55938.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55938.jpgsave_picture_55938.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ magnet:?xt=urn:btih:96A083306DF2ADFBE3C0742E4B3C27991605FAC8
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55939.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55939.jpgsave_picture_55939.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ MediaHuman YouTube Downloader 3.9.9.92 (0518) RePack (& Portable) by Dodakaedr [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55940.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55940.jpgsave_picture_55940.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ magnet:?xt=urn:btih:71081E05E16D3C82B1C129BB5F536EE9C35F8B52
 >>Звездные войны / Star Wars (сериалы по франшизе)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55941.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55941.jpgsave_picture_55941.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ Machete 5.1 Build 44 Repack (& Portable) by elchupacabra [Ru/En]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55942.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55942.jpgsave_picture_55942.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ magnet:?xt=urn:btih:EF2FBF590F9FE8B1C1302A02483207FCF35720F0
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55943.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55943.jpgsave_picture_55943.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Driver Easy Pro 6.0.0.25691 Portable by FC Portables [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55944.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55944.jpgsave_picture_55944.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ magnet:?xt=urn:btih:8FB1570E59F5B2ED70547CB87638441BCD720D80
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55945.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55945.jpgsave_picture_55945.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ magnet:?xt=urn:btih:E89209C81F6D91F1E6E26CB7FC663AEC5957DF5C
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55946.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55946.jpgsave_picture_55946.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ RS File Manager / RS Файловый менеджер 2.1.2.2 Mod by Mixroot [R
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55947.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55947.jpgsave_picture_55947.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ twenty one pilots - Clancy (2024) [MP3|320 Kbps] <Indie Pop, Pop Rock, Electroni
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55948.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55948.jpgsave_picture_55948.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Icecream Screen Recorder Pro 7.41 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55949.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55949.jpgsave_picture_55949.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ MediaHuman Video Converter 2.0.1 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55950.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55950.jpgsave_picture_55950.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ magnet:?xt=urn:btih:5A06F26001329E4B2CA61C76C509BF15FA49DF83
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55951.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55951.jpgsave_picture_55951.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ magnet:?xt=urn:btih:E30171DD9C008F260DD778A5FFAF5A8DB033668F
 >>Звездные войны / Star Wars (сериалы по франшизе)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55952.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55952.jpgsave_picture_55952.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ It Happened Here 3: A Storm is Brewing / Это случилось здесь 3:
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55953.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55953.jpgsave_picture_55953.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ magnet:?xt=urn:btih:F56425F5748D193DBD0CC5E57DF475813304AE91
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55954.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55954.jpgsave_picture_55954.jpg" />
 </div>
 
 

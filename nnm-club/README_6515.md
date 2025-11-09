@@ -6,7 +6,7 @@ Imagine 1.1.5 + Portable + Plugins  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206974.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206974.jpgsave_picture_206974.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:F68A32B205FA230E788F9DDD16035CBA4690BFDF
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206975.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206975.jpgsave_picture_206975.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Prabhu Eshwarla | Rust Servers, Services, and Apps (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206976.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206976.jpgsave_picture_206976.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:4ACA58333C62681C24D4B96AE4C05F64092DEADC
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206981.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206981.jpgsave_picture_206981.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:DD5F8E0B3451ECE58A7252162C030ED1286A36E3
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206982.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206982.jpgsave_picture_206982.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:B07074F4527497184F9F06C93EF8AA24A5BDADCB
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206984.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206984.jpgsave_picture_206984.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Skindred - Smile (2023) [FLAC|Lossless|tracks + .cue] <Hip Hop, Rock, Reggae>
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206987.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206987.jpgsave_picture_206987.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:27DA187EEC24CD1567BBF742F9F4135D7FAA1B9C
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206988.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206988.jpgsave_picture_206988.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:7E04B2C31013C0651812B67F09A5662F7712DCD9
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206991.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206991.jpgsave_picture_206991.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:D0E3A5A067A70C9C3EBEBE1CE24A8052CBB61476
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206996.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206996.jpgsave_picture_206996.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Words - Учи иностранные языки v5.6 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206998.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206998.jpgsave_picture_206998.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:26CF50D477A67FC328A2A1C73313E6F4A6ECE0D4
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207000.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207000.jpgsave_picture_207000.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Joel Holmes | Shipping Go (2023) [PDF] [EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207002.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207002.jpgsave_picture_207002.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ magnet:?xt=urn:btih:4B1059DA0778C05E92E139AB06B4B9C508D90107
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207004.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207004.jpgsave_picture_207004.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ magnet:?xt=urn:btih:5B3613892BB299A5D13DCE1014A00302D1E51465
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207005.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207005.jpgsave_picture_207005.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ magnet:?xt=urn:btih:908C2E368F7D231AA223F5600487731AD97E2774
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207009.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207009.jpgsave_picture_207009.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ magnet:?xt=urn:btih:C6711B31C37F0F93F73076F5F697DBDA65D1B8C0
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207012.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207012.jpgsave_picture_207012.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ magnet:?xt=urn:btih:146B03F9DA5B2372E01D2C755B39DEC94C8E2B8C
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207015.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207015.jpgsave_picture_207015.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:722D0BF983E6BD192AE02B0F1A2C2B3D11F680A0
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207017.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207017.jpgsave_picture_207017.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ magnet:?xt=urn:btih:15F0C87EC123B462A7C05B59E86CD2AFA75289AB
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207019.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207019.jpgsave_picture_207019.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:E0BA16094AA2576CCFEE4CB58C581D4065EC75EA
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207020.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207020.jpgsave_picture_207020.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Display Driver Uninstaller 18.0.6.5 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207023.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207023.jpgsave_picture_207023.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ magnet:?xt=urn:btih:A4DC5092C31026545E75EE0BB6C8E121808594D7
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207025.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207025.jpgsave_picture_207025.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Multi Commander Full Edition 13.1 Build 2955 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207028.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207028.jpgsave_picture_207028.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ uTorrent Pack 1.2.3.73 Repack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207031.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207031.jpgsave_picture_207031.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Ms. Holmes 4: The Case of the Dancing Men / Мисс Холмс 4: Дело о �
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207033.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207033.jpgsave_picture_207033.jpg" />
 </div>
 
 

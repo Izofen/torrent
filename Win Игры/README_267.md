@@ -6,7 +6,7 @@ Turbo Overkill (2022) [Ru/Multi] (1.0) Repack DjDI
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194029.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194029.jpgsave_picture_194029.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ M.E.R.C. Genesis (2023) [En] (1.0.0.00) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194032.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194032.jpgsave_picture_194032.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ The Master's Pupil (2023) [En] (1.1.4) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194059.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194059.jpgsave_picture_194059.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Zombie Shooting Star: ARCADE (2022) [Multi] (1.1) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194087.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194087.jpgsave_picture_194087.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Verne: The Shape of Fantasy (2023) [Multi] (1.4) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194171.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194171.jpgsave_picture_194171.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Turbo Overkill (2022) [Ru/Multi] (1.0) Scene Rune
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194193.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194193.jpgsave_picture_194193.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Moving Out 2 (2023) [Ru/Multi] (1.2.274/dlc) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194207.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194207.jpgsave_picture_194207.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Neon Noodles - Cyberpunk Kitchen Automation (2023) [Ru/Multi] (0.9.71) License G
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194234.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194234.jpgsave_picture_194234.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:51FEC2CDCF0487D1ADD05B4EC08493155D5DB618
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194244.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194244.jpgsave_picture_194244.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Sugar Sweet Temptation (2023) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194246.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194246.jpgsave_picture_194246.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Nightmare Manor (2023) [Ru/Multi] (Build 11921472) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194249.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194249.jpgsave_picture_194249.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Ultimate Epic Battle Simulator 2 (2023) [En] (1.0fixed) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194260.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194260.jpgsave_picture_194260.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Cat's Request (2023) [Ru/Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194289.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194289.jpgsave_picture_194289.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Greyhill Incident (2023) [Ru/Multi] (1.0.6) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194292.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194292.jpgsave_picture_194292.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Mail Time (2023) [Multi] (1.00.19) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_194309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_194309.jpgsave_picture_194309.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Nightmare Manor (2023) [Ru/Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194314.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194314.jpgsave_picture_194314.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Yakuza: Like a Dragon (2020) [Ru/Multi] (1.009/dlc) License GOG [Hero Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194315.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194315.jpgsave_picture_194315.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Do Not Feed the Monkeys 2099 (2023) [Ru/Multi] (1.0.19) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194321.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194321.jpgsave_picture_194321.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ The Dragoness: Command of the Flame (2023) [Ru/Multi] (1.12) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194346.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194346.jpgsave_picture_194346.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Dark City 8: Kyiv / Мрачный город 8: Киев (2023) [Ru] (1.0) Unof
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194349.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194349.jpgsave_picture_194349.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Scarlet Nexus (2021) [Ru/Multi] (1.08/dlc) Repack dixen18
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194364.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194364.jpgsave_picture_194364.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Pinball FX3 (2017) [Multi] (1.0.26.0/dlc) Scene Skidrow
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194396.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194396.jpgsave_picture_194396.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Ash of Gods: The Way (2023) [Ru/Multi] (1.10.4)  License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194450.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194450.jpgsave_picture_194450.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ MAD WAY (2023) [Multi] (1.1.6) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194468.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194468.jpgsave_picture_194468.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Mato Anomalies (2023) [Multi] (1.0/dlc) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194512.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194512.jpgsave_picture_194512.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ TailQuest Defense (2023) [Multi] (1.1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194524.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194524.jpgsave_picture_194524.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159636.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159636.jpgsave_picture_159636.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ VA - Nu-Disco & Re-Edits Vol.1 (2022) [MP3|320 Kbps] <Deep Disco, Funky, Soulful
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159637.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159637.jpgsave_picture_159637.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ magnet:?xt=urn:btih:2CAB046A74402C296E576E3414426FCB1C1341A6
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159638.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159638.jpgsave_picture_159638.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ magnet:?xt=urn:btih:9994A45732BC3B3F2B77BDB35E5D789D4AE94082
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159639.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159639.jpgsave_picture_159639.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ In Flames - I, the Mask (2019) [FLAC 2.0|44/24|tracks|WEB-DL] <Melodic-Groove, M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159640.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159640.jpgsave_picture_159640.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ magnet:?xt=urn:btih:9624750A461E19A943549D000218FBD178CE928C
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159641.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159641.jpgsave_picture_159641.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ magnet:?xt=urn:btih:4712C127C2DC90293558DAD8454C736C1C090712
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159642.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159642.jpgsave_picture_159642.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ magnet:?xt=urn:btih:3EE0C2EE2E35AF8310FA024ED7C92A97EA7E75DB
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159643.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159643.jpgsave_picture_159643.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ magnet:?xt=urn:btih:46155703CA536E317BEF6D53677FE5709B5EC6DC
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159644.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159644.jpgsave_picture_159644.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ magnet:?xt=urn:btih:37E6F0108178A101A5D697CF763DE23C459283AA
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159645.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159645.jpgsave_picture_159645.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ Majestica - Above The Sky (2019) Japanese Edition [WavPack|Lossless|image + .cue
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159646.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159646.jpgsave_picture_159646.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ magnet:?xt=urn:btih:FC07ADDD0897CC8694E20FB5C687A2C14F310B50
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159647.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159647.jpgsave_picture_159647.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ The Blues Shop Trio - Decade (2022) [FLAC|Lossless|WEB-DL|tracks] <Classic Rock,
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159648.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159648.jpgsave_picture_159648.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ magnet:?xt=urn:btih:E6E268F2966FF2A2B8905F64CF42596DF641BF0F
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159649.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159649.jpgsave_picture_159649.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ Aerosmith - Rocks (1976) Reissue, 2000, Columbia [OGG Vorbis|480 Kbps] <Rock, Cl
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159650.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159650.jpgsave_picture_159650.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ Howard - Event Horizon (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Psych, 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159651.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159651.jpgsave_picture_159651.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ magnet:?xt=urn:btih:73FF4B228FAD3A042A87BD03665D29690EF3097A
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159652.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159652.jpgsave_picture_159652.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ magnet:?xt=urn:btih:C18B685C7A36829ECFC4059B15D0FE5BF41B18C2
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159653.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159653.jpgsave_picture_159653.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Reverend Stomp - Mokara (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159654.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159654.jpgsave_picture_159654.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ magnet:?xt=urn:btih:AEFD4B29BBDD16FDA8EE7F8705598ABD78F0EB8F
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159655.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159655.jpgsave_picture_159655.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ magnet:?xt=urn:btih:E21B60EFA3DE0035BA36F657400835819E7D4B2E
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159656.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159656.jpgsave_picture_159656.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ CREATOR'S - Состояние (2022) [MP3|320 Kbps] <Metalcore, Electronic>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159657.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159657.jpgsave_picture_159657.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Kanatami - IV (2022) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159658.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159658.jpgsave_picture_159658.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Carol Kidd - Dreamsville (2008) Linn Records [FLAC|Lossless|image + .cue] <Vocal
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159659.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159659.jpgsave_picture_159659.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Oscar Peterson - Plays Porgy and Bess (1959) 1993, PolyGram [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159660.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159660.jpgsave_picture_159660.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ Supruga - Смерть культуры (2022) [FLAC|Lossless|WEB-DL|tracks] <Bl
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159661.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159661.jpgsave_picture_159661.jpg" />
 </div>
 
 

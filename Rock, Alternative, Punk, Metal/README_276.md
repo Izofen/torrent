@@ -6,7 +6,7 @@ Mayflower - Misery (2022) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Melodic Hard
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168437.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168437.jpgsave_picture_168437.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Domain - Last Days of Utopia (2005) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168439.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168439.jpgsave_picture_168439.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Killakoi - Beta (2022) [FLAC|Lossless|WEB-DL|tracks] <Alt.Metal, Modern Hard Roc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168444.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168444.jpgsave_picture_168444.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Rainwill - Zeroed By Progress (2013) [FLAC|Lossless]<Melodic Death Metal>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168445.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168445.jpgsave_picture_168445.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Amoriello - Dear Dark (2021) EP [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168450.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168450.jpgsave_picture_168450.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Rob Arnold - Magnitude (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Death, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168462.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168462.jpgsave_picture_168462.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Shadow Warrior - Cyberblade (2020) Japanese Edition [FLAC|Lossless|image + .cue]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168465.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168465.jpgsave_picture_168465.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Amoriello - Amoriello (2018) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168483.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168483.jpgsave_picture_168483.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Oponente - Decreciendo (2022) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168491.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168491.jpgsave_picture_168491.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ A.R.G. - One World Without the End (1991) Remaster 2012 [FLAC|Lossless|image + .
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168496.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168496.jpgsave_picture_168496.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ A.R.G. - Entrance (1989) Remaster 2012 [FLAC|Lossless|image + .cue] <Thrash Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168514.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168514.jpgsave_picture_168514.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ This Winter Machine - Kites (2021) [FLAC|Lossless|image + .cue] <Progressive Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168609.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168609.jpgsave_picture_168609.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Cats In Space - Diamonds - The Best Of Cats In Space (2021) [FLAC|Lossless|WEB-D
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168616.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168616.jpgsave_picture_168616.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Bodkin - Bodkin (1972) 3CD [FLAC|Lossless|image + .cue | tracks+.cue] <Progressi
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168629.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168629.jpgsave_picture_168629.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Voice - The Storm (2017) [FLAC|Lossless|image + .cue] <Heavy Metal, Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168644.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168644.jpgsave_picture_168644.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Wolftooth - Blood & Iron (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168672.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168672.jpgsave_picture_168672.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Visigoth - Conqueror's Oath (2018) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168676.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168676.jpgsave_picture_168676.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ magnet:?xt=urn:btih:48C58BC9A5BDEBD453C2D51EA4C87E1A9B57E9A5
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168687.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168687.jpgsave_picture_168687.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Deep Purple - Extras: The Infinite B-Sides and Bonus Songs (Live) (2022) [FLAC 2
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168814.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168814.jpgsave_picture_168814.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:2372B749A05C309E750AD0114A950A35F3ED610E
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168849.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168849.jpgsave_picture_168849.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:285182F4F4D2158DA0612F4E64981508B3FF5B45
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168937.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168937.jpgsave_picture_168937.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Electric Light Orchestra - Secret Messages (1983) Limited Edition, Reissue, Rema
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168950.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168950.jpgsave_picture_168950.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ magnet:?xt=urn:btih:A4E0585E860AE3D88C77A98EAF236B77C9BBFFC2
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169048.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169048.jpgsave_picture_169048.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Famous Last Words - 3 альбома + 3 EP (2012-2021) [MP3|320 кб/с]<Post-H
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169053.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169053.jpgsave_picture_169053.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ Duran Duran - Danse Macabre (2023) [FLAC|Lossless|image + .cue] <Sort Rock, Pop>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169056.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169056.jpgsave_picture_169056.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ magnet:?xt=urn:btih:348D00ECCCDAB09271F73B1DB44C22DA70252F34
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169072.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169072.jpgsave_picture_169072.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171416.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171416.jpgsave_picture_171416.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ VideoProc Converter 6.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171417.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171417.jpgsave_picture_171417.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ VA - 30 Pleasing to the Ear, Elegant, Cozy and Comforting Tunes (2023) [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171418.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171418.jpgsave_picture_171418.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ High-Logic FontCreator Professional 15.0.0.2945 Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171419.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171419.jpgsave_picture_171419.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Martin Solveig - Back To Life (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Danc
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171420.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171420.jpgsave_picture_171420.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ TinkerTool System 8 v.8.87 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171421.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171421.jpgsave_picture_171421.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ Disk Clean Pro 6.4 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171422.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171422.jpgsave_picture_171422.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Wondershare UniConverter for Mac 15.0.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171423.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171423.jpgsave_picture_171423.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ Donemax DMmenu 1.8 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171424.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171424.jpgsave_picture_171424.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ Wondershare Recoverit for Mac 12.0.15.12 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171425.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171425.jpgsave_picture_171425.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ Jim Kahr - Keepin' It Hot (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171426.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171426.jpgsave_picture_171426.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ Aiseesoft Mac FoneTrans 9.2.16 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171427.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171427.jpgsave_picture_171427.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ magnet:?xt=urn:btih:61642B263940B3FE9CC04A70F635BDA826DFD6AC
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171428.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171428.jpgsave_picture_171428.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ VA - 30 Midnight Love Jazzy Tunes (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171429.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171429.jpgsave_picture_171429.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ VA - ADE 2023 [MP3|320 Kbps] <House, Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171430.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171430.jpgsave_picture_171430.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ VideoProc Converter 4K 6.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171431.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171431.jpgsave_picture_171431.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ Skinny Lister - Shanty Punk (2023) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171432.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171432.jpgsave_picture_171432.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ Thunderstick - Lockdown (2023) [MP3|320 Kbps] <Heavy Metal/Hard Rock>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171433.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171433.jpgsave_picture_171433.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ Randy Lee Riviere - Blues Sky (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171434.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171434.jpgsave_picture_171434.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ magnet:?xt=urn:btih:3CE5E761B2F13670E29511DF6169ABE6287538CE
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171435.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171435.jpgsave_picture_171435.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Blocs 5.1.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171436.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171436.jpgsave_picture_171436.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Permute 3 v.3.11.1 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171437.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171437.jpgsave_picture_171437.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Kaleidoscope 4.2.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171438.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171438.jpgsave_picture_171438.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Shane Pacey Trio - Who Made You King (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171439.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171439.jpgsave_picture_171439.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Mike Richmond - Blue In Green (1992) SteepleChase [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171440.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171440.jpgsave_picture_171440.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ NCH Doxillion Plus 7.22 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171441.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171441.jpgsave_picture_171441.jpg" />
 </div>
 
 

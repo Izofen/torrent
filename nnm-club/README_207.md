@@ -6,7 +6,7 @@
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5448.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5448.jpgsave_picture_5448.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:EAE52E8412761D0D39069F27181DF220404945C0
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5449.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5449.jpgsave_picture_5449.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Eriksholm: The Stolen Dream (2025) [Ru/Multi] (1.3) Repack Wanterlude
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5451.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5451.jpgsave_picture_5451.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:933246ED7A6408B08FC5B0387A5ADE4E5B4C5F86
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5452.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5452.jpgsave_picture_5452.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:2F7D5C111C05F092FD795BB3F67B6B1406F68BBC
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5453.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5453.jpgsave_picture_5453.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Rogue Loops (2025) [Ru/Multi] (1.3.4) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5454.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5454.jpgsave_picture_5454.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Broken Arrow (2025) [Ru/Multi] (1.0.9.1/dlc) Repack Let'sРlay
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5455.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5455.jpgsave_picture_5455.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:ABB0921E5B24D3ED9479490C92E8D69C33A3A5D2
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5456.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5456.jpgsave_picture_5456.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:6C7F4AB87B183D5C52E552EEBD168F7367DA0FE1
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5457.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5457.jpgsave_picture_5457.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Primal Planet (2025) [Ru/Multi] (Avgust 25th 2025 v1) Repack Let'sРlay [Dino Su
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5458.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5458.jpgsave_picture_5458.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ magnet:?xt=urn:btih:7F13022EA3B075BF4F4AB7BD1B2DEEF24AF06E88
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5459.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5459.jpgsave_picture_5459.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ magnet:?xt=urn:btih:98B03DFA407C7E835FB876929E4D5C1936145555
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5460.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5460.jpgsave_picture_5460.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ magnet:?xt=urn:btih:98B03DFA407C7E835FB876929E4D5C1936145555
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5461.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5461.jpgsave_picture_5461.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ ZEPHON (2024) [Ru/Multi] (1.1.15/dlc) Repack Let'sРlay [Supporter Edition]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5462.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5462.jpgsave_picture_5462.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ magnet:?xt=urn:btih:ED9A001BCC34F628632D0AF71BAC318550908660
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5463.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5463.jpgsave_picture_5463.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ magnet:?xt=urn:btih:08887E13B4813C9530AE067B8CC247F1CC7B6B98
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5464.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5464.jpgsave_picture_5464.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ magnet:?xt=urn:btih:CD77FF551D4248BCA03C32ED6AD5AC63034282C9
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5466.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5466.jpgsave_picture_5466.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ magnet:?xt=urn:btih:C2D40066BAFF3E2E4B2994B3664BA98A3DCBF7F9
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5467.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5467.jpgsave_picture_5467.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Enshrouded (2024) [Ru/Multi] (Build 19651931) Repack Pioneer [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5468.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5468.jpgsave_picture_5468.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ magnet:?xt=urn:btih:562CE3F2C0A27ECFADEDEE0013444467CAFBF266
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5469.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5469.jpgsave_picture_5469.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ Survive the Fall (2025) [Ru/Multi] (1.2.0.2534/dlc) Repack Let'sРlay [Ultimate 
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5470.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5470.jpgsave_picture_5470.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ OTTA-Orchestra - Дискография (2014-2025) [FLAC|Lossless|WEB-DL|tracks
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5471.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5471.jpgsave_picture_5471.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ magnet:?xt=urn:btih:21366C228C0A6F614B964733C9462A4D27008EF5
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5472.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5472.jpgsave_picture_5472.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Tactical Warfare (2025) [Ru/Multi] (Build 18683670) Repack Let'sРlay
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5473.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5473.jpgsave_picture_5473.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Sengoku Dynasty (2024) [Ru/Multi] (1.1.0.12/dlc) Repack Let'sРlay [Ultimate Edi
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5474.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5474.jpgsave_picture_5474.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ magnet:?xt=urn:btih:87C4273C0A767BEBEAAF4BEC7F730F3994D5EDA7
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5475.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5475.jpgsave_picture_5475.jpg" />
 </div>
 
 

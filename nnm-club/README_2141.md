@@ -6,7 +6,7 @@ Kerry King - From Hell I Rise (2024) [FLAC|Lossless|image + .cue] <Heavy Metal, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56033.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56033.jpgsave_picture_56033.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ EarthView 7.9.6 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56034.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56034.jpgsave_picture_56034.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ PDFCreator 5.2.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56035.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56035.jpgsave_picture_56035.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:B941E8A0C961D4A3983FCD48ACCA8FCD70200C2E
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56036.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56036.jpgsave_picture_56036.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Slimjet 43.0.2.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56037.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56037.jpgsave_picture_56037.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Polarr v6.9.4 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56038.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56038.jpgsave_picture_56038.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Noisia - The Resonance VII (2024) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass, Ne
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56039.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56039.jpgsave_picture_56039.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ LibreWolf 126.0-1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56040.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56040.jpgsave_picture_56040.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ VA - Шансон премьера 2024 февраль (Новые песни. �
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56041.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56041.jpgsave_picture_56041.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ Jazz Erotic Lounge Collective, Jazz Music Collection - Erotic Improvisation: Sen
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56042.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56042.jpgsave_picture_56042.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ Stefan Torto - Passage (2024) [FLAC|Lossless|WEB-DL|tracks] < Psybient, Downtemp
 >>Psybient, Psychill, Psydub (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56043.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56043.jpgsave_picture_56043.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ MediaHuman YouTube Downloader 3.9.9.92 (0518) RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56044.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56044.jpgsave_picture_56044.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ magnet:?xt=urn:btih:2C28F32A1B4875D9CE2C5D4DC598B39214BDD6F7
 >>Поздравления
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56045.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56045.jpgsave_picture_56045.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ magnet:?xt=urn:btih:2C28F32A1B4875D9CE2C5D4DC598B39214BDD6F7
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56046.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56046.jpgsave_picture_56046.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ Aiseesoft Video Converter Ultimate 10.8.32 RePack (& Portable) by elchupacabra [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56047.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56047.jpgsave_picture_56047.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Tchia (2024) [Ru/Multi] (2.01/dlc) Scene Rune
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56048.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56048.jpgsave_picture_56048.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ MetaProducts Offline Explorer Enterprise 8.6.0.4976 RePack (& Portable) by elchu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56049.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56049.jpgsave_picture_56049.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ Turbo Studio 24.5.9.0 Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56050.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56050.jpgsave_picture_56050.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ magnet:?xt=urn:btih:25EEBA672E326A7F2EFC8B9F291B9D5898CE5194
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56051.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56051.jpgsave_picture_56051.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ magnet:?xt=urn:btih:EF3DAFEE04B6BE6D37451FE6B40F043FDDA2B5F1
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56052.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56052.jpgsave_picture_56052.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ magnet:?xt=urn:btih:D241559BFA353D24D00E3B6C5BB611E94691E27D
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56053.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56053.jpgsave_picture_56053.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ magnet:?xt=urn:btih:5F358298FAC1B1853CE37304A54077D45324E01B
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56054.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56054.jpgsave_picture_56054.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ TrustViewer 2.13.0.5255 Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56055.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56055.jpgsave_picture_56055.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ magnet:?xt=urn:btih:D3301699834CD725E77D4D74F78D55DBD80B1679
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56056.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56056.jpgsave_picture_56056.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ Moon+ Reader Pro v9.4 (build 904000) Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56057.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56057.jpgsave_picture_56057.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ Ciruelo Cabral | Артбук Феи и драконы / Ciruelo - Lord of the D
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56058.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56058.jpgsave_picture_56058.jpg" />
 </div>
 
 

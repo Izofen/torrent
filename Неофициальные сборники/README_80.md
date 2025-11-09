@@ -6,7 +6,7 @@ VA - Feel The Nature: Ambient Sound (2020) [MP3|320 Kbps] <Ambient, Downtempo, N
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144332.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144332.jpgsave_picture_144332.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Новогодний Микс 50Х50 (2016) [MP3|256 Kbps] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144370.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144370.jpgsave_picture_144370.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - Beatport Drum And Bass: Electro Sound Pack #214 (2020) [MP3|320 Kbps] <Drum
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144405.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144405.jpgsave_picture_144405.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - Guitar Collection 10 (2016) [MP3|320 Kbps] <Blues, Acoustic, Metal >
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144440.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144440.jpgsave_picture_144440.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ VA - Happy Dance Hit (2018) [MP3|320 Kbps] <Pop, Dance, Club>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144480.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144480.jpgsave_picture_144480.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ VA - Lyrical Soul Ballads (2018) [MP3|320 Kbps] <Funk, Soul, Ballads>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144486.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144486.jpgsave_picture_144486.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ VA - Beatport Techno: Electro Sound Pack #213 (2020) [MP3|320 Kbps] <Techno, Clu
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144518.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144518.jpgsave_picture_144518.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ VA - Music 2018 Live Christmas Sweet (2018) [MP3|320 Kbps] <Christmas, Dancehall
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144540.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144540.jpgsave_picture_144540.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ VA - Bass Killer 16 (2018) [MP3|320 Kbps] <Dubstep, Trap, Electro House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144546.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144546.jpgsave_picture_144546.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ VA - Billboard Hot 100 Singles Chart 29.12.2018 (2018) [MP3|320 Kbps] <Pop, Danc
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144598.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144598.jpgsave_picture_144598.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ VA - Русские свежаки радиостанций. Топ новино
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144643.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144643.jpgsave_picture_144643.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ VA - Utopia: Psychedelic Electronica (2018) [MP3|320 Kbps] <Psychedelic, Electro
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144667.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144667.jpgsave_picture_144667.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ New Age Style - Enigmatic Top. Vocal (2015) [MP3|320 кб/с] <New age, Enigmati
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144675.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144675.jpgsave_picture_144675.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ VA - Summer Ocean: Relax Party (2018) [MP3|320 Kbps] <Chillout, Downtempo, Loung
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144690.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144690.jpgsave_picture_144690.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ VA - Снежный хит-парад. 100 русских хитов (2016) [MP3
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144693.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144693.jpgsave_picture_144693.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ VA - German Top 50 Official Dance Charts 23.12. (2016) [MP3|320 Kbps] <Pop, Danc
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144716.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144716.jpgsave_picture_144716.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ VA - Музыкальный плен Часть № 5 (2016) [MP3|256 Kbps] <Pop
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144727.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144727.jpgsave_picture_144727.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ VA - Снегопад новинок на Hit FM. Версия 3 (2016) [MP3|256
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144784.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144784.jpgsave_picture_144784.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ VA - Acoustic Covers Rewind (2016) [MP3|320 Kbps] <Downtempo, Chillout, Instrume
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144797.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144797.jpgsave_picture_144797.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ VA - Зимние хиты экспресс. Зарубежная версия (
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144808.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144808.jpgsave_picture_144808.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ VA - German Top 100 Single Charts 23.12. (2016) [MP3|320 Kbps] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144885.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144885.jpgsave_picture_144885.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ VA - Золотые застольные хиты от радио Шансон �
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144891.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144891.jpgsave_picture_144891.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ VA - Эх, Разгуляй! Новогодний выпуск Шансона В
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144899.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144899.jpgsave_picture_144899.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ VA - Зимний драйв. Авто дискотека. Версия 50/50 (2
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144930.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144930.jpgsave_picture_144930.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ VA - Зимний топ 100. Версия 50/50 (2016) [MP3|256 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144946.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144946.jpgsave_picture_144946.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ VA - Полный отрыв. Зимние хиты (2016) [MP3|256 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144958.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144958.jpgsave_picture_144958.jpg" />
 </div>
 
 

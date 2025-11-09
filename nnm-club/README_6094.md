@@ -6,7 +6,7 @@ XnView Shell Extension 4.1.8  + Standalone  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191802.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191802.jpgsave_picture_191802.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:0263AB9CA91FA0E492C15BBA3FD4AF1C3FE939F4
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191803.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191803.jpgsave_picture_191803.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ PG Roxette - Pop-Up Dynamo! (2022) [FLAC|Lossless|image + .cue] <Pop Rock, Pop>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191804.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191804.jpgsave_picture_191804.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:7FDA35DF4F96DB5B637A6D7A80194C57FA35E932
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191805.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191805.jpgsave_picture_191805.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:3D90CFE0040B5C4FE6E1F57D543FAF99FAF75B3C
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191806.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191806.jpgsave_picture_191806.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:EAEC996D7F41C176B77C52B4777836B18D1E72BD
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191807.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191807.jpgsave_picture_191807.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:BB780234BD0AE9DE60F6B62F78EEC091B8718439
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191808.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191808.jpgsave_picture_191808.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ Blue System - Body To Body (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House,
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191809.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191809.jpgsave_picture_191809.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ magnet:?xt=urn:btih:BC5E3EB3180E1E2E63708624D9D789F985801400
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191810.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191810.jpgsave_picture_191810.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ magnet:?xt=urn:btih:EB43FE706C1B0420107A6A917AFB218210561978
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191811.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191811.jpgsave_picture_191811.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:C96F8BF6A6DBB6EA3C8E3248DE9C4D609FBA5719
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191812.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191812.jpgsave_picture_191812.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ Auslogics BoostSpeed 13.0.0.0 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191813.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191813.jpgsave_picture_191813.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Battery HD Pro 1.99.06 (Google Play) [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191814.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191814.jpgsave_picture_191814.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Google Chrome 116.0.5845.180 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191815.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191815.jpgsave_picture_191815.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Blue System - Here I Am (1997) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Eu
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191816.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191816.jpgsave_picture_191816.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ magnet:?xt=urn:btih:AC240FA638920FF4361604266B41CEF3DA9C84AC
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191817.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191817.jpgsave_picture_191817.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Auslogics BoostSpeed 13.0.0.0 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191818.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191818.jpgsave_picture_191818.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ magnet:?xt=urn:btih:A381083C87060EB270B2F52A046E706FD1BE7DC0
 >>История
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191819.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191819.jpgsave_picture_191819.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ PC Cleaner Pro 9.4.0.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191820.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191820.jpgsave_picture_191820.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ VoosteQ - Material Comp 1.7.1 VST, VST 3, AAX (x64) RePack by MOCHA [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191821.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191821.jpgsave_picture_191821.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ VA - Compilation rock, blues rock,  part 33 (2023) [MP3|320 Kbps] <Rock, Blues R
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191822.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191822.jpgsave_picture_191822.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ magnet:?xt=urn:btih:99A59D8D8A2D0E29027021788B24ED2E75D40C2D
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191823.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191823.jpgsave_picture_191823.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ magnet:?xt=urn:btih:8B1697FC67CBA00D7C1173F21B343D146C8DB61A
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191824.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191824.jpgsave_picture_191824.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ RAR for Linux 6.23 [x32, x64] (tar.gz)
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191825.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191825.jpgsave_picture_191825.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ Firefox Browser 106.0.4 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_191826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191826.jpgsave_picture_191826.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ VA - Chilled Beats: Chillout Your Mind (2022) [FLAC|Lossless|WEB-DL|tracks] <Bal
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191827.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191827.jpgsave_picture_191827.jpg" />
 </div>
 
 

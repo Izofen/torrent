@@ -6,7 +6,7 @@
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20243.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20243.jpgsave_picture_20243.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:42BC32EEB31F44FBBA12A62B2E2146637865413D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20244.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20244.jpgsave_picture_20244.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Mega City Police / Mega City Force (2023) [Ru/Multi] (1.092) License GOG [Digita
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20245.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20245.jpgsave_picture_20245.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:5E9E9D42C08B027FDCDB6289BA56F12A8455C9D1
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20246.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20246.jpgsave_picture_20246.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:25CB04673FF33622555301D0743E69B441CC9DBC
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20247.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20247.jpgsave_picture_20247.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:673C750BEB3B2FEC1AAAFACC9084EF8961895F72
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20248.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20248.jpgsave_picture_20248.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:6ECCFF3007181E7FFE6126E01551A5305D00EDD0
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20249.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20249.jpgsave_picture_20249.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Sker Ritual (2022) [Ru/Multi] (1.2.3.25254/dlc) Repack FitGirl [Anniversary Edit
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20250.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20250.jpgsave_picture_20250.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ The Stone of Madness (2025) [Multi] (1.0.3) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20251.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20251.jpgsave_picture_20251.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Menace from the Deep (2024) [Ru/Multi] (1.14) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20252.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20252.jpgsave_picture_20252.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ magnet:?xt=urn:btih:E78DB7D40C176208A719FA5A53894F617D553B68
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20253.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20253.jpgsave_picture_20253.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ magnet:?xt=urn:btih:6A356A93A4774DD382EE0D694F5723E2708A029E
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20254.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20254.jpgsave_picture_20254.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Clair Obscur: Expedition 33 (2025) [Ru/Multi] (56190/dlc) Repack Other s [Deluxe
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20255.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20255.jpgsave_picture_20255.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Riven (2024) [Ru/Multi] (1.7.1) Repack Let'sРlay [The Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20256.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20256.jpgsave_picture_20256.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ magnet:?xt=urn:btih:D2AEA7CC6B5FC1FBBB3F5441D6FB980707DC7B83
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20257.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20257.jpgsave_picture_20257.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ magnet:?xt=urn:btih:6ECED548FD0C6151E5F4F6EA91DDF7FC9510F1EB
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20258.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20258.jpgsave_picture_20258.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ Billy Idol - Dream Into It (2025) [FLAC|Lossless|WEB-DL|tracks] <Punk Rock, Rock
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20259.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20259.jpgsave_picture_20259.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ VA - Compilation Part 158 Electronic (2025) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20260.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20260.jpgsave_picture_20260.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ magnet:?xt=urn:btih:D8203C7F200C42DFC2278E5F1C9248C226529EDC
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20261.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20261.jpgsave_picture_20261.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ magnet:?xt=urn:btih:82BA6D092E3AAA36F1609BF1F4C0714DF99BE229
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20262.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20262.jpgsave_picture_20262.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Billy Idol - Dream Into It (2025) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20263.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20263.jpgsave_picture_20263.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ magnet:?xt=urn:btih:61ADB96887F16D7CB0358EF2ED098811648E5810
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20264.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20264.jpgsave_picture_20264.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:870BCA2AC741A3BCF0093DC7274CBE298C7FC1F9
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20265.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20265.jpgsave_picture_20265.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Excite Audio - Bloom Vocal Choir 1.0.0 STANDALONE, VSTi, VSTi 3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20266.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20266.jpgsave_picture_20266.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Arturia - Jup-8000 V 1.0.0 STANTALONE, VSTi, VSTi 3 (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20267.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20267.jpgsave_picture_20267.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ Fan Control V221 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20268.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20268.jpgsave_picture_20268.jpg" />
 </div>
 
 

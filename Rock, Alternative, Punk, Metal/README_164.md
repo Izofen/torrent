@@ -6,7 +6,7 @@ Motorhead - The Lost Tapes - The Collection (Vol. 1-5) (2024) 5CD, (Live) [FLAC|
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115502.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115502.jpgsave_picture_115502.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ From North - Raven Banner (2023) [FLAC|Lossless|image + .cue] <Folk, Viking Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115507.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115507.jpgsave_picture_115507.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Bessemer Saints - This Is BS Too (2024) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115509.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115509.jpgsave_picture_115509.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ David Knopfler - Crow Gifts (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock, Soft Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115562.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115562.jpgsave_picture_115562.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ magnet:?xt=urn:btih:DA1B6BDA3519C579C835AE411E00EFDA62CD98B3
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115591.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115591.jpgsave_picture_115591.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Anubis - Dark Paradise (2024) [FLAC|Lossless|WEB-DL|tracks] <Power, Thrash Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115665.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115665.jpgsave_picture_115665.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Blutgott - Drachenkult (Balgeroth Version) (2024) [FLAC|Lossless|WEB-DL|tracks] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115666.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115666.jpgsave_picture_115666.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Without Me - Revelations (2022) [FLAC|Lossless|WEB-DL|tracks] <Post-Hardcore>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115667.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115667.jpgsave_picture_115667.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Avacost - A Peace of the Sky (1993) Reissue 2010, Nudibranch Records [FLAC|Lossl
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115669.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115669.jpgsave_picture_115669.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Public Image Limited - End Of World (2023) Japanese Edition [FLAC|Lossless|image
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115682.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115682.jpgsave_picture_115682.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Without Me - Revelations (2022) Deluxe Edition, 2024, Without Me [FLAC|Lossless|
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115686.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115686.jpgsave_picture_115686.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Beau Geste - Another Night in the City (1986) Reissue, Magada Heritage, 1993 [FL
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115692.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115692.jpgsave_picture_115692.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Timson - Forever's Not Enough (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115693.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115693.jpgsave_picture_115693.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Beau Geste - Another Night in the City (1986) Remaster, Unidisc, 1998 [FLAC|Loss
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115694.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115694.jpgsave_picture_115694.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Job for a Cowboy - Moon Healer (2024) [FLAC|Lossless|tracks + .cue] <Death Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115695.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115695.jpgsave_picture_115695.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Distant - Heritage (2023) 3CD Absolute Deluxe Edition, 2024, Century Media [FLAC
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115696.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115696.jpgsave_picture_115696.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Dio - Ronnie's Birthday Show (2019) Reissue, 2024, Smokin' [FLAC|Lossless|WEB-DL
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115701.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115701.jpgsave_picture_115701.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Bon Jovi - Superrock Japan 1984 (Live) (2024) [MP3|320 Kbps] <Hard Rock, Pop Roc
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115705.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115705.jpgsave_picture_115705.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Dissolving of Prodigy - Lamentations of Innocents (1995) [FLAC|Lossless|image + 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115797.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115797.jpgsave_picture_115797.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Traveler - Prequel To Madness (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115803.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115803.jpgsave_picture_115803.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Whiteabbey - Words That Form The Key (2024) [FLAC|Lossless|WEB-DL|tracks] <Symph
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115807.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115807.jpgsave_picture_115807.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Toxikull - Under The Southern Light (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115809.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115809.jpgsave_picture_115809.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Dissolving of Prodigy - Time Ruins Also Beauty (1997) [FLAC|Lossless|image + .cu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115811.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115811.jpgsave_picture_115811.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Cathubodua - Interbellum (2024) [FLAC|Lossless|WEB-DL|tracks] <Epic Symphonic Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115831.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115831.jpgsave_picture_115831.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Cats Can Fly - Cats Can Fly (1986) Remaster, CCF Records, 2023 [FLAC|Lossless|WE
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115835.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115835.jpgsave_picture_115835.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Arkado - Open Sea (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115836.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115836.jpgsave_picture_115836.jpg" />
 </div>
 
 

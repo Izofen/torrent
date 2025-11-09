@@ -6,7 +6,7 @@ Heavy Water - Dreams Of Yesterday (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Roc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183992.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183992.jpgsave_picture_183992.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:8DB71C752EE85599EBB53BF238D77C2F8F09B3E7
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_183993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183993.jpgsave_picture_183993.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Microsoft Windows and Office ISO Download Tool 8.42.0.148 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_183996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183996.jpgsave_picture_183996.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ Lost Horizon - Studio Albums (2 releases) (2001-2003) hand made [restored, decli
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183997.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183997.jpgsave_picture_183997.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ Heldmaschine - Flachenbrand (2023) [FLAC|Lossless|WEB-DL|tracks] <Industrial Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184000.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184000.jpgsave_picture_184000.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ magnet:?xt=urn:btih:F0624721E8E8EE72B44BE0C485BACA6A22B83EC5
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184001.jpgsave_picture_184001.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ magnet:?xt=urn:btih:AB91EC2ED4D711A84A4053C0758350F0BBA3D732
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184002.jpgsave_picture_184002.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ magnet:?xt=urn:btih:C9AE83E5C857A387BEA27FF9CD44A985BFA61B84
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184005.jpgsave_picture_184005.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ Cee Muller - Spectrum of Emotions (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <po
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184006.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184006.jpgsave_picture_184006.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ magnet:?xt=urn:btih:ACAD35521DDF8F1AAC67AF9C7A7FED14417B8C2B
 >>Футбол
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184007.jpgsave_picture_184007.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ magnet:?xt=urn:btih:1F7D3FBDC26F664E9DF9B6AD095CDA7D8C3DD32A
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184009.jpgsave_picture_184009.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ Blackbriar - A Dark Euphony (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184011.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184011.jpgsave_picture_184011.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ magnet:?xt=urn:btih:F3855E89A81CFA08D4151589EF8A49CF8815BC39
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184012.jpgsave_picture_184012.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ magnet:?xt=urn:btih:FB9F1BF727157DEA4A92CB62FB23A9310D2E36AB
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184014.jpgsave_picture_184014.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Winifred Atwell - The Winifred Atwell Collection (1994) BMG Australia [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184016.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184016.jpgsave_picture_184016.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ magnet:?xt=urn:btih:3FF8DD851E722E682F31F46468FCAF0BC4A3439A
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184017.jpgsave_picture_184017.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ Kenny Wayne Shepherd - Straight To You: Live (2020) [FLAC|Lossless|WEB-DL|tracks
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184020.jpgsave_picture_184020.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ Asinhell - Impii Hora (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184021.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184021.jpgsave_picture_184021.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ magnet:?xt=urn:btih:945B659BEC14F41EFA125203C72425FADFC64B34
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184022.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184022.jpgsave_picture_184022.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ magnet:?xt=urn:btih:9C894A0DA2C662B2C8FE0FC7929E4A5713FFA3BB
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184025.jpgsave_picture_184025.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ Mayhem - Daemon (2019) Limited edition [FLAC|Lossless|image + .cue] <Black Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184026.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184026.jpgsave_picture_184026.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ magnet:?xt=urn:btih:8DCB7DCD9B5C2AABA76897D9F261F6BF60E2360C
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184027.jpgsave_picture_184027.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ magnet:?xt=urn:btih:8E46E51416AAF76EDB3CEFAEACAAB7F1A5E155DC
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184030.jpgsave_picture_184030.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Kenny Drew Trio With Clark Terry - Serenity (1978) 1988, Alfa Records [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184031.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184031.jpgsave_picture_184031.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Christian Ullenboom | Java: The Comprehensive Guide to Java Programming for Prof
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184032.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184032.jpgsave_picture_184032.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ Suidakra - Echoes of Yore (2019) [FLAC|Lossless|image + .cue] <Melodic Death, Fo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184034.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184034.jpgsave_picture_184034.jpg" />
 </div>
 
 

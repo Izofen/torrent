@@ -6,7 +6,7 @@ The Buggles - The Age Of Plastic (1980)  [FLAC 2.0|192/24|image + .cue|Vinyl-Rip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241666.jpgsave_picture_241666.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Berlin - Count Three & Pray (1986) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Pop 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241674.jpgsave_picture_241674.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Goldfrapp - Head First (2010)  [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Electron
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241702.jpgsave_picture_241702.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Chris Rea - On The Beach (1986) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241806.jpgsave_picture_241806.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Kaja - Crazy Peoples Right to Speak (1985) [FLAC 2.0|192/24|image + .cue|Vinyl-R
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241807.jpgsave_picture_241807.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ magnet:?xt=urn:btih:9FDFDCBE2C468F6C9F04B51657C0E345DA18C741
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241857.jpgsave_picture_241857.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Pet Shop Boys - Fundamental (2006) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Synt
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241973.jpgsave_picture_241973.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ System of a Down - Studio Albums (6 releases) (1998 - 2020) hand made [restored,
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242025.jpgsave_picture_242025.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ VA - Мамина Пластинка (1991) Compilation [FLAC 2.0|96/24|image +.
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242193.jpgsave_picture_242193.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Dire Straits - Love Over Gold (1982) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <R
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242217.jpgsave_picture_242217.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Taboo - Ten Hundred Thousand (1986) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Syn
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243080.jpgsave_picture_243080.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ The Rolling Stones - Tattoo You (1981) Series: Nice Price, 1987 [FLAC 2.0|192/24
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243174.jpgsave_picture_243174.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Rainbow - Down To Earth (1979) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243215.jpgsave_picture_243215.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Rolling Stones - Steel Wheels (1989) [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Cla
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243251.jpgsave_picture_243251.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Woodkid - The Golden Age (2013) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Alterna
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243295.jpgsave_picture_243295.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Karel Zich - The Best Of Karel Zich (1982) [FLAC 2.0|192/24|image +.cue|Vinyl-Ri
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243370.jpgsave_picture_243370.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Yello - You Gotta Say Yes To Another Excess (1983) [FLAC 2.0|192/24|image + .cue
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243585.jpgsave_picture_243585.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ VA - The Absolute Sound (2013) Compilation [DSD64 2.0|1bit/2822,4kHz|SACD-R] <Cl
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243610.jpgsave_picture_243610.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Lindemann (Rammstein, Pain) - Studio Albums (2015-2019) hand made [restored, dec
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243620.jpgsave_picture_243620.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ Samantha Fox - Touch Me (1986) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Synth-Po
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243651.jpgsave_picture_243651.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Barclay James Harvest - Gone To Earth (1977) [FLAC 2.0|192/24|image + .cue|Vinyl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243704.jpgsave_picture_243704.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Bucks Fizz - Writing On The Wall (1986) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243825.jpgsave_picture_243825.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ The Philharmonia Slavonica. Henry Adolph Conducting - Ballet Music (Schubert, Tc
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243948.jpgsave_picture_243948.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ David Essex - Rock On (1973) [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Pop Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244006.jpgsave_picture_244006.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ Berlin - Pleasure Victim (1982)  [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Synth-
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244011.jpgsave_picture_244011.jpg" />
 </div>
 
 
@@ -676,7 +676,7 @@ Robbie Williams - The Heavy Entertainment Show 2LPs (2016)  [FLAC 2.0|192/24|ima
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244034.jpgsave_picture_244034.jpg" />
 </div>
 
 

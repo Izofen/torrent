@@ -6,7 +6,7 @@ Professor Of How, Kishor |  Master 3D With Professor (2022) PCRec [Hindi]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184923.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184923.jpgsave_picture_184923.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:1B0D52D070AFA3DE83E4115F82A81B4A01872ED3
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184924.jpgsave_picture_184924.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:4AD4CDDFF739F9EA3ADE3E38BD1D4892728D2B4E
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184925.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184925.jpgsave_picture_184925.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:B22F3B5D634831E8D7C0147259FE5BF9903E3D0C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184926.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184926.jpgsave_picture_184926.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:3C4C6C1880222CCECC3145AAF8F7B29D66EAAE95
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184928.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184928.jpgsave_picture_184928.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:1F88B10A9C2B8B791B45F6536889E59E45D537E5
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184929.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184929.jpgsave_picture_184929.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:6CD405A4D7698BE5E7528B170B1BE771221D4203
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184930.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184930.jpgsave_picture_184930.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Decadence - Book Of The Redeemed (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184932.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184932.jpgsave_picture_184932.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ The First Gentlemen - Vertices (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184934.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184934.jpgsave_picture_184934.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:A72E1FD9EC12A1A50653C81B0C9B10B37115EAAB
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184935.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184935.jpgsave_picture_184935.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Robert Lakatos Trio - So In Love (2005) Atelier Sawano [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184938.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184938.jpgsave_picture_184938.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ magnet:?xt=urn:btih:8BFA3D3D9E83ED1D3AE33F74D33E66BE9FDCE395
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184939.jpgsave_picture_184939.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ magnet:?xt=urn:btih:67F119F85CB075C6D02C8A50818C4873E64598DE
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184940.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184940.jpgsave_picture_184940.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Auslogics Windows Slimmer 4.0.0.0 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184943.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184943.jpgsave_picture_184943.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ James Moody - 1949-1950 (2001) Classics [FLAC|Lossless|tracks + .cue] <Bop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184944.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184944.jpgsave_picture_184944.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ magnet:?xt=urn:btih:B3AE1E35B46B86E1F8074DBCE892700588C565B6
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184945.jpgsave_picture_184945.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ magnet:?xt=urn:btih:460B7C68917C8F20AEC90889290158B8D4C89BA6
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184948.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184948.jpgsave_picture_184948.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ magnet:?xt=urn:btih:F06335ADD51B781FF7DD31C4CF19ADC309D58CE7
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184949.jpgsave_picture_184949.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ magnet:?xt=urn:btih:4CA411F9C1F63DAD035BDAB43EFCDD1DDDAE030A
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184950.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184950.jpgsave_picture_184950.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ magnet:?xt=urn:btih:760349B4675B003874EA62489D15D39F8B69B1F4
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184952.jpgsave_picture_184952.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Ultimate Background Eraser v2.2 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184954.jpgsave_picture_184954.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Fossilization - Leprous Daylight (2023) [FLAC|Lossless|WEB-DL|tracks] <Death, Do
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184955.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184955.jpgsave_picture_184955.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ magnet:?xt=urn:btih:663CA71213136AC12DD8138128DE5F01EED146E6
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184958.jpgsave_picture_184958.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ magnet:?xt=urn:btih:82BA693787B781E6E793DC02C9DE31D21047C2F8
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184959.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184959.jpgsave_picture_184959.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Damnation's Hammer - Into The Silent Nebula (2023) [FLAC|Lossless|WEB-DL|tracks]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184960.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184960.jpgsave_picture_184960.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ magnet:?xt=urn:btih:544C85EC99CC54F898185AC81B68CED4F934192D
 >>КВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184962.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184962.jpgsave_picture_184962.jpg" />
 </div>
 
 

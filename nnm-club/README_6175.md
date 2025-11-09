@@ -6,7 +6,7 @@ Ookami Kodomo no Ame to Yuki | Wolf Children | Волчьи дети Амэ и �
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193974.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193974.jpgsave_picture_193974.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:9816DF7384DFA32FDADA107ECE741FF97D07C837
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193975.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193975.jpgsave_picture_193975.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:C0D60CEDBC1E0592FB0909779D5677E786065FFA
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193976.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193976.jpgsave_picture_193976.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ VPN Russia - VPN сервера в России 1.168 Mod by FreeApkexe [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193977.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193977.jpgsave_picture_193977.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Google Chrome 116.0.5845.111 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193978.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193978.jpgsave_picture_193978.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Zombie Shooting Star (2022) [Multi] (1.1) License GOG [16+]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193979.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193979.jpgsave_picture_193979.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ AMD Radeon Software Adrenalin Edition 23.8.1 WHQL [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193980.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193980.jpgsave_picture_193980.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Lynn, The Girl Drawn On Puzzles (2020) [Ru/Multi] (1.0.01) License GOG
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193981.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193981.jpgsave_picture_193981.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ ABBYY FineReader PDF for Mac 15.2.12 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193982.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193982.jpgsave_picture_193982.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ LTspice 17.1.10 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193983.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193983.jpgsave_picture_193983.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ magnet:?xt=urn:btih:D645361C404489C038934ACA60F443FF90BA23B7
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193984.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193984.jpgsave_picture_193984.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ TikTok ReVanced 30.8.4 (RVP 2.187.0) [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193985.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193985.jpgsave_picture_193985.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ magnet:?xt=urn:btih:50027783F4FFFC29B0835177938536133F79F211
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193986.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193986.jpgsave_picture_193986.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ magnet:?xt=urn:btih:EC71BD893A85CFDE9A49B57D984B1D5AAB6AFB99
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193987.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193987.jpgsave_picture_193987.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ Death in the Water 2 (2023) [Ru/Multi] (1.1.10) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193988.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193988.jpgsave_picture_193988.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ magnet:?xt=urn:btih:3E373E504FBBC7EDE33D46A418AF2822BD732846
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193989.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193989.jpgsave_picture_193989.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ magnet:?xt=urn:btih:BAF802CD0C4A7400971205BC03A4AF4366BC6418
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193990.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193990.jpgsave_picture_193990.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ magnet:?xt=urn:btih:3BE2060ACD7E3E72BBFB1FD5A56BAEA185968ECE
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193991.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193991.jpgsave_picture_193991.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ magnet:?xt=urn:btih:7E0DCE120979E1F20118505CA9FF117EE107D6E6
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193993.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193993.jpgsave_picture_193993.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ magnet:?xt=urn:btih:B8FA60A7792012E1DBF26C58A06FF80C12DEE98C
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_193994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193994.jpgsave_picture_193994.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ magnet:?xt=urn:btih:53C498DAB7B29B092CA95DF448C1969770E86047
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193995.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193995.jpgsave_picture_193995.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ magnet:?xt=urn:btih:12B5B2B9B4C8567BC031C2A77287ACF7F2EC00AF
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_193996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193996.jpgsave_picture_193996.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ VPN Russia - VPN сервера в России 1.168 Mod by ANiK555 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193997.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193997.jpgsave_picture_193997.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ magnet:?xt=urn:btih:EF75684D27A032F08006014750166F88651E1E8C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193998.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193998.jpgsave_picture_193998.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ magnet:?xt=urn:btih:010A1C2CB1D84EE0F7F02087CC90A40F4CB041B3
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193999.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193999.jpgsave_picture_193999.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ VA - Music Therapy (2023) [MP3|320 Kbps] <Electronic, Lounge, Relax, Meditation>
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194000.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194000.jpgsave_picture_194000.jpg" />
 </div>
 
 

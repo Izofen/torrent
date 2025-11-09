@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198734.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198734.jpgsave_picture_198734.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:8D6E2B39C0D7DF4BC2000160D8F094354965C0F1
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198735.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198735.jpgsave_picture_198735.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:480BEB80BADA95A6AA85A7D739148E98F94DD4BD
 >>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198736.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198736.jpgsave_picture_198736.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:CF658BF1F7FB60A80325FA39AE43A87D84CE0C42
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198738.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198738.jpgsave_picture_198738.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ EaseUS Data Recovery Wizard Technician 16.0.2.0 RePack (& Portable) by Dodakaedr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198739.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198739.jpgsave_picture_198739.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ WifiInfoView 2.80 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198740.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198740.jpgsave_picture_198740.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:5854AF800F348C5530A50DB3DB1AFF077CE2A88A
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198741.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198741.jpgsave_picture_198741.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:F3DEC92BA70B078850DA14BD8DF1EB9C84C53EF2
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198742.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198742.jpgsave_picture_198742.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:954202D5EDBDF134B28F294D8E2CC62AAAF6957D
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198743.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198743.jpgsave_picture_198743.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ magnet:?xt=urn:btih:8F853EC99A98DF87DA3FB1FC64D4D1E951DB891D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198744.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198744.jpgsave_picture_198744.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:7430BBE9892990DA5DE42A806F19554547AF92E0
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198745.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198745.jpgsave_picture_198745.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:E6CFDA1C80924BD64F00DC9E8D03619A49486172
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198746.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198746.jpgsave_picture_198746.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ magnet:?xt=urn:btih:19483F4D4042FA5AFE01B38DD8217A3413A574B5
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198747.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198747.jpgsave_picture_198747.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ magnet:?xt=urn:btih:FB825BF1B76397E2330A8638B5D0DD58491193ED
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198748.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198748.jpgsave_picture_198748.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Udemy, Serge Lansiquot | Game Dev Math Ultimate guide to polishing your game! (2
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198749.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198749.jpgsave_picture_198749.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ magnet:?xt=urn:btih:83E532CDAAD1DE8DF81E47C191FC112169756686
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198750.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198750.jpgsave_picture_198750.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ magnet:?xt=urn:btih:2CD091B01A35292F304BE802BDF04CA101F1E7BE
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198751.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198751.jpgsave_picture_198751.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ magnet:?xt=urn:btih:55B921AF66F5D1C2712C64D50D9E445D5035F749
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198752.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198752.jpgsave_picture_198752.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ magnet:?xt=urn:btih:5DC2933BB347D5B6AB96533508A9D00D189CFDBD
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198753.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198753.jpgsave_picture_198753.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Edge Blocker Portable 1.8 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198755.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198755.jpgsave_picture_198755.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Cursed Mansion (2023) [En] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198757.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198757.jpgsave_picture_198757.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ magnet:?xt=urn:btih:E58B14142773CB0DE9874D90D82F3B0A4B107BC5
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198760.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198760.jpgsave_picture_198760.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ Kalacheva School, Вероника Калачева | Акварель 2.0 (2020
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198761.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198761.jpgsave_picture_198761.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ magnet:?xt=urn:btih:FEDE0EA265454D2C1FE93A14AE3AE1BD40DCBD60
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198765.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198765.jpgsave_picture_198765.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ magnet:?xt=urn:btih:C71EB6150E02505FE772FD719E4BCB3D0C62116A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198766.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198766.jpgsave_picture_198766.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ Aiseesoft FoneLab for Android 3.2.18 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198767.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198767.jpgsave_picture_198767.jpg" />
 </div>
 
 

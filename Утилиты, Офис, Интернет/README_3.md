@@ -6,7 +6,7 @@ Google Earth Pro 7.3.6.10441 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2237.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2237.jpgsave_picture_2237.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ By Click Downloader Premium 2.4.24 RePack (& Portable) by elchupacabra [Multi/Ru
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2326.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2326.jpgsave_picture_2326.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ IObit Driver Booster Pro 13.0.0.138  RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2329.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2329.jpgsave_picture_2329.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Auslogics Disk Defrag Pro 12.1.0.0 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2331.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2331.jpgsave_picture_2331.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Firefox Browser 143.0 Portable by PortableApps [Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2342.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2342.jpgsave_picture_2342.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Process Lasso Pro 16.0.2.10 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2343.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2343.jpgsave_picture_2343.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ By Click Downloader Premium 2.4.24 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2352.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2352.jpgsave_picture_2352.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Firefox Browser 143.0 [Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2359.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2359.jpgsave_picture_2359.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ MiniTool Partition Wizard 13.0 All Editions [Multi]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2364.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2364.jpgsave_picture_2364.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Hasleo Backup Suite 5.4.2.3 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2369.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2369.jpgsave_picture_2369.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Auslogics Windows Slimmer 5.1.0.0 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2372.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2372.jpgsave_picture_2372.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ AIDA64 Extreme | Engineer | Business Edition | Network Audit 8.00.8000 RePack (&
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2373.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2373.jpgsave_picture_2373.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ TweakNow WinSecret Plus! 7.2.0 [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2376.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2376.jpgsave_picture_2376.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ R-Studio Network / Technician 9.5 Build 191603 RePack (& Portable) by Dodakaedr 
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2378.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2378.jpgsave_picture_2378.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Auslogics BoostSpeed 14.1.0.0 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2379.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2379.jpgsave_picture_2379.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ MiniTool Partition Wizard All Editions 13.0 RePack (& Portable) by Dodakaedr [Mu
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2386.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2386.jpgsave_picture_2386.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ IObit Driver Booster Pro 13.0.0.138 Portable by 7997 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2397.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2397.jpgsave_picture_2397.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ ThisIsMyFile 4.44 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2402.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2402.jpgsave_picture_2402.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Auslogics SSD Optimizer 2.1.0.0 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2403.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2403.jpgsave_picture_2403.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ DVDFab 13.0.4.8 [Multi/Ru]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2478.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2478.jpgsave_picture_2478.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Q-Dir 12.34 + Portable [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2494.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2494.jpgsave_picture_2494.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ AOMEI Partition Assistant Technician Edition 10.9.0 Portable by 7997 [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2531.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2531.jpgsave_picture_2531.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ SoftMaker Office Professional 2024 rev. S1228.0906 RePack (& portable) by KpoJIu
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2550.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2550.jpgsave_picture_2550.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ SIV (System Information Viewer) 5.83 Portable [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2653.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2653.jpgsave_picture_2653.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Auslogics Driver Updater Pro 2.0.1.4 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2654.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2654.jpgsave_picture_2654.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Auslogics Registry Cleaner Pro 11.1.0.0 + Portable [Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2669.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2669.jpgsave_picture_2669.jpg" />
 </div>
 
 

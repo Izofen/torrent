@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2559.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2559.jpgsave_picture_2559.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2560.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2560.jpgsave_picture_2560.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:66991CE56701198A9D2A2E34DCD8D2955B4E7A68
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2561.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2561.jpgsave_picture_2561.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:6C1B72036CFDEA2948E783D11A368B9390848F36
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2562.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2562.jpgsave_picture_2562.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:6C1B72036CFDEA2948E783D11A368B9390848F36
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2563.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2563.jpgsave_picture_2563.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:D6F93C8E8092F1906BDC2A5650BED2E0528EC7BF
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2564.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2564.jpgsave_picture_2564.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Crusader Kings III (3) (2020) [Ru/Multi] (1.17.0.1/dlc) Repack Wanterlude [Royal
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2565.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2565.jpgsave_picture_2565.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:7340AD817FF7D9D85E64A6C175E3E4E80AA9C711
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2566.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2566.jpgsave_picture_2566.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:75EAC145674168DE5A694AA72128F933CC61752B
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2567.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2567.jpgsave_picture_2567.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ magnet:?xt=urn:btih:1900EE9ECCD70815FB56851F0F13E617F0BDCDD6
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2568.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2568.jpgsave_picture_2568.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Beyond Sunset (2023) [En] (1.0) License GOG
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2569.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2569.jpgsave_picture_2569.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ magnet:?xt=urn:btih:9807D5184403E2A3E2D558F24DC621D3AC984FD0
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2570.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2570.jpgsave_picture_2570.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ magnet:?xt=urn:btih:6D915AB44EC774837A243F507738EBDB01610727
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2571.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2571.jpgsave_picture_2571.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ magnet:?xt=urn:btih:68B6360E307B26F238A19EDEEC1343C512CE6DEB
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2572.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2572.jpgsave_picture_2572.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Cyberpunk 2077 (2020) [Ru/Multi] (2.31/dlc) Repack dixen18 [Ultimate Edition]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2573.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2573.jpgsave_picture_2573.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ Cyberpunk 2077 (2020) [Ru/En] (2.31/dlc) Repack Other s [Ultimate Edition]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2574.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2574.jpgsave_picture_2574.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ magnet:?xt=urn:btih:2A6E2E411EFF97EBD77B2A093071B2AC5E89CC37
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2575.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2575.jpgsave_picture_2575.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ MInstAll v.10.08.2025 By Andreyonohov (Unpacked) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2576.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2576.jpgsave_picture_2576.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ The Precinct (2025) [Ru/Multi] (1.9.19872) Repack Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2577.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2577.jpgsave_picture_2577.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Cubic Odyssey (2025) [Ru/Multi] (1.0.3.4) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2578.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2578.jpgsave_picture_2578.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ Grand Theft Auto V Enhanced (2025) [Ru/Multi] (Build 889.22 Online 1.71) Repack 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2579.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2579.jpgsave_picture_2579.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ magnet:?xt=urn:btih:27B3053FFB894BBDD8F7328E1C86491641C46433
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2580.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2580.jpgsave_picture_2580.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ magnet:?xt=urn:btih:27B3053FFB894BBDD8F7328E1C86491641C46433
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2581.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2581.jpgsave_picture_2581.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ magnet:?xt=urn:btih:C41357D715F9B8CFDE9D69D04F40918CFCF68B22
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2582.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2582.jpgsave_picture_2582.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Cyberpunk 2077 (2020) [Ru/Multi] (2.31/dlc) Repack Wanterlude [Ultimate Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2583.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2583.jpgsave_picture_2583.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ magnet:?xt=urn:btih:8CFFD6986D6C1397BC4A433A54414E3025B987D2
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2584.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2584.jpgsave_picture_2584.jpg" />
 </div>
 
 

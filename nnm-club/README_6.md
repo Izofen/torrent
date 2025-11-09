@@ -6,7 +6,7 @@
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_185.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_185.jpgsave_picture_185.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ S.T.A.L.K.E.R. 2: Heart of Chornobyl (2024) [Ru/Multi] (1.6/dlc) Repack Other s 
 >>9
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_186.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_186.jpgsave_picture_186.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ The Riftbreaker (2021) [Ru/Multi] (2.0.55174/dlc) License GOG
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_187.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_187.jpgsave_picture_187.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Apple Service Diagnostics (2005-2013) [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_188.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_188.jpgsave_picture_188.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:C45C18F110AA638709418471BF5979337F41DD3C
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_189.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_189.jpgsave_picture_189.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Alaloth: Champions of The Four Kingdoms (2022) [Ru/Multi] (2025.07.14.17f5b0a/dl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_190.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_190.jpgsave_picture_190.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:AF60B24A4B3DDA1D1ED78D78B3CB42FC22BDD9DD
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_191.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_191.jpgsave_picture_191.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:14143377009146092ED75CE165F54CCBA75EA34D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_192.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_192.jpgsave_picture_192.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ Palworld (2024) [Ru/Multi] (0.6.7.79736) Repack SE7EN [Early Access]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_193.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_193.jpgsave_picture_193.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ magnet:?xt=urn:btih:4C8656578274999AE4976DBD0FBEF22654963368
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_194.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_194.jpgsave_picture_194.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Palworld (2024) [Ru/Multi] (0.6.7.79736) Repack R.G. Alkad [Early Access]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_195.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_195.jpgsave_picture_195.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ magnet:?xt=urn:btih:161D2CC93F700A83593B223DC36701E8073302A4
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_196.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_196.jpgsave_picture_196.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Dying Light: The Beast (2025) [Ru/En] (1.2.2/dlc) Repack Other s [Deluxe Edition
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_197.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_197.jpgsave_picture_197.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ The Alters (2025) [Ru/Multi] (550832/dlc) License GOG [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_198.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_198.jpgsave_picture_198.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ magnet:?xt=urn:btih:3EE5BF83E8E39C2D00E423546EE0E6856624FB89
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_199.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_199.jpgsave_picture_199.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ magnet:?xt=urn:btih:7912C60CABE58908382BCB8F85C7C253A6465164
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_200.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_200.jpgsave_picture_200.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ New Arc Line (2024) [Ru/Multi] (0.250725) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_201.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_201.jpgsave_picture_201.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ magnet:?xt=urn:btih:C4E82D8AA0B7EA883FCC6C8BA77A976485591ADA
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_202.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_202.jpgsave_picture_202.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Warhammer 40,000: Dawn of War (2025) [Ru/Multi] (2.2.1.1) License GOG [Definitiv
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_203.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_203.jpgsave_picture_203.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ magnet:?xt=urn:btih:5277E19767B6F9774EA37A860C681EB575569DC8
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_204.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_204.jpgsave_picture_204.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ magnet:?xt=urn:btih:F6A433A80F514EB463435987F623B130D96F83D8
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_205.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_205.jpgsave_picture_205.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ MotoGP. Этап 17 из 22. Гран-при Японии. Гонка (28.09.202
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_206.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_206.jpgsave_picture_206.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ magnet:?xt=urn:btih:C1CD83D24E53031904C07C75CCD8E8D09C3FBE4D
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_207.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_207.jpgsave_picture_207.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ magnet:?xt=urn:btih:BFA23E81018E85084634F8216A61AEF3DA0278A8
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_208.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_208.jpgsave_picture_208.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Fish Hook Smile - Fish Hook Smile (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Ha
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_209.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_209.jpgsave_picture_209.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Bill Barber & The Holding Cell - Southern Redemption (2025) [FLAC 24/96|Lossless
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_210.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_210.jpgsave_picture_210.jpg" />
 </div>
 
 

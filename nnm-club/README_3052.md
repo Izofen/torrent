@@ -6,7 +6,7 @@
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96985.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96985.jpgsave_picture_96985.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:E313F8A77BCE5C7979C79A7D147787B8392BCE49
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96987.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96987.jpgsave_picture_96987.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ magnet:?xt=urn:btih:30068BC2D0BE5951BCCDFA8C617D53CD8FBA0A7A
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96988.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96988.jpgsave_picture_96988.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ John O'Callaghan - Unfold (The Remixes Extended Versions) (16.03.2012) [MP3|320 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96989.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96989.jpgsave_picture_96989.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ magnet:?xt=urn:btih:1202DB49905DE15449F189F868D49B87B80C4EFA
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96995.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96995.jpgsave_picture_96995.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ magnet:?xt=urn:btih:400B1B0D555C054C5F9BFB23DD8D81BFBA9C42E7
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96998.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96998.jpgsave_picture_96998.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ magnet:?xt=urn:btih:B45EAF3C7D4A643E46BFE8923F527734637BB82A
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96999.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96999.jpgsave_picture_96999.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ magnet:?xt=urn:btih:BCFB9959A1EB68A7F66BE399813AA599073BA5B9
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97001.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97001.jpgsave_picture_97001.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ magnet:?xt=urn:btih:88C5F457918B26A5E4C847C0A89E45D577F52957
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97002.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97002.jpgsave_picture_97002.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:8E8712398B969B301F4C95EEBDA435C7EE7B8A8F
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97005.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97005.jpgsave_picture_97005.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ VA - X 2010 Christian Rock Hits (2010) [MP3|258-310 кб/с]<Christian Rock, Har
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97008.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97008.jpgsave_picture_97008.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ Opera Diabolicus - 1614 (2012) [MP3|320 кб/с]<Symphonic Metal, Gothic Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97009.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97009.jpgsave_picture_97009.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ magnet:?xt=urn:btih:DF73442E1963F8C0E659E79C89DDC5D79829D1A7
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97012.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97012.jpgsave_picture_97012.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ magnet:?xt=urn:btih:C0BBFF7F9F5E6AC1C0A8F0BDAB3E7BF654B66C39
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97013.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97013.jpgsave_picture_97013.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ Small Town Terrors: Livingston (P) [En] 2012
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97014.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97014.jpgsave_picture_97014.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ magnet:?xt=urn:btih:1639BCBAC1D301480529F003C4381D4094D3D6E2
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97015.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97015.jpgsave_picture_97015.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ magnet:?xt=urn:btih:EAB3BD3EE6A7FD8F37E76875D2E69526909E03EF
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97017.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97017.jpgsave_picture_97017.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ Unheilig - Lichter der Stadt (Limited Deluxe Edition) (2012) [MP3|~245 кб/с (
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97018.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97018.jpgsave_picture_97018.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ magnet:?xt=urn:btih:39DDC51C872610B75BD48C4294AA88F05452E4AB
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97020.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97020.jpgsave_picture_97020.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ magnet:?xt=urn:btih:CD0122DD310C9FF11E1172F7784C77F3749FF7DF
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97021.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97021.jpgsave_picture_97021.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ VA - Turkish Hits. Жаркие хиты из Анталии (2008) [MP3|112 kbp
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97030.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97030.jpgsave_picture_97030.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ magnet:?xt=urn:btih:4E9A5FEEC5B0CAD2155877BA50A6C2C55E6177B1
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97031.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97031.jpgsave_picture_97031.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ magnet:?xt=urn:btih:1B44332276E868FCE0527A210744FFBE8467E005
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97036.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97036.jpgsave_picture_97036.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ magnet:?xt=urn:btih:960DF44D4171CE1CBC257B3852C5DBB62FEDDAE3
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97037.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97037.jpgsave_picture_97037.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ magnet:?xt=urn:btih:5F171DD0B4FE82FCDF050BEE7DFB7E852D546C57
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97039.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97039.jpgsave_picture_97039.jpg" />
 </div>
 
 
@@ -675,7 +675,7 @@ magnet:?xt=urn:btih:2425AE7D52AFF3F6AE2D0472BBC2FA676F25935A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97040.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97040.jpgsave_picture_97040.jpg" />
 </div>
 
 

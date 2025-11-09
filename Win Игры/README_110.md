@@ -6,7 +6,7 @@ Gestalt: Steam & Cinder (2024) [Ru/Multi] (1.0.9) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31394.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31394.jpgsave_picture_31394.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Discolored 2 (2025) [Ru/Multi] (1.0) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31404.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31404.jpgsave_picture_31404.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Per Aspera (2020) [Ru/Multi] (1.8.3.63441/dlc) Repack FitGirl [Deluxe Edition]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31409.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31409.jpgsave_picture_31409.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ My Summer Car (2016) [En] (241230-03) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31422.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31422.jpgsave_picture_31422.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Valhalla Path: Survival (2024) [Ru/Multi] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31428.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31428.jpgsave_picture_31428.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Gold Mining Simulator (2017) [Ru/Multi] (1.8.2.858/dlc) Repack Let'sРlay [Gold 
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31453.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31453.jpgsave_picture_31453.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Thank Goodness You're Here! (2024) [Ru/Multi] (1.6.1) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31493.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31493.jpgsave_picture_31493.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Mullet MadJack (2024) [Ru/Multi] (1.12) Repack Let'sРlay
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31500.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31500.jpgsave_picture_31500.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Warden's Will (2025) [Ru/Multi] (1.0.0c) Repack seleZen
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31512.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31512.jpgsave_picture_31512.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Only Up: Lizards Must Fall / Only Up: Восхождение Русов (2025) [
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31526.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31526.jpgsave_picture_31526.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Forever Skies (2023) [Ru/Multi] (1.7.1) Repack Wagner [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31527.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31527.jpgsave_picture_31527.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ ZERO Sievert (2024) [Ru/Multi] (1.0.10) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31528.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31528.jpgsave_picture_31528.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Red Solstice 2: Survivors (2021) [Ru/Multi] (3.16/dlc) Repack Wagner
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31554.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31554.jpgsave_picture_31554.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Cartier 06 (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31608.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31608.jpgsave_picture_31608.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Supraland Six Inches Under (2022) [Ru/Multi] (1.2.3349) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31614.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31614.jpgsave_picture_31614.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Rusted Moss (2023) [Ru/Multi] (1.76) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31616.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31616.jpgsave_picture_31616.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Touch Type Tale: Strategic Typing (2024) [Ru/Multi] (1.2.68) Repack FitGirl [Del
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31617.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31617.jpgsave_picture_31617.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Mystery of Myths: Heart of Athens / Тайна мифов: Сердце Афин
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31621.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31621.jpgsave_picture_31621.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ For The King II (2023) [Ru/Multi] (1.3.5) Repack Pioneer
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31624.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31624.jpgsave_picture_31624.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Nine Sols (2024) [Ru/Multi] (202501031718.687084df.0) Repack Wagner
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31627.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31627.jpgsave_picture_31627.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Toy Tactics (2023) [Ru/Multi] (1.1E) Repack FitGirl
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31638.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31638.jpgsave_picture_31638.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Grand Theft Auto V (5) (2015) [Ru/Multi] (1.0.3411.0/1.70) Repack dixen18
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31648.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31648.jpgsave_picture_31648.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Supraland (2019) [Ru/Multi] (1.23.7/dlc) Repack Let'sРlay [Complete Edition]
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31670.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31670.jpgsave_picture_31670.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Milo and the Magpies (2021) [Ru/Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31671.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31671.jpgsave_picture_31671.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Night Shift Nurses (2024) [Multi] (1.0.0/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31687.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31687.jpgsave_picture_31687.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Night Shift Nurses (2024) [Multi] (1.0.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31697.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31697.jpgsave_picture_31697.jpg" />
 </div>
 
 

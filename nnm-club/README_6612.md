@@ -6,7 +6,7 @@ JetBrains PyCharm Professional 2025.2.4 (x64-arm64) Repack by IFE`a [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212505.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212505.jpgsave_picture_212505.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:711A2B4A1EB5486FEB01BD5EDA7403D339A2A832
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212512.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212512.jpgsave_picture_212512.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ JetBrains PhpStorm 2025.2.4 (x64-arm64) Repack by IDE`a [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212514.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212514.jpgsave_picture_212514.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:6017B2C9AD8C93F56777BD7BA9281C43E3C9E79C
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_212516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_212516.jpgsave_picture_212516.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Remina - The Silver Sea (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Doom Metal
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212518.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212518.jpgsave_picture_212518.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ JetBrains GoLand 2025.2.4 (x64-arm64) Repack by IDE`a [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212521.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212521.jpgsave_picture_212521.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:56FC4381A564A4DFA318C29F93394FAA04A78DBB
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212523.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212523.jpgsave_picture_212523.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ magnet:?xt=urn:btih:820B6CEB97370364B0741E4EBC8BF03CE79B5739
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212525.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212525.jpgsave_picture_212525.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ Jetbrains IntelliJ IDEA Ultimate 2025.2.4 (x64-arm64) Repack by IDE`a [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212527.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212527.jpgsave_picture_212527.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ Ghost of Tsushima (2024) [Ru/Multi] (1053.8.1023.1614/dlc) Repack Let'sРlay [Di
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212529.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212529.jpgsave_picture_212529.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ Hollowbody (2024) [Ru/Multi] (2.1) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212531.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212531.jpgsave_picture_212531.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ magnet:?xt=urn:btih:6D3985C8880E4E3C3DC634DF5F24E743A85E73FA
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212533.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212533.jpgsave_picture_212533.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ magnet:?xt=urn:btih:D331E7CCFA1D7C45D01E8A36F8B08E4A8EF2B3D5
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212535.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212535.jpgsave_picture_212535.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ magnet:?xt=urn:btih:7CB2376BC270176941A53E3CB7F2C347BB2C3D81
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212537.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212537.jpgsave_picture_212537.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ magnet:?xt=urn:btih:30FA1979305D3E0F077B51EA041F9694A4E861C1
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212539.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212539.jpgsave_picture_212539.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ magnet:?xt=urn:btih:CA58C4CFFE96CF373141F771992D810E42E6E9D0
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212541.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212541.jpgsave_picture_212541.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Summer Pockets | Карманы лета [2025, TV, 26 эп.] WEBRip 1080p raw+r
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212543.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212543.jpgsave_picture_212543.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Happy Holidays 4: Trick or Treat / Счастливые праздники 4: К
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212545.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212545.jpgsave_picture_212545.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ magnet:?xt=urn:btih:81B9F6690DEB71E64476DF8FF9BBB709A796A424
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212547.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212547.jpgsave_picture_212547.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ magnet:?xt=urn:btih:74A03CA1DA0D47C40042AB5603DCE08C44931C91
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212554.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212554.jpgsave_picture_212554.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ magnet:?xt=urn:btih:441D6884DFEF9A5246C09DBD81D82699843847DD
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212556.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212556.jpgsave_picture_212556.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ Brahms - Piano Quartet No. 1 Op. 25 · Schumann - Fantasiestücke Op. 88 (Martha
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212559.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212559.jpgsave_picture_212559.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ magnet:?xt=urn:btih:E3C660166311E5563D4DABB66BFA0E8F67AA48B2
 >>Картинки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212561.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212561.jpgsave_picture_212561.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:4C9D4DA90B69FB908B1CABC1FD20596ABC98C5FF
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212563.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212563.jpgsave_picture_212563.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ magnet:?xt=urn:btih:E397A4F91EE4E59F8A284B62E3FB31EA877A176F
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_212566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_212566.jpgsave_picture_212566.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ magnet:?xt=urn:btih:43DEB6A003D63979AAAB8B06AFFDFE19D7296795
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_212568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_212568.jpgsave_picture_212568.jpg" />
 </div>
 
 

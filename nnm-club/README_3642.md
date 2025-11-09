@@ -6,7 +6,7 @@
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115067.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115067.jpgsave_picture_115067.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Windows 11 Manager 1.4.2 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115068.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115068.jpgsave_picture_115068.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:ED859CA3B4337915C316340EA5C078071273AAB2
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115069.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115069.jpgsave_picture_115069.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:E234A03CF2A25A075CBDFD148F175BA79DCA141F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115070.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115070.jpgsave_picture_115070.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ WinRAR 7.00 Final Portable by FC Portables [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115071.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115071.jpgsave_picture_115071.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:F73D34A72C0F23F15D0E38E31B70DFB608169C0D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115072.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115072.jpgsave_picture_115072.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:F73D34A72C0F23F15D0E38E31B70DFB608169C0D
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115073.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115073.jpgsave_picture_115073.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ R-Drive Image System Recovery Media Creator 7.2 Build 7200 RePack (& Portable) b
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115074.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115074.jpgsave_picture_115074.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:152DDC636B1B69725BD77E4D5888A0FB9675F4B4
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115075.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115075.jpgsave_picture_115075.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ AIDA64 Extreme Edition 7.00.6751 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115076.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115076.jpgsave_picture_115076.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Reg Organizer 9.40 (24.02.2024) RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115077.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115077.jpgsave_picture_115077.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ magnet:?xt=urn:btih:4B200A1A2FAB95F5F4D48E68D52C9BDF3DDF8ACA
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115078.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115078.jpgsave_picture_115078.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ magnet:?xt=urn:btih:C33DD5F0F1F392A4FD2B10EEFAF111CF5765526A
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115079.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115079.jpgsave_picture_115079.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ magnet:?xt=urn:btih:FDAF07EB3127A096CE7A25D5DF33E80E2E68725A
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115080.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115080.jpgsave_picture_115080.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ magnet:?xt=urn:btih:8029B7546E3B64D99F3FB9675EB5EC2794C5F065
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115081.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115081.jpgsave_picture_115081.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ Topaz Gigapixel AI 7.0.3 (x64) RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115082.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115082.jpgsave_picture_115082.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ magnet:?xt=urn:btih:3B19CC5AE490504B87AE05E158DFEE6813D3F858
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115083.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115083.jpgsave_picture_115083.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ magnet:?xt=urn:btih:327BBC9605B086938A8BC3854B5D5163C56F7D90
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115084.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115084.jpgsave_picture_115084.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ magnet:?xt=urn:btih:7870A051F30AA1F8171461B898FBB5F1833BC2DF
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115085.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115085.jpgsave_picture_115085.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ ONLYOFFICE 8.0.1.31 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115086.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115086.jpgsave_picture_115086.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ AIMP 5.30 Build 2540 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115087.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115087.jpgsave_picture_115087.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ magnet:?xt=urn:btih:B1CC6E4F46A5A2AD0E5FC1E4843712FAF058B2A9
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115088.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115088.jpgsave_picture_115088.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ AIMP 5.30 Build 2540 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115089.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115089.jpgsave_picture_115089.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ magnet:?xt=urn:btih:45D485E34F1198E90AF74E0817D846ED7D567D10
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115090.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115090.jpgsave_picture_115090.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Song of Nunu: A League of Legends Story (2023) [Ru/Multi] (20231130) Scene Tenok
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115091.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115091.jpgsave_picture_115091.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ magnet:?xt=urn:btih:6EE70EB001242D907E72476F4AFAF1D6D207F22C
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115092.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115092.jpgsave_picture_115092.jpg" />
 </div>
 
 

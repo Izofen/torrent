@@ -6,7 +6,7 @@
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170141.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170141.jpgsave_picture_170141.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:DDFA3F2AF1BE6014BDEDB2868E90C936AEED3FAF
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170142.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170142.jpgsave_picture_170142.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Nirvana - In Utero (1993) 2xCD, Remastered, 2023, UMe [FLAC|Lossless|tracks + .c
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170143.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170143.jpgsave_picture_170143.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ Firefox Browser ESR 91.4.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170144.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170144.jpgsave_picture_170144.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:4177D111EE6D86CD840A37B7C376056751EB88DF
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170145.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170145.jpgsave_picture_170145.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ VA - Top 100 Best Bass House '19 (Part 1) (2019) [MP3|320 Kbps] <House, Future H
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170146.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170146.jpgsave_picture_170146.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ magnet:?xt=urn:btih:88D945CB6E2705959E617E9695E2BEC2DC756BAC
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170147.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170147.jpgsave_picture_170147.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ magnet:?xt=urn:btih:34AB57B4656471B4CB6D88D5656D9B13BEE27EC7
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170148.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170148.jpgsave_picture_170148.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ magnet:?xt=urn:btih:36565A73A6AEF66D238FC3B7934295F488174A00
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170149.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170149.jpgsave_picture_170149.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ magnet:?xt=urn:btih:277E14E2A446B40FEDA8175FC48107B3FB10F88C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170150.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170150.jpgsave_picture_170150.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ SamDrivers 21.11 LAN [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170152.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170152.jpgsave_picture_170152.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ magnet:?xt=urn:btih:561449080D0885A816488AC138DE30CC06BD0D3F
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170153.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170153.jpgsave_picture_170153.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Death - Scream Bloody Gore (1987) Reissue, 2001, Century Media [FLAC|24/96|track
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170154.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170154.jpgsave_picture_170154.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ magnet:?xt=urn:btih:41B402F6EDBEF9690352F641D849EA0611D83AAF
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170155.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170155.jpgsave_picture_170155.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ magnet:?xt=urn:btih:3D98F2F9C7A56B6C24037183C0D1FB520F8F66A8
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170156.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170156.jpgsave_picture_170156.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ magnet:?xt=urn:btih:E0033A6F2596138C652A033DA2AB45F8BD58765B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170157.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170157.jpgsave_picture_170157.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Red Reign - Don't Look Back (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Hea
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170158.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170158.jpgsave_picture_170158.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ magnet:?xt=urn:btih:3799456312CC2CDA98691986C084F923437A30A1
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170159.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170159.jpgsave_picture_170159.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ magnet:?xt=urn:btih:793876FF1E4CBC8846D55DEB76EEBDACC050CAC8
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170160.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170160.jpgsave_picture_170160.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ magnet:?xt=urn:btih:0CE66F5B5FB903BBA40D161E9E7369869EE0BD24
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170161.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170161.jpgsave_picture_170161.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ magnet:?xt=urn:btih:24D6C4A27ACBF6897707BD2544EC9CC3213AC871
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170162.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170162.jpgsave_picture_170162.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ VA - Ballads for a Broken Heart (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock,
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170163.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170163.jpgsave_picture_170163.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ magnet:?xt=urn:btih:3EDAB8C279D294113025F7610BEEA5A5802E3836
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170164.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170164.jpgsave_picture_170164.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ Adobe Acrobat Reader DC 2019.021.20058 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170165.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170165.jpgsave_picture_170165.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ magnet:?xt=urn:btih:901959576EFEA6FDD4A5F6229956A8E54EAB469A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170166.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170166.jpgsave_picture_170166.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ Reg Organizer 9.01 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170167.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170167.jpgsave_picture_170167.jpg" />
 </div>
 
 

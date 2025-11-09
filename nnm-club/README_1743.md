@@ -6,7 +6,7 @@ LightRay (2024) [En] (1.0) Scene Tenoke
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45675.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45675.jpgsave_picture_45675.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:C5C4321F1A47DEBDB59D34182B5F63E3AADDB693
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45676.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45676.jpgsave_picture_45676.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:A3AA25681FB047CAABA492BA8EE9579E04C7DBE9
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45677.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45677.jpgsave_picture_45677.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:4DE710ADAD35FC198727E1C74E50D27DB9267325
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45678.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45678.jpgsave_picture_45678.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:84A96E6A0678C6AB44D8768ED8A916AC941532AE
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45679.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45679.jpgsave_picture_45679.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:B6B2B71F34321E2FF859357B400562B0FF2E4FA1
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45680.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45680.jpgsave_picture_45680.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:DD08A2D6C6DD5E44F7A01C6BCE764F53CBCC2B6B
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45681.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45681.jpgsave_picture_45681.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:7A51D5F886788F643102AE5C33C987B932F7AEB4
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45682.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45682.jpgsave_picture_45682.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Can't Revert (2024) [Ru/Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45683.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45683.jpgsave_picture_45683.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:AD8C5445DCC3B28106665F709987F8621C40CDD1
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45684.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45684.jpgsave_picture_45684.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:285268945A18C437AE56C414F51B896F00256789
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45685.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45685.jpgsave_picture_45685.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ ViewBox v1.8.11 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45686.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45686.jpgsave_picture_45686.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ KMPlayer 4.2.3.16 Plus (x86) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45687.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45687.jpgsave_picture_45687.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ StartAllBack 3.8.6 StartIsBack++ 2.9.20 (2.9.1 for 1607) StartIsBack+ 1.7.6 Star
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45688.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45688.jpgsave_picture_45688.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ magnet:?xt=urn:btih:011CCE996FAEA78E4DA048215B94D69E286E54C0
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45689.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45689.jpgsave_picture_45689.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ magnet:?xt=urn:btih:2AC922DA0F2026203D79CD52FA9620352C14943C
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45690.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45690.jpgsave_picture_45690.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ Lycoris Recoil | LycoReco | Ликорис Рикойл [2022, TV, 13 из 13] B
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45691.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45691.jpgsave_picture_45691.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ MetaProducts Offline Explorer Enterprise 8.6.4984 RePack (& Portable) by TryRooM
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45692.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45692.jpgsave_picture_45692.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ qBittorrent 4.6.6 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45693.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45693.jpgsave_picture_45693.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ magnet:?xt=urn:btih:CAFE908DA192B3B2720755D0CA48E1E9BAC0D0D3
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45694.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45694.jpgsave_picture_45694.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Cavalry Girls (2023) [Multi] (1.1.1715/dlc) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45695.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45695.jpgsave_picture_45695.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ magnet:?xt=urn:btih:E0188C966C560D93BB691A96CCB35C6A0143DB07
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45696.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45696.jpgsave_picture_45696.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ magnet:?xt=urn:btih:102CBED0983C069DC0E25EEEA3FA6DADA7972F1B
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45697.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45697.jpgsave_picture_45697.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ magnet:?xt=urn:btih:042F9DA23E7B3C78E9F5F27E22D0556914156789
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45698.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45698.jpgsave_picture_45698.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ magnet:?xt=urn:btih:BB821303BE2E344F6F477F7B63A2F1D6DF0D9BC1
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45699.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45699.jpgsave_picture_45699.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Far Manager  3.0.6364 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45700.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45700.jpgsave_picture_45700.jpg" />
 </div>
 
 

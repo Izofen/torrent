@@ -6,7 +6,7 @@ VA - Ferry Corsten - Corsten’s Countdown - December (2016) [MP3|320 Kbps] <Tra
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147055.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147055.jpgsave_picture_147055.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:A555270BDF12F21C4B05D7C08BFF90EF5CEB8CE9
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147056.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147056.jpgsave_picture_147056.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Franco Cerri and His European Jazz Stars (1959) Remaster, 2009, DIW Records[FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147059.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147059.jpgsave_picture_147059.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:9E145FE4C7B457D836C9296E439D8FF3E49FE332
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147060.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147060.jpgsave_picture_147060.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Winter 2020 Anime Preview | Зима 2020 Превью Аниме [2020, Обз�
 >>Аниме прочее
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147061.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147061.jpgsave_picture_147061.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ Hetman NTFS Recovery 2.4 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147062.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147062.jpgsave_picture_147062.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ magnet:?xt=urn:btih:F597B4B5A4470B23DFDC76A240FFC559BA85C826
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147063.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147063.jpgsave_picture_147063.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:C1D9CEE264190DD7B200369AAAB9ED08E95A8F90
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147064.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147064.jpgsave_picture_147064.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:F516D4678A31F6E52E5FDFEAD698753A89888A89
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147065.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147065.jpgsave_picture_147065.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ Terence Blanchard - The Malcolm X Jazz Suite (1993) Columbia[FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147066.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147066.jpgsave_picture_147066.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ The Rein De Graaff Trio with Conte Candoli & Bob Cooper - Thinking Of You (1993)
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147067.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147067.jpgsave_picture_147067.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ magnet:?xt=urn:btih:E8D9E7D09858A2EDED2830B644329FB6F096E625
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147068.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147068.jpgsave_picture_147068.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ magnet:?xt=urn:btih:59AE63CE54C416BC57064EA38C69F0CF2CB3291B
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147069.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147069.jpgsave_picture_147069.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ WinTools.net Premium 20.0.0 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147070.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147070.jpgsave_picture_147070.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ magnet:?xt=urn:btih:C520D8ED532799B1751EC62AF73194C9226E7579
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147072.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147072.jpgsave_picture_147072.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ magnet:?xt=urn:btih:4FD31DCCE610ABB1DEF63A2B7332B4816DC35734
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147073.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147073.jpgsave_picture_147073.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ Johnny Cash - More Cash (2018) [MP3|320 Kbps] <Country>
 >>Folk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147074.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147074.jpgsave_picture_147074.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ magnet:?xt=urn:btih:A0D277BC42D1B0CB2DEE0CE7E0B7AA98AB595668
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147075.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147075.jpgsave_picture_147075.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ magnet:?xt=urn:btih:72167DCEEADB60DC21444155AD86032A7E4E6265
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147076.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147076.jpgsave_picture_147076.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Hetman Uneraser 3.7 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147078.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147078.jpgsave_picture_147078.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ magnet:?xt=urn:btih:858670C9219739C27FEE1C752BCFC8D9DF1383FD
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147079.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147079.jpgsave_picture_147079.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ magnet:?xt=urn:btih:74F5B90219FD29F38D0B0FD425D931BD9B71180A
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147081.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147081.jpgsave_picture_147081.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ magnet:?xt=urn:btih:594319D3BDC6399BC26980E76A9AF1A8AF85DE55
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147082.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147082.jpgsave_picture_147082.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ VA - HarDD NRG OverDoZZe 3 (2021) Mixed by aQuaLuna [MP3|320 Kbps] <Trance, Hard
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147083.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147083.jpgsave_picture_147083.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ magnet:?xt=urn:btih:6E7827785C2065EF634E1C8D5384E5D0E14AAFC1
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147084.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147084.jpgsave_picture_147084.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ Udemy, Bogdan Stashchuk | Полное руководство по Git: пойм
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147085.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147085.jpgsave_picture_147085.jpg" />
 </div>
 
 

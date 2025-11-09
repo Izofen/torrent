@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85534.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85534.jpgsave_picture_85534.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:6D45C07E158E168F8E02BF537AB03D2B2C33C306
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85535.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85535.jpgsave_picture_85535.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:65630DD60487043E96808468543E0245AE01A7BD
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85537.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85537.jpgsave_picture_85537.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:869E7A4AE0269D156A34EA01200C5B3EF37A66CC
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85538.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85538.jpgsave_picture_85538.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Sandra - My Favourites [2CD] (1999) [FLAC|Lossless]<Synth-Pop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85539.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85539.jpgsave_picture_85539.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ CD 1: ''Remixes'' (00:47:56)
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85542.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85542.jpgsave_picture_85542.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ magnet:?xt=urn:btih:6699E23C78B0DAF47A8E8CBAE517BC924E044FCC
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85543.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85543.jpgsave_picture_85543.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ Daum PotPlayer 1.5.32007 [x86-x64] [Rus] [сборка 7sh3 от 30.03.2012]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85544.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85544.jpgsave_picture_85544.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ VA - Gold Arabian Hits (2012) [MP3|256 кб/с]<Pop>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85546.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85546.jpgsave_picture_85546.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ magnet:?xt=urn:btih:CC35722807360FD97648BD11161A4AB7B1902BAD
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85550.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85550.jpgsave_picture_85550.jpg" />
 </div>
 
 
@@ -265,7 +265,7 @@ magnet:?xt=urn:btih:CC35722807360FD97648BD11161A4AB7B1902BAD
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85552.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85552.jpgsave_picture_85552.jpg" />
 </div>
 
 
@@ -289,7 +289,7 @@ magnet:?xt=urn:btih:AF619028E35A736694CA22B49596BF6054883180
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85554.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85554.jpgsave_picture_85554.jpg" />
 </div>
 
 
@@ -315,7 +315,7 @@ magnet:?xt=urn:btih:40E4510D869777EC7E215E31F48632478794E0A4
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85555.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85555.jpgsave_picture_85555.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ magnet:?xt=urn:btih:7139303D63F6C06D99794BD8A38368F79774E76A
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85556.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85556.jpgsave_picture_85556.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:CA2868C7D51B72FDE63DCCF7DFDFCA61796E8FED
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85557.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85557.jpgsave_picture_85557.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ magnet:?xt=urn:btih:B4C63E352BD693F897A2995F4CA453E5227B6D74
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85558.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85558.jpgsave_picture_85558.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ Ace Hood - Starvation (2012) [MP3|320 кб/с]<Southern Rap>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85559.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85559.jpgsave_picture_85559.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ magnet:?xt=urn:btih:D917089D59474C1C4C00EE4E7EADF2FBF16CFB6D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85560.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85560.jpgsave_picture_85560.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ VA - L.O.V.E. (LOVE) volume 1 - 5 [Chillout Music Collection] (2012) [MP3|320 к
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85561.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85561.jpgsave_picture_85561.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ VA - L.O.V.E. (LOVE) volume 1 - 5 [Chillout Music Collection] (2012) [MP3|320 к
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85562.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85562.jpgsave_picture_85562.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ magnet:?xt=urn:btih:982AFCCA02BEECE2727778CA8923DDED3F6585D7
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85563.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85563.jpgsave_picture_85563.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ magnet:?xt=urn:btih:A70053F3ECD601982EA2ED945F3DB936AA756633
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85565.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85565.jpgsave_picture_85565.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ magnet:?xt=urn:btih:FEC6375AAEB311CDE41F8DEA7CC9FEAFD30A844C
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85566.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85566.jpgsave_picture_85566.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Hatsune Miku Live Party 2011 (Mikupa) / Хацунэ Мику живой кон�
 >>Аниме прочее
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85567.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85567.jpgsave_picture_85567.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Gemini Rue / Gemini Rue: Заговор на Барракусе [En] (P) 2011
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85568.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85568.jpgsave_picture_85568.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ magnet:?xt=urn:btih:5BD9371CFD84479BD375C454BF16DE4ECDD3E3D8
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85569.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85569.jpgsave_picture_85569.jpg" />
 </div>
 
 

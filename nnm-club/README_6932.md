@@ -6,7 +6,7 @@ Dieth - To Hell and Back (2023) [MP3|320 Kbps] <Death, Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238031.jpgsave_picture_238031.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:BC5F175E585047347123704E2C131AD6DD1440BC
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238032.jpgsave_picture_238032.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Thundergoat - A Western Galactic Space Odyssey: The Beginning (2023) [FLAC|Lossl
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238033.jpgsave_picture_238033.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ No Faith in Fortune - Dysthymia (2022) [FLAC|Lossless|WEB-DL|tracks] <Metalcore,
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238034.jpgsave_picture_238034.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Screenium 3 v3.2.16 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238035.jpgsave_picture_238035.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ magnet:?xt=urn:btih:FC9D92883EF21133F23178755C5675C60BBCBC25
 >>Native *Nix Games
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238036.jpgsave_picture_238036.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ Victor Smolski - Guitar Force (2023) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238037.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238037.jpgsave_picture_238037.jpg" />
 </div>
 
 
@@ -187,7 +187,7 @@ Heart Through Sacrifice - Heart Through Sacrifice (2021) [FLAC|Lossless|WEB-DL|t
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238038.jpgsave_picture_238038.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ FinePrint 11.36 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238039.jpgsave_picture_238039.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Noel Gallagher's High Flying Birds - Council Skies (Deluxe) (2023) [FLAC 24/44.1
 >>Alternative, Punk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238040.jpgsave_picture_238040.jpg" />
 </div>
 
 
@@ -265,7 +265,7 @@ Vaultwraith - Death Is Proof of Satan's Power (2017) [FLAC|Lossless|WEB-DL|track
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238041.jpgsave_picture_238041.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Runelord - A Message From The Past (2018) [FLAC|Lossless|image + .cue] <Heavy Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238042.jpgsave_picture_238042.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ magnet:?xt=urn:btih:A17867EB103C16DB3D36351BF233547638EE0CC6
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238043.jpgsave_picture_238043.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ MSI Kombustor 4.1.23.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238044.jpgsave_picture_238044.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ magnet:?xt=urn:btih:4CAEABAFB1A762F275127BD243358E2C45038BC3
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238045.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238045.jpgsave_picture_238045.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ Boxy SVG 3  v3.61.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238046.jpgsave_picture_238046.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ magnet:?xt=urn:btih:2AB089EB07C32BA874F8ABA12FACEB74F069DD1A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238047.jpgsave_picture_238047.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ magnet:?xt=urn:btih:D30889F6F9D5433384E7A56702373D1B6DC9484F
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238048.jpgsave_picture_238048.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Yate 6.3.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238049.jpgsave_picture_238049.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Witche’s Brew - Chronicles of Electric Sorcery (2022) [FLAC|Lossless|WEB-DL|tr
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238050.jpgsave_picture_238050.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ magnet:?xt=urn:btih:766609794DE66DDD969FD6407B86CD4A730EBDC6
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238051.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238051.jpgsave_picture_238051.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ magnet:?xt=urn:btih:FB97EE60A9317843D74489F661A87F0201CBD679
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238052.jpgsave_picture_238052.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ IObit Driver Booster Pro 10.4.0.127 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238053.jpgsave_picture_238053.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ magnet:?xt=urn:btih:3704509161E613C9E18577BAC2506BEE6142D063
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238054.jpgsave_picture_238054.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ magnet:?xt=urn:btih:DF75F3A6FED90238107B2F72EEF713CF3B4BD04B
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238055.jpgsave_picture_238055.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ Wise Program Uninstaller 3.1.3.255 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238056.jpgsave_picture_238056.jpg" />
 </div>
 
 

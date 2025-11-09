@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114911.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114911.jpgsave_picture_114911.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:C652442198621F8D406304FBF4B8F5AB59277D90
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114912.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114912.jpgsave_picture_114912.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:53F240FD0CB74BBBA2D09E6FA89DC2EA563388CD
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114913.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114913.jpgsave_picture_114913.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:386101A2B3B7DEE86EE40B15BACCD3401012DF50
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114914.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114914.jpgsave_picture_114914.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:D16C8B8C1D35D3FF1C14BE9D4F4F0F3F23055625
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114915.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114915.jpgsave_picture_114915.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Slave Zero X (2024) [Ru/Multi] (1.00) Repack FitGirl [Digital Deluxe Edition]
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114916.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114916.jpgsave_picture_114916.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:C2391D0DADD31606D3B20FB1AC7252A4542E3C7C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114917.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114917.jpgsave_picture_114917.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:D4CBB8627716C3CCE6233A808FCC1DE496057103
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114918.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114918.jpgsave_picture_114918.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:2D74285E93CA045B6E6D2A347796D3C01EFC4183
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114919.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114919.jpgsave_picture_114919.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:654F16AA0923929F2626057744027B41AA3FC3DF
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114920.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114920.jpgsave_picture_114920.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:76BFFFEB3427A8C910FB8A81BB95AB9B65086F2E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114921.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114921.jpgsave_picture_114921.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:4B857CD887CD50DF970C9C7DFAE79FB8831A431D
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114922.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114922.jpgsave_picture_114922.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:A676B78892D6C8C6A01129B27F00B4DABED5A52E
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114923.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114923.jpgsave_picture_114923.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ magnet:?xt=urn:btih:B386079BF90CD0B5DFC803902505B7F6CFED6F1E
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114924.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114924.jpgsave_picture_114924.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ magnet:?xt=urn:btih:40B4FCF8E882078D53FE2169A90F93584A8D6AAC
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114925.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114925.jpgsave_picture_114925.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ magnet:?xt=urn:btih:9A0A7EFA21A6CF50D34882548EC11A065B17C062
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114926.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114926.jpgsave_picture_114926.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ The Bat! Professional 11.0.4.6 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114927.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114927.jpgsave_picture_114927.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ STAR WARS: Dark Forces Remaster (2024) [Multi] (1.0) Repack FitGirl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114928.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114928.jpgsave_picture_114928.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ magnet:?xt=urn:btih:DEC27076A224EBDCC3A9CD70AD3BEE88A2034F3A
 >>Универ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114929.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114929.jpgsave_picture_114929.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ magnet:?xt=urn:btih:E2231A4955BEE0BB97325971A31A2102E05F8F37
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114930.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114930.jpgsave_picture_114930.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ magnet:?xt=urn:btih:1F778B45A8FFBCE12BAE93BD04FD32213E64F97E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114931.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114931.jpgsave_picture_114931.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ magnet:?xt=urn:btih:03302C3CCA21B53C19038224388635629272A454
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114932.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114932.jpgsave_picture_114932.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ magnet:?xt=urn:btih:688776150F29BAD0DD7FBC29669605DD3D708932
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114933.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114933.jpgsave_picture_114933.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Ad Infinitum (2023) [Ru/Multi] (1.0.8.271534/dlc) Repack Other s [Supporter Edit
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114934.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114934.jpgsave_picture_114934.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Paul Rodgers & Projects: The Firm, The Law - 15 Albums, 1 EP (1983 - 2023) 21 CD
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114935.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114935.jpgsave_picture_114935.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ magnet:?xt=urn:btih:9BF02E3AF0D161D8CFEE44F6DAFF0071F1329798
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114936.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114936.jpgsave_picture_114936.jpg" />
 </div>
 
 

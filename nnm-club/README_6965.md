@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239143.jpgsave_picture_239143.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:7C99A5F4A0A3516D334C2D5CD58ADB2E970012B7
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239144.jpgsave_picture_239144.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Find Any File (FAF) 2.3.b1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239145.jpgsave_picture_239145.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ Topaz Video AI 3.2.7 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239146.jpgsave_picture_239146.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:634BF32FA378F5433BC19EC4E743DB04D41E2DA2
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239148.jpgsave_picture_239148.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ RTG. Птицы Юго-Запада Сибири (2012) HDTV [H.264/1080i]
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239149.jpgsave_picture_239149.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:956DF808376417876ECE39D474646EA5B40B1AB3
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239151.jpgsave_picture_239151.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ Filmage Converter-ConvertVideo 1.0.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239152.jpgsave_picture_239152.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:73F0BE39477E14C735F11F50FA3C0CEC08271433
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239153.jpgsave_picture_239153.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ magnet:?xt=urn:btih:8478D40AEFC60F5CE3955FAC93CB97CBE82BBF1D
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239155.jpgsave_picture_239155.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:41E5F56C32DCE0A7CC1AA5D5FCBE08770B004B48
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239156.jpgsave_picture_239156.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ DxO ViewPoint 4 v4.7.0 (build 222) [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_239157.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_239157.jpgsave_picture_239157.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ magnet:?xt=urn:btih:698F577BD80DCEBE477D1FD336CE77F428C5AA3C
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239158.jpgsave_picture_239158.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Mic Drop 1.3.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239159.jpgsave_picture_239159.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ magnet:?xt=urn:btih:E58AD84A1D9CF6D579825AE67D6418B1DD367804
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239160.jpgsave_picture_239160.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ magnet:?xt=urn:btih:11F066BF10D7D8A590C6008A7007FF99C21C6E53
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239162.jpgsave_picture_239162.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ magnet:?xt=urn:btih:8B889F809F85F9BC8425499F566CA82E3E912EC0
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239163.jpgsave_picture_239163.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ magnet:?xt=urn:btih:B8937E9CD1E294FCD82C29F42329727AC8B8E36E
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239165.jpgsave_picture_239165.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ Strawbs - Prognostic (2014) [FLAC|Lossless|tracks + .cue]<Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239166.jpgsave_picture_239166.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ FotoJet Photo Editor 1.0.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239167.jpgsave_picture_239167.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ magnet:?xt=urn:btih:10D2D3B155B9A697FB69E588B8DDC5BB6DABBCC1
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239168.jpgsave_picture_239168.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ magnet:?xt=urn:btih:65EB14C29C904E7C06E53EBC10D97F852FAF017A
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239169.jpgsave_picture_239169.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ magnet:?xt=urn:btih:991C2FFC7326B63D2CD29B8F2F3808C6038A9D4A
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239172.jpgsave_picture_239172.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ magnet:?xt=urn:btih:074DAC06DC470CB27895762E87FCA2FB29D9999E
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239174.jpgsave_picture_239174.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ magnet:?xt=urn:btih:32301255B13DA9FDF56B6E6807D0B003219651FD
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239175.jpgsave_picture_239175.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ magnet:?xt=urn:btih:82DCDFDC134CBEFF49FC094073028EEAFE395EF4
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239176.jpgsave_picture_239176.jpg" />
 </div>
 
 

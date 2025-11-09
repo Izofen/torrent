@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_231251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231251.jpgsave_picture_231251.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ NIUBI Partition Editor 9.7.0 Technician Edition Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231253.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231253.jpgsave_picture_231253.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ XnViewMP 1.5.1 (x64) + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231254.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231254.jpgsave_picture_231254.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ FontLab 8 v.8.2.0.8533 beta [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231255.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231255.jpgsave_picture_231255.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:3AEAE02B4BF97A90F7916DB1F3CB01381A4C761F
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_231256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231256.jpgsave_picture_231256.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ Microsoft PowerToys 0.70.1 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_231259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231259.jpgsave_picture_231259.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ Keysight EMPro 2023 Update 0.1 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231260.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231260.jpgsave_picture_231260.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ VA - Blues Rock Compilation Part 22 (2023) [MP3|320 Kbps] <Blues Rock>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_231261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231261.jpgsave_picture_231261.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ King’s X - In The New Age The Atlantic Recordings 1988-1995 (2023) [MP3|320 Kb
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231262.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231262.jpgsave_picture_231262.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ Exelerate - Exelerate (2023) [MP3|320 Kbps] <Power, Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231264.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231264.jpgsave_picture_231264.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ Wondershare UniConverter Ultimate 14.1.19.209 (х64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_231265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231265.jpgsave_picture_231265.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ MediaHuman YouTube Downloader 3.9.9.84 (2007) RePack (& Portable) by TryRooM [Mu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231266.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231266.jpgsave_picture_231266.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ Zardonic - Superstars (2023) [MP3|320 Kbps] <Industrial Rock, Drum & Bass, Elect
 >>Dubstep, Future Garage, Bass Music, UK Garage
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231267.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231267.jpgsave_picture_231267.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ Aiseesoft Video Converter Ultimate 10.7.16 RePack (& Portable) by TryRooM [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_231269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231269.jpgsave_picture_231269.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ Carnal Agony - Back from the Grave (2020) [FLAC|Lossless|image + .cue] <Power, T
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231270.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231270.jpgsave_picture_231270.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ OmniReader Pro for Mac 2.3.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231271.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231271.jpgsave_picture_231271.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ WhyNotWin11 2.5.0.5 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_231273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231273.jpgsave_picture_231273.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ magnet:?xt=urn:btih:09554BC20C75D5E254A1F175EA6BF1F3A949479A
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_231275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231275.jpgsave_picture_231275.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ FinePrint 11.40 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231276.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231276.jpgsave_picture_231276.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ Bang - Another Me (2023) [MP3|320 kbps] <Psychedelic Hard Rock, Heavy Metal>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231277.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231277.jpgsave_picture_231277.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Exelerate - EO (2014) EP [MP3|320 Kbps] <Power, Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231278.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231278.jpgsave_picture_231278.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ magnet:?xt=urn:btih:26E821794E051C7BCA83C7D38259413BC190BDDC
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231279.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231279.jpgsave_picture_231279.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Dohan Ibrahim | Circuit Simulation with TINA Design Suite and TINACloud (2022) [
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_231281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231281.jpgsave_picture_231281.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ magnet:?xt=urn:btih:3AA90762E8C4E2B98F7B9E7892E596EE4944ABDB
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231282.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231282.jpgsave_picture_231282.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ The Contortionist - Retrospective Live From Atlanta (2023) 3CD Box Set [MP3|320 
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231283.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231283.jpgsave_picture_231283.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ False Memories - Live Until the Twiligh (2022) [FLAC|Lossless|WEB-DL|tracks] <Go
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231284.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231284.jpgsave_picture_231284.jpg" />
 </div>
 
 

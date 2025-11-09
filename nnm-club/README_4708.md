@@ -6,7 +6,7 @@
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147362.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147362.jpgsave_picture_147362.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:0BB0C7011749A36CD48D5832651B34D0C6720D17
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147364.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147364.jpgsave_picture_147364.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:74F45DC91F902906E8439F50EDD6215D1DD73A4F
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147365.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147365.jpgsave_picture_147365.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:0AA51FF0ED80666EA665575E3BFB55EA44380431
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147366.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147366.jpgsave_picture_147366.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ VA - Space Holidays Vol. 10 (2018) 3CD [MP3|320 Kbps] <Spacesynth, Synth-pop>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147367.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147367.jpgsave_picture_147367.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:5CCE7F4F6A86F82C450CD4E9EB00A23AFFB405A7
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147368.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147368.jpgsave_picture_147368.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Greatercommons, Todd McLeod | Веб-разработка на языке про
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147369.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147369.jpgsave_picture_147369.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - Orbit O (2019) [AAC|~330 Kbps] <Deep House, Downtempo, Progressive House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147370.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147370.jpgsave_picture_147370.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ Vince Clarke - Songs of Silence (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Ambi
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147371.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147371.jpgsave_picture_147371.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ magnet:?xt=urn:btih:3071FF1AC03B0EA5A0500F467CDC5C1A9F8B7CEB
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147373.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147373.jpgsave_picture_147373.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ magnet:?xt=urn:btih:3C67896C3E06CFEC00F1177212B63FC15602EF07
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147374.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147374.jpgsave_picture_147374.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ Kinza Browser 5.2.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147375.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147375.jpgsave_picture_147375.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ Hetman Office Recovery 2.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147376.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147376.jpgsave_picture_147376.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:4626DDD23357CEB552D0B4E7EAB5AD827F7836BF
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147377.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147377.jpgsave_picture_147377.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ magnet:?xt=urn:btih:D7A3B1C01868CF5A2E8FAC5B39FFDB6D2C1C0CA9
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147378.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147378.jpgsave_picture_147378.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ VA - Finest NY House 2021, Pt. 1 (2021) [AAC|~333 Kbps] <House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147379.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147379.jpgsave_picture_147379.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ magnet:?xt=urn:btih:3188307B5169359DEB7DDFFB6F64A3517E0747B4
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147380.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147380.jpgsave_picture_147380.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ magnet:?xt=urn:btih:F44F7BFC342FCC03F0BEF4B3FCB4F9A1FBA52A81
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147382.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147382.jpgsave_picture_147382.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ George Michael - 14 альбомов (1987-2006) [FLAC|Lossless] <R&B, Pop, Funk
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147383.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147383.jpgsave_picture_147383.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ VA - Hit Music от Мяу (декабрь 2015) (2015) [MP3|112 - 320 кб/с] 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147384.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147384.jpgsave_picture_147384.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ magnet:?xt=urn:btih:929FA1E9364D8A51BAB47E6F76AD0658D8AE02A8
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147385.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147385.jpgsave_picture_147385.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ magnet:?xt=urn:btih:3CB3E283C93A6974575D8CA505CE85FBCA3DAD2E
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147386.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147386.jpgsave_picture_147386.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Dr.Web CureIt! 8.0 (14.12.2012) [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147388.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147388.jpgsave_picture_147388.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Brett McLaughlin | Programming Kotlin Applications / Программирова�
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147389.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147389.jpgsave_picture_147389.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ VA - Loulou Players presents Best Of Loulou Records 2021 (2021) [AAC|~319 Kbps] 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147390.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147390.jpgsave_picture_147390.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ magnet:?xt=urn:btih:8493EC6E7E1B65289DFCCE3B638F6F06B5F2BD9C
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147391.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147391.jpgsave_picture_147391.jpg" />
 </div>
 
 

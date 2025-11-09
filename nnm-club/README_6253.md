@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_196122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196122.jpgsave_picture_196122.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Dirty Swamp / Грязное Болото (2022) [Ru/De] (3.0.18) Mod
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196123.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196123.jpgsave_picture_196123.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:A205D615069956B7A7BC200D4A48A8CE2116C09F
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196124.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196124.jpgsave_picture_196124.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:B82AEC813ED41E5CEBFACF1DCFA9B4065AF5C5C7
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196125.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196125.jpgsave_picture_196125.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:5C62709C13C11CC2A3AA79547919E108B0C1D460
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196128.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196128.jpgsave_picture_196128.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:85C9843267E2A94CD8031301FB4D9E202EFD736F
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_196129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196129.jpgsave_picture_196129.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:398BAB29CD31331407FBAB714D7F495A2067E30B
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196130.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196130.jpgsave_picture_196130.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Velaya - Geschichte einer Kriegerin / Велая - сказание о воит�
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196131.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196131.jpgsave_picture_196131.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:4949AE30C865F584978BB6D55B78F0BAE9A4C54A
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196132.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196132.jpgsave_picture_196132.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:1A70318040E5B6C6B48C9FFA35B73B186986686A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196133.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196133.jpgsave_picture_196133.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:FA5DA225DC7F2039A8504BFF36AF8F033117F085
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196134.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196134.jpgsave_picture_196134.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:2C4A6B6E58F519ED7A4E6D3832310C3E68677761
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196135.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196135.jpgsave_picture_196135.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:F7B87E43524994546A0A5CD19C5B4AF2C0C513FB
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196136.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196136.jpgsave_picture_196136.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ magnet:?xt=urn:btih:BCF29E477AE1F62978E4183CC8222192518AE8B7
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196137.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196137.jpgsave_picture_196137.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ FastStone Capture 10.2 Final RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196138.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196138.jpgsave_picture_196138.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Transparent clock & weather / Прозрачные часы и погода 6.30
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196139.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196139.jpgsave_picture_196139.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ magnet:?xt=urn:btih:4B6C63FDDB971C5CC398CB830D0D3645807C3EE4
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196140.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196140.jpgsave_picture_196140.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ magnet:?xt=urn:btih:FA9B57BF6269FF6A23AD89627E33421DD0B5804A
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196142.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196142.jpgsave_picture_196142.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ magnet:?xt=urn:btih:9C7D6ED3E84A0D5496261E91DE4C320A1421B45B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196143.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196143.jpgsave_picture_196143.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ qBittorrent 4.5.4 Portable by PortableApps + Themes (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196144.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196144.jpgsave_picture_196144.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ magnet:?xt=urn:btih:5986F12321CA4DBA64D0E7057008ADACBCAA21DE
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196145.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196145.jpgsave_picture_196145.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:BBA90648FE64E19E1C43C2BC5C56393048C3D9EA
 >>Кости / Bones
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_196146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196146.jpgsave_picture_196146.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ magnet:?xt=urn:btih:B20C890C86FD134580F020212578ED4C8B7437B3
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196147.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196147.jpgsave_picture_196147.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ magnet:?xt=urn:btih:376C09B22F3DBA520089515D9FA7FAB30D5C06AA
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_196148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196148.jpgsave_picture_196148.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Suzume no Tojimari | Судзумэ закрывает двери [2022, Movie] 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196149.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196149.jpgsave_picture_196149.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ magnet:?xt=urn:btih:F7BB56B7A36AE78CD56D24C1EA39C929F6C0FBC5
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196150.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196150.jpgsave_picture_196150.jpg" />
 </div>
 
 

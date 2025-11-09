@@ -6,7 +6,7 @@
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106109.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106109.jpgsave_picture_106109.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:CF874A9B8774FFABD3D266FAC422F36C38A48AB1
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106110.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106110.jpgsave_picture_106110.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ RSS Guard 4.7.3 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106111.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106111.jpgsave_picture_106111.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ magnet:?xt=urn:btih:4CAFB712F5A3195A3C0A22A9C999AC1AD530E74B
 >>Экранки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106112.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106112.jpgsave_picture_106112.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ magnet:?xt=urn:btih:B43E7E5272B6120309EDF728D46D900915DD4E8E
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106113.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106113.jpgsave_picture_106113.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ ExamDiff Pro 15.0.1.8 RePack (& portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106114.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106114.jpgsave_picture_106114.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ PictureThis - Plant Identification v4.2.0 Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106115.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106115.jpgsave_picture_106115.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ CAGMO - Симфония Король и Шут (2024) [MP3|320 Kbps] <Symphonic
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106116.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106116.jpgsave_picture_106116.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ digiKam 8.4.0 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106117.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106117.jpgsave_picture_106117.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ magnet:?xt=urn:btih:3E9312D4B0BF7F720C8EE6C2260FBB0FA401C3D2
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106118.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106118.jpgsave_picture_106118.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ VA - Music News For Forum vol.005 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106119.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106119.jpgsave_picture_106119.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ The Police - Synchronicity (1983) 6CD Super Deluxe Edition, 2024, UMC (Universal
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106120.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106120.jpgsave_picture_106120.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ magnet:?xt=urn:btih:041B796015591AFB5DA82AE13B2B26E4CDF4BE00
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106121.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106121.jpgsave_picture_106121.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ magnet:?xt=urn:btih:CE0EE8016BEF86F725D59800517243051E7DF156
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106122.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106122.jpgsave_picture_106122.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ WinMerge 2.16.42 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106123.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106123.jpgsave_picture_106123.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ magnet:?xt=urn:btih:5A57230041F862AE2749300252BBC743F6EBCDD7
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106124.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106124.jpgsave_picture_106124.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ FanControl V198 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106125.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106125.jpgsave_picture_106125.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ magnet:?xt=urn:btih:4A6A93986495C9FEBB51CA5CD34E6D3CB1A9AB27
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106126.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106126.jpgsave_picture_106126.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Text Editor Pro 29.2.0 + Portable + Bonus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106127.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106127.jpgsave_picture_106127.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ CAGMO - Симфония Король и Шут (2024) [FLAC 24/48|Lossless|WEB-
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106128.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106128.jpgsave_picture_106128.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ magnet:?xt=urn:btih:C884C7B906CA6774F78EFD699C596D49DBD437FF
 >>Экранки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106129.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106129.jpgsave_picture_106129.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ magnet:?xt=urn:btih:7419F303AA63DCAB31D0B13552F13D75C518E7C2
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106130.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106130.jpgsave_picture_106130.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ magnet:?xt=urn:btih:289DAB9114517A830B13EB4EEA385C0C710332C2
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106131.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106131.jpgsave_picture_106131.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ magnet:?xt=urn:btih:8D74670667C093ED01A48574CC42EB3730E50BE2
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106132.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106132.jpgsave_picture_106132.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ Magical Delicacy (2024) [Multi] (1.0) Scene Razor 1911
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106133.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106133.jpgsave_picture_106133.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ magnet:?xt=urn:btih:56B5BCC4E4CFEA696728074D93A04543F137AACA
 >>Экранки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106134.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106134.jpgsave_picture_106134.jpg" />
 </div>
 
 

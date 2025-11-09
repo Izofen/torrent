@@ -6,7 +6,7 @@
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244531.jpgsave_picture_244531.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ VA - Night City Ambient (2016) [MP3|320 Kbps] <Balearic, Downtempo>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244532.jpgsave_picture_244532.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:EB6B89F69C26F7705ECCFC85177F6961DAB0D9D0
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244533.jpgsave_picture_244533.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Screw - Angel Seed XXIII (1997) [APE|Lossless|image + .cue] <Industrial Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244534.jpgsave_picture_244534.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Slimjet 38.0.7.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244535.jpgsave_picture_244535.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ CD DVD Label Maker 2.6.0 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244536.jpgsave_picture_244536.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:C66DA369CDDAD2B09471C98CE564A5A3FF1835C7
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244537.jpgsave_picture_244537.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Time Sink 2.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244538.jpgsave_picture_244538.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ VA - Ballermann Opening Party Hits 2019 (2019) [MP3|320 Kbps] <Pop, Schlager>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244539.jpgsave_picture_244539.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ magnet:?xt=urn:btih:E7935912BCF37C594EAF0E325E72E95E243B2A4E
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244540.jpgsave_picture_244540.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ magnet:?xt=urn:btih:7DC85D9B160AF89913194E48FA00E239D814AB94
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244541.jpgsave_picture_244541.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ Djevel - Naa Skrider Natten Sort (2022) [MP3|320 Kbps] <Black Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244542.jpgsave_picture_244542.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ magnet:?xt=urn:btih:E849CE12D346BABEA1591A10E451A921CB90F736
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244543.jpgsave_picture_244543.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ Gear.Club Stradale (2022) [Multi/Ru] [macOS Native game]
 >>Racing, Simulation, Sports для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244544.jpgsave_picture_244544.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ magnet:?xt=urn:btih:10EBED60C4C555CC8EB374CD6F797357A57D6AE2
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244545.jpgsave_picture_244545.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ magnet:?xt=urn:btih:2E15850788346CA67E5362FB95161A8E1E03B23B
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244546.jpgsave_picture_244546.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Hurry - Every Little Thought (2018) [FLAC|Lossless|tracks + .cue] <Rock, Indie R
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244547.jpgsave_picture_244547.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ VA - Tech & House Vocals Outstanding (2016) [MP3|209-320 Kbps] <Dance, Club, Hou
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244548.jpgsave_picture_244548.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Logicly 1.12.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244550.jpgsave_picture_244550.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ magnet:?xt=urn:btih:79C53177FAAE6D5C8089AE6FBDBF3DA40053846F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244551.jpgsave_picture_244551.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ Privacy Eraser Free 5.33.2 Build 4439 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244552.jpgsave_picture_244552.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Bootstrap Studio 5.9.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244553.jpgsave_picture_244553.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ iTubeGo YouTube Downloader Pro for Mac 6.9.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244554.jpgsave_picture_244554.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ magnet:?xt=urn:btih:482955885F9755260A11B0DD3D8E7AC88C431C84
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244555.jpgsave_picture_244555.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Necronomicon - Unleashed Bastards (2018) [FLAC|Lossless|image + .cue] <Thrash Me
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244556.jpgsave_picture_244556.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ Diaspora - Pendulum (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244557.jpgsave_picture_244557.jpg" />
 </div>
 
 

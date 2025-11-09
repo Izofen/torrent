@@ -6,7 +6,7 @@
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131296.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131296.jpgsave_picture_131296.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:E8D7920F3010CE568BECFB1837C2A9D5E7C61ADF
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131297.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131297.jpgsave_picture_131297.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:DC9D65ABCEDDA6ABC465107ACBAD84517E8772C8
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131298.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131298.jpgsave_picture_131298.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:29FF9DF881B4CD1E7C00E7EB5932FDA935CC3952
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131299.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131299.jpgsave_picture_131299.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ SGS Taipings (2023) [Ru/Multi] (23.07.21) Scene Tenoke
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131301.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131301.jpgsave_picture_131301.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Vladimir Horowitz - Horowitz Plays Clementi, Piano Sonatas (1989) [FLAC|Lossless
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131303.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131303.jpgsave_picture_131303.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:6E2C11C34014257C7AAAE72334F980B2F04FA63D
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131304.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131304.jpgsave_picture_131304.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:7FD80564254E926A627ACCA657D3BEC4D5E18E8D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131306.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131306.jpgsave_picture_131306.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:7FD80564254E926A627ACCA657D3BEC4D5E18E8D
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131307.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131307.jpgsave_picture_131307.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:2B4C08192C22BD903D38F45ED0476727703B39A4
 >>Приключенческая проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131308.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131308.jpgsave_picture_131308.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:E3B0973E03BD8A3133BEEEA9B506134D9F892C04
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131309.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131309.jpgsave_picture_131309.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:94B18652490175A42DEE6818C5A2814BBE57478B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131310.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131310.jpgsave_picture_131310.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Aiseesoft FoneLab for Android 5.0.30 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131311.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131311.jpgsave_picture_131311.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Abelssoft SSD Fresh Plus 2024 13.0.51115 Portable by zeka.k [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131312.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131312.jpgsave_picture_131312.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Windows 10 Manager 3.8.9 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131313.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131313.jpgsave_picture_131313.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ John Woo Presents Stranglehold [Ru/En] (Lossless Repack/1.1) 2007 | R.G. Origami
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131314.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131314.jpgsave_picture_131314.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ XY VPN - Security Proxy VPN 4.7.329 Mod by ModdingUnited [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131315.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131315.jpgsave_picture_131315.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Tor Browser Bundle 13.0.6 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131316.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131316.jpgsave_picture_131316.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ magnet:?xt=urn:btih:7314EC971AD87FCF77DBFEC005E5D4BAC415D0BF
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131317.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131317.jpgsave_picture_131317.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ magnet:?xt=urn:btih:0F2A80D5E9C05DBDA6187C1E52BA95F9F78F911C
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131319.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131319.jpgsave_picture_131319.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ magnet:?xt=urn:btih:5101C6317EEBE8DA31CB39E6CB2F33079802E641
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131320.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131320.jpgsave_picture_131320.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ Harry Hamernik | Face Off. How to Draw Amazing Caricatures & Comic Portraits / �
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131321.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131321.jpgsave_picture_131321.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ GParted LiveCD 0.14.1-6 [i486, i686pae, amd64] (3 x miniCD)
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131322.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131322.jpgsave_picture_131322.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Midori Browser 11.1.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131323.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131323.jpgsave_picture_131323.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ magnet:?xt=urn:btih:949243444EC49328D4D2080C43173D3D5224BAEB
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131324.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131324.jpgsave_picture_131324.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ SaBo-FX - Erotic (Final Countdown 2012 remake) [H.264/720p] (2012) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131325.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131325.jpgsave_picture_131325.jpg" />
 </div>
 
 

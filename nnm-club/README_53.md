@@ -6,7 +6,7 @@
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1415.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1415.jpgsave_picture_1415.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:E6EF4B321E124C7FF274A1183B7A69BFDE82B204
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1416.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1416.jpgsave_picture_1416.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ magnet:?xt=urn:btih:B4EEA9D51DEBBBDD2AE44910019A0FB12DBBC713
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1417.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1417.jpgsave_picture_1417.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ HOFA - Colour Delay 1.0.4 VST 3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1418.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1418.jpgsave_picture_1418.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ magnet:?xt=urn:btih:069CF5C4F69B4991F22FFCF005ACA80BBEFE906E
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1419.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1419.jpgsave_picture_1419.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ Exacoustics - GHOST 1.1.8 Standalone, VSTi 3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1420.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1420.jpgsave_picture_1420.jpg" />
 </div>
 
 
@@ -161,7 +161,7 @@ magnet:?xt=urn:btih:DA9FC48F5CC97DC6DAE6001954D0574B30C86FBB
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1421.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1421.jpgsave_picture_1421.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ Ui Kits - UI8 - Oxtopus - Web3 Wallet Mobile App [FIG]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1422.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1422.jpgsave_picture_1422.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ VA - 25 Years Of Anjuna Mixed by Elevven (2025) [MP3|320 Kbps] <Trance, Progress
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1423.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1423.jpgsave_picture_1423.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ magnet:?xt=urn:btih:B57BD4FF1A59D9820A3C427EB7E0A5D6EBBEE519
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1424.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1424.jpgsave_picture_1424.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ magnet:?xt=urn:btih:C99818EF60EF2C80ACB269E03121AE349594422A
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1425.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1425.jpgsave_picture_1425.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ magnet:?xt=urn:btih:C550B412AFC158ADFE9BEF6D88FBD5C0E8CC2356
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1426.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1426.jpgsave_picture_1426.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ Spinal Tap - The End Continues (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1427.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1427.jpgsave_picture_1427.jpg" />
 </div>
 
 
@@ -340,7 +340,7 @@ magnet:?xt=urn:btih:7713B309C664CB34616DF12DF62C8453B5685F6F
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1428.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1428.jpgsave_picture_1428.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Cruel Bomb - Cruel Bomb (2025) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal, Cros
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1429.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1429.jpgsave_picture_1429.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ Castle Rat - The Bestiary (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Doom Metal
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1430.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1430.jpgsave_picture_1430.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ Chet Baker - The Italian Sessions (1962) 1996, RCA-Victor [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1431.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1431.jpgsave_picture_1431.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ Surrender The Crown - Travails (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Roc
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1432.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1432.jpgsave_picture_1432.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Soziedad Alkoholika - Confrontación (2024) [FLAC|Lossless|image + .cue] <Metalc
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1433.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1433.jpgsave_picture_1433.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ magnet:?xt=urn:btih:E550A3496627D90CC49D8C3CEC3DDABFEEF0A907
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1434.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1434.jpgsave_picture_1434.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ Vivaldi 7.6.3797.55 include standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1435.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1435.jpgsave_picture_1435.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ magnet:?xt=urn:btih:1E0E2A17CE17ABBC2BDFB6B9CE5F9C726A62BD49
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1436.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1436.jpgsave_picture_1436.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:539420B4FCDB9EBDDE454A3ADEE9CBCCE8F06964
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1437.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1437.jpgsave_picture_1437.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Serif Affinity Publisher 2.6.3.3322 Portable by 7997 [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1438.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1438.jpgsave_picture_1438.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ magnet:?xt=urn:btih:54AC996667923874E9D16EB12175918B457086AE
 >>Картинки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1439.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1439.jpgsave_picture_1439.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ magnet:?xt=urn:btih:C5CB0F96605D7755F1FFA21800D5CB5BC5BA59FD
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1440.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1440.jpgsave_picture_1440.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175762.jpgsave_picture_175762.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Icecream Screen Recorder PRO 7.30 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175764.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175764.jpgsave_picture_175764.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ CG Cookie, Jonathan Lampel | Основы динамической симуля�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175765.jpgsave_picture_175765.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:15A7E52B3BC3220559EE21E89A002EC0DA79495D
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175766.jpgsave_picture_175766.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ GOM Player Plus 2.3.59.5323 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175768.jpgsave_picture_175768.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ CoolUtils Total Image Converter 8.2.0.263 RePack (& Portable) by Dodakaedr [Mult
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175769.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175769.jpgsave_picture_175769.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:EE228A428143806BC5720119955112C69A2B216C
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175770.jpgsave_picture_175770.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:601CBDABE4064812CE7052FB697CE2B32AD2E283
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175772.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175772.jpgsave_picture_175772.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:27E4E9406995CFAD4AA04512C643F173B65D4F2C
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175773.jpgsave_picture_175773.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Topaz Photo AI 2.0.5 (x64) Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175774.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175774.jpgsave_picture_175774.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ magnet:?xt=urn:btih:6E86FCC6240A9457E6A3C1938F7584A39AA47BA1
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175776.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175776.jpgsave_picture_175776.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ magnet:?xt=urn:btih:AA768B205D0D4BC4F66CA368263ED811218EFEB8
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175777.jpgsave_picture_175777.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ magnet:?xt=urn:btih:BFC29889E12ECC5B370498B75B7DEB63F7A7672D
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175778.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175778.jpgsave_picture_175778.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ magnet:?xt=urn:btih:93443AE7064FADC8E0ADF49E4C4D18A4566475FC
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175780.jpgsave_picture_175780.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Udemy, Cov Phillips | Ultimate 3D Environment Animation Course - Blender (2022) 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175781.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175781.jpgsave_picture_175781.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Wondershare UniConverter 15.0.2.12 (х64) Repack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175782.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175782.jpgsave_picture_175782.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ doPDF 10.9.133 Free [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175784.jpgsave_picture_175784.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ magnet:?xt=urn:btih:89F73BB80E1FCE62B3ED6C1DF099CAFE4707E4E8
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175785.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175785.jpgsave_picture_175785.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ magnet:?xt=urn:btih:FB361E098A96CE7A1DBDF051DA0CF4648F8A108D
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175786.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175786.jpgsave_picture_175786.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Puhdys - Puhdys 11: Computer-Karriere (1983) [FLAC 2.0|192/24|image +.cue|Vinyl-
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175788.jpgsave_picture_175788.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ magnet:?xt=urn:btih:70E8ADA202400372300268E368776B0D80B8EE7C
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175789.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175789.jpgsave_picture_175789.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ magnet:?xt=urn:btih:8F661F06C67096A62D650CBE9495D7852800A475
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175790.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175790.jpgsave_picture_175790.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ Ventoy 1.0.84 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175792.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175792.jpgsave_picture_175792.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ magnet:?xt=urn:btih:21EB3CD23808BD8805172FCC5638971F0E53BD84
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175793.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175793.jpgsave_picture_175793.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ magnet:?xt=urn:btih:EBC702FAD11F3B9AEEB6981794FD5BC9C1FBA1D9
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175796.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175796.jpgsave_picture_175796.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ VA - Советский Новый год (2019) [AAC|~281 Kbps] <Pop>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175797.jpgsave_picture_175797.jpg" />
 </div>
 
 

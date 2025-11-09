@@ -6,7 +6,7 @@ Samson - Don't Get Mad, Get Even (1984) [FLAC|24/192|image|Vinyl-Rip] <NWOBHM, H
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112911.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112911.jpgsave_picture_112911.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Darkthrone - Plaguewielder (2001) Reissue,  2012, Peaceville [FLAC|24/192|image 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112912.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112912.jpgsave_picture_112912.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Darkthrone - Ravishing Grimness (1999) Reissue, 2011, Peaceville [FLAC|24/192|im
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112913.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112913.jpgsave_picture_112913.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Romantic Evening Jazz Club and Good Mood Music Academy - Jazzy Evening Calm (202
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112917.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112917.jpgsave_picture_112917.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Stress Reducing Music Zone, Instrumental Jazz Music Guys, Positive Music Univers
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112919.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112919.jpgsave_picture_112919.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ magnet:?xt=urn:btih:4F690E040EEBD4CE149E69438FF0359D9291B3F9
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112922.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112922.jpgsave_picture_112922.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ magnet:?xt=urn:btih:17EED893AF0EDE0E2F20186E73479E29BF6A8D44
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112923.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112923.jpgsave_picture_112923.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ magnet:?xt=urn:btih:8323C5AB783D3E0AC68EA3905896AD7F6DCA35B8
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112924.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112924.jpgsave_picture_112924.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Alligator Cats - Whiskeyland (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112925.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112925.jpgsave_picture_112925.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Bruce Dickinson - Balls to Picasso (1994) [FLAC|24/96|tracks|Vinyl-Rip] <Rock, H
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112927.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112927.jpgsave_picture_112927.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Relaxing Piano Man - Heading South (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112928.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112928.jpgsave_picture_112928.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Deej - Blue Sky Mama (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112929.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112929.jpgsave_picture_112929.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Samson - Live at Reading`81 (1990) [FLAC|24/96|image + .cue|Vinyl-Rip] <NWOBHM, 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112931.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112931.jpgsave_picture_112931.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Steve Emm - Framework (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Rock
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112936.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112936.jpgsave_picture_112936.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Gossip - Real Power (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Indie Pop, Indie
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112938.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112938.jpgsave_picture_112938.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Romantic Love Songs Academy - Rendezvous at Dawn: Sultry Jazz and Romantic Mood 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112940.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112940.jpgsave_picture_112940.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ VA - Любимые песенки малышей (1971) [FLAC 24/192|Lossless|t
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112944.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112944.jpgsave_picture_112944.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Elbow - Audio Vertigo (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Alternative & 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112945.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112945.jpgsave_picture_112945.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:7E05456E16320CC12192FAC2558EBFADF6BB15BC
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112946.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112946.jpgsave_picture_112946.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:7E57CB6FC80691120FE4221A90CA02B957F17DAB
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112962.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112962.jpgsave_picture_112962.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Sensual Lounge Music Universe - Sensuality in the Air: Romantic and Erotic Jazz 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112967.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112967.jpgsave_picture_112967.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:0C735EA5E047B56216B68BD232BA920A1155D45D
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112970.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112970.jpgsave_picture_112970.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Sensual Lounge Music Universe - Flavor of Seduction: Instrumental Jazz Sex Music
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112972.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112972.jpgsave_picture_112972.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Vid Sketa - First Step (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz Fusion
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112973.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112973.jpgsave_picture_112973.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Shakira - Las Mujeres Ya No Lloran (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <P
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112984.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112984.jpgsave_picture_112984.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Darkthrone - Goatlord (1996) Reissue, 2011, Peaceville [FLAC|24/192|image + .cue
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112989.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112989.jpgsave_picture_112989.jpg" />
 </div>
 
 

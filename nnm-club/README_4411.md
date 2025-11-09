@@ -6,7 +6,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137808.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137808.jpgsave_picture_137808.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:211EB50742BA4A168D642D6E67B75B3202A8497D
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137809.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137809.jpgsave_picture_137809.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:E1C5229FF59AA9332E7F40EF59B61219F3122C0B
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137810.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137810.jpgsave_picture_137810.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ John Legend - A Legendary Christmas (2018) [FLAC|Lossless|tracks + .cue] <R&B, P
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137811.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137811.jpgsave_picture_137811.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:2995C320BE90F1C772B30D31AE5828E11A2DF2A3
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137812.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137812.jpgsave_picture_137812.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:3FC9FF4F04FB2EDE281B5242AD7FA4A9A03CEF3E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137813.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137813.jpgsave_picture_137813.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:34E49328F3C04E7274DF149633D38D1DFCB8D0EE
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137814.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137814.jpgsave_picture_137814.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ Tarja Turunen - From Spirits and Ghosts (2017) Score for a Dark Christmas, Speci
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137815.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137815.jpgsave_picture_137815.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ magnet:?xt=urn:btih:5FD6024FE6D2BAD25ACB8CBE870C03CE90B1A9CC
 >>Релакс / Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137816.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137816.jpgsave_picture_137816.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ VA - Partybreaks and Remixes - All In One October 003 (2018) [MP3|320 Kbps] <Pop
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137817.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137817.jpgsave_picture_137817.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ magnet:?xt=urn:btih:DEC5F2C76274A724AD76EC85C584EAC6E5F44191
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137818.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137818.jpgsave_picture_137818.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ magnet:?xt=urn:btih:6A8A1D293BA01C5DF555B892709C9A26680E18C4
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137819.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137819.jpgsave_picture_137819.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ magnet:?xt=urn:btih:DE12AB6ACDFE8DFBA46F30CC818F91003889FDA7
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137820.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137820.jpgsave_picture_137820.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Reg Organizer 8.60 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137821.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137821.jpgsave_picture_137821.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Apashe - Antagonist (2023) [FLAC|Lossless|tracks] <Electronic, Breakbeat>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137822.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137822.jpgsave_picture_137822.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ magnet:?xt=urn:btih:941DA3ACBCAA3F1C873562A46D301E2C8060352C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137823.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137823.jpgsave_picture_137823.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ magnet:?xt=urn:btih:30775059605DD05A40A136C1D05A3E4D9F982BAF
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137824.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137824.jpgsave_picture_137824.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ magnet:?xt=urn:btih:FF20AFC46E7F2C30B52C1559923A2214AA73C445
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137825.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137825.jpgsave_picture_137825.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ magnet:?xt=urn:btih:EBA3BEE21BBDD8F9EFC849CCF033452D5248BC73
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137826.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137826.jpgsave_picture_137826.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ TsukiPro The Animation / ЦукиПро Аниме [2017, TV, 13] WEBRip 720p ra
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137828.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137828.jpgsave_picture_137828.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ magnet:?xt=urn:btih:D479E4628DF45B1048F1889C29C770A1C2C4F64A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137829.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137829.jpgsave_picture_137829.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ magnet:?xt=urn:btih:C3E4EEB9A927097ED6888D46FE68763D75ABE47B
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137831.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137831.jpgsave_picture_137831.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ Scorpions - Return To Forever (2015) (Japanese Premium Edition) [MP3|320 кб/с
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137832.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137832.jpgsave_picture_137832.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ magnet:?xt=urn:btih:E83DB1762DF6ABADF6348FE757CF9A462DF9D645
 >>Космос
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137833.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137833.jpgsave_picture_137833.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ Sword Art Online: Alicization | Мастера меча онлайн: Алиси
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137834.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137834.jpgsave_picture_137834.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ magnet:?xt=urn:btih:7C8DEF3904097C7C29C955DC8A60CF0E6D006A1E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137837.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137837.jpgsave_picture_137837.jpg" />
 </div>
 
 

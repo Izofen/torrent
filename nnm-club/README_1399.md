@@ -6,7 +6,7 @@ Age of Empires II: Definitive Edition (2019) [Ru/Multi] (101.102.62906.0/dlc) Re
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36729.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36729.jpgsave_picture_36729.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:4097E88CE42D62E2CA1C79E2B4FF5490BD16B6E0
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36730.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36730.jpgsave_picture_36730.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Corona Renderer 12 update 1 for 3ds Max 2016-2025 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36731.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36731.jpgsave_picture_36731.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:DC19CB5F9282FA4FF9B21C6CBD6FB953080EAD4B
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36732.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36732.jpgsave_picture_36732.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:848D1C03A04EFA2B6B668D1643C12AEEC27C9EC7
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36733.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36733.jpgsave_picture_36733.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:CC3328121F42D0C0ECDD86B92464AA8D92626BE3
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36734.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36734.jpgsave_picture_36734.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ AAF Family DCH Audio Realtek 10.11.9749.1 Mod by AlanFinotty [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36735.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36735.jpgsave_picture_36735.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Windows Server 2022 LTSC [10.0.20348.2849], Version 21H2 (Updated November 2024)
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36736.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36736.jpgsave_picture_36736.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:2D20406D31FDACB61E88FB893DD903A966F581FE
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36737.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36737.jpgsave_picture_36737.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ God of War: Ragnarök (2024) [Ru/Multi] (1.0.622.6666/dlc) Scene Rune [Digital D
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36738.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36738.jpgsave_picture_36738.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Bandicam 8.0.0.2509 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36739.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36739.jpgsave_picture_36739.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ magnet:?xt=urn:btih:6853FA6B8420ADCB140052C4F2652D34B262F7DE
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36740.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36740.jpgsave_picture_36740.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ CrystalDiskMark 8.0.6 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36741.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36741.jpgsave_picture_36741.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ CrystalDiskInfo 9.5.0 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36742.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36742.jpgsave_picture_36742.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ EcoGnomix (2024) [Multi] (1.2) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36743.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36743.jpgsave_picture_36743.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ VA - Music News For Forum vol.044 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36744.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36744.jpgsave_picture_36744.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ Telegram Desktop 5.8.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36745.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36745.jpgsave_picture_36745.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ magnet:?xt=urn:btih:64495C0F0BBE780D6862CC9E73E501AE3628D285
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36746.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36746.jpgsave_picture_36746.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:4CA4E0AAA3385BAE667966C4441EE2F2D71EEF4F
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36747.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36747.jpgsave_picture_36747.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Exacoustics - GHOST 1.0.8 Standalone, VSTi 3, AAX (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36748.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36748.jpgsave_picture_36748.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ magnet:?xt=urn:btih:E2BE33D034589468C87CCD7988765CF103713491
 >>Азиатское кино (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36749.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36749.jpgsave_picture_36749.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ magnet:?xt=urn:btih:8D2AEB0A2947D989D1CDBAB39872CEBAC0C69E47
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36750.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36750.jpgsave_picture_36750.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ magnet:?xt=urn:btih:5E2A80CDC1FE957956BF3DB0FBBF1A6DE51E0142
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36751.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36751.jpgsave_picture_36751.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ VA - 202Four (2024) Neo Ouija [FLAC|Lossless|Web-DL|tracks] <IDM, Ambient, Detro
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36752.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36752.jpgsave_picture_36752.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ magnet:?xt=urn:btih:D5B46B27518CD5F2AA7678C3DC3352248C7F49FB
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36753.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36753.jpgsave_picture_36753.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ VA - Club Sounds Best Of 2024 (2024) [MP3|320 Kbps] <Dance, Club, House, Electro
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36754.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36754.jpgsave_picture_36754.jpg" />
 </div>
 
 

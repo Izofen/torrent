@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116471.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116471.jpgsave_picture_116471.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:12B2AF8FBAB1BFCED202531D29004F0FF9FFFBEB
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116472.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116472.jpgsave_picture_116472.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ CPUID HWMonitor Pro 1.53 + Portable [En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116473.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116473.jpgsave_picture_116473.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:9C3A2FC0DF122AA4E7782EB34C432C5489A3CFC5
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116474.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116474.jpgsave_picture_116474.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Labels and Databases 1.7.9 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116475.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116475.jpgsave_picture_116475.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Iris 1.6.7 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116476.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116476.jpgsave_picture_116476.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Dominic Kelly - Blues Adjacent (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116477.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116477.jpgsave_picture_116477.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ Unheilig - Gipfelsturmer (2014) [FLAC|24/192|image + .cue|Vinyl-Rip] <Gothic Met
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116478.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116478.jpgsave_picture_116478.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ Mp3tag 1.8.14 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116479.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116479.jpgsave_picture_116479.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ djay - DJ App & AI Mixer 5.1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116480.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116480.jpgsave_picture_116480.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ Hellman - Born, Suffering, Death (2024) [FLAC|Lossless|WEB-DL|tracks] <Death 'n'
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116481.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116481.jpgsave_picture_116481.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ Svend Asmussen - Fit As A Fiddle (1996) 2005, Storyville [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116482.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116482.jpgsave_picture_116482.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ deer death - Next Death (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Shoegaze, 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116483.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116483.jpgsave_picture_116483.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ magnet:?xt=urn:btih:18F0EAB0CE671E206D6865F96217EB479F3D5895
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116484.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116484.jpgsave_picture_116484.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ Unheilig - Lichter der Stadt (2012) [FLAC|24/192|image + .cue|Vinyl-Rip] <Gothic
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116485.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116485.jpgsave_picture_116485.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ Eddie Higgins - Eddie Higgins (1960) Victor [FLAC|Lossless|image + .cue] <Hard B
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116486.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116486.jpgsave_picture_116486.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ Mahmood - Nei Letti Degli Altri (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Po
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116487.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116487.jpgsave_picture_116487.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Sound Siphon 3.6.7 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116488.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116488.jpgsave_picture_116488.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Belinda Metz - Electric Splash (1985) [FLAC|Lossless|WEB-DL|tracks] <Pop Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116489.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116489.jpgsave_picture_116489.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ David Becker Tribune - Germerica (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz Fusi
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116490.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116490.jpgsave_picture_116490.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Smash Palace - Smash Palace (1985) [FLAC|Lossless|WEB-DL|tracks] <New Wave, Powe
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116491.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116491.jpgsave_picture_116491.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ magnet:?xt=urn:btih:636431F82C71EB3A14A2BD7BFE720B40F86A7C1A
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116492.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116492.jpgsave_picture_116492.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Keith Thompson Band - Enigmatic Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Elec
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116493.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116493.jpgsave_picture_116493.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Aname (Anamé) - 2 Albums (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Vocal Ho
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116494.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116494.jpgsave_picture_116494.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ magnet:?xt=urn:btih:AC04301D4C1F210AA229913CDE8354B6824DC6A5
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116495.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116495.jpgsave_picture_116495.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ magnet:?xt=urn:btih:EBEE7BA2A5487D223D357DBCC3779A9F6277DE4F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116496.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116496.jpgsave_picture_116496.jpg" />
 </div>
 
 

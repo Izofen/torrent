@@ -6,7 +6,7 @@
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124147.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124147.jpgsave_picture_124147.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:91F2385333F6E0E4EB11B59211E740B6D7A32261
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124148.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124148.jpgsave_picture_124148.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:2E0C9B6133908E8AA364F09684A2505A62EC9E61
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124149.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124149.jpgsave_picture_124149.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:BDCEC3D71B7B634A779580FE4F333F7E53D18DD1
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124150.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124150.jpgsave_picture_124150.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:DBEEA2779D895588071237463D6350D58A4EB7F2
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124151.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124151.jpgsave_picture_124151.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Militia - Fiend of Misery (2010) Compilation [FLAC|Lossless|image + .cue] <Thras
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124152.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124152.jpgsave_picture_124152.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ Krabathor - Lies (1995) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124153.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124153.jpgsave_picture_124153.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ Morning Dead - Desde el otro Lado (2023) [FLAC|Lossless|WEB-DL|tracks] <Doom, De
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124154.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124154.jpgsave_picture_124154.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Sun Of The Endless Night - Symbols Of Hate And Deceitful Faith (2019) [FLAC|Loss
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124155.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124155.jpgsave_picture_124155.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ Enforced - War Remains (2023) [FLAC|Lossless|image + .cue] <Thrash Metal, Crosso
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124156.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124156.jpgsave_picture_124156.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ Whorehouse - Execution Of Humanity (2009) [FLAC|Lossless|image + .cue] <Thrash M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124157.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124157.jpgsave_picture_124157.jpg" />
 </div>
 
 
@@ -290,7 +290,7 @@ Necrophthysis - Diminution of Flesh (2023) [FLAC|Lossless|WEB-DL|tracks] <Techni
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124158.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124158.jpgsave_picture_124158.jpg" />
 </div>
 
 
@@ -317,7 +317,7 @@ Krabathor - Only Our Death Is Welcome (1992) [APE|Lossless|image + .cue] <Death,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124159.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124159.jpgsave_picture_124159.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Krabathor - Cool Mortification (1993) [FLAC|Lossless|image + .cue] <Death, Thras
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124160.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124160.jpgsave_picture_124160.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ magnet:?xt=urn:btih:EAC1B9210E8E805DA217070A683E98B82C772AA1
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124161.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124161.jpgsave_picture_124161.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ magnet:?xt=urn:btih:8D6BE33AA8E9045737CAEC6B14D383B715DF1F2E
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124162.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124162.jpgsave_picture_124162.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ magnet:?xt=urn:btih:FA68BE2E681540303560631E00E5038E70B8568B
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124163.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124163.jpgsave_picture_124163.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ Markus Schulz - Global DJ Broadcast New Year's Rehab (2024-01-04) [MP3|320 Kbps]
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124164.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124164.jpgsave_picture_124164.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ magnet:?xt=urn:btih:550E7C0309C4EF9E9C526C3B03F9809FB55F5DE2
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124165.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124165.jpgsave_picture_124165.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ VA - Redux Selection Vol. 1 (2024) [MP3|320 Kbps] <Trance, Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124166.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124166.jpgsave_picture_124166.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ magnet:?xt=urn:btih:59B4F7FC4435DC4C64C9EC78A38D6AC04A3FDEE2
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124167.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124167.jpgsave_picture_124167.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ VA - Silent Shore Trance - Highlights 2023 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124168.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124168.jpgsave_picture_124168.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ magnet:?xt=urn:btih:D7901A99D5751B5C7D36B7B8DD9ED870F3B4E650
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124169.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124169.jpgsave_picture_124169.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ VA - Armin van Buuren - A State Of Trance 1154 (2024) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124170.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124170.jpgsave_picture_124170.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ magnet:?xt=urn:btih:A167BB9887651A7F03AF0C5AD4F269EDC0B7D308
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124171.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124171.jpgsave_picture_124171.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ VA - Levitated Trance - Highlights 2023 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124172.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124172.jpgsave_picture_124172.jpg" />
 </div>
 
 

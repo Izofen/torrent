@@ -6,7 +6,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139875.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139875.jpgsave_picture_139875.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:B52D067771B9A16B962324C756719030073CFA0C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139876.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139876.jpgsave_picture_139876.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Soulburn - Noa's D'ark (2020) Limited Edition [FLAC|Lossless|image + .cue] <Deat
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139877.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139877.jpgsave_picture_139877.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:D210C42A45B4B5CE7667A9B313A76ADE5AB60FAA
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139878.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139878.jpgsave_picture_139878.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:9B318781207C6982C345704F8251FE11225FE7BE
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139879.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139879.jpgsave_picture_139879.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ Feeder 4 v4.0.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139880.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139880.jpgsave_picture_139880.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ Fedora 25 LXQt Remix [x86-64] 1xDVD
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139881.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139881.jpgsave_picture_139881.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:31845FA08ABB2C0DC3D82134C7361B5A544B5E76
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139882.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139882.jpgsave_picture_139882.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:42AB9FC8E33DFB7AC21DD14D2D7BCE5DFCAD6BE8
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139883.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139883.jpgsave_picture_139883.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:FC56B0904E1A4AD40A3AEA037A4824F3016C0001
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139884.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139884.jpgsave_picture_139884.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:30205A8EB4F5FBAF4F062D794D12ABCA5570AA70
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139885.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139885.jpgsave_picture_139885.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ USB Raptor 0.18.85.710 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139887.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139887.jpgsave_picture_139887.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Destroy Windows 10 Spying (final version) [Multi/Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139888.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139888.jpgsave_picture_139888.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ HWiNFO 7.67 Build 5275 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139889.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139889.jpgsave_picture_139889.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ magnet:?xt=urn:btih:691619C6902D46EC8D77D730CD2E9F63C8F444DB
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139890.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139890.jpgsave_picture_139890.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ magnet:?xt=urn:btih:FA458CC8C8EA2B89B3B79F8451E7623957F1419C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139891.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139891.jpgsave_picture_139891.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ CodeWithMosh, Mosh Hamedani | Complete Python Mastery (2021) PCRec [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139892.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139892.jpgsave_picture_139892.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ DU Meter 7.20 Build 4761 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139893.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139893.jpgsave_picture_139893.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ magnet:?xt=urn:btih:30CCCD9CEB7040B06EE96B1F6688193688A9EFB8
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139894.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139894.jpgsave_picture_139894.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ Windows 8.1 (x86/x64) 40in1 +/- Office 2016 SmokieBlahBlah 25.12.18 [Ru/En]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139896.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139896.jpgsave_picture_139896.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ magnet:?xt=urn:btih:162984960BA791E3C428D15F5CB9DD482F4EB078
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139897.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139897.jpgsave_picture_139897.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ magnet:?xt=urn:btih:9047B68432164A319C3A58D0F3B5AF1A5E980BA9
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139899.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139899.jpgsave_picture_139899.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ magnet:?xt=urn:btih:DAA99748078F35281995850F033CF277F297DD0D
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139900.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139900.jpgsave_picture_139900.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ magnet:?xt=urn:btih:A140DA3F01F04D51BEEB30F86E1ABE12BC02D1B0
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139901.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139901.jpgsave_picture_139901.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ Steve Hunter - Before The Lights Go Out (2017) [FLAC|Lossless|image + .cue] <Ins
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139902.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139902.jpgsave_picture_139902.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ Adobe Premiere Pro CC 2019 13.0.1.13 RePack by KpoJIuK [Multi/Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139905.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139905.jpgsave_picture_139905.jpg" />
 </div>
 
 

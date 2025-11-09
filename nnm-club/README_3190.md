@@ -6,7 +6,7 @@ PhotoDirector v19.8.0 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103278.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103278.jpgsave_picture_103278.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:FA6E0D77E674E5616FDC20BD1FDEA02EBDCB1BA8
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103279.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103279.jpgsave_picture_103279.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:91B6B0C3FECDCA48BB3B5EE2F9212C1F3784A7BD
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103280.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103280.jpgsave_picture_103280.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:B912882D8A012B218575251FCDC0CB852FFE0DA4
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103281.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103281.jpgsave_picture_103281.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:52AABDA731C73AFBB8BDF267149017FEA87F07F3
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103282.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103282.jpgsave_picture_103282.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ magnet:?xt=urn:btih:14BC92F8A3B20DEC3F738AE8559461130C7AA51B
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103283.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103283.jpgsave_picture_103283.jpg" />
 </div>
 
 
@@ -161,7 +161,7 @@ Photo Editor v11.0 Pro Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103284.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103284.jpgsave_picture_103284.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ magnet:?xt=urn:btih:75EB6CBFE999BFADC36A73E27B1187D794B16211
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103285.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103285.jpgsave_picture_103285.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ magnet:?xt=urn:btih:DC7BE874FD5079C88DBAE472331122B9F77963D4
 >>Баскетбол, Волейбол, Гандбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103286.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103286.jpgsave_picture_103286.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ VA - Pretty Little Deep-House Friends, Vol. 3 (2024) [MP3|320 Kbps] <House, Deep
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103287.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103287.jpgsave_picture_103287.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ Stranger Vision - Faust Act 1: Prelude To Darkness (2024) [FLAC|Lossless|WEB-DL|
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103288.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103288.jpgsave_picture_103288.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ Distant Past - Solaris (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103289.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103289.jpgsave_picture_103289.jpg" />
 </div>
 
 
@@ -315,7 +315,7 @@ Massacre - Necrolution (2024) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103290.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103290.jpgsave_picture_103290.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Katharsis - Evading Equilibrium (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103293.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103293.jpgsave_picture_103293.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ magnet:?xt=urn:btih:4099FC3F9BA62CC1B217075A34514FB45BD43754
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103294.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103294.jpgsave_picture_103294.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ Tungsten - The Grand Inferno (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy-Power M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103295.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103295.jpgsave_picture_103295.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ Sweet Electric - The Monsters Are Rising (2024) [FLAC|Lossless|WEB-DL|tracks] <H
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103296.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103296.jpgsave_picture_103296.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Adam Beyer & Vintage Culture - Drumcode Radio 744(OCA Stage, Só Track Boa Festi
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103297.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103297.jpgsave_picture_103297.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ magnet:?xt=urn:btih:92B617D4F41753BDFFFD960AD52C570160D2B92E
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103298.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103298.jpgsave_picture_103298.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Fans Of The Dark - Video (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Melodic Har
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103299.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103299.jpgsave_picture_103299.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ TMG - TMG II (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103300.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103300.jpgsave_picture_103300.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Turbulence - Binary Dream (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progress
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103301.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103301.jpgsave_picture_103301.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Citizen Vicious - Studio Albums (3 releases) (2015-2024) hand made [restored, de
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103302.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103302.jpgsave_picture_103302.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Steelcity - Reverence (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Melodic Hard R
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103303.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103303.jpgsave_picture_103303.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Cleanbreak - We Are The Fire (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Heavy M
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103304.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103304.jpgsave_picture_103304.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ magnet:?xt=urn:btih:7F7A1D090D48D83BC7645BFD22B902607FAF8F4E
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103305.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103305.jpgsave_picture_103305.jpg" />
 </div>
 
 

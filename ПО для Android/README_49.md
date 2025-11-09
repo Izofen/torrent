@@ -6,7 +6,7 @@ Xiaomi Home (Ранее. MiHome) v10.9.708 Fix Mod by Vevs [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124390.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124390.jpgsave_picture_124390.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Lighting calculations / Расчеты освещения v6.1.9 Mod by Balatan 
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124442.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124442.jpgsave_picture_124442.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Smart AudioBook Player Pro v11.5.4 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124466.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124466.jpgsave_picture_124466.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Smart AudioBook Player Pro v11.5.4 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124468.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124468.jpgsave_picture_124468.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ SD Maid v5.6.3 Extra Mod + Dark-Venom Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124596.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124596.jpgsave_picture_124596.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Sense V2 Flip Clock & Weather v6.50.0 Mod by Timozhai [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124693.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124693.jpgsave_picture_124693.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Grab Photos From Videos / Фото из видео v11.1.0 Mod by derrin [Ru/Mul
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124771.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124771.jpgsave_picture_124771.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Fraction Calculator Plus v5.7.1 Mod by srajawwal09 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124798.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124798.jpgsave_picture_124798.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ FBReader Premium v3.5.5 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124825.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124825.jpgsave_picture_124825.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Colorfy PLUS - Coloring Book v3.24 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124875.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124875.jpgsave_picture_124875.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ VivaVideo Video Editor v9.13.0 Mod by maxi123444 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124888.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124888.jpgsave_picture_124888.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ MD.emu 1.5.76 Mod by DAG-05 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124922.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124922.jpgsave_picture_124922.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Piano Melody vDua Lipa fix (268) Mod by TryRoom [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124929.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124929.jpgsave_picture_124929.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Tiny Scan: PDF Document Scanner 6.1.2 Mod by PieMods [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124951.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124951.jpgsave_picture_124951.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Fishing Knots Pro / Рыбацкие узлы Pro v8.1.17 Paid [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125496.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125496.jpgsave_picture_125496.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Photomath v8.46.0 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125768.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125768.jpgsave_picture_125768.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ PicWish: AI Photo Editor v2.2.0 Mod by NURIK kz [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125769.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125769.jpgsave_picture_125769.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ PhotoDirector v20.6.0 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125792.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125792.jpgsave_picture_125792.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Genius Art: Image AI Generator v1.5.2 Mod by vadj [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125813.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125813.jpgsave_picture_125813.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ magnet:?xt=urn:btih:A9991B0B14C67C5BD0C7D63674734190D2CDB56A
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125847.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125847.jpgsave_picture_125847.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ Ventusky: Прогноз погоды v48.0 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125848.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125848.jpgsave_picture_125848.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ Fraction Calculator by Mathlab / Калькулятор Дробей v2025.09.55
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125849.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125849.jpgsave_picture_125849.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:D7D2A15E11ADEC8A7CE94EA50C375C2E53D8DDAC
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125850.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125850.jpgsave_picture_125850.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ magnet:?xt=urn:btih:FA3CDC5621B82F05557959C9D2DF726249E56661
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125915.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125915.jpgsave_picture_125915.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Mirror Lab v2.6.9.4 Mod by Alex.Strannik [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125918.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125918.jpgsave_picture_125918.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ magnet:?xt=urn:btih:479DFAC65158D2302C9BC93F808E2E161569F5C2
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125920.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125920.jpgsave_picture_125920.jpg" />
 </div>
 
 

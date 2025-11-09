@@ -6,7 +6,7 @@
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25986.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25986.jpgsave_picture_25986.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:A385C65711807217471A9D1070FE58489F5EE7B8
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25987.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25987.jpgsave_picture_25987.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Might and Magic: Heroes VI / Might & Magic: Heroes VI / Герои меча и �
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25988.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25988.jpgsave_picture_25988.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Spotify: музыка и подкасты v9.0.16.572 LiteMod by Balatan [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25989.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25989.jpgsave_picture_25989.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:A4DA515ADC784991F8BEB6E4A810F3B8D3376AB0
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25990.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25990.jpgsave_picture_25990.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ Dee Snider - 12 albums (1992-2021) [FLAC|Lossless|image + .cue | tracks +.cue] <
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25991.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25991.jpgsave_picture_25991.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ Final Fantasy VII Rebirth (2025) [Multi] (build 17035252/dlc) Repack FitGirl [Di
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25992.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25992.jpgsave_picture_25992.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ magnet:?xt=urn:btih:3F4CD2ABA6E90C359D18C65DC57692A6CEF3F065
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25993.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25993.jpgsave_picture_25993.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ magnet:?xt=urn:btih:194C3A5B5F205095ACCF1FBEFF9D0BFB64F773E0
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25994.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25994.jpgsave_picture_25994.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ magnet:?xt=urn:btih:1C12DB7C2132E929B18C3C9ED910CEF9A15FAE77
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25995.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25995.jpgsave_picture_25995.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ magnet:?xt=urn:btih:AC28850D76FD9EADEC6D309BB2B4B025976520A8
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25996.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25996.jpgsave_picture_25996.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ magnet:?xt=urn:btih:0E2064D460B7008677A5ED17D757B2405071EFEB
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25997.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25997.jpgsave_picture_25997.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ VA - Дискотека 2025 Dance Club Vol.227 [NNNB] (2025) [MP3|320 Kbps] <Da
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25998.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25998.jpgsave_picture_25998.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Warren Eagles | FF201 Advanced Resolve 11 (2014) PCRec [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25999.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25999.jpgsave_picture_25999.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ VA - Space Odissey (2025) [MP3|320 Kbps] <Synthetic, Space, Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26000.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26000.jpgsave_picture_26000.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Digiarty AIArty Image Matting 2.5 RePack (& Portable) by elchupacabra [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26001.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26001.jpgsave_picture_26001.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ VA - Winter Cafe Bar (2025) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26002.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26002.jpgsave_picture_26002.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ magnet:?xt=urn:btih:2A9EB3332DCA35F673557F6A0B0BE40789E1A91B
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26003.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26003.jpgsave_picture_26003.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Far Manager 3.0.6446 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26004.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26004.jpgsave_picture_26004.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ magnet:?xt=urn:btih:7BEFB0DB58ABD215FE4A5C53EB3F2677BD0D2299
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26005.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26005.jpgsave_picture_26005.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ magnet:?xt=urn:btih:AF4639F839F6AED96DA4A47338C91ABC5F40D87E
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26006.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26006.jpgsave_picture_26006.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ magnet:?xt=urn:btih:41B0D087248DF44220599C295E68B873D46F8980
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26007.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26007.jpgsave_picture_26007.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ U.D.O. - 36 albums, 88 CD (1987-2025) [FLAC|Lossless|image + .cue | tracks + .cu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26008.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26008.jpgsave_picture_26008.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ magnet:?xt=urn:btih:0760AF39D5FB3F85153CA503CE29E6F06C24AD00
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26009.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26009.jpgsave_picture_26009.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ Nunholy (2025) [Ru/Multi] (1.0.01) Repack Let'sРlay [18+]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26010.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26010.jpgsave_picture_26010.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Dragon Age: The Veilguard (2024) [Ru/Multi] (Build 17026604 Patch 5/dlc) Repack 
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26011.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26011.jpgsave_picture_26011.jpg" />
 </div>
 
 

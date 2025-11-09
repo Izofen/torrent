@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232719.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232719.jpgsave_picture_232719.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Inmortalia - Alegorias (2023) [MP3|320 Kbps] <Gothic Metal, Female Vocals>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232721.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232721.jpgsave_picture_232721.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Ockra - Gratitude (2023) [FLAC|Lossless|WEB-DL|tracks] <Doom Prog>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232722.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232722.jpgsave_picture_232722.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Wondershare PDFelement 9.5.8.2267 + OCR Plugin (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232724.jpgsave_picture_232724.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ ExamDiff Pro Master Edition 14.0.1.8 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232725.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232725.jpgsave_picture_232725.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ MelloW - Полураспад (2023) [FLAC|Lossless|WEB-DL|tracks] <Nu-Metalcore
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232726.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232726.jpgsave_picture_232726.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:7A394F72A2D202D4ECF080D98007EB90D85BB304
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232728.jpgsave_picture_232728.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ Exif Pilot 6.20.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232730.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232730.jpgsave_picture_232730.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ Wondershare PDFelement 9.5.8.2267 + OCR Plugin (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232732.jpgsave_picture_232732.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ Hrothgar - Rise of Ragnarok (2023) [MP3|320 Kbps] <Melodic Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232733.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232733.jpgsave_picture_232733.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ magnet:?xt=urn:btih:768037F0E15F8A71D0522012D9D8765F35CE6787
 >>Авторская и Военная песня (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232734.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232734.jpgsave_picture_232734.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ Process Lasso Pro 12.2.0.16 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232736.jpgsave_picture_232736.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ magnet:?xt=urn:btih:F5389A164F00A98102EDE8AF101F8C7FD84DF35C
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232737.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232737.jpgsave_picture_232737.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ Fresh Air - Fresh Air (1973) [MP3|320 Kbps] <Psychedelic Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232739.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232739.jpgsave_picture_232739.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ L’Homme Absurde - Stranger (2023) [FLAC|Lossless|image + .cue] <Black Metal, B
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232741.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232741.jpgsave_picture_232741.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ XYplorer 24.60.0100 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232742.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232742.jpgsave_picture_232742.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ VA - AMVA Top Trance Collection 2023 - 2024 (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232745.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232745.jpgsave_picture_232745.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ GOM Player Plus 2.3.87.5356 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232746.jpgsave_picture_232746.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ magnet:?xt=urn:btih:D911FF3CC2C0B1B591C26269CA9C3D3F2462AFE6
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232747.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232747.jpgsave_picture_232747.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ magnet:?xt=urn:btih:44F70096132DCD19F6040C9A782CB8AFD811A80F
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232749.jpgsave_picture_232749.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ Some Pills For Ayala - 5 Releases (2021-2023) [MP3|320 Kbps] <Heavy Psych, Stone
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232750.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232750.jpgsave_picture_232750.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ The Body - I Shall Die Here / Earth Triumphant (2023) [FLAC|Lossless|WEB-DL|trac
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232751.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232751.jpgsave_picture_232751.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Auslogics BoostSpeed 13.0.0.4 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232752.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232752.jpgsave_picture_232752.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Hrothgar - Rise of Ragnarok (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232753.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232753.jpgsave_picture_232753.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ magnet:?xt=urn:btih:65F374E552A71D7F28944EC84C7F2C34309826D9
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232756.jpgsave_picture_232756.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Wasteland Haze - Welcome To Wasteland Haze (2023) [FLAC|Lossless|WEB-DL|tracks] 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232758.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232758.jpgsave_picture_232758.jpg" />
 </div>
 
 

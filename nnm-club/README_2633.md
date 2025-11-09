@@ -6,7 +6,7 @@ Dead Rabbitts, Judge & Jury, Escape the Fate - Redefined (2025) [FLAC 24/48|Loss
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69208.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69208.jpgsave_picture_69208.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Malevolent Hand - Entropic Immolation (2025) [FLAC|Lossless|WEB-DL|tracks] <Heav
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69209.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69209.jpgsave_picture_69209.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Sonny Rollins - In Denmark, Vol.2 (1968) 1992, Moon Records [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69210.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69210.jpgsave_picture_69210.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Rioghan - Kept (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative Metal, 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69211.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69211.jpgsave_picture_69211.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Sonny Rollins - In Denmark, Vol.1 (1968) 1992, Moon Records [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69212.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69212.jpgsave_picture_69212.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ magnet:?xt=urn:btih:4A997D80EBBB11152F93D75171FC97144CEA07F5
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69213.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69213.jpgsave_picture_69213.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ magnet:?xt=urn:btih:A3F3303A9021362740FFE8220F5C1282D999F4C7
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69214.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69214.jpgsave_picture_69214.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ magnet:?xt=urn:btih:36907FD4FFF7BDFE9E55AB6F1025024CE03D0556
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69215.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69215.jpgsave_picture_69215.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ VA - Ablazing Spring Sessions 2025 (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69216.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69216.jpgsave_picture_69216.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ magnet:?xt=urn:btih:75B48902CDF6379A43347DC5FD306D962E5E1E15
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69217.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69217.jpgsave_picture_69217.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Max Hightower - Nothin' but the Truth (2025) [FLAC|Lossless|WEB-DL|tracks] <Blue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69218.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69218.jpgsave_picture_69218.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Katrina - Amor Vampírico (2025) [FLAC|Lossless|WEB-DL|tracks] <Symphonic, Gothi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69219.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69219.jpgsave_picture_69219.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ magnet:?xt=urn:btih:27D6B753942FA4E5FE0ED8E9F5D9189314710A8A
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69220.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69220.jpgsave_picture_69220.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Melon Jelly - The Road to Memphis (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69221.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69221.jpgsave_picture_69221.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Erocis - The Sunken Lands (2025) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69222.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69222.jpgsave_picture_69222.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Rioghan - Kept (2025) [FLAC|Lossless|WEB-DL|tracks] <Gothic, Progressive Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69223.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69223.jpgsave_picture_69223.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ HeavyDrunk, Watermelon Slim - BluesLand Theme Park (2025) [FLAC|Lossless|WEB-DL|
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69224.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69224.jpgsave_picture_69224.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ magnet:?xt=urn:btih:1683150A05A2C0199AC6BDE780CE96BCB1E89B2E
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69225.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69225.jpgsave_picture_69225.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ magnet:?xt=urn:btih:81F82FF70F54391CA6093E8343EFFE97910C680A
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69226.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69226.jpgsave_picture_69226.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ magnet:?xt=urn:btih:C93E9F8D7C6D8E98546C7FF69A62B9BD268F6EE6
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69227.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69227.jpgsave_picture_69227.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Himmelkraft - Himmelkraft (2025) [FLAC|Lossless|WEB-DL|tracks] <Power, Symphonic
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69228.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69228.jpgsave_picture_69228.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ magnet:?xt=urn:btih:999042AE74C69DE082C49C48D3BA680117FC4148
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69229.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69229.jpgsave_picture_69229.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Marco J & The Jaywalkers - Dynamite (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69230.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69230.jpgsave_picture_69230.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ magnet:?xt=urn:btih:67D7B1F72A8117B9695D9C2AE75B81E9D98A3714
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69231.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69231.jpgsave_picture_69231.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Ben Lloyd - Leave No Stone Unturned (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69232.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69232.jpgsave_picture_69232.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ Riot - Archives Volume 4 : 1988-1989 (2019) Compilation [FLAC|Lossless|image + .
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69233.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69233.jpgsave_picture_69233.jpg" />
 </div>
 
 

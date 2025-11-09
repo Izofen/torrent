@@ -6,7 +6,7 @@ Magic Uneraser Home / Office / Commercial Edition 6.8 RePack (& Portable) by Try
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230841.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230841.jpgsave_picture_230841.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ RTG. Природный парк «Вепсский лес» (2013) HDTV [H.264/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_230843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230843.jpgsave_picture_230843.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:139D3FBFE821294D8BFDDE953BAB9731444BC4D5
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230844.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230844.jpgsave_picture_230844.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:9FC3AD90AA3679DBF40A6A0A6329A00D54DFAF66
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230847.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230847.jpgsave_picture_230847.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ UninstallPKG 1.2.0  [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230848.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230848.jpgsave_picture_230848.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:3B64ACCC8AF2E8818DFFA85AA7C450ABDFD85F80
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230851.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230851.jpgsave_picture_230851.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ Marvel | Артбук художника Marko Djurdjevic / The Marvel Art of Ma
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_230852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230852.jpgsave_picture_230852.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ Mystfall - Celestial Vision (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230854.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230854.jpgsave_picture_230854.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ Peter Bergting | Артбук художника Peter Bergting / The Art of Pet
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_230855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230855.jpgsave_picture_230855.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ VA - Milk & Sugar Summer Sessions 2023 [MP3|320 Kbps] <Funky, Club House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230857.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230857.jpgsave_picture_230857.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ magnet:?xt=urn:btih:8A2FCFE708C86B6DE008B1829F64C1E13F22898B
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230858.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230858.jpgsave_picture_230858.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ Sloth 3.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230860.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230860.jpgsave_picture_230860.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ TrackView - HomeSafe v3.8.12  [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_230862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230862.jpgsave_picture_230862.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:29140D9E790C43FD41ABCFBB5B1BD63A0553260E
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_230863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230863.jpgsave_picture_230863.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ X Icon Changer - Change Icons 4.2.9 Mod by Citrus [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230864.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230864.jpgsave_picture_230864.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Topaz Video AI 3.3.6 (x64) RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230865.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230865.jpgsave_picture_230865.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Ravenchild - Caves Of Valhalla (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard 'n' He
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230866.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230866.jpgsave_picture_230866.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ magnet:?xt=urn:btih:45F91FE55BDBCEABBE9FD2CAAD2B7858096D9FCD
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_230869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230869.jpgsave_picture_230869.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ PDF Extra: сканер и редактор 10.4.2088 Mod by derrin, Balatan [Ru
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230870.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230870.jpgsave_picture_230870.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ magnet:?xt=urn:btih:DAEA3F6CD2D959F2040C2814353EF599D6880448
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230872.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230872.jpgsave_picture_230872.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ magnet:?xt=urn:btih:71A7B8A9E2978C5558FA3293402F5EF8CC771E54
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230875.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230875.jpgsave_picture_230875.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ Boxy SVG 4.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230876.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230876.jpgsave_picture_230876.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ magnet:?xt=urn:btih:0DD9CD5B1DE78ADB40A8538612B870954096AF07
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_230877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230877.jpgsave_picture_230877.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ MediBang Paint Pro 25.1 Mod by srajawwal09 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230879.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230879.jpgsave_picture_230879.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ magnet:?xt=urn:btih:3DE1D5CC48F71023038F294F218F210B9747DE4E
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_230882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230882.jpgsave_picture_230882.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Johnny Booth - Moments Elsewhere (2023) [FLAC|Lossless|WEB-DL|tracks] <Metalcore
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230883.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230883.jpgsave_picture_230883.jpg" />
 </div>
 
 

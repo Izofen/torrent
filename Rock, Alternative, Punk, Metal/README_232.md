@@ -6,7 +6,7 @@ Shakra - Power Ride (2001) [MP3|320 кб/с]<Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148866.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148866.jpgsave_picture_148866.jpg" />
 </div>
 
 
@@ -39,7 +39,7 @@ Sticky Fingers - Like A Rolling Stone (2012) [MP3|320 кб/с]<Classic Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148970.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148970.jpgsave_picture_148970.jpg" />
 </div>
 
 
@@ -72,7 +72,7 @@ The Police - Message In A Box: The Complete Recordings (1993) [MP3|320 кб/с]<
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148986.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148986.jpgsave_picture_148986.jpg" />
 </div>
 
 
@@ -101,7 +101,7 @@ magnet:?xt=urn:btih:8E1978030B3FFB66D5389AA001213AF8A269856A
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149005.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149005.jpgsave_picture_149005.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Roger Waters - The Wall (Live In Berlin) (1990) 2SACD, 2003, Mercury [FLAC|Lossl
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149019.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149019.jpgsave_picture_149019.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ The Jack - Tribute to ACDC (2023) Live [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149078.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149078.jpgsave_picture_149078.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ Mark Knopfler - Shangri-La (2004) SACD [FLAC|Lossless|tracks + .cue] <Folk Rock,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149115.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149115.jpgsave_picture_149115.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Muse - Absolution XX Anniversary (2003) Remaster, 2023, Warner Records [FLAC|Los
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149129.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149129.jpgsave_picture_149129.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ The Allman Brothers Band - 5 Classic Albums (2015) Universal Music [FLAC|Lossles
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149132.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149132.jpgsave_picture_149132.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ Roxy Music - The Best Of Roxy Music (2001) SACD, Compilation, 2003, Virgin [FLAC
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149159.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149159.jpgsave_picture_149159.jpg" />
 </div>
 
 
@@ -290,7 +290,7 @@ David Bowie - The Rise And Fall Of Ziggy Stardust And The Spiders From Mars (197
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149175.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149175.jpgsave_picture_149175.jpg" />
 </div>
 
 
@@ -317,7 +317,7 @@ Adler - Back From The Dead (2012) [MP3|320 кб/с]<Hard Rock / Glam>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149232.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149232.jpgsave_picture_149232.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Frank Zappa - Over-Nite Sensation (1973) 50th Anniversary, 2023 [FLAC 24/96|Loss
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149259.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149259.jpgsave_picture_149259.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ This Dying Hour - Longest Memory From The Shortest Life (2007) Delux Edition, 20
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149271.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149271.jpgsave_picture_149271.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Jethro Tull - Too Old To Rock 'N' Roll: Too Young To Die! (1976) 2CD Box Set, 20
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149336.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149336.jpgsave_picture_149336.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Oomph! - Richter und Henker (2023) [FLAC|Lossless|image + .cue] <Industrial Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149341.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149341.jpgsave_picture_149341.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ Bucovina - Nestramutat (2015) [MP3|320 кб/с] <Folk Metal, Pagan Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149351.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149351.jpgsave_picture_149351.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ Frank Zappa - Over-Nite Sensation (1973) 50th Anniversary, 2023, Frank Zappa Cat
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149381.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149381.jpgsave_picture_149381.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Nightwolf - The Cult of the Wolf (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149397.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149397.jpgsave_picture_149397.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Bon Jovi - Have A Nice Day (2005) [FLAC|Lossless|tracks + .cue] <Pop Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149427.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149427.jpgsave_picture_149427.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Asia - Live at the Teatro Colegiales, Buenos Aires, Argentina, 2011 (2023) [FLAC
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149438.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149438.jpgsave_picture_149438.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Darkness Ablaze - It All Shall Burn (2023) [MP3|320 Kbps] <Melodic Death, Black 
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149451.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149451.jpgsave_picture_149451.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ VA - Полигон Records. Всё самое лучшее 2020 [MP3|320 Kbps] 
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149481.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149481.jpgsave_picture_149481.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ Lacrimosa - Leidenschaft (2021) [MP3|320 Kbps] <Symphonic Gothic Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149487.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149487.jpgsave_picture_149487.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ VA - Pink Floyd Tribute (2021) 2xSet [MP3|320 Kbps] <Psychedelic Rock, Classic R
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149502.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149502.jpgsave_picture_149502.jpg" />
 </div>
 
 
@@ -701,7 +701,7 @@ Animal ДжаZ - Раритеты (2021) [MP3|320 Kbps] <Alternative>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149713.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149713.jpgsave_picture_149713.jpg" />
 </div>
 
 

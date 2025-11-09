@@ -6,7 +6,7 @@ K-Lite Codec Pack 19.3.0 Mega/Full/Standard/Basic [En]
 >>Видео Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246229.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246229.jpgsave_picture_246229.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Novation - Bass Station v.1.7[VSTi][английский]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_248292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_248292.jpgsave_picture_248292.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ FXpansion - BFD Eco v.1.0.1.27+(BFD Eco Data v 1.1.5) by ASSIGN[BIN|ISO][анг�
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_248330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_248330.jpgsave_picture_248330.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ VidCoder 12.11 + Portable [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248546.jpgsave_picture_248546.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Fast Video Cutter Joiner 6.9.2.0 Portable by 7997 [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248614.jpgsave_picture_248614.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Wondershare UniConverter 17.0.0.425 RePack (& Portable) by elchupacabra [Multi/R
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249042.jpgsave_picture_249042.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Turbo Play Free 2.4651 [En]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249439.jpgsave_picture_249439.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ GForce Software Minimonsta2 1.0.1 Standalone, VSTi, VSTi 3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249631.jpgsave_picture_249631.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ Blue Cat's Connector 1.12 VST, VST 3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249833.jpgsave_picture_249833.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Unfiltered Audio Plugins 2023.3 VST, VST 3, AAX RePack by TCD [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250021.jpgsave_picture_250021.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ BLEASS - Motion EQ 1.1.1 VST 3, AAX (x64) RePack by TCD [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250093.jpgsave_picture_250093.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Winxvideo AI 4.5 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250333.jpgsave_picture_250333.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Spotify 1.2.75.280 Repack & Portable by elchupacabra (x64) [Multi/Ru]
 >>Аудио Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250370.jpgsave_picture_250370.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ VidCoder 12.12 + Portable [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250372.jpgsave_picture_250372.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Shotcut 25.10.31 + Portable [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250431.jpgsave_picture_250431.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ PotPlayer 251028 (1.7.22691) Beta RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Видео Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250508.jpgsave_picture_250508.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ VideoProc Converter AI 8.5 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250509.jpgsave_picture_250509.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ Spectrasonics - Omnisphere 3.0.0d STANDALONE, VST / VSTi, VST 3 / VSTi 3, AAX (x
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250537.jpgsave_picture_250537.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ Affinity Studio 3.0.0.3791 [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250592.jpgsave_picture_250592.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ DxO PhotoLab 9.2.0 build 524 RePack by KpoJIuK [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250753.jpgsave_picture_250753.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Capture One 23 Pro/Enterprise 16.7.1.3218 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250754.jpgsave_picture_250754.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Blackmagic Design DaVinci Resolve Studio 20.2.3 Build 6 RePack by KpoJIuK [Multi
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250813.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250813.jpgsave_picture_250813.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ DMG Audio - Compassion v.1.06 x86 x64[VST2|VST3|RTAS][английский]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250987.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250987.jpgsave_picture_250987.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ StaxRip 2.50.4 Portable [En]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251218.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251218.jpgsave_picture_251218.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Steinberg - Cubase Pro 15 15.0.5 (x64) [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251286.jpgsave_picture_251286.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ Capture One 23 Enterprise 16.7.1.3218 RePack by KpoJIuK [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251709.jpgsave_picture_251709.jpg" />
 </div>
 
 

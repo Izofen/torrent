@@ -6,7 +6,7 @@ Subnautica (2018) [Ru/Multi] (83031) Repack Pioneer
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249369.jpgsave_picture_249369.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:FA5208EBB6AC6C430678F774A345B49E01768272
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249370.jpgsave_picture_249370.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ White Feet, Nasser Ben Dadoo - Blue Legacy (2023) [FLAC|Lossless|WEB-DL|tracks] 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249371.jpgsave_picture_249371.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:EFD4A947A89DA4865CEB78786E0EC46D3DCB01CA
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249372.jpgsave_picture_249372.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:5EE23A58D6FBC3B18AC1FC4F7ECA577F8118307F
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249373.jpgsave_picture_249373.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Tormented Souls 2 (2025) [Ru/Multi] (1.2.0/dlc) Repack FitGirl [Digital Deluxe E
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249374.jpgsave_picture_249374.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Topaz Video AI 3.1.9 (x64) RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249375.jpgsave_picture_249375.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Led Zeppelin - Led Zeppelin III (1970) 2xCD, Remastered, 2014, Atlantic Recordin
 >>Hard Rock (Hi Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249376.jpgsave_picture_249376.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ The Outer Worlds 2 (2025) [Ru/Multi] (1.0.3.0 Build 20467470/dlc) Repack seleZen
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249377.jpgsave_picture_249377.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:FF8813B846E4BECC24ED1263B79D383729B26EF2
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249378.jpgsave_picture_249378.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ VA - Blind Raccoon & Nola Blue Collection Vol. 5 (2023) [FLAC|Lossless|WEB-DL|tr
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249379.jpgsave_picture_249379.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ magnet:?xt=urn:btih:6B9CC89EE8CE0EE6C93C737728ADD9D188AFA60D
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249380.jpgsave_picture_249380.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ VA - Space Odyssey - Trip Three: New Year’s Voyage 2018 (2017) 2 CD [OGG Vorbi
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249381.jpgsave_picture_249381.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:4F1FD22D79276FB03C0A72197848A2032D56A100
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249382.jpgsave_picture_249382.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ magnet:?xt=urn:btih:17F6213CAAE93E35050054420058AE6FC1E802CF
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249383.jpgsave_picture_249383.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ magnet:?xt=urn:btih:05B51D4CD83F2828C7921B8527A302EF093997BA
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249384.jpgsave_picture_249384.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ magnet:?xt=urn:btih:F52BECBE74C3D9271B91107AF0A30E9584D4CE28
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249385.jpgsave_picture_249385.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ magnet:?xt=urn:btih:DAE4E983A71BA8FB1F4D4958DDBE495A4FE55DED
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249386.jpgsave_picture_249386.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Epic Games, Wes Bunn | UMG UI Inventory Unreal Engine (2014) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249387.jpgsave_picture_249387.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Grand Blue Season 2 | Grand Blue Dreaming Season 2 | Необъятный оке
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249388.jpgsave_picture_249388.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ magnet:?xt=urn:btih:21466F3966983DCBFB14D938126B0F6C5F209E03
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249389.jpgsave_picture_249389.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ Transworld Identity - Seven Worlds (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249390.jpgsave_picture_249390.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ Unreal Engine, Paulo Souza | Profiling and Optimization in UE4 | Unreal Indie De
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249391.jpgsave_picture_249391.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ magnet:?xt=urn:btih:A6025CC0D3B4BCF742E62220156FB1FD2E6D4692
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249392.jpgsave_picture_249392.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ magnet:?xt=urn:btih:03E2AB6D253315307A9B1315CD17B642C2DB1068
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249393.jpgsave_picture_249393.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ The Steve Gibbons Band - 7 Альбомов (1976-1988) [FLAC|Lossless|tracks + 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249394.jpgsave_picture_249394.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_190980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_190980.jpgsave_picture_190980.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:13B43647909B560D1E56BED08B3D0C9932CCDD2C
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190981.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190981.jpgsave_picture_190981.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Ravanna - 2 Albums (2022-2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190982.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190982.jpgsave_picture_190982.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:6D844A8714331DF99123B99F2E23E7ED7F227ADD
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_190983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_190983.jpgsave_picture_190983.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Google Earth Pro 7.3.6.9277 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_190984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_190984.jpgsave_picture_190984.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:E81A97A8F78AF0F889511C0F2CB51404F7BF349A
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190985.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190985.jpgsave_picture_190985.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:3603B0CD6799C394ACCFE49253995A56F56813A2
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190986.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190986.jpgsave_picture_190986.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ DP Animation Maker 3.5.12 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_190987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_190987.jpgsave_picture_190987.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ Alcatrazz - V (2021) Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190988.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190988.jpgsave_picture_190988.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ magnet:?xt=urn:btih:3BA094D2BF536C1C8A782F88350AAF60AD3F91A9
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_190989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_190989.jpgsave_picture_190989.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ magnet:?xt=urn:btih:7B3D8ACF1AC159A38EF26046089F9458E774E190
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_190990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_190990.jpgsave_picture_190990.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ Iced Earth - Hellrider - I Walk Among You (2023) Compilation, Remastered [FLAC|L
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190991.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190991.jpgsave_picture_190991.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ magnet:?xt=urn:btih:4202F1E383E0CA0D393CD2EC69BBE43C711297E0
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_190992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_190992.jpgsave_picture_190992.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ MotoGP. Этап 12. Гран-при Сан-Марино. Квалификаци
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190993.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190993.jpgsave_picture_190993.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ ThisIsMyFile 4.11 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_190994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_190994.jpgsave_picture_190994.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ magnet:?xt=urn:btih:6BC409514A70DE82831EF17957FAA972AE4FCD79
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_190995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_190995.jpgsave_picture_190995.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ Joe Dassin - Joe Dassin Éternel... (2022) Edition deluxe [FLAC|Lossless|WEB-DL|
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_190996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_190996.jpgsave_picture_190996.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ magnet:?xt=urn:btih:D1D0E84376C151C60644D818AA173A824B76EB39
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_190997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_190997.jpgsave_picture_190997.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ MediaHuman YouTube Downloader 3.9.9.76 (2410) RePack (& Portable) by TryRooM [Mu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_190998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_190998.jpgsave_picture_190998.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ magnet:?xt=urn:btih:B311CE618089BAD48FA00678209DDC29E03FA253
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_190999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_190999.jpgsave_picture_190999.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ magnet:?xt=urn:btih:02B5501115FA19CAE4D83C0497988D2069C32994
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191000.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191000.jpgsave_picture_191000.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ magnet:?xt=urn:btih:97ABE268D0D4D2B24410BB769C80A4821D809D7A
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_191001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191001.jpgsave_picture_191001.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ MotoGP. Этап 12. Гран-при Сан-Марино. Спринт (09.09.20
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191002.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191002.jpgsave_picture_191002.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Jag Panzer - Mechanized Warfare (2001) [FLAC|Lossless|image + .cue] <Heavy, Powe
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191003.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191003.jpgsave_picture_191003.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ magnet:?xt=urn:btih:1CA7E21BEE57226BAAC82257FE5AE703ADBA1F06
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_191004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191004.jpgsave_picture_191004.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ magnet:?xt=urn:btih:CBEABA416703D4077FDC07413C9537321F0FC760
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_191005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191005.jpgsave_picture_191005.jpg" />
 </div>
 
 

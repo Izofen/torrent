@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40630.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40630.jpgsave_picture_40630.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:093D5EC8B56013B30165C21FBE2444D8DE1D6A1C
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40631.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40631.jpgsave_picture_40631.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:A98D01006E16F7621A97CEE230AD32C89C97AFFE
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40632.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40632.jpgsave_picture_40632.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Europa (2024) [Multi] (1.0) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40633.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40633.jpgsave_picture_40633.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Stepik, Александр Чумилин | Основы этичного хак
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40634.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40634.jpgsave_picture_40634.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:63A1961E6DFFF281F1866925948F136D450A61F5
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40635.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40635.jpgsave_picture_40635.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:33302AE528213D50C28474991C5E6BCCE4315FEC
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40636.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40636.jpgsave_picture_40636.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:983EFC194A7E002486BA3C442EC99EA42DC3D789
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40637.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40637.jpgsave_picture_40637.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:2F76AF710F168F5D6E91FE05462C7F595AF32E38
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40638.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40638.jpgsave_picture_40638.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:441930211F28697DFE56CEB693B9749520FFD82A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40639.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40639.jpgsave_picture_40639.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Mech Engineer (2020) [Ru/Multi] (1.0.65) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40640.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40640.jpgsave_picture_40640.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:E06884568C626BE26F8BE8D913DA1AAEFF0BC178
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40641.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40641.jpgsave_picture_40641.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:3AAEE3D074E1EB96BE1A286B8809DDA7CE107B4B
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40642.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40642.jpgsave_picture_40642.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:A03C6CBCB9EC8FDD9865C512344275A1918D61B8
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40643.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40643.jpgsave_picture_40643.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Microsoft Windows 11 24H2 (26100.1882) Enterprise LTSC by OVGorskiy 10.2024 [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40644.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40644.jpgsave_picture_40644.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Windows 11 Pro VL x64 24H2 26100.2033 by OVGorskiy 10.2024 [RU]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40645.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40645.jpgsave_picture_40645.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ magnet:?xt=urn:btih:A4EC78EE71AC71082150D8737D519961F7C65923
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40646.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40646.jpgsave_picture_40646.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ HEU KMS Activator 42.3.0 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40647.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40647.jpgsave_picture_40647.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ magnet:?xt=urn:btih:504AE9A820822E86184557843849023EDDA1A7B2
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40648.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40648.jpgsave_picture_40648.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Ash of Gods: Redemption (2018) [Ru/Multi] (1.6.24/dlc) License GOG [Digital Delu
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40649.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40649.jpgsave_picture_40649.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ magnet:?xt=urn:btih:62CE842F9065BD6F0AC1B1F90DE89B8090C77C70
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40650.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40650.jpgsave_picture_40650.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Parallels Desktop 20 20.1.0 (55732) [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40651.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40651.jpgsave_picture_40651.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ magnet:?xt=urn:btih:F54576F67C75E7C39FBB0ED8CB17EAFC2468855C
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40652.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40652.jpgsave_picture_40652.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Deep Purple & Orchestra: Live At Montreux (2011) Blu-ray 1080i
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40653.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40653.jpgsave_picture_40653.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ magnet:?xt=urn:btih:26F7E28FDC41B33DB7EC110E694D8C7F5B7252F6
 >>Авторская и Военная песня (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40654.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40654.jpgsave_picture_40654.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ magnet:?xt=urn:btih:4C9C0FE43193A7E7C3C69491A933CBF2DF3248E3
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40655.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40655.jpgsave_picture_40655.jpg" />
 </div>
 
 

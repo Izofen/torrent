@@ -6,7 +6,7 @@
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205954.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205954.jpgsave_picture_205954.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ MyRadar - Weather Radar Pro 8.49.7 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205956.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205956.jpgsave_picture_205956.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:2863004A0295827B7992EB9B5930C4089B8E3FEF
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205959.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205959.jpgsave_picture_205959.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ The Sixting Music - Rendering Pink Floyds (1974) [MP3|320 Kbps] <Progressive Roc
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205962.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205962.jpgsave_picture_205962.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Oliver Shanti - Beating Heart (2023) [MP3|320 Kbps] <Electronic, Lounge, Relax, 
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205963.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205963.jpgsave_picture_205963.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ magnet:?xt=urn:btih:F5A9F3039CC76D95CD95D374AA6CC2C575CB94C5
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205964.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205964.jpgsave_picture_205964.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ Sumit Jaiswal | Git Repository Management in 30 Days (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205966.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205966.jpgsave_picture_205966.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ Dan Wellman | Ultimate Typescript Handbook (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205969.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205969.jpgsave_picture_205969.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ LibreWolf 116.0.3-1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205970.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205970.jpgsave_picture_205970.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ Karunesh - Heart To Heart (2023) [MP3|320 Kbps] <Electronic, Lounge, Relax, Medi
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205972.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205972.jpgsave_picture_205972.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ Windows Update Viewer 0.5.19.0 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205974.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205974.jpgsave_picture_205974.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ magnet:?xt=urn:btih:6787544E25EC8CA5889B64BA565C1A7B0EDBA122
 >>История
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205976.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205976.jpgsave_picture_205976.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ magnet:?xt=urn:btih:F24EECF1E7A78E81836617EF206332C051FBACAA
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205981.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205981.jpgsave_picture_205981.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ magnet:?xt=urn:btih:77E084AD8D954AADBC61C39747F14BB4F9FBF36B
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205983.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205983.jpgsave_picture_205983.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Ozzy Osbourne - Patient Number 9 (2022) [WavPack|32/192|image + .cue|Vinyl-Rip]<
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205984.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205984.jpgsave_picture_205984.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Opera GX 101.0.4843.55 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205986.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205986.jpgsave_picture_205986.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ VA - Power Workout - Gym Hits - Fitness and Healthy Lifestyle (2023) [MP3|320 Kb
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205989.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205989.jpgsave_picture_205989.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ magnet:?xt=urn:btih:2B736272190F8A834EED487CE67EB5B1762E8622
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205990.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205990.jpgsave_picture_205990.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ FontViewOK 8.33 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205992.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205992.jpgsave_picture_205992.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ magnet:?xt=urn:btih:AB504BC0F0F530BD27A70C9FDB6574ED1B313ED3
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205997.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205997.jpgsave_picture_205997.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ Digimizer 6.3.0 [En]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205999.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205999.jpgsave_picture_205999.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ magnet:?xt=urn:btih:8E988991886F53C11A4A9E3ED431B10515E652D5
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206001.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206001.jpgsave_picture_206001.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Ashampoo Photo Optimizer 9.4.7.36 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206003.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206003.jpgsave_picture_206003.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Topaz Video AI 3.4.0 (x64) RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206005.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206005.jpgsave_picture_206005.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Print.Test.Page.OK 3.01 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206008.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206008.jpgsave_picture_206008.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ magnet:?xt=urn:btih:FF0258706CAB99BE4071AC541AE67AE8B76325F3
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206009.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206009.jpgsave_picture_206009.jpg" />
 </div>
 
 

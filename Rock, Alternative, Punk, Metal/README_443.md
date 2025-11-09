@@ -6,7 +6,7 @@ Fatal Vision - Once (2022) [MP3|320 Kbps] <Melodic Rock, AOR>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239814.jpgsave_picture_239814.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Indian Handcrafts - Empress in Decline (2022) [MP3|320 Kbps] <Stoner Rock, Punk 
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239820.jpgsave_picture_239820.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ The Hirs Collective - We're Still Here (2023) [FLAC|Lossless|WEB-DL|tracks] <Cha
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239823.jpgsave_picture_239823.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Morpheus Descends - Ritual Of Infinity (1991, 1992) Reissue, 2005, XTREEM MUSIC 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239827.jpgsave_picture_239827.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Asylum Pyre - Call Me Inhuman - The Sun - The Fight - Part 5 (2023) [FLAC|Lossle
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239830.jpgsave_picture_239830.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ magnet:?xt=urn:btih:B0B0A91E7A010F27447A7A06D9C24BDE1F6E99F4
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239840.jpgsave_picture_239840.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Sirenia - 1977 (2023) [FLAC 2.0|48/24|WEB-DL|tracks] <Symphonic, Gothic Metal>
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239842.jpgsave_picture_239842.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ The Flood - Hear Us Out (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239846.jpgsave_picture_239846.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Gary Moore - Wild Frontier (1987) Japanese Edition, Reissue, 2023, Universal [FL
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239847.jpgsave_picture_239847.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Bai Bang - Sha Na Na Na (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Glam Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239857.jpgsave_picture_239857.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Dorothy - Gifts From The Holy Ghost (2022) [FLAC|Lossless|tracks + .cue] <Classi
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239858.jpgsave_picture_239858.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Resistance - Skulls Of My Enemy (2022) [MP3|320 Kbps] <Power, Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239860.jpgsave_picture_239860.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Imperium - Never Surrender (2023) [FLAC|Lossless|image + .cue] <Melodic Hard Roc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239862.jpgsave_picture_239862.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Ne Obliviscaris - Collection (2012 - 2017) 5 CD [FLAC|Lossless|tracks + .cue] <P
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239865.jpgsave_picture_239865.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Vandhali - Fever Dream (2022) [MP3|320 Kbps] <Heavy Rock, Psych, Stoner>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239867.jpgsave_picture_239867.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Days Of Wine - Days Of Wine (2022) [FLAC|Lossless|image + .cue] <Classic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239877.jpgsave_picture_239877.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Hotwire - The Story So Far 1993-2023 (2023) Compilation [FLAC|Lossless|image + .
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239879.jpgsave_picture_239879.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Miss Mellow - Miss Mellow (2023) [FLAC|Lossless|WEB-DL|tracks] <Psychy, Funky, K
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239880.jpgsave_picture_239880.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ World Divided - All The Angels Cry (2023) [FLAC|Lossless|WEB-DL|tracks] <Nu Meta
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239884.jpgsave_picture_239884.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Gary Moore - Rockin’ Every Night: Live in Japan (1983) Reissue, 2023, Universa
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239888.jpgsave_picture_239888.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Stormburst - III (2023) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239889.jpgsave_picture_239889.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:2758A445E28D7F9550BB76C22C48097C6E1933FC
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239892.jpgsave_picture_239892.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Chrome Waves - Earth Will Shed Its Skin (2023) [FLAC|Lossless|WEB-DL|tracks] <Po
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239903.jpgsave_picture_239903.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Czakan - Unreal (2023) [FLAC|Lossless|image + .cue] <Heavy Metal, Hard Rock>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239908.jpgsave_picture_239908.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Ne Obliviscaris - Exul (2023) [FLAC|Lossless|WEB-DL|tracks] <Extreme Progressive
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239910.jpgsave_picture_239910.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Noltem - Mannaz (2015) EP, Reissue Northern Silence 2016 [FLAC|Lossless|image + 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239921.jpgsave_picture_239921.jpg" />
 </div>
 
 

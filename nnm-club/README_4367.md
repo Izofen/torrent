@@ -6,7 +6,7 @@
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136580.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136580.jpgsave_picture_136580.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:223C8CD11254A72EE3A4DF702941D0A9CF019FCC
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136581.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136581.jpgsave_picture_136581.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:5AE8DDBFAE8CB18335911FE5C5BF8EDABEDD758C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136582.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136582.jpgsave_picture_136582.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:A24A33B4E02F594978BF578148909D1AAE67AECA
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136583.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136583.jpgsave_picture_136583.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:460B137F847C1906462DDFCDB6C851E366D1AA99
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136584.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136584.jpgsave_picture_136584.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:460B137F847C1906462DDFCDB6C851E366D1AA99
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136585.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136585.jpgsave_picture_136585.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:E0990D15E50C0C55863CDC5AEA98A58B831EA34E
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136586.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136586.jpgsave_picture_136586.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:B28F8D71533EAB66E06FD943D19FB0FF416A91B1
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136587.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136587.jpgsave_picture_136587.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:8911E8A4D2E49DCFB3CDD9897F16E7A1941D4314
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136588.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136588.jpgsave_picture_136588.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Realtek High Definition Audio Driver 6.0.9071.1 WHQL (Unofficial) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136589.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136589.jpgsave_picture_136589.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Reg Organizer 8.60 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136590.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136590.jpgsave_picture_136590.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ magnet:?xt=urn:btih:F709AC69D46D4A5895A44E24B2B1A64E218D7427
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136591.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136591.jpgsave_picture_136591.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ magnet:?xt=urn:btih:F3C90E83744BD39D99E5839D87CC2C5C95A2EFBA
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136592.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136592.jpgsave_picture_136592.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Gochuumon wa Usagi Desuka? Bloom | Is the Order a Rabbit? Bloom | Кролика
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136593.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136593.jpgsave_picture_136593.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ magnet:?xt=urn:btih:15956CB7C4700E363152F9EE3752C7E4FFBFA62C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136594.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136594.jpgsave_picture_136594.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Trojan Killer 2.1.58 RePack (& portable) by elchupacabra  [Multi/Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136595.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136595.jpgsave_picture_136595.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ magnet:?xt=urn:btih:58FF16D87E70124826D4D4B68F43E4E88EF154EB
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136596.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136596.jpgsave_picture_136596.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ magnet:?xt=urn:btih:69BE72915115F232ED17FA94889431B808048263
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136597.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136597.jpgsave_picture_136597.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ magnet:?xt=urn:btih:386E397F46FCF5AFE0B192D2217135F392598DEE
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136598.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136598.jpgsave_picture_136598.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ magnet:?xt=urn:btih:42C1905E8B27F7EA00487C2168D127EEE96B2E18
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136599.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136599.jpgsave_picture_136599.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ magnet:?xt=urn:btih:858A6964A5253DF56B4ED4024734E7B6CF0DF0BE
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136600.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136600.jpgsave_picture_136600.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Arknights: Holy Knight Light / Рыцари ковчега: Святые рыц�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136601.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136601.jpgsave_picture_136601.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ magnet:?xt=urn:btih:FEB2B05913E912FC10F5FE69ACA17C278DA816E3
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136602.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136602.jpgsave_picture_136602.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ magnet:?xt=urn:btih:D7F86B1E65F34F3F8E3932BFEE100D7F672BE918
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136603.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136603.jpgsave_picture_136603.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Saints Row: The Third Remastered (2020) [PS4] [EUR] 5.05 [HEN] [License] [Ru/Mul
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136604.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136604.jpgsave_picture_136604.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ magnet:?xt=urn:btih:482D103A43B8F2280146CF0A1C58BEB03A2B3C65
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136605.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136605.jpgsave_picture_136605.jpg" />
 </div>
 
 

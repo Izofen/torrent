@@ -6,7 +6,7 @@ National Geographic Special: Суперкошки / National Geographic Special:
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79548.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79548.jpgsave_picture_79548.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Xandria - Neverworld's End (Limited Edition) (2012) [FLAC|Lossless]<Power Metal,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79551.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79551.jpgsave_picture_79551.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ The Sims Carnival BumperBlast (L) [En] 2008
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79555.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79555.jpgsave_picture_79555.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Ringo Starr and the Roundheads - Live (2005) BDRip[720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79558.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79558.jpgsave_picture_79558.jpg" />
 </div>
 
 
@@ -121,7 +121,7 @@ Ringo Starr and the Roundheads - Live (2005) BDRip[720p]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79559.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79559.jpgsave_picture_79559.jpg" />
 </div>
 
 
@@ -145,7 +145,7 @@ Space Lines (L) [En] 2012
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79566.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79566.jpgsave_picture_79566.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ magnet:?xt=urn:btih:64F307DA203E18860ECD904C59BABEBFDC27D33A
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79567.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79567.jpgsave_picture_79567.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ cFosSpeed 7.01 Build 1927 Beta [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79569.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79569.jpgsave_picture_79569.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Manfred Mann's Earth Band - 2 Альбома (1976, 1978) [FLAC|Lossless]<Prog R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79571.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79571.jpgsave_picture_79571.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Pirate party The Best Videoclip (2010-2012) HDTVRip 1080p
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79575.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79575.jpgsave_picture_79575.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ magnet:?xt=urn:btih:A467C2474C03F09B6DC52E026E33E6FBEDADACD0
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79581.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79581.jpgsave_picture_79581.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ magnet:?xt=urn:btih:A467C2474C03F09B6DC52E026E33E6FBEDADACD0
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79582.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79582.jpgsave_picture_79582.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ magnet:?xt=urn:btih:A467C2474C03F09B6DC52E026E33E6FBEDADACD0
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79583.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79583.jpgsave_picture_79583.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ Almeza MultiSet Professional 8.1.0 [Мульти/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79585.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79585.jpgsave_picture_79585.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ AA! Megami-sama: Itsumo Futari de / Ah! My Goddess OVA-2  / Моя богиня!
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79591.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79591.jpgsave_picture_79591.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ world-artЖанр: романтика, фэнтезиРежиссер: Года 
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79595.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79595.jpgsave_picture_79595.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ My Diary / Мой дневник (L) [Ru/En] 2011
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79599.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79599.jpgsave_picture_79599.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ Hotarubi no Mori e / В лесу мерцания светлячков [2011] BD
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79603.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79603.jpgsave_picture_79603.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ magnet:?xt=urn:btih:A5F9CA7E1DA7129455A7AFEA4C8A92C15EC349FF
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79604.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79604.jpgsave_picture_79604.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ magnet:?xt=urn:btih:E2C464798D73D00ACA8A7B64095E4C0864583244
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79607.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79607.jpgsave_picture_79607.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ Any DVD Converter Professional 4.3.5 [Мульти, есть русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79610.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79610.jpgsave_picture_79610.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ Billiardino (L) [Ru] 2012
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79615.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79615.jpgsave_picture_79615.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ magnet:?xt=urn:btih:0D8C22FE4B22A91D90328FF9AB7782D63E7E3746
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79616.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79616.jpgsave_picture_79616.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ Tank VS Worms (L) [En] 2012
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79621.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79621.jpgsave_picture_79621.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ magnet:?xt=urn:btih:B0B6206D3B422A6AF4BCC0650B3E5C5943FE689A
 >>Рыбалка и Охота
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79623.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79623.jpgsave_picture_79623.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Multibar Ticno 1.1.1.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79625.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79625.jpgsave_picture_79625.jpg" />
 </div>
 
 

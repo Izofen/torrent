@@ -6,7 +6,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70430.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70430.jpgsave_picture_70430.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ High Moonlight - Lycans (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70431.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70431.jpgsave_picture_70431.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:1B24654CBC9CE85F106D7F276BA6EC57B603B6A2
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70432.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70432.jpgsave_picture_70432.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Stan Getz - Stan Getz: City Nights (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70433.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70433.jpgsave_picture_70433.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ magnet:?xt=urn:btih:C236630860D623588EEDAD907DC4B677B8964E4E
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70434.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70434.jpgsave_picture_70434.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ magnet:?xt=urn:btih:FAD57793E5285BC56E996577CFE231CE920E1DEB
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70435.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70435.jpgsave_picture_70435.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ magnet:?xt=urn:btih:2210D12E90EC6A41ADA7926949041F34A43C3C8A
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70436.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70436.jpgsave_picture_70436.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Porsche Sprint Challenge Southern Europe. Кубок Порше. Эшторил 
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70437.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70437.jpgsave_picture_70437.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Cemetery Skyline - Nordic Gothic (2024) Japanese Edition [FLAC|Lossless|image + 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70438.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70438.jpgsave_picture_70438.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ VA - Bravo Groove! (New Contemporary Funk) (2025) [FLAC|Lossless|WEB-DL|tracks] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70439.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70439.jpgsave_picture_70439.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Innerspace - Studio Albums (3 releases) (2012-2024) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70440.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70440.jpgsave_picture_70440.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Infringement (Norway) - Studio Albums (3 releases) (2017-2024) hand made [restor
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70441.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70441.jpgsave_picture_70441.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Robert Ascroft - Echo Still Remains (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70442.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70442.jpgsave_picture_70442.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ magnet:?xt=urn:btih:039E7B8BDBABEF5FA00C709CA71821EEC59B86E0
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70443.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70443.jpgsave_picture_70443.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ magnet:?xt=urn:btih:E77101B3DA1012FE3874A04CAF84BE2FDD32C1D8
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70444.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70444.jpgsave_picture_70444.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ GeoGebra 6.0.875.1 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70445.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70445.jpgsave_picture_70445.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ magnet:?xt=urn:btih:D446BBA081461A5DE9EC58B222AB71116165489E
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70446.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70446.jpgsave_picture_70446.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ blur - Compilation (1991-2023) [MP3|320 Kbps] <Britpop, Indie rock, Art rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70447.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70447.jpgsave_picture_70447.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ djdtime - Relaxing Deep House & Tech House Mix Vol. 1 (2024) [FLAC|Lossless|WEB-
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70448.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70448.jpgsave_picture_70448.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ djdtime - Vocal Progressive House & Melodic Techno, Vol. 2 (2025) [FLAC|Lossless
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70449.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70449.jpgsave_picture_70449.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ VA - Melhores Rock 2025 (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70450.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70450.jpgsave_picture_70450.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ QOwnNotes 25.2.7 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70451.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70451.jpgsave_picture_70451.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ magnet:?xt=urn:btih:24533C0283EDEDB4763EA756383FFD35E1FC22BD
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70452.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70452.jpgsave_picture_70452.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ magnet:?xt=urn:btih:AD266143E947758D2919EFE5866B9D589E72F3A0
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70453.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70453.jpgsave_picture_70453.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ VA - Smooth Jazz Romance (2025) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70454.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70454.jpgsave_picture_70454.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ magnet:?xt=urn:btih:61656C5E7A2A0D271A1D9A12B03A93A8B4273659
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70455.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70455.jpgsave_picture_70455.jpg" />
 </div>
 
 

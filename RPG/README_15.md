@@ -6,7 +6,7 @@ Thronebreaker: The Witcher Tales / Кровная вражда: Ведьмак. 
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23572.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23572.jpgsave_picture_23572.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Rogue: Genesia (2022) [Multi] (1.0.0/dlc) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23578.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23578.jpgsave_picture_23578.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ The Witcher / Ведьмак (2007) [Ru/Multi] (1.5) Repack Wanterlude [Enhanced
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23786.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23786.jpgsave_picture_23786.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ The Witcher 2: Assassins of Kings / Ведьмак 2: Убийцы короле�
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23796.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23796.jpgsave_picture_23796.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Rogue Waters (2024) [Ru/Multi] (1.0.7.3265) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23801.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23801.jpgsave_picture_23801.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ StarCrawlers Chimera (2021) [En] (1.3.1) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23816.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23816.jpgsave_picture_23816.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Pathfinder: Wrath of the Righteous (2021) [Ru/Multi] (2.7.0w/dlc) Repack Wanterl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23902.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23902.jpgsave_picture_23902.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Atelier Yumia: The Alchemist of Memories & The Envisioned Land (2025) [Ru/Multi]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23903.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23903.jpgsave_picture_23903.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Vampire: The Masquerade - Redemption (2000) [Ru/En] (1.1) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23912.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23912.jpgsave_picture_23912.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Dread Tomb (2025) [Multi] (1.16) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23979.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23979.jpgsave_picture_23979.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Reignbreaker (2025) [Ru/Multi] (1.0.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24083.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24083.jpgsave_picture_24083.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Mortal Darkness (2025) [En] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24107.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24107.jpgsave_picture_24107.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Grand Fantasy Heroes (2025) [En] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24113.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24113.jpgsave_picture_24113.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Wantless Solace at World’s End (2024) [Ru/En] (1.0.1000) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24189.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24189.jpgsave_picture_24189.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Gone Rogue (2023) [Ru/Multi] (1.18) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24199.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24199.jpgsave_picture_24199.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Dance of Cards (2023) [Ru/Multi] (1.1.0/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24320.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24320.jpgsave_picture_24320.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ One Lonely Outpost (2023) [En] (0.9.11a022-c4afe) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24410.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24410.jpgsave_picture_24410.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ The Last Flame (2025) [Ru/Multi] (1.0.2) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24416.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24416.jpgsave_picture_24416.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Broken Roads (2024) [Ru/Multi] (1.3.15161/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24433.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24433.jpgsave_picture_24433.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Rise of the Ronin (2024) [Ru/Multi] (1.09.0.1hf) Repack seleZen
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24522.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24522.jpgsave_picture_24522.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Vigil: The Longest Night (2020) [Ru/Multi] (0311/dlc) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24629.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24629.jpgsave_picture_24629.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Final Fantasy XVI (2024) [Ru/Multi] (1.03/dlc) Repack DjDI [Complete Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24632.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24632.jpgsave_picture_24632.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Blade Abyss (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24635.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24635.jpgsave_picture_24635.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Wartales (2021) [Ru/Multi] (1.0.40128/dlc) Repack Decepticon
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24646.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24646.jpgsave_picture_24646.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Eiyuden Chronicle: Hundred Heroes (2024) [Ru/Multi] (1.0.5-p.27.1/dlc) Repack Le
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24660.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24660.jpgsave_picture_24660.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ METRO QUESTER: OSAKA (2024) [Multi] (1.0.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24672.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24672.jpgsave_picture_24672.jpg" />
 </div>
 
 

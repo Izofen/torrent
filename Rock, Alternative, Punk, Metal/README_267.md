@@ -6,7 +6,7 @@ Belsemora - Belsemora (2022) [FLAC|Lossless|WEB-DL|tracks] <Stoner, Doom>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165335.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165335.jpgsave_picture_165335.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:1287E9C02B2DB95EA8C8F1AC8E0F561BA66E3C73
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165337.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165337.jpgsave_picture_165337.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Angra - Cycles Of Pain (2023) [MP3|320 Kbps] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165355.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165355.jpgsave_picture_165355.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:9D5F3F2E4925B9A3905FF6DF43D8BC6A7C0EE16D
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165361.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165361.jpgsave_picture_165361.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Ecclesia - De Ecclesiae Universalis (2020) [MP3|320 Kbps] <Doom-Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165364.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165364.jpgsave_picture_165364.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Divine Horsemen - Bitter End Of A Sweet Night (2023) [FLAC|Lossless|WEB-DL|track
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165406.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165406.jpgsave_picture_165406.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Aura - Hallucinations (2023) [MP3|320 Kbps] <Progressive Rock, Prog Related>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165411.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165411.jpgsave_picture_165411.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Arthur Brown - Dance (1975) Expanded Edition, 2023, Esoteric [FLAC|Lossless|WEB-
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165429.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165429.jpgsave_picture_165429.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Solarcycles - Lunar (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Folk / Pagan
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165434.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165434.jpgsave_picture_165434.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Ex Deo - The Thirteen Years Of Nero (2021) [FLAC|Lossless|image + .cue] <Melodic
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165436.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165436.jpgsave_picture_165436.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Doctor Smoke - Dreamers and the Dead (2021) [FLAC|Lossless|image + .cue] <Doom M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165438.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165438.jpgsave_picture_165438.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Bruce Hornsby - Spirit Trail (1998) 25th Anniversary Edition, 2023, Zappo Produc
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165460.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165460.jpgsave_picture_165460.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ MyGrain - MyGrain (2011) [FLAC|Lossless|image + .cue] <Melodic Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165482.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165482.jpgsave_picture_165482.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Fleshworks - Diabolus ex Machina (2023) [MP3|320 Kbps] <Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165488.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165488.jpgsave_picture_165488.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Sweet & Lynch - Heart & Sacrifice (2023) [FLAC|Lossless|image + .cue] <Hard Rock
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165489.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165489.jpgsave_picture_165489.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Mygrain - Signs Of Existence (2008) [APE|Lossless|image + .cue] <Melodic Death M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165494.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165494.jpgsave_picture_165494.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Baltak - Kral Na Dva Svetoj (King Of Two Worlds) (2000) [FLAC|Lossless|image + .
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165497.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165497.jpgsave_picture_165497.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Mygrain - Orbit Dance (2006) [APE|Lossless|image + .cue] <Melodic Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165502.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165502.jpgsave_picture_165502.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Battle Born - Blood, Fire, Magic And Steel (2023) [FLAC|Lossless|image + .cue] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165504.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165504.jpgsave_picture_165504.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Dokken - Heaven Comes Down (2023) [FLAC|Lossless|image + .cue] <Heavy Metal, Har
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165515.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165515.jpgsave_picture_165515.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Dangerous Toys - Vitamins & Crash Helmets - Live (1999) Remaster, 2023,  Deadlin
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165542.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165542.jpgsave_picture_165542.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Inkubus Sukkubus - She of a Thousand Names (2023) [FLAC|Lossless|WEB-DL|tracks] 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165549.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165549.jpgsave_picture_165549.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Ivory - Alien Nation (2023) [FLAC|Lossless|WEB-DL|tracks] <Power/Progressive Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165560.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165560.jpgsave_picture_165560.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Elegy - Manifestation of Fear (1998) Remaster, 2023, Elegy [FLAC|Lossless|WEB-DL
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165595.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165595.jpgsave_picture_165595.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Ancient Days - Devil's Night (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Psych, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165599.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165599.jpgsave_picture_165599.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Fleshworks - The Deadventure (2009) [MP3|320 Kbps] <Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165612.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165612.jpgsave_picture_165612.jpg" />
 </div>
 
 

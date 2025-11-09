@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26168.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26168.jpgsave_picture_26168.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:3096D25306C77F7F9D16A44BF522FB72935B3C97
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26169.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26169.jpgsave_picture_26169.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Zettlr 3.4.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26170.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26170.jpgsave_picture_26170.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:E04F536F8F04BA5A55F4A4B23C408949C1C8B955
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26171.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26171.jpgsave_picture_26171.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ ShutterCheck 2.19 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26172.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26172.jpgsave_picture_26172.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:6303D0C6E5C0BE4BE9A2C8925E8E043A3213FA2A
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26173.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26173.jpgsave_picture_26173.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:16FBD7507C6EF7FC63BC5C7EADED111ED63194D0
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26174.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26174.jpgsave_picture_26174.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Master PDF Editor 5.9.88 (x64)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26175.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26175.jpgsave_picture_26175.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:BECA1CB97F2CB1D474CFEE480DC405B1D424B294
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26176.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26176.jpgsave_picture_26176.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:970681E1A57AF8D6EE28DCD064E90EB8A7B7BF60
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26177.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26177.jpgsave_picture_26177.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:A95E5ACF8030BF178B5605C2CF0DA88D2EA0B1FA
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26178.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26178.jpgsave_picture_26178.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:25BE59F639BAB11B1CEB26D8BABB828527C10A25
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26179.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26179.jpgsave_picture_26179.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Wreckfest v1.0.88 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26180.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26180.jpgsave_picture_26180.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ magnet:?xt=urn:btih:7A22EE36A68CA78308AD5F95E8D9A13276DECDBC
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26181.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26181.jpgsave_picture_26181.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ magnet:?xt=urn:btih:F14A039D18240EB293022ECB0D5508B06C8E03C0
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26182.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26182.jpgsave_picture_26182.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ magnet:?xt=urn:btih:4B4C71C955A9E0604FF4DB319A3EE9B7B27BA909
 >>Мультимедийные справочники, Энциклопедии
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26183.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26183.jpgsave_picture_26183.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ magnet:?xt=urn:btih:745E10D6F8BE736D1B936AADA1307B4583ABAE70
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26184.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26184.jpgsave_picture_26184.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Looney Tunes: Космическое вторжение / The Day the Earth Blew
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26185.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26185.jpgsave_picture_26185.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Door Kickers 2: Task Force North (2020) [Ru/Multi] (1.05) Repack Pioneer
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26186.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26186.jpgsave_picture_26186.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ magnet:?xt=urn:btih:6E39EA674773F8ECF8D59C3F97F2369E06A97F77
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26187.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26187.jpgsave_picture_26187.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Far Cry 3: Blood Dragon (2013) [Ru] (1.02) Repack EXROW
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26188.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26188.jpgsave_picture_26188.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ magnet:?xt=urn:btih:BCF3F4B050C7683131F77216F05F33EA059730A4
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26189.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26189.jpgsave_picture_26189.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ magnet:?xt=urn:btih:1F2707F2D80BF34AC2CA505BF9788AADA5EC99D9
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26190.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26190.jpgsave_picture_26190.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Techno Banter (2025) [Multi] (1.0.3) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26191.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26191.jpgsave_picture_26191.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ magnet:?xt=urn:btih:7713D08807A42F10B0E4DBC76EFCE67A154603FD
 >>Мультимедийные справочники, Энциклопедии
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26192.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26192.jpgsave_picture_26192.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ WizTree Enterprise 4.25 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26193.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26193.jpgsave_picture_26193.jpg" />
 </div>
 
 

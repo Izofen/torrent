@@ -6,7 +6,7 @@ John Todd | Подкасты (1968-1983) [MP3] [En]
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139476.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139476.jpgsave_picture_139476.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:FB6D63B1295751A1B0DF3FDC8705978797CE59A5
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139477.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139477.jpgsave_picture_139477.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:B25E962F5EA169904B535358A57CBD4FCCF2D210
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139478.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139478.jpgsave_picture_139478.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:DCD30EB92841403E91FC564190768A444F0C8583
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139479.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139479.jpgsave_picture_139479.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:E37BE08A75A747787FB39286D166FD877E915E8D
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139481.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139481.jpgsave_picture_139481.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:E37BE08A75A747787FB39286D166FD877E915E8D
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139482.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139482.jpgsave_picture_139482.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:6C8D574D54620F7B589771DF234B567CC2F5DC07
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139483.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139483.jpgsave_picture_139483.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Udemy, Hussein Nasser | Discovering Backend Bottlenecks: Unlocking Peak Performa
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139484.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139484.jpgsave_picture_139484.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:0E79D52B1091C24C682CF7B5145F8979B980969C
 >>История
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139485.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139485.jpgsave_picture_139485.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Joe Henderson - Lush Life: The Music Of Billy Strayhorn (1992) 2004, Verve Recor
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139486.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139486.jpgsave_picture_139486.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ Soulver 3 v3.5.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139488.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139488.jpgsave_picture_139488.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ X: Superbox (1999-2013) [Ru/Multi] (2.2/2.2/1.5/2.5а/3.4/3.3/4.30/dlc) Repack R
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139489.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139489.jpgsave_picture_139489.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ magnet:?xt=urn:btih:8867F8C9EAE8F5A049D69173D0F5E2C5EC86B90A
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139490.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139490.jpgsave_picture_139490.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ magnet:?xt=urn:btih:A3C7AC81C8F6332F204BD012DB40021E27D69585
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139491.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139491.jpgsave_picture_139491.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ magnet:?xt=urn:btih:05EFDFDD44D364B8B7C615BA29A38AAF8A7B78A2
 >>Космос
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139492.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139492.jpgsave_picture_139492.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ magnet:?xt=urn:btih:8F1F618983BDA1582A16509CC9F4068794A3E47A
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139493.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139493.jpgsave_picture_139493.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ magnet:?xt=urn:btih:70660EEB70ED1469DD4833581F3FB2C3F9956F90
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139497.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139497.jpgsave_picture_139497.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Media Player Classic Home Cinema 1.9.0 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139498.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139498.jpgsave_picture_139498.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ magnet:?xt=urn:btih:2045ADEC03AA07848D4807DA5E7CA0C80A5F1506
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139500.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139500.jpgsave_picture_139500.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ magnet:?xt=urn:btih:18B8D8B048EB60D938B4F62C8E1E78418C1F815E
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139501.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139501.jpgsave_picture_139501.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ Clepsydra - The Gap (2019) 2xCD, Remastered, 2021, Oskar [FLAC|Lossless|image + 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139503.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139503.jpgsave_picture_139503.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ magnet:?xt=urn:btih:CBF38E3A6658F844D24103ADAD7F80986A12E930
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139505.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139505.jpgsave_picture_139505.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:F9038D1380E5B2BB917B170CB7A15DD254DEB8F8
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139506.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139506.jpgsave_picture_139506.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ magnet:?xt=urn:btih:30357F87613F3B1BD10E0E07EEB67FC22ED5B676
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139507.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139507.jpgsave_picture_139507.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ magnet:?xt=urn:btih:36A88D2E6B1D2A7A6F091F08129D70EB7EA99839
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139508.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139508.jpgsave_picture_139508.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ magnet:?xt=urn:btih:F8A42192711E524E58F142F4E75728FAAE288AF4
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139509.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139509.jpgsave_picture_139509.jpg" />
 </div>
 
 

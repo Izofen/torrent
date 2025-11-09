@@ -6,7 +6,7 @@ Wowza Streaming Engine 4.7.8 [En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154998.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154998.jpgsave_picture_154998.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:741803AAB7566A6A1EE6698D07082FD850C2CEEA
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154999.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154999.jpgsave_picture_154999.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:B01D430529145B631F32F49886B080E3C52743E5
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155000.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155000.jpgsave_picture_155000.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Vivaldi TOR Web Browser 2.2.1388.37 Stable Portable 32-64 bit by PortableAppZ [M
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155001.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155001.jpgsave_picture_155001.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:510E74FDE26926B3576D75905FA184C8F7A9B9B2
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155002.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155002.jpgsave_picture_155002.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:B79A1FDDC30312B4AD236426BECF21E47921A1B9
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155003.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155003.jpgsave_picture_155003.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:16941930DBFA5DAC89DC1243110C1168494AF387
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155004.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155004.jpgsave_picture_155004.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:EA096C790953802F40615B2309D992AF4BB3DA4B
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155005.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155005.jpgsave_picture_155005.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:CAD1DB92FF9F77FCAF2D03E06D139AD46E6B1588
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155006.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155006.jpgsave_picture_155006.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:28BA21B1EB7289AD0DDFE1A67B1628B3CB75DD17
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155007.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155007.jpgsave_picture_155007.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:AAF66F2ABD80B42C5A53E7AE243BFE7F602757ED
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155008.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155008.jpgsave_picture_155008.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ TechSmith SnagIt 2020.0.3 Build 4960 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155009.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155009.jpgsave_picture_155009.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:B4D2CFF09EB5E35CC8A1DD71FD58C1307499C107
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155010.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155010.jpgsave_picture_155010.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Learn Squared, Paul Chadeisson | World Building (2018) WEB-DLRip [RU, EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155011.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155011.jpgsave_picture_155011.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Matthew Halsall - Salute To The Sun (2020) [FLAC|Lossless|WEB-DL|tracks] <Contem
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155012.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155012.jpgsave_picture_155012.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ MediBang Paint Pro 28.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155013.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155013.jpgsave_picture_155013.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ magnet:?xt=urn:btih:2199367CED33A840EB74747553291B97607096CA
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155014.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155014.jpgsave_picture_155014.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ magnet:?xt=urn:btih:9410C2E9B4AFB73B672DCE1DCCB0BA23F3A0C32F
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155015.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155015.jpgsave_picture_155015.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ magnet:?xt=urn:btih:B82280313E77F512207AAB2103C105D3489FB36D
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155016.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155016.jpgsave_picture_155016.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ MultiBoot USB HDD Utility and Windows & Linux CRUTCH 2016 v5.0 [Ru]
 >>24
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155017.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155017.jpgsave_picture_155017.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ Viber 7.9.0.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155018.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155018.jpgsave_picture_155018.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:C63F4280038F7B9E969E889E8F275BA831413BDA
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155019.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155019.jpgsave_picture_155019.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ magnet:?xt=urn:btih:C2EAA46BFC7A623C38D6295D763533205FACD978
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155020.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155020.jpgsave_picture_155020.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ magnet:?xt=urn:btih:E151CACB1EB2A525FA4177DBFEC9F8BA4D99D447
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155021.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155021.jpgsave_picture_155021.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Taleteller - The Path (2020) [MP3|320 Kbps] <Sympho Metal, Female Vocal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155022.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155022.jpgsave_picture_155022.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ magnet:?xt=urn:btih:432DF5CEB7EEE96BAF59C20DDCE2B5C8E09AFD5D
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155023.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155023.jpgsave_picture_155023.jpg" />
 </div>
 
 

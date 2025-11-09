@@ -6,7 +6,7 @@ Mosaic v.1.1.8 (2019) [Multi/Ru] [macOS Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143229.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143229.jpgsave_picture_143229.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Maciej Malenczuk - Psychodancing (2008) [MP3|192 кб/с]<Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143230.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143230.jpgsave_picture_143230.jpg" />
 </div>
 
 
@@ -65,7 +65,7 @@ magnet:?xt=urn:btih:909A9970640B3440FEAC5E75BCCD23D1DA4F1B6F
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143231.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143231.jpgsave_picture_143231.jpg" />
 </div>
 
 
@@ -89,7 +89,7 @@ Chad Morgan | Animation Pipeline in Unreal Engine 4 1-4 (2017) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143232.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143232.jpgsave_picture_143232.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ MAGIX Sound Forge Pro 15.0 Build 161 (x86/x64) [Ru/En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143233.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143233.jpgsave_picture_143233.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ magnet:?xt=urn:btih:5B641AA6588CB235D6ED428AD20759FD9BEE14BD
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143234.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143234.jpgsave_picture_143234.jpg" />
 </div>
 
 
@@ -161,7 +161,7 @@ Udemy, Sandor Kiss и др. |  Полный Курс Личностного Ра
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143235.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143235.jpgsave_picture_143235.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Jimmy Eat World - Static Prevails (1996) [FLAC|Lossless|tracks + .cue] < Alterna
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143236.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143236.jpgsave_picture_143236.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ magnet:?xt=urn:btih:9D8FB18D4B166E28489D9DD2779D5848B165E7CE
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143237.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143237.jpgsave_picture_143237.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ Youkai Apartment no Yuuga na Nichijou | Elegant Yokai Apartment Life | Элег�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143238.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143238.jpgsave_picture_143238.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ R-Studio 7.8 Build 160621 Network Edition RePack (& portable) by D!akov [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143239.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143239.jpgsave_picture_143239.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ magnet:?xt=urn:btih:4ED9F0FDD95163930678A62724910A850028B9B9
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143242.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143242.jpgsave_picture_143242.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ Avidemux 2.8.0 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143243.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143243.jpgsave_picture_143243.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ VA - After Shopping Lounge (2016) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143244.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143244.jpgsave_picture_143244.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ magnet:?xt=urn:btih:06C9D13BBC82279345857688E61994F92DEB7779
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143245.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143245.jpgsave_picture_143245.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ magnet:?xt=urn:btih:B12B29193E51FFE58A483A368FCB939E366BC123
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143246.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143246.jpgsave_picture_143246.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ VA - The Official UK Top 40 Singles Chart (28-12-2014) [MP3|320 кб/с]<Pop, Da
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143247.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143247.jpgsave_picture_143247.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ The Bronx - The Bronx (2006) [FLAC|Lossless|tracks + .cue] <Hardcore>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143248.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143248.jpgsave_picture_143248.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Code:Realize Sousei no Himegimi | Код понимания: Страж пере
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143249.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143249.jpgsave_picture_143249.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ magnet:?xt=urn:btih:157264B685CB89BBCEC400B482A67065496B8E94
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143250.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143250.jpgsave_picture_143250.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ VA - Monster Tunes: Best Of (2012) [MP3|320 кб/с]<Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143251.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143251.jpgsave_picture_143251.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ magnet:?xt=urn:btih:9D614C6F9ABC3CFC8BF1CFBDC95BEAF0522E0441
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143252.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143252.jpgsave_picture_143252.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Ice Nine Kills - Music Videos 9X (2015-2019) WEB-DL [H.264/VP9/720p/1080p/2160p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143253.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143253.jpgsave_picture_143253.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ magnet:?xt=urn:btih:79A65E2F3D0B3922C294693C9C45B47A3180C839
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143254.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143254.jpgsave_picture_143254.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ Capture One Pro 9.0.2.10 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143255.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143255.jpgsave_picture_143255.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ magnet:?xt=urn:btih:6843CDA175910A27E02A7D9C3C54BD2932A9A089
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143256.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143256.jpgsave_picture_143256.jpg" />
 </div>
 
 

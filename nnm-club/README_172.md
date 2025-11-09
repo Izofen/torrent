@@ -6,7 +6,7 @@
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4526.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4526.jpgsave_picture_4526.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Shikanoko Nokonoko Koshitantan | My Deer Friend Nokotan | Моя подруга-
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4527.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4527.jpgsave_picture_4527.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:3F050658796B4BE19FE3FAF512D02DD184C22362
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4528.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4528.jpgsave_picture_4528.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:5F6104747B9FE16C233BB608D2A448D3115345CE
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4529.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4529.jpgsave_picture_4529.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ TechSmith Snagit 2025.3.1.7988 [Multi]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4530.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4530.jpgsave_picture_4530.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:5D0965522E10796D03806DC571B81B479C792B8F
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4531.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4531.jpgsave_picture_4531.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Summer Pockets: Reflection Blue (2025) [Multi] (1.2.0.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4532.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4532.jpgsave_picture_4532.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:C239001A793E016E279B6922A0B0A3598FACEEE2
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4533.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4533.jpgsave_picture_4533.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:8B1B2A84397A2EF4223002CA2BEAFA15C047A305
 >>Картинки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4534.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4534.jpgsave_picture_4534.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Spiritfall (2024) [Ru/Multi] (1.6.28) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4535.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4535.jpgsave_picture_4535.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Bazaart: Photo Editor & Graphic Design v3.3.1 Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4536.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4536.jpgsave_picture_4536.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ BROK The InvestiGator (2022) [Ru/Multi] (1.5.3/dlc) Repack FitGirl [Deluxe Editi
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4537.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4537.jpgsave_picture_4537.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Sabrina Carpenter - Man’s Best Friend (2025) [FLAC 24/48|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4538.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4538.jpgsave_picture_4538.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:D48F14EE41DC92DE25F6EE2294663C731B55800F
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4539.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4539.jpgsave_picture_4539.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Re:Fresh (2023) [Multi] (1.5) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4540.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4540.jpgsave_picture_4540.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ magnet:?xt=urn:btih:30538AA013913242D1B4C53CBEFC3C2FCC5C937A
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4541.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4541.jpgsave_picture_4541.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ magnet:?xt=urn:btih:3DC1EECD0F1280D62B6F684BED7618D986B69568
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4542.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4542.jpgsave_picture_4542.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ magnet:?xt=urn:btih:A758BEDC10F328AE12F2373CB781D74B87F68579
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4543.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4543.jpgsave_picture_4543.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ Queen - Riffs (2025) Remastered, 2011, UME - Global Clearing House [MP3|320 Kbps
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4544.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4544.jpgsave_picture_4544.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ magnet:?xt=urn:btih:C0774F261A0A183AC3DC524EF2303E1AA2C5D1E4
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4545.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4545.jpgsave_picture_4545.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ magnet:?xt=urn:btih:ACA089B313F59E2436CFF82AD0F3C7F665670521
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4546.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4546.jpgsave_picture_4546.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ magnet:?xt=urn:btih:9F64DD104749CE984690D9F9892CF3486548470D
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4547.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4547.jpgsave_picture_4547.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:CAAF5E3350306F72053140B15F91C764E511E272
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4548.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4548.jpgsave_picture_4548.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Rusty Rangers (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4549.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4549.jpgsave_picture_4549.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ MassTube Ultra 21.0.1.162 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4550.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4550.jpgsave_picture_4550.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ magnet:?xt=urn:btih:56F3359055C21C6AEB96427B9F62D1D7FDAFEA8E
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4551.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4551.jpgsave_picture_4551.jpg" />
 </div>
 
 

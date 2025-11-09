@@ -6,7 +6,7 @@ The Smurfs - Dreams (2024) [Ru/Multi] (0.0.18/dlc) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37525.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37525.jpgsave_picture_37525.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Deathbound (2024) [Ru/Multi] (1.2.0gf) License GOG [Ultimate Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37531.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37531.jpgsave_picture_37531.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Blasphemous 2 (2023) [Ru/Multi] (2.0.0/dlc) Scene Rune
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37532.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37532.jpgsave_picture_37532.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Resident Evil 6 / Biohazard 6 (2013) [Ru/Multi] (1.0.6/1.1.0/dlc) Repack dixen18
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37538.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37538.jpgsave_picture_37538.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Ratchet & Clank: Rift Apart (2023) [Ru/Multi] (2.618.0.0/dlc) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37542.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37542.jpgsave_picture_37542.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Call of Sentinels (2024) [Ru/Multi] (1.0.0.2) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37621.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37621.jpgsave_picture_37621.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Demonologist (2023) [Ru/Multi] (1.5.1) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37625.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37625.jpgsave_picture_37625.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Strategic Command WWII: War in Europe (2016) [Multi] (1.30.00.01) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37630.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37630.jpgsave_picture_37630.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Dustland Delivery (2024) [Multi] (1.20.757) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37643.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37643.jpgsave_picture_37643.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Dungeon Defenders (2011) [Multi] (9.6.1/dlc) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37672.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37672.jpgsave_picture_37672.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ CATO: Buttered Cat (2024) [Ru/Multi] (1.1.528) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37690.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37690.jpgsave_picture_37690.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ MasterQuest Fantasy (2024) [En] (1.0.5b) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37692.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37692.jpgsave_picture_37692.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Zombie Flick / 僵尸快打 (2024) [Multi] (1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37696.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37696.jpgsave_picture_37696.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Dystopika (2024) [Ru/Multi] (1.1.3+504) Repack Let'sРlay
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37697.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37697.jpgsave_picture_37697.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Bus Simulator 21 Next Stop (2021) [Ru/Multi] (2.34) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37707.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37707.jpgsave_picture_37707.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Techtonica (2023) [Ru/Multi] (1.0.1c) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37710.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37710.jpgsave_picture_37710.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Abyss School (2024) [Multi] (1.6.6) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37714.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37714.jpgsave_picture_37714.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Satisfactory (2019) [Ru/Multi] (1.0.0.5/dlc) Scene Rune
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37717.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37717.jpgsave_picture_37717.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Shadow Corridor 2 (2024) [Multi] (1.14.1) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37726.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37726.jpgsave_picture_37726.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Easy Red 2 (2020) [Ru/Multi] (1.4.4b/dlc) Repack Let'sРlay [All Fronts]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37727.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37727.jpgsave_picture_37727.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Two Falls (Nishu Takuatshina) (2024) [Multi] (1.0) Scene Skidrow
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37729.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37729.jpgsave_picture_37729.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Goat Simulator: Remastered (2024) [Ru/Multi] (build 16167669/dlc) Repack seleZen
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37753.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37753.jpgsave_picture_37753.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Speedollama (2024) [Ru/Multi] (1.4.0b) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37781.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37781.jpgsave_picture_37781.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Crimson Snow (2022) [Ru/Multi] (Build 11503562) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37783.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37783.jpgsave_picture_37783.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Dust to the End (2020) [Ru/Multi] (1.0.4.3) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37798.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37798.jpgsave_picture_37798.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Pine Harbor (2024) [Ru/Multi] (0.17) Repack Other s [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37802.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37802.jpgsave_picture_37802.jpg" />
 </div>
 
 

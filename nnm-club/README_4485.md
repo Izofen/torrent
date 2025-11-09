@@ -6,7 +6,7 @@
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140263.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140263.jpgsave_picture_140263.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ MKVToolNix 64.0.0 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140264.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140264.jpgsave_picture_140264.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:559FDA8E4BC8CC30E194FCEA59360DA0EFDD6D55
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140265.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140265.jpgsave_picture_140265.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Reg Organizer 7.30 Beta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140266.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140266.jpgsave_picture_140266.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ USDownloader 1.3.5.9 Portable (29.12.2017)  [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140267.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140267.jpgsave_picture_140267.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:7BDF503269BEB006CEF9E3A4413DA988B00B453F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140268.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140268.jpgsave_picture_140268.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ VA - I Love Retro Dance 90's (2010) [MP3|320 Kbps] <Eurodance>
 >>Eurodance, Euro-House, Technopop
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140269.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140269.jpgsave_picture_140269.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:4750DC11965A6569494172FF8A6F5C1B41A903D1
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140270.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140270.jpgsave_picture_140270.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:1B96255EAE8DB211347576C95DEF63AFE91E6714
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140272.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140272.jpgsave_picture_140272.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ magnet:?xt=urn:btih:1B96255EAE8DB211347576C95DEF63AFE91E6714
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140273.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140273.jpgsave_picture_140273.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ Hataage! Kemono Michi | Kemono Michi: Rise Up | Дорога зверя [2019, T
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140274.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140274.jpgsave_picture_140274.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ magnet:?xt=urn:btih:AB3E0CC5451833F0C0E50315015C3E41747EF7BC
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140275.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140275.jpgsave_picture_140275.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ magnet:?xt=urn:btih:9DAF9126D124CF0CF8553EB20023313C85696D19
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140277.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140277.jpgsave_picture_140277.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:D86CC4DB9650C73B914534B9C99C51481CBF41C9
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140278.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140278.jpgsave_picture_140278.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ JayLay | Мастер-класс по обработке JayLay (2014) PCRec [H.
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140279.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140279.jpgsave_picture_140279.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ magnet:?xt=urn:btih:847EB2681A5FBDB1BA91BD543BAB62A98ADC71F9
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140280.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140280.jpgsave_picture_140280.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ magnet:?xt=urn:btih:87F54458BF151E0829585CCA18C8E461E20B6E93
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140282.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140282.jpgsave_picture_140282.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Nonpoint - Heartless (2023) EP [FLAC|Lossless|WEB-DL|tracks] <Nu Metal, Alternat
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140283.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140283.jpgsave_picture_140283.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ magnet:?xt=urn:btih:94C24B8ABFAAF59714966AA407DEB473728BBC30
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140284.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140284.jpgsave_picture_140284.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ magnet:?xt=urn:btih:03D02F531AEDC4AA69BD5843BC6E074544A675CF
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140285.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140285.jpgsave_picture_140285.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ magnet:?xt=urn:btih:F05EC6AD105B93C961D7FA46E2488C95BA643A89
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140286.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140286.jpgsave_picture_140286.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ magnet:?xt=urn:btih:F7138B01B095D62EDD3354FACB2A3FA325BD2B64
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140288.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140288.jpgsave_picture_140288.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ magnet:?xt=urn:btih:919E524D450C30152C9DB0BAD9D2AC14411B03D0
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140290.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140290.jpgsave_picture_140290.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ Alcohol 120% 2.0.3 Build 8426 Repack D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140291.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140291.jpgsave_picture_140291.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ No Guns Life | Жизнь без оружия [ТВ-1] [2019, TV, 12 эп.] WEBR
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140292.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140292.jpgsave_picture_140292.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ magnet:?xt=urn:btih:37EE25ED4D719857BE2B19C7E161EB201F3DBDC7
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140293.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140293.jpgsave_picture_140293.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143651.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143651.jpgsave_picture_143651.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Need for Speed: Underground Dilogy | Дилогия Need for Speed: Underground 
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143652.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143652.jpgsave_picture_143652.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ magnet:?xt=urn:btih:A0422CE744A93474721D25FA1691358D16F31EE9
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143654.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143654.jpgsave_picture_143654.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ Gekijouban KanColle / Gekijouban Kantai Collection / Fleet Girls Collection KanC
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143655.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143655.jpgsave_picture_143655.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ VA - Magic Trance Yearmix 2015 (Mixed By Beatsole) (2015) [MP3|320 кб/с] <Tra
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143656.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143656.jpgsave_picture_143656.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ magnet:?xt=urn:btih:379528C02B7845D9316E5BD41CA06009A84EF2A9
 >>Сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143657.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143657.jpgsave_picture_143657.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ magnet:?xt=urn:btih:1813D1A8F11A47D5194B1A4068C1B343C4D54D9F
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143658.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143658.jpgsave_picture_143658.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ Big Fish Games Universal Crack / Активатор игр Big Fish Games (2016)
 >>NoCD/NoDVD/Crack для Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143659.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143659.jpgsave_picture_143659.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ magnet:?xt=urn:btih:D219A3BD667D98EE9735D5EF4CBE7498A69EBEEC
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143660.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143660.jpgsave_picture_143660.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ magnet:?xt=urn:btih:BE0F8C99D93B8909C5A1526EBC77513E6661B0F0
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143662.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143662.jpgsave_picture_143662.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ magnet:?xt=urn:btih:3C5B1C3EE065F03A1F5950F130769E78DE52D1CB
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143663.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143663.jpgsave_picture_143663.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ magnet:?xt=urn:btih:29B555195FEB7DD67E32594E9AD28FE4B7DD4539
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143664.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143664.jpgsave_picture_143664.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ magnet:?xt=urn:btih:B07EEFEAB5A0F97BDF71E4F50C52839065859CBC
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143665.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143665.jpgsave_picture_143665.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ magnet:?xt=urn:btih:9E292003A6C7E9A6EED6938A539A593CB6DB91EE
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143666.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143666.jpgsave_picture_143666.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ magnet:?xt=urn:btih:875BA35129BB4490B61B5F0ED0A8C439AAF16136
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143667.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143667.jpgsave_picture_143667.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ magnet:?xt=urn:btih:6FA7393CEE56CE7ED4F0B8F4072CA02521A566F0
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143668.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143668.jpgsave_picture_143668.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ VA - National Pop Dance Music Vol.29 (2021) [MP3|320 Kbps] <Pop, Dance, Schlager
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143669.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143669.jpgsave_picture_143669.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ magnet:?xt=urn:btih:E0C07AFCF391AE4D04AEEAF1440F5F56A8242B1B
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143670.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143670.jpgsave_picture_143670.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Steuererklärung 2.10.3 (build 144) [De]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143671.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143671.jpgsave_picture_143671.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ magnet:?xt=urn:btih:F7EE40AD8A2973FE268908D51A40F38A9FE16658
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143672.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143672.jpgsave_picture_143672.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ VB Decompiler Pro 9.2 Retail [MULTi / Русский]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143673.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143673.jpgsave_picture_143673.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ VB Decompiler - это декомпилятор программ (EXE, DLL, OCX)
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143674.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143674.jpgsave_picture_143674.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ magnet:?xt=urn:btih:CC47B46BD61061624A6727D9497BCE58071710AF
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143676.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143676.jpgsave_picture_143676.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ magnet:?xt=urn:btih:4492570A068AAD6505E3F5D1E7F94D9ECDF83807
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143677.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143677.jpgsave_picture_143677.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ magnet:?xt=urn:btih:AA01BDB65AD43E68C0D0A9F94896BB7DFB41B2CE
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143678.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143678.jpgsave_picture_143678.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ Jeanette - Compilation (2021) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143679.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143679.jpgsave_picture_143679.jpg" />
 </div>
 
 

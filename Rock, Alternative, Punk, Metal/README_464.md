@@ -6,7 +6,7 @@ The Korea - Яд (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal, Modern
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243304.jpgsave_picture_243304.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Blodkvalt - Algor Mortis (2022) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243308.jpgsave_picture_243308.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ L.A.Guns - Black Diamonds (2023) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243310.jpgsave_picture_243310.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Barry Goudreau’s Engine Room - The Road (2021) [FLAC|Lossless|WEB-DL|tracks] <
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243313.jpgsave_picture_243313.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ magnet:?xt=urn:btih:66B43B2D905161898C989C56D322848907D27963
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243320.jpgsave_picture_243320.jpg" />
 </div>
 
 
@@ -143,7 +143,7 @@ magnet:?xt=urn:btih:F31255DD343AF829915A87263C370B24382BDF18
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243328.jpgsave_picture_243328.jpg" />
 </div>
 
 
@@ -170,7 +170,7 @@ Warrant - Dog Eat Dog (1992) Japanese Edition [FLAC|Lossless|image + .cue] <Hard
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243338.jpgsave_picture_243338.jpg" />
 </div>
 
 
@@ -197,7 +197,7 @@ Warrant - Dirty Rotten Filthy Stinking Rich (1989) Japanese Edition [FLAC|Lossle
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243343.jpgsave_picture_243343.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Gnarwhal - Gnarwhal (2023) [MP3|320 Kbps] <Hard Rock, Fuzz, Stoner>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243346.jpgsave_picture_243346.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:E65D8F0F1EB94248C7ED6BEA9441055B07DC72F6
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243352.jpgsave_picture_243352.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ Delorian - It Is Time (2021) [MP3|320 Kbps] <Symphonic Metal, Female Vocal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243353.jpgsave_picture_243353.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ UFO - Werewolves Of London (Live 1998) (2022) [FLAC|Lossless|WEB-DL|tracks] <Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243373.jpgsave_picture_243373.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ Perblind - The Dead And The Living (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243375.jpgsave_picture_243375.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ Red Rum - Book of Legends (2023) [FLAC|Lossless|WEB-DL|tracks] <Folk Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243377.jpgsave_picture_243377.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ Ten Jinn - Ardis (2023) [MP3|320 Kbps] <Progressive Rock, Crossover Prog>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243385.jpgsave_picture_243385.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ Audiobulldozzer - Pandemonium Blues (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243392.jpgsave_picture_243392.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Nabokova - Кувшинки (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative, I
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243397.jpgsave_picture_243397.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Antumbra - Split The Sky (2022) [FLAC|Lossless|WEB-DL|tracks] <Stoner Rock, Psyc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243413.jpgsave_picture_243413.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Creye - III: Weightless (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock, AOR>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243417.jpgsave_picture_243417.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ Make Mama Proud - Make Mama Proud II (2022) [MP3|320 Kbps] <Stoner Rock, Heavy P
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243420.jpgsave_picture_243420.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ Ohhms - Rot (2023) [MP3|320 Kbps] <Sludge, Doom, Stoner, Psych>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243422.jpgsave_picture_243422.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ Fellowship - The Saberlight Chronicles (2022) [FLAC|Lossless|tracks + .cue] <Sym
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243437.jpgsave_picture_243437.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ Good NightOwl - Capital (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243452.jpgsave_picture_243452.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ Red Harvest - Internal Punishment Programs (2004) [APE|Lossless|image + .cue] <I
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243466.jpgsave_picture_243466.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Firpo Chompeavy - Smoking 45 (2022) [FLAC|Lossless|WEB-DL|tracks] <Stoner Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243467.jpgsave_picture_243467.jpg" />
 </div>
 
 
@@ -683,7 +683,7 @@ Blood God & Debauchery - Demons Of Rock 'n' Roll (2022) 2xCD, Limited Edition [F
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243472.jpgsave_picture_243472.jpg" />
 </div>
 
 

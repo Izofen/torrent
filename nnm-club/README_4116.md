@@ -6,7 +6,7 @@ Bernie Marsden - Working Man (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues, Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127591.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127591.jpgsave_picture_127591.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:78CC915DA577C17EE177E181D85B991D0BBE8B34
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127592.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127592.jpgsave_picture_127592.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ David Bowie - Live USA (1990) [FLAC|Lossless|tracks + .cue] <Classic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127593.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127593.jpgsave_picture_127593.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Moon Safari - Himlabacken Vol. 1-2 (2012-2023) [FLAC|Lossless|WEB-DL|tracks] <Ar
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127594.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127594.jpgsave_picture_127594.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Placebo - Collapse Into Never - Live In Europe (2023) [FLAC 24/48|Lossless|WEB-D
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127595.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127595.jpgsave_picture_127595.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Diviner - Avaton (2023) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127596.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127596.jpgsave_picture_127596.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ WPS Office + PDF 18.5.2 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127597.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127597.jpgsave_picture_127597.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ magnet:?xt=urn:btih:A46C7816F3089B545B6015B9D8F274BD477339E1
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127598.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127598.jpgsave_picture_127598.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ Placebo - Collapse Into Never - Live In Europe (2023) [FLAC|Lossless|WEB-DL|trac
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127599.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127599.jpgsave_picture_127599.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Axis of Empires - Heretics and Orthodoxy (2023) [FLAC|Lossless|WEB-DL|tracks] <H
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127600.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127600.jpgsave_picture_127600.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ TV Girl - Who Really Cares (2016) Digital Album[MP3|320 Kbps] <Hypnotic Pop>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127601.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127601.jpgsave_picture_127601.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ magnet:?xt=urn:btih:754129F44F869F4BF97ADF95542CACB69DFFD15D
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127602.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127602.jpgsave_picture_127602.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ magnet:?xt=urn:btih:759DDD1D58F4416049FFE09B49DA5A1CF7B95C32
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127603.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127603.jpgsave_picture_127603.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ magnet:?xt=urn:btih:97BEA55DC327D78C02DBA56923B2D613835D3D43
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127604.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127604.jpgsave_picture_127604.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ magnet:?xt=urn:btih:A0CD1EFAE92AB711287BB0F07B75B5206444CF7A
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127605.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127605.jpgsave_picture_127605.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ magnet:?xt=urn:btih:EFB96F7FBAD887925577B21DF84BB44FD83A19E5
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127606.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127606.jpgsave_picture_127606.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ The Rolling Stones - Hackney Diamonds (2023) Live Edition, Explicit, 2023, Polyd
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127607.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127607.jpgsave_picture_127607.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ magnet:?xt=urn:btih:4488B173C4392F679A437BCD1C0593C092645B21
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127608.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127608.jpgsave_picture_127608.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Sense Flip Clock & Weather v6.41.0 Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127609.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127609.jpgsave_picture_127609.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ magnet:?xt=urn:btih:677EF37B11D1860605DFB0A9A540D8FC03B6D3F9
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127610.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127610.jpgsave_picture_127610.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:AC16EE7DCA30792937307882C30B4F8E2F977131
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127611.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127611.jpgsave_picture_127611.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Erotic Jazz Music Ensemble, Erotic Stimulation Academy - Jazz for Erotic Night (
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127612.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127612.jpgsave_picture_127612.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ magnet:?xt=urn:btih:634265CD58B5E4C8D81BF78A67DA1B02244ED6F5
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127613.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127613.jpgsave_picture_127613.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ VA - Armada Music Year Mix 2023 [MP3|320 Kbps] <House, Progressive House, Dance,
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127614.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127614.jpgsave_picture_127614.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ magnet:?xt=urn:btih:575E121A6D13C4935B0A7AEEC9BB4DBA8225E055
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127615.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127615.jpgsave_picture_127615.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ YouCut - Video Editor v1.603.1181 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127616.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127616.jpgsave_picture_127616.jpg" />
 </div>
 
 

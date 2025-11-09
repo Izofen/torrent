@@ -6,7 +6,7 @@
 >>Образование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193505.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193505.jpgsave_picture_193505.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ MassTube Ultra 21.0.4.171 RePack (& Portable) by elchupacabra [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193506.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193506.jpgsave_picture_193506.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ Textify 1.10.4 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193507.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193507.jpgsave_picture_193507.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:643BC3976B1786D52B9DCA1471F0D5DD53A47951
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193508.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193508.jpgsave_picture_193508.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:D3E717F0BE22B1D972C2DAC151FD17E7878F7780
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193509.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193509.jpgsave_picture_193509.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:356281F7B8035A3D12437F13804D4A27B4E9A84C
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193511.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193511.jpgsave_picture_193511.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ Dee Snider - Studio Albums & Projects (11 releases) (1992-2021) hand made [resto
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_193512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193512.jpgsave_picture_193512.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:2F5808E14F07B33EA6095651708607AEE75A80E9
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193513.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193513.jpgsave_picture_193513.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ magnet:?xt=urn:btih:0453F9A4B4E3D78A4E8CAE2AFCDECB196535C25B
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193514.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193514.jpgsave_picture_193514.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ Two Steps From Hell - Wacken Open Air 2023 (2023) WEB-DL [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193515.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193515.jpgsave_picture_193515.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ magnet:?xt=urn:btih:59B3DE1FA3A1C8F9EB94D8465F301CD774AEA9AB
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_193516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193516.jpgsave_picture_193516.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ Internet Download Manager 6.42 Build 52 RePack by KpoJIuK [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193518.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193518.jpgsave_picture_193518.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ Apartament 1406: Horror (2023) [Ru/Multi] (1.1.1) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193519.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193519.jpgsave_picture_193519.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:C315DFFABF3C0D4EB713369108D2E01D36B802F0
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193520.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193520.jpgsave_picture_193520.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ OCCT 15.0.4 Portable [En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193521.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193521.jpgsave_picture_193521.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ magnet:?xt=urn:btih:1607F16C06CE6F9FE7874844A66667A9C462692B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193522.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193522.jpgsave_picture_193522.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ magnet:?xt=urn:btih:CAF84A363A0E145B76F37370E953CFBF53688710
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193523.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193523.jpgsave_picture_193523.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Tor Browser Bundle 12.5.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193526.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193526.jpgsave_picture_193526.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Charrua Soccer (2023) [Ru/Multi] (1.0) Scene Tenoke
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193527.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193527.jpgsave_picture_193527.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ magnet:?xt=urn:btih:AC8C9ABFBACBDB177A42B839F7BC88EBEA826245
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193528.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193528.jpgsave_picture_193528.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ magnet:?xt=urn:btih:A2D5029A6C82CFEF45DDD4E208BEC9E6F4D078BE
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193529.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193529.jpgsave_picture_193529.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ magnet:?xt=urn:btih:3DBCDE403434539A9DEECF48D661B37C5AF62C54
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193530.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193530.jpgsave_picture_193530.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:A159C5F4E0BE259D4ECBFD97EE1C4188B7DDE228
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193531.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193531.jpgsave_picture_193531.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ magnet:?xt=urn:btih:402B29D6E09DCDC767AA5E049A861464C11D4EA0
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193532.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193532.jpgsave_picture_193532.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Magic Recovery Software 2023.08 Portable by TryRooM [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193534.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193534.jpgsave_picture_193534.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ magnet:?xt=urn:btih:21EE6FCFFA79E0F018F587D9472C90E4C7D4D584
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193535.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193535.jpgsave_picture_193535.jpg" />
 </div>
 
 

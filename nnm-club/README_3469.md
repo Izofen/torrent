@@ -6,7 +6,7 @@
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110555.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110555.jpgsave_picture_110555.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Stormborn - Zenith (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power-Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110556.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110556.jpgsave_picture_110556.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Nomy - The House That Jack Built (2024) [FLAC|Lossless|WEB-DL|tracks] <Modern Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110557.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110557.jpgsave_picture_110557.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ The Mayfield Four (MF4) - Studio Albums (2 releases) (1998-2001) hand made [rest
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110558.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110558.jpgsave_picture_110558.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ Ard - Untouched By Fire (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Doom Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110559.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110559.jpgsave_picture_110559.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Morgul Blade - Heavy Metal Wraiths (2024) [FLAC|Lossless|WEB-DL|tracks] <Blacken
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110560.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110560.jpgsave_picture_110560.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Disbelief - Killing Karma (2024) [FLAC|Lossless|WEB-DL|tracks] <Death, Black Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110561.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110561.jpgsave_picture_110561.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ magnet:?xt=urn:btih:635062358A8853EABF8E0D104E8DB58D78F3757E
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110562.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110562.jpgsave_picture_110562.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Tygers Of Pan Tang - Live Blood (2024) Live [FLAC|Lossless|WEB-DL|tracks] <Heavy
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110563.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110563.jpgsave_picture_110563.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Big Star - #1 Record (1972) Remastered, 2024, Craft Recordings [FLAC 24/192|Loss
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110564.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110564.jpgsave_picture_110564.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ magnet:?xt=urn:btih:FA1806E65C778C29DAB1A0553E6914346AB182CF
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110565.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110565.jpgsave_picture_110565.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ magnet:?xt=urn:btih:CEE732B583986DF1AEDF76B67E0D7CB6536B6D56
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110566.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110566.jpgsave_picture_110566.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ magnet:?xt=urn:btih:CA79E5C9B68EB7E785C76510992F77F2DC96DCD8
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110567.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110567.jpgsave_picture_110567.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ magnet:?xt=urn:btih:2B1FF1A7221AD6CE0AFAC04F2C9DBA21FE902482
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110568.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110568.jpgsave_picture_110568.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ Inter Arma - New Heaven (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <doom metal, 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110569.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110569.jpgsave_picture_110569.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ After Forever - Studio Albums (5 releases) (2000-2007) hand made [restored, decl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110570.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110570.jpgsave_picture_110570.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ magnet:?xt=urn:btih:5F086759B5C23C58F13296B292A6A40677B029CF
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110571.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110571.jpgsave_picture_110571.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ magnet:?xt=urn:btih:E9375EEFDD64277013BBFC42675AC9BD24AD3F60
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110572.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110572.jpgsave_picture_110572.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ Syst3m Glitch - The Brave Ones (2024) [MP3|320 Kbps] <Synthwave, Retrowave>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110573.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110573.jpgsave_picture_110573.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ magnet:?xt=urn:btih:90CE3DCA9DDA625F7A7B4A8AF4186F02FDA329AD
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110574.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110574.jpgsave_picture_110574.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ magnet:?xt=urn:btih:A0896F6F2B06AA012302592180B871DB27734920
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110575.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110575.jpgsave_picture_110575.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ Sacrothorn - Та сторона (2024) [FLAC|Lossless|WEB-DL|tracks] <Dark Elec
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110576.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110576.jpgsave_picture_110576.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ Markus Schulz - Global DJ Broadcast In Bloom (Vocal Dance Mix) (2024-04-25) [MP3
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110577.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110577.jpgsave_picture_110577.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ Sidilarsen - Que la lumiere soit (2024) [MP3|320 Kbps] <Rapcore, Frenchcore, Tec
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110578.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110578.jpgsave_picture_110578.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ magnet:?xt=urn:btih:5B9454479DCDE4815888505CA21D8304BBA6A085
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110579.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110579.jpgsave_picture_110579.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ magnet:?xt=urn:btih:CB47834FEF0A199BBF241A765C2BC93D627FC68B
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110580.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110580.jpgsave_picture_110580.jpg" />
 </div>
 
 

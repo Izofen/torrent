@@ -6,7 +6,7 @@
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63859.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63859.jpgsave_picture_63859.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:D6548F8542E107C53753D71663DE60FE661AD604
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63860.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63860.jpgsave_picture_63860.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:4A1747C8628001284B43A9082916316DADAB5539
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63861.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63861.jpgsave_picture_63861.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:E1EDEF6CF3E920FB61F208FAA8A0B13E8FC8AC08
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63862.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63862.jpgsave_picture_63862.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:25A2B94769AD73063400E8716C9AD7DCFDAB5886
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63863.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63863.jpgsave_picture_63863.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:216560B36BA6A9A89B3F37930FAE3A5048148863
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63864.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63864.jpgsave_picture_63864.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:1182C158CFF9755CBC2C951908EA8674376A5F9D
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63865.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63865.jpgsave_picture_63865.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:6C2E17999ABF0633B092DB00682906F0E370E145
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63866.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63866.jpgsave_picture_63866.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:91D0820B8A216A17B9E72B668A000D042956408A
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63867.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63867.jpgsave_picture_63867.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:F25C01E6B538B17D3AE551BAC56F7003D8E17A77
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63868.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63868.jpgsave_picture_63868.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ magnet:?xt=urn:btih:335F70A01A7E4EF336330A1F2A112DF16B51B8B8
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63869.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63869.jpgsave_picture_63869.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ magnet:?xt=urn:btih:58482BEBFB5A02EEE51572B960BA0220E0EB8FB8
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63870.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63870.jpgsave_picture_63870.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ magnet:?xt=urn:btih:18BE9A5F4B46E8297AA5BA14310028A0A57B6239
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63871.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63871.jpgsave_picture_63871.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Adobe Photoshop 2025 26.11.0.18 RePack by KpoJIuK [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63872.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63872.jpgsave_picture_63872.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ magnet:?xt=urn:btih:EFAA0D9F3B53D3AB2636E2A23F139293F138AE92
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63873.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63873.jpgsave_picture_63873.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ magnet:?xt=urn:btih:5883ABB63FED3AB09D103542C78E266BAEF2A209
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63874.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63874.jpgsave_picture_63874.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ magnet:?xt=urn:btih:31282C16388DEDD381EE4B8AF59656E5B2876699
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63875.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63875.jpgsave_picture_63875.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ magnet:?xt=urn:btih:4E992E49A6A975EFFD8173D92BB8E0E3C894775E
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63876.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63876.jpgsave_picture_63876.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ VA - XVI. Album Supraphonu (1977) Compilation, Partially Mixed, Sampler [FLAC 2.
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63877.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63877.jpgsave_picture_63877.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ magnet:?xt=urn:btih:11B13E718F16DDE7C1C74DFA46CCFC99FDA4D753
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63878.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63878.jpgsave_picture_63878.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ magnet:?xt=urn:btih:A598363B8148533DF12A2D861E86E652FC64DD63
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63879.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63879.jpgsave_picture_63879.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ magnet:?xt=urn:btih:CF95D5E4CB18196E1D357449408878085577BA37
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63880.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63880.jpgsave_picture_63880.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ magnet:?xt=urn:btih:CF95D5E4CB18196E1D357449408878085577BA37
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63881.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63881.jpgsave_picture_63881.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ magnet:?xt=urn:btih:6934A4B9ED1F4941B5AAD1E725D9523D9336853E
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63882.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63882.jpgsave_picture_63882.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ SpaceX занимается строительством масштабного 
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63883.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63883.jpgsave_picture_63883.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Windows 11 Pro х64 Version 25H2 Build 26200.6584 by Igors_VL [RU]
 >>Сборки Windows 11
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63884.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63884.jpgsave_picture_63884.jpg" />
 </div>
 
 

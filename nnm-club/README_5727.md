@@ -6,7 +6,7 @@ Wondershare Filmora 11 v.11.7.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176611.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176611.jpgsave_picture_176611.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:BAFFBEAB7F405D08CBD145B1839C2AF9C98637A2
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_176612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176612.jpgsave_picture_176612.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:FAB24699F086F510C54F9AA034604992F2F9FE31
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176614.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176614.jpgsave_picture_176614.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Luminar Neo 1.5.1 ARM [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176615.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176615.jpgsave_picture_176615.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ VA - Pop Sun Hits: November Session (2020) [MP3|320 Kbps] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_176616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176616.jpgsave_picture_176616.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:1B84BFA2E62E7935D146FCBFC901D2FC107CBCBF
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_176618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176618.jpgsave_picture_176618.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ VueScan Pro 9.7.96 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176619.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176619.jpgsave_picture_176619.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:528677692310916B9461943ACECEE547AB99C1E8
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176620.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176620.jpgsave_picture_176620.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ MediaHuman YouTube Downloader 3.9.9.50 (0512) RePack (& Portable) by TryRooM [Mu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_176622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176622.jpgsave_picture_176622.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:4AAAAECCB045318B244C294F78AE3548E4BE1943
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176623.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176623.jpgsave_picture_176623.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:CB1AC5919D502DD0A66FA54447283786595C5C6E
 >>Флот
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176624.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176624.jpgsave_picture_176624.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Nuclear Power Trio - A Clear and Present Rager (2020) EP [MP3|320 Kbps] <Progres
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_176626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176626.jpgsave_picture_176626.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ magnet:?xt=urn:btih:CC9677F0D46A5F0BBB1FF01088376346133BB9E0
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176627.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176627.jpgsave_picture_176627.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ ACDSee Photo Studio 9 v.9.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176628.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176628.jpgsave_picture_176628.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ magnet:?xt=urn:btih:D389591B4383433589E0D380915BF0DE5ACDA7AB
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_176630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176630.jpgsave_picture_176630.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ VA - Music News vol.228 (2022) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176631.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176631.jpgsave_picture_176631.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ magnet:?xt=urn:btih:564E6870C62B59333E7098F5FFE1519DFBC6748E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176632.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176632.jpgsave_picture_176632.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ VA - German Top 100 Single Charts 04.12.2020 [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_176634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176634.jpgsave_picture_176634.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Google Chrome 108.0.5359.95 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176635.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176635.jpgsave_picture_176635.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ magnet:?xt=urn:btih:90B6B5609D9DE5B666162148BFC00A6736FDC97B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176636.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176636.jpgsave_picture_176636.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ magnet:?xt=urn:btih:B4B0F66D9317DC2419BD1F14D5261308B1E81CF0
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176638.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176638.jpgsave_picture_176638.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Aiseesoft Video Converter Ultimate 10.7.28 RePack (& Portable) by TryRooM [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176639.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176639.jpgsave_picture_176639.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ magnet:?xt=urn:btih:BA04E99B53E6C6DFAF5E14A7DECC68AEF530CE96
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_176640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176640.jpgsave_picture_176640.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ magnet:?xt=urn:btih:C7F408AE9AADB058B092A4FB8F56BEA5E4D4DF6E
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176642.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176642.jpgsave_picture_176642.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ magnet:?xt=urn:btih:792D78A90230076A660EE8CD33C473318C475F05
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176643.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176643.jpgsave_picture_176643.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ magnet:?xt=urn:btih:A5079BB99FBF03F18C1FFE1436DBC1E702A025C3
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_176644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176644.jpgsave_picture_176644.jpg" />
 </div>
 
 

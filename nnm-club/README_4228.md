@@ -6,7 +6,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131070.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131070.jpgsave_picture_131070.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:6D0A4E4AC1590CBDEBC81B3AAC07BFB61395908E
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131071.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131071.jpgsave_picture_131071.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ HWiNFO 7.67 Build 5285 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131072.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131072.jpgsave_picture_131072.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:8FE8F47206D26C298DFB3FCA8A4D9EAAA90366E2
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131073.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131073.jpgsave_picture_131073.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:B82DF38639B53AD4A32BF3A0551A2F2F39AE71A1
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131074.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131074.jpgsave_picture_131074.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ VA - Chillhop Essentials Winter (2023) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, C
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131076.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131076.jpgsave_picture_131076.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ The Killers - Rebel Diamonds (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Alterna
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131078.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131078.jpgsave_picture_131078.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ Dr. Hector & The Groove Injectors - Bad Connection (1998) [APE|Lossless]<Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131079.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131079.jpgsave_picture_131079.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Dr. Hector & The Groove Injectors - Bad Connection (1998) [APE|Lossless]<Blues>
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131080.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131080.jpgsave_picture_131080.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ magnet:?xt=urn:btih:129CAD0F5D3B6FAB22CAAFF3C5CEAE7EBFF44E43
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131081.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131081.jpgsave_picture_131081.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ magnet:?xt=urn:btih:863EA44B4E37F9F07D726B11CB76A64B21D026D0
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131082.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131082.jpgsave_picture_131082.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ magnet:?xt=urn:btih:FABAAB24818BC00216868B51802290BE5D86574F
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131083.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131083.jpgsave_picture_131083.jpg" />
 </div>
 
 
@@ -314,7 +314,7 @@ Dave Fields - Detonation (2010) [FLAC|Lossless]<Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131084.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131084.jpgsave_picture_131084.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Dave Fields - Detonation (2010) [FLAC|Lossless]<Blues>
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131085.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131085.jpgsave_picture_131085.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ magnet:?xt=urn:btih:7095D20725BB10B464388F4173251DFA05D0B0CC
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131086.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131086.jpgsave_picture_131086.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ Speedtest от Ookla 5.2.4 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131089.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131089.jpgsave_picture_131089.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ Neil Young - Before and After (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Classi
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131091.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131091.jpgsave_picture_131091.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ Lagooshkee - Live in London Club (2011) [MP3|320 кб/с]<Avant-Punk, Freak-Pop,
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131092.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131092.jpgsave_picture_131092.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Kameleon - Kameleon (1981) LP [MP3|320 Kbps] <Electronic, New Wave, Synth-pop, D
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131093.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131093.jpgsave_picture_131093.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ magnet:?xt=urn:btih:9CCC0388F554B23F3E9910EB3546D6E7534BB681
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131094.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131094.jpgsave_picture_131094.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ magnet:?xt=urn:btih:8553D9FEAB2532DC0BA07B4AAA7F829CA0482E48
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131095.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131095.jpgsave_picture_131095.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Sexy Girls Pack Wallpapers (30.12.12) [Wallpapers 16+]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131096.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131096.jpgsave_picture_131096.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ VA - Подарок! (2012) [MP3|320 кб/с]<Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131098.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131098.jpgsave_picture_131098.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ HQ Wallpapers Perfect Women (30.12.12) [Wallpapers 16+]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131099.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131099.jpgsave_picture_131099.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ Duke Robillard - Exalted Lover (2003) [APE|Lossless]<Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131100.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131100.jpgsave_picture_131100.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ Duke Robillard - Exalted Lover (2003) [APE|Lossless]<Blues>
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131102.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131102.jpgsave_picture_131102.jpg" />
 </div>
 
 

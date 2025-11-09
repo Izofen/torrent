@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50953.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50953.jpgsave_picture_50953.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ AusLogics Disk Defrag Ultimate 4.13.0.2 RePack (& Portable) by TryRooM [Multi/Ru
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50954.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50954.jpgsave_picture_50954.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:5C8F839FB0831DFE07360670F2B8AD89D914F94D
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50955.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50955.jpgsave_picture_50955.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:BEC87E51C4F6540C06376DF436456D84FE9686B5
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50956.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50956.jpgsave_picture_50956.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:7FAC5CD41B4D84DFF674F8CFF609175657B419FA
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50957.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50957.jpgsave_picture_50957.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Telegram Desktop 5.2.2 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50958.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50958.jpgsave_picture_50958.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:1086110E903551BB284799783549F0D0723F7CAD
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50959.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50959.jpgsave_picture_50959.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:636242A1085D6013DDF59A7F87EEA2754068402F
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50960.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50960.jpgsave_picture_50960.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ VA - Солнечное лето (Русские песни. Русские хи
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50961.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50961.jpgsave_picture_50961.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ magnet:?xt=urn:btih:BFD96D3E4A4A4A42B783A6A159E1784B4AB774F5
 >>Экранки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50962.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50962.jpgsave_picture_50962.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ Soft Organizer Pro 9.51 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50963.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50963.jpgsave_picture_50963.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ magnet:?xt=urn:btih:19BF8545E46D885D7BCE3618B4C3F272F95C54C7
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50964.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50964.jpgsave_picture_50964.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ magnet:?xt=urn:btih:25F09BA890C42E0A67888929FB192C6A6EB37E87
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50965.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50965.jpgsave_picture_50965.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ The Alan Parsons Project - Vulture Culture (1984) Remaster, 2024, Ariola [FLAC 2
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50966.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50966.jpgsave_picture_50966.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ VA - Новые хитовые песни 2024, Часть 7 (2024) [FLAC|Lossle
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50967.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50967.jpgsave_picture_50967.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ VA - Music News vol.394 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50968.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50968.jpgsave_picture_50968.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ Autorun Organizer 5.41 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50969.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50969.jpgsave_picture_50969.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ VA - Русская 30-ка хитов 6 (Новые русские песни) 
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50970.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50970.jpgsave_picture_50970.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ magnet:?xt=urn:btih:68D2AE0B9353192DDB46C000ABE8061B849D01EB
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50971.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50971.jpgsave_picture_50971.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ magnet:?xt=urn:btih:4450069587A1950C93BBF0530AD5C58D9E5E16F5
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50972.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50972.jpgsave_picture_50972.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ magnet:?xt=urn:btih:29133C06698896A6F46972DF760951597E0AC893
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50973.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50973.jpgsave_picture_50973.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Joplin 3.0.12 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50974.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50974.jpgsave_picture_50974.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Chuck Berry - Greatest Hits (2004) [WavPack|Lossless|image + .cue] <Rock & Roll>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50975.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50975.jpgsave_picture_50975.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Telegram Desktop 5.2.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50976.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50976.jpgsave_picture_50976.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Auslogics File Recovery 11.0.0.7 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50977.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50977.jpgsave_picture_50977.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ magnet:?xt=urn:btih:277F471CDA0024D22CC1D0D4AB19D0DB88BC2B14
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50978.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50978.jpgsave_picture_50978.jpg" />
 </div>
 
 

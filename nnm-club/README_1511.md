@@ -6,7 +6,7 @@
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39641.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39641.jpgsave_picture_39641.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:A7B1364F4EC60F1BC3A6D67AC4495E4706478BB1
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39642.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39642.jpgsave_picture_39642.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Deejay Laura - Euphoria (2013) [FLAC|Lossless|tracks] <Pop Trance, Scouse House>
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39643.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39643.jpgsave_picture_39643.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Bobbie Dazzle - Fandabidozi (2024) [FLAC|Lossless|image + .cue] <Progressive, Ps
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39644.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39644.jpgsave_picture_39644.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ Showaddywaddy - 20 Greatest Hits (1992) [FLAC|Lossless|image + .cue] <Rock, Pop,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39645.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39645.jpgsave_picture_39645.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ Europica - Part Two (2024) [FLAC|Lossless|image + .cue] <Heavy Metal, Folk Rock>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39646.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39646.jpgsave_picture_39646.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ Nasty Savage - Jeopardy Room (2024) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39647.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39647.jpgsave_picture_39647.jpg" />
 </div>
 
 
@@ -187,7 +187,7 @@ Heartwind - Higher And Higher (2018) Japanese Edition [FLAC|Lossless|image + .cu
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39648.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39648.jpgsave_picture_39648.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ magnet:?xt=urn:btih:5B639589097792CD5F9594FDE1B786E56F8BAE83
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39649.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39649.jpgsave_picture_39649.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Wind Rose - Trollslayer (2024) [FLAC|Lossless|image + .cue] <Power Metal, Folk>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39650.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39650.jpgsave_picture_39650.jpg" />
 </div>
 
 
@@ -265,7 +265,7 @@ The Crown - Crown Of Thorns (2024) [FLAC|Lossless|image + .cue] <Melodic Death, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39651.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39651.jpgsave_picture_39651.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Die Gesellschaft der Grauen Herren - Imagines Itineris (2014) [FLAC|Lossless|ima
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39652.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39652.jpgsave_picture_39652.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Hazael - Thor (1993) Reissue, 2014, Dark Descent Records [FLAC|Lossless|image + 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39653.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39653.jpgsave_picture_39653.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Divinefire - Studio Albums (5 releases) (2004-2011) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39654.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39654.jpgsave_picture_39654.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ magnet:?xt=urn:btih:BF969602EA3C361FF63C4E0A6CEA48B7B6147AF1
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39655.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39655.jpgsave_picture_39655.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ magnet:?xt=urn:btih:B2BD25E6DE3DAE6D562D8FBDEC65152C2EEF44EF
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39656.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39656.jpgsave_picture_39656.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ magnet:?xt=urn:btih:95FF1096B63D26EB6C9BA96AE66219D8F6D15A67
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39657.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39657.jpgsave_picture_39657.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ magnet:?xt=urn:btih:B1F1DC1A3EA4FE347520DEFABB4A88258A9972E5
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39658.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39658.jpgsave_picture_39658.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ magnet:?xt=urn:btih:5E99D950D495544978F16FB3F782259645DAFBE1
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39659.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39659.jpgsave_picture_39659.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ magnet:?xt=urn:btih:D069C33A2AC6F9634C9C4DBBCB3AB049E085E55B
 >>Медитации (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39660.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39660.jpgsave_picture_39660.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ magnet:?xt=urn:btih:67520414C3EF0775223DC5A76F4834D7A49DBB51
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39661.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39661.jpgsave_picture_39661.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ magnet:?xt=urn:btih:E3F11B27E17D79BB5BA81414AB82455CF4BCDE84
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39662.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39662.jpgsave_picture_39662.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ magnet:?xt=urn:btih:1851CBBB3431B5DC526474DEB5C3EB7763DF764C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39663.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39663.jpgsave_picture_39663.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Peter Griffin - Hurricane Is Coming (1980) [FLAC|Lossless|image + .cue] <Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39664.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39664.jpgsave_picture_39664.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ VA - Amsterdam After Disco (2024) [MP3|320 Kbps] <Funky, Club House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39665.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39665.jpgsave_picture_39665.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Luttrell - Life at Full Speed (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Tech
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39666.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39666.jpgsave_picture_39666.jpg" />
 </div>
 
 

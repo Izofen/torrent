@@ -6,7 +6,7 @@
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238356.jpgsave_picture_238356.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Paralyzed - Heavy Road (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Stoner Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238358.jpgsave_picture_238358.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:288BB463D628DB5C32550081E03FA1DB1F8E91F3
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238360.jpgsave_picture_238360.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ magnet:?xt=urn:btih:CE4CEC6E81377B5E8FB03651AB7B5EB9D2D3639E
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238361.jpgsave_picture_238361.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Astodan - 3 Albums (2018-2022) [FLAC|Lossless|WEB-DL|tracks] <Post-Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238362.jpgsave_picture_238362.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ VA - Deep Ibiza Opening Party (2023) [MP3|320 Kbps] <House, Deep House, Dance, C
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238363.jpgsave_picture_238363.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Bob Dylan - Shadow Kingdom (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238367.jpgsave_picture_238367.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Them Damn Kings - Rise Up (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238368.jpgsave_picture_238368.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ magnet:?xt=urn:btih:FFBDF287A38015ED0BA9987B42A0F3D1133FC308
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238369.jpgsave_picture_238369.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ magnet:?xt=urn:btih:A7C9373788E263291B588D71074A0C9B3075155D
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238370.jpgsave_picture_238370.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Miguel Ramos/Мигель Рамос - Organo Hammond/Орган Хаммонд 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238371.jpgsave_picture_238371.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ magnet:?xt=urn:btih:6D93D07164B63F6BE4D6F61FF25AC285031D7E03
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238373.jpgsave_picture_238373.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Kaiko Sareta Ankoku Heishi (30-dai) no Slow na Second Life | Неспешная 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238375.jpgsave_picture_238375.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ magnet:?xt=urn:btih:3BF03195C6A49852A34CA6D44D0734781D709AE3
 >>Футбол
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238376.jpgsave_picture_238376.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ magnet:?xt=urn:btih:22BCD4CBCB1B74C0F567C2F137A702A3BFE5F3B3
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238377.jpgsave_picture_238377.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ Analog '82 - To A Time Of Memories (2023) [MP3|320 Kbps] <Synthwave, Retrowave>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238379.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238379.jpgsave_picture_238379.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ magnet:?xt=urn:btih:3C5D5BEE70C04E5766459B6D1924443618868036
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238380.jpgsave_picture_238380.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:2DD9D5640E6E55322C3DA14B49CDC1E892563E5C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238381.jpgsave_picture_238381.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ magnet:?xt=urn:btih:5AFD18294A56301C2A0D9A0C839BE20D54194BAF
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238382.jpgsave_picture_238382.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Rod McKuen - Amor, Amor - Slide... Easy In (1977) LP [MP3|320 Kbps] <Funk/Soul, 
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238383.jpgsave_picture_238383.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Calibre 6.6.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238385.jpgsave_picture_238385.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ magnet:?xt=urn:btih:1C5AECD3DC9A6DC6608849D045AFE2F17ECC81CA
 >>History Channel
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238387.jpgsave_picture_238387.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ VA - Best Vocal Tracks Hype SFR (2023) [MP3|320 Kbps] <Trance, Progressive, Elec
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238388.jpgsave_picture_238388.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ VA - Мелодии экрана, 17 серия (1968) [FLAC 1.0|96/24|tracks|Vi
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238389.jpgsave_picture_238389.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ magnet:?xt=urn:btih:7F1847AC70BDA4AAAE0EF665A615F953436BB96C
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238391.jpgsave_picture_238391.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ CVS 2.20 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238392.jpgsave_picture_238392.jpg" />
 </div>
 
 

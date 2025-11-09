@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125660.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125660.jpgsave_picture_125660.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:728B0B73E06C801ED4401E5D461FAEC371C1FA3C
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125661.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125661.jpgsave_picture_125661.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:CA42DF5E8205F453846A5C7FD23A719BC9F3E861
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125662.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125662.jpgsave_picture_125662.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ Smart Driver Manager Pro 7.1.1140 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125663.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125663.jpgsave_picture_125663.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ Topaz Video AI 4.0.9 (x64) Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125664.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125664.jpgsave_picture_125664.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:3CB84AA3D215E169BDFC4745334AA044365DBF9B
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125665.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125665.jpgsave_picture_125665.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:A9B4B88AA685EB0402D41761F0839D5F066AE45A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125666.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125666.jpgsave_picture_125666.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:2AE6EC4C631A6BAC3815F67685B14E9B620BFE59
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125667.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125667.jpgsave_picture_125667.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:1877BF2B30708B3964F75A1FD2BEE9A910A130ED
 >>68
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125668.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125668.jpgsave_picture_125668.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Need for Speed: Payback (2017) [Ru/En] (1.0.51.15364/dlc) Repack Decepticon [Del
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125669.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125669.jpgsave_picture_125669.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:217C85B5F00C51263FDA51C1A482EA1F274E29B3
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125670.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125670.jpgsave_picture_125670.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:89626B27DAB4DA979D05A5B40FEDDA1F85EE1B59
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125671.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125671.jpgsave_picture_125671.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Dark Gathering | Тёмное собрание [2023, TV, 25 эп.] WebRip 720p 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125672.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125672.jpgsave_picture_125672.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ magnet:?xt=urn:btih:81F604896AE68CC2D30309696202A8369EE0AB35
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125673.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125673.jpgsave_picture_125673.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Heroes of Might and Magic III: Complete (1999) [Ru/En] (4.0/dlc) Repack Deceptic
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125674.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125674.jpgsave_picture_125674.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ magnet:?xt=urn:btih:780B4214A54F1CBB711F3DAEF5BB7D9BBA3058C7
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125675.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125675.jpgsave_picture_125675.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ magnet:?xt=urn:btih:A33F5A780F42EE4432D4088487DA5076F4BE0C80
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125676.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125676.jpgsave_picture_125676.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ magnet:?xt=urn:btih:5E25DD4CAF3690ACA5B6FBA5FB0CA863D6F1E860
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125677.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125677.jpgsave_picture_125677.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Udemy, Neil Bettison | The Blender 4 Ultimate Guide (2023) WEB-DL [EN] [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125678.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125678.jpgsave_picture_125678.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Adobe Photoshop 2024 25.3.1.241 (x64) RePack by SanLex [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125679.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125679.jpgsave_picture_125679.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ magnet:?xt=urn:btih:DC9EBE0D87A87785A5853A9AE3649C70E1E91667
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125680.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125680.jpgsave_picture_125680.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ magnet:?xt=urn:btih:DC9EBE0D87A87785A5853A9AE3649C70E1E91667
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125681.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125681.jpgsave_picture_125681.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Adguard 7.16.0 (7.16.4542.0) RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125682.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125682.jpgsave_picture_125682.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ magnet:?xt=urn:btih:B97D5EB254B26E0E23202D5DB28F08323DA90274
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125683.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125683.jpgsave_picture_125683.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Victoria 3 v.1.5.12 (2022) [Multi/Ru] [macOS Native game]
 >>Strategy, RPG для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125684.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125684.jpgsave_picture_125684.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ magnet:?xt=urn:btih:9969463814A8B9955BBA0C726A80B9FB76C6947C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125685.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125685.jpgsave_picture_125685.jpg" />
 </div>
 
 

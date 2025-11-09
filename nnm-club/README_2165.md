@@ -6,7 +6,7 @@ ibis Paint X 12.1.0 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56657.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56657.jpgsave_picture_56657.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:69C81500265D3F651E6E589A3E68875B39649040
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56658.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56658.jpgsave_picture_56658.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ TWD Express Rolling Takeoff | TWD-Экспресс: Плавный взлёт [1
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56659.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56659.jpgsave_picture_56659.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:67BCB2BA48C529D6F2345189A7F2DD936C9E246F
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56660.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56660.jpgsave_picture_56660.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Via Браузер / Via Browser 5.5.1 Mod by person10301 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56661.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56661.jpgsave_picture_56661.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Text Editor Pro 29.1.1 + Portable + Bonus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56662.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56662.jpgsave_picture_56662.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:DA55126B05D2D144A0DEC485D8443F32E0346E2B
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56663.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56663.jpgsave_picture_56663.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ MuseScore 4.3.0 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56664.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56664.jpgsave_picture_56664.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Gekijouban Servamp: Alice in the Garden | Сервамп (фильм) [2018, Mov
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56665.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56665.jpgsave_picture_56665.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ YT Downloader 9.7.18 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56666.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56666.jpgsave_picture_56666.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ VA - Jazz Covers Popular Songs (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56667.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56667.jpgsave_picture_56667.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:77AE53875293217C9299B59E852CC27D289F48C8
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56668.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56668.jpgsave_picture_56668.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Via Браузер / Via Browser 5.5.1 Mod by bot3.14 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56669.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56669.jpgsave_picture_56669.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ magnet:?xt=urn:btih:DCBCB96D4668265E6A079D8F97293417F2C6FBA3
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56670.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56670.jpgsave_picture_56670.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ magnet:?xt=urn:btih:FB7FD1D9C229E377D845C4BA44AAC6B6077824C8
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56671.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56671.jpgsave_picture_56671.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ Freeplane 1.11.13 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56672.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56672.jpgsave_picture_56672.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ magnet:?xt=urn:btih:F872297592A8A4E70FDC067F49F5D1F3B4BBD6E6
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56673.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56673.jpgsave_picture_56673.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ magnet:?xt=urn:btih:67823D45EA31868B6ABC781F97ED88AE27391877
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56674.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56674.jpgsave_picture_56674.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Ungoogled Chromium 124.0.6367.201-1.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56675.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56675.jpgsave_picture_56675.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Vit Registry Fix Pro 14.9.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56676.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56676.jpgsave_picture_56676.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ magnet:?xt=urn:btih:FDAFB0CCBEF98F99B34C25BE8CCDB756632402FD
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56677.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56677.jpgsave_picture_56677.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ magnet:?xt=urn:btih:452F0B633D05CB3369F7A12C145EBDC4B45B02E8
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56678.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56678.jpgsave_picture_56678.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ magnet:?xt=urn:btih:C88BFCE7B2D94E387A20BCFDD911304DDF47EFEE
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56679.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56679.jpgsave_picture_56679.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Via Браузер / Via Browser 5.5.1 Mod by AnBo39 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56680.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56680.jpgsave_picture_56680.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Icecream Slideshow Maker Pro 5.14 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56681.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56681.jpgsave_picture_56681.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ magnet:?xt=urn:btih:46AF5D88BC5A1D5D6A9EDA0591882DA3DB7C0451
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56682.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56682.jpgsave_picture_56682.jpg" />
 </div>
 
 

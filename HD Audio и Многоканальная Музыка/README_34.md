@@ -6,7 +6,7 @@ Electric High - Colorful White Lies (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38173.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38173.jpgsave_picture_38173.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Billy Jeter - Delta Traces (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38175.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38175.jpgsave_picture_38175.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Tribulation - Sub Rosa In AEternum (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <D
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38176.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38176.jpgsave_picture_38176.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Chuck Ragan - Love & Lore (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38178.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38178.jpgsave_picture_38178.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Nightmare (France) - Studio Albums (10 releases) (2001-2024) hand made [restored
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38187.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38187.jpgsave_picture_38187.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Visions of Atlantis - Studio Albums (10 releases) (2002-2024) hand made [restore
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38192.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38192.jpgsave_picture_38192.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ Little River Band - Window To The World (2024) [FLAC 24/44.1|Lossless|WEB-DL|tra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38193.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38193.jpgsave_picture_38193.jpg" />
 </div>
 
 
@@ -196,7 +196,7 @@ Koko-Jean & The Tonics - Love Child (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38194.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38194.jpgsave_picture_38194.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ magnet:?xt=urn:btih:777A59FC84C91D567771FB1A6EFD85816C68A4F5
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38195.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38195.jpgsave_picture_38195.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Circle Of Mud - Inside The Circle (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38196.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38196.jpgsave_picture_38196.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ Nordic Twilight - Nordic Twilight (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38198.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38198.jpgsave_picture_38198.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ Withering Surface - Studio Albums (7 releases) (1997-2024) hand made [restored, 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38210.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38210.jpgsave_picture_38210.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ Motley Crue - Studio Albums (10 releases) (1981-2024) hand made [restored, decli
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38256.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38256.jpgsave_picture_38256.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ Svaneborg Kardyb - Superkilen (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Contem
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38270.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38270.jpgsave_picture_38270.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ The Brooks - Soon As I Can (2024) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <Funk>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38273.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38273.jpgsave_picture_38273.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ Simon Oslender, Steve Gadd & Will Lee - All That Matters (2024) [FLAC 24/44.1|Lo
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38274.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38274.jpgsave_picture_38274.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Southern Hospitality - Yard Sale (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <B
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38275.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38275.jpgsave_picture_38275.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ VA - Can’t Steal My Fire The Songs of David Olney (2024) [FLAC 24/48|Lossless|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38276.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38276.jpgsave_picture_38276.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ NonExist - Studio Albums (4 releases) (2002-2020) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38277.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38277.jpgsave_picture_38277.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ magnet:?xt=urn:btih:EDC85D1A1E11A4EE9A9CDD983F2279786F8BC1D1
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38278.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38278.jpgsave_picture_38278.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ Vision Divine - Studio Albums (9 releases) (1999-2024) hand made [restored, decl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38296.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38296.jpgsave_picture_38296.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ Ensiferum - Studio Albums (11 releases) (2001-2024) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38364.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38364.jpgsave_picture_38364.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ Stahlmann (& Sundenklang) - Studio Albums (11 releases) (2010-2024) hand made [r
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38381.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38381.jpgsave_picture_38381.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ Brothers Of Metal - Studio Albums (3 releases) (2017-2024) hand made [restored, 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38383.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38383.jpgsave_picture_38383.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ The Cure - Studio Albums (5 releases) (1996-2024) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38416.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38416.jpgsave_picture_38416.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Eclipse - Studio Albums (10 releases) (2001-2024) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38428.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38428.jpgsave_picture_38428.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57333.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57333.jpgsave_picture_57333.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:6CED792BAE3BDF6A4983A102391F46A76CBFB715
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57334.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57334.jpgsave_picture_57334.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:F5AF66456AF41676D881A04D0C38111174182917
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57335.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57335.jpgsave_picture_57335.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ inPixio Photo Focus Pro 4.3.8621.22315 Portable by FC Portables [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57336.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57336.jpgsave_picture_57336.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:A2B9A417832E493B5EC6ED3251A57A5665C879E7
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57337.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57337.jpgsave_picture_57337.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:A2B9A417832E493B5EC6ED3251A57A5665C879E7
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57338.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57338.jpgsave_picture_57338.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Media Player Classic - Black Edition (MPC-BE) 1.7.1 Stable + Portable + Standalo
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57339.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57339.jpgsave_picture_57339.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:4D25652E3172988306C5D7622B84711916B4B77B
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57340.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57340.jpgsave_picture_57340.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ TreeSize Free 4.7.3.550 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57341.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57341.jpgsave_picture_57341.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ Creedence Clearwater Revival - The Complete Studio Albums (1968-1972) Compilatio
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57342.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57342.jpgsave_picture_57342.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ HWiNFO 8.02 Build 5440 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57343.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57343.jpgsave_picture_57343.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ magnet:?xt=urn:btih:386379C183E378BCB90E4BA42C0326ADC2392A6E
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57344.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57344.jpgsave_picture_57344.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ magnet:?xt=urn:btih:27D09DA77FC50D71D930310105685B64449E4727
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57345.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57345.jpgsave_picture_57345.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ magnet:?xt=urn:btih:040F3EB5C1A560A0FCC2D28411A9DD55F5284054
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57346.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57346.jpgsave_picture_57346.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ magnet:?xt=urn:btih:02A0B0D842A8CEBC0EB0CF3EE1715FCDD3056A37
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57347.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57347.jpgsave_picture_57347.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ magnet:?xt=urn:btih:ECE90AA8327B2F0678438DDADD89E20AEC0AE3F9
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57348.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57348.jpgsave_picture_57348.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ magnet:?xt=urn:btih:266069F848FA5B9AD8B279784508645B47377B48
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57349.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57349.jpgsave_picture_57349.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ magnet:?xt=urn:btih:4EABD6CF3946EC14CE931C3B15DF96B8DC3854CF
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57350.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57350.jpgsave_picture_57350.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ magnet:?xt=urn:btih:4EABD6CF3946EC14CE931C3B15DF96B8DC3854CF
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57351.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57351.jpgsave_picture_57351.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ FastStone MaxView 3.4 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Просмотрщики Графики (вьюверы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57352.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57352.jpgsave_picture_57352.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Adobe Acrobat Pro 2024.002.20736 (x32-x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57353.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57353.jpgsave_picture_57353.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Zrobim architects | Авторский курс интерьерного диз�
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57354.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57354.jpgsave_picture_57354.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:3EE5C2B8F68FAC6E43104AA641524DD42EAB937D
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57355.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57355.jpgsave_picture_57355.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ magnet:?xt=urn:btih:3AE0B3903D5C288E2395DC2CC389A6E5A0030F3C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57356.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57356.jpgsave_picture_57356.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ magnet:?xt=urn:btih:5BFD64F6C89AB0FE3EDCF92F35A38A51C9ECE93E
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57357.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57357.jpgsave_picture_57357.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Golf With Your Friends (2020) [Ru/Multi] (258/dlc) Scene Tenoke
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57358.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57358.jpgsave_picture_57358.jpg" />
 </div>
 
 

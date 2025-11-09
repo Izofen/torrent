@@ -6,7 +6,7 @@ WinTools.net Premium 25.10.1 Premium RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1672.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1672.jpgsave_picture_1672.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ MetaProducts Offline Explorer Enterprise 8.8.0.5004 RePack (& Portable) by elchu
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1676.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1676.jpgsave_picture_1676.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Any Video Downloader Pro 9.6.0 RePack (& Portable) by elchupacabra [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1683.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1683.jpgsave_picture_1683.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ R-Drive Image Technician 7.3 Build 7310 RePack (& Portable) by KpoJIuK [Multi/Ru
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1685.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1685.jpgsave_picture_1685.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ MyLanViewer 6.5.9 RePack (& Portable) by elchupacabra [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1686.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1686.jpgsave_picture_1686.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Revo Uninstaller Pro 5.4.0 RePack (& Portable) by Dodakaedr (21.09.2025) [Multi/
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1695.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1695.jpgsave_picture_1695.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ DISMTools 0.7.0.25082 + Portable [Multi]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1696.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1696.jpgsave_picture_1696.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ AIDA64 Extreme | Engineer | Business Edition | Network Audit 8.00.8000 RePack (&
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1698.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1698.jpgsave_picture_1698.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Coolmuster Android Assistant 6.0.89 RePack (& Portable) by elchupacabra [Multi/R
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1700.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1700.jpgsave_picture_1700.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Google Earth Pro 7.3.6.10441 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1706.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1706.jpgsave_picture_1706.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ AIDA64 Extreme | Engineer | Business Edition | Network Audit 8.00.8000 (16.09.20
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1741.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1741.jpgsave_picture_1741.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Glary Utilities Pro 6.31.0.35 + Portable [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1840.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1840.jpgsave_picture_1840.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ R-Drive Image System Recovery Media Creator 7.3 Build 7310 RePack (& Portable) b
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1875.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1875.jpgsave_picture_1875.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Tor Browser Bundle 14.5.7 Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1916.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1916.jpgsave_picture_1916.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Aiseesoft Screen Recorder 3.1.36 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1992.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1992.jpgsave_picture_1992.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Directory List & Print Pro 4.35 RePack (& Portable) by elchupacabra [Multi]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2020.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2020.jpgsave_picture_2020.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ CoolUtils PDF Combine Pro 4.2.0.151 RePack (& Portable) by elchupacabra [Multi/R
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2033.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2033.jpgsave_picture_2033.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Wondershare PDFelement 12.0.6.3738 [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2038.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2038.jpgsave_picture_2038.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ WinCHM Pro 5.551 RePack (& Portable) by elchupacabra [Ru/En]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2040.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2040.jpgsave_picture_2040.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Microsoft PowerToys 0.94.1 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2060.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2060.jpgsave_picture_2060.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Bandicam 8.2.2.2531  RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2063.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2063.jpgsave_picture_2063.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ AIDA64 Extreme | Engineer | Business Edition | Network Audit 8.00.8000 RePack (&
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2089.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2089.jpgsave_picture_2089.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ MiniTool Partition Wizard Technician 13.0 RePack (& Portable) by elchupacabra [M
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2090.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2090.jpgsave_picture_2090.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ InnoExtractor Ultra 11.1.0.152 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2171.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2171.jpgsave_picture_2171.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ MassTube Ultra 21.0.2.164 RePack (& Portable) by Dodakaedr [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2201.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2201.jpgsave_picture_2201.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ MemTest86 Pro 11.5 Build 1000  RePack by Lity + ISO [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2209.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2209.jpgsave_picture_2209.jpg" />
 </div>
 
 

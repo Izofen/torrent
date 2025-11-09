@@ -6,7 +6,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163493.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163493.jpgsave_picture_163493.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:FD744026D3249D10B876BC523EC7A519CD75153C
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163494.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163494.jpgsave_picture_163494.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Ataraxia - Sous Le Blanc Rosier (2007) 2CD [FLAC|Lossless|image + .cue] <Gothic,
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163495.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163495.jpgsave_picture_163495.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ Born Of Fire - Anthology (2012) [APE|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163496.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163496.jpgsave_picture_163496.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ Nova Skellis - Life Amongst The Damned (2023) [FLAC|Lossless|WEB-DL|tracks] <Mel
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163497.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163497.jpgsave_picture_163497.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ VA - Soft Pop (relax) (2021) [MP3|320 Kbps] <Pop, Chillout, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163498.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163498.jpgsave_picture_163498.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Microsoft Windows 10.0.19041.685 Version 2004 (Updated December 2020) - Ориг
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163499.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163499.jpgsave_picture_163499.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ magnet:?xt=urn:btih:D93D4CB49BF0A2600746A42DC8DAABE7FDEAACAB
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163500.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163500.jpgsave_picture_163500.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Observer: System Redux (2020) [Ru/Multi] (1.3.0rc3) Repack xatab
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163501.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163501.jpgsave_picture_163501.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ Balrog - Bestial Satanic Terror (2006) [APE|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163502.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163502.jpgsave_picture_163502.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Autorun Organizer 5.13 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163503.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163503.jpgsave_picture_163503.jpg" />
 </div>
 
 
@@ -290,7 +290,7 @@ Sync Folders Pro 4.6.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163504.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163504.jpgsave_picture_163504.jpg" />
 </div>
 
 
@@ -315,7 +315,7 @@ magnet:?xt=urn:btih:D2EE73B39F9E5756C553DD7EA1F89FC1460DE6D5
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163505.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163505.jpgsave_picture_163505.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ FBackup 9.4.464 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163506.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163506.jpgsave_picture_163506.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ DEATH STRANDING (2020) [Ru/Multi] (1.05) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163507.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163507.jpgsave_picture_163507.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Dirty Honey - Can't Find The Brakes (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard R
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163508.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163508.jpgsave_picture_163508.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ Aurora Ortus - Ostara (2022) [FLAC|Lossless|WEB-DL|tracks] <Black, Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163509.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163509.jpgsave_picture_163509.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ Cathleen Shamieh | Electronics For Dummies / Электроника для ча�
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163510.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163510.jpgsave_picture_163510.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ magnet:?xt=urn:btih:19D6E7DD2AE58744AB3B6DD9D10B5131A329570D
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163511.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163511.jpgsave_picture_163511.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:B613DB6DEE27ACE2E388EB1FD0A32FF406EBF69A
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163512.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163512.jpgsave_picture_163512.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Lordi - Lordiversity (2021) Box Set, Limited Edition, 7xCD [FLAC|Lossless|image 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163513.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163513.jpgsave_picture_163513.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Behemoth - At The Arena Ov Aion - Live Apostasy (2008) [APE|Lossless|image + .cu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163514.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163514.jpgsave_picture_163514.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ magnet:?xt=urn:btih:E841425E63E5778BE0020113707A6A5D3A2ACC16
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163515.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163515.jpgsave_picture_163515.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ GeoGebra 6.0.680.0 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163516.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163516.jpgsave_picture_163516.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Atrocity - Blut (1994) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163517.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163517.jpgsave_picture_163517.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Typinator 9 v.9.0 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163518.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163518.jpgsave_picture_163518.jpg" />
 </div>
 
 

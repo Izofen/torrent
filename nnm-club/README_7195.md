@@ -6,7 +6,7 @@ FinePrint 11.36 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246026.jpgsave_picture_246026.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Oughton Tanera - Under Crystal Skies (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246027.jpgsave_picture_246027.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Nioh 2 (2020) [PS4] [EUR] 5.05 [HEN] [License / 1.27 / DLC] [Ru/Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246028.jpgsave_picture_246028.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:FB09478BBDF09E0F29F57CD51EB55AA0C2740E88
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246029.jpgsave_picture_246029.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ iA Writer 6.0.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246030.jpgsave_picture_246030.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ VA - Ouca Playlist (2021) [MP3|320 Kbps] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246031.jpgsave_picture_246031.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:A7E167BDED85E2732E09F90A5C39930594AF76DF
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246032.jpgsave_picture_246032.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ magnet:?xt=urn:btih:F44DBCA07B90F801257FA8E5DE6011F7AFDC0669
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246033.jpgsave_picture_246033.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ magnet:?xt=urn:btih:BFA9B262678799F59DD8C09421EC09188FD90925
 >>Космос
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246034.jpgsave_picture_246034.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ Udemy, Jingtian Li | Introduction to Unreal Engine 4 Ability System Part 2 (2019
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246035.jpgsave_picture_246035.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ magnet:?xt=urn:btih:9C4525DCE6D6955B264839E5032DE11675336F5B
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246036.jpgsave_picture_246036.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ Swingrowers - (Pronounced Swing Grow'ers) (2012) [AAC|~333 Kbps] <Electro, Swing
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246037.jpgsave_picture_246037.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ Sandboxie 5.62.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246038.jpgsave_picture_246038.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ VMware Workstation 16 Pro 16.2.3 Build 19376536 RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246039.jpgsave_picture_246039.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ David Knopfler - Songs Of Loss And Love (2020) [FLAC|Lossless|WEB-DL|tracks + .c
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246040.jpgsave_picture_246040.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ magnet:?xt=urn:btih:815E227719ADC2DC93DAB3169579FAA086B4FEF1
 >>КВН
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246041.jpgsave_picture_246041.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Icecream Photo Editor 1.32 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246042.jpgsave_picture_246042.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ Juliette Armanet - Brûler le feu (2021) [AAC|~296 Kbps] <Pop>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246043.jpgsave_picture_246043.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ magnet:?xt=urn:btih:1A521188F156AA5B61A10C49C0B20BF26C525DD5
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246044.jpgsave_picture_246044.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ Bigasoft QuickTime Converter for Mac 5.7.0 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246045.jpgsave_picture_246045.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ magnet:?xt=urn:btih:30A0A1374D88351A95050DC80E65AEEFCA45E886
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246046.jpgsave_picture_246046.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ magnet:?xt=urn:btih:89A3ECC9B5EB5E34B417B61F66829330268C8C81
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246047.jpgsave_picture_246047.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ magnet:?xt=urn:btih:0BCE93EDEECD5896CDF033511DE94C6D1B09CF5D
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246048.jpgsave_picture_246048.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ magnet:?xt=urn:btih:45BE585BC141F39548FB4F7637A2D4B23E2AC257
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246049.jpgsave_picture_246049.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ magnet:?xt=urn:btih:A3DAB066A9FC524343F3791829281A6D803A2970
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246050.jpgsave_picture_246050.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ Marina & the Kats - Small (2015) [AAC|~318 Kbps] <Swing, Jazz>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246051.jpgsave_picture_246051.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ VA - Lounge & Beauty, Vol. 3 (2022) [AAC|~330 Kbps] <Lounge, Chill Out, Downtemp
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243589.jpgsave_picture_243589.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Armin van Buuren - Feel Again (2023) [MP3|320 Kbps] <Trance, Progressive, Electr
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243591.jpgsave_picture_243591.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Gary Moore - We Want Moore! (1984) Reissue, 2023, Universal, Japanese Edition [F
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243592.jpgsave_picture_243592.jpg" />
 </div>
 
 
@@ -89,7 +89,7 @@ magnet:?xt=urn:btih:9774FB7AF79FCBC584074979E05914851CCF13DB
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243593.jpgsave_picture_243593.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Enigma - The Cross Of Changes (1993) [OGG Vorbis|630 Kbps] <New Age, Downtempo, 
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243594.jpgsave_picture_243594.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ VA - Silent Shore Trance: Winter (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243595.jpgsave_picture_243595.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Funeral - Praesentialis In Aeternum (2021) [FLAC|Lossless|image + .cue] <Funeral
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243596.jpgsave_picture_243596.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ VA - R&B Nation (2021) [MP3|320 Kbps] <R%B, Soul>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243597.jpgsave_picture_243597.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:654B82E711CC2A335D8883033A1079552458E461
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243598.jpgsave_picture_243598.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ V.A. - All I Ever Wanted - A Tribute to Depeche Mode (2023) [FLAC|Lossless|WEB-D
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243600.jpgsave_picture_243600.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Get Backup Pro 3.4.21 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243601.jpgsave_picture_243601.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:A7DA10444944CF0226BA9AF2311888106EB1EF5A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243602.jpgsave_picture_243602.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ VA - Country Dark Rock (2023) [MP3|320 Kbps] <Country, Blues, Rock>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243603.jpgsave_picture_243603.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ June Christy - June's Got Rhythm (1958 - 1960) 2005, Capitol Jazz [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243604.jpgsave_picture_243604.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ magnet:?xt=urn:btih:C58EC0CB7D227EAAD2F13E871B9E5061CD54CABB
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243605.jpgsave_picture_243605.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ VA - Новинки С Разных Популярных мп3 Сайтов ver.
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243607.jpgsave_picture_243607.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ magnet:?xt=urn:btih:5715394CE1599F5A8126F802625C53A779F53D78
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243608.jpgsave_picture_243608.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ VA - Сотка модных хитов. Выпуск 6 (2016) [MP3|256 Kbps] <P
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243609.jpgsave_picture_243609.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ VA - The Absolute Sound (2013) Compilation [DSD64 2.0|1bit/2822,4kHz|SACD-R] <Cl
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243610.jpgsave_picture_243610.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ magnet:?xt=urn:btih:41B3E020726A7F6877B076B1DBADB06842FADEC5
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243611.jpgsave_picture_243611.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Enforcer - Live by Fire II (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Po
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243612.jpgsave_picture_243612.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Jeremy - Quo Vadis, Domine? (2008) [FLAC|Lossless|image + .cue] <Progressive Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243613.jpgsave_picture_243613.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Athentech Perfectly Clear WorkBench for Mac 4 v4.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243614.jpgsave_picture_243614.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ magnet:?xt=urn:btih:A078F435DFF4DAED4EDFF522D202469D9110B42A
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243615.jpgsave_picture_243615.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ The Abbey - Word of Sin (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Doom M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243616.jpgsave_picture_243616.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ VA - Звездная вечеринка. Зарядись хитами 50/50 (2
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243617.jpgsave_picture_243617.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Microsoft .Net Framework 10.01.23 RePack by xetrin [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204184.jpgsave_picture_204184.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:563FC410ADE29939E2BEBFAA11DDD5A7F44FAA9C
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204185.jpgsave_picture_204185.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:37035139BEEBF2DB6B7F633EDBCB16579577F8D0
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204186.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204186.jpgsave_picture_204186.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Airytec Switch Off 3.5.0.950 + Portable [Ru/En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204187.jpgsave_picture_204187.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ magnet:?xt=urn:btih:EB33A708BFD29238BA800748170F636F758CF01E
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204188.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204188.jpgsave_picture_204188.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:731180154E1BE7FC0BE77AD9EFC057143539D788
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204189.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204189.jpgsave_picture_204189.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:A3181FF0AEAAB038F267404FCF3B675E9C522DE4
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204190.jpgsave_picture_204190.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:DA701B9B8E0ED896EB9E51487E742A18576E7932
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204191.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204191.jpgsave_picture_204191.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Paint.NET 5.0 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204192.jpgsave_picture_204192.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ GPS Локер Prime v2.4.4 Mod by No_Hammer [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204193.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204193.jpgsave_picture_204193.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ magnet:?xt=urn:btih:93A917C2D0CB082B44295ED52A09AA90466A4231
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204194.jpgsave_picture_204194.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ Auslogics Driver Updater 1.24.0.8 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204195.jpgsave_picture_204195.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ magnet:?xt=urn:btih:36D2EC5737E2304F477345F5797A4478D41F4978
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204196.jpgsave_picture_204196.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ DiskDigger 1.73.59.3361 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204197.jpgsave_picture_204197.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Geezer Butler - 3 Albums, 1 Box-set (1995-2021) [FLAC|Lossless|image + .cue] <He
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204198.jpgsave_picture_204198.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ magnet:?xt=urn:btih:E5C222B34024A06F45F5B8DEB1FA13F1AEDEE9DD
 >>Картинки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204199.jpgsave_picture_204199.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Auslogics Disk Defrag Pro 11.0.0.2 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204200.jpgsave_picture_204200.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ FileMenu Tools 8.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204201.jpgsave_picture_204201.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Ftp-Serv 8.3.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204202.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204202.jpgsave_picture_204202.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ magnet:?xt=urn:btih:65E11BCCB6AF21359A8BA5C79C223F0C8ABCF6D8
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204203.jpgsave_picture_204203.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ magnet:?xt=urn:btih:247975ECB566D3498E138FB18219CB6FA629CE9C
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204204.jpgsave_picture_204204.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Wreckless Eric - Leisureland (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative R
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204205.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204205.jpgsave_picture_204205.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ muzvideo2.ru, Сергей Филимонов | Все курсы онлайн-�
 >>Музыка (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204206.jpgsave_picture_204206.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Oscar Pettiford & Vinnie Burke - Bass by Pettiford / Burke (1955) 1999, Bethlehe
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204207.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204207.jpgsave_picture_204207.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Das Lumpenpack - Wach (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204208.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204208.jpgsave_picture_204208.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ magnet:?xt=urn:btih:00E7FB56070766C957F13AD45D2D52759E9D6EE7
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204209.jpgsave_picture_204209.jpg" />
 </div>
 
 

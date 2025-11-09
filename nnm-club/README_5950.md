@@ -6,7 +6,7 @@ Adobe Photoshop 2023 (24.0.0.59) Portable by XpucT [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187354.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187354.jpgsave_picture_187354.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ WinRAR 6.24 Beta 1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187355.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187355.jpgsave_picture_187355.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:0D8E4A3506ADAD3A78F17D47A89EF38571E72FBA
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187356.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187356.jpgsave_picture_187356.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ AOMEI Backupper Technician Plus 7.3.2 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187357.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187357.jpgsave_picture_187357.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Skillshare, Daniel Kim | Sci-Fi Character Armor with Blender and Substance Paint
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187358.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187358.jpgsave_picture_187358.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:EAA9763E1CF6FCA6B9A0CE07FDF12C292DC21406
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187360.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187360.jpgsave_picture_187360.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:95AA0CAA8FB16B5F901C29E6AFA735C21DD2C74E
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_187361.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_187361.jpgsave_picture_187361.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:3A0DB795301BCA3C46FD34FB34F9C05CA0420F62
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187362.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187362.jpgsave_picture_187362.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:66ACCAEE7B18F0002D01A6FC13E20FFEEA0F1D35
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187363.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187363.jpgsave_picture_187363.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ SD Maid v5.6.1 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_187364.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_187364.jpgsave_picture_187364.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ KMPlayer 4.2.3.4 Plus (x86) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187365.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187365.jpgsave_picture_187365.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ WinToUSB Free / Pro / Technician 7.4 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187366.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187366.jpgsave_picture_187366.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:DDC26485941BDD9874F97AE7E61F9492FFD03F19
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187367.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187367.jpgsave_picture_187367.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Skillshare, Daniel Kim | Space Marine Helmet - 3D Game Art with Blender and Subs
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187369.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187369.jpgsave_picture_187369.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ magnet:?xt=urn:btih:F54E41CB40E5583C03E16190DF43CAE6DDC4ECB2
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187370.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187370.jpgsave_picture_187370.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Office 2013-2021 C2R Install  7.4.8 ++ x64 Portable by Ratiborus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187372.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187372.jpgsave_picture_187372.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ magnet:?xt=urn:btih:8A5DD116D5113999BEFA4E656E98DD8100FB2F1A
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187373.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187373.jpgsave_picture_187373.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Rufus 3.21 (Build 1947) Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187374.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187374.jpgsave_picture_187374.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ magnet:?xt=urn:btih:499208159A39E3E69D3A5DCA2F96A8523E044216
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187375.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187375.jpgsave_picture_187375.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ magnet:?xt=urn:btih:B29A98B9077263DF8BD6CAEF948203B8B82E3C54
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_187376.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_187376.jpgsave_picture_187376.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ magnet:?xt=urn:btih:DE91D02889B958B0DFEBB0037B49EDA4C487809D
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187377.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187377.jpgsave_picture_187377.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ Skillshare, Daniel Kim | Spaceship Concept Art with Affinity Photo and Blender 2
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187378.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187378.jpgsave_picture_187378.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ WinToUSB Technician 8.2 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187379.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187379.jpgsave_picture_187379.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ ProfiCAD 12.2.7 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187380.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187380.jpgsave_picture_187380.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ magnet:?xt=urn:btih:2930AD4F4E7C022C191E53B4F32FDF3E0D295411
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187381.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187381.jpgsave_picture_187381.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ magnet:?xt=urn:btih:3A3836764D131AAF2E8028B05C58E5C77FC22B2C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187382.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187382.jpgsave_picture_187382.jpg" />
 </div>
 
 

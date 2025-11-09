@@ -6,7 +6,7 @@ HTML Academy | Доступность веб-интерфейсов (2025) [unpa
 >>Образование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10010.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10010.jpgsave_picture_10010.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:112781BC94FF47172A8A162615B4D15897E4902F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10011.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10011.jpgsave_picture_10011.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:8F07913C316878083AA681CD20BB45FF4CF55C97
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10012.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10012.jpgsave_picture_10012.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ EZ CD Audio Converter 12.1.0.1 RePack (& Portable) by elchupacabra (DC 06.07.202
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10013.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10013.jpgsave_picture_10013.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:A3C33B817582D90B7B9098FB84B55359FAF75ADA
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10014.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10014.jpgsave_picture_10014.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:67889F8AFC42D561675854E2180E93A3017E86AE
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10015.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10015.jpgsave_picture_10015.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:B40B49C2FF09BEF4145D9A1A1FAFB8B9413B1D15
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10016.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10016.jpgsave_picture_10016.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ Wolfenstein: The New Order (2014) [Ru/En] (upd1) Repack R.G. Механики
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10017.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10017.jpgsave_picture_10017.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ Teenage Mutant Ninja Turtles: Splintered Fate (2024) [Ru/Multi] (1.10.5/dlc) Rep
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10018.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10018.jpgsave_picture_10018.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Marvel's Spider-Man 2 (2025) [Ru/Multi] (1.526.0.0/dlc) Repack Let'sРlay [Digit
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10019.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10019.jpgsave_picture_10019.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ MInstAll v.03.07.2025 By Andreyonohov (Unpacked) [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10020.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10020.jpgsave_picture_10020.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:67FD98A9EC4D7197FA4D3033E8EC4C6F271191FE
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10021.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10021.jpgsave_picture_10021.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:67FD98A9EC4D7197FA4D3033E8EC4C6F271191FE
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10022.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10022.jpgsave_picture_10022.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ magnet:?xt=urn:btih:EB37C4E54E189C82C7129FBDFE3B5FD003F6A50B
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10023.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10023.jpgsave_picture_10023.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ magnet:?xt=urn:btih:EB37C4E54E189C82C7129FBDFE3B5FD003F6A50B
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10024.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10024.jpgsave_picture_10024.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:EB37C4E54E189C82C7129FBDFE3B5FD003F6A50B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10025.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10025.jpgsave_picture_10025.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ magnet:?xt=urn:btih:EB37C4E54E189C82C7129FBDFE3B5FD003F6A50B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10026.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10026.jpgsave_picture_10026.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ magnet:?xt=urn:btih:1965F19475F20E778CD615C303149EB4FC33AD31
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10027.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10027.jpgsave_picture_10027.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ Oxygen Not Included (2019) [Ru/Multi] (Build U56-679336-SCRP/dlc) Repack Let'sР
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10028.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10028.jpgsave_picture_10028.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ magnet:?xt=urn:btih:802E92C5B01934F319862B4915BEEF290DFA7760
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10029.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10029.jpgsave_picture_10029.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Warhammer 40,000: Battlesector (2021) [Ru/Multi] (1.05.297/dlc) Repack Let'sРla
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10030.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10030.jpgsave_picture_10030.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ magnet:?xt=urn:btih:87F089919308B0F103E4A1499881222FA11CFA24
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10031.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10031.jpgsave_picture_10031.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ magnet:?xt=urn:btih:1BB36D4D925B143E463E6EA5912C22A395920B83
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10032.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10032.jpgsave_picture_10032.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ magnet:?xt=urn:btih:6174BFB44349605C72382512310BB7364AB3BC94
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10033.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10033.jpgsave_picture_10033.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ magnet:?xt=urn:btih:6174BFB44349605C72382512310BB7364AB3BC94
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10034.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10034.jpgsave_picture_10034.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Warhammer 40,000: Gladius - Relics of War (2018) [Ru/Multi] (1.16.2/dlc) Repack 
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10035.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10035.jpgsave_picture_10035.jpg" />
 </div>
 
 

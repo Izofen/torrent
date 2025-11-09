@@ -6,7 +6,7 @@ OBS Studio 29.1.2 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_231792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231792.jpgsave_picture_231792.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:D3536892D1A55EF4549D9A364EE6FF9C7B5DC0AC
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231793.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231793.jpgsave_picture_231793.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Unfelled - Pall of Endless Perdition (2023) [FLAC|Lossless|WEB-DL|tracks] <Atmos
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231794.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231794.jpgsave_picture_231794.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ magnet:?xt=urn:btih:8901BA242A9CF3D0A392EA860AD74E62F4F0E6AE
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_231797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231797.jpgsave_picture_231797.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ magnet:?xt=urn:btih:AF0CDA5D3ED692B1E02783A8FF10A1AE8F8EC081
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231798.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231798.jpgsave_picture_231798.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ ProcessKO 6.21 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_231799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231799.jpgsave_picture_231799.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ CherryTree 1.0.0.0 x64 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231800.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231800.jpgsave_picture_231800.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:A765E9439C64ADD50BD8115632718657A77D65E9
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231802.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231802.jpgsave_picture_231802.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ Kenzo World (2017) WEBRip [H.264/1080p]
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_231803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231803.jpgsave_picture_231803.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ magnet:?xt=urn:btih:14D092125CF0D99AE6C0A0626BB679CADC095497
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_231805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231805.jpgsave_picture_231805.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ Glary Tracks Eraser 5.0.1.262 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231806.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231806.jpgsave_picture_231806.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ magnet:?xt=urn:btih:60E5F88DD5590E52AB097540CE32100165396015
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_231807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231807.jpgsave_picture_231807.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ The Guess Who - Plein D'Amour (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock / 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231808.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231808.jpgsave_picture_231808.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ PotPlayer 230523 (1.7.21916) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_231811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231811.jpgsave_picture_231811.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ magnet:?xt=urn:btih:DBC17A44B1BB1A41A4B079FC6B985703C5BBB922
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231812.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231812.jpgsave_picture_231812.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ magnet:?xt=urn:btih:9E4C00278FF5E8716352AC8BD900884573B01255
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_231813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231813.jpgsave_picture_231813.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ magnet:?xt=urn:btih:EBBE102F7D575FE42310DD0EECB19BA59A10D377
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_231814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231814.jpgsave_picture_231814.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ magnet:?xt=urn:btih:763AB30CFDC73108611FA5CB620ED38EA182E8B9
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_231817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231817.jpgsave_picture_231817.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ magnet:?xt=urn:btih:279A2200CD59DD6F8CC8C4E1B4DB60A9D4AA2195
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231818.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231818.jpgsave_picture_231818.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Vermilion Whiskey - Crimson & Stone (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_231819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231819.jpgsave_picture_231819.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Supremacy - Influence (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231822.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231822.jpgsave_picture_231822.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Topaz Photo AI 1.3.6 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_231823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231823.jpgsave_picture_231823.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ magnet:?xt=urn:btih:44518DA1CC65E286FC9EB086BE039E85B5B37D69
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231824.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231824.jpgsave_picture_231824.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Elder Jack Ward - The Storm (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_231825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231825.jpgsave_picture_231825.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ magnet:?xt=urn:btih:E0680C70F7C29CBCD2B70D256EA6EA7B1565A2C2
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231828.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231828.jpgsave_picture_231828.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Evile - The Unknown (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231829.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231829.jpgsave_picture_231829.jpg" />
 </div>
 
 

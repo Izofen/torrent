@@ -6,7 +6,7 @@
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194635.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194635.jpgsave_picture_194635.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:883E2CA5F18A29F038D631DC7CDF1DC4DB7222AC
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194636.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194636.jpgsave_picture_194636.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:84309290CB6A6073A2A3C7FFFEDFB0EBF45D5A2D
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194637.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194637.jpgsave_picture_194637.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:1DFC9FF87DF3EBF7B3B97F9A55335B7462107FD5
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_194638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_194638.jpgsave_picture_194638.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ SamDrivers 23.8 LAN [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194639.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194639.jpgsave_picture_194639.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Ratchet & Clank: Rift Apart (2023) [Ru/Multi] (1.726.0.0) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194640.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194640.jpgsave_picture_194640.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:F2E05E250CF306B75168FEE04B106B60E8368526
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194641.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194641.jpgsave_picture_194641.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:6FD8A71D110E66FCD6899AFE10DDD26240C1B714
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194642.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194642.jpgsave_picture_194642.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Addy Osmani | Learning JavaScript Design Patterns (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194643.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194643.jpgsave_picture_194643.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ magnet:?xt=urn:btih:B8E3D4FB964C86C36618BB8B575E2F63631F0818
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194644.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194644.jpgsave_picture_194644.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ AR Ruler  v2.5.1 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194645.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194645.jpgsave_picture_194645.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Smart AudioBook Player Pro v10.0.4 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194647.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194647.jpgsave_picture_194647.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ magnet:?xt=urn:btih:388B1CFEE94C0DF9BF126E3FB923068B94C1B942
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194648.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194648.jpgsave_picture_194648.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ magnet:?xt=urn:btih:87C60E14C4B4649FFDF45ADF17E2B4113393E2F3
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194649.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194649.jpgsave_picture_194649.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ PC HelpSoft Driver Updater 7.0.999 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194650.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194650.jpgsave_picture_194650.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ magnet:?xt=urn:btih:DCA96E0AE607060064370CF5077A668AA81D44A9
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194651.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194651.jpgsave_picture_194651.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ magnet:?xt=urn:btih:F299CBA697F55CA63BF6E895E28758E3F9E3EB7C
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_194652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_194652.jpgsave_picture_194652.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ XY VPN - Security Proxy VPN 4.5.816 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194653.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194653.jpgsave_picture_194653.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ magnet:?xt=urn:btih:8B2EDC4FC9F08E91DE1EE73A9D2F5CC8C4BD9459
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194654.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194654.jpgsave_picture_194654.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Imagine 1.1.6 + Portable + Plugins  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194655.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194655.jpgsave_picture_194655.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ magnet:?xt=urn:btih:3588F505EDEC79E753D707F4F66D130EE2661565
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_194656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_194656.jpgsave_picture_194656.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ Sublime Text 4 Build 4152 RePack by softwox [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194657.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194657.jpgsave_picture_194657.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Stillborn Slayer (2023) [Ru/En] (1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194658.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194658.jpgsave_picture_194658.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ DROS (2023) [En] (5) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194660.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194660.jpgsave_picture_194660.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ magnet:?xt=urn:btih:B78AEA1FD2BF43F98C4A0DD62E277FCD6B03984B
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_194661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_194661.jpgsave_picture_194661.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Adore (2023) [Multi] (1.0) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194662.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194662.jpgsave_picture_194662.jpg" />
 </div>
 
 

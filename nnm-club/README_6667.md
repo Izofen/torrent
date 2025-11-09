@@ -6,7 +6,7 @@
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228639.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228639.jpgsave_picture_228639.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:C6A505C2AD56E9631D32A35FF5BAFC646ADABED0
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228640.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228640.jpgsave_picture_228640.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:09A897F9B36DCDD103CD1FBD752DE612D13FFD27
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228642.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228642.jpgsave_picture_228642.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:B9FD88954F93998A4837D6C4CEAC38FA94AD5ADD
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228643.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228643.jpgsave_picture_228643.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Hard Disk Sentinel PRO 5.61.12b Build 11463 Beta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228644.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228644.jpgsave_picture_228644.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ MARUV - Hellcat Story (2019) EP [MP3|320 Kbps] <Dance, Pop, Electronic>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228645.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228645.jpgsave_picture_228645.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Anna Fiori - Magna Mater (2013) [MP3|320 Kbps] <Symphonic Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228646.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228646.jpgsave_picture_228646.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ MassTube Plus 16.0.0.600 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228647.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228647.jpgsave_picture_228647.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:86F4E11B8B6266C4F48D6762FE5D42FEA6EF600E
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228648.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228648.jpgsave_picture_228648.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:4BE5FF54D4D63C2079D785D4BED406CFF0937465
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228650.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228650.jpgsave_picture_228650.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ Wes Montgomery - Way Out Wes (1957-1959) 2CD, 2010, Not Now Music[FLAC|tracks+.c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228652.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228652.jpgsave_picture_228652.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ magnet:?xt=urn:btih:2DA074716573A0C88BB5255C96A8A5ED685779D8
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228653.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228653.jpgsave_picture_228653.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ Feuerschwanz - Fegefeuer (2023) Digital Deluxe Album [FLAC|24/44,1|tracks|WEB-DL
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228654.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228654.jpgsave_picture_228654.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ magnet:?xt=urn:btih:CC88640740F614D3481E8ED46A5D24C0F1D754EB
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228656.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228656.jpgsave_picture_228656.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ magnet:?xt=urn:btih:5B0819156F3CFDCE85D60D214790CB343C2A364A
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228657.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228657.jpgsave_picture_228657.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ magnet:?xt=urn:btih:8B50F8266E89C62D9D94C6A9F85120D35685960D
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228659.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228659.jpgsave_picture_228659.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ magnet:?xt=urn:btih:96CDD946BCA4995235B02A59AA9F40FF1E15F102
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228660.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228660.jpgsave_picture_228660.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ magnet:?xt=urn:btih:6B90F40429F3B836290A243DFBB459C5EFA368A9
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228661.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228661.jpgsave_picture_228661.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ Movavi PDF Editor 3.0.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228662.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228662.jpgsave_picture_228662.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ V.A. - Vintage Cafe: Lounge and Jazz Blends, Vol. 22 (2022) [FLAC|Lossless|WEB-D
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228663.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228663.jpgsave_picture_228663.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ magnet:?xt=urn:btih:99BCED3F37415541ADDE328FFF668DF4E80085BC
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228666.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228666.jpgsave_picture_228666.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ R-Studio Technician 8.17 Build 180955  RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228668.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228668.jpgsave_picture_228668.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ magnet:?xt=urn:btih:414537C3CE844311F23C200E575BA88F120937DE
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228669.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228669.jpgsave_picture_228669.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ magnet:?xt=urn:btih:E38A2B90FBED7E97DA6734DB52A2E3A662621218
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228670.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228670.jpgsave_picture_228670.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Johnyboy - Мимо теней (2012) [MP3|192 кб/с]<Hip-Hop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228671.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228671.jpgsave_picture_228671.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ Lacuna Coil - Comalies XX (2022) [MP3|320 Kbps] 2CD <Gothic Metal, Alternative M
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228672.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228672.jpgsave_picture_228672.jpg" />
 </div>
 
 

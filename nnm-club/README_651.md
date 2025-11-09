@@ -6,7 +6,7 @@
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17243.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17243.jpgsave_picture_17243.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Music News For Forum vol.090 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17244.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17244.jpgsave_picture_17244.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ John Lennon - Acoustic (2004) Compilation [FLAC|Lossless|image + .cue] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17245.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17245.jpgsave_picture_17245.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Morcheeba - Escape The Chaos (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Electro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17246.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17246.jpgsave_picture_17246.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Sparks - MAD! (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop Rock, Synth-pop>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17247.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17247.jpgsave_picture_17247.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Green Day - Saviors (2024) edition de luxe, 2025, Reprise [FLAC 24/48, 24/96|Los
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17248.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17248.jpgsave_picture_17248.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ magnet:?xt=urn:btih:B769FD2D957CE1D75B2BE09AC61B05C39995A41E
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17249.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17249.jpgsave_picture_17249.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ magnet:?xt=urn:btih:A3A3FA36EC2123D94BBC6C1089E49F96005368BD
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17250.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17250.jpgsave_picture_17250.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ VA - The Orient Collective: Ancient Beauty (2025) [FLAC|Lossless|WEB-DL|tracks] 
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17251.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17251.jpgsave_picture_17251.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ magnet:?xt=urn:btih:45639DB9FE223B803FD5BE2E75E51BA6083FB285
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17252.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17252.jpgsave_picture_17252.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ magnet:?xt=urn:btih:B4E8E3EEEED733D3AE14124F3A91DDE9B8A9282E
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17253.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17253.jpgsave_picture_17253.jpg" />
 </div>
 
 
@@ -291,7 +291,7 @@ magnet:?xt=urn:btih:74AFC27502E2846E52DCDAC531DC7CACA9BEEDDA
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17254.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17254.jpgsave_picture_17254.jpg" />
 </div>
 
 
@@ -315,7 +315,7 @@ VA - Summer Mix 2025 (Best of Ibiza Deep House Sessions Music Chill out Mix) (20
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17255.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17255.jpgsave_picture_17255.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ James Horner - Titanic: Music From the Motion Picture (1997) CD, Album [FLAC|Los
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17256.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17256.jpgsave_picture_17256.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ magnet:?xt=urn:btih:3651805C7371788706905CAB0B0D308A553D8338
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17257.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17257.jpgsave_picture_17257.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ Lenny Kravitz - Let It Ride Remixes, Pt. 2 (2025) [MP3|320 Kbps] <Electronic, Da
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17258.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17258.jpgsave_picture_17258.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ magnet:?xt=urn:btih:DA4B25E6681D1519D80F8A4E327E8D5E83DE3385
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17259.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17259.jpgsave_picture_17259.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ Stay Away - Культ отсутствия личности (2025) [MP3|320 Kbp
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17260.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17260.jpgsave_picture_17260.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ magnet:?xt=urn:btih:FD52D48F28C21369DE78B493EDD9F72A00560D32
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17261.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17261.jpgsave_picture_17261.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ magnet:?xt=urn:btih:F6A81ED9A895B8133A6BB6C037645EFE85746489
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17262.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17262.jpgsave_picture_17262.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:BE80FE1062E7313C555ED6500D611ACD5313A6DF
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17263.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17263.jpgsave_picture_17263.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ magnet:?xt=urn:btih:2ED9DD22F698C65F757DA4AFBCB10F708CCAD5C8
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17264.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17264.jpgsave_picture_17264.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ magnet:?xt=urn:btih:29E9022A07CF069658A2BE8457E24C8F80A6A908
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17265.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17265.jpgsave_picture_17265.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Crungus - Hollow (2025) [FLAC|Lossless|WEB-DL|tracks] <Black, Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17266.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17266.jpgsave_picture_17266.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ magnet:?xt=urn:btih:58367B3359568EC39C92CDEFEB0CFF7C6230E238
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17267.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17267.jpgsave_picture_17267.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ magnet:?xt=urn:btih:5FCE76B578A9058BE2A34169C30DD412E8717697
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17268.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17268.jpgsave_picture_17268.jpg" />
 </div>
 
 

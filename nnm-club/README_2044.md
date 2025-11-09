@@ -6,7 +6,7 @@ Files Inspector Pro 4.05 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53511.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53511.jpgsave_picture_53511.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:30CF4ABCD27E02AE63C504CE87ACEE8EB5F14FC1
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53512.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53512.jpgsave_picture_53512.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Double Commander 1.1.15 gamma + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53513.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53513.jpgsave_picture_53513.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Vivaldi 6.7.3329.41 include standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53514.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53514.jpgsave_picture_53514.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:C14261D8D38C4CDF89A7ED071BF9E780F18D3A6A
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53515.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53515.jpgsave_picture_53515.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:A9CB3109EAE00A73136ED18CF8C1CAD629D82EA9
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53516.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53516.jpgsave_picture_53516.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Bruce Stirling | TOEFL Strategies. A Complete Guide to the iBT (2016) [PDF] [EN]
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53517.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53517.jpgsave_picture_53517.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:715D24F212003636D31D0ED782DFED5315683BA8
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53518.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53518.jpgsave_picture_53518.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ VA - Electronic compilation part 86 (2024) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53519.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53519.jpgsave_picture_53519.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:0CC042A0C4B954635FDBC37FEBFC29C7FA4E4EB8
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53520.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53520.jpgsave_picture_53520.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ magnet:?xt=urn:btih:29AEF9F3021E2325585F0D1D2CDB7A585D3B8075
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53521.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53521.jpgsave_picture_53521.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ Adrian Wallwork | Top 50 Vocabulary Mistakes (2018) [PDF] [EN]
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53522.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53522.jpgsave_picture_53522.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ magnet:?xt=urn:btih:AC0124C77E3BF966E5B837BF12DDA5D08E4E3B7F
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53523.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53523.jpgsave_picture_53523.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Floorp Browser 11.14.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53524.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53524.jpgsave_picture_53524.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ magnet:?xt=urn:btih:DC375F876FB51C7951831E250E96C3B4A5568B1E
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53525.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53525.jpgsave_picture_53525.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ magnet:?xt=urn:btih:CC3B5BFAFD28E5D449A145022350A25477F5EB29
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53526.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53526.jpgsave_picture_53526.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Thriving City: Song (2024) [Multi] (1.0) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53527.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53527.jpgsave_picture_53527.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ magnet:?xt=urn:btih:B449E7DC8AC92A08866BEC9956EE13D4F3A4F390
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53528.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53528.jpgsave_picture_53528.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ magnet:?xt=urn:btih:ADCD023D0280751A8A8AA093D11D99B477575898
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53529.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53529.jpgsave_picture_53529.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Sinderfury (2024) [En] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53530.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53530.jpgsave_picture_53530.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Before Launcher | Go Minimal 7.5.0-1172052821 Mod by derrin [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53531.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53531.jpgsave_picture_53531.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ magnet:?xt=urn:btih:7E1D4A2D0738700AD3C5E2AA1FEC9B75123AE927
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53532.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53532.jpgsave_picture_53532.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ magnet:?xt=urn:btih:1144F518081F9E21CB9206B271E1BC45181FD34F
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53533.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53533.jpgsave_picture_53533.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ Scholar's Mate (2024) [Ru/Multi] (14623931) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53534.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53534.jpgsave_picture_53534.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ TranslucentTB 2024.1 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53535.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53535.jpgsave_picture_53535.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ magnet:?xt=urn:btih:18CA778814E9E4E369BBA72685C0C0E7EDBE5173
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53536.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53536.jpgsave_picture_53536.jpg" />
 </div>
 
 

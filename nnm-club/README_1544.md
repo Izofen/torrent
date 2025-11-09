@@ -6,7 +6,7 @@
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40500.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40500.jpgsave_picture_40500.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:AF118E983435412454203904A30656C478FEFB62
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40501.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40501.jpgsave_picture_40501.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:DEE85B30901B2318C471DCFC89F1BFE4DB221A58
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40502.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40502.jpgsave_picture_40502.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:1848216932EFE76C8BE19643D1064054956E90E9
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40503.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40503.jpgsave_picture_40503.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:D7EBDA50B94221804DE62BC930B3C83CA2DB5CDC
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40504.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40504.jpgsave_picture_40504.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Pool Cleaning Simulator (2024) [Ru/Multi] (1.7.0.2.6) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40505.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40505.jpgsave_picture_40505.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Duck Paradox (2022) [Ru/Multi] (1.0.6) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40506.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40506.jpgsave_picture_40506.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:D21D621E6521FBE774E1CD7516282C16E722C317
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40507.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40507.jpgsave_picture_40507.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ Garage Flipper (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40508.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40508.jpgsave_picture_40508.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ magnet:?xt=urn:btih:4CD979196918FB9044FBCA84DA9F68AA1CE9F1EA
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40509.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40509.jpgsave_picture_40509.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Duplicate Files Search & Link (Duplicate Searcher) 10.5.1  + Portable  [Multi/Ru
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40510.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40510.jpgsave_picture_40510.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ magnet:?xt=urn:btih:BC630C31221ACA0556A9A9B95349BFA6EDB6D4DC
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40511.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40511.jpgsave_picture_40511.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ magnet:?xt=urn:btih:A2A4FBCD393EB925953B00108AE178BA1AC6559E
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40512.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40512.jpgsave_picture_40512.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ DATE A LIVE: Ren Dystopia (2024) [Multi] (1.0) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40513.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40513.jpgsave_picture_40513.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Bloomtown: A Different Story (2024) [Ru/Multi] (1.0.13) Repack FitGirl [Supporte
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40514.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40514.jpgsave_picture_40514.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ magnet:?xt=urn:btih:307C5AE26CE634BF0DBFEB748093486305C072D9
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40515.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40515.jpgsave_picture_40515.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ magnet:?xt=urn:btih:23391B4CCC0B857A9C3D358DFE3A42B20F8C0436
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40516.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40516.jpgsave_picture_40516.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ PDF-XChange Editor Plus 10.4.2.390 Portable + RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40517.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40517.jpgsave_picture_40517.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ magnet:?xt=urn:btih:BF527896056FED49B640FBA33148BFE9B88E26DA
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40518.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40518.jpgsave_picture_40518.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ The Will of Arthur Flabbington (2023) [Multi] (2.1.2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40519.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40519.jpgsave_picture_40519.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ magnet:?xt=urn:btih:C97507A1D3CB1C77345F15A439AEB3BC8AA5E506
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40520.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40520.jpgsave_picture_40520.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ magnet:?xt=urn:btih:179E6AF92AFC3E29B0D9BBD0F4B6C46FA9D6F887
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40521.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40521.jpgsave_picture_40521.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Kvark (2023) [Ru/Multi] (1.0.5.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40522.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40522.jpgsave_picture_40522.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ magnet:?xt=urn:btih:49FCC59EE34B753BACCE73BB4BAD146F1EFFFCDB
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40523.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40523.jpgsave_picture_40523.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ magnet:?xt=urn:btih:159FE548A2BC32D01D36369643B44083238C4A9D
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40524.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40524.jpgsave_picture_40524.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Master Detective Archives: RAIN CODE Plus (2024) [Multi] (1.0) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40525.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40525.jpgsave_picture_40525.jpg" />
 </div>
 
 

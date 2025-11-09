@@ -6,7 +6,7 @@ Fort Romeau - Romantic Gestures Vol. 1 (2024) [FLAC 24/48|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112171.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112171.jpgsave_picture_112171.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Isle of the Cross - Excelsis (2020) [FLAC|Lossless|image + .cue] <Technical Deat
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112172.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112172.jpgsave_picture_112172.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Lesson In Violence - No Need For Death (2024) [FLAC|Lossless|WEB-DL|tracks] <Thr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112174.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112174.jpgsave_picture_112174.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Timeless Haunt - Dark for Life (2021) [FLAC|Lossless|image + .cue] <Heavy, Progr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112175.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112175.jpgsave_picture_112175.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Sleeping Well - Wisdom Of The Ages (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112176.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112176.jpgsave_picture_112176.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ DragonForce - Warp Speed Warriors (2024) [FLAC|Lossless|tracks + .cue] <Power Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112177.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112177.jpgsave_picture_112177.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ magnet:?xt=urn:btih:3963E8B982C3734286E942C5B4CB21477FC9639C
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112178.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112178.jpgsave_picture_112178.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ magnet:?xt=urn:btih:FFBC6F2064D0A81218EEE8BAB06F7623F9A41B52
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112179.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112179.jpgsave_picture_112179.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Lovebites: Daughters Of The Dawn (2019) BDRip [H.265/1080p] [10-bit]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112180.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112180.jpgsave_picture_112180.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Privacy Eraser Free 6.5.4 Build 4886 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112181.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112181.jpgsave_picture_112181.jpg" />
 </div>
 
 
@@ -265,7 +265,7 @@ magnet:?xt=urn:btih:063453AAD0008AA125CC4FDBE3816A88C5F19C45
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112182.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112182.jpgsave_picture_112182.jpg" />
 </div>
 
 
@@ -289,7 +289,7 @@ magnet:?xt=urn:btih:DCC75A54EF7213BFD726E1964060EE05E955644E
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112183.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112183.jpgsave_picture_112183.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ magnet:?xt=urn:btih:862267C1D73E3058ABBD1B89C81EDED4322B5446
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112184.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112184.jpgsave_picture_112184.jpg" />
 </div>
 
 
@@ -340,7 +340,7 @@ magnet:?xt=urn:btih:BB38D1300B9645F30486D8B49DFF889C1273D612
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112185.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112185.jpgsave_picture_112185.jpg" />
 </div>
 
 
@@ -364,7 +364,7 @@ Mannequin Pussy - I Got Heaven (2024) [FLAC|Lossless|tracks + .cue] <Punk>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112186.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112186.jpgsave_picture_112186.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ magnet:?xt=urn:btih:F4B1CECCEBCC718E1346B485D532747F5908FAC0
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112187.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112187.jpgsave_picture_112187.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ GeoGebra 6.0.836.0 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112188.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112188.jpgsave_picture_112188.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ magnet:?xt=urn:btih:FB79AFC180340B29725F724EB541AF03A6E008CD
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112189.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112189.jpgsave_picture_112189.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ magnet:?xt=urn:btih:66C6C8DB2BDC148A94DCF4474EF6C397151F8158
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112190.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112190.jpgsave_picture_112190.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ PowerDirector – Video Editor v13.4.0 b2404021 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112191.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112191.jpgsave_picture_112191.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ magnet:?xt=urn:btih:A1F0B5CCAC1856751C50605F74A084AFB8FA998A
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112192.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112192.jpgsave_picture_112192.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ VivaVideo Video Editor v9.15.0 Mod by maxi123444 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112193.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112193.jpgsave_picture_112193.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ VA - Fiji Golden Sunrise: Chillout Your Mind (2024) [FLAC|Lossless|WEB-DL|tracks
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112194.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112194.jpgsave_picture_112194.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ magnet:?xt=urn:btih:EE7D1E94545CAE742C29538F06241694FE2279F2
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112195.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112195.jpgsave_picture_112195.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ magnet:?xt=urn:btih:592920F4DEBA4864AE8D39A74FD033E76D662B34
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112196.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112196.jpgsave_picture_112196.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ MarsEdit 5.1.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112197.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112197.jpgsave_picture_112197.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61545.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61545.jpgsave_picture_61545.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:2179E98B68CDBDB626EACA1749C8ADA51F008757
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61546.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61546.jpgsave_picture_61546.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:C8E5045BAED7377BC583D11633C63249F3170A27
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61547.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61547.jpgsave_picture_61547.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:6887CAEC8D51068FF3746A6EBABF592487983F25
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61548.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61548.jpgsave_picture_61548.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:CED0A54C10BC86DF44AEF8ED06E745FB01BA288F
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61549.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61549.jpgsave_picture_61549.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:CED0A54C10BC86DF44AEF8ED06E745FB01BA288F
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61550.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61550.jpgsave_picture_61550.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:37A276387D1C13EB266627266F9610B0A7D94298
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61551.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61551.jpgsave_picture_61551.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:E5A42BA355C4A73FBBCB3E7497A9587CB4DF98B3
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61552.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61552.jpgsave_picture_61552.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:E42BF7CA0F561B52F0D1710F9A69E0A5439AF051
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61553.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61553.jpgsave_picture_61553.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:CC3E044BAE0D4D667CD97B2F794944DE183DBE0A
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61554.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61554.jpgsave_picture_61554.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:CC3E044BAE0D4D667CD97B2F794944DE183DBE0A
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61555.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61555.jpgsave_picture_61555.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ BBC: Невидимые миры / Richard Hammond's Invisible Worlds (2010) BDR
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61556.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61556.jpgsave_picture_61556.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Yuuki Bakuhatsu Bang Bravern | Bang Brave Bang Bravern | Взрывной хра
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61557.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61557.jpgsave_picture_61557.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Once Upon a Jester (2022) [Multi] (1.1.2) License GOG
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61558.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61558.jpgsave_picture_61558.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ LiveClasses, Виталий Бужан | Калибровка мониторов
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61559.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61559.jpgsave_picture_61559.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ The Legend of Legacy HD Remastered (2024) [Multi] (1.0/dlc) Repack FitGirl [Laun
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61560.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61560.jpgsave_picture_61560.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Pioneer DJ Rekordbox 6 Professional 6.8.4 [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61561.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61561.jpgsave_picture_61561.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ BBC: По странам и континентам. Дикая Австрала�
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61562.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61562.jpgsave_picture_61562.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ BBC: Мир природы. Ошибки природы / Natural World. Natures
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61563.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61563.jpgsave_picture_61563.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ magnet:?xt=urn:btih:F672FB7120A26A34B3AAC249D05CED5487DE026E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61564.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61564.jpgsave_picture_61564.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ magnet:?xt=urn:btih:1E68EDD2E829672F2CF558B9E10B3C8EE1AC0781
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61565.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61565.jpgsave_picture_61565.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ magnet:?xt=urn:btih:4B2321A9B04DADB8C4935C37ADB495AD19DDB996
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61566.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61566.jpgsave_picture_61566.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ F-Secure Freedome VPN 2.71.176.0 RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61567.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61567.jpgsave_picture_61567.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ The Callisto Protocol (2022) [Ru/Multi] (1.0/dlc) Scene Rune [Digital Deluxe Edi
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61568.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61568.jpgsave_picture_61568.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ magnet:?xt=urn:btih:1CA9AFF1FBD66A272D2E5D1FFC145C188E8537FC
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61569.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61569.jpgsave_picture_61569.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ magnet:?xt=urn:btih:3B161B761D9862AB86276F0EED5BC0CD8B2B5B7A
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61570.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61570.jpgsave_picture_61570.jpg" />
 </div>
 
 

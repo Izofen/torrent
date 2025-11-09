@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237587.jpgsave_picture_237587.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ VA - What About Lounge, Vol. 2 (2021) [AAC|~320 Kbps] <Lounge, Chill Out, Downte
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237588.jpgsave_picture_237588.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Magic Battery Mini 4.2.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237589.jpgsave_picture_237589.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ Default Folder X 6.0 a5 Pre-Release [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237590.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237590.jpgsave_picture_237590.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ What For? - Ганнибал У Ворот (2021) EP [MP3|320 Kbps] <Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237591.jpgsave_picture_237591.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ magnet:?xt=urn:btih:E0409A5BA04319488F5C44F3A88B5076E325BEB0
 >>Новости
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237592.jpgsave_picture_237592.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ Wallner Vain, Will Wallner & Vivien Vain - Duel (2023) [FLAC|Lossless|WEB-DL|tra
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237593.jpgsave_picture_237593.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ magnet:?xt=urn:btih:EF3640DF79768598CA453A51CB16B1BB93E1CAA8
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237594.jpgsave_picture_237594.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ magnet:?xt=urn:btih:75E1590A32AFE7FF978CDF5DD6195905F379EFFE
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237595.jpgsave_picture_237595.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ Middle 1.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237596.jpgsave_picture_237596.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ Old Ben - The Darkest Room (2023) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic, Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237597.jpgsave_picture_237597.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ VA - 0815 Lo-Fi Chill Hop (2019) [AAC|~264 Kbps] <Jazzy, Chillhop, Lounge>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237598.jpgsave_picture_237598.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ magnet:?xt=urn:btih:D8C15DAFA371EF76BADFA75E0E7D1E4ADF221E18
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237599.jpgsave_picture_237599.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ MotoGP. Этап 03. Гран-при США. Квалификация (15.04.202
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237600.jpgsave_picture_237600.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ PixPlant 5.0.41 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237601.jpgsave_picture_237601.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ Mirror for Hisense TV 3.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237602.jpgsave_picture_237602.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Merv Spence - Phenomena Recovered (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237603.jpgsave_picture_237603.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ djay - DJ App & AI Mixer 4.1.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237604.jpgsave_picture_237604.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ magnet:?xt=urn:btih:6C2975E4DFACE82DCA65A2A11F30CE1B83760227
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237605.jpgsave_picture_237605.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ magnet:?xt=urn:btih:D051B0074304F99D3153E3D7F305E6D610CF676A
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237606.jpgsave_picture_237606.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ magnet:?xt=urn:btih:FD4BBAB2D71DF49DC946EE4C2BF17E7AF1066F8F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237607.jpgsave_picture_237607.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ magnet:?xt=urn:btih:163C0657210CA0964F8157A990C48CFC90E97C4E
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237608.jpgsave_picture_237608.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Smoke 'N' Flame - On Fire (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237609.jpgsave_picture_237609.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ GrandTotal 8.0.3.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237610.jpgsave_picture_237610.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ VA - Relaxing Jazzy Beats (Abstract Electronic Chill Jazz Vibes) (2021) [AAC|~33
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237611.jpgsave_picture_237611.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ MetaVideo 1.0.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237612.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237612.jpgsave_picture_237612.jpg" />
 </div>
 
 

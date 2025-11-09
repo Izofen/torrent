@@ -6,7 +6,7 @@
 >>История
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168696.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168696.jpgsave_picture_168696.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Boxy SVG 3  v3.72.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168697.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168697.jpgsave_picture_168697.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Stats 2.6.22 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168698.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168698.jpgsave_picture_168698.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:494F73E31EFCA21984B9C017F1D9A64213A722F8
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168699.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168699.jpgsave_picture_168699.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:7DC1E5661922A3A27A4683FC6F0E8A923C246A67
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168700.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168700.jpgsave_picture_168700.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:1E8517306F5D0282212B89B9830203938806BB0E
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168701.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168701.jpgsave_picture_168701.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ A Better Finder Rename 11 v11.40 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168702.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168702.jpgsave_picture_168702.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:F17F0EC05051A057EE6A16EB470BAC9848249F3E
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168703.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168703.jpgsave_picture_168703.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ Pluto | Плутон [2023, Web, 8 эп.] WEB-DL 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168705.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168705.jpgsave_picture_168705.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ magnet:?xt=urn:btih:C5B2FE3BDB711827CACA71F4A9303B96C0678CBD
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168706.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168706.jpgsave_picture_168706.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ uDock 2.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168707.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168707.jpgsave_picture_168707.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ magnet:?xt=urn:btih:DA234F40CDA8DADA5C23E0AF469315E8E4E8F0D2
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168708.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168708.jpgsave_picture_168708.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Snap VPN: Super Fast VPN Proxy 4.7.0.1 Mod by Pie Mods [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168709.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168709.jpgsave_picture_168709.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Schwarz & Funk - Back to the Beach, Vol. 2 (2021) [AAC|~306 Kbps] <Lounge, Chill
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168710.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168710.jpgsave_picture_168710.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ The Best Of Chill Out Lounge - Winter Chillout Lounge 2021 (2021) [AAC|~307 Kbps
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168711.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168711.jpgsave_picture_168711.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ magnet:?xt=urn:btih:6D737D9F00ADE9A2B1B68164155B1A1C3587A1F8
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168712.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168712.jpgsave_picture_168712.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ ZWCAD 2024 SP1 Professional [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168713.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168713.jpgsave_picture_168713.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ magnet:?xt=urn:btih:8AB51DE2EC1A52822D362626EDED12D2E5E27BD8
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168714.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168714.jpgsave_picture_168714.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ Marga Sol - Natural High (2021) [AAC|~318 Kbps] <Lounge, Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168715.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168715.jpgsave_picture_168715.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ magnet:?xt=urn:btih:21AE6148E58C3209CC57DACF25E150C1431893BD
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168716.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168716.jpgsave_picture_168716.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ magnet:?xt=urn:btih:8F98C09EA97D579588DA801D1E72CC3CD07D6FE3
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168717.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168717.jpgsave_picture_168717.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ Everything 1.4.1.1002 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168718.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168718.jpgsave_picture_168718.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ magnet:?xt=urn:btih:9968C857EAB41AAA66D7FCE2E5DF7464DD3D8E52
 >>Подвижные Игры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168719.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168719.jpgsave_picture_168719.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:360C79FE1621A33F392476B3AC02E1B120CB44D9
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168720.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168720.jpgsave_picture_168720.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Bleach: Sennen Kessen Hen | Bleach: Thousand-Year Blood War | Блич: Тыся
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168721.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168721.jpgsave_picture_168721.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Bucky & John Pizzarelli - Family Fugue (2011) Arbors Records [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168722.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168722.jpgsave_picture_168722.jpg" />
 </div>
 
 

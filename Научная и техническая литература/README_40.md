@@ -6,7 +6,7 @@ Andrew Scott Conning | The Kodansha Kanji Learner's Course (2013) [PDF] [EN]
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54238.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54238.jpgsave_picture_54238.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Rob Houston (editor) | How Food Works (2017) [PDF] [EN]
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54367.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54367.jpgsave_picture_54367.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:2DBA8246128E63E1F294BD21D9B6F93CBDF4029A
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54390.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54390.jpgsave_picture_54390.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:341DF780E866E961AF64C7A516DDDE6213369894
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54400.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54400.jpgsave_picture_54400.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:A8783A9B2127CE97F820BFC437245238CB4264FB
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54445.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54445.jpgsave_picture_54445.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:22C0D618ABAB0B3EA0FC282FBF93797709B2247D
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54588.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54588.jpgsave_picture_54588.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:82200406BD542622F35887118855142D7B1A7906
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54592.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54592.jpgsave_picture_54592.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ Mark Lester | English Verb Tenses Up Close (2012) [PDF] [EN]
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54674.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54674.jpgsave_picture_54674.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:B57E0AE5B603547218B4EBCCC97F45D964F1CE3B
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54689.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54689.jpgsave_picture_54689.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:27B2C4A776CC4C6AB55199B24404AB0AFDDC5E70
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54764.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54764.jpgsave_picture_54764.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:E429FF19492FED40CB660152050EAF184F7BCBEC
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54766.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54766.jpgsave_picture_54766.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:2DCD59CB7F7F4FC7AC9514F173963BF0E81C64DE
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54768.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54768.jpgsave_picture_54768.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Jean Yates | Practice Makes Perfect English Vocabulary for Beginning ESL Learner
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54797.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54797.jpgsave_picture_54797.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ magnet:?xt=urn:btih:3E3BE40541807CF9D0FBAA1ACD0A5E25B54278B0
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54876.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54876.jpgsave_picture_54876.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Adrian Wallwork | Jokes: Have a Laugh and Improve Your English (2017) [PDF] [EN]
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54882.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54882.jpgsave_picture_54882.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ magnet:?xt=urn:btih:4F0C8B10CACA9783AE7E843C22F10698452DAF11
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54892.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54892.jpgsave_picture_54892.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Rachel Smith | American English Pronunciation (2015) [PDF] [EN]
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54896.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54896.jpgsave_picture_54896.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Adrian Wallwork | English for Writing Research Papers (2017) [PDF] [EN]
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54907.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54907.jpgsave_picture_54907.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ magnet:?xt=urn:btih:38D7B86910C6CCE2396F920DBAACE94422A0EB86
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54970.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54970.jpgsave_picture_54970.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ magnet:?xt=urn:btih:DC4773B2AAECF615E469A215A265FACDA4176779
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55004.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55004.jpgsave_picture_55004.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ magnet:?xt=urn:btih:5F859C3519572894565FDC2B5377E7D8815FDAF2
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55013.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55013.jpgsave_picture_55013.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ magnet:?xt=urn:btih:9B55A481B11B093832E10300BBA260D6B0E985F6
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55018.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55018.jpgsave_picture_55018.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ magnet:?xt=urn:btih:4B750929758D5F2F8200B75CE2E37EB6F4C27AA0
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55030.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55030.jpgsave_picture_55030.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ magnet:?xt=urn:btih:D26A28746285EF9E86EC13321CD9A0C9410FB60C
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55033.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55033.jpgsave_picture_55033.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ magnet:?xt=urn:btih:726B82A08C1E07740DDF4F69CB83165CC7682DFB
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55108.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55108.jpgsave_picture_55108.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ magnet:?xt=urn:btih:377A826438759FF2FD4927734D36731B68AA03FF
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55115.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55115.jpgsave_picture_55115.jpg" />
 </div>
 
 

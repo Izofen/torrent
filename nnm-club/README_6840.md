@@ -6,7 +6,7 @@
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235070.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235070.jpgsave_picture_235070.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:4C41E1F622B5DCF8FB0810D0EAEDA2DD0E954712
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235071.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235071.jpgsave_picture_235071.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ The Lords Of Altamont - To Hell With Tomorrow The Lords Are Now (2023) [FLAC|Los
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235073.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235073.jpgsave_picture_235073.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Ancient Mastery - The Chosen One (2021) EP [FLAC|Lossless|image + .cue] <Epic Bl
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235075.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235075.jpgsave_picture_235075.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:52546AFCA4DB9E63DBE03F36B7C32E9742F4D65F
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235076.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235076.jpgsave_picture_235076.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Wise Disk Cleaner 11.0.1.815 RePack (& portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235077.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235077.jpgsave_picture_235077.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ SIV (System Information Viewer) 5.66 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235078.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235078.jpgsave_picture_235078.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:4D9FA82B70B68C9C3DEAB542BB9729D24E1C75B7
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235079.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235079.jpgsave_picture_235079.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:A05DFFFC9A33CC0CDE057C26DE2D540E5817FE45
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235080.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235080.jpgsave_picture_235080.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:B3F0806A6787A23CAAF6368B835C343405F7E0C9
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235081.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235081.jpgsave_picture_235081.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Wolves at the Gate - Eulogies (2022) [FLAC 2.0|44.1/24|tracks|WEB-DL] <PostHardC
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235083.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235083.jpgsave_picture_235083.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ VA - Sexy Pride Music 2023 | For Girls Who Want Boys Who Like Boys [MP3|320 Kbps
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235084.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235084.jpgsave_picture_235084.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ magnet:?xt=urn:btih:3020BEB309317B3EEAFE1E15A4F8B8345955BFEB
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235085.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235085.jpgsave_picture_235085.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:9BBF3C42F57E357910D5C3161AFED925C016BEBA
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235087.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235087.jpgsave_picture_235087.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Negative Vortex - Tomb Absolute (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235088.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235088.jpgsave_picture_235088.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Hibria - Me7amorphosis (2022) [FLAC|Lossless|WEB-DL|tracks] <Power Metal, Speed 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235091.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235091.jpgsave_picture_235091.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ magnet:?xt=urn:btih:521634D3196D81165144DF42897CAC81C6E1B605
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235093.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235093.jpgsave_picture_235093.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ Topaz Video AI 3.3.2 (x64) RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235094.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235094.jpgsave_picture_235094.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ Calibre 6.21.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235095.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235095.jpgsave_picture_235095.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ magnet:?xt=urn:btih:0337984AB0AA6D0A328AC85516C41CDAC80807E3
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235096.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235096.jpgsave_picture_235096.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ VideoSolo DVD Copy 1.0.16 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235097.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235097.jpgsave_picture_235097.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Papik - Papik Presents Cocktail Mina (2015) [AAC|~330 Kbps] <Nu Jazz, Soul, Loun
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235099.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235099.jpgsave_picture_235099.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ magnet:?xt=urn:btih:F2882C6AB247BFAE0DA1BB5AD22B5700A97F12E0
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235101.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235101.jpgsave_picture_235101.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Powerskull - Powerstone (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power-Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235102.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235102.jpgsave_picture_235102.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ magnet:?xt=urn:btih:FF3BEC908F522EA6977F924826D3750088274950
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235104.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235104.jpgsave_picture_235104.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Void Vator - Great Fear Rising (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235105.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235105.jpgsave_picture_235105.jpg" />
 </div>
 
 

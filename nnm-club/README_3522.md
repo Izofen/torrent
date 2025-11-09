@@ -6,7 +6,7 @@ Advanced Renamer 3.95 release 2 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111933.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111933.jpgsave_picture_111933.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Wilde Investigations 2: Animal Sanctuary Shuffle (2024) [En] (1.0) Unofficial [C
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111934.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111934.jpgsave_picture_111934.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Blank & Jones - Milchbar - Seaside Season 16 (2024) [FLAC|Lossless|WEB-DL|tracks
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111935.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111935.jpgsave_picture_111935.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:02142F3EB3B0D9DEAB08A3F385E49FD4A1441278
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111936.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111936.jpgsave_picture_111936.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:02142F3EB3B0D9DEAB08A3F385E49FD4A1441278
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111937.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111937.jpgsave_picture_111937.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:D78BCBF35D2AA80E8EA65B91C5DB43C3D41B513C
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111938.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111938.jpgsave_picture_111938.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ High-Logic FontCreator Professional Edition 15.0.0.2970 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111939.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111939.jpgsave_picture_111939.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:120F8C35B5697F6A0A1178F0E8A08EAF908B099C
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111940.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111940.jpgsave_picture_111940.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ Vivaldi 6.6.3271.57 include standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111941.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111941.jpgsave_picture_111941.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:24F241310FA29FC93F765717D551858ADA26D209
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111942.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111942.jpgsave_picture_111942.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:913B8692429542C14CE0BB1A8B1B0DD2EBC7FC13
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111943.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111943.jpgsave_picture_111943.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:9334E7AC488919D4D4C89DB2EA2BDFC4F1E07F8F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111944.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111944.jpgsave_picture_111944.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:9334E7AC488919D4D4C89DB2EA2BDFC4F1E07F8F
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111945.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111945.jpgsave_picture_111945.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ magnet:?xt=urn:btih:37F07890E5FB646181717D1CEC114DDE9C9FE847
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111946.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111946.jpgsave_picture_111946.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ magnet:?xt=urn:btih:C448ACEEA48FF287966AF8E441903AC9C6315BC7
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111947.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111947.jpgsave_picture_111947.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Icecream Video Editor Pro 3.18 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111948.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111948.jpgsave_picture_111948.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ magnet:?xt=urn:btih:B3481149DF8A9069230813C558CF5CF53BCCC51B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111949.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111949.jpgsave_picture_111949.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Calibre 7.8.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111950.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111950.jpgsave_picture_111950.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ VA - Music News vol.360 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111951.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111951.jpgsave_picture_111951.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ magnet:?xt=urn:btih:6817CDFFB9D3D9956140180F05E540BD9F0089AA
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111952.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111952.jpgsave_picture_111952.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ magnet:?xt=urn:btih:E859E5FCD7FC6FB86F0EB4EB70AA8F5F7A4E2724
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111953.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111953.jpgsave_picture_111953.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Icecream PDF Editor Pro 3.21 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111954.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111954.jpgsave_picture_111954.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ magnet:?xt=urn:btih:036289F7690735C329F2D9239B6BB3B1C4E23600
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111955.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111955.jpgsave_picture_111955.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Icecream Photo Editor Pro 1.49 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111956.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111956.jpgsave_picture_111956.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Sante DICOM Editor 10.0.8 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111957.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111957.jpgsave_picture_111957.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Sumatra PDF 3.6.16004 Prerelease + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111958.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111958.jpgsave_picture_111958.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ VA - Black Hole House Music 05-23 (2023) [MP3|320 Kbps] <House, Progressive Hous
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234601.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234601.jpgsave_picture_234601.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Bob Moses - The Silence in Between (Remixed) (2023) [FLAC|Lossless|WEB-DL|tracks
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234657.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234657.jpgsave_picture_234657.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - Club Summer Megamix (2023) [MP3|320 Kbps] <Dance, Club, House, Electronic>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235052.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235052.jpgsave_picture_235052.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Nicky Romero & Tim van Werd & Timmo Hendriks - Protocol Radio 500 (2022-03-10) [
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235122.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235122.jpgsave_picture_235122.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ VA - Spring Sampler 2023 (2023) [MP3|320 Kbps] <House, Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235377.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235377.jpgsave_picture_235377.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ VA - Songspire Records In Miami 2023 (2023) [MP3|320 Kbps] <House, Progressive H
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235392.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235392.jpgsave_picture_235392.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ VA - Levitated - Emotional Trance Vol. 2 (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235458.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235458.jpgsave_picture_235458.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ VA - Trance 2023 Vol. 4 [MP3|320 Kbps] <Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235489.jpgsave_picture_235489.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Eguana - Night Ambient (2023) [FLAC|Lossless|WEB-DL|tracks] <Ambient>
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235525.jpgsave_picture_235525.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Cannons - Fever Dream (2022) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Chillwave,
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235676.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235676.jpgsave_picture_235676.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Synth Elements - Love and Space (2020) [FLAC|Lossless|WEB-DL|tracks] <Spacedance
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235851.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235851.jpgsave_picture_235851.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ VA - Trance Anthems Vol. 20 (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235860.jpgsave_picture_235860.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ VA - Infrasonic Spring Selection (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235912.jpgsave_picture_235912.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ VA - 50 Lounge Chillout Tunes - Best of Cafe Lounge & Chill out Ambient Classics
 >>Downtempo, Trip-Hop, Lounge
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235976.jpgsave_picture_235976.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ VA - Trance Dance (2023) [MP3|320 Kbps] <Trance, Progressive, Breaks, Melodic>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236114.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236114.jpgsave_picture_236114.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ VA - Summer 2023: Best Of Deep House (2023) CD, Compilation [MP3|320 Kbps] <Deep
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236154.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236154.jpgsave_picture_236154.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ VA - 33-45 Rpm, Vinyl-Struck Vol. 4 (2023) [MP3|320 Kbps] <Jackin House, Soulful
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236172.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236172.jpgsave_picture_236172.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ VA - Golden Fingers Vol 2 (The Best Italian Piano Solos Collection) (2015) [MP3|
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236182.jpgsave_picture_236182.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ The Browning - EoE Remixed (2023) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Syn
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236185.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236185.jpgsave_picture_236185.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ VA - Climax Chill Out Session Pt.1 (2023) [FLAC|Lossless|WEB-DL|tracks] <Lounge,
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_236333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_236333.jpgsave_picture_236333.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ VA - Armada Subjekt - Ibiza 2023 (2023) [MP3|320 Kbps] <House, Tech House, Afro 
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236339.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236339.jpgsave_picture_236339.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Wumpscut (:wumpscut:) - Giftkeks (2023) EP [FLAC|Lossless|image + .cue] <EBM, In
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236611.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236611.jpgsave_picture_236611.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Driftmachine - Spume & Recollection (2021) Umor Rex [FLAC|Lossless|WEB-DL|tracks
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236632.jpgsave_picture_236632.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ V.A. - Ambient Chill out Ibiza 2023 (2023) [FLAC|Lossless|WEB-DL|tracks] <Lounge
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236648.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236648.jpgsave_picture_236648.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Stahlnebel & Black Selket - The Darkest Hour (2021) [FLAC|Lossless|image + .cue]
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236689.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236689.jpgsave_picture_236689.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Sorry Girls - Bravo! (2023) [FLAC|Lossless|WEB-DL|tracks] <Synth-pop, 80s>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236710.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236710.jpgsave_picture_236710.jpg" />
 </div>
 
 

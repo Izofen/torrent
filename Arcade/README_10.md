@@ -6,7 +6,7 @@ Voidwrought (2024) [Ru/Multi] (0.27.56) Scene Tenoke [Deluxe Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38336.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38336.jpgsave_picture_38336.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Ashes of the Union (2024) [Ru/Multi] (Patch #7 Hotfix) Scene Skidrow
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38534.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38534.jpgsave_picture_38534.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Guilty Gear -Strive- (2021) [Multi] (1.40/dlc) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38558.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38558.jpgsave_picture_38558.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Vampire Survivors (2021) [Ru/Multi] (1.12.105/dlc) Repack seleZen
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38627.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38627.jpgsave_picture_38627.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Jujutsu Kaisen: Cursed Clash (2024) [Multi] (20240925/dlc) Scene Tenoke [Ultimat
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38776.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38776.jpgsave_picture_38776.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Deadly Days (2019) [Ru/Multi] (1.7.0f2) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38807.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38807.jpgsave_picture_38807.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Brotato (2022) [Ru/Multi] (1.1.3.0/dlc) Repack seleZen
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38832.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38832.jpgsave_picture_38832.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:071353CA34950BE0AB109AB1B81DF2C52D0BD409
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38849.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38849.jpgsave_picture_38849.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Finding Frankie (2024) [Ru/Multi] (1.0.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39019.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39019.jpgsave_picture_39019.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Fall / 沦陷 (2024) [Ru/Multi] (build 16154369) Repack seleZen
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39111.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39111.jpgsave_picture_39111.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Fall / 沦陷 (2024) [Ru/Multi] (build 16154369) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39121.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39121.jpgsave_picture_39121.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Super Dark Deception (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39204.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39204.jpgsave_picture_39204.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Rugrats: Adventures in Gameland (2024) [En] (1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39786.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39786.jpgsave_picture_39786.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Yars Rising (2024) [Multi] (1.1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39799.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39799.jpgsave_picture_39799.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Supermoves (2024) [Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39817.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39817.jpgsave_picture_39817.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Ember Knights (2023) [Ru/Multi] (2.0.0/dlc) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39939.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39939.jpgsave_picture_39939.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Glitchpunk (2021) [Ru/Multi] (1.0.7) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40028.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40028.jpgsave_picture_40028.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Glitchpunk (2021) [Ru/Multi] (1.0.7) Scene Rune
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40130.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40130.jpgsave_picture_40130.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Portal with RTX (2022) [Ru/Multi] (Build 14355597) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40131.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40131.jpgsave_picture_40131.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Hell of an Office (2023) [Ru/Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40229.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40229.jpgsave_picture_40229.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Portal 2 (2011) [Ru/Multi] (Build 14822445) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40311.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40311.jpgsave_picture_40311.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Portal (2007) [Ru/Multi] (Build 13095453) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40428.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40428.jpgsave_picture_40428.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Super Mario Party Jamboree (2024) [Ru/Multi] (1.1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40446.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40446.jpgsave_picture_40446.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Wooden Sen'SeY (2013) [Multi] (4.2.2.12621) Scene PROPHET
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40460.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40460.jpgsave_picture_40460.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ EARTH DEFENSE FORCE: WORLD BROTHERS 2 (2024) [Multi] (1.0/dlc) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40527.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40527.jpgsave_picture_40527.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Freedom Planet (2015) [En] (1.21.5) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40546.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40546.jpgsave_picture_40546.jpg" />
 </div>
 
 

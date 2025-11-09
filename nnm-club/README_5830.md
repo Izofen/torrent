@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182716.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182716.jpgsave_picture_182716.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:C8CC131DEC2B486A3D6D37A2A024802A49F13A15
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_182717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_182717.jpgsave_picture_182717.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:40EAEB940879F187B503098966B002A261C9A21F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182719.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182719.jpgsave_picture_182719.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:5297F1AF3DF138C08C8B1BD432E4F39868F306BE
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_182720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_182720.jpgsave_picture_182720.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:4FB2C9BAF9AB12C808817458885E90DE1E79463B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182722.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182722.jpgsave_picture_182722.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Udemy, Кирилл Несмелов | Создание сайта в Photoshop 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_182723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_182723.jpgsave_picture_182723.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:0B21A6EDF1DA57A81B8C784CDBD3026211EAAF81
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_182725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_182725.jpgsave_picture_182725.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Secret Service - 8 Studio Albums (1979-2022) [MP3|320 Kbps] <Electronic, Pop Roc
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_182726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_182726.jpgsave_picture_182726.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ Hataraku Maou-sama!! 2nd Season / The Devil is a Part-Timer!! 2nd Season / По�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182728.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182728.jpgsave_picture_182728.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ magnet:?xt=urn:btih:E033A95044853F2CEEF2F0944552AAEFEFC5CFAB
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_182730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_182730.jpgsave_picture_182730.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ Modern Tweaker 1.6 (DC 23.11.2022) Portable [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182731.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182731.jpgsave_picture_182731.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ FastStone Image Viewer 7.8 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_182733.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_182733.jpgsave_picture_182733.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ magnet:?xt=urn:btih:DF3AF54B89BA870FCD31BD9536881BAEC2E04A7C
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_182735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_182735.jpgsave_picture_182735.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ magnet:?xt=urn:btih:3239850C75F1B61EDCA892ADBA104F68253363AA
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182736.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182736.jpgsave_picture_182736.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ SysAdmin Software Portable v.0.6.4.0 by rezorustavi (Update 05.09.2023) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182738.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182738.jpgsave_picture_182738.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ magnet:?xt=urn:btih:D327EEC605C42DE702410ECB5E38F380C19BE0A9
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182740.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182740.jpgsave_picture_182740.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ magnet:?xt=urn:btih:6900CF5C5C4303BE7F7211B979FB7CBFD9D759C9
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_182741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_182741.jpgsave_picture_182741.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ magnet:?xt=urn:btih:799CD9E360806FFF30198416DF6E01FAFB2F6703
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182743.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182743.jpgsave_picture_182743.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ Liveclasses, Дмитрий Ларионов | Fusion в DaVinci Resolve: быс
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182745.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182745.jpgsave_picture_182745.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ magnet:?xt=urn:btih:C46B090D407AA331D842BAC7F82D35A79695FEEE
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182747.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182747.jpgsave_picture_182747.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ magnet:?xt=urn:btih:31FA477B83BFD33B4ABCD025AA18DCBEA7A543BA
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182749.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182749.jpgsave_picture_182749.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Total Commander 11.01 Extended 23.10 Full / Lite RePack (& Portable) by BurSoft 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182751.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182751.jpgsave_picture_182751.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ magnet:?xt=urn:btih:C15C858E417100509BFB5D69C262DCE54B963537
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182753.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182753.jpgsave_picture_182753.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Blackmagic Design DaVinci Resolve Studio 18.1.1 Build 7 RePack by KpoJIuK [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182756.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182756.jpgsave_picture_182756.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ magnet:?xt=urn:btih:6B507006B631FECF7625C0DDBF6E3F9EB033AB40
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_182757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_182757.jpgsave_picture_182757.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ FastStone Image Viewer 7.8 Corporate + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_182758.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_182758.jpgsave_picture_182758.jpg" />
 </div>
 
 

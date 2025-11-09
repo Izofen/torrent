@@ -6,7 +6,7 @@ Peter Spath | Pro Android with Kotlin - 2nd Edition (2022) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207299.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207299.jpgsave_picture_207299.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:8C46378E44AECBD1FA2E760928E5B52AED10DCE2
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207596.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207596.jpgsave_picture_207596.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:F358DFB87A93CAE67E237C782F00497B81B172B1
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208832.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208832.jpgsave_picture_208832.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ Dr. Nilesh Bhaskarrao Bahadure | Python for Everyone: Learn and polish your codi
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211735.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211735.jpgsave_picture_211735.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:2CD78FAD090862F95405B447485A7D8B7BB9025E
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212135.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212135.jpgsave_picture_212135.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Thomas Theis | Getting Started with Python (2024) [EPUB, PDF] [EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212157.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212157.jpgsave_picture_212157.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Marcelo Rovai | Edge AI Engineering: Hands-on with the Raspberry Pi (2025) [PDF]
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212159.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212159.jpgsave_picture_212159.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ Hattersley L. (ed.) | The Official Raspberry Pi Handbook 2025: Astounding projec
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212160.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212160.jpgsave_picture_212160.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ L. Hattersley (ed.) | The Official Raspberry Pi Handbook - 2026 (2025) [PDF] [EN
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212161.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212161.jpgsave_picture_212161.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Phil King | Simple electronics with GPIO Zero: Take control of the real world wi
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212162.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212162.jpgsave_picture_212162.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Dylan G.H. Quagmire | Raspberry Pi Bible: The Ultimate Project & Programming Gui
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212163.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212163.jpgsave_picture_212163.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:0403F2FC8D7902A90B27ABE9523E69946CE32D19
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213964.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213964.jpgsave_picture_213964.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:BAAD7823B4C7B1E9E96757C4C5658C1E8034F122
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215132.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215132.jpgsave_picture_215132.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ magnet:?xt=urn:btih:9DD106C466750DD06B3BBD48560FAC4E4678D58C
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216516.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216516.jpgsave_picture_216516.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ George Chapline | Quantum Mechanics And Bayesian Machines (2023) [PDF][EN]
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_220938.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_220938.jpgsave_picture_220938.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Charles Pfleeger, Shari Lawrence Pfleeger, Lizzie Coles-Kemp | Security in Compu
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_221760.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_221760.jpgsave_picture_221760.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ magnet:?xt=urn:btih:790EB8E66E3D06027DC7F6B44D959B9CA57B5108
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228610.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228610.jpgsave_picture_228610.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ magnet:?xt=urn:btih:2EA8C5B6F575FBC8B2FCCAA21693F4B0E0B210E6
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228923.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228923.jpgsave_picture_228923.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Krasimir Tsonev | 50 Tips on JavaScript: 50 of the most interesting features, co
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229595.jpgsave_picture_229595.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ magnet:?xt=urn:btih:37348BE5EDE5107DA9525EC6C6B088EB7A004C1F
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229631.jpgsave_picture_229631.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ magnet:?xt=urn:btih:053404EEEB857A347B153BD8CD32FA41FB57CFEC
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229645.jpgsave_picture_229645.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ magnet:?xt=urn:btih:C0063FA807AEAA1BCE0E0905C7A1D4A48C03E584
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229682.jpgsave_picture_229682.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:35B2D8EEFFBD14D3293F6E18B937891D799DC1E8
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230240.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230240.jpgsave_picture_230240.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ magnet:?xt=urn:btih:2C39E73A94B5BCD94BD95657F97C09D3E2050258
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_230445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230445.jpgsave_picture_230445.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ David Matuszek | Quick Functional Programming (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230542.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230542.jpgsave_picture_230542.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ Noemí Ferrera | How to Test a Time Machine (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230616.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230616.jpgsave_picture_230616.jpg" />
 </div>
 
 

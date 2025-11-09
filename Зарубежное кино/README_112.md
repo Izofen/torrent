@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45696.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45696.jpgsave_picture_45696.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:102CBED0983C069DC0E25EEEA3FA6DADA7972F1B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45701.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45701.jpgsave_picture_45701.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:F750E535F3B0F05C10F9A835C712910607CEE0FB
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45705.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45705.jpgsave_picture_45705.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:832DDC982C2656CD1E0D0DA33E121BB46AB37352
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45716.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45716.jpgsave_picture_45716.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:9684B94DCC7C7766852E4B9BB36CE361DFE4474D
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45727.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45727.jpgsave_picture_45727.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:981B890B339614841FE2892952A2C31BB061A1A3
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45735.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45735.jpgsave_picture_45735.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:14892400676EC749AE8B38041E487882348C4D50
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45742.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45742.jpgsave_picture_45742.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:6F9108F25F48AF549CBEE0A87B29E31CA3EFC619
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45745.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45745.jpgsave_picture_45745.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:EFFB5098A45D05F555012497C52023327C74E25E
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45749.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45749.jpgsave_picture_45749.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:30D3219DA1121877ED003011CB9240FAD5F98496
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45750.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45750.jpgsave_picture_45750.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ magnet:?xt=urn:btih:486ECA11A905ED0C2336346FCBFF6770E5909252
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45752.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45752.jpgsave_picture_45752.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ magnet:?xt=urn:btih:BA91B3CD72624F532166CAE98D8000E6A3BD8E55
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45753.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45753.jpgsave_picture_45753.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ magnet:?xt=urn:btih:68D29C405D05D306DFC962E3FB6116C65AB8F58D
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45765.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45765.jpgsave_picture_45765.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ magnet:?xt=urn:btih:5E5A443006D080C2DB9BB11F11CF8212B46D3FC8
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45769.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45769.jpgsave_picture_45769.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ magnet:?xt=urn:btih:A22DCBA350426ED609AD2390EACAEC1EA1C32AF6
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45784.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45784.jpgsave_picture_45784.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ magnet:?xt=urn:btih:142A768D1F0A26FCB2FEFF2F9E74FEC866532C00
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45785.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45785.jpgsave_picture_45785.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ magnet:?xt=urn:btih:BD2F9CAD31EEE73844DDA82972B0FC9E2D333BE3
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45786.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45786.jpgsave_picture_45786.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ magnet:?xt=urn:btih:70CEFD28DB88F5160C5B180ED56AFFA464DEE3B3
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45792.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45792.jpgsave_picture_45792.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ magnet:?xt=urn:btih:78E093270A5951A6AC10C843404905E3E4719FA3
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45797.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45797.jpgsave_picture_45797.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ magnet:?xt=urn:btih:E4F4CB6C9E7A2E5FDF0F04DFEF04A3551D943510
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45808.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45808.jpgsave_picture_45808.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ magnet:?xt=urn:btih:8E2C6B36EAC37BCF63E1FE4ACD131211041B6938
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45809.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45809.jpgsave_picture_45809.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ magnet:?xt=urn:btih:48CEA5A16DACE839E941588179711607C8E1DEE3
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45810.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45810.jpgsave_picture_45810.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ magnet:?xt=urn:btih:52DF42DD5DE4F67419F58D0E6F5878978868832B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45815.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45815.jpgsave_picture_45815.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ magnet:?xt=urn:btih:D3DC6C694C31F27CC9474A2AC527F44C82DCEB31
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45816.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45816.jpgsave_picture_45816.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ magnet:?xt=urn:btih:9808459F6DFDEC6F70B62B1CD27B160F15620A3E
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45820.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45820.jpgsave_picture_45820.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ magnet:?xt=urn:btih:D495C1A329F8AA2DEA255C1876CF26C187AD29BE
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45827.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45827.jpgsave_picture_45827.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10470.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10470.jpgsave_picture_10470.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ VA - The Best Smooth Female Jazz: Timeless Voices (2025) [FLAC|Lossless|WEB-DL|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10471.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10471.jpgsave_picture_10471.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:98A633FDDB5EE65AA71CED9A1D8C5EF8803A7A1B
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10472.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10472.jpgsave_picture_10472.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:93B3DE796994EA036CE4C369F5DC97A428F8E8EC
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10473.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10473.jpgsave_picture_10473.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ to a T (2025) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10474.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10474.jpgsave_picture_10474.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ magnet:?xt=urn:btih:DFAAA6F13F791F40C72EAFF993A8E20728FDCBBF
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10475.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10475.jpgsave_picture_10475.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ magnet:?xt=urn:btih:9ED82806C0447BF6F6097428AE6DBE4772371272
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10476.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10476.jpgsave_picture_10476.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:791F2E9BFE5A8D6D01C2EC7AF7586D6F260CF681
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10477.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10477.jpgsave_picture_10477.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:B082042C9872EA4C39F7FDDA389833E47B05F9A9
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10478.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10478.jpgsave_picture_10478.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ magnet:?xt=urn:btih:832B70285A8962A5837F1753B777EF1081FD576D
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10479.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10479.jpgsave_picture_10479.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ magnet:?xt=urn:btih:1312759C2F9A3C9E3573D777608230210EACD548
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10480.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10480.jpgsave_picture_10480.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ magnet:?xt=urn:btih:00973C573C62399879D61CC3BD5C44A180A42478
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10481.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10481.jpgsave_picture_10481.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:2B32173E23BCE80A3CD626BB0F079046A5A2DEB9
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10482.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10482.jpgsave_picture_10482.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ VA - Italo Electro Disco (2025) [MP3|320 Kbps] <Italo-Disco, Electro>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10483.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10483.jpgsave_picture_10483.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ magnet:?xt=urn:btih:CFED4D18B4EE1721A4C859E781CC3008CC4D4E1E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10484.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10484.jpgsave_picture_10484.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ magnet:?xt=urn:btih:B5B73B7700BDCF4F0F7FC9C13F9505DB5E21C345
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10485.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10485.jpgsave_picture_10485.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ magnet:?xt=urn:btih:8B07E79DA6558CECD25ED7A9C5EE64E8CD58E206
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10486.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10486.jpgsave_picture_10486.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Purvpn 8.3 [En/Farsi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10487.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10487.jpgsave_picture_10487.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Smart AudioBook Player Pro v11.5.1 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10488.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10488.jpgsave_picture_10488.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ magnet:?xt=urn:btih:E52CA10C7FDD492435426F1539A7D92422A01443
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10489.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10489.jpgsave_picture_10489.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ YT Downloader 9.12.22 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10490.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10490.jpgsave_picture_10490.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ magnet:?xt=urn:btih:A25064404DE695C3BA00FA0BC99AB4519D3C6D5C
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10491.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10491.jpgsave_picture_10491.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ Black Sabbath - The Eternal Idol (2025 Remaster) (1987) [FLAC 24/44.1|Lossless|W
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10492.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10492.jpgsave_picture_10492.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ TVGuide v4.5.30 Premium Mod by Alex.Strannik [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10493.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10493.jpgsave_picture_10493.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Kdenlive 25.04.3 + Standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10494.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10494.jpgsave_picture_10494.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Photo Sherlock v1.129 Mod by Mixroot  [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10495.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10495.jpgsave_picture_10495.jpg" />
 </div>
 
 

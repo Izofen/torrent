@@ -6,7 +6,7 @@
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9772.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9772.jpgsave_picture_9772.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:768AB78E74F6C442B2096ED1A5B086FFFB6B48ED
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9773.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9773.jpgsave_picture_9773.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ UNDERWARD (2025) [Ru/Multi] (1.2.0.1/dlc) Scene Tenoke [Supporter Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9774.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9774.jpgsave_picture_9774.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ Girls Made Pudding (2025) [Multi] (1.2.1) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9775.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9775.jpgsave_picture_9775.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ Auslogics BoostSpeed 14.0.1.3 RePack (& Portable) by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9776.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9776.jpgsave_picture_9776.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Chilly - Collection (1978-1982) [DSD 128|tracks|Vinyl-Rip] <Disco, soul, funk>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9777.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9777.jpgsave_picture_9777.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ magnet:?xt=urn:btih:EE2CE49C8A6B9A610D19041CA169C0EC62E0F40E
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9778.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9778.jpgsave_picture_9778.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:0AF9A0AF8ED37F878B9F63621B09CA45EDDC49C1
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9779.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9779.jpgsave_picture_9779.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:15B6725A98E6C22BFC2502BFB35830775D6E478C
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9780.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9780.jpgsave_picture_9780.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:7B88638C620C3DD594116D192183975EE79119DB
 >>Нормативная документация
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9781.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9781.jpgsave_picture_9781.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ SplitCam 10.8.55 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9782.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9782.jpgsave_picture_9782.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:679D682C788BF109B917A6B376237AB0F88B6142
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9783.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9783.jpgsave_picture_9783.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Advanced Renamer 4.13 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9784.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9784.jpgsave_picture_9784.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ magnet:?xt=urn:btih:4BFB093DB62C39DFBF4CDCE33801B331C6CFC45F
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9785.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9785.jpgsave_picture_9785.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ magnet:?xt=urn:btih:A59F111B5E7E7168865E09263B599BF24FC18837
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9786.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9786.jpgsave_picture_9786.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Ubuntu*Pack 22.04 KDE / Kubuntu (июль 2025) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9787.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9787.jpgsave_picture_9787.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ magnet:?xt=urn:btih:397CFDA298BFFF113F97CDD93C4CA821B233E326
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9788.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9788.jpgsave_picture_9788.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ magnet:?xt=urn:btih:397CFDA298BFFF113F97CDD93C4CA821B233E326
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9789.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9789.jpgsave_picture_9789.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ magnet:?xt=urn:btih:BDB22A0372AF1D08D436F84F610CB02F68335E50
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9790.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9790.jpgsave_picture_9790.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Ubuntu*Pack 22.04 LikeWin (июль 2025) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9791.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9791.jpgsave_picture_9791.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Borderlands 2 (2012) [Ru] (1.8.4/dlc) Repack EXROW [Game of the Year Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9792.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9792.jpgsave_picture_9792.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ Ubuntu*Pack 22.04 LXqt / Lubuntu (июль 2025) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9793.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9793.jpgsave_picture_9793.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ Mortal Kombat 4 (1997) [En] (2.1) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9794.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9794.jpgsave_picture_9794.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ ASTRONEER (2016) [Ru/Multi] (1.34.47.0/dlc) Repack Let'sРlay
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9795.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9795.jpgsave_picture_9795.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Ubuntu*Pack 22.04 Cinnamon (июль 2025) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9796.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9796.jpgsave_picture_9796.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ Ubuntu*Pack 22.04 GNOME (июль 2025) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9797.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9797.jpgsave_picture_9797.jpg" />
 </div>
 
 

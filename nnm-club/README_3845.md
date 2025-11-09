@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120378.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120378.jpgsave_picture_120378.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:465FA69BD48946E1DE17B478D36ED7982BB159AC
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120380.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120380.jpgsave_picture_120380.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:27E47251B61E3C841E71588C0E5E402442680B92
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120381.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120381.jpgsave_picture_120381.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Half-Life: Alyx (2020) [Ru/Multi] (1.5.4 Build 8694564/dlc) Repack Other s [NoVR
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120382.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120382.jpgsave_picture_120382.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Adobe Photoshop for Mac 2024 v.25.4 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120383.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120383.jpgsave_picture_120383.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:1F7009F4977BE0599A06E00120379F36911B6AE9
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120384.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120384.jpgsave_picture_120384.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:153C41343C3D58A14BCC88B9CDDA30DE2E924C54
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120385.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120385.jpgsave_picture_120385.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:8240384F56315F86FC84CF32AC0D717632DA9813
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120386.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120386.jpgsave_picture_120386.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:946ED7840FDA595C1F2F385EF80B29B726D15AFF
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120387.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120387.jpgsave_picture_120387.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:F9DE958FF47406B677A32B0D1451ADC1B6B7714F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120388.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120388.jpgsave_picture_120388.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:17C4C6C37CB64828BFAFCC7070AB144F8BE4F043
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120389.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120389.jpgsave_picture_120389.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:7E9F3D784F192398E1D62B8B956ACF5A464008CC
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120390.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120390.jpgsave_picture_120390.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ GINSHA (2023) [Multi] (1.1.0b) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120391.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120391.jpgsave_picture_120391.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Children of Silentown (2023) [Ru/Multi] (1.0.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120392.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120392.jpgsave_picture_120392.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ magnet:?xt=urn:btih:1A3C3227024E23F55A4D4D5ECFFBE41775B92228
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120393.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120393.jpgsave_picture_120393.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ magnet:?xt=urn:btih:741ED1221F6C7EA5A3907184F62C4B27876E96A0
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120395.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120395.jpgsave_picture_120395.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ magnet:?xt=urn:btih:D8024C361631BF090D950E3DC512CB1376590E70
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120396.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120396.jpgsave_picture_120396.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ The Last Faith (2023) [Ru/Multi] (1.5.0) Repack dixen18
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120397.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120397.jpgsave_picture_120397.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ magnet:?xt=urn:btih:D9B158B764E50C83783FD832F1EB7D0383ECAB2E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120398.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120398.jpgsave_picture_120398.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ magnet:?xt=urn:btih:25195C5E8B136AA3B6139CD60D8D6E78639B8115
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120399.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120399.jpgsave_picture_120399.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:DF561CBBF0DE00086689F78CD2DEF84ACE1314F4
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120400.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120400.jpgsave_picture_120400.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Blender Market, Ducky 3D | Intro To Motion Graphics (Blender Course) (2023) PCRe
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120401.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120401.jpgsave_picture_120401.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Eve's Bite - Blessed in Hell (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120402.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120402.jpgsave_picture_120402.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Mike Goudreau Band - Just Wanna Have Fun (2024) [FLAC|Lossless|WEB-DL|tracks] <B
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120403.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120403.jpgsave_picture_120403.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Alice Babs - The Unforgettable Songbird (2024) [FLAC|Lossless|WEB-DL|tracks] <Ja
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120404.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120404.jpgsave_picture_120404.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Davide Pannozzo - Room for Joy (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120405.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120405.jpgsave_picture_120405.jpg" />
 </div>
 
 

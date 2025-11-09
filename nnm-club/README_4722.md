@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147784.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147784.jpgsave_picture_147784.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:DCCC455E07785992A9663683BCB9BFF0E87F6928
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147785.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147785.jpgsave_picture_147785.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:DCCC455E07785992A9663683BCB9BFF0E87F6928
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147787.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147787.jpgsave_picture_147787.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Michael Giacchino - Rogue One: A Star Wars Story (Original Motion Picture Soundt
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147788.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147788.jpgsave_picture_147788.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Guy Lafitte & Andre Persiany - Les Classiques du Jazz (1955, 1957) 2018, Fresh S
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147789.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147789.jpgsave_picture_147789.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:7305A7AE71A030ED7794E258D03BE55C00711277
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147791.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147791.jpgsave_picture_147791.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:BB6BA09D75873073FF04BA03189162111BF1BB47
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147792.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147792.jpgsave_picture_147792.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:1DF9F2A7AA2AF60A25791BC138058B5D7A6FE43C
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147794.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147794.jpgsave_picture_147794.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:4E3A3322AEF1FA03BA38B915308B3660BBDC858B
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147795.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147795.jpgsave_picture_147795.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:1852941FA18706D17F9681FD1C4FED1FFA9EE69E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147797.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147797.jpgsave_picture_147797.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:B9AAB42FC426F2C37BD6AACE2D53835014758A63
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147798.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147798.jpgsave_picture_147798.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:00507E50AE699ACC0605D555E2A89630FF3D6225
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147799.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147799.jpgsave_picture_147799.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Goes Cube - Another Day Has Passed (2009) [FLAC|Lossless|tracks + .cue] <Post Ro
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147800.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147800.jpgsave_picture_147800.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ VA - Breezin' Smooth Jazz Tunes West Coast Lounge (2023) [FLAC|Lossless|WEB-DL|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147801.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147801.jpgsave_picture_147801.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ magnet:?xt=urn:btih:4F21FD63C84DDE544CB1B3D000FDCE8DE08DE50F
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147802.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147802.jpgsave_picture_147802.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ magnet:?xt=urn:btih:1CEC719895352CB8D6351B7E0AFD5500CDA36B57
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147803.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147803.jpgsave_picture_147803.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Confusion Project - Primal (2018) Soliton [FLAC|Lossless|WEB-DL|tracks] <Contemp
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147804.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147804.jpgsave_picture_147804.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ magnet:?xt=urn:btih:3B34294DC14A2B73129612F1E0376E8B55E7DCFE
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147805.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147805.jpgsave_picture_147805.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ Timewarp Records presents: Compilations Collection by Nova Fractal & Friends - 3
 >>Psychedelic, psytrance, fullon
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147806.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147806.jpgsave_picture_147806.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ Affinity Publisher 1.10.8 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147807.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147807.jpgsave_picture_147807.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ magnet:?xt=urn:btih:A927F78D43C532A29E2CB767CD330EF5CA7E0221
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147808.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147808.jpgsave_picture_147808.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ magnet:?xt=urn:btih:4A7532676AE4009A74F53C91D5348A293B673AAF
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147809.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147809.jpgsave_picture_147809.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ VA - Transfiguration Songs (2005) Compilation [FLAC|Lossless|tracks + .cue] <Har
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147810.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147810.jpgsave_picture_147810.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ magnet:?xt=urn:btih:5E1C800F3409EA449E6AE4F5EFC945408701FF46
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147811.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147811.jpgsave_picture_147811.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ magnet:?xt=urn:btih:12CE8BDE68FA447996941E41B8CCF149E6AC478E
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147812.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147812.jpgsave_picture_147812.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ Wrabel - based on a true story (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Indie
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147813.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147813.jpgsave_picture_147813.jpg" />
 </div>
 
 

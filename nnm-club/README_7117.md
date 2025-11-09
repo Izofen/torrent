@@ -6,7 +6,7 @@ Ghosthost - Testament of a Wretched Dogma (2023) [FLAC|Lossless|WEB-DL|tracks] <
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243978.jpgsave_picture_243978.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Itґs Megamix Time 3 (2023) [MP3|320 Kbps] <Italo Disco, New Wave, Hi NRG, 
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243979.jpgsave_picture_243979.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ PatterNodes 2 v2.4.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243980.jpgsave_picture_243980.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ magnet:?xt=urn:btih:65825226C07B1F51330EE5961E78D0D5028117CB
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243981.jpgsave_picture_243981.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ VA - Keep It Trance Vol. 09 (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243982.jpgsave_picture_243982.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ MSI Kombustor 4.1.17.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243983.jpgsave_picture_243983.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ VA - Katty Heath - 30 Vocal Trance Hits (2023) [MP3|320 Kbps] <Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243984.jpgsave_picture_243984.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Checksum Thing 2.0.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243985.jpgsave_picture_243985.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ magnet:?xt=urn:btih:6EF8942F8DEE2D56FEB48B8CD71EC39C1778E8D1
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243986.jpgsave_picture_243986.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ magnet:?xt=urn:btih:DE7448E0632373A22931A7DEDFA9EF287CC7B8B5
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243987.jpgsave_picture_243987.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ Feeder 4 v4.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243988.jpgsave_picture_243988.jpg" />
 </div>
 
 
@@ -289,7 +289,7 @@ magnet:?xt=urn:btih:00CFD12EA698C8D0F8D368F32DA26739AC607481
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243989.jpgsave_picture_243989.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ VA - 25 Years Technoclub Compilation (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243990.jpgsave_picture_243990.jpg" />
 </div>
 
 
@@ -340,7 +340,7 @@ Icecream Photo Editor 1.33 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243991.jpgsave_picture_243991.jpg" />
 </div>
 
 
@@ -364,7 +364,7 @@ VA - Flower Blooms: Chillout Your Mind (2023) [FLAC|Lossless|WEB-DL|tracks] <Bal
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243992.jpgsave_picture_243992.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ magnet:?xt=urn:btih:A80BAAEDDCB37D8F2812B2EB5690ADAA4EE104F7
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243993.jpgsave_picture_243993.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ VA - 100% Explode Dance Anthems (2016) [MP3|190-320 Kbps] <Electro-R&B, House, R
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243994.jpgsave_picture_243994.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Imagine 1.1.4 + Portable + Plugins  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243995.jpgsave_picture_243995.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Reverso Translation Dictionary / Переводной словарь Reverso 10.
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243996.jpgsave_picture_243996.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ GrandTotal 7 v7.0.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243997.jpgsave_picture_243997.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Ted Nugent - Spirit of the Wild (1995) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243998.jpgsave_picture_243998.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Wise Disk Cleaner 10.9.8.814 RePack (& portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243999.jpgsave_picture_243999.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ magnet:?xt=urn:btih:4757A35ED10907F2DE74B266BAA0315ED70E725D
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244000.jpgsave_picture_244000.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Paul Young - Behind The Lens (2023) [FLAC 2.0|44,1/24|WEB-DL|tracks] <Rock, Pop 
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244001.jpgsave_picture_244001.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ magnet:?xt=urn:btih:0413A7DD886D1AB61FCA1E8D33C0B4BA33B76000
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244002.jpgsave_picture_244002.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ magnet:?xt=urn:btih:D2F6B90697FCEA2850423EB1098F989E7D7BB293
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244003.jpgsave_picture_244003.jpg" />
 </div>
 
 

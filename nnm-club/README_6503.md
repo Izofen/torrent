@@ -6,7 +6,7 @@ VA - Summer Sun Vocal Trance (2023) [MP3|320 Kbps] <Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206292.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206292.jpgsave_picture_206292.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ BitComet 2.02 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206295.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206295.jpgsave_picture_206295.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:F83A82D760DAB9DD8EED0612210641BB7B076C96
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206298.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206298.jpgsave_picture_206298.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:A58313EB92FB75FC36E5F18C0BC24C6BC64A38F6
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206299.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206299.jpgsave_picture_206299.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Telegram Desktop 4.9 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206301.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206301.jpgsave_picture_206301.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ Vivaldi 6.1.3035.302 include standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206304.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206304.jpgsave_picture_206304.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ magnet:?xt=urn:btih:7C7706BB7F8DC1C2C8B55582D86B1B99EDBF3699
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206305.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206305.jpgsave_picture_206305.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ Elimination - The Blood of Titans (2011) [FLAC|Lossless|image + .cue] <Power, Th
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206307.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206307.jpgsave_picture_206307.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ OCCT 12.0.12 Final Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206308.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206308.jpgsave_picture_206308.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ Skype 8.101.0.212 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206313.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206313.jpgsave_picture_206313.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ FanControl V166 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206314.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206314.jpgsave_picture_206314.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ magnet:?xt=urn:btih:B05FE3ECD3973B827A343E56EECBE70AF3504D24
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206317.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206317.jpgsave_picture_206317.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ magnet:?xt=urn:btih:804520E5A8C61EA71CAA48F77FDCFB26BA0C30CD
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206319.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206319.jpgsave_picture_206319.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ magnet:?xt=urn:btih:0C23BD7D16126816738101426F211D66B96A48D9
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206322.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206322.jpgsave_picture_206322.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ CudaText 1.197.0.0 Portable + addons [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206323.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206323.jpgsave_picture_206323.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ magnet:?xt=urn:btih:A3FD9F8C770953787AC7828F2B37AE9586634026
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206326.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206326.jpgsave_picture_206326.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Denis Pauna - Kill 'Em All ZZ Top Style (2023) [MP3|320 Kbps] <Rock, Blues>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206327.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206327.jpgsave_picture_206327.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ magnet:?xt=urn:btih:A7B683DAEC40E67091420C6F8D9F8AE615DD8A59
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206332.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206332.jpgsave_picture_206332.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ magnet:?xt=urn:btih:6C0762E30629B6E889FA7E8488750F1A8A084060
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206335.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206335.jpgsave_picture_206335.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ magnet:?xt=urn:btih:EF1F94B60135FD6D56667B4449DDC58B8E20DB6C
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206337.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206337.jpgsave_picture_206337.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Cobian Reflector 2.4.00 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206339.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206339.jpgsave_picture_206339.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ magnet:?xt=urn:btih:6C808F0AB5FE076C1DDC0DC759FEA1407E768785
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206341.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206341.jpgsave_picture_206341.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ magnet:?xt=urn:btih:A9B3B14DFE6C73C9C4CC936B5F119CDEAE2F8DC5
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206343.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206343.jpgsave_picture_206343.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Desktop.Calendar.Tray.OK 4.01 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206344.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206344.jpgsave_picture_206344.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ magnet:?xt=urn:btih:FD9955956EEE9C097B8883B28C39D57F1BAAA077
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206347.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206347.jpgsave_picture_206347.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ magnet:?xt=urn:btih:A0F0ED04EDE31E84FA0ABFD2D4028628A4CEEE5A
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206348.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206348.jpgsave_picture_206348.jpg" />
 </div>
 
 

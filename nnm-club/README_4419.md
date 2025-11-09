@@ -6,7 +6,7 @@ VA - 5 Years Of Futura Groove Records (2018) [MP3|320 Kbps] <House, Tech House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138059.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138059.jpgsave_picture_138059.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Atretic Intestine - Encased (2012) [MP3|320 кб/с]<Brutal Death>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138061.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138061.jpgsave_picture_138061.jpg" />
 </div>
 
 
@@ -66,7 +66,7 @@ magnet:?xt=urn:btih:9C0BF7C6F06794E3D38A490799AA8187FFBC74E4
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138062.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138062.jpgsave_picture_138062.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ Coiro - Reflections (2023) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138064.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138064.jpgsave_picture_138064.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Rakoth - Superstatic Equilibrium (1998) 2xCD, Reissue, Remastered, 2020, OldWise
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138065.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138065.jpgsave_picture_138065.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Magatsu Wahrheit: Zuerst | MWZ | Бедствие Вархайта [2020, TV, 12
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138066.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138066.jpgsave_picture_138066.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Kouya no Kotobuki Hikoutai | The Magnificent Kotobuki | Пустынная эс�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138067.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138067.jpgsave_picture_138067.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ magnet:?xt=urn:btih:9A9355D082ED6E0FABECCC01BA1E970FEA381D8F
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138068.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138068.jpgsave_picture_138068.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ VA - Зимний марафон № 216: Новогодний Фейервер�
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138069.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138069.jpgsave_picture_138069.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ magnet:?xt=urn:btih:9455AA7B2FA953AE2460FACD02467C8A0527438A
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138070.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138070.jpgsave_picture_138070.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Paul Quinichette - Basie Reunion (1958) 2000, Original Jazz Classics [APE|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138071.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138071.jpgsave_picture_138071.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ PixelLab Pro - Text on pictures 2.1.2 Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138072.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138072.jpgsave_picture_138072.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ CGMA, Pete Zoppi | Создание персонажа для фильмов/с�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138073.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138073.jpgsave_picture_138073.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ John Lennon & Yoko Ono - Double Fantasy (1980) [FLAC 2.0|192/24|image + .cue|Vin
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138074.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138074.jpgsave_picture_138074.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Abazagorath - Sacraments Of The Final Atrocity (2004) [WavPack|Lossless]<Black M
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138076.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138076.jpgsave_picture_138076.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Sven Erik Lundeqvist Trio - First & Foremost (2018) Storyville Records [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138078.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138078.jpgsave_picture_138078.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ magnet:?xt=urn:btih:5A42D03C12CB340C9400E38F6C7BC65A80C36F04
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138080.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138080.jpgsave_picture_138080.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Gregorian - Holy Chants (2017) [FLAC|Lossless|tracks + .cue] <New Age, Electroni
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138081.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138081.jpgsave_picture_138081.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ magnet:?xt=urn:btih:06983BA2DF9330B979F489ECE883B6F49F2B9769
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138083.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138083.jpgsave_picture_138083.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Acrophet - Faded Glory (1990) [WavPack|Lossless]<Thrash Metal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138084.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138084.jpgsave_picture_138084.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Acrophet - Faded Glory (1990) [WavPack|Lossless]<Thrash Metal>
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138086.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138086.jpgsave_picture_138086.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ magnet:?xt=urn:btih:7D3ED4705446CAD272E7D083B3D2ABAD4040DCC8
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138088.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138088.jpgsave_picture_138088.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ magnet:?xt=urn:btih:6E02E1363EB2D37C9BB3282DC8452B9B2814A9DF
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138089.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138089.jpgsave_picture_138089.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ VA - Organica - Sound Tales 1 (2021) [AAC|~305 Kbps] <Deep House, Dub Techno>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138090.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138090.jpgsave_picture_138090.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ magnet:?xt=urn:btih:D5CD5DA15D19DB7AD7E0817A47A97C683A4702EE
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138091.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138091.jpgsave_picture_138091.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ TablePlus 5.6.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138092.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138092.jpgsave_picture_138092.jpg" />
 </div>
 
 

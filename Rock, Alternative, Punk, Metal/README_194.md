@@ -6,7 +6,7 @@ Desespere - Furor Ab Intus, Caeleste Stragem Desuper (2023) [FLAC|Lossless|WEB-D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126210.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126210.jpgsave_picture_126210.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ R.E.M. - Santa Monica 1991 - live (2023) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126214.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126214.jpgsave_picture_126214.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:088D7B9545E36038A89E5DF9B4B17B6622FA422D
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126216.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126216.jpgsave_picture_126216.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Children Of Bodom - A Chapter Called Children of Bodom (2023) Final Show in Hels
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126217.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126217.jpgsave_picture_126217.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Glass Hammer - Arise (2023) [FLAC|Lossless|tracks + .cue] <Progressive Rock, Sym
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126221.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126221.jpgsave_picture_126221.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Grateful Dead - Winter Solstice (Live) (2023) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126222.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126222.jpgsave_picture_126222.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Rustik Mode - In The Desert Air (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126228.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126228.jpgsave_picture_126228.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Demon - British Standard Approved (1985) Japanese Edition, Reissue, Remastered, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126230.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126230.jpgsave_picture_126230.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ magnet:?xt=urn:btih:B624D14D05A16585535072029002D1D91AAF8D30
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126231.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126231.jpgsave_picture_126231.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ magnet:?xt=urn:btih:CFC55F56B4911A65622E2E678E28FB5B51EAD3DB
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126245.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126245.jpgsave_picture_126245.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Johnny Hallyday - Made in Rock'n'Roll (2023) [MP3|320 Kbps] <Pop-Rock, Rock'n'Ro
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126262.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126262.jpgsave_picture_126262.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ The Death Spell - The Death Spell (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Roc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126263.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126263.jpgsave_picture_126263.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Secret Salt Squad - Ghosts of the Machine (2023) [FLAC|Lossless|WEB-DL|tracks] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126268.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126268.jpgsave_picture_126268.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Zmey Gorynich - V​ж​и​ц​а (2022) [FLAC|Lossless|image + .cue] <Folk 
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126277.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126277.jpgsave_picture_126277.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Sylvania - Purgatorium (2023) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126393.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126393.jpgsave_picture_126393.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Challenger Deep - III.The Path (2023) [FLAC|Lossless|WEB-DL|tracks] <Post-Metal,
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126395.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126395.jpgsave_picture_126395.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Critical Heartbeat - Revolution (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126400.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126400.jpgsave_picture_126400.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Vintas - Solar, Lunar (2023) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Progr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126402.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126402.jpgsave_picture_126402.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Pyramid - Rage (2022) 2CD [FLAC|Lossless|image + .cue] <Progressive Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126405.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126405.jpgsave_picture_126405.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ Banisher - Oniric Delusions (2016) [FLAC|Lossless|image + .cue] <Technical, Expe
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126406.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126406.jpgsave_picture_126406.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Marco Machera - Dormiveglia (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126407.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126407.jpgsave_picture_126407.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Slytherin - Tales of Hogsmeade Village (2022) [FLAC|Lossless|image + .cue] <Atmo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126409.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126409.jpgsave_picture_126409.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Banisher - Degrees of Isolation (2020) [FLAC|Lossless|WEB-DL|tracks] <Technical,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126410.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126410.jpgsave_picture_126410.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Dusk - Dissolve Into Ash (2023) [FLAC|Lossless|WEB-DL|tracks] <Doom, Death Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126411.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126411.jpgsave_picture_126411.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ Go Ahead And Die - Unhealthy Mechanisms (2023) [FLAC|Lossless|image + .cue] <Thr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126412.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126412.jpgsave_picture_126412.jpg" />
 </div>
 
 
@@ -675,7 +675,7 @@ Methadol - Welcome to My World (2016) Reissue, Remastered, 2023, Methadol[FLAC|L
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126414.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126414.jpgsave_picture_126414.jpg" />
 </div>
 
 

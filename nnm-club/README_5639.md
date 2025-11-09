@@ -6,7 +6,7 @@ NASA показало грунт с астероида Бенну — в нём 
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173612.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173612.jpgsave_picture_173612.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ R-Studio Technician 9.3 Build 191248 RePack (& portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173613.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173613.jpgsave_picture_173613.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:9282D7B053D4F242FFFF7DA84561CF01108949FB
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173614.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173614.jpgsave_picture_173614.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Paint.NET 5.0.11 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173615.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173615.jpgsave_picture_173615.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Reanimation inc / Скорая Помощь Inc v51 Mod by vadj [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173616.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173616.jpgsave_picture_173616.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:076395D37389555439D0487738324676C86E4930
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173617.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173617.jpgsave_picture_173617.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ ASUS GPU Tweak III 1.6.9.4 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173618.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173618.jpgsave_picture_173618.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ Auslogics BoostSpeed 13.0.0.5 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173619.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173619.jpgsave_picture_173619.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:09334FC8A43B152E577D6ABB56729D1D6BB6480D
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173620.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173620.jpgsave_picture_173620.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ magnet:?xt=urn:btih:953B6BCFBC470666E4CED546EAAC2E090EA40378
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173621.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173621.jpgsave_picture_173621.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:DD1BCF4AC4DA67C53F009101406431DA418195BE
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173622.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173622.jpgsave_picture_173622.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ Microsoft Visual Studio 2022 Enterprise 17.7.5 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173624.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173624.jpgsave_picture_173624.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Total Commander 11.02 RC2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173625.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173625.jpgsave_picture_173625.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ magnet:?xt=urn:btih:B6AEEEB064F549181C084BA236CC5A438BC049AE
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_173626.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_173626.jpgsave_picture_173626.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ magnet:?xt=urn:btih:8FB79BD635126295BA699D037B27C004963BC68F
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_173628.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_173628.jpgsave_picture_173628.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ magnet:?xt=urn:btih:491EBB0ED60FCC3A72D57810295B1A88AAFB7C05
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173629.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173629.jpgsave_picture_173629.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ magnet:?xt=urn:btih:8E8FFD1F78471AE6978B3FFC9B17950013226282
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173630.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173630.jpgsave_picture_173630.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ magnet:?xt=urn:btih:B71971DECCAAEAECF7CCAE00547D7622B40E4590
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_173631.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_173631.jpgsave_picture_173631.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ magnet:?xt=urn:btih:BFBD1D360A435CD7EB44F605E35A9401603F0EB0
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173632.jpgsave_picture_173632.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ magnet:?xt=urn:btih:D86ED5B26E54ACDA675E0B4C95B4BCA05FD2FEF1
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173634.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173634.jpgsave_picture_173634.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Google Chrome 108.0.5359.99 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_173635.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_173635.jpgsave_picture_173635.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Topaz Video AI 3.5.3 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173636.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173636.jpgsave_picture_173636.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ magnet:?xt=urn:btih:504EE822B8852978C5FFF5A6C50F084E74B97E1A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173637.jpgsave_picture_173637.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ BitComet 1.98 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_173638.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_173638.jpgsave_picture_173638.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ magnet:?xt=urn:btih:0C2B9D8BDB4DE9E5D24D612B74AFEAC76AF61CEB
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173640.jpgsave_picture_173640.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ magnet:?xt=urn:btih:FC386A93AE1E85F12F6101CF487577F7FB695384
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_173641.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_173641.jpgsave_picture_173641.jpg" />
 </div>
 
 

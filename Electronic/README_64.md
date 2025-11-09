@@ -6,7 +6,7 @@ VA - Future Sounds Of Kraut, Vol. 2 - compiled by Fred und Luna (2024) [FLAC 24/
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107667.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107667.jpgsave_picture_107667.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Sunset Party (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107674.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107674.jpgsave_picture_107674.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Markus Schulz - Global DJ Broadcast World Tour: Buenos Aires, Sao Paulo and Mont
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107675.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107675.jpgsave_picture_107675.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - Armin van Buuren - A State Of Trance 1178 (2024) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107677.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107677.jpgsave_picture_107677.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Chillymouse - Don't Give Me Your Life (Jay Frog remix) (2021) [FLAC|Lossless|tra
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107678.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107678.jpgsave_picture_107678.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ The Force presents Beata - Maria Magdalena (2015) [FLAC|Lossless|tracks] <House,
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107679.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107679.jpgsave_picture_107679.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Uran Bator - Uluu Tengri (2024) [FLAC|Lossless|WEB-DL|tracks] <industrial, EBM>
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107681.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107681.jpgsave_picture_107681.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ British Murder Boys - Active Agents and House Boys (2024) [FLAC|Lossless|WEB-DL|
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107684.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107684.jpgsave_picture_107684.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ VA - The Essential Downtempo Vol.6 Chillout Your Mind (2024) [FLAC|Lossless|WEB-
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107688.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107688.jpgsave_picture_107688.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ VA - The Essential Downtempo, Vol.5 Chillout Your Mind (2023) [FLAC|Lossless|WEB
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107693.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107693.jpgsave_picture_107693.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ VA - Relaxing Electronic Atmosphere (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107696.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107696.jpgsave_picture_107696.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ VA - 2022 EDM (2022) [FLAC|Lossless|tracks] <EDM, House, Future Rave, Dubstep>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107698.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107698.jpgsave_picture_107698.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ David Guetta - Capital FM Summertime Ball, Wembley Stadium London (2024-06-16) [
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107704.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107704.jpgsave_picture_107704.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Fedde Le Grand - Something Real (2016) (Deluxe) [FLAC|Lossless|WEB-DL|tracks] <E
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107744.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107744.jpgsave_picture_107744.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ VA - Chillout Summer Anthems 2024 (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, 
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107760.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107760.jpgsave_picture_107760.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ autoKratz - Animal (2009) 15th Anniversary Edition, 2024, Bad Life[FLAC|Lossless
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107825.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107825.jpgsave_picture_107825.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ Fred P - As We Journey On (2024) [FLAC|Lossless|WEB-DL|tracks] <Deep Techno, Fut
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107848.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107848.jpgsave_picture_107848.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ Toxikk Deception - License To Murder (2022) [MP3|320 Kbps] <EBM, Dark Electro, I
 >>Industrial, EBM, Dark Electro
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107850.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107850.jpgsave_picture_107850.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ magnet:?xt=urn:btih:88F9B99364DEC9957B914409D1C6A1796BF86D7E
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107852.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107852.jpgsave_picture_107852.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ magnet:?xt=urn:btih:CEA18839B020C2CD5AF6CBD7CC06B801B17836AE
 >>Industrial, EBM, Dark Electro
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107857.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107857.jpgsave_picture_107857.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ VA - Ibiza Summer Vibes (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107865.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107865.jpgsave_picture_107865.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ VA - Gothic Music Orgy, Vol. 6 (2020) [MP3|320 Kbps] <Dark Electro, EBM, Industr
 >>Industrial, EBM, Dark Electro
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107870.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107870.jpgsave_picture_107870.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ VA - Ibiza (Deep House Sensations) (2024) [MP3|320 Kbps] <House, Deep House, Dan
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107873.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107873.jpgsave_picture_107873.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ VA - Art of Deep House (2024) [MP3|320 Kbps] <House, Deep House, Dance, Club>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107878.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107878.jpgsave_picture_107878.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ Toxikk Deception - Harsh Reality (2024) [MP3|204-260 kbps VBR (V0)] <EBM, Dark E
 >>Industrial, EBM, Dark Electro
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107879.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107879.jpgsave_picture_107879.jpg" />
 </div>
 
 
@@ -677,7 +677,7 @@ VA - Armin van Buuren - A State Of Trance 1177 (2024) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107940.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107940.jpgsave_picture_107940.jpg" />
 </div>
 
 

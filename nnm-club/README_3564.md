@@ -6,7 +6,7 @@
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113039.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113039.jpgsave_picture_113039.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:70C54891CA0528849B978567A67506064E58A5F3
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113040.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113040.jpgsave_picture_113040.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:8BD5D7DFF58B8A1CBA7E0E3F1C7705CE35BF4E2D
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113041.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113041.jpgsave_picture_113041.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Leaves' Eyes - Myths of Fate (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Symph
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113042.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113042.jpgsave_picture_113042.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ magnet:?xt=urn:btih:5F2174683070E078BC0B63F2DAC34555BC99884A
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113043.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113043.jpgsave_picture_113043.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Orion & J.Shore - Brotherhood (2011) [FLAC|Lossless|WEB-DL|tracks] <Chillout>
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113044.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113044.jpgsave_picture_113044.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Mp3tag 1.8.18 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113045.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113045.jpgsave_picture_113045.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Ron D Bowes - Paws for Thought (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113046.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113046.jpgsave_picture_113046.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Hurricane on Saturn - Killing Field (2020) [FLAC|Lossless|WEB-DL|tracks] <Electr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113047.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113047.jpgsave_picture_113047.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Art Farmer-Benny Golson Jazztet - Blues On Down (1960, 1961) 1994, Chess [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113048.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113048.jpgsave_picture_113048.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Rated Blue - Cranked Remastered (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113049.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113049.jpgsave_picture_113049.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ The Art Farmer-Benny Golson Jazztet - Back To The City (1986) 1995, Original Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113050.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113050.jpgsave_picture_113050.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ The Art Farmer-Benny Golson Jazztet - Real Time (1988) Contemporary Records [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113051.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113051.jpgsave_picture_113051.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Atrophy - Asylum (2024) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113052.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113052.jpgsave_picture_113052.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Kryuhm - Only in My Mind (2022) [FLAC|Lossless|image + .cue] <Heavy, Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113053.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113053.jpgsave_picture_113053.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ The Crows - Ready When You Are (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113054.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113054.jpgsave_picture_113054.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ TechSmith Snagit 2024.2.2 for Mac [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113055.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113055.jpgsave_picture_113055.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ magnet:?xt=urn:btih:BAA958FE4A807C5D8E1C47807BF3348539C2485A
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113056.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113056.jpgsave_picture_113056.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Easy New File 5.8 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113057.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113057.jpgsave_picture_113057.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ magnet:?xt=urn:btih:84C8148C840944184E490891495F36523494F121
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113058.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113058.jpgsave_picture_113058.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ OmniReader Pro for Mac 2.8.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113059.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113059.jpgsave_picture_113059.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Rocky Athas - Livin' My Best Life (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Ro
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113060.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113060.jpgsave_picture_113060.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ magnet:?xt=urn:btih:D23654B4AF36B68926569338D3C84F0ECFB98A82
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113061.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113061.jpgsave_picture_113061.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ VA - Happy Easter Jazz (Spring Positive Music) (2024) [FLAC|Lossless|WEB-DL|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113062.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113062.jpgsave_picture_113062.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ New Old School - New Old School (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113063.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113063.jpgsave_picture_113063.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ Ragwater - Shifting Shapes (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113064.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113064.jpgsave_picture_113064.jpg" />
 </div>
 
 

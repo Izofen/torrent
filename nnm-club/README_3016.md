@@ -6,7 +6,7 @@ Aphex Twin - Surfing On Sine Waves (1993) Expanded Edition, 2025, Warp Records [
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91287.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91287.jpgsave_picture_91287.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:77B9822268D120332DCC7F8679087F06B1932A26
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91288.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91288.jpgsave_picture_91288.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Lets Play: Quest Darake no My Life | Сыграем [2025, TV, 1 из 12 эп.] 
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91289.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91289.jpgsave_picture_91289.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Akujiki Reijou to Kyouketsu Koushaku | Pass the Monster Meat, Milady! | Леди
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91290.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91290.jpgsave_picture_91290.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:308AA65C1A23E90BA00697CC132957B767163573
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91291.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91291.jpgsave_picture_91291.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:3D0AFA4B6639F1443212BF9C7E05597BCA2F13F7
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91292.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91292.jpgsave_picture_91292.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ magnet:?xt=urn:btih:611F0DAD04E03A80B1073AAF802320F521A9ABAD
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91293.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91293.jpgsave_picture_91293.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:AF52BFEDE2CCAB91BE2465CA42C9FEB1E8E24FE7
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91294.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91294.jpgsave_picture_91294.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ magnet:?xt=urn:btih:4C95DB3B0A99F72767615999F340783C4BBB98C5
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91295.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91295.jpgsave_picture_91295.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ magnet:?xt=urn:btih:655D738E45F7A13F1C6117ADD4D57AB9FDF0A428
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91296.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91296.jpgsave_picture_91296.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ Reg Organizer 9.86 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91297.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91297.jpgsave_picture_91297.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ magnet:?xt=urn:btih:37F3E3E6DE117997696DBADEA2365192CE47D469
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91298.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91298.jpgsave_picture_91298.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ magnet:?xt=urn:btih:554111DA35488C17215FBEB45B53EB30DABD9C23
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91299.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91299.jpgsave_picture_91299.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ magnet:?xt=urn:btih:6977EEC6EFD2F273BEE2DA40446D19999B23B964
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91300.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91300.jpgsave_picture_91300.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ magnet:?xt=urn:btih:7B5B60F00B4790B59EB0E419642261E0C932F227
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91301.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91301.jpgsave_picture_91301.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Bytebond (2025) [Ru/Multi] (1.0.0.6/dlc) Repack FitGirl [Supporter Edition]
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91302.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91302.jpgsave_picture_91302.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ CULTIC (2022) [Ru/En] (Build 20066947/dlc) Repack Other s [Complete Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91303.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91303.jpgsave_picture_91303.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ magnet:?xt=urn:btih:2A431CB6314D3DC3731445AB6474FEABDA3281D1
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91304.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91304.jpgsave_picture_91304.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ magnet:?xt=urn:btih:5CCB597A0E2AB04CB9459C1943260BF068BD44EA
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91305.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91305.jpgsave_picture_91305.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ magnet:?xt=urn:btih:5AFC78D7394A61B5CCB6431779C95DEEFC481BF9
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91306.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91306.jpgsave_picture_91306.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ magnet:?xt=urn:btih:BAFEF867909D5D4A565D0A0849C082034124F217
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91307.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91307.jpgsave_picture_91307.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ magnet:?xt=urn:btih:51DED3886B0FE3E346D46ED2BAC6287C1A49878D
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91308.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91308.jpgsave_picture_91308.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ magnet:?xt=urn:btih:C021000E34D91730D7BFCFB1DB9FBE23731E84DA
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91309.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91309.jpgsave_picture_91309.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ magnet:?xt=urn:btih:2542E5876A307B78ADDDC29A4D6013AC25B03B44
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91310.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91310.jpgsave_picture_91310.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ PAC-MAN WORLD 2 Re-PAC (2025) [Ru/Multi] (1.0/dlc) Scene Rune
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91311.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91311.jpgsave_picture_91311.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ magnet:?xt=urn:btih:92275D4C11F45553B6832FB3A6FCB9A7C4B31C1C
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91312.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91312.jpgsave_picture_91312.jpg" />
 </div>
 
 

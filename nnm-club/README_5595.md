@@ -6,7 +6,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172461.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172461.jpgsave_picture_172461.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:36F0C1F7058688E9A5AFFFE92D7C8D7BC2CAE372
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172462.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172462.jpgsave_picture_172462.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:8772FFE67B5DDDD47EC0ED8CBAE19F5973C4BC0B
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172463.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172463.jpgsave_picture_172463.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:30D5BC6EC0BCC1EE834C956AB7A4A9582160BD55
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172464.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172464.jpgsave_picture_172464.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:DC6267C22A359DD4D4E87BA0E4295568CC1D190B
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172465.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172465.jpgsave_picture_172465.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:99ABFB1260ECFB8F423E8D3061C6A0CC93DEF65F
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172466.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172466.jpgsave_picture_172466.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Audio Hijack 4.2.5 fc1 Beta [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172467.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172467.jpgsave_picture_172467.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Perfectly Clear WorkBench 4.6.0.2610 RePack (& Portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172468.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172468.jpgsave_picture_172468.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ reaConverter Pro 7.796 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172469.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172469.jpgsave_picture_172469.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ coconutBattery 3 Plus for Mac 3.9.14 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172470.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172470.jpgsave_picture_172470.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Topaz Video AI for Mac 4.0.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172472.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172472.jpgsave_picture_172472.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ magnet:?xt=urn:btih:A0ED7826207F002A51A47EDA8E65DB3E4DB55A42
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172473.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172473.jpgsave_picture_172473.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ magnet:?xt=urn:btih:9A33D9D77A77FE54A746AA73111563F1BBDB01CE
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172474.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172474.jpgsave_picture_172474.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:D528C67AC51D4271A19479813A0853B6A473FBD5
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172475.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172475.jpgsave_picture_172475.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ O&O DiskImage Professional 18.4 Build 326 RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172476.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172476.jpgsave_picture_172476.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Photo Supreme 2023.2.0.5063 (x64) RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172477.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172477.jpgsave_picture_172477.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ magnet:?xt=urn:btih:AE343A2A85F596D3757F1847926CE791641A0FFC
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172478.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172478.jpgsave_picture_172478.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ Freddie Gibbs - $oul $old $eparately (2022) Bonus Edition [FLAC|Lossless|Web-DL|
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172479.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172479.jpgsave_picture_172479.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ magnet:?xt=urn:btih:90C56B8C5A92D75086E74F601C887201921DCD1F
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172480.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172480.jpgsave_picture_172480.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ High-Logic FontCreator Professional 15.0.0.2942 Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172481.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172481.jpgsave_picture_172481.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ System Dashboard 4.9.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172482.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172482.jpgsave_picture_172482.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Widgetter - Desktop Widgets for Mac 1.16.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172483.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172483.jpgsave_picture_172483.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ FireAlpaca 2.11.10 + Standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172484.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172484.jpgsave_picture_172484.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Canary Mail 4.22 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172485.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172485.jpgsave_picture_172485.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Musify for Mac 3.4.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172486.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172486.jpgsave_picture_172486.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Amorphis - Queen Of Time - Live At Tavastia (2023) [FLAC|Lossless|image + .cue] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172487.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172487.jpgsave_picture_172487.jpg" />
 </div>
 
 

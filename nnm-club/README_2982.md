@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89095.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89095.jpgsave_picture_89095.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89096.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89096.jpgsave_picture_89096.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Steinberg - Groove Agent 2.0.0 Build 29 INTERNAL(Rebuild SynsoEmu) by AiR.ISO[VS
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89098.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89098.jpgsave_picture_89098.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Steinberg - Groove Agent 2.0.0 Build 29 INTERNAL(Rebuild SynsoEmu) by AiR.ISO[VS
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89099.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89099.jpgsave_picture_89099.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:264B943EDE55847615E694ED4458F75E89CF8598
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89102.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89102.jpgsave_picture_89102.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ There & Back (L) [En] 2012
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89104.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89104.jpgsave_picture_89104.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ SCP-087 B [En] (P) 2012
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89105.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89105.jpgsave_picture_89105.jpg" />
 </div>
 
 
@@ -187,7 +187,7 @@ magnet:?xt=urn:btih:789B8B318756F6F24FB59C0B1C1C07123610FC70
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89107.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89107.jpgsave_picture_89107.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ magnet:?xt=urn:btih:E326C8A006BD4D382326BF47E3C287E7FBBB84AF
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89108.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89108.jpgsave_picture_89108.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ Evgeniyuser | Объединенная кулинарная книга дока 
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89109.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89109.jpgsave_picture_89109.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ magnet:?xt=urn:btih:D06CA0F305D38AA293367860848A35105FD28C22
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89115.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89115.jpgsave_picture_89115.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ AbelCam 4.2.6 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89116.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89116.jpgsave_picture_89116.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Plugin Alliance - Noveltech Character v1.1.1 x86.x64 [VST|VST3|RTAS][англи�
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89117.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89117.jpgsave_picture_89117.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Plugin Alliance Noveltech Character - плагин, который самост�
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89121.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89121.jpgsave_picture_89121.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:02B11254CC59152F70221FA7E16F51412A9FD537
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89126.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89126.jpgsave_picture_89126.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Total War: Shogun 2 - Fall of the Samurai / Закат Самураев (Repack)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89129.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89129.jpgsave_picture_89129.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ SOFTPIR WPI Professional v.04.12 (x32/x64/ML/RUS/XP/Vista/7)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89130.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89130.jpgsave_picture_89130.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Tribes: Ascend [En] {1.0.905.0} (L) 2012
 >>Online Action (MMO)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89133.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89133.jpgsave_picture_89133.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Naval War: Arctic Circle [Multi5/-] (L) 2012 | TiNYiSO
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89134.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89134.jpgsave_picture_89134.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Crusader Kings 2 + 2 DLC [Ru] (RePack/1.04с) 2012 | SxSxL
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89135.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89135.jpgsave_picture_89135.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Terminator 3: War of The Machines / Терминатор 3: Война маши�
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89138.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89138.jpgsave_picture_89138.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ Sony Sound Forge Pro 10.0d Build 503 + Dolby Digital AC-3 Pro + Noise Reduction 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89140.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89140.jpgsave_picture_89140.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ Death Track: Resurrection / Death Track: Возрождение [Ru] (RePack/1.2
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89142.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89142.jpgsave_picture_89142.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ magnet:?xt=urn:btih:EBD76EDD2B634BBF3B9AB49824DAD1A5E2E40EDC
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89144.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89144.jpgsave_picture_89144.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ VA - Танцевальный Рай Русский (2012) [MP3|256 кб/с]<Pop
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89148.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89148.jpgsave_picture_89148.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ DK Preschool | Лисёнок : Смотри, как они растут! [2008]
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89149.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89149.jpgsave_picture_89149.jpg" />
 </div>
 
 

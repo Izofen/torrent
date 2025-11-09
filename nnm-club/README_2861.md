@@ -6,7 +6,7 @@ VA - Romantic Collection - Ballads about love (2012) [MP3|256 kbps]<Pop>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83494.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83494.jpgsave_picture_83494.jpg" />
 </div>
 
 
@@ -39,7 +39,7 @@ Trojan Remover 6.8.3.2601 от 19.03.2012 [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83503.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83503.jpgsave_picture_83503.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ Yesterday / Yesterday: Печать Люцифера [Ru] (Lossless RePack) 2012
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83504.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83504.jpgsave_picture_83504.jpg" />
 </div>
 
 
@@ -92,7 +92,7 @@ magnet:?xt=urn:btih:B32115D78D5512BFD96E7188E6F4CE54DAB4B9D9
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83505.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83505.jpgsave_picture_83505.jpg" />
 </div>
 
 
@@ -117,7 +117,7 @@ Liong: The Lost Amulets / Liong. Утраченные амулеты (P) [Ru] 20
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83509.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83509.jpgsave_picture_83509.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Transform Windows 7 to Noroz Persian New Year 2012 [Rus/Eng]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83510.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83510.jpgsave_picture_83510.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Transform Windows 7 to Noroz Persian New Year 2012 [Rus/Eng]
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83513.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83513.jpgsave_picture_83513.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Cannibal Corpse - 12 альбомов (1990 - 2012) [MP3|320 кб/с]<Brutal dea
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83514.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83514.jpgsave_picture_83514.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Torin's Passage / Странствия Торина [Ru] (RePack) 1995 | DosPet
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83515.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83515.jpgsave_picture_83515.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:9F576D61D45A3A8FD1CAACECCC0C9809FB047121
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83516.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83516.jpgsave_picture_83516.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ Lacing Art - это программа-инструкция для того, ч�
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83517.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83517.jpgsave_picture_83517.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ The KMPlayer 3.2.0.13 Final + Portable by PortableAppZ + Skins [Мульти, е
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83519.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83519.jpgsave_picture_83519.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ KMPlayer - это универсальный проигрыватель, кот�
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83520.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83520.jpgsave_picture_83520.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Waveform (P) [En] 2012 | THETA
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83524.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83524.jpgsave_picture_83524.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ magnet:?xt=urn:btih:6EB5E74FFDD70C13559DD3E35CE88366961C8C49
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83525.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83525.jpgsave_picture_83525.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ magnet:?xt=urn:btih:AB2370E8DC320F529232D03CB5F78083FA5A9C02
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83529.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83529.jpgsave_picture_83529.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ magnet:?xt=urn:btih:AB2370E8DC320F529232D03CB5F78083FA5A9C02
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83530.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83530.jpgsave_picture_83530.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ magnet:?xt=urn:btih:42963431995CCDD18B5CD54A10C5FEB55255F439
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83532.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83532.jpgsave_picture_83532.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ magnet:?xt=urn:btih:BEA3CA3316FE2873A605CCDEE270CFF8288DC06C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83533.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83533.jpgsave_picture_83533.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ magnet:?xt=urn:btih:9487D9CAF9493B64C735DD6EAFDB800DEC2AD87E
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83535.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83535.jpgsave_picture_83535.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ magnet:?xt=urn:btih:9487D9CAF9493B64C735DD6EAFDB800DEC2AD87E
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83539.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83539.jpgsave_picture_83539.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ magnet:?xt=urn:btih:AA2CDD4B87E43ABEA3D9FB40A2636DA798B52DEA
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83541.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83541.jpgsave_picture_83541.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ magnet:?xt=urn:btih:7FE6BF5C6B49A0AD280CB0E4794A8165537BA8A8
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83542.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83542.jpgsave_picture_83542.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ magnet:?xt=urn:btih:7FE6BF5C6B49A0AD280CB0E4794A8165537BA8A8
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83547.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83547.jpgsave_picture_83547.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ Tie Deluxe - лучшая программа по завязыванию гал�
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83549.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83549.jpgsave_picture_83549.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ Sothink SWF Easy 6.6.546 Portable [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83551.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83551.jpgsave_picture_83551.jpg" />
 </div>
 
 

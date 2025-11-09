@@ -6,7 +6,7 @@ Moon+ Reader Pro v10.2 (b1002000) Mod by Lucky Las [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100868.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100868.jpgsave_picture_100868.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:CA31A7C96C053CA446C0BB97B51F8D01E7690042
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100869.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100869.jpgsave_picture_100869.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Boku no Hero Academia Final Season | My Hero Academia Final Season | Моя ге
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100870.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100870.jpgsave_picture_100870.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ GNOG (2018) [Ru/Multi] (1.0.7) License GOG [VR]
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100871.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100871.jpgsave_picture_100871.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:A28A89F6B5F8F1CC7A4371509B5D91D2D2D387C4
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100872.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100872.jpgsave_picture_100872.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ StartAllBack 3.9.16 StartIsBack++ 2.9.20 (2.9.1) StartIsBack + 1.7.6 RePack by K
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100873.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100873.jpgsave_picture_100873.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Nageki no Bourei wa Intai Shitai 2 / Let This Grieving Soul Retire! 2 / Скор
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100874.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100874.jpgsave_picture_100874.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Spy x Family 3 / Семья шпиона 3 [2025, TV, 1 из ?] WEBRip 720p raw
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100875.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100875.jpgsave_picture_100875.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Macrorit Partition Expert 8.6.0 Technician Edition RePack by KpoJIuK [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100876.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100876.jpgsave_picture_100876.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:CCF843E2495DAAECF0D9186F465F8E7E9F61850F
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100877.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100877.jpgsave_picture_100877.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ AlimkhanOV A. - Black (The 4th Album) (2024) [MP3|320 Kbps] <Italo-Disco, Euro-D
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100878.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100878.jpgsave_picture_100878.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ magnet:?xt=urn:btih:5A64BEC4D256BF702D6D4122F2442F683DD3BD45
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100879.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100879.jpgsave_picture_100879.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:E7F2091FD03CDDECC0E45DA42F3CD6C5E72B29FB
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100880.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100880.jpgsave_picture_100880.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:3B2D692915D17FA6932653B49B6822B9A20BC22E
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100881.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100881.jpgsave_picture_100881.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ magnet:?xt=urn:btih:35F97BAA76201E555CD33052307E93B5DE47A747
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100882.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100882.jpgsave_picture_100882.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Lynyrd Skynyrd - Comin' Down (Live Mountain View 1988) (2023) [MP3|320 Kbps] <So
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100883.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100883.jpgsave_picture_100883.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ VA - Evolving Horizons: Progressive Trance Chronicles, Vol. 07 (2024) [MP3|320 K
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100884.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100884.jpgsave_picture_100884.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ Coheed and Cambria - Claudio Covers (2024) [FLAC|Lossless|WEB-DL|tracks] <Alt.Ro
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100885.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100885.jpgsave_picture_100885.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ Dave Koz & Friends - Christmas Ballads: 25th Anniversary Collection (2022) Just 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100886.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100886.jpgsave_picture_100886.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ Rencontre Nocturne - Recap 2024 (2024-12-18) [MP3|320 Kbps] <Progressive House>
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100887.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100887.jpgsave_picture_100887.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Bill Harris - Holiday Improvisations (1998) Daddy Jazz Records [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100888.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100888.jpgsave_picture_100888.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ magnet:?xt=urn:btih:FDF8B4B40D44F0EC15621E9573DEBD1657A60CC0
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100890.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100890.jpgsave_picture_100890.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ VA - Musical kaleidoscope part 55 Assorted (2025) [MP3|320 Kbps] <Electronic, Ea
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100891.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100891.jpgsave_picture_100891.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ VA - Musical kaleidoscope part 56 Assorted (2025) [MP3|320 Kbps] <Electronic, Ea
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100892.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100892.jpgsave_picture_100892.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Sardø - Favorites Collection Part 4 (2025) [MP3|320 Kbps] <Electronic, Vocal>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100893.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100893.jpgsave_picture_100893.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ magnet:?xt=urn:btih:3166098A34FFFDCEC5EE53A2CB02541D55227584
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100894.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100894.jpgsave_picture_100894.jpg" />
 </div>
 
 

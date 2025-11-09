@@ -6,7 +6,7 @@ Adrenaline Mob - Studio Albums (4 releases) (2012-2017) hand made [restored, dec
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184834.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184834.jpgsave_picture_184834.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Cliff Richard - Wired For Sound (1981) [FLAC 2.0|24/192|image + .cue|Vinyl-Rip] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185442.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185442.jpgsave_picture_185442.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Wolfheart - Studio Albums (7 releases) (2013-2025) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186102.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186102.jpgsave_picture_186102.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Jethro Tull - The Broadsword and the Beast (1982) 3DVD, 40th Anniversary Monster
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186223.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186223.jpgsave_picture_186223.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Sirenia - Studio Albums (12 releases) (2002-2023) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186425.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186425.jpgsave_picture_186425.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ A Golden Hour From Winchester Cathedral, soloist Timothy Wilson - Hear My Prayer
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186428.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186428.jpgsave_picture_186428.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Mortemia - Studio Albums (2 releases) (2010-2022) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186440.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186440.jpgsave_picture_186440.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ The Halle Orchestra · Conducted by Sir John Barbirolli - Sibelius - Finlandia �
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186451.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186451.jpgsave_picture_186451.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ The Virtuosi Of England, Conducted by Arthur Davison - Henry Purcell - Purcell C
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186830.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186830.jpgsave_picture_186830.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Rage Against The Machine - Studio Albums (4 releases) (1992 - 2000) hand made [r
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187128.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187128.jpgsave_picture_187128.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Heavenly - Studio Albums (5 releases) (2000-2009) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187193.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187193.jpgsave_picture_187193.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Coldstream Guards - Changing The Guard At Buckingham Palace (1983) [FLAC 2.0|24/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187201.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187201.jpgsave_picture_187201.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ VA - Favourite Operatic Duets - Duets From Composers Operas Rossini, Verdi, Pucc
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187452.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187452.jpgsave_picture_187452.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Timo Tolkki's Avalon - Angels of the Apocalypse (2014) [FLAC|24/96|tracks|Vinyl-
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187530.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187530.jpgsave_picture_187530.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Seventh Wonder - Studio Albums (6 releases) (2005-2022) hand made [restored, dec
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188078.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188078.jpgsave_picture_188078.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Vince Neil (Motley Crue) - Studio Albums (3 releases) (1993-2010) hand made [res
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188101.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188101.jpgsave_picture_188101.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ Mark Boals (Shining Black; The Codex) - Studio Albums (6 releases) (1998-2022) h
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188255.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188255.jpgsave_picture_188255.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ Vindictiv - Studio Albums (4 releases) (2008-2016) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188279.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188279.jpgsave_picture_188279.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ Rage of Angels - Rage of Angels (1989) [WavPack|32/192|image + .cue|Vinyl-Rip] <
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188544.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188544.jpgsave_picture_188544.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Demons & Wizards (Blind Guardian; Iced Earth) - Studio Albums (3 releases) (2000
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188563.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188563.jpgsave_picture_188563.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Suzi Quatro - Uncovered (2022) [DSD 128|tracks|Vinyl-Rip] <Glam-Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188658.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188658.jpgsave_picture_188658.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Berlin Philharmonic Orchestra • Herbert von Karajan - Beethoven - Symphony No.
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188800.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188800.jpgsave_picture_188800.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ magnet:?xt=urn:btih:807D506B06458F8CABD9B7E1C4F8DBE4D4B76BE0
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189034.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189034.jpgsave_picture_189034.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ Suzi Quatro - Suzi Quatro (1973) [DSD 128|tracks|Vinyl-Rip] <Glam, Hard Rock, Ro
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189035.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189035.jpgsave_picture_189035.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ Johann Strauss - Vienna Promenade Orchestra - The Strauss Selection (1973) [FLAC
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189373.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189373.jpgsave_picture_189373.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Roger Whittaker - Butterfly (1979) [FLAC 2.0|24/192|image + .cue|Vinyl-Rip] <Pop
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189404.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189404.jpgsave_picture_189404.jpg" />
 </div>
 
 

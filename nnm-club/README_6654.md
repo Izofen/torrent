@@ -6,7 +6,7 @@ The Royal Beggars - Falling To New Heights (2023) [FLAC|Lossless|WEB-DL|tracks] 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224974.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224974.jpgsave_picture_224974.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Voyager - Fearless In Love (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224980.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224980.jpgsave_picture_224980.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Until The Sun - Enchantment (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Blu
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224988.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224988.jpgsave_picture_224988.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ The Small Kicks - Get American! (2023) [FLAC|Lossless|WEB-DL|tracks] <Classic Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224996.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224996.jpgsave_picture_224996.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Teeth - Unremittance (2014) [FLAC|Lossless|WEB-DL|tracks] <Death, Sludge Metal, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225005.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225005.jpgsave_picture_225005.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Hal Singer With Charlie Shavers - Blue Stompin' (1957) 1994, Original Jazz Class
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225014.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225014.jpgsave_picture_225014.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Vampyroteuthis Infernalis - Vampyroteuthis Infernalis (2022) [FLAC|Lossless|WEB-
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225023.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225023.jpgsave_picture_225023.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Gatoebrio - 2 Albums (2020-2023) [MP3|320 Kbps] <Heavy Metal, Doom Metal, Hard R
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225030.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225030.jpgsave_picture_225030.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ DirEqual 5.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225037.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225037.jpgsave_picture_225037.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Virgin Black - Requiem - Pianissimo (2018) [FLAC|Lossless|WEB-DL|tracks] <Doom, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225046.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225046.jpgsave_picture_225046.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Viper FTP 6.3.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225055.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225055.jpgsave_picture_225055.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Skeleton - Our Way (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225064.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225064.jpgsave_picture_225064.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Wolves of AhPuch - La Ascension Del Pukuj (2021) [FLAC|Lossless|image + .cue] <B
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225072.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225072.jpgsave_picture_225072.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ SnippetsLab 2.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225082.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225082.jpgsave_picture_225082.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ URL Manager Pro 6.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225090.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225090.jpgsave_picture_225090.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ SiteSucker 5.1.10 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225102.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225102.jpgsave_picture_225102.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Tinderbox 9 v.9.6.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225139.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225139.jpgsave_picture_225139.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Lasso 1.5.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225147.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225147.jpgsave_picture_225147.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ magnet:?xt=urn:btih:22C9043B89BA02593C4C9D35ABF2DB9848B6C5BF
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225290.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225290.jpgsave_picture_225290.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ magnet:?xt=urn:btih:175932F2CF284A9E55793DDF70012F79448FFE79
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225330.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225330.jpgsave_picture_225330.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ djay - DJ App & AI Mixer 4.1.10 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225417.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225417.jpgsave_picture_225417.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:2505A5E61694B990481D58879C523E94961FF506
 >>История
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225426.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225426.jpgsave_picture_225426.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ ExamDiff Pro Master Edition 14.0.1.10 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225433.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225433.jpgsave_picture_225433.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Ocenaudio 3.12.5 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225443.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225443.jpgsave_picture_225443.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ magnet:?xt=urn:btih:B04C17FFBDA6B732A6FBFF43B3132011271CDF01
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225451.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225451.jpgsave_picture_225451.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ Brian Bromberg - The Magic of Moonlight (2023) [FLAC|Lossless|WEB-DL|tracks] <Sm
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225458.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225458.jpgsave_picture_225458.jpg" />
 </div>
 
 

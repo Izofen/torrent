@@ -6,7 +6,7 @@ Sainted Sinners - Taste It (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229374.jpgsave_picture_229374.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Nevergreen - Ab Ovo (2003) [FLAC|Lossless|image + .cue] <Gothic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229375.jpgsave_picture_229375.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Privacy Eraser Free 5.5.0 Build 3721 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229376.jpgsave_picture_229376.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ magnet:?xt=urn:btih:833182E8710E40A0C08AA640219A32EAA22BAD98
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229377.jpgsave_picture_229377.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ magnet:?xt=urn:btih:2E75C0CDAE60E9E78D42DA68A6F486BFCB1BFC05
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229379.jpgsave_picture_229379.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ Night Legion - Night Legion (2017) [MP3|320 Kbps] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_229380.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_229380.jpgsave_picture_229380.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ magnet:?xt=urn:btih:64E8FAC47E7FFF1A9F1003848322092CA5CEB96C
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229383.jpgsave_picture_229383.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ magnet:?xt=urn:btih:01F6310EE794396D982FFA5741F963D53316AC1C
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229384.jpgsave_picture_229384.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ Droneghost - Curse (2019) [FLAC|Lossless|WEB-DL|tracks] <Techno, Ambient>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229385.jpgsave_picture_229385.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ magnet:?xt=urn:btih:B30E55CE2C47AD4FA756C69213AC4AEFE6B925C1
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229386.jpgsave_picture_229386.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ FSNotes 6.4.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_229388.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_229388.jpgsave_picture_229388.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ magnet:?xt=urn:btih:ED3EAF0729DFC54350791429C7F04AC5749D8BE1
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229389.jpgsave_picture_229389.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ flap+frog - 13 альбомов (2008-2013) Touhou Instrumental /Doujin/[FLAC|Lo
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229390.jpgsave_picture_229390.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Fancy - D.I.S.C.O. (1999) [FLAC|Lossless|image + .cue] <Euro-Disco, Eurodance>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229392.jpgsave_picture_229392.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ magnet:?xt=urn:btih:D223E415F68D12ABC4AFC8B872187E9CAB6C4781
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229393.jpgsave_picture_229393.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ magnet:?xt=urn:btih:6D9589FC9B7D144A3202DF2A7C55BCA2A13FB8FF
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229394.jpgsave_picture_229394.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ magnet:?xt=urn:btih:709EE4CDE1A7DF457DF4BA11FFCBC623958E24DF
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229395.jpgsave_picture_229395.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ iNet Network Scanner 2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_229396.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_229396.jpgsave_picture_229396.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ magnet:?xt=urn:btih:332F8BFF8A65A984E8C7315814FDBE5756B06675
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229397.jpgsave_picture_229397.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Paul Van Dyk - Music Rescues Me (2018) [FLAC|Lossless|WEB-DL|tracks] <Trance>
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229400.jpgsave_picture_229400.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ Smultron 12.0.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229402.jpgsave_picture_229402.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ magnet:?xt=urn:btih:71A4BE09D9C6DFE538CB1F709E7CA0B7B3262107
 >>Футбол
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229403.jpgsave_picture_229403.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ Mimestream 1.0.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_229404.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_229404.jpgsave_picture_229404.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ magnet:?xt=urn:btih:D668FA340AE4FD14E6FB626F09E10CBF0728BF1A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229405.jpgsave_picture_229405.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ ReviverSoft Driver Reviver 5.3.2.50 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229406.jpgsave_picture_229406.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ DVJ Bazuka - Rock'n'Roll (2012) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229407.jpgsave_picture_229407.jpg" />
 </div>
 
 

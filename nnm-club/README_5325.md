@@ -6,7 +6,7 @@ Opera GX 102.0.4880.117 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165279.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165279.jpgsave_picture_165279.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:E73BD5BF70A37AED053461D028CFC0A705D27F0A
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165280.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165280.jpgsave_picture_165280.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ BBEdit 14.6.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165281.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165281.jpgsave_picture_165281.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ Oceans of Slumber - Aetherial (2013) [FLAC|Lossless|image + .cue] <Progressive M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165282.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165282.jpgsave_picture_165282.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ magnet:?xt=urn:btih:4C7D4DD5509E0800D3CDE8C70948562179A88A8C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165283.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165283.jpgsave_picture_165283.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ magnet:?xt=urn:btih:992ED841A6B76F7312B57CB4DD954C10106E1B41
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165284.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165284.jpgsave_picture_165284.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ magnet:?xt=urn:btih:E643BE5AA5FABF5C1139A6CDAE9ADA999286C2EB
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165285.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165285.jpgsave_picture_165285.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ Pale Moon 32.5.0 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165286.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165286.jpgsave_picture_165286.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:9F501ECBF30763AA08FADD0290105590DE08EB43
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165287.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165287.jpgsave_picture_165287.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ MarsEdit 4 v.5.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165288.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165288.jpgsave_picture_165288.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ VA - Erotica, Vol. 6 (2021) [AAC|~322 Kbps] <Electronic, Chill Out, Lounge>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165289.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165289.jpgsave_picture_165289.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ magnet:?xt=urn:btih:F90F0A24C6F87826356B5C7B7573E00B04A28E60
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165290.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165290.jpgsave_picture_165290.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:30900626847B9769C76B77AC82C71240F8909A38
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165291.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165291.jpgsave_picture_165291.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Timemator 3.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165292.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165292.jpgsave_picture_165292.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ magnet:?xt=urn:btih:6D115B0F6FAA66DFFBD27D4761A654F0F30807E7
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165293.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165293.jpgsave_picture_165293.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ magnet:?xt=urn:btih:482BD9477448B1FFFE370178F686809A2F040A7B
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165294.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165294.jpgsave_picture_165294.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Navicat Premium 15.0.24 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165295.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165295.jpgsave_picture_165295.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ magnet:?xt=urn:btih:FA748336E939AC267BDAE8C5762E91A6DA6868E0
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165296.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165296.jpgsave_picture_165296.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ magnet:?xt=urn:btih:908820CB7177E945C96D365E31D1112D17A8F4AB
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165297.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165297.jpgsave_picture_165297.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ Neil Young With Crazy Horse - Barn (2021) [FLAC|Lossless|track+.cue] <Country Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165298.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165298.jpgsave_picture_165298.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ magnet:?xt=urn:btih:27CF0A93CCA9270153E66C7B80D0A1530E30B904
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165299.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165299.jpgsave_picture_165299.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ magnet:?xt=urn:btih:36F2BBE0C50B45EF35D30BE13F8923CFB5831ACB
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165300.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165300.jpgsave_picture_165300.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ Opera GX 72.0.3815.450 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165301.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165301.jpgsave_picture_165301.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ Bakuten!! | Backflip!! | Сальто назад! [2021, TV, 12 из 12] BDRip 1
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165302.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165302.jpgsave_picture_165302.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Kenny Drew, Jr. - Kenny Drew, Jr. (1991) Antilles [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165303.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165303.jpgsave_picture_165303.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ Anat Cohen - Claroscuro (2012) Anzic Records [FLAC|Lossless|tracks + .cue] <Mode
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165304.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165304.jpgsave_picture_165304.jpg" />
 </div>
 
 

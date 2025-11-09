@@ -6,7 +6,7 @@ Wolfenstein: Youngblood (2019) [Ru/Multi] (11991189/dlc) Repack Decepticon [Delu
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50199.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50199.jpgsave_picture_50199.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:8141B628C75CF3F20ACD89877886D0AA1DC80986
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50200.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50200.jpgsave_picture_50200.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:B60F77C1FE3F275572304C3BAB7BC9D779D77CC4
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50201.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50201.jpgsave_picture_50201.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ Starsand (2022) [Ru/Multi] (1.0.9) License GOG [Digital Supporter Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50202.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50202.jpgsave_picture_50202.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:DAE40102C7F6CA04EFF6331AB4DFD83DE2BAEF4F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50203.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50203.jpgsave_picture_50203.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:321F4CC2E6ED0781CBD21016E0064891A4E6D440
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50204.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50204.jpgsave_picture_50204.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Mensh | Роутер FreeBSD 8 с билингом Nodeny [2010] VM Ware Rec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50205.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50205.jpgsave_picture_50205.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:156EAF3EEAE1105FA1D800756FBCEF00F3AE279A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50206.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50206.jpgsave_picture_50206.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:B4030E937A0D9827E9755405A5CED59AFCA768BA
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50207.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50207.jpgsave_picture_50207.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Clash II (2) (2022) [Multi] (497) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50208.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50208.jpgsave_picture_50208.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:4E7A4B5E7D4E26A94CCABD9090C356338C5F62B6
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50209.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50209.jpgsave_picture_50209.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ ZZ Top: Greatest Hits (2004) DVD5
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50210.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50210.jpgsave_picture_50210.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ magnet:?xt=urn:btih:871AFA9761BC49C91AFB7AB29ECE1794E23F64D2
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50211.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50211.jpgsave_picture_50211.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ magnet:?xt=urn:btih:19EFC0B8B317ADEBB06CB684ED3AB586815A1316
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50212.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50212.jpgsave_picture_50212.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Euro Truck Simulator 2 (2013) [Ru/Multi] (1.50.3.7s/dlc) Repack dixen18
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50213.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50213.jpgsave_picture_50213.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ magnet:?xt=urn:btih:665473121583DDE63EDAD9ECDBC57497EC3CA1A0
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50214.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50214.jpgsave_picture_50214.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ magnet:?xt=urn:btih:F1B8914B805AE9A1A68E2899ADEF3A01EE78821F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50215.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50215.jpgsave_picture_50215.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ magnet:?xt=urn:btih:8D8C60FCFAEF7C13629F9DEBA5CBD75BE924AC70
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50216.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50216.jpgsave_picture_50216.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ magnet:?xt=urn:btih:66B0C60E8EBB72E2AC0F238AD3520BBA865FDA66
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50217.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50217.jpgsave_picture_50217.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ Plugin Alliance & TBTECH Kirchhoff-EQ 1.7.0 VST, VST 3, AAX (x64) RePack by TCD 
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50218.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50218.jpgsave_picture_50218.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ magnet:?xt=urn:btih:1EB7B5318FFE6E90E1A0F90DAFEC5B49D631030D
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50219.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50219.jpgsave_picture_50219.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ magnet:?xt=urn:btih:8C5C7DA9AF68D2610139C6890BA05DE81301C177
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50220.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50220.jpgsave_picture_50220.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ magnet:?xt=urn:btih:8C5C7DA9AF68D2610139C6890BA05DE81301C177
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50221.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50221.jpgsave_picture_50221.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:7C0B3F00DFB4BE4140460438A6D505E686D19506
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50222.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50222.jpgsave_picture_50222.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Apocalyptica - Plays Metallica, Vol. 2 (2024) [FLAC 24/48|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50223.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50223.jpgsave_picture_50223.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Blank & Jones - Relax Edition 15 (2024) [FLAC|Lossless|WEB-DL|tracks] <Electroni
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50224.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50224.jpgsave_picture_50224.jpg" />
 </div>
 
 

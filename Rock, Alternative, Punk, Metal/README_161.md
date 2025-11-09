@@ -6,7 +6,7 @@ VA - 2020s Rock Attitude (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114328.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114328.jpgsave_picture_114328.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Асса (1996) [FLAC|Lossless|image + .cue] <Rock, Soundtrack>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114363.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114363.jpgsave_picture_114363.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Absolon - A Portrait of Madness (2023) [FLAC|Lossless|WEB-DL|tracks] <Power Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114475.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114475.jpgsave_picture_114475.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Coltre - To Watch with Hands... To Touch with Eyes (2024) [FLAC|Lossless|WEB-DL|
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114476.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114476.jpgsave_picture_114476.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Saturnalia Temple - Paradigm Call (2024) [FLAC|Lossless|WEB-DL|tracks] <Stoner M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114479.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114479.jpgsave_picture_114479.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Believer - Sanity Obscure (1990) [FLAC|Lossless|image + .cue] <Progressive, Tech
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114482.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114482.jpgsave_picture_114482.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Borknagar - Fall (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Viking, Folk,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114490.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114490.jpgsave_picture_114490.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Nigel Olsson - Nigel Olsson's Drum Orchestra And Chorus (1971) LP [MP3|320 Kbps]
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114495.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114495.jpgsave_picture_114495.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Onslaught - Skullcrusher (2024) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114502.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114502.jpgsave_picture_114502.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ The Steve Klatt Project - Dreams & Reality (2024) [FLAC|Lossless|WEB-DL|tracks] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114504.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114504.jpgsave_picture_114504.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Jesse James Dupree - Breathing Fire (2023) [FLAC|Lossless|image + .cue] <Hard Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114506.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114506.jpgsave_picture_114506.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Angels Of Babylon - Aquarius (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114510.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114510.jpgsave_picture_114510.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Believer - Extraction from Mortality (1989) Reissue, 2001, Millenium Eight Recor
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114607.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114607.jpgsave_picture_114607.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Suicidal Angels - Profane Prayer (2024) [FLAC|Lossless|image + .cue] <Thrash Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114608.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114608.jpgsave_picture_114608.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Blood Opera - Songs in the Key of Death (2024) [FLAC|Lossless|WEB-DL|tracks] <He
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114615.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114615.jpgsave_picture_114615.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Blind Channel - Exit Emotions (2024) [FLAC|Lossless|WEB-DL|tracks] <Nu Metal, Al
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114616.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114616.jpgsave_picture_114616.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Toadliquor - Back In The Hole (2024) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114625.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114625.jpgsave_picture_114625.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Ministry - HOPIUMFORTHEMASSES (2024) [FLAC|Lossless|WEB-DL|tracks] <Industrial M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114629.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114629.jpgsave_picture_114629.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Believer - Extraction from Mortality (1989) Reissue, 2007, Metal Mind Production
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114646.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114646.jpgsave_picture_114646.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:48876EEEE651E146C24E0516159DB5998F69E103
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114664.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114664.jpgsave_picture_114664.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Simon Stanley Ward and The Shadows of Doubt - Rocket in the Desert (2024) [FLAC|
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114789.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114789.jpgsave_picture_114789.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:2D98B8F4801334AD5A508EE51475A34B6EB2F804
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114790.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114790.jpgsave_picture_114790.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ David Reece - Baptized By Fire (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114798.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114798.jpgsave_picture_114798.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Averoth - Burden of My Life (2010) EP [FLAC|Lossless|tracks] <Melodic Death, Doo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114805.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114805.jpgsave_picture_114805.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ David Reece - Baptized By Fire (2024) [MP3|320 Kbps] <Heavy Metal, Hard Rock>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114820.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114820.jpgsave_picture_114820.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ New Years Day - Half Black Heart (2024) [FLAC|Lossless|WEB-DL|tracks] <Alt. Meta
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114827.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114827.jpgsave_picture_114827.jpg" />
 </div>
 
 

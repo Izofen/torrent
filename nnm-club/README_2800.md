@@ -6,7 +6,7 @@ Billiards Pyramid (L) [En] (2011)
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80031.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80031.jpgsave_picture_80031.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:2C9DAA6C30627A7DDEA1658BA7FC43A8488A0D59
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80032.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80032.jpgsave_picture_80032.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:65CD5D6041F7538DC36B571CC5A75AD6F3556B9B
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80034.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80034.jpgsave_picture_80034.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Whitesnake - Best Ballads (2000) [MP3|320 кб/с]<Hard/Glam Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80036.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80036.jpgsave_picture_80036.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ magnet:?xt=urn:btih:DA31BFD56A6E4F1546610632C45502C2B5B3BF60
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80042.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80042.jpgsave_picture_80042.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ magnet:?xt=urn:btih:F1FB061AF3397C149FE79AE87127CE2D27DDC54F
 >>Старые Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80043.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80043.jpgsave_picture_80043.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ magnet:?xt=urn:btih:F1FB061AF3397C149FE79AE87127CE2D27DDC54F
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80044.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80044.jpgsave_picture_80044.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ Playboy: разденьте девушку / Undress a Woman (03.03.2012) SATRip
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80046.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80046.jpgsave_picture_80046.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ magnet:?xt=urn:btih:4D1647DBB0BCE1A3214316A31A3E5A1AB3F8C3A6
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80047.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80047.jpgsave_picture_80047.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ magnet:?xt=urn:btih:E17FA6E59EACA22971673225E59F7B13C7A51AB5
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80048.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80048.jpgsave_picture_80048.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ magnet:?xt=urn:btih:E17FA6E59EACA22971673225E59F7B13C7A51AB5
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80049.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80049.jpgsave_picture_80049.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ magnet:?xt=urn:btih:5C57FD6002DE8F4A9784EA2F1E3B96D0BC14C6F3
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80050.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80050.jpgsave_picture_80050.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ magnet:?xt=urn:btih:83E505EA4FEF0358A681064684442115154F68AE
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80052.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80052.jpgsave_picture_80052.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ magnet:?xt=urn:btih:FCCD1216ACD222FAA0793C39A4E82EA225D58D2F
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80055.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80055.jpgsave_picture_80055.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ magnet:?xt=urn:btih:FCCD1216ACD222FAA0793C39A4E82EA225D58D2F
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80059.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80059.jpgsave_picture_80059.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ magnet:?xt=urn:btih:FCCD1216ACD222FAA0793C39A4E82EA225D58D2F
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80062.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80062.jpgsave_picture_80062.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ magnet:?xt=urn:btih:AD9D1B5300CEAA426CD02D8529BA86F1C36C3F7E
 >>Сериалы без русского перевода (украинская озвучка)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80066.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80066.jpgsave_picture_80066.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ magnet:?xt=urn:btih:AD9D1B5300CEAA426CD02D8529BA86F1C36C3F7E
 >>Сериалы без русского перевода (украинская озвучка)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80067.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80067.jpgsave_picture_80067.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ magnet:?xt=urn:btih:AD9D1B5300CEAA426CD02D8529BA86F1C36C3F7E
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80068.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80068.jpgsave_picture_80068.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ magnet:?xt=urn:btih:8CFD694B29A339C37974CA24121B43876B886EFE
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80071.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80071.jpgsave_picture_80071.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ magnet:?xt=urn:btih:5D959EBDD6BC0107AC46E4488E9CB3BC8055E10B
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80073.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80073.jpgsave_picture_80073.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Microsoft Touch Pack для Windows 7 2010 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80074.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80074.jpgsave_picture_80074.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ Help & Manual Professional 6.0.2 Build 2352 [Eng + Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80075.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80075.jpgsave_picture_80075.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ Help & Manual позволяет создавать файлы и докумен
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80079.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80079.jpgsave_picture_80079.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ Help & Manual позволяет создавать файлы и докумен
 >>Сериалы без русского перевода (украинская озвучка)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80086.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80086.jpgsave_picture_80086.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ Help & Manual позволяет создавать файлы и докумен
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80088.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80088.jpgsave_picture_80088.jpg" />
 </div>
 
 

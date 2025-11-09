@@ -6,7 +6,7 @@
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87083.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87083.jpgsave_picture_87083.jpg" />
 </div>
 
 
@@ -38,7 +38,7 @@ Kaspersky Internet Security 2012 (BOX)  [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87084.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87084.jpgsave_picture_87084.jpg" />
 </div>
 
 
@@ -68,7 +68,7 @@ Kaspersky Internet Security 2012 (BOX)  [Русский]
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87086.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87086.jpgsave_picture_87086.jpg" />
 </div>
 
 
@@ -92,7 +92,7 @@ Corel VideoStudio Pro X5 15.0.0.258 RePack by MKN [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87088.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87088.jpgsave_picture_87088.jpg" />
 </div>
 
 
@@ -118,7 +118,7 @@ Autodesk AutoCAD Design Suite Ultimate 2013 (x64) (Английский)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87089.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87089.jpgsave_picture_87089.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ Autodesk AutoCAD Design Suite Ultimate 2013 - это программный ко
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87091.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87091.jpgsave_picture_87091.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ magnet:?xt=urn:btih:8DA4721DD2B48CCA880F55D18BFE9E6A6F62C5EC
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87092.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87092.jpgsave_picture_87092.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Marc Ecko's Getting Up: Contents Under Pressure [Ru/En] (Lossless RePack) 2006 |
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87094.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87094.jpgsave_picture_87094.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ magnet:?xt=urn:btih:85E46C6FDBD124AB4E98C1046BEFDBF15BDD55F0
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87098.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87098.jpgsave_picture_87098.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ magnet:?xt=urn:btih:43B8BA056AD64F5C32FEC99F2482B21DD94B825D
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87099.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87099.jpgsave_picture_87099.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ magnet:?xt=urn:btih:2F13EFAFA91C736750D31A6DAA8A9BE9343FDDB7
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87102.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87102.jpgsave_picture_87102.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ magnet:?xt=urn:btih:82C595BF538E9FF84EF428334855C34F4FD170C8
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87105.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87105.jpgsave_picture_87105.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ magnet:?xt=urn:btih:A1F9646AA0448C309869E34D940DC35C26E75EBC
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87106.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87106.jpgsave_picture_87106.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Vienna Symphonic Orchestra Project - Symphonic Rock (1987) [MP3|320 кб/с]<Sym
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87108.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87108.jpgsave_picture_87108.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ magnet:?xt=urn:btih:0703F11ABF261EBD160897918AEB04D1ABF68D37
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87110.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87110.jpgsave_picture_87110.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Kaspersky Virus Removal Tool 2011 11.0.0.1245 (2012-04-07) [русский / а�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87112.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87112.jpgsave_picture_87112.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ Kaspersky AVP Tool находит и изолирует: вирусы, троя�
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87113.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87113.jpgsave_picture_87113.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ magnet:?xt=urn:btih:C29AA59B3D564C1D2BEFE831DBB99DA1399D4389
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87114.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87114.jpgsave_picture_87114.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ VA - Best of Europe Club Hits, Vol.2 (The Ultimate Trance and Dance Session) (20
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87117.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87117.jpgsave_picture_87117.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ magnet:?xt=urn:btih:890870F0DB1FC5016A8D363083059FCD656B0B49
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87118.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87118.jpgsave_picture_87118.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ magnet:?xt=urn:btih:D1B25BAA8E4BEFFB2B6A8EA698332EA11FD24529
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87119.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87119.jpgsave_picture_87119.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ magnet:?xt=urn:btih:A3BA846A90D0D51468C04DAAE3B9A027DAA95D30
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87122.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87122.jpgsave_picture_87122.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ magnet:?xt=urn:btih:DD8E9BD41078713EB2C0E5E3A61E61834449DCD4
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87123.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87123.jpgsave_picture_87123.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ magnet:?xt=urn:btih:AEEA14B25EE906A68C3FCF0B83C1A261757AB7DF
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87124.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87124.jpgsave_picture_87124.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ magnet:?xt=urn:btih:1F86877892AF173AE81F11ABA6A6D568F8B606D5
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87126.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87126.jpgsave_picture_87126.jpg" />
 </div>
 
 
@@ -675,7 +675,7 @@ magnet:?xt=urn:btih:7814F40A4184EB3201A29E9A4050DCC359A7F086
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87127.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87127.jpgsave_picture_87127.jpg" />
 </div>
 
 

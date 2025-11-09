@@ -6,7 +6,7 @@
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178847.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178847.jpgsave_picture_178847.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:04C50CCB4A96182EA35CE5735DC2F47FDD4FDF3F
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178849.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178849.jpgsave_picture_178849.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Prince & The New Power Generation - Diamonds and Pearls (1991) Remaster, 2023,  
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178851.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178851.jpgsave_picture_178851.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:91FB828F3EFD453B7F826A32B400FC17D1412EBB
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178852.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178852.jpgsave_picture_178852.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:90CA1F0B47378DC602BBC14AF6D18F63E871142F
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178859.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178859.jpgsave_picture_178859.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:384625BF867AEE58D1F7D5F7F1CD6708CD29D8C3
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178860.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178860.jpgsave_picture_178860.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ VA - Girls Fleetwood Mac Compilation (2023) [MP3|320 Kbps] <Rock, Soft Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178863.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178863.jpgsave_picture_178863.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:C9FBDCBBCDCE8132C15CECFB390F88C0DC2F4A0D
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178864.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178864.jpgsave_picture_178864.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ magnet:?xt=urn:btih:BBB7774D679725C187CDA49A5AADEC2C4BCC8937
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178868.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178868.jpgsave_picture_178868.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ App Builder 2023.60 (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_178871.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_178871.jpgsave_picture_178871.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ IcoFX 3.9 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178877.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178877.jpgsave_picture_178877.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ Rufus 3.21 (Build 1949) Stable + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178878.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178878.jpgsave_picture_178878.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Yes - Yessingles (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_178881.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_178881.jpgsave_picture_178881.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Joe Bonamassa - Blues Deluxe Vol. 2 (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178883.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178883.jpgsave_picture_178883.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Alien Shooter 2 - The Legend (2020) [Ru] (1.2.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178885.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178885.jpgsave_picture_178885.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ magnet:?xt=urn:btih:521DF52A64255CF29FF66B33160C89F11DF59B9B
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178887.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178887.jpgsave_picture_178887.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Joe Bonamassa - Blues Deluxe Vol. 2 (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks]
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178888.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178888.jpgsave_picture_178888.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Adobe Acrobat Reader для PDF 22.10.0.24437 Mod by derrin [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178890.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178890.jpgsave_picture_178890.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ magnet:?xt=urn:btih:CF7A95429A69323C7E02AFA95881237C86D8417A
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178893.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178893.jpgsave_picture_178893.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ RSS Guard 4.5.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178896.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178896.jpgsave_picture_178896.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ magnet:?xt=urn:btih:E4B62A8E3C19713AEB55224932652D5E8C2E37DC
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178899.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178899.jpgsave_picture_178899.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Zucchero - Blue's (1987) [MP3|320 Kbps] <Blues, Pop>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178901.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178901.jpgsave_picture_178901.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ magnet:?xt=urn:btih:D93102286572F0EC25FF02E95F76E3AF2AB435CA
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178902.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178902.jpgsave_picture_178902.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ ChimbaBench v2.5 (3.5.2.0) [En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178904.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178904.jpgsave_picture_178904.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ magnet:?xt=urn:btih:C12C40657BF75511CB9476F076CA95F16416446A
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178907.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178907.jpgsave_picture_178907.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ magnet:?xt=urn:btih:9B79A85AF4D593CF82C92D2CCF0A5B873C49B3BE
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178912.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178912.jpgsave_picture_178912.jpg" />
 </div>
 
 

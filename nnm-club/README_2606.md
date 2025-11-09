@@ -6,7 +6,7 @@ Arthemis - Blood Fury Domination (2017) Japanese Edition [FLAC|Lossless|image + 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68506.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68506.jpgsave_picture_68506.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Enrico Pieranunzi - The Complete Remastered Recordings On Black Saint & Soul Not
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68507.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68507.jpgsave_picture_68507.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Nomy - Saviour (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68508.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68508.jpgsave_picture_68508.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Nothing More - CARNAL (Deluxe) (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Har
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68509.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68509.jpgsave_picture_68509.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ magnet:?xt=urn:btih:4CA6E0CBDE8ED7D9DC7B29D3B7D297C025FDD8E5
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68510.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68510.jpgsave_picture_68510.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Mumford & Sons - Rushmere (2025) [FLAC 16,24/44,1,96|Lossless|WEB-DL|tracks] <Fo
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68511.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68511.jpgsave_picture_68511.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Chamber Mage - By Light Of Emerald Gods (2025) [FLAC|Lossless|WEB-DL|tracks] <He
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68512.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68512.jpgsave_picture_68512.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Janiva Magness - Back For Me (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68513.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68513.jpgsave_picture_68513.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Ginevra - Beyond Tomorrow (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68514.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68514.jpgsave_picture_68514.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ MotoGP. Этап 03 из 22. Гран-при США. Квалификация (2
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68515.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68515.jpgsave_picture_68515.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Octave Lissner - Learning to Live (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68516.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68516.jpgsave_picture_68516.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Dragonslayer - Dragon Drums (2020) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68517.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68517.jpgsave_picture_68517.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Unknown Mortal Orchestra - IC-02 Bogotá (2025) [FLAC 24/48|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68518.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68518.jpgsave_picture_68518.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Anouar Brahem - After the Last Sky (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <C
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68519.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68519.jpgsave_picture_68519.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ LaKnarra - Laknarra (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68520.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68520.jpgsave_picture_68520.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Jerry T. and the Black Alligators - Bourbon Cask Finish (10 Years Edition) (2025
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68521.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68521.jpgsave_picture_68521.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Defacement - Defacement (2021) [FLAC|24/192|image + .cue|Vinyl-Rip] <Death, Blac
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68522.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68522.jpgsave_picture_68522.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ magnet:?xt=urn:btih:71E6FC0E459AA1AB3B3D3C9B79FCDF21A8923D0C
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68523.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68523.jpgsave_picture_68523.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ magnet:?xt=urn:btih:8C85D91F6E2C32B2AD1C91AFF6CC74E97E7F362D
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68524.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68524.jpgsave_picture_68524.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Don Airey - Pushed to the Edge (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68525.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68525.jpgsave_picture_68525.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ magnet:?xt=urn:btih:A6CAC4B4869B261D2DEB51193A2862647E0D2402
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68526.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68526.jpgsave_picture_68526.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ magnet:?xt=urn:btih:726E7CC3CEFED06755FD3E4F1BC8FD5CF22D5320
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68527.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68527.jpgsave_picture_68527.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ MotoGP. Этап 03 из 22. Гран-при США. Спринт (29.03.2025) W
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68528.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68528.jpgsave_picture_68528.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ magnet:?xt=urn:btih:A6FB351BF3738F3FC3F1111D36DBAE091946D092
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68529.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68529.jpgsave_picture_68529.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ magnet:?xt=urn:btih:0C863B8F4E1D90CADD83161699296CF58A0457E7
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68530.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68530.jpgsave_picture_68530.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ Janiva Magness - Back For Me (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68531.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68531.jpgsave_picture_68531.jpg" />
 </div>
 
 

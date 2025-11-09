@@ -6,7 +6,7 @@ Kodi 21.1 (Omega) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44661.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44661.jpgsave_picture_44661.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:0AA5AD53FA8BBA2B46DA965E4A2105C887BA0C11
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44662.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44662.jpgsave_picture_44662.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ HopToDesk 1.42.4.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44663.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44663.jpgsave_picture_44663.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ R-Drive Image Technician 7.2 Build 7205 RePack (& Portable) by KpoJIuK [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44664.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44664.jpgsave_picture_44664.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Sumerian Six (2024) [Ru/Multi] (1.0.0) Repack FitGirl
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44665.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44665.jpgsave_picture_44665.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Akimbot (2024)[Ru/Multi] (1.0) Scene Rune
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44666.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44666.jpgsave_picture_44666.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Monster Jam Showdown (2024) [Multi] (1.0/dlc) Repack FitGirl
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44667.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44667.jpgsave_picture_44667.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:89191AB7917D740C8BFBF57ED8F4F61C8B05DBC8
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44668.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44668.jpgsave_picture_44668.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ Jetbrains WebStorm 2024.2.1 Repack by Sitego [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44669.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44669.jpgsave_picture_44669.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ TechSmith Snagit 2024.2.2 build 3491 (x64) RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44670.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44670.jpgsave_picture_44670.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ magnet:?xt=urn:btih:CAB978F4BDA234894B446B264FF4253A5956B5A4
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44671.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44671.jpgsave_picture_44671.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ magnet:?xt=urn:btih:2773FDB4BE25338061AE35D097BE3A865DFF866F
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44672.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44672.jpgsave_picture_44672.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ DLNow Video Downloader 1.54.2024.09.02 RePack (& Portable) by elchupacabra [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44673.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44673.jpgsave_picture_44673.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ JetBrains CLion 2024.2.1 Repack by Sitego [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44674.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44674.jpgsave_picture_44674.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ Wondershare UniConverter Ultimate 15.7.1.42 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44675.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44675.jpgsave_picture_44675.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ magnet:?xt=urn:btih:87083EFC019181F6586700C7EFEA70EE5705740A
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44676.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44676.jpgsave_picture_44676.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ magnet:?xt=urn:btih:F3A9D9F6E86E789C3F6C5A742936E4D9E945F145
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44677.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44677.jpgsave_picture_44677.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ magnet:?xt=urn:btih:44C3F60E46A9002FD1A48285A87629CC0AD309DB
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44678.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44678.jpgsave_picture_44678.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Steve Angello & AN21 - Size Sound System (01-26) (2023-2024) [MP3|192 Kbps] <Pro
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44679.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44679.jpgsave_picture_44679.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ magnet:?xt=urn:btih:3491D6FE697B9EA8A0CB22436301B6742ABFBAFE
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44680.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44680.jpgsave_picture_44680.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ magnet:?xt=urn:btih:24B85E9B89102AFD33E352EC6137C9F051C39712
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44681.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44681.jpgsave_picture_44681.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ VMware Workstation 17 Pro 17.6.0 Build 24238078 RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44682.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44682.jpgsave_picture_44682.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ magnet:?xt=urn:btih:2D5E6472E23FEB95C722FCA0C0D4251A7619349B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44683.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44683.jpgsave_picture_44683.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Age of Mythology: Retold (2024) [Ru/Multi] (100.17.22308.0/dlc) Scene Tenoke [Pr
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44684.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44684.jpgsave_picture_44684.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Adobe Photoshop Lightroom Classic 2024 13.5.1.1 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44685.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44685.jpgsave_picture_44685.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Veeam Backup & Replication 12.2.0.334 [En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44686.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44686.jpgsave_picture_44686.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Adobe Illustrator 2024 28.7.1.142 + Plug-ins (x64) Portable by 7997 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44479.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44479.jpgsave_picture_44479.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:07C0EC34B2169D822BD3938481401A051D2EB599
 >>Космос
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44480.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44480.jpgsave_picture_44480.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:537099A9C00242AB1D15AFE18E891F386ADBEF68
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44481.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44481.jpgsave_picture_44481.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:489053F3AFB13EE83B4ACC0C3B563BF0675B49AC
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44482.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44482.jpgsave_picture_44482.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ NMG | Автомобильная энциклопедия Кирилла и Ме
 >>Мультимедийные справочники, Энциклопедии
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44483.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44483.jpgsave_picture_44483.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:1114BA3BB7041A07E53561947AC31F0A6938BBEA
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44484.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44484.jpgsave_picture_44484.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ DefenderKiller 12.6 Portable by Vlado [Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44485.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44485.jpgsave_picture_44485.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:1C55040AA145AE8F489F3993F253DF2FB57285C5
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44486.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44486.jpgsave_picture_44486.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:1C55040AA145AE8F489F3993F253DF2FB57285C5
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44487.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44487.jpgsave_picture_44487.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:B10B26D35CCA911A23B34BBD37CBDF2AD275A31D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44488.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44488.jpgsave_picture_44488.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:2FF611F4F59F90D52FADEA417D39C899FC54BB76
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44489.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44489.jpgsave_picture_44489.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:330B1A0F0FBA544336FEA1E38A2733ABCA5160C6
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44490.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44490.jpgsave_picture_44490.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:54C073E28D5988B1FE1193D6A20C73E077264100
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44491.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44491.jpgsave_picture_44491.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Process Lasso Pro 15.0.0.50 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44492.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44492.jpgsave_picture_44492.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ magnet:?xt=urn:btih:8F45D9CCD16A7AAFA26DC69BC9A2ED7F114EE8AD
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44493.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44493.jpgsave_picture_44493.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ magnet:?xt=urn:btih:64EA031161A41C85C184464DB5BAB5BBEDF863DF
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44494.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44494.jpgsave_picture_44494.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ magnet:?xt=urn:btih:E1334036D687E4CE372E2BC2DD212AA2FC2B2580
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44495.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44495.jpgsave_picture_44495.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ VA - Chopin: Classical Piano (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44496.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44496.jpgsave_picture_44496.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ CrystalDiskInfo 9.5.0 Beta 1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44497.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44497.jpgsave_picture_44497.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ Inazuma Eleven GO: Galaxy | Одиннадцать Молний: Только В
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44498.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44498.jpgsave_picture_44498.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ StaxRip 2.42.0 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44499.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44499.jpgsave_picture_44499.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ VA - Oriental Lounge Music (The Finest Selection Arab Ethnic Tribal House Rhythm
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44500.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44500.jpgsave_picture_44500.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ Process Lasso Pro 15.0.0.50 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44501.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44501.jpgsave_picture_44501.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ magnet:?xt=urn:btih:C7C3DDBC30DF9232161BFE77BCA14BBB8081460C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44502.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44502.jpgsave_picture_44502.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ ApowerREC 1.7.2.11 Portable by 7997 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44503.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44503.jpgsave_picture_44503.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ magnet:?xt=urn:btih:664B57523326DBF24EF06B1E4B5E20FC146D3514
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44504.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44504.jpgsave_picture_44504.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2611.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2611.jpgsave_picture_2611.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Sofia Bellini - Favorites Collection Part 2 (2025) [MP3|320 Kbps] <Italodisco, I
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2612.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2612.jpgsave_picture_2612.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ VA - Compilation Part 192 Electronic (2025) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2613.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2613.jpgsave_picture_2613.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Missing Hearts: Crimson Cruise (2025) [Multi] (1.0) Unofficial [Collector's Edit
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2614.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2614.jpgsave_picture_2614.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ VA - Bikini Machines, Vol. 4 (2025) [MP3|320 Kbps] <House, Deep House, Dance, Cl
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2615.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2615.jpgsave_picture_2615.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ VA - Compilation Part 194 Electronic, Vocal (2025) [MP3|320 Kbps] <Electronic, V
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2616.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2616.jpgsave_picture_2616.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ David Bowie - I Can't Give Everything Away (2002 - 2016) (2025) Reissue, Remaste
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2617.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2617.jpgsave_picture_2617.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Talking Luna - Compilation (2025) [MP3|320 Kbps] <Disco, Italo-Disco, Euro-Disco
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2618.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2618.jpgsave_picture_2618.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ VA - Compilation Part 191 Electronic (2025) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2619.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2619.jpgsave_picture_2619.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ VA - Compilation Part 190 Electronic, Vocal (2025) [MP3|320 Kbps] <Electronic, V
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2620.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2620.jpgsave_picture_2620.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ magnet:?xt=urn:btih:757BC4C9D95684FC5190E9689BCEEDDB4E98C747
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2621.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2621.jpgsave_picture_2621.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ VA - Musical kaleidoscope part 53 Assorted (2025) [MP3|320 Kbps] <Electronic, Ea
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2622.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2622.jpgsave_picture_2622.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ magnet:?xt=urn:btih:CCEC7D93C82699F80DD84543390A6D3B0E545EA5
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2623.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2623.jpgsave_picture_2623.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Alex Christensen - Compilation (2025) [MP3|320 Kbps] <Instrumental, Vocal, Other
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2624.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2624.jpgsave_picture_2624.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ VA - Compilation Part 193 Electronic, Vocal (2025) [MP3|320 Kbps] <Electronic, V
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2625.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2625.jpgsave_picture_2625.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ magnet:?xt=urn:btih:01C1DBC6733E5C38B64330603CC97255F40307E9
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2626.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2626.jpgsave_picture_2626.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ magnet:?xt=urn:btih:C4CE7193DEE8DBB83F6E67E438871BE429A7880B
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2627.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2627.jpgsave_picture_2627.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ magnet:?xt=urn:btih:A47D83F925EFC0EA8C72DF1B75CB97ACBA3373FD
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2628.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2628.jpgsave_picture_2628.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ magnet:?xt=urn:btih:E7E00B002F3AEE5E35DFE620684A524932E811F8
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2629.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2629.jpgsave_picture_2629.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Romantic Dreams - Favorites Collection Part 1 (2025) [MP3|320 Kbps] <Disco, Ital
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2630.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2630.jpgsave_picture_2630.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ magnet:?xt=urn:btih:32773D72484D4A72230BD327F875B6A9074A0FE4
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2631.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2631.jpgsave_picture_2631.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ magnet:?xt=urn:btih:BE743031CDFA0FBEAD600F09E86E31E9277BA126
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2632.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2632.jpgsave_picture_2632.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ magnet:?xt=urn:btih:7EAFC68E025976A2530A052A5AE221BF72ECC6F6
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2633.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2633.jpgsave_picture_2633.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ magnet:?xt=urn:btih:475CBA594E74B5096ED2033B4A07A33B9125D247
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2634.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2634.jpgsave_picture_2634.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ Elvis Presley - Compilation (1956-2003) [MP3|320 Kbps] <Rock & Roll, Rockabilly,
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2635.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2635.jpgsave_picture_2635.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ magnet:?xt=urn:btih:A9A7103565E61BE91DA375DB3E6922806C70DE20
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2636.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2636.jpgsave_picture_2636.jpg" />
 </div>
 
 

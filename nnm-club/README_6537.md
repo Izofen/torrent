@@ -6,7 +6,7 @@
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208236.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208236.jpgsave_picture_208236.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Marco Rochowski - The Essential Collection (2023) 2CD [MP3|320 Kbps] <Spacesynth
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208239.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208239.jpgsave_picture_208239.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ magnet:?xt=urn:btih:F4FE3583A43D936C13BE2B5E6961C3A1CE7F242F
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208244.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208244.jpgsave_picture_208244.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ Showgunners (2023) [Ru/Multi] (1.1.0_53480/dlc) Scene Rune
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208245.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208245.jpgsave_picture_208245.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ Arsenal of Democracy: A Hearts of Iron Game (2010) [Ru/Multi] (1.12) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208248.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208248.jpgsave_picture_208248.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ NIUBI Partition Editor 9.7.0 Pro / Unlimited / Technician Edition RePack (& Port
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208249.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208249.jpgsave_picture_208249.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:4BFD0FF7574BE2A76D7C622DF58FEF9B3F041A3A
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208252.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208252.jpgsave_picture_208252.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ MyRadar - Weather Radar Pro 8.49.3 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208254.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208254.jpgsave_picture_208254.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:39225870F72E8213B8220DAB17ACF15A1142E326
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208257.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208257.jpgsave_picture_208257.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:96226BFFAEB0E201D51306C9805D0C701784FC9B
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208259.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208259.jpgsave_picture_208259.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:08894C064161C0FD23D0D0E49C5F6F24D96DFFAC
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208260.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208260.jpgsave_picture_208260.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:08894C064161C0FD23D0D0E49C5F6F24D96DFFAC
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208263.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208263.jpgsave_picture_208263.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ magnet:?xt=urn:btih:5EDA5AFC37D415A1163D1E02EA8A8AC70D6A3481
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208264.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208264.jpgsave_picture_208264.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Saint Agnes - Bloodsuckers (2023) [MP3|320 Kbps] <Nu-Metal, Rapcore, Female Voca
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208267.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208267.jpgsave_picture_208267.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Perfectly Clear WorkBench 4.6.0.2570 RePack (& Portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208270.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208270.jpgsave_picture_208270.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ magnet:?xt=urn:btih:FB6BCC83E46CE620E835339F17CB9F41C555464D
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208273.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208273.jpgsave_picture_208273.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Marco Rochowski - Voyage Of Discovery (2023) [MP3|320 Kbps] <Spacesynth>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208275.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208275.jpgsave_picture_208275.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ FanControl V164 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208277.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208277.jpgsave_picture_208277.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Telegram Desktop 4.8.7 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208279.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208279.jpgsave_picture_208279.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Blur - The Ballad Of Darren (2023) Deluxe Edition [FLAC|Lossless| tracks+.cue] <
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208281.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208281.jpgsave_picture_208281.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ VA - Armada Music - Ibiza 2023 [MP3|320 Kbps] <Progressive House, Deep House, Te
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208284.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208284.jpgsave_picture_208284.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Glary Utilities Pro 5.208.0.237 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208288.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208288.jpgsave_picture_208288.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ AntiPlagiarism.NET 4.126.0.0 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208291.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208291.jpgsave_picture_208291.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ VA - 100% ROCK: The Greatest Rock Hits (2023) [FLAC|Lossless|WEB-DL|tracks] <Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208294.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208294.jpgsave_picture_208294.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ FinePrint 11.40 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208295.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208295.jpgsave_picture_208295.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ VA - Music News vol.283 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208296.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208296.jpgsave_picture_208296.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Julien Pivotto, Brian Brazil | Prometheus: Up and Running (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150306.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150306.jpgsave_picture_150306.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:6ADA67C3DA624757C78E518FCE7BA9D94EEAB6CF
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150307.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150307.jpgsave_picture_150307.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:DBFA4F7EDC6D99CE8C799949CAF7AE128D4EF578
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150308.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150308.jpgsave_picture_150308.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:F5244E6312E725CD0491F83C8B9E3E1E2E3552A0
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150309.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150309.jpgsave_picture_150309.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:BBDD89ADB6EC2CD288AA1DCC404DCB3FCDD528E4
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150311.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150311.jpgsave_picture_150311.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:4D09081FEA87D863962E58E96A54C765BF3AD860
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150313.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150313.jpgsave_picture_150313.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Unchecky 0.4.2 beta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150314.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150314.jpgsave_picture_150314.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Soundgarden - Black Hole Sun (1994) Single [FLAC|Lossless|tracks + .cue] <Altern
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150315.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150315.jpgsave_picture_150315.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:CDD47B63C07250999BA22EBC0597E0ACC33A60A0
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150316.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150316.jpgsave_picture_150316.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:51719CFF10F7B606D393FFD0ED78FB64FBC15717
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150317.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150317.jpgsave_picture_150317.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ cg-school.org, Андрей Заморский | Сборник видеоуро
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150318.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150318.jpgsave_picture_150318.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Vince Staples - FM! (2018) Mixtape [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Hardc
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150319.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150319.jpgsave_picture_150319.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Mahou Sensou | Magical Warfare | Война магов [2014, TV, 12] BDrip 1080
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150320.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150320.jpgsave_picture_150320.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Stellio - Music Player v6.7.0 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150321.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150321.jpgsave_picture_150321.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ magnet:?xt=urn:btih:3653F20FE5B9F6BC2C9E243C97440DBBFAEBAD7E
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150323.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150323.jpgsave_picture_150323.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Microsoft Windows 11 [10.0.22000.376], Version 21H2 (Updated December 2021) - О
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150324.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150324.jpgsave_picture_150324.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ magnet:?xt=urn:btih:F8CDE51F93691BF6BF945A7ACEFC1E1F9ABF9565
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150326.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150326.jpgsave_picture_150326.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ magnet:?xt=urn:btih:B5FBF3182F2744022DB8F44C6F0F1031F4E4D935
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150327.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150327.jpgsave_picture_150327.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ magnet:?xt=urn:btih:A931B53ED6D6A15CBDF7B8357121A99642CBEF8C
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150328.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150328.jpgsave_picture_150328.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ magnet:?xt=urn:btih:A931B53ED6D6A15CBDF7B8357121A99642CBEF8C
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150329.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150329.jpgsave_picture_150329.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ magnet:?xt=urn:btih:6EB6EF12B5A0DB1763156FAA45CF9C531180F65B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150330.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150330.jpgsave_picture_150330.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Guraburu! | Grand Blues! | Великий блюз! [2020, TV, 12] WEBRip 720p r
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150331.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150331.jpgsave_picture_150331.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ magnet:?xt=urn:btih:494E1CF8E4D477274AB3EE4BC9156CBF3B8D3A55
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150332.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150332.jpgsave_picture_150332.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ VA - Christmas Dance Party 2018 (2018) [MP3|320 Kbps] <Big Room, Dance, Trance>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150333.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150333.jpgsave_picture_150333.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ magnet:?xt=urn:btih:112E1FBC885436DBE1DED36CD2B2E917CC9FEDEC
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150334.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150334.jpgsave_picture_150334.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Windows Update MiniTool 24.12.2015 Portable [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150335.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150335.jpgsave_picture_150335.jpg" />
 </div>
 
 

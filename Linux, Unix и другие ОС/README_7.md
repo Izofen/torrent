@@ -6,7 +6,7 @@ Fedora 36 Workstation Server Beta [x86_64] 2xDVD
 >>ОС *Nix (Alpha, Beta, RC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243659.jpgsave_picture_243659.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ GIMP 2.8 (ubuntu ppa,.tar.bz2)[Multi/Русский]
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_248306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_248306.jpgsave_picture_248306.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Sopcast 0.8.2 (ubuntu ppa,.tar.gz) [Multi/Русский]
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_249326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_249326.jpgsave_picture_249326.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Kali Linux 2022.1 (ex. BackTrack) [amd64, i386, arm] 8xDVD, 3xCD Аудит бе
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249347.jpgsave_picture_249347.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Debian GNU/Linux 11.4.0 + nonfree (firmware) Bullseye [amd64] 2xDVD+3xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250305.jpgsave_picture_250305.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Debian GNU/Linux 11.4.0 + nonfree (firmware) Bullseye [i386] 2xDVD+3xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250316.jpgsave_picture_250316.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ TrueNAS CORE 13.0-U4 [x64] 1xCD
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251905.jpgsave_picture_251905.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ Mathworks Matlab R2023a (9.14) + Update1+ Update2 + Addon Packages [x64] (iso)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252022.jpgsave_picture_252022.jpg" />
 </div>
 
 

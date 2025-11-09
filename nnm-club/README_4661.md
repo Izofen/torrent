@@ -6,7 +6,7 @@ Artie Shaw - 1939-1940 (1999) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145906.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145906.jpgsave_picture_145906.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:498FBE14363367840176C39FCFEA5AB4F5D7CA35
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145907.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145907.jpgsave_picture_145907.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ VA - Suprematic 2021 (2021) [AAC|~334 Kbps] <Deep House, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145908.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145908.jpgsave_picture_145908.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Herjan - Nightfall of Humanity (2017) [MP3|320 Kbps] <Black Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145909.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145909.jpgsave_picture_145909.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ VA - King Of Chillout (2015) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145910.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145910.jpgsave_picture_145910.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ VA - Top Hits 1996, 4 CDs (1996)  [FLAC|Lossless|image + .cue]<Eurodance, Euro H
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145911.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145911.jpgsave_picture_145911.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ magnet:?xt=urn:btih:C7552643A289431BC46340CB92058DE5886089DE
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145912.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145912.jpgsave_picture_145912.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ SmallCubed MailSuite 1.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145913.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145913.jpgsave_picture_145913.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ magnet:?xt=urn:btih:6AAB245C265F61FBE823079244F1ED67B2AE963F
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145914.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145914.jpgsave_picture_145914.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ magnet:?xt=urn:btih:CB033F3BF11DD2F1DEC5B2BF6ACD666461F969B0
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145915.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145915.jpgsave_picture_145915.jpg" />
 </div>
 
 
@@ -265,7 +265,7 @@ VA - Sofa King Sick, Chapter 3 (2021) [AAC|~315 Kbps] <Drum & Bass>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145917.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145917.jpgsave_picture_145917.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Damian Hamada's Creatures - The Old Testament in Hell Chapter 1-2 (2020) [MP3|32
 >>Asian Rock, Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145918.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145918.jpgsave_picture_145918.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Ghost Machinery - Evil Undertow (2015) [FLAC|Lossless|image + .cue] <Power Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145919.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145919.jpgsave_picture_145919.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ New year wallpapers 2013 (15.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145920.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145920.jpgsave_picture_145920.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ magnet:?xt=urn:btih:0B78437C57F1FEADF6B394FC8B9A3B3D9C9A2551
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145922.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145922.jpgsave_picture_145922.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ magnet:?xt=urn:btih:D74F1759BA5A6613FD28634FE773C593D0B628CC
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145923.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145923.jpgsave_picture_145923.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ magnet:?xt=urn:btih:D117329EB039ADA3BB9084A332D10339AAE6D60F
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145924.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145924.jpgsave_picture_145924.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ VA - Abora Progressive Best Of 2017-2018 (Mixed by Mhammed El Alami) (2018) [MP3
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145925.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145925.jpgsave_picture_145925.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ magnet:?xt=urn:btih:02D7DFDDF9041091467B5DA301AB11A7C5FDD825
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145926.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145926.jpgsave_picture_145926.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ magnet:?xt=urn:btih:81E324A7231934FEC62C67C0F64110AD4812034A
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145927.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145927.jpgsave_picture_145927.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ magnet:?xt=urn:btih:11449CFD8EB9D477A9E27F3984804A45B947BC02
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145928.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145928.jpgsave_picture_145928.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ VA - Sofa King Sick, Chapter 2 (2020) [AAC|~321 Kbps] <Drum & Bass>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145929.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145929.jpgsave_picture_145929.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ magnet:?xt=urn:btih:63C81C3648AB3C65F589A2F920DA9508507F7181
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145931.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145931.jpgsave_picture_145931.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Even The Trees - If Only Everyday Could Be Like This (2018) [FLAC|Lossless|track
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145932.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145932.jpgsave_picture_145932.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ magnet:?xt=urn:btih:FC7ABF02612A9A1B9EAC5661AB06185A03D0F5F9
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145933.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145933.jpgsave_picture_145933.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ magnet:?xt=urn:btih:FD0BD275706357FFD82D10874730FDFB1D82292E
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145934.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145934.jpgsave_picture_145934.jpg" />
 </div>
 
 

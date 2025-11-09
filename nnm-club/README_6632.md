@@ -6,7 +6,7 @@ OTUS, Вадим Заигрин | Apache Kafka (2023) WEB-DL [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217537.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217537.jpgsave_picture_217537.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:ABCB39DBBABB132DAD030260FDAE6D471F92299C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217603.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217603.jpgsave_picture_217603.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:EA5D9280C77CE74FCC940CC385D50250ECAF9913
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217610.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217610.jpgsave_picture_217610.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Sublime Text 4.0 Build 4154 Dev for Mac [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217617.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217617.jpgsave_picture_217617.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:047432C1EDA0443DE8A135A88773A4463EE8254A
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217624.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217624.jpgsave_picture_217624.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ magnet:?xt=urn:btih:677B73B0B2E70354AFC6CDDDCB6669E102E4FA71
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217630.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217630.jpgsave_picture_217630.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ magnet:?xt=urn:btih:62FFF05B87D4EFA381805055D3920FD5EFF6046A
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217644.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217644.jpgsave_picture_217644.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Peter Gabriel - The Late Show - New York Broadcast 1978 (2021) Reissue, 2023, Go
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217658.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217658.jpgsave_picture_217658.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:CA40D068E4A675E7FD25A7F449FE7F08B04621C8
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217669.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217669.jpgsave_picture_217669.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ magnet:?xt=urn:btih:2FB2A0D9DEF957883CC9758D7EE59DE29FA9C3B5
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217679.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217679.jpgsave_picture_217679.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ magnet:?xt=urn:btih:61E6B6512890CEBFB5B160975D8683AA25C8A7F7
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217688.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217688.jpgsave_picture_217688.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ magnet:?xt=urn:btih:251901B8D2E166A7323D88F90E39E3BC3B354082
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217695.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217695.jpgsave_picture_217695.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ Downie 4 v.4.6.25 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217701.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217701.jpgsave_picture_217701.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ VA - Естрадна Панорама 3 (1984) [FLAC 2.0|192/24|image + .cue|Vi
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217708.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217708.jpgsave_picture_217708.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ magnet:?xt=urn:btih:74D83ACBC3B7D27A92BC85A6A507A68B677E5959
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217719.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217719.jpgsave_picture_217719.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Skype 8.101.0.212 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217724.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217724.jpgsave_picture_217724.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ magnet:?xt=urn:btih:A5A0DC90FD72A97C36E5D0204B168773331D5058
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217739.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217739.jpgsave_picture_217739.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ Snapclear for Mac 1.0.0 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217746.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217746.jpgsave_picture_217746.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ Leaether Strip - Last Station (2023) [FLAC|Lossless|image + .cue] <EBM, Industri
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217759.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217759.jpgsave_picture_217759.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ VA - Black Hole Trance Music 08-23 (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217764.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217764.jpgsave_picture_217764.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ magnet:?xt=urn:btih:7E775ED397F36CF8989972228B1374220BE0B12A
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217770.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217770.jpgsave_picture_217770.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ magnet:?xt=urn:btih:3C2CFE8769D29CC8885E8B547872B547644CD6BA
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217827.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217827.jpgsave_picture_217827.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Topaz Video AI for Mac 3.3.10 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217846.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217846.jpgsave_picture_217846.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Path Finder 2159 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217853.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217853.jpgsave_picture_217853.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ magnet:?xt=urn:btih:3559519407F7A6477D97A3D527A75DA94040BF10
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217861.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217861.jpgsave_picture_217861.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ magnet:?xt=urn:btih:7645AC5ED1374D14A70D6B56B885B08EB6CC1C18
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217869.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217869.jpgsave_picture_217869.jpg" />
 </div>
 
 

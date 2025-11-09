@@ -6,7 +6,7 @@
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132279.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132279.jpgsave_picture_132279.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ magnet:?xt=urn:btih:704B7A768AE774CAC4E8C800EC98C8D2DFA8853E
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132281.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132281.jpgsave_picture_132281.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ magnet:?xt=urn:btih:5C65D54BDEDD32563D1D75632B01E6D921B3D01F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132282.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132282.jpgsave_picture_132282.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ magnet:?xt=urn:btih:BF6DEE6A7C5EB7F41FE574EA721406997F236156
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132283.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132283.jpgsave_picture_132283.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ magnet:?xt=urn:btih:E2691C26237287D60B46B52C63B8C15223ACB377
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132284.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132284.jpgsave_picture_132284.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ magnet:?xt=urn:btih:6B58E08E20B2F9B514041D2965BB09985E6070E9
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132285.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132285.jpgsave_picture_132285.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Lucky Star | Счастливая звезда [2007, TV, 24 эп. + OVA] BDRip 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132286.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132286.jpgsave_picture_132286.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ magnet:?xt=urn:btih:AB536BA68F30581F6B6EDF7B03FD6D2710000FE7
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132287.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132287.jpgsave_picture_132287.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ magnet:?xt=urn:btih:A1205885E9FC8323A946620C940509D90FA08329
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132288.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132288.jpgsave_picture_132288.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Interior Wallpapers (28.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132289.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132289.jpgsave_picture_132289.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ magnet:?xt=urn:btih:84CB4EF90A67DBD65126AFE2BC03FEA7E300F48E
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132290.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132290.jpgsave_picture_132290.jpg" />
 </div>
 
 
@@ -290,7 +290,7 @@ The Man-Eating Tree - 2 Альбома (2010,2011) Дискография  [FLAC
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132291.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132291.jpgsave_picture_132291.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ The Man-Eating Tree - 2 Альбома (2010,2011) Дискография  [FLAC
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132292.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132292.jpgsave_picture_132292.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ VA - Winter Trance 2012 (2012) [MP3|320 kbps]<Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132293.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132293.jpgsave_picture_132293.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ magnet:?xt=urn:btih:BFF8037208C83B30661CE0D79902C5183D133DEA
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132294.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132294.jpgsave_picture_132294.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ magnet:?xt=urn:btih:164F922FF65A33489B64029673730EBBECA9CE66
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132296.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132296.jpgsave_picture_132296.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ magnet:?xt=urn:btih:BC90387B02C0AA4FEF261A068E16EE6761147F41
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132297.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132297.jpgsave_picture_132297.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ magnet:?xt=urn:btih:F9AD3930A91B34D48318C9A99D02F0E9E785A046
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132298.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132298.jpgsave_picture_132298.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ magnet:?xt=urn:btih:FF68908EC922DDE5B068F6A769B09186261BF9F8
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132299.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132299.jpgsave_picture_132299.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Udemy, Manas Roy | ChatGPT and Adobe Firefly AI Course: Beginner to Pro Level (2
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132300.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132300.jpgsave_picture_132300.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ magnet:?xt=urn:btih:0641E0D6A1064A114B04DDF3A03B4F6ED4837A24
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132301.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132301.jpgsave_picture_132301.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ magnet:?xt=urn:btih:60AFE2D3FD4AED4EE4C5DD0AA2E8C8CCC414258D
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132302.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132302.jpgsave_picture_132302.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ The Land of Miracles / Shen Lan Qi Yu Wushuang Zhu / The Magic Kingdom of the Go
 >>Аниме хардсаб
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132303.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132303.jpgsave_picture_132303.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ magnet:?xt=urn:btih:B46CE59D034B8DA89CA838106B2915A9415F1568
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132305.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132305.jpgsave_picture_132305.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ magnet:?xt=urn:btih:9A2CBAC217D7076C67F7545A72171AA043AAC58C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132307.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132307.jpgsave_picture_132307.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ Nature Wallpapers (28.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132308.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132308.jpgsave_picture_132308.jpg" />
 </div>
 
 

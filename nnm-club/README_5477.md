@@ -6,7 +6,7 @@
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169340.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169340.jpgsave_picture_169340.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ VA - Amsterdam Dance Essentials 2023 Trance (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169342.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169342.jpgsave_picture_169342.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ VA - Tarantinomania (1999) 2CD Digipack Edition [FLAC|Lossless|image + .cue] <So
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169343.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169343.jpgsave_picture_169343.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:A539F11E6CD428942BD600676C11D8C03084238D
 >>История
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169344.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169344.jpgsave_picture_169344.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ CentOS 8.3 (2011) [amd64] 1xDVD, 1xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169345.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169345.jpgsave_picture_169345.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:C74F445DD8E201C83B27F6DA89DEF64E0EC4EA55
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169346.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169346.jpgsave_picture_169346.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ iMap Builder: Organisation 11.1.13 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169347.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169347.jpgsave_picture_169347.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:5DF6C1E8A485D08D529B6AAB232C3D0A28F467B0
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169348.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169348.jpgsave_picture_169348.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Sandboxie 5.55.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169349.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169349.jpgsave_picture_169349.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ VA - Uplifting Only Top 15: October 2023 (Extended Mixes) (2023) [MP3|320 Kbps] 
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169350.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169350.jpgsave_picture_169350.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ Podlodka Teamlead Crew | Коммуникации в команде и проц�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169351.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169351.jpgsave_picture_169351.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ MAAT Digital Bundle 12.2021 VST, VST3, AAX RePack by R2R [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169352.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169352.jpgsave_picture_169352.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ magnet:?xt=urn:btih:91D269598E22CF01BE10E0727B056406D1E91B1D
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169353.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169353.jpgsave_picture_169353.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ Markus Schulz - Global DJ Broadcast Afterdark (Euphoric Techno Mix) (2023-10-26)
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169354.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169354.jpgsave_picture_169354.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ NoiseAsh Palmary Collection 1.3.9 VST, VST3, AAX [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169355.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169355.jpgsave_picture_169355.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ magnet:?xt=urn:btih:1759055C31BD4A91A9C73CDEFE052D077ED2B012
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169356.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169356.jpgsave_picture_169356.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ magnet:?xt=urn:btih:824637BA083CCD5851CDEA90E2D62C204EEBEC97
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169357.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169357.jpgsave_picture_169357.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ Anderdog - Kelgoma (2022) [FLAC|Lossless|WEB-DL|tracks] <Experimental Rock>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169358.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169358.jpgsave_picture_169358.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ Bloodstone - Fight For Jerusalem (1995) Japanese Edition [FLAC|Lossless|image + 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169359.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169359.jpgsave_picture_169359.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ BetterTouchTool 4.291 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169360.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169360.jpgsave_picture_169360.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Allway Sync 20.2.1 Pro [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169361.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169361.jpgsave_picture_169361.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Nova 10.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169362.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169362.jpgsave_picture_169362.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ magnet:?xt=urn:btih:7DFDC5E9E40FF5456EC19A1DB6949152A86DB1FC
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169363.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169363.jpgsave_picture_169363.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ VA - No Ballads: Hard Rock (2021) [FLAC|Lossless|WEB-DL|tracks] <Rock, Hard Rock
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169364.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169364.jpgsave_picture_169364.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ magnet:?xt=urn:btih:AE15781885CCF130C5648197E43E827909CD6D48
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169365.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169365.jpgsave_picture_169365.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ ProFind 1.18.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169366.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169366.jpgsave_picture_169366.jpg" />
 </div>
 
 

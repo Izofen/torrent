@@ -6,7 +6,7 @@ SMD info v1.39 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_230924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230924.jpgsave_picture_230924.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ HitPaw Video Converter for Mac 3.0.3 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230925.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230925.jpgsave_picture_230925.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ System Dashboard Pro 1.5.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230926.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230926.jpgsave_picture_230926.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:CD9FB12455E05F345250C1264942EBB5EE4F58B4
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_230929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230929.jpgsave_picture_230929.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Dvar - Madegirah II (2023) [FLAC|Lossless|WEB-DL|tracks] <Darkwave>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230930.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230930.jpgsave_picture_230930.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Telegram Desktop 4.8.3 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_230931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230931.jpgsave_picture_230931.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ Crossing Eternity - The Rising World (2018) [MP3|320 Kbps] <Heavy, Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230933.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230933.jpgsave_picture_230933.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ HitPaw Video Object Remover for Mac 1.2.0 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230934.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230934.jpgsave_picture_230934.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ Proprofiling, Алексей Филатов | Скрытые внушения в
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_230935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230935.jpgsave_picture_230935.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ magnet:?xt=urn:btih:D7FAC32BA0F8BFBBF070918F5558308493048563
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_230937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230937.jpgsave_picture_230937.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ Lungo 2.3.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230939.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230939.jpgsave_picture_230939.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ magnet:?xt=urn:btih:AF5356F55AEAAE86B7BB2A22556F663C15632182
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230940.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230940.jpgsave_picture_230940.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ magnet:?xt=urn:btih:B528E52EDAD54343092947E3E2957CEDFC6D3830
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_230942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230942.jpgsave_picture_230942.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ HWiNFO 7.51 Build 5165 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230943.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230943.jpgsave_picture_230943.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Necrofier - Visions In Fire (2018) EP [MP3|320 Kbps] <Melodic Black Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230944.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230944.jpgsave_picture_230944.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ magnet:?xt=urn:btih:DE54212FB4C8EB367E27847AE559E1958501A706
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_230946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230946.jpgsave_picture_230946.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Mivo - Видеоредактор 3.34.619 Mod by AppModz [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230948.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230948.jpgsave_picture_230948.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ magnet:?xt=urn:btih:8F80CDF22671F9D068E6A0D0355802180098DFBE
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_230949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230949.jpgsave_picture_230949.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ VueScan Pro 9.8.12 ARM/Intel [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230951.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230951.jpgsave_picture_230951.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ magnet:?xt=urn:btih:71DA0326D63B6EA205DE15B9DDE840F73B8D28A2
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_230952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230952.jpgsave_picture_230952.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ magnet:?xt=urn:btih:3FBD9DC6687AC48EF90191A17B5FC0BC5081FB3E
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_230955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230955.jpgsave_picture_230955.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ VA - Black Hole Trance Music 07-23 (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230956.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230956.jpgsave_picture_230956.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Krokus - Легенды Зарубежного Рока (2001) Compilation, Unof
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_230957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230957.jpgsave_picture_230957.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ VA - Black Hole House Music 07-23 (2023) [MP3|320 Kbps] <House, Progressive Hous
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230958.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230958.jpgsave_picture_230958.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Pelican - The Fire In Our Throats Will Beckon The Thaw (2005) Deluxe, Remix & Re
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230959.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230959.jpgsave_picture_230959.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ magnet:?xt=urn:btih:9DAF267EFC6120C4C137121A452226C2FC7A805D
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230962.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230962.jpgsave_picture_230962.jpg" />
 </div>
 
 

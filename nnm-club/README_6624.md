@@ -6,7 +6,7 @@ Magnum - The Eleventh Hour! (1983) Japanese Edition, Reissue, Remastered, 2023, 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_214391.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_214391.jpgsave_picture_214391.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Node Video - Pro Video Editor 6.4.1 Mod by PieMods [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_214396.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_214396.jpgsave_picture_214396.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Adobe Premiere Pro 2023 23.6.0.65 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_214443.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_214443.jpgsave_picture_214443.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Microsoft Windows 11 [10.0.22621.2134], Version 22H2 (Updated August 2023) - О�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_214449.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_214449.jpgsave_picture_214449.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Adobe Photoshop for Mac 2023 v.25.0.0 Beta [Multi/Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_214458.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_214458.jpgsave_picture_214458.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Adobe After Effects 2023 23.6.0.62 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_214463.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_214463.jpgsave_picture_214463.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:EB23CD3EB53C25E76AD50819B8495FA5FFE30B9C
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_214470.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_214470.jpgsave_picture_214470.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:FA71BD2FBE2857728397C58F1A920694EFBD1283
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_214480.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_214480.jpgsave_picture_214480.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:0FBB212E8F0FAAE584EE8071474AD0ACA467C718
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_214520.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_214520.jpgsave_picture_214520.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:0FBB212E8F0FAAE584EE8071474AD0ACA467C718
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_214548.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_214548.jpgsave_picture_214548.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:5E447A01C491E4E43DC085CDFF9884A7C930518E
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_214561.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_214561.jpgsave_picture_214561.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Luminous - Poweramp Skin 8.9 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_214637.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_214637.jpgsave_picture_214637.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:18831444C7EE41D1E75407D1B5FB8853706C29E9
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_214643.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_214643.jpgsave_picture_214643.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Paul Hardcastle - X (The Eclipse) (2022) [FLAC|Lossless|image + .cue] <Smooth Ja
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_214652.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_214652.jpgsave_picture_214652.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ OmniPlan Pro 4 v.4.5.4 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_214664.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_214664.jpgsave_picture_214664.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:5C79AD527746E487EC3775F50DF449B96B711255
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_214675.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_214675.jpgsave_picture_214675.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ magnet:?xt=urn:btih:F47B3456ED0955D5AAD5F5747F05346FADBA2F70
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_214685.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_214685.jpgsave_picture_214685.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ RegCool 1.342 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_214698.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_214698.jpgsave_picture_214698.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:2273679135E37518ACFD5B0D0451BB20D8B993DF
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_214704.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_214704.jpgsave_picture_214704.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ VA - Jazz Hits (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz Vocal>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_214713.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_214713.jpgsave_picture_214713.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ VA - Jazz Popular Songs (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz Vocal>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_214720.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_214720.jpgsave_picture_214720.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ magnet:?xt=urn:btih:31DA132DDF9D543CCCB305B842C5F0C24D2A3A41
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_214726.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_214726.jpgsave_picture_214726.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ VA - Best Jazz Pop Songs (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz Vocal, Pop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_214732.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_214732.jpgsave_picture_214732.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:DC7C0558EA3796C31914E2C0D8EE21F3533AE23D
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_214743.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_214743.jpgsave_picture_214743.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ FanControl V167 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_214749.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_214749.jpgsave_picture_214749.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ VA - Modern Jazz Pop (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz Vocal>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_214757.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_214757.jpgsave_picture_214757.jpg" />
 </div>
 
 

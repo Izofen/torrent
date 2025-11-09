@@ -6,7 +6,7 @@
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18188.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18188.jpgsave_picture_18188.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Rosario to Vampire: Season II | Розарио + Вампир II (2007) [14 то
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18189.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18189.jpgsave_picture_18189.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:F808ABA0FC1492341018F4C936ECCF05CDBFCDC4
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18190.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18190.jpgsave_picture_18190.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Vagabond | Бродяга (1998) [38 томов, 327 глав + Экстра + �
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18191.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18191.jpgsave_picture_18191.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Giuseppe Ottaviani - Eight (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18192.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18192.jpgsave_picture_18192.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:305900087D34CE7321B7BD4D259AA987D441DA68
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18193.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18193.jpgsave_picture_18193.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:4C9E16E407C7FD8E5B93B5097ACBE08F11DD208A
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18194.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18194.jpgsave_picture_18194.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:F1E48BA9E80B6F59B3564B80C711113BC4D3F52B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18195.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18195.jpgsave_picture_18195.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ magnet:?xt=urn:btih:F1E48BA9E80B6F59B3564B80C711113BC4D3F52B
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18196.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18196.jpgsave_picture_18196.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ Soul Eater | Пожиратель душ (2003) [25 томов, 117 глав] [�
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18197.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18197.jpgsave_picture_18197.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ Dr. Stone | Доктор Стоун (2017) [27 томов, 233 главы + Сп
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18198.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18198.jpgsave_picture_18198.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ VA - Black Hole House Music 05-25 (2025) [MP3|320 Kbps] <House, Progressive Hous
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18199.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18199.jpgsave_picture_18199.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ Waltari - Nations' Neurosis (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard R
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18200.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18200.jpgsave_picture_18200.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ Sora no Otoshimono | Утраченное небесами (2007) [20 томов
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18201.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18201.jpgsave_picture_18201.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ Yankee-kun to Megane-chan | Хулиган и Очкарик (2006) [23 тома
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18202.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18202.jpgsave_picture_18202.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ magnet:?xt=urn:btih:22CEF8B596CC24A5B99AC4DD32A7E5FB565460E8
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18203.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18203.jpgsave_picture_18203.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ EBOLA VILLAGE (2025) [Ru/En] (1.0.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18204.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18204.jpgsave_picture_18204.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ VA - Black Hole Trance Music 05-25 (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18205.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18205.jpgsave_picture_18205.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ magnet:?xt=urn:btih:8BCB3C122D7E0417A0FB38749874A676FFB5C533
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18206.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18206.jpgsave_picture_18206.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ magnet:?xt=urn:btih:842D213FE6FA1CF7C70045710F1BCE3F3475C42E
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18207.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18207.jpgsave_picture_18207.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ Life is Strange Double Exposure (2024) [Ru/Multi] (1.1.1027899/dlc) Repack Let's
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18208.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18208.jpgsave_picture_18208.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ magnet:?xt=urn:btih:A26334E1BB250CFAD29037F9C566B7010F580AC6
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18209.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18209.jpgsave_picture_18209.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Microsoft Visual Studio 2022 Professional 17.14.0 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18210.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18210.jpgsave_picture_18210.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ magnet:?xt=urn:btih:468DC3D4F80D7FAAD0310596B329A2B6E7B426D2
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18211.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18211.jpgsave_picture_18211.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ magnet:?xt=urn:btih:28E4B9E266832C03484D25B34CBA3CC688A0209F
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18212.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18212.jpgsave_picture_18212.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ magnet:?xt=urn:btih:A2CB739BB08A11B7E7A81B90BA9F26AE1937A6B7
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18213.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18213.jpgsave_picture_18213.jpg" />
 </div>
 
 

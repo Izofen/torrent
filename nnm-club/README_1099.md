@@ -6,7 +6,7 @@
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28929.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28929.jpgsave_picture_28929.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:FAFF7CF7A9B6AB86271F377A3AE976FF094A53B9
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28930.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28930.jpgsave_picture_28930.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ BBC. Человеческая Вселенная / Human Universe (2014) BDRip [
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28931.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28931.jpgsave_picture_28931.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:7FE1764ABCED96ECDE750A7B6C9E82E7C2D06B94
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28932.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28932.jpgsave_picture_28932.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:7FE1764ABCED96ECDE750A7B6C9E82E7C2D06B94
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28933.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28933.jpgsave_picture_28933.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ OK English School, Елена Вогнистая | Видеокурс Начин
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28934.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28934.jpgsave_picture_28934.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ OpenAI наносит ответный удар: вышла ChatGPT o3-mini дл
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28935.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28935.jpgsave_picture_28935.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ OpenAI запустила новую модель искусственного �
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28936.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28936.jpgsave_picture_28936.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:1C8615A03EA0636BE47FDDF0ECA19BAF2D9D29E0
 >>Сериалы DC Comics
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28937.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28937.jpgsave_picture_28937.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ XviD4PSP 8.1.100 Pro (x64) Portable by 7997 [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28938.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28938.jpgsave_picture_28938.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Battle Realms: Zen Edition (2001) [Ru/Multi] (1.59.1 HF5) Repack Let'sРlay
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28939.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28939.jpgsave_picture_28939.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:EA2A1D133CD570C55145E5585281DFB3BC1C164F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28940.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28940.jpgsave_picture_28940.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Eternal Strands (2025) [Multi] (1.0.12.8195) Scene FAiRLiGHT
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28941.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28941.jpgsave_picture_28941.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Hetman Recovery Software 2024 Portable by TryRooM [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28942.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28942.jpgsave_picture_28942.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ NINJA GAIDEN 2 Black (2025) [Multi] (1.0.5.0) Repack FitGirl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28943.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28943.jpgsave_picture_28943.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ magnet:?xt=urn:btih:531E08D46327CD936A5D2CCDDA817410EB0BFE4C
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28944.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28944.jpgsave_picture_28944.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ magnet:?xt=urn:btih:1900F138BF0C6988F2EC9A765298BE392D18CD4A
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28945.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28945.jpgsave_picture_28945.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ magnet:?xt=urn:btih:74E56A79B6C78DBFED6EB4A1761C5CD1A3482330
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28946.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28946.jpgsave_picture_28946.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ magnet:?xt=urn:btih:A4C0A99B0C6117E33026F1015EEDAA3206ABB388
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28947.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28947.jpgsave_picture_28947.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ magnet:?xt=urn:btih:A4C0A99B0C6117E33026F1015EEDAA3206ABB388
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28948.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28948.jpgsave_picture_28948.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ magnet:?xt=urn:btih:5CC79601B3B596011444C5D796926C3C729B9797
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28949.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28949.jpgsave_picture_28949.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ ASUS N53SV Driver&Utility ver 5.0 for Windows 7 (оригинальный дис
 >>Драйверы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28950.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28950.jpgsave_picture_28950.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Dying Light (2016) [Ru/En] (1.50.0/dlc) Repack Decepticon [Definitive Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28951.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28951.jpgsave_picture_28951.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ BBC: Майти Буш / The Mighty Boosh (2004-2007) DVDRip (сезоны 1-3) 
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28952.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28952.jpgsave_picture_28952.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ magnet:?xt=urn:btih:FCC1F1DA45FA3643AA0EA56787F4B623AB19B970
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28953.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28953.jpgsave_picture_28953.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ magnet:?xt=urn:btih:77C01BA1C776DFE89726A4AEE9515339FC27C1D0
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28954.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28954.jpgsave_picture_28954.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Pyogenesis - Studio Albums (10 releases) (1994-2020) hand made [restored, declip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66503.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66503.jpgsave_picture_66503.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Hinder - Back To Life (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alt. Rock, Har
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66525.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66525.jpgsave_picture_66525.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ The Devil Wears Nada - Postalgia (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <M
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66526.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66526.jpgsave_picture_66526.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Brace - Self Titled (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternative Meta
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66530.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66530.jpgsave_picture_66530.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Thus Spoke Zarathustra - I'm Done With Self Care, It's Time For Others' Harm (20
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66531.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66531.jpgsave_picture_66531.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ House of Protection - Outrun You All (2025) EP [FLAC 24/48|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66543.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66543.jpgsave_picture_66543.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Seventh Day Slumber - Fractured Paradise: Garden of Shadows (2024) Deluxe Editio
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66547.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66547.jpgsave_picture_66547.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Soulfly - Conquer (2008) [FLAC|24/192|image + .cue|Vinyl-Rip] <Nu-Metal, Groove,
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66553.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66553.jpgsave_picture_66553.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Smoulder - The Sword Woman (2018) Demo [FLAC|24/192|image + .cue|Vinyl-Rip] <Epi
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66590.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66590.jpgsave_picture_66590.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Lenny Kravitz - Let It Ride Remixes, Pt. 2 (2025) [FLAC 24/44.1|Lossless|WEB-DL|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66591.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66591.jpgsave_picture_66591.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Skunk Anansie - The Painful Truth (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Al
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66594.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66594.jpgsave_picture_66594.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Ronnie Romero - Live At Rock Imperium Festival (2025) [FLAC 24/48|Lossless|WEB-D
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66597.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66597.jpgsave_picture_66597.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Lenny Kravitz - Let It Ride Remixes, Pt. 1 (2025) [FLAC 24/44.1|Lossless|WEB-DL|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66598.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66598.jpgsave_picture_66598.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Moonlight Haze - Beyond (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Symphonic 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66600.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66600.jpgsave_picture_66600.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Rah - Orile to Berlin (2 Albums) (2024,2025) [FLAC 24/44.1,48|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66601.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66601.jpgsave_picture_66601.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Lila Tirando A Violeta - Dream of Snakes (2025) [FLAC 24/48|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66603.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66603.jpgsave_picture_66603.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Anoraak - Golden Hour (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <synthpop, sy
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66608.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66608.jpgsave_picture_66608.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ Holler - Next In Line (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66613.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66613.jpgsave_picture_66613.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ magnet:?xt=urn:btih:1BD0BAEEE4399FE2CB6AF34D389923B11F5C6E10
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66615.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66615.jpgsave_picture_66615.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Degenerate - Rituals Of Rage (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Thrash 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66620.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66620.jpgsave_picture_66620.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Inka Inka - Reconsider (1992) Special Edition, 2025, [FLAC 24/44.1|Lossless|WEB-
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66637.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66637.jpgsave_picture_66637.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Elles Bailey - Beneath the Neon Glow (Reimagined) (2025) [FLAC 24/44.1|Lossless|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66639.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66639.jpgsave_picture_66639.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Charlie Musselwhite - Look Out Highway (2025) [FLAC 24/96|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66640.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66640.jpgsave_picture_66640.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ magnet:?xt=urn:btih:28659F85C6759E588639BDFF536E9CF04C658BE9
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66641.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66641.jpgsave_picture_66641.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ Ace Monroe - Wild Card (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66642.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66642.jpgsave_picture_66642.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ Bob Stroger & The Headcutters - Bob Is Back (2025) [FLAC 24/48|Lossless|WEB-DL|t
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66643.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66643.jpgsave_picture_66643.jpg" />
 </div>
 
 

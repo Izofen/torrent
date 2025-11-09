@@ -6,7 +6,7 @@ Rekishi ni Nokoru Akujo ni Naruzo | Rekiaku | Я стану злодейкой, 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33089.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33089.jpgsave_picture_33089.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:2397D652553914D9651369B4BB786F144EA112FF
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33090.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33090.jpgsave_picture_33090.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:E4BB14000B17EB49DD070E7CA82D3F699B68AB1C
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33091.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33091.jpgsave_picture_33091.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:E4BB14000B17EB49DD070E7CA82D3F699B68AB1C
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33092.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33092.jpgsave_picture_33092.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:A943972E92ECAC5AC72CCC13B90519A6C426A599
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33093.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33093.jpgsave_picture_33093.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ IObit Uninstaller Pro 14.1.0.2 RePack (& Portable) by elchupacabra (25.12.2024) 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33094.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33094.jpgsave_picture_33094.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:A14EC4B09E74CF65C7BCC104D92E9B7A14B64F87
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33095.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33095.jpgsave_picture_33095.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:2CD6EE0FB1988F79C6A679C45873B53F12A68485
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33096.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33096.jpgsave_picture_33096.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ Yarinaoshi Reijou wa Ryuutei Heika o Kouryakuchuu | На этот раз оде�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33097.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33097.jpgsave_picture_33097.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Last Day on Earth: Survival v1.31.0 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33098.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33098.jpgsave_picture_33098.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ magnet:?xt=urn:btih:0A43D035880EE421763A346AC98CDF43D26816CB
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33099.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33099.jpgsave_picture_33099.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Tokyo Clanpool (2024) [Multi] (0.30) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33100.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33100.jpgsave_picture_33100.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ magnet:?xt=urn:btih:BEA46AEA3BE4E7D9C4BFD5EFA4DB54B3D5DCF595
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33101.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33101.jpgsave_picture_33101.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Warcraft III (3): Reforged (2020) [Ru/En] (2.0.1.22498) Repack Decepticon
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33102.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33102.jpgsave_picture_33102.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ magnet:?xt=urn:btih:A9071A353A972EA90C8FB9DB7AF5647BBD2429D8
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33103.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33103.jpgsave_picture_33103.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ V Rising (2024) [Ru/Multi] (1.0.10.2-r83846-b3/dlc) Repack Decepticon
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33104.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33104.jpgsave_picture_33104.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ magnet:?xt=urn:btih:FDF25B9A33AD4DF05C9126D7AFF1C258905913DE
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33105.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33105.jpgsave_picture_33105.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ magnet:?xt=urn:btih:7311897F808D1085323D13B1F0B180E8147BE664
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33106.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33106.jpgsave_picture_33106.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Conway: Disappearance at Dahlia View (2021) [Multi] (1.2.0.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33107.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33107.jpgsave_picture_33107.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ magnet:?xt=urn:btih:A552DC32D19EBC523FE798E13C7F53D9E0C724A6
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33108.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33108.jpgsave_picture_33108.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ Sengoku Youko / Ёко из Сэнгоку [2024, TV, 35] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33109.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33109.jpgsave_picture_33109.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ magnet:?xt=urn:btih:D106F0E6604BA0A4C76B8CF2D35D0F6533E9FE0F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33110.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33110.jpgsave_picture_33110.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ The Legend of Heroes: Trails to Azure (2023) [Multi] (1.1.19) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33111.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33111.jpgsave_picture_33111.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ magnet:?xt=urn:btih:B6EBA58DBB6D7D6247170F902A8509FE418F90C3
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33112.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33112.jpgsave_picture_33112.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ HDD Low Level Format Tool 4.50 RePack (& Portable)  by KpoJIuK [Ru/En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33113.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33113.jpgsave_picture_33113.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ magnet:?xt=urn:btih:4F9D84A310BDBA8993E3494FD8495B5371E7AB92
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33114.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33114.jpgsave_picture_33114.jpg" />
 </div>
 
 

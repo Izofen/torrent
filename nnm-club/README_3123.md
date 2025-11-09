@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100761.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100761.jpgsave_picture_100761.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:014305697C1D4BCCE7FEBDF03A821E8974E3CF4F
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100762.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100762.jpgsave_picture_100762.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:BEBF79B8C4886A8B0542AD759015B605A32C6583
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100763.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100763.jpgsave_picture_100763.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:38E54D6C7C2CF492AB6A96D419AA4D716BD4367C
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100764.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100764.jpgsave_picture_100764.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:EB06915A149B0C54DEDED5BF1285E0D1E6BAFD7A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100765.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100765.jpgsave_picture_100765.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ VA - The Orient Collective: Moon Over Marrakesh (2025) [FLAC|Lossless|WEB-DL|tra
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100767.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100767.jpgsave_picture_100767.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ AIMP 5.40.2696 + Portable [Multi/Ru]
 >>Аудио Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100768.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100768.jpgsave_picture_100768.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ reaConverter Pro 8.0.141 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100769.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100769.jpgsave_picture_100769.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:E7E92C29F6CF3C2C52DE575FAE44CC3F6D88F729
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100770.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100770.jpgsave_picture_100770.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:9C4A72D1F90AFE057B5E39B8CF35F51322814478
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100771.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100771.jpgsave_picture_100771.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:7A4F99EE3D0BFB4B5646ED939DF8F911808BC8F8
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100772.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100772.jpgsave_picture_100772.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ Danger Cobra - Danger Cobra (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard R
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100773.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100773.jpgsave_picture_100773.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ magnet:?xt=urn:btih:73679C525BCABFB91C56237ADA73211C0E38FA1B
 >>Картинки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100774.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100774.jpgsave_picture_100774.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Canyon Lights - Breathe Easy (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100775.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100775.jpgsave_picture_100775.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ magnet:?xt=urn:btih:0AC1C04BF22A61792CF02FB6665C3E07F7EF9E2B
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100776.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100776.jpgsave_picture_100776.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ magnet:?xt=urn:btih:9914F3ACCF6B3D68C9B839ECE3A6BB81E643E07E
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100777.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100777.jpgsave_picture_100777.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Balder Gernot - Towards The End (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Ro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100778.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100778.jpgsave_picture_100778.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Amiya - Prosto do Gwiazd (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100779.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100779.jpgsave_picture_100779.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ Aging Disgracefully - Shatter the Mirror (2025) [FLAC 24/44.1|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100780.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100780.jpgsave_picture_100780.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ magnet:?xt=urn:btih:C10469F172A5CB9D07CD8D7A302A9AD961500518
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100781.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100781.jpgsave_picture_100781.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ Luck & Loot (2025) [Ru/Multi] (1.1c) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100782.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100782.jpgsave_picture_100782.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Sadist - Studio Albums (10 releases) (1993-2025) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100783.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100783.jpgsave_picture_100783.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ VA - Брат-1, Брат-2. Музыка к фильму, Брат-2. За ка
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100784.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100784.jpgsave_picture_100784.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ magnet:?xt=urn:btih:C9C7A3F1B17AD42460F81D33CEA9CC7ABDB5EFA6
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100785.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100785.jpgsave_picture_100785.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ magnet:?xt=urn:btih:DA34C1022D806E2DF6273932C6085D42A7A4B364
 >>Футажи
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100786.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100786.jpgsave_picture_100786.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ magnet:?xt=urn:btih:56B5BE88785236255651ECE971ED92198CCC02A3
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100787.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100787.jpgsave_picture_100787.jpg" />
 </div>
 
 

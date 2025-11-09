@@ -6,7 +6,7 @@ Modeselektor - DJ-Kicks: Modeselektor (2025) 2CD [FLAC 16,24/44.1,48|Lossless|WE
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2296.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2296.jpgsave_picture_2296.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Year Of The Goat - Trivia Goddess (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2303.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2303.jpgsave_picture_2303.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Igorrr - Amen (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Avantgarde Metal, Br
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2322.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2322.jpgsave_picture_2322.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Dagoba - Studio Albums (10 releases) (2001-2024) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2451.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2451.jpgsave_picture_2451.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Joe Bonamassa - B.B.King's Blues Summit 100, Vol. I (2025) [FLAC 24/44.1|Lossles
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2455.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2455.jpgsave_picture_2455.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ magnet:?xt=urn:btih:36E98CB5C86A5208EC625A5F1F5D090ADE924D23
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2460.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2460.jpgsave_picture_2460.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Circus of Rock - Hellfire (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Roc
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2461.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2461.jpgsave_picture_2461.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ The Rusties Blues Band - disCOVERing the White Blues (2025) [FLAC 24/96|Lossless
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2467.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2467.jpgsave_picture_2467.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Katya Filipova - Катя Филипова (1977) [FLAC 2.0|24/96|image +.cue|Vi
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2469.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2469.jpgsave_picture_2469.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Led Zeppelin - Live EP (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Bluse Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2490.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2490.jpgsave_picture_2490.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Vargas Blues Band - Down Under Blues (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2600.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2600.jpgsave_picture_2600.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Taetre - Studio Albums (3 releases) (1997-2002) hand made [restored, declipped] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2606.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2606.jpgsave_picture_2606.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Tonix - Santo Domingo (1977) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop, Folk,
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2608.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2608.jpgsave_picture_2608.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Caliban - Studio Albums (16 releases) (1998-2025) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2609.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2609.jpgsave_picture_2609.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ David Bowie - I Can't Give Everything Away (2002 - 2016) (2025) Reissue, Remaste
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2645.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2645.jpgsave_picture_2645.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Demon Hunter - Studio Albums (13 releases) (2002-2025) hand made [restored, decl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2667.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2667.jpgsave_picture_2667.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ Nevertel - Start Again (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2730.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2730.jpgsave_picture_2730.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Starset - Silos (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternative-Metal, A
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2731.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2731.jpgsave_picture_2731.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Shame - Cutthroat (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Indie, Post-Punk
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2732.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2732.jpgsave_picture_2732.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Nicolas Cage Fighter - I Watched You Burn (2025) [FLAC 24/44.1|Lossless|WEB-DL|t
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2734.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2734.jpgsave_picture_2734.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ Speed Queen - ... With a Bang! (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hea
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2746.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2746.jpgsave_picture_2746.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Crucible - Hail To The Force (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Speed M
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2752.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2752.jpgsave_picture_2752.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ Not Enough Space - Weaponize Your Rage (2025) [FLAC 24/44.1|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2757.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2757.jpgsave_picture_2757.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ I See Stars - The Wheel (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Post-Hardcor
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2758.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2758.jpgsave_picture_2758.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ Fargo - Live In '25 (Live) (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Ro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2900.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2900.jpgsave_picture_2900.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ The Cards I Play - Diamond Avenue (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2901.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2901.jpgsave_picture_2901.jpg" />
 </div>
 
 

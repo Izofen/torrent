@@ -6,7 +6,7 @@
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113923.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113923.jpgsave_picture_113923.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:E308FC2009FB18D164C8A7061AA5F885070B3667
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113924.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113924.jpgsave_picture_113924.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:C7B8F4630080AD512050796E0059657D0D00658E
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113925.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113925.jpgsave_picture_113925.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ ToonMe v0.7.1 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113926.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113926.jpgsave_picture_113926.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ Stay 1.4 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113927.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113927.jpgsave_picture_113927.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ Google Chrome 122.0.6261.112 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113928.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113928.jpgsave_picture_113928.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ magnet:?xt=urn:btih:85539170070B8B20F792E85DC4F72CB08879D4A6
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113929.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113929.jpgsave_picture_113929.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ Judas Priest - Invincible Shield (2024) [FLAC|Lossless|image + .cue] <Heavy Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113930.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113930.jpgsave_picture_113930.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ IceCream Ebook Reader Pro 6.48 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113931.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113931.jpgsave_picture_113931.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ magnet:?xt=urn:btih:4A2AC0DA44B68BE4B3F0A389C782C3A48BF26A11
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113932.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113932.jpgsave_picture_113932.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ magnet:?xt=urn:btih:454CF4CB10C763E458A4E972FAD1C21FF90EEE89
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113933.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113933.jpgsave_picture_113933.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ LibreOffice 24.2.1.2 Stable Portable by PortableApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113934.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113934.jpgsave_picture_113934.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ magnet:?xt=urn:btih:B4F6B36C7D115C16A058428198F62E4732465F93
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113935.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113935.jpgsave_picture_113935.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ YT Saver Video Downloader & Converter for Mac 7.4.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113936.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113936.jpgsave_picture_113936.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Skeletal Remains - The Entombment Of Chaos (2020) Japanese Edition [FLAC|Lossles
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113937.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113937.jpgsave_picture_113937.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Alfred PowerPack 5.5 Beta 2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113938.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113938.jpgsave_picture_113938.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Eddie "Lockjaw" Davis - On Prestige (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113939.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113939.jpgsave_picture_113939.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ Stephane Grappelli - Parisian Thoroughfare (1973) 1989, Black Lion [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113940.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113940.jpgsave_picture_113940.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ Scott Hamilton - Plays Ballads (1989) Concord Jazz [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113941.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113941.jpgsave_picture_113941.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ Soulver 3 v.3.10.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113942.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113942.jpgsave_picture_113942.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Tim Hegarty - Tribute (2014) Miles High Records [FLAC|Lossless|tracks + .cue] <P
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113943.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113943.jpgsave_picture_113943.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ magnet:?xt=urn:btih:ABB05D1F1C6762DD25410B7BAFDF8C65A7782816
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113944.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113944.jpgsave_picture_113944.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Branford Marsalis Quartet - Crazy People Music (1990) CBS [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113945.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113945.jpgsave_picture_113945.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Barry Harris - Live at Maybeck Recital Hall, Vol. 12 (1991) Concord Jazz [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113946.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113946.jpgsave_picture_113946.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ Lionel Hampton - 1946 (1997) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113947.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113947.jpgsave_picture_113947.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ Cedar Walton Trio - Ironclad (1989) 1995, Monarch Records [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113948.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113948.jpgsave_picture_113948.jpg" />
 </div>
 
 

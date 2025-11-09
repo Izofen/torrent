@@ -6,7 +6,7 @@ Gary Hughes - 7 альбомов Discography (1990-2007) [FLAC|Lossless|image + 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154056.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154056.jpgsave_picture_154056.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:786524471CEF3543DD932E297A11FECE72DC39CF
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154057.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154057.jpgsave_picture_154057.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ RegCool 1.300 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154058.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154058.jpgsave_picture_154058.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ VA - The Christmass Tea: Chillout Your Mind (2022) [FLAC|Lossless|WEB-DL|tracks]
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154059.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154059.jpgsave_picture_154059.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:21A1A04A6FB52B9C5CBD0556474F28BED75872F7
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154060.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154060.jpgsave_picture_154060.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:A3DF092381E71EFB5265B39232FCC3ECEC9E5F64
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154061.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154061.jpgsave_picture_154061.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ Badhoven - 4 альбома Discography (2001-2019) [MP3|320 Kbps] <Melodic Hard
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154062.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154062.jpgsave_picture_154062.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ VA - New Disco 80s Remix (2020) [MP3|320 Kbps] <Disco, New Generation, Remix>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154063.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154063.jpgsave_picture_154063.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ magnet:?xt=urn:btih:6DC41ED0D6FADAECBEF89736D97FC036F42DEC98
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154064.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154064.jpgsave_picture_154064.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ VA - Italo Disco Megahits (2018) [MP3|320 Kbps] <Italo-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154065.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154065.jpgsave_picture_154065.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ magnet:?xt=urn:btih:0B9724A04C5D03BCC6EDB9BE944A440BD2C317BC
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154066.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154066.jpgsave_picture_154066.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ Feuerschwanz - Todsunden (2022) [FLAC 2.0|44/24|tracks|WEB-DL]  <Folk-metal, Med
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154067.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154067.jpgsave_picture_154067.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ magnet:?xt=urn:btih:DBF1F2E165861465B8872AC4B79FE5E3E47F589E
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154068.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154068.jpgsave_picture_154068.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ magnet:?xt=urn:btih:5B1F2B0DFB363EC172E5766B63C691C7EE7F6709
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154069.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154069.jpgsave_picture_154069.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ AVS Audio Software 10.0.4.13 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154070.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154070.jpgsave_picture_154070.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ The Far Kingdoms: Awakening Quest (2023) [En] (1.0) Unofficial
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154071.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154071.jpgsave_picture_154071.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Heartland - 13 альбомов Discography 14CD (1991-2011) [FLAC|Lossless|imag
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154072.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154072.jpgsave_picture_154072.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ magnet:?xt=urn:btih:5B7AE57668D41FDBB8B910C86D6833E041813F83
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154073.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154073.jpgsave_picture_154073.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ magnet:?xt=urn:btih:A3FB96B39C56E426019EEFB82D3A04E6CF5A510D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154074.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154074.jpgsave_picture_154074.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ CADintosh X 8.7 [Multi]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154075.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154075.jpgsave_picture_154075.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ magnet:?xt=urn:btih:A4D754C2F7295278706A669B864CD1E84D01E8E0
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154076.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154076.jpgsave_picture_154076.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ magnet:?xt=urn:btih:E3E154176B620DFA57DE05EAE46F5FFA4B6D411F
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154077.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154077.jpgsave_picture_154077.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ magnet:?xt=urn:btih:131D4A3062530A585C9383C20905DFC49917DB22
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154078.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154078.jpgsave_picture_154078.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ magnet:?xt=urn:btih:B91DE8B66809766951B31F107242E9F775040B31
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154079.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154079.jpgsave_picture_154079.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ magnet:?xt=urn:btih:3E2329C7B6FCFC934AB64AB9C49A082E7FD4F0C9
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154080.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154080.jpgsave_picture_154080.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ magnet:?xt=urn:btih:0EE09F227EA97D46A5401117F2FD910BD7532AFC
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154081.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154081.jpgsave_picture_154081.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117225.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117225.jpgsave_picture_117225.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ LibreWolf 122.0.1-2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117226.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117226.jpgsave_picture_117226.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Durbin - Screaming Steel (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117227.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117227.jpgsave_picture_117227.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Topaz Photo AI 2 for Mac 2.3.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117228.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117228.jpgsave_picture_117228.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ CrossOver 24.0-b3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117229.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117229.jpgsave_picture_117229.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ magnet:?xt=urn:btih:58B8638FB72342641D3E1979C3D1EA5BA6C5DC60
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117230.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117230.jpgsave_picture_117230.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ WinSCP 6.3.0 Build 14793 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117231.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117231.jpgsave_picture_117231.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ magnet:?xt=urn:btih:F61F90C2373B7FD628059784CDB469FA1CC489B4
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117232.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117232.jpgsave_picture_117232.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ Pink Floyd - Live At Vienna Stadthalle, Austria, 13 October 1973 (2023) [MP3|320
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117233.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117233.jpgsave_picture_117233.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Google Chrome 121.0.6167.185 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117234.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117234.jpgsave_picture_117234.jpg" />
 </div>
 
 
@@ -262,7 +262,7 @@ magnet:?xt=urn:btih:D01A86DB82D2AE767C218D85768FBD486F99FDED
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117235.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117235.jpgsave_picture_117235.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ LRTimelapse Pro 6 v.6.5.4 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117236.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117236.jpgsave_picture_117236.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ Brave Browser 1.62.165 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117237.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117237.jpgsave_picture_117237.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ FanControl V181 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117238.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117238.jpgsave_picture_117238.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ magnet:?xt=urn:btih:BA8C352635B33EC2B1F314ED71E2E56D808D559A
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117239.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117239.jpgsave_picture_117239.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Pet Shop Boys - Discography: The Complete Singles Collection (1991) 1st Austrian
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117240.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117240.jpgsave_picture_117240.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ magnet:?xt=urn:btih:0D29830A77DF4C3B64D2CE62D8CB19979A1E8E16
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117241.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117241.jpgsave_picture_117241.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ magnet:?xt=urn:btih:7EF07A8A07248240FFA20B17DA304F4A4534FF65
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117242.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117242.jpgsave_picture_117242.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ Media Player Classic Home Cinema (MPC-HC) 2.1.5 + Portable (unofficial) [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117243.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117243.jpgsave_picture_117243.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ Sante DICOM Viewer Pro 14.0.6 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117244.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117244.jpgsave_picture_117244.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ VA - Greatest Ever Decade 90s (2021) 4 CD [OGG Vorbis|480 Kbps] <Electronic, Hip
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117245.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117245.jpgsave_picture_117245.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ magnet:?xt=urn:btih:B90CBE4A4B2172EF2707C84F2DAEB0A15A4744B8
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117246.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117246.jpgsave_picture_117246.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ magnet:?xt=urn:btih:F205EB30C3975B959C6195D17B9AE23281D36E96
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117247.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117247.jpgsave_picture_117247.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Microsoft .NET 7.0.16 Runtime [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117248.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117248.jpgsave_picture_117248.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ magnet:?xt=urn:btih:4A415457807BBCC1097D22ADC6FC820AB486981B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117249.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117249.jpgsave_picture_117249.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Teach-In - The Best Of The Best (1997) [OGG Vorbis|480 Kbps] <Pop, Europop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117250.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117250.jpgsave_picture_117250.jpg" />
 </div>
 
 

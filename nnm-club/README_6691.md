@@ -6,7 +6,7 @@
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229576.jpgsave_picture_229576.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:F40B9C93EB3940C8E92C6C59832148A6311E13D5
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229578.jpgsave_picture_229578.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Swamp Dogg - Love, Loss, And Auto-Tune (2018) [FLAC|Lossless|tracks + .cue] <Sou
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229580.jpgsave_picture_229580.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Translate Tab 2.0.11 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229581.jpgsave_picture_229581.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:00A0CA80442F15E129F7F161D7DA7313CAD204E5
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229582.jpgsave_picture_229582.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Battle Chasers: Nightwar (2017) [Ru/Multi] (24037) License GOG [Digital Extras]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229584.jpgsave_picture_229584.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:50AE852381AC90AF9CB1F621DF1ECDE18339F78D
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229585.jpgsave_picture_229585.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ One Piece: Episode of Arabasta - Sabaku no Oujo to Kaizoku-tachi / One Piece: Th
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229586.jpgsave_picture_229586.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ magnet:?xt=urn:btih:CBA9ADE5C36AD0676128D4DBBED1FD63172DE12E
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229589.jpgsave_picture_229589.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ One Piece Movie 3 - Chinjou Shima no Chopper Oukoku / One Piece: Chopper Kingdom
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229590.jpgsave_picture_229590.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ magnet:?xt=urn:btih:B2F3133B9CC3C8464A0DAB2FABC9189DA1660A43
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_229591.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_229591.jpgsave_picture_229591.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ magnet:?xt=urn:btih:CADEA69FB5580E0DE48878D8385D2AFE49CB9A9E
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229592.jpgsave_picture_229592.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ magnet:?xt=urn:btih:9EA3CEDB65D35B7A8AF6556A0F40575FBBEFCCC9
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229593.jpgsave_picture_229593.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Krasimir Tsonev | 50 Tips on JavaScript: 50 of the most interesting features, co
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229595.jpgsave_picture_229595.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Helmut Zacharias und sein Orchester (1948 - 1959) 2011, 2CD, Membran Music [FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229596.jpgsave_picture_229596.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ magnet:?xt=urn:btih:90D5759004BEE246A7A2F20347F49E30596C8522
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229597.jpgsave_picture_229597.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ magnet:?xt=urn:btih:178CAB963ED44F9DAFF5C55996EA25E9F464966B
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229598.jpgsave_picture_229598.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ magnet:?xt=urn:btih:06A8A2975256B89C0EB7917ADA0121F612A4006F
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229601.jpgsave_picture_229601.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Android Studio Dolphin 2021.3.1.17 Patch 1 Build #AI-213.7172.25.2113.9123335 + 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229603.jpgsave_picture_229603.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ magnet:?xt=urn:btih:A42E994C13D003908AEB272D1B8D19AB1BC98AEF
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229604.jpgsave_picture_229604.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ magnet:?xt=urn:btih:CFA087181C43D4FC37D88CA61FAA0146F2090FF4
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229606.jpgsave_picture_229606.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ VA - Inner Balance: Chillout Your Soul, Vol. 1 (2017) [AAC|~332 Kbps] <Chillout,
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229607.jpgsave_picture_229607.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ magnet:?xt=urn:btih:3F6647A1E3D10A30A0DD046DC996D593EC0C14B3
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229609.jpgsave_picture_229609.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ magnet:?xt=urn:btih:B96ACB0E76E279502BD2352E7B0BEB65EB6060BC
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229610.jpgsave_picture_229610.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ magnet:?xt=urn:btih:20BE365C386EA7AA9A3BE6501396006AF4E687AF
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_229611.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_229611.jpgsave_picture_229611.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ magnet:?xt=urn:btih:F3D07FC51BE927B8B755939AAD012E66C0225A8A
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229613.jpgsave_picture_229613.jpg" />
 </div>
 
 

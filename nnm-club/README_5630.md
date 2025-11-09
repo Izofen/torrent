@@ -6,7 +6,7 @@ Marilyn Monroe - Film By Film (1953 - 1962) 2CD, 2004, Nocturne [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173374.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173374.jpgsave_picture_173374.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ TextSniper - OCR simplified 1.10.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173375.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173375.jpgsave_picture_173375.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:F6D0D1316FB997F43AFEB59E90A662036DC0D1CF
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173376.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173376.jpgsave_picture_173376.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Brave Browser 1.59.117 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173377.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173377.jpgsave_picture_173377.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:78E798D6787F174B41471D716425D1B716A1F470
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173378.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173378.jpgsave_picture_173378.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Chromium 118.0.5993.71 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173379.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173379.jpgsave_picture_173379.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:0D58CC1B5748CCF0C4749003CC24A8D9470A6AF2
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173380.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173380.jpgsave_picture_173380.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ Perfectly Clear WorkBench 4.6.0.2607 RePack (& Portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173381.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173381.jpgsave_picture_173381.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:C9004A9E1E857DC0EBB0DDDACB1CB5C35A687D13
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173382.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173382.jpgsave_picture_173382.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ Fuzzy Grass - The Revenge of the Blue Nut (2023) [FLAC|Lossless|WEB-DL|tracks] <
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173383.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173383.jpgsave_picture_173383.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ Monkey's Audio 10.25 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173384.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173384.jpgsave_picture_173384.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ Whitesnake - The Purple Album: Special Gold Edition (2015) Remix, 2023, Rhino [F
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173385.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173385.jpgsave_picture_173385.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ Cold Turkey Blocker Pro for Mac 4.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173386.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173386.jpgsave_picture_173386.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ magnet:?xt=urn:btih:4D26F7E280107F1B5EA990BBD80CCA930C34E63A
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173387.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173387.jpgsave_picture_173387.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ SwitchResX 4.13.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173388.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173388.jpgsave_picture_173388.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ magnet:?xt=urn:btih:CC2A61722E4DE5149FD25EE61AE41CF256C0D23C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173390.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173390.jpgsave_picture_173390.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ magnet:?xt=urn:btih:ED8E4DB57B8BA3869E21069FA4B94AFFC7C6DD6F
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173391.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173391.jpgsave_picture_173391.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Double Commander 1.1.29 gamma + Portable [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173392.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173392.jpgsave_picture_173392.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ magnet:?xt=urn:btih:927025955A20E82B1E293C2347A1E3EDB095F6C8
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173393.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173393.jpgsave_picture_173393.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ magnet:?xt=urn:btih:67EA426701ECB3EBBF976252535E067C14E64151
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173394.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173394.jpgsave_picture_173394.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ magnet:?xt=urn:btih:E9DC4A62D0A947F3549918D8E7B5A407AFA5AD8E
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173395.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173395.jpgsave_picture_173395.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ magnet:?xt=urn:btih:7FB588014FBEE0EA9F77C944C72D10DEF4DF7102
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173396.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173396.jpgsave_picture_173396.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ magnet:?xt=urn:btih:296FBF54CE06A56429901BB1086D380A4AC10446
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173397.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173397.jpgsave_picture_173397.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ magnet:?xt=urn:btih:04E072A4D24A2F0846F864A21D912CA863803FA7
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173398.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173398.jpgsave_picture_173398.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ Train Sim World 6 (2025) [Ru/Multi] (build 20097146/dlc) Repack seleZen
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173399.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173399.jpgsave_picture_173399.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ magnet:?xt=urn:btih:CBC337DA4BB19A08155D3D2984C6ED1D8C982987
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173400.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173400.jpgsave_picture_173400.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Windows 10 (v20h2) x64 HSL/PRO by KulHunter v3 (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161559.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161559.jpgsave_picture_161559.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Alan Wake 2 (2023) [Ru/Multi] (1.0.6/dlc) Repack DjDI [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161560.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161560.jpgsave_picture_161560.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ UVI - Austrian Grand v.1.0.3 (UVI Falcon) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161561.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161561.jpgsave_picture_161561.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Tenorshare iCareFone for WhatsApp Transfer 2.5.0 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161562.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161562.jpgsave_picture_161562.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:3BDBA00786F287714081E9CB359E4F6F014774C8
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161563.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161563.jpgsave_picture_161563.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:76DFCAEC85E2DCD3E6CC963C216608F19BD15ED1
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161564.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161564.jpgsave_picture_161564.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:EEC47B1DEB8EB12D639347748FD85DA985BE0591
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161565.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161565.jpgsave_picture_161565.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:A876F890EFDD7353F22C753A8F1C1F834AB34EA0
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161566.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161566.jpgsave_picture_161566.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:7219146089FC3B67FECB9B18D350F90B472DCE53
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161567.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161567.jpgsave_picture_161567.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ magnet:?xt=urn:btih:A8DA67A1435332877A26F81DE4BD30090DE05462
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161568.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161568.jpgsave_picture_161568.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ magnet:?xt=urn:btih:8B87D8F8D77950789F044FA86BFD0BEB7F44F1EC
 >>История
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161569.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161569.jpgsave_picture_161569.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ Adobe InDesign 2023 18.1.0.51 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161570.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161570.jpgsave_picture_161570.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Lovecraft's Untold Stories (2019) [Ru/Multi] (1.35) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161571.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161571.jpgsave_picture_161571.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ magnet:?xt=urn:btih:13446BB378831EA6CC12BBC4814EDA685A173701
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161572.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161572.jpgsave_picture_161572.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ magnet:?xt=urn:btih:77CB8D82164FC6988B7632D1E55C5E5BA81CCBA4
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161573.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161573.jpgsave_picture_161573.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Noize MC - Выход в город (2021) [AAC|~325 Kbps] <Rap, Hip Hop>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161574.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161574.jpgsave_picture_161574.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ magnet:?xt=urn:btih:726A8E5B2494E51FAE1DEB803BC527B32887A81D
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161575.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161575.jpgsave_picture_161575.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ magnet:?xt=urn:btih:082E1CDE260961340A1C7E2DE93B397A74266269
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161576.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161576.jpgsave_picture_161576.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ magnet:?xt=urn:btih:7322A6A7B4E20C528AB902D0FF9D12C6CC692724
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161577.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161577.jpgsave_picture_161577.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ IObit Driver Booster Pro 10.1.0.86 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161578.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161578.jpgsave_picture_161578.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ magnet:?xt=urn:btih:07D5C07FFED42A9973C5B5CDD10D12F69559BCEC
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161579.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161579.jpgsave_picture_161579.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ Above & Beyond - 10 Years of Group Therapy (2021) Compilation [FLAC|Lossless|WEB
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161580.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161580.jpgsave_picture_161580.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ magnet:?xt=urn:btih:DF66F359D995575B869B25915D58D62FDA9EB083
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161581.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161581.jpgsave_picture_161581.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Lian Ross - The Ballads (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161582.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161582.jpgsave_picture_161582.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ magnet:?xt=urn:btih:886F138368D37C0801AF603CE8661A7064E9891B
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161583.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161583.jpgsave_picture_161583.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ MXGP 2020 - The Official Motocross Videogame (2020) [Multi] (1.0) License CODEX
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161584.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161584.jpgsave_picture_161584.jpg" />
 </div>
 
 

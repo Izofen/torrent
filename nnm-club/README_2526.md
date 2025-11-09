@@ -6,7 +6,7 @@
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66426.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66426.jpgsave_picture_66426.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Electrical Calculations Pro / Электрические расчеты v10.4.2 
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66427.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66427.jpgsave_picture_66427.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:32181C44FB1787EBF3FEC862FCA7EA299BC6845E
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66428.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66428.jpgsave_picture_66428.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:478910C44DADB1699CC9E42C2C4D42BAB608A7FF
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66429.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66429.jpgsave_picture_66429.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Gandharva Loka Orchestra (Оркестр "Гандхарва Лока", Sri Chin
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66430.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66430.jpgsave_picture_66430.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:D877FBB8B566AFC58C89FBA4333ACC77ACC8FC98
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66431.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66431.jpgsave_picture_66431.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:08FFC9C1F1734BA2906EBFD1F8677F0FDFE599A9
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66432.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66432.jpgsave_picture_66432.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:297D12A59684B47D22B498F0353953328DAB0FAE
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66433.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66433.jpgsave_picture_66433.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:BBC1A087F267DBBCE91DFCBFFDCB5C889F4C6007
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66434.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66434.jpgsave_picture_66434.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:4ADC803CBFAE74410EAF1F40195D6B8E1FD62878
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66435.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66435.jpgsave_picture_66435.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:0818457ECC03B0E2A5A65C7F8841AA3528AF26D4
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66436.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66436.jpgsave_picture_66436.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:D252500E59FD3FDD05CF48C5EE771302F77C7D5B
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66437.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66437.jpgsave_picture_66437.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ magnet:?xt=urn:btih:EF2CF790B56D1B7AA57A2B5671F41D73B71E30AA
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66438.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66438.jpgsave_picture_66438.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ magnet:?xt=urn:btih:64296B29EDB39467E15E3A7C444083ADAD9951C6
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66439.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66439.jpgsave_picture_66439.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Easy Voice Recorder - Pro / Простой диктофон Про v2.9.9 Mod by
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66440.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66440.jpgsave_picture_66440.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ magnet:?xt=urn:btih:CCC38F660C3B16920D350BEE04DB3E5947395918
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66441.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66441.jpgsave_picture_66441.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ magnet:?xt=urn:btih:67BDA185FABE343744280FD367224A425A36DE73
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66442.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66442.jpgsave_picture_66442.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ magnet:?xt=urn:btih:67BDA185FABE343744280FD367224A425A36DE73
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66443.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66443.jpgsave_picture_66443.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ VA - Music News For Forum vol.094 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66444.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66444.jpgsave_picture_66444.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ magnet:?xt=urn:btih:7417B2941653164FB39B1259024EB0B0A812B09F
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66445.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66445.jpgsave_picture_66445.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ magnet:?xt=urn:btih:481F097ADBD48589364617A2D39117CE6A097860
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66446.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66446.jpgsave_picture_66446.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ magnet:?xt=urn:btih:8ADED0F370DBB248715ED57F67F2EB90B657F512
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66447.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66447.jpgsave_picture_66447.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ magnet:?xt=urn:btih:F12665E4BD57417A212BC770D24BC4D5008ECB30
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66448.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66448.jpgsave_picture_66448.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Firefighting Simulator: The Squad (2020) [Ru/Multi] (1.0.41.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66449.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66449.jpgsave_picture_66449.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ O.C. Zienkiewicz, L.R. Taylor | The Finite Element Method [3 книги] (2000) 
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66450.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66450.jpgsave_picture_66450.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Richard Wyands - The Arrival (1992) DIW Records [FLAC|Lossless|tracks + .cue] <H
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66451.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66451.jpgsave_picture_66451.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>2D графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79707.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79707.jpgsave_picture_79707.jpg" />
 </div>
 
 
@@ -39,7 +39,7 @@ Edius. Эта программа популярна как среди нович
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79708.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79708.jpgsave_picture_79708.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ Edius. Эта программа популярна как среди нович
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79726.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79726.jpgsave_picture_79726.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Edius. Эта программа популярна как среди нович
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79728.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79728.jpgsave_picture_79728.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ magnet:?xt=urn:btih:C527179184BF2CAB2ADB1185EEB6AD32AEB325BF
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79734.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79734.jpgsave_picture_79734.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ magnet:?xt=urn:btih:5D5A8432CE14E26182B248AB6EEE0DC81FDB0854
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79743.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79743.jpgsave_picture_79743.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ magnet:?xt=urn:btih:88C8C31C16C8A605C4153BC368D676BFD079DC8E
 >>Религии и культы (Док/TV)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79751.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79751.jpgsave_picture_79751.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ magnet:?xt=urn:btih:132778AB70C4E613F4861A5DF2D9C51692CAAB78
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79756.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79756.jpgsave_picture_79756.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ magnet:?xt=urn:btih:85A0D2B872FC426ECE28992A0C6CC5286938BB4E
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79757.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79757.jpgsave_picture_79757.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ magnet:?xt=urn:btih:A62964DFC3A0306C4A95F7EF64FCB557F12526E1
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79759.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79759.jpgsave_picture_79759.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ magnet:?xt=urn:btih:1F394333DF2B167E46BAA4A6785FF33BFE0F8194
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79762.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79762.jpgsave_picture_79762.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ magnet:?xt=urn:btih:F2D0DB77CEAB1036AC55A3F1D29ACC3D42BF9CD2
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79767.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79767.jpgsave_picture_79767.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ magnet:?xt=urn:btih:6545BC53366D850C33407F9C1C86735C02DD72BB
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79771.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79771.jpgsave_picture_79771.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ magnet:?xt=urn:btih:82331A186908B7D1B60EC8D41F791A265480977D
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79776.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79776.jpgsave_picture_79776.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ magnet:?xt=urn:btih:82331A186908B7D1B60EC8D41F791A265480977D
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79778.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79778.jpgsave_picture_79778.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ magnet:?xt=urn:btih:82331A186908B7D1B60EC8D41F791A265480977D
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79780.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79780.jpgsave_picture_79780.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Kill Win Locker by Core-2 6.2.12 6.2.12 [Английский + Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79781.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79781.jpgsave_picture_79781.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Kill Win Locker by Core-2 6.2.12 6.2.12 [Английский + Русский]
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79782.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79782.jpgsave_picture_79782.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ magnet:?xt=urn:btih:7B5152D6196464C6E2D204DF390B46EDA3EB5FB0
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79783.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79783.jpgsave_picture_79783.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ magnet:?xt=urn:btih:2E255745A590522A6A039BAC3D23A001467E916E
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79785.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79785.jpgsave_picture_79785.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ RERemix Linux Desktop 6.2 Live [i686 + x86_64] (2xDVD)
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79786.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79786.jpgsave_picture_79786.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ magnet:?xt=urn:btih:4D4940CB1FE15009C6F480B46C68EF814100F981
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79789.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79789.jpgsave_picture_79789.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ magnet:?xt=urn:btih:4D4940CB1FE15009C6F480B46C68EF814100F981
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79792.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79792.jpgsave_picture_79792.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ magnet:?xt=urn:btih:4D4940CB1FE15009C6F480B46C68EF814100F981
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79793.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79793.jpgsave_picture_79793.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ magnet:?xt=urn:btih:4D4940CB1FE15009C6F480B46C68EF814100F981
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79798.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79798.jpgsave_picture_79798.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Nightwish - Lokikirja (2009) Box Set, 8CD / Spinefarm Records / [FLAC|Lossless]<
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79800.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79800.jpgsave_picture_79800.jpg" />
 </div>
 
 

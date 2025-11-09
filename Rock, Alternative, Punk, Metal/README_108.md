@@ -6,7 +6,7 @@ VA - Константин Ступин. Трибьют. Часть 2 (2024) [MP3
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105225.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105225.jpgsave_picture_105225.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Ze Fish - Душевнородной (2024) [MP3|320 Kbps] <Rock, Punk>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105231.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105231.jpgsave_picture_105231.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:538ABF0D270B2C979263ED985077F503B8DD57F9
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105238.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105238.jpgsave_picture_105238.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ The Georgia Thunderbolts - Rise Above It All (2024) [FLAC|Lossless|WEB-DL|tracks
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105239.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105239.jpgsave_picture_105239.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Bloodcrown - Sound of Flesh and Bone (2024) [FLAC|Lossless|WEB-DL|tracks] <Death
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105256.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105256.jpgsave_picture_105256.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Cognitive Dissonance - Return To The Flame (2022) [FLAC|Lossless|WEB-DL|tracks] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105257.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105257.jpgsave_picture_105257.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Fontaines D.C. - Romance (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105263.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105263.jpgsave_picture_105263.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Virgin Steele - Guardians Of The Flame (1983) Reissue, Remastered, 2024, Steamha
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105267.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105267.jpgsave_picture_105267.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Nighthawk - Midnight Hunter (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105268.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105268.jpgsave_picture_105268.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Virgin Steele - Virgin Steele I (1982) Reissue, Remastered, 2024, Steamhammer, T
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105271.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105271.jpgsave_picture_105271.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Fleshgod Apocalypse - Opera (2024) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Deat
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105276.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105276.jpgsave_picture_105276.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Kingcrow - Hopium (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Progre
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105277.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105277.jpgsave_picture_105277.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Jon Anderson and The Band Geeks - True (2024) [FLAC|Lossless|WEB-DL|tracks] <Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105280.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105280.jpgsave_picture_105280.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Simone Simons - Vermillion (2024) [FLAC|Lossless|WEB-DL|tracks] <Modern Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105292.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105292.jpgsave_picture_105292.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Crossfade - Carousel (2019) [FLAC|Lossless|image + .cue] <Westcoast, Soft Rock, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105312.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105312.jpgsave_picture_105312.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ The Church - Eros Zeta And The Perfumed Guitars (2024) [FLAC|Lossless|tracks + .
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105314.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105314.jpgsave_picture_105314.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Holycide - Towards Idiocracy (2024) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105318.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105318.jpgsave_picture_105318.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Spektra - Hypnotized (2024) Japanese Edition [FLAC|Lossless|image + .cue] <Melod
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105331.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105331.jpgsave_picture_105331.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Nestor - Teenage Rebel (2024) Japanese Edition [FLAC|Lossless|image + .cue] <Mel
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105339.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105339.jpgsave_picture_105339.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ And So I Watch You From Afar - 7 Albums (2009-2024) [MP3|320 Kbps] <Post-Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105344.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105344.jpgsave_picture_105344.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Bad Boy - Private Party (1981) Limited Edition, Reissue, Remastered, 2024, Pride
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105355.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105355.jpgsave_picture_105355.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ April Fool - Playin' To Win (1989) Reissue, Remastered, 2024, Heaven And Hell Re
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105356.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105356.jpgsave_picture_105356.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Freedom Rockets - American Trash (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105359.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105359.jpgsave_picture_105359.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Marrgothic - Ten Life Stages (2024) [FLAC|Lossless|WEB-DL|tracks] <Modern Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105360.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105360.jpgsave_picture_105360.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Balga, Autumn Tales - Midnight Mystery (2024) [FLAC|Lossless|image + .cue] <Atmo
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105361.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105361.jpgsave_picture_105361.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ The Spiritual Machines - Lockhearted (2024) [FLAC|Lossless|WEB-DL|tracks] <Prog 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105362.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105362.jpgsave_picture_105362.jpg" />
 </div>
 
 

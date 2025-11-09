@@ -6,7 +6,7 @@ Epica - Requiem For The Indifferent (2012) [MP3|320 кб/с (Scene)]<Symphonic M
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80398.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80398.jpgsave_picture_80398.jpg" />
 </div>
 
 
@@ -39,7 +39,7 @@ Adrenaline Mob - Omerta (2012) [MP3|320 кб/с]<Alternative Metal / Heavy Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80571.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80571.jpgsave_picture_80571.jpg" />
 </div>
 
 
@@ -72,7 +72,7 @@ magnet:?xt=urn:btih:31B75D1133EF1131347433F5A55CAB58688D01F1
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80737.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80737.jpgsave_picture_80737.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Cliff Lin - This Is War (2012) [MP3|192 кб/с]<Alternative rock/Industrial Met
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80794.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80794.jpgsave_picture_80794.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Fort Royal - 4 Альбома (2000-2010) [MP3|128-320 кб/с]<Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80805.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80805.jpgsave_picture_80805.jpg" />
 </div>
 
 
@@ -171,7 +171,7 @@ magnet:?xt=urn:btih:D195E59A7E35BBE45B6923E8F25B1143200ED923
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80838.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80838.jpgsave_picture_80838.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ Stratovarius - Best Ballads (2012) [MP3|320 кб/с]<Power Metal>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80858.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80858.jpgsave_picture_80858.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ magnet:?xt=urn:btih:E4B2541573865E561FB53C8102D5B6F0353C2C06
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80880.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80880.jpgsave_picture_80880.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Status Quo - Gold (2005) [MP3|320 кб/с]<Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80980.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80980.jpgsave_picture_80980.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Lacuna Coil - Dark Adrenaline (2012) [MP3|320 кб/с]<Gothic Metal, Alternative
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81007.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81007.jpgsave_picture_81007.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ Sweet (The sweet) - 4 альбома (1974-1982) [FLAC|Lossless]<Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81042.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81042.jpgsave_picture_81042.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ Alice Cooper - Halloween Night Of Fear (2011) [MP3|320 кб/с]<Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81154.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81154.jpgsave_picture_81154.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ Heaven's Gate (Heavens Gate) - 3 альбома (1989-1992) [FLAC|Lossless]<Heav
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81162.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81162.jpgsave_picture_81162.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Tiamat – Wildhoney (1994) Original Non-Remastered Pressing /1994, Century Medi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81211.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81211.jpgsave_picture_81211.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ ZZ Top - The Best Blues & Ballads (2001) [MP3|320 кб/с]<Rock, Blues>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81453.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81453.jpgsave_picture_81453.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Lee Small - Jamaica Inn (2012) [FLAC|lossless]<Hard Rock / Blues>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81656.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81656.jpgsave_picture_81656.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Lee Small - Jamaica Inn (2012) [FLAC|lossless]<Hard Rock / Blues>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81704.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81704.jpgsave_picture_81704.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Blue October - Any Man In America (2011) [MP3|320 кб/с]<Alternative Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81800.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81800.jpgsave_picture_81800.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Shocking Blue - The Very Best Of (1989) G.G.K. [APE|Lossless]<Rock, Nederbeat, P
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82021.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82021.jpgsave_picture_82021.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Shocking Blue - The Very Best Of (1989) G.G.K. [APE|Lossless]<Rock, Nederbeat, P
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82040.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82040.jpgsave_picture_82040.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ magnet:?xt=urn:btih:7F630D9136CC911051A79E25C5A6991D791E95A3
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82594.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82594.jpgsave_picture_82594.jpg" />
 </div>
 
 
@@ -675,7 +675,7 @@ magnet:?xt=urn:btih:AA3892D2884915820C170728E692D398AC8543C2
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82681.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82681.jpgsave_picture_82681.jpg" />
 </div>
 
 
@@ -708,7 +708,7 @@ George Strait - [41 альбом] Дискография (1981 - 2009) [MP3|~192
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82796.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82796.jpgsave_picture_82796.jpg" />
 </div>
 
 
@@ -741,7 +741,7 @@ Soen - Cognitive (2012) [FLAC|Lossless]<Progressive Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82813.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82813.jpgsave_picture_82813.jpg" />
 </div>
 
 
@@ -774,7 +774,7 @@ Marilyn Manson - No Reflection (Single) (2012) [MP3|320 кб/с]<Alternative, In
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82824.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82824.jpgsave_picture_82824.jpg" />
 </div>
 
 
@@ -799,7 +799,7 @@ Soulfly - Enslaved (2012) [FLAC|Lossless]<Groove Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82826.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82826.jpgsave_picture_82826.jpg" />
 </div>
 
 

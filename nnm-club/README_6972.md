@@ -6,7 +6,7 @@
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239403.jpgsave_picture_239403.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Hotwire - The Story so Far 1993 - 2023 (2023) [FLAC|Lossless|WEB-DL|tracks] <Mel
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239405.jpgsave_picture_239405.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Chiliasm - Flesh Over Finite (2021) EP [FLAC|Lossless|WEB-DL|tracks] <Neoclassic
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239406.jpgsave_picture_239406.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Timemator 2 v2.7.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239407.jpgsave_picture_239407.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ magnet:?xt=urn:btih:B8D3C51D8FA9BCCADA0BA47852B66AD650B5F33A
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239408.jpgsave_picture_239408.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ Speakers Corner Quartet - Further Out Than The Edge (2023) [FLAC 24/44.1|Lossles
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_239410.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_239410.jpgsave_picture_239410.jpg" />
 </div>
 
 
@@ -161,7 +161,7 @@ Koritni - Long Overdue (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239411.jpgsave_picture_239411.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ PatterNodes 2 v2.3.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239413.jpgsave_picture_239413.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ magnet:?xt=urn:btih:79601165163A2BBAE0647D88657860B4FEF8A76C
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239414.jpgsave_picture_239414.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ DevilDriver - Dealing With Demons, Volume II (2023) [FLAC|Lossless|image + .cue]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239415.jpgsave_picture_239415.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ Yate 6.11 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239417.jpgsave_picture_239417.jpg" />
 </div>
 
 
@@ -290,7 +290,7 @@ magnet:?xt=urn:btih:C62BA42158C490CCF1AF4726F332AD1943EB164B
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239420.jpgsave_picture_239420.jpg" />
 </div>
 
 
@@ -314,7 +314,7 @@ Tanya Tucker - Sweet Western Sound (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <C
 >>Folk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239421.jpgsave_picture_239421.jpg" />
 </div>
 
 
@@ -341,7 +341,7 @@ Hookshot 1.12 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239422.jpgsave_picture_239422.jpg" />
 </div>
 
 
@@ -365,7 +365,7 @@ magnet:?xt=urn:btih:1593CE5326799F71288C7789B8602BE3F524E6B6
 >>Футбол
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239423.jpgsave_picture_239423.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ BusyCal 3 v3.11.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239424.jpgsave_picture_239424.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ Unclutter 2.2.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239425.jpgsave_picture_239425.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ magnet:?xt=urn:btih:302D5C2A1EA6891075468D4195DAF69DCF2FC5CC
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239427.jpgsave_picture_239427.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Google заблокировал аккаунт отца, отправившег�
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239429.jpgsave_picture_239429.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ VA - Favorite Techno (2021) [MP3|320 Kbps] <Techno, Minimal, Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239430.jpgsave_picture_239430.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Coffinborn - Cadaveric Retribution (2023) [MP3|320 Kbps] <Death Metal, Oldschool
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239431.jpgsave_picture_239431.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ magnet:?xt=urn:btih:C82A3A203E0D35B070616792F28A5DC5BE56BA03
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239432.jpgsave_picture_239432.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ The Laser's Edge - PROG presents- The Laser's Edge Group (2022) [MP3|320 Kbps] <
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239434.jpgsave_picture_239434.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ magnet:?xt=urn:btih:5B627E7B5AEE6943BD90809969A6D95D14E9617A
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239436.jpgsave_picture_239436.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ magnet:?xt=urn:btih:44407CCB85542F6DC1DAEF4EBF0EB717EB69FFFD
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239437.jpgsave_picture_239437.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ Uninstall Tool 3.6.0 Build 5684 + Portable [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239438.jpgsave_picture_239438.jpg" />
 </div>
 
 

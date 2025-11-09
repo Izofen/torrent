@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163710.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163710.jpgsave_picture_163710.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Process Lasso Pro 9.5.0.40 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163711.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163711.jpgsave_picture_163711.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:51C0243C90B82211E2F1E515EA63D6545A8CD216
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163712.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163712.jpgsave_picture_163712.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:99D0D07426142D789129848A6A35AB92149F74C7
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163713.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163713.jpgsave_picture_163713.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Pixelmator Pro 2.3.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163714.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163714.jpgsave_picture_163714.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Ashampoo WinOptimizer 18.00.18 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163715.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163715.jpgsave_picture_163715.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:736F7897E4F395C49F3B607DFA929B85E079BB1E
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163716.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163716.jpgsave_picture_163716.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:8B5F07B13D1E6E37552F9EF23278CE0DB7B05C38
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163717.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163717.jpgsave_picture_163717.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:5992EEF9001EDA7E479FDA5BF90C7D5AE57BAAD6
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163718.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163718.jpgsave_picture_163718.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Hodel - Live @ Monday Bar (God Rave The Queen Cruise), Tallink Silja, Sweden (20
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163719.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163719.jpgsave_picture_163719.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:327B3B7ABECD6B558BE14C53327DB6858A2E3030
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163720.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163720.jpgsave_picture_163720.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:7F772FB35F135CD4981A83EBDBD969D3BA5FE99D
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163721.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163721.jpgsave_picture_163721.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:B7BD0BD5D1BB248E3EFBA29EB534EB35058E994D
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163722.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163722.jpgsave_picture_163722.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Pool of Radiance: Ruins of Myth Drannor (2001) [Ru] (1.4) License
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163723.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163723.jpgsave_picture_163723.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Nox App Player 7.0.0.8003 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163724.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163724.jpgsave_picture_163724.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ magnet:?xt=urn:btih:650B9A0FC693D0F1AEF6A028D4F5D9B4BF673146
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163725.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163725.jpgsave_picture_163725.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ magnet:?xt=urn:btih:E0DAA1FAA5B4BB2BDDDA0E365EBC308D376ADF79
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163726.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163726.jpgsave_picture_163726.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Big Mean Folder Machine 2 v2.43 fix [EN]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163727.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163727.jpgsave_picture_163727.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ LibreOffice 7.0.4.2 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163728.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163728.jpgsave_picture_163728.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ magnet:?xt=urn:btih:A1BD7BDE2F143B2C6414E68596F3EE01E443CCD6
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163729.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163729.jpgsave_picture_163729.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ magnet:?xt=urn:btih:5BB47062268FACACADCB001780B128856AA77C40
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163730.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163730.jpgsave_picture_163730.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ VA - This is Ablazing 2021 (Mixed and Selected by Rene Ablaze) (2021) [AAC|~342 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163731.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163731.jpgsave_picture_163731.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ CG Cookie, Jonathan Lampel | ASSEMBLE: Introduction to Procedural Modeling with 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163732.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163732.jpgsave_picture_163732.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ magnet:?xt=urn:btih:865DAE5742865FEEBCB027177AABF34B5871C476
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163733.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163733.jpgsave_picture_163733.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ magnet:?xt=urn:btih:9F6125685BC49436B9DD480A2A0AB74319C6564A
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163734.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163734.jpgsave_picture_163734.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ The Kennedy Veil - Imperium (2017) [FLAC|Lossless|tracks + .cue] <Technical Brut
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163735.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163735.jpgsave_picture_163735.jpg" />
 </div>
 
 

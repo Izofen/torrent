@@ -6,7 +6,7 @@ Winterstorm - Everfrost (2023) [FLAC|Lossless|WEB-DL|tracks] <Power Metal, Folk 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186478.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186478.jpgsave_picture_186478.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:817A1C3D8AB8EAF00E2944ED79B197523699EB47
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186479.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186479.jpgsave_picture_186479.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Rising Wings - Reach (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock, AO
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186480.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186480.jpgsave_picture_186480.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Renee Rosnes - As We Are Now (1997) Blue Note [FLAC|Lossless|tracks + .cue] <Pos
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186481.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186481.jpgsave_picture_186481.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Askheimr - Askheimr (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Black, Death M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186482.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186482.jpgsave_picture_186482.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ By Fire & Sword - Glory (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186483.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186483.jpgsave_picture_186483.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Abigor - (Totschlager) Totschläger (A Saintslayer's Songbook) (2020) [FLAC|Loss
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186484.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186484.jpgsave_picture_186484.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Vengeance - Sewer Surge (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy, Spe
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186485.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186485.jpgsave_picture_186485.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Orbiter - Hollow World (2023) [FLAC|Lossless|WEB-DL|tracks] <Stoner, Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186486.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186486.jpgsave_picture_186486.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Akiavel - Vae Victis (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186487.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186487.jpgsave_picture_186487.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:5E162B678EAAC6A872CD3B7E8210E129061031E8
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186488.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186488.jpgsave_picture_186488.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Alkaloid - Numen (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186489.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186489.jpgsave_picture_186489.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Sahib Shihab - Summer Dawn (1963) 2008, Rearward [FLAC|Lossless|tracks + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186490.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186490.jpgsave_picture_186490.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ magnet:?xt=urn:btih:30AA929E44AD1D3C4CA85114EE8F1FE72F4416D6
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186492.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186492.jpgsave_picture_186492.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Symantec Endpoint Protection 14.3 RU8 (14.3.23160.8000/14.3.10148.8000) x64 [Ru/
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186493.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186493.jpgsave_picture_186493.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ magnet:?xt=urn:btih:4B51EE1142CA4AC29EC8C1319ECCB6ADA6EE5AC8
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186495.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186495.jpgsave_picture_186495.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Slurm (Слёрм), Егор Лукьянов, Александр Вагнер |
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186496.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186496.jpgsave_picture_186496.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ magnet:?xt=urn:btih:C5F74A8CC7362CBEF0B2AAE62BEE3CC2C3016605
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186497.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186497.jpgsave_picture_186497.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ magnet:?xt=urn:btih:45ED35EFEF743311A9085A79D0ECD3735FBF6575
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186499.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186499.jpgsave_picture_186499.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ magnet:?xt=urn:btih:A95CD60766ABF41256C7A5A1A8B840B57711BF8F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186501.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186501.jpgsave_picture_186501.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ magnet:?xt=urn:btih:F149C635D1E09D6A0882824AB58E8F199E189B94
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186502.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186502.jpgsave_picture_186502.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ magnet:?xt=urn:btih:DF23D808AE98A33C8F343D553D410819C687C02E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186503.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186503.jpgsave_picture_186503.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ magnet:?xt=urn:btih:576352E7E35101D6ED0E6235145A77699A3A3FA6
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186504.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186504.jpgsave_picture_186504.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ magnet:?xt=urn:btih:9446CD6A55824679393A454D6619BE6A415221BC
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186507.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186507.jpgsave_picture_186507.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ Lv1 Maou to One Room Yuusha | Level 1 Demon Lord and One Room Hero | Однуш�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186508.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186508.jpgsave_picture_186508.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ Hello Engineer: Scrap Machines Constructor (2023) [Ru/Multi] (1.3.13u802) Scene 
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186509.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186509.jpgsave_picture_186509.jpg" />
 </div>
 
 

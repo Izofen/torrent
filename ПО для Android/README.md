@@ -6,7 +6,7 @@
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_314.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_314.jpgsave_picture_314.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Folder Player Pro v5.36 b353 Paid [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_315.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_315.jpgsave_picture_315.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Gallery - Photo Gallery, Album (XGallery) v1.9.9 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_317.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_317.jpgsave_picture_317.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Moon+ Reader Pro v10.2 (b1002000) Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_320.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_320.jpgsave_picture_320.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Vanced Tube v5.4.80.375 Mod by TRUMods [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_324.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_324.jpgsave_picture_324.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ FacePic - AI Face App v2.9.4 Pro Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_330.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_330.jpgsave_picture_330.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:112EB4E4EE3050C37243DC7EDD29CEF42CFF99D3
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_334.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_334.jpgsave_picture_334.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ AI Photo Editor - AIFoto v1.15.3 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_335.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_335.jpgsave_picture_335.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ Microsoft exFAT/NTFS for USB by Paragon Pro v5.0.1.2 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_344.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_344.jpgsave_picture_344.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ FBReader Premium v3.8.18 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_352.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_352.jpgsave_picture_352.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ magnet:?xt=urn:btih:684F0C67C8B85C5BEE8C5807035726B3571A0251
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_391.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_391.jpgsave_picture_391.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ AndroVid Pro Video Editor v7.0.8.5 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_530.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_530.jpgsave_picture_530.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ WaveStudio (WaveEditor Record & Edit Audio) v1.126 Mod by Alex.Strannik [Ru/Mult
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_531.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_531.jpgsave_picture_531.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Auto Reply: автоответчик v5.7 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_533.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_533.jpgsave_picture_533.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ PictureThis - Plant Identification v5.13.0 Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_549.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_549.jpgsave_picture_549.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ Electrical Calculations Pro / Электрические расчеты v11.0.1 
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_554.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_554.jpgsave_picture_554.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ Flud v1.11.8.1 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_559.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_559.jpgsave_picture_559.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ WPS Office + PDF v18.21 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_570.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_570.jpgsave_picture_570.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ AIDA64 v2.12 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_577.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_577.jpgsave_picture_577.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ MobiOffice: Word, Sheets, PDF Premium v15.9.57961 Extra Mod by Balatan [Ru/Multi
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_583.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_583.jpgsave_picture_583.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ magnet:?xt=urn:btih:E46C26B7D1BAFEE9F4094B7EEBA2D220AF0C11F4
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_595.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_595.jpgsave_picture_595.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ Purvpn 9.6 [En/Farsi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_604.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_604.jpgsave_picture_604.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ FullReader - читалка книг v4.3.6 b365 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_638.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_638.jpgsave_picture_638.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ ByeByeDPI v1.6.6 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_907.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_907.jpgsave_picture_907.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Rosetta Stone: Изучение языков 8.34.2 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1004.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1004.jpgsave_picture_1004.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ RUTUBE - видео, шоу, трансляции 30.10.3 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1037.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1037.jpgsave_picture_1037.jpg" />
 </div>
 
 

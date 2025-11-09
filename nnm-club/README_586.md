@@ -6,7 +6,7 @@ VA - Sunny Day 2025 (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15547.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15547.jpgsave_picture_15547.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:E4B50A5AE27D465A9F68D9D698F0E9DA9896EF70
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15548.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15548.jpgsave_picture_15548.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ magnet:?xt=urn:btih:8EA8538A2979B356D8DE29A73063F0A988EF880C
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15549.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15549.jpgsave_picture_15549.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ Queen Latifah - Trav'lin' Light (2007) CD, Album, Club Edition [FLAC|Lossless|tr
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15550.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15550.jpgsave_picture_15550.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ When Rivers Meet - Addicted To You (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <R
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15551.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15551.jpgsave_picture_15551.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ magnet:?xt=urn:btih:4FB10FE0CADCA29D1E4CEEA58F9B3A031D0AAAA2
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15552.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15552.jpgsave_picture_15552.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ magnet:?xt=urn:btih:0361416D9F5A9109A497753EE03A7CA3EB99C833
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15553.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15553.jpgsave_picture_15553.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Angel Ice - Play It Hard Play It Loud (2025) [FLAC|Lossless|WEB-DL|tracks] <Heav
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15554.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15554.jpgsave_picture_15554.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Gary Hoey - Avalanche (2025) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <Blues Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15555.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15555.jpgsave_picture_15555.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Mark Murphy - Love Is What Stays (2007) Verve Records [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15556.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15556.jpgsave_picture_15556.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Joe & The Regulators - Are You Regulated? (2025) [FLAC 24/48|Lossless|WEB-DL|tra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15557.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15557.jpgsave_picture_15557.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Omen - Kell az ima (2025) [MP3|320 Kbps] <Power, Thrash, Speed Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15558.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15558.jpgsave_picture_15558.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Keb' Mo', Taj Mahal - Room On The Porch (2025) [FLAC 24/48|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15559.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15559.jpgsave_picture_15559.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Joe Kelly & The Royal Pharmacy - Cast Me Down (2025) [FLAC 24/44.1|Lossless|WEB-
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15560.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15560.jpgsave_picture_15560.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Edgar Blues Trio - SHINE (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Roc
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15561.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15561.jpgsave_picture_15561.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ magnet:?xt=urn:btih:91AA2CDB7D25F2C0D5CD51CB968EAAA6E8D3F7EC
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15562.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15562.jpgsave_picture_15562.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Picsart AI Photo Editor, Video v27.6.5 Final Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15563.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15563.jpgsave_picture_15563.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ magnet:?xt=urn:btih:1D14F82A5668AFE00496AE47E4A0ED8702CA15DF
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15564.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15564.jpgsave_picture_15564.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ VA - Music News For Forum vol.099 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15565.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15565.jpgsave_picture_15565.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ magnet:?xt=urn:btih:DE81DCE4482CE11B92AC800326304C2CF5536DFE
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15566.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15566.jpgsave_picture_15566.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ TikTok Private Plus v40.3.7 Mod by TikTok + Plugin Update 2.8 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15567.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15567.jpgsave_picture_15567.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Arturia - MiniFreak V 4.0.1 STANTALONE, VSTi, VSTi 3 (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15568.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15568.jpgsave_picture_15568.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ magnet:?xt=urn:btih:B23BF6983B917F68F1FD541C3F1FFFD1D74FC4EA
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15569.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15569.jpgsave_picture_15569.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ magnet:?xt=urn:btih:5D85638BE42DAB2B3F36FBD26B68CABEACCF521A
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15570.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15570.jpgsave_picture_15570.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ magnet:?xt=urn:btih:67A6D8A3AFC7D86D22D4F74472A84DCF211AD645
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15571.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15571.jpgsave_picture_15571.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ magnet:?xt=urn:btih:FEAC88B59E6FCDE7B5D76528D40EFC267D7347B6
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15572.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15572.jpgsave_picture_15572.jpg" />
 </div>
 
 

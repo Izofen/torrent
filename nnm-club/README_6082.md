@@ -6,7 +6,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191479.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191479.jpgsave_picture_191479.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:2AC52D4E8068ED8C11914DC1E50D5D22F96B9A51
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191480.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191480.jpgsave_picture_191480.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:BD7CCF8EB32F800D074AF82802423068FDF07268
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191481.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191481.jpgsave_picture_191481.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:F4F2DCF5740A3147AA338EB165FA278A4871962F
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191482.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191482.jpgsave_picture_191482.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ PDF-XChange Editor Plus 10.1.0.380 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191483.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191483.jpgsave_picture_191483.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:BE20F2D394FE8E34F54BFB9A14107342986BBBFD
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191484.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191484.jpgsave_picture_191484.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Dais Dark - Poweramp v3 Skin 1.3.7 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191485.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191485.jpgsave_picture_191485.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:74E2A3AF8797160400E1376B5BDDAB1E068C5E4C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191486.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191486.jpgsave_picture_191486.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:24C3666AC78662F3D7E83056A9A0D7DC3E8F1BFF
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191487.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191487.jpgsave_picture_191487.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:D37B8B2470B3555D85E7E76F428AC303D169F4B2
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191488.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191488.jpgsave_picture_191488.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ ishutinow
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191489.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191489.jpgsave_picture_191489.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ Auslogics Anti-Malware Pro 1.22.0.2 RePack (& Portable) by elchupacabra [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191490.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191490.jpgsave_picture_191490.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ Supermax - 5 Albums (1982 - 1992) Remastered, 2007, CD-Maximum [FLAC|Lossless|tr
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191492.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191492.jpgsave_picture_191492.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ magnet:?xt=urn:btih:2A92956086154F37A158B596B0D06BE7DDC380A5
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191493.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191493.jpgsave_picture_191493.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ magnet:?xt=urn:btih:7A174CAE78CF9CE4388434A35CE60D44E937E48B
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191494.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191494.jpgsave_picture_191494.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ magnet:?xt=urn:btih:70F7BA449BD7B2E1565022A45A2B3324E438C267
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191495.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191495.jpgsave_picture_191495.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ magnet:?xt=urn:btih:2E392DA448A5A0D7C8D59EAE1C1453BD138412A1
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191496.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191496.jpgsave_picture_191496.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ magnet:?xt=urn:btih:175183A19196CC33D3EFDF0784C68C8240CDF2A8
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191497.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191497.jpgsave_picture_191497.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ magnet:?xt=urn:btih:2791B81FF0A3F0994CFBD680F8FABC009480F700
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191498.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191498.jpgsave_picture_191498.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ magnet:?xt=urn:btih:9F7B5340EE3D5556C9884F40B7688184782D878D
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191499.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191499.jpgsave_picture_191499.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ magnet:?xt=urn:btih:C7DF7354C561E299ADFFBAFC0BAAA732ED9043C5
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191500.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191500.jpgsave_picture_191500.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Hex Editor Neo Ultimate 7.37.00.8578 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191501.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191501.jpgsave_picture_191501.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Tony Martin (Forcefield, Giuntini Project, Empire, Rondinelli, Silver Horses) - 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191502.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191502.jpgsave_picture_191502.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ magnet:?xt=urn:btih:71C4EB10855AB604941F7904C2CCB422EA4D22C1
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191503.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191503.jpgsave_picture_191503.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ magnet:?xt=urn:btih:71C4EB10855AB604941F7904C2CCB422EA4D22C1
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191504.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191504.jpgsave_picture_191504.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ AOMEI NTFS to FAT32 Converter 2.0 Free [En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_191505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191505.jpgsave_picture_191505.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52965.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52965.jpgsave_picture_52965.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Windows Server 2022 LTSC [10.0.20348.2527], Version 21H2 (Updated June 2024) - �
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52966.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52966.jpgsave_picture_52966.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:BB763015A33E14F80DBC53FA2CB176301377ABDB
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52967.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52967.jpgsave_picture_52967.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:7F0AB95B106FF1D86AD6A2C53979B5B452F0B2F2
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52968.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52968.jpgsave_picture_52968.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Psiphon 3 build 183 (17.06.2024) Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52969.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52969.jpgsave_picture_52969.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ SpeedyFox 2.0.30 Build 155 Portable [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52970.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52970.jpgsave_picture_52970.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:4BD0D58B1FD5B0473E12BB11212FD7BE100BB501
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52971.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52971.jpgsave_picture_52971.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:A5CED18583BCEDAD2D699BE9861D8A77EB099451
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52972.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52972.jpgsave_picture_52972.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:5BC94FDB5E7E61F513507AAE9F0D5F36ECB33DB7
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52973.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52973.jpgsave_picture_52973.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:56C1DC953E24E57AF8CDD8EBA533708A235B3681
 >>Изобразительное искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52974.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52974.jpgsave_picture_52974.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ ViewBox v1.8.10 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52975.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52975.jpgsave_picture_52975.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ magnet:?xt=urn:btih:382CC0CB45852C8A1D5AE1D7365A5C3F2B368F5B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52976.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52976.jpgsave_picture_52976.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Atom Smith - Playing with Fire (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Elect
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52977.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52977.jpgsave_picture_52977.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ BAND-MAID - World Domination Tour (Shinka) at Line Cube Shibuya (Shibuya Public 
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52978.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52978.jpgsave_picture_52978.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ magnet:?xt=urn:btih:B3C39AF8EF5787B4C0B3FA021689DB0BF35EBB33
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52979.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52979.jpgsave_picture_52979.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Sparks - No. 1 In Heaven (1979) 45th Anniversary Edition, 2024, Lil Beethoven Re
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52980.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52980.jpgsave_picture_52980.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ VA - Kismet-Юбилейный сборник 2CD (2019) [MP3|320 Kbps] <Шан�
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52981.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52981.jpgsave_picture_52981.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ Microsoft Visual Studio 2022 Enterprise 17.10.2 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52982.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52982.jpgsave_picture_52982.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ Overlays - Floating Launcher 8.1.1 Mod by Balatan [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52983.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52983.jpgsave_picture_52983.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ magnet:?xt=urn:btih:7FDA3BA68DD6B921A6EA7111AFCCFFC4B94C0B91
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52984.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52984.jpgsave_picture_52984.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ BAND-MAID - Tour Autumn-Winter 2017 at Studio Coast (2017) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52985.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52985.jpgsave_picture_52985.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ magnet:?xt=urn:btih:BEFA93098CDC3F331320E74643F5244089074B79
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52986.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52986.jpgsave_picture_52986.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Microsoft Visual Studio 2019 Enterprise 16.11.37 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52987.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52987.jpgsave_picture_52987.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ High-Logic FontCreator Professional Edition 15.0.0.2987 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52988.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52988.jpgsave_picture_52988.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ magnet:?xt=urn:btih:E692E15186B0629DE780E892B349CE00EB2DF199
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52989.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52989.jpgsave_picture_52989.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ Venise - The Body Trip (1979) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52990.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52990.jpgsave_picture_52990.jpg" />
 </div>
 
 

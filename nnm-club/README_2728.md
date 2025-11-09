@@ -6,7 +6,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71678.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71678.jpgsave_picture_71678.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:8F0475FF6FCB7E146EBAA825F489DF94380C857B
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71679.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71679.jpgsave_picture_71679.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:0B9B5557303268B5E7EAFA89B080AAD5E20AFA57
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71680.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71680.jpgsave_picture_71680.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:85CF30BF33E57F5ECEB8A6BCEFA7EC7D8616FEC2
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71681.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71681.jpgsave_picture_71681.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ VA - Black Hole Trance Music 01-25 (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71682.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71682.jpgsave_picture_71682.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ VA - Electronic Dance music 2025 (2025) [MP3|320 Kbps] <Dance, Club, House, Elec
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71683.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71683.jpgsave_picture_71683.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ VA - Country Soft (2025) [FLAC|Lossless|WEB-DL|tracks] <Country>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71684.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71684.jpgsave_picture_71684.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:AE8EE4D820D554F29433EF10CAA1EA8FC0C10084
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71685.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71685.jpgsave_picture_71685.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:BFF83D58C403EA93CFF0AA7601E6560DFE5EE004
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71686.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71686.jpgsave_picture_71686.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ magnet:?xt=urn:btih:6DAB798DEBC3DFCFB99315106F76D9BAE741430C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71687.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71687.jpgsave_picture_71687.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ magnet:?xt=urn:btih:735DB1FCB1BE63F800BB47C524A5C927B6A2A19A
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71688.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71688.jpgsave_picture_71688.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ magnet:?xt=urn:btih:13D155D264FEA465035E8722FDAE589F9F894B6B
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71689.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71689.jpgsave_picture_71689.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ The Big Deal - Electrified (2025) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71690.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71690.jpgsave_picture_71690.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ Epysode - Studio Albums (2 releases) (2011-2013) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71691.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71691.jpgsave_picture_71691.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ Teddy Wilson - Just A Mood (1934 - 1946) 2CD, 2001, History [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71692.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71692.jpgsave_picture_71692.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ magnet:?xt=urn:btih:A092BC2627741081FFD180D8D01D4ECF6DBC74A8
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71693.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71693.jpgsave_picture_71693.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ magnet:?xt=urn:btih:A092BC2627741081FFD180D8D01D4ECF6DBC74A8
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71694.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71694.jpgsave_picture_71694.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ magnet:?xt=urn:btih:24BDAF3F144833B3A79985758A81B65D3B734A3A
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71695.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71695.jpgsave_picture_71695.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ Metal Church - The Final Sermon (2024) Japanese Edition, Live In Japan 2019 [FLA
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71696.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71696.jpgsave_picture_71696.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ Alter Bridge - One Day Remains (2004) Deluxe Edition, Reissue, 2024, Craft Recor
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71697.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71697.jpgsave_picture_71697.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ Downhome Kin - Dusty Roads, Rusty Strings (2025) [FLAC|Lossless|WEB-DL|tracks] <
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71698.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71698.jpgsave_picture_71698.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Blood Incantation - Absolute Elsewhere (2024) 3xCD, Deluxe Edition, Limited Edit
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71699.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71699.jpgsave_picture_71699.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ magnet:?xt=urn:btih:22E39DF5FCBA5AF96291DBE255CF201E2EFEC67D
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71700.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71700.jpgsave_picture_71700.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Jesse James and the Mob - Checkin the Mic (2025) [FLAC|Lossless|WEB-DL|tracks] <
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71701.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71701.jpgsave_picture_71701.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ Martín Burguez & His Rhythm Combo - I'm Gonna Move (2025) [FLAC|Lossless|WEB-DL
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71702.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71702.jpgsave_picture_71702.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ Lunarway - Eternal Moments (2024) [FLAC 16/44.1|Lossless|WEB-DL|tracks] <Symphon
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71703.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71703.jpgsave_picture_71703.jpg" />
 </div>
 
 

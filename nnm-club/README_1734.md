@@ -6,7 +6,7 @@
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45441.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45441.jpgsave_picture_45441.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Ashampoo UnInstaller 15.00.10 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45442.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45442.jpgsave_picture_45442.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Fast Screen Recorder 2.1.0.2 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45443.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45443.jpgsave_picture_45443.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Slade - MTV History (2000) 2CD [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45444.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45444.jpgsave_picture_45444.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:BBC1AD091F4B3FE974AC62D0674095CC4FE522D4
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45445.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45445.jpgsave_picture_45445.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ VA - Piano and Violin Classical Music (2024) [FLAC|Lossless|WEB-DL|tracks] <Clas
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45446.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45446.jpgsave_picture_45446.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ VA - Шансон премьера 2024 август (Новые песни. Н�
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45447.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45447.jpgsave_picture_45447.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ K-Lite Codec Pack Update 18.5.2 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45448.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45448.jpgsave_picture_45448.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ VA - Самые новые песни о любви 5 (2024) [FLAC|Lossless|WEB-
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45449.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45449.jpgsave_picture_45449.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ magnet:?xt=urn:btih:0F93202406F3EB1DA110063B8AA98AB1D30E1D17
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45450.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45450.jpgsave_picture_45450.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ magnet:?xt=urn:btih:033F4DE69B32AE008049E99E7896D4CC3A7B4860
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45451.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45451.jpgsave_picture_45451.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ Ant Download Manager Pro 2.14.0 Build 88304 (x32) / Build 88305 (x64) RePack (& 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45452.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45452.jpgsave_picture_45452.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ magnet:?xt=urn:btih:00CC901079D3822D569C9CF7A67F6917C44DED73
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45453.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45453.jpgsave_picture_45453.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ magnet:?xt=urn:btih:15F5147F54341E870645F9569082A9345C5649BB
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45454.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45454.jpgsave_picture_45454.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Ashampoo UnInstaller 15.00.10 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45455.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45455.jpgsave_picture_45455.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Zhandou Wang: Jufeng Zhan Hun 6 | Infinity Nado 6 | Инфинити Надо 6 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45456.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45456.jpgsave_picture_45456.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Various Artists - Italo Lounge (2007) [WavPack|Lossless|image + .cue] <Lounge>
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45457.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45457.jpgsave_picture_45457.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ YT Downloader 9.10.9 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45458.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45458.jpgsave_picture_45458.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ VA - Ride to Paradise: Chillout Your Mind (2024) [FLAC|Lossless|WEB-DL|tracks] <
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45459.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45459.jpgsave_picture_45459.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ magnet:?xt=urn:btih:294147E0415656FCA268C8AB007C14FB77E2C5CD
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45460.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45460.jpgsave_picture_45460.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ magnet:?xt=urn:btih:00C96932B21FC64ECA1CF0BF74BBAD0F89F8C5B6
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45461.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45461.jpgsave_picture_45461.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ magnet:?xt=urn:btih:1912821D595AE0E80D1DE696572DF1C6BE7CB547
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45462.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45462.jpgsave_picture_45462.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ magnet:?xt=urn:btih:BA9C621EE47FD8F45CFCB3EB435BD7F766E5444A
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45463.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45463.jpgsave_picture_45463.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ magnet:?xt=urn:btih:F722F3863FF30793F94D6374792A16D0EE26B468
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45464.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45464.jpgsave_picture_45464.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ magnet:?xt=urn:btih:FD9E4978AA1AC0D4014B6B398B604A6ABC0D3BF4
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45465.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45465.jpgsave_picture_45465.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ magnet:?xt=urn:btih:FD9E4978AA1AC0D4014B6B398B604A6ABC0D3BF4
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45466.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45466.jpgsave_picture_45466.jpg" />
 </div>
 
 

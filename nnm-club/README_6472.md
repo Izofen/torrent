@@ -6,7 +6,7 @@ Green Day - 21 Guns (2009) BDRip [H.264/1080p-LQ] [handmade Upscale]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204977.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204977.jpgsave_picture_204977.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:E7EF6F1B81442310681D3AD149C06165C6B7C68F
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204978.jpgsave_picture_204978.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:7F92503C646BB84B57FCB9F37A39143F3ADD4C5B
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204979.jpgsave_picture_204979.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:6092E6C7A50C2BCAA0E5ED9DA414E534AB9144E4
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204980.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204980.jpgsave_picture_204980.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:800BEC164E37713FF945EAC13F37E349D8D0D8B0
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204981.jpgsave_picture_204981.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Comodo Dragon 114.0.5735.99 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204982.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204982.jpgsave_picture_204982.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Dynamic Island - dynamicSpot 1.71 (200093) Mod by youarefinished [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204983.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204983.jpgsave_picture_204983.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:4936C5943A6D1442B5CDEC5BA0B7EC5C5867FF78
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204984.jpgsave_picture_204984.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ QOwnNotes 23.8.1 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204985.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204985.jpgsave_picture_204985.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:B51BC075AADDFE588B282E7B1FA23C2815990194
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204986.jpgsave_picture_204986.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ magnet:?xt=urn:btih:DB5EC3DE0AF6C83B3182ECA00BF8B5CDAC97B0C6
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204987.jpgsave_picture_204987.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ magnet:?xt=urn:btih:88449D99AF02D42AAC73C0E4C4286AE38614A0F6
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204988.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204988.jpgsave_picture_204988.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ magnet:?xt=urn:btih:06D26224B6F57FB294481B42A4AF70F311DF6206
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204989.jpgsave_picture_204989.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ magnet:?xt=urn:btih:659AF06B2B23D3AEFFF2B9E94C8CA8BD64BBCD8F
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204990.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204990.jpgsave_picture_204990.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ MAGIX Movie Studio 2023 22.0.3.165 Suite (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204991.jpgsave_picture_204991.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ ExamDiff Pro Master Edition 14.0.1.11 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204992.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204992.jpgsave_picture_204992.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ magnet:?xt=urn:btih:E12CB174D43C7325844A9ADED7716B88780680CE
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204993.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204993.jpgsave_picture_204993.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Jean-Michel Jarre - OXYMORE (2022) 2CD [FLAC|Lossless|WEB-DL|tracks] <Electronic
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204994.jpgsave_picture_204994.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ VA - Дуэты русского шансона Vol.1 (2019) MP3 [320 Kbps] <Ш�
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204995.jpgsave_picture_204995.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ magnet:?xt=urn:btih:602A07D4912DED139E73054C54DBD7E88DE4E470
 >>История
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204996.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204996.jpgsave_picture_204996.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ magnet:?xt=urn:btih:49DC0956A175330C50A30824DD0C0EF482DF016E
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204997.jpgsave_picture_204997.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ The Exaltics - The 7th Planet (2023) [FLAC|Lossless|WEB-DL|tracks] <sci-fi elect
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204998.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204998.jpgsave_picture_204998.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ The Cure - Melkweg Amsterdam 1979 (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204999.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204999.jpgsave_picture_204999.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ Jean-Michel Jarre - OXYMORE (2022) 2CD [MP3|320 Kbps] <Electronic, Experimental>
 >>Ambient, Experimental, Modern Classical
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_205000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205000.jpgsave_picture_205000.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ magnet:?xt=urn:btih:A3DE000CDA60B686B1CC7C351D0C0A3669ED6FFF
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205001.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205001.jpgsave_picture_205001.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ Nik Collection by DxO 5.2.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_205002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205002.jpgsave_picture_205002.jpg" />
 </div>
 
 

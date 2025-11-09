@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179831.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179831.jpgsave_picture_179831.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Noch (2023) [Ru/Multi] (1.0.0.12532) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179834.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179834.jpgsave_picture_179834.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:4B3183A7B79636D2EE8CFFD70A075B251683EAFF
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179835.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179835.jpgsave_picture_179835.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Auslogics Duplicate File Finder 10.0.0.1 RePack (& Portable) by TryRooM [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179839.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179839.jpgsave_picture_179839.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:B32038408181D3A6D73B09CBA9F36CA5EF7F8A2E
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179840.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179840.jpgsave_picture_179840.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:620AB7C06C19863F5288CADB6EBFF06C6E516D7D
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179841.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179841.jpgsave_picture_179841.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:693D82B98DB7DBB67E6CC12AFD01D4DB4FCC18F8
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179844.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179844.jpgsave_picture_179844.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:522F5D1A2ECBED77D6BB2521C4FDB8BFC26C12F1
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179847.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179847.jpgsave_picture_179847.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Silence of Her Death - 1 Album, 7 Singles (2018-2022) [FLAC|Lossless|WEB-DL|trac
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179848.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179848.jpgsave_picture_179848.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Auslogics Duplicate File Finder 10.0.0.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179850.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179850.jpgsave_picture_179850.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:CB71F29AFAC9651E50C06F6B5EE75584683CC5BA
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_179851.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_179851.jpgsave_picture_179851.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ EaseUS Data Recovery Wizard Technician 16.3.0.0 RePack (& Portable) by Dodakaedr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179853.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179853.jpgsave_picture_179853.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ XnView Classic 2.51.5 (Minimal-Standard-Extended) + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_179857.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_179857.jpgsave_picture_179857.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ VeraCrypt 1.26.7 + Portable [Multi/Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179859.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179859.jpgsave_picture_179859.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ magnet:?xt=urn:btih:9F2741E0B2513078AC9F1E58302E0F73D8BF985D
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179862.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179862.jpgsave_picture_179862.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Lone Runner - Memories of 2082 (2022) [FLAC|Lossless|WEB-DL|tracks] <Retrowave, 
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179865.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179865.jpgsave_picture_179865.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ magnet:?xt=urn:btih:0C604ED33F2C720769CC7D33FE309E90CB6ACBC1
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_179866.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_179866.jpgsave_picture_179866.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ magnet:?xt=urn:btih:34EA5D2A6610D6C0947E2875BBE048DED6AFDBC7
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179868.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179868.jpgsave_picture_179868.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ Glary Tracks Eraser 5.0.1.247 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179872.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179872.jpgsave_picture_179872.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ magnet:?xt=urn:btih:45B494329903BA162ADAA980F88F170AB1DAD2A0
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179874.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179874.jpgsave_picture_179874.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Abomi Nation (2021) [Multi] (1.3.1) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179877.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179877.jpgsave_picture_179877.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Robert Miles - Dreamland (1996) [OGG Vorbis|650 Kbps] <Electronic, Dream, Trance
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179878.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179878.jpgsave_picture_179878.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Q-Dir 11.15 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179879.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179879.jpgsave_picture_179879.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Google, Netflix и других IT-гигантов захотели заста�
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_179882.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_179882.jpgsave_picture_179882.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ White Spirit - Right Or Wrong (2022) [FLAC|Lossless|image + .cue] <Melodic Hard 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179883.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179883.jpgsave_picture_179883.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ Otavio Santana, Karina Varela | Persistence Best Practices for Java Applications
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_179885.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_179885.jpgsave_picture_179885.jpg" />
 </div>
 
 

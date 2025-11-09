@@ -6,7 +6,7 @@ Moog Music - Mariana 1.1.0 Standalone, VSTi 3, AAX (x64) RePack by TCD (Rev.1) [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120159.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120159.jpgsave_picture_120159.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ GoldWave 6.80 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120161.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120161.jpgsave_picture_120161.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Windows 11 Debloater 2.0.3 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120162.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120162.jpgsave_picture_120162.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ AOMEI Partition Assistant Standard Edition 10.3.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120163.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120163.jpgsave_picture_120163.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ RUTUBE: видео, шоу, трансляции 28.18.2-android Mod by N3k1t4_1
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120164.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120164.jpgsave_picture_120164.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Total Commander 11.02 (26.01.2024) Portable by MiG [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120165.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120165.jpgsave_picture_120165.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:F573559C53E4E782F38DACB3C020FE653478378D
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120166.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120166.jpgsave_picture_120166.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:61B1F1D8C9AE977AC0A5AFCE33AAB5FDDC4E45DE
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120167.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120167.jpgsave_picture_120167.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ WinTools.net Premium 24.1.1 (29.01.2024) RePack (& portable) by KpoJIuK [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120168.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120168.jpgsave_picture_120168.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:16308B878080D86389D7E7CC75B6471E86242ECD
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120169.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120169.jpgsave_picture_120169.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:1D17DA19694C9C221B990DE7ACA22A0C8ABCBCCB
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120170.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120170.jpgsave_picture_120170.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Jigokuraku | Hell's Paradise: Jigokuraku | Адский рай [ТВ-1] [2023, T
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120171.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120171.jpgsave_picture_120171.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ magnet:?xt=urn:btih:929AAA8277D89AFA8D873AFFB2E535381146535E
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120172.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120172.jpgsave_picture_120172.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ magnet:?xt=urn:btih:638D4F7E2983F065AD5FA6C57823C60C73051C4A
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120173.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120173.jpgsave_picture_120173.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ magnet:?xt=urn:btih:389DDF6695358DFEA9DD2AF8A2CAC753CF9FAAFE
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120174.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120174.jpgsave_picture_120174.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:617CA66962B3FB3BB043A9EB5EBC747D614AC8C3
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120175.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120175.jpgsave_picture_120175.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ TechSmith Camtasia 23.4.2 (Build 51146) RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120176.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120176.jpgsave_picture_120176.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ magnet:?xt=urn:btih:68D85199B80DBAD8490B0681CEA8F70E50A552BB
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120177.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120177.jpgsave_picture_120177.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ Total Commander 11.03 RC3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120178.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120178.jpgsave_picture_120178.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ magnet:?xt=urn:btih:43527E1D933D2FAF8C2BA177BB44E7FBA1BA350C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120179.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120179.jpgsave_picture_120179.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ magnet:?xt=urn:btih:3E372E916DE3E87B5B2362836BCB6E64BF58649D
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120180.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120180.jpgsave_picture_120180.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ magnet:?xt=urn:btih:FD07C37737C0296CE935C59883E25817BD150E6F
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120181.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120181.jpgsave_picture_120181.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ magnet:?xt=urn:btih:0A0EF4BE8E5F91ACBAD6B9284FE1A425DDAF9B19
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120183.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120183.jpgsave_picture_120183.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ magnet:?xt=urn:btih:927BB5604AD69FFCE8BB6FBBA7E9F9A8EF9C4D14
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120184.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120184.jpgsave_picture_120184.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Ripple Training, Mark Spencer | Advanced Color Grading in DaVinci Resolve 17/18 
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120185.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120185.jpgsave_picture_120185.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ magnet:?xt=urn:btih:61562D0E538B77904B736016F70C5339D0EBC7DC
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120186.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120186.jpgsave_picture_120186.jpg" />
 </div>
 
 

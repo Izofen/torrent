@@ -6,7 +6,7 @@ Ioon Cosmic Downtempo - Unearthed Chants (2023) [FLAC|Lossless|WEB-DL|tracks] <P
 >>Psybient, Psychill, Psydub (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_230367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230367.jpgsave_picture_230367.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Hot Unkle T - Stay In A Club (2023) [FLAC 2.0|44.1/24|image +.cue|WEB-DL] <Nu Di
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_230370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230370.jpgsave_picture_230370.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Kerala Dust - Violet Drive (2023) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Org
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230658.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230658.jpgsave_picture_230658.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - Bossa N' Elvis (2023) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo, B
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230662.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230662.jpgsave_picture_230662.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ VA - Maretimo Chill Radio - Best of, Vol. 2 - Positive Summer Vibes (2023) [FLAC
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230689.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230689.jpgsave_picture_230689.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ VA - Keep It Trance Vol. 14 (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230693.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230693.jpgsave_picture_230693.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ VA - 15 Years Of Enhanced Music, Mixed by Tritonal (2023) [MP3|320 Kbps] <Trance
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230699.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230699.jpgsave_picture_230699.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ VA - Silent Shore Trance - Summer (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230718.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230718.jpgsave_picture_230718.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Stahlnebel & Black Selket - Time Between Passion & Despair (2019) Limited Editio
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_230817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230817.jpgsave_picture_230817.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ VA - Milk & Sugar Summer Sessions 2023 [MP3|320 Kbps] <Funky, Club House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230857.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230857.jpgsave_picture_230857.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ VA - Armin van Buuren - A State Of Trance 1130 (2023) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230911.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230911.jpgsave_picture_230911.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Dvar - Madegirah II (2023) [FLAC|Lossless|WEB-DL|tracks] <Darkwave>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230930.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230930.jpgsave_picture_230930.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ VA - Black Hole Trance Music 07-23 (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230956.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230956.jpgsave_picture_230956.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ VA - Black Hole House Music 07-23 (2023) [MP3|320 Kbps] <House, Progressive Hous
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230958.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230958.jpgsave_picture_230958.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ VA - 40 Summer Hits 2023 [MP3|320 Kbps] <Dance, Club, House, Electronic>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231017.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231017.jpgsave_picture_231017.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Nouveau Arcade - Dead Hearts (2023) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Cy
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231038.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231038.jpgsave_picture_231038.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Landscape - Landscape a Go-Go (The Story of Landscape 1977-83) (2023) 5CD, Remas
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231067.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231067.jpgsave_picture_231067.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Landscape - Before and After (2023) [MP3|320 Kbps] <New Wave, Synthpop>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231095.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231095.jpgsave_picture_231095.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Mega Drive - 200XAD (2023) [FLAC|Lossless|WEB-DL|tracks] <Retrowave, Punk, New W
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231099.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231099.jpgsave_picture_231099.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Recite The Cynic - Recite The Cynic (2023) [FLAC|Lossless|WEB-DL|tracks] <Indust
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231101.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231101.jpgsave_picture_231101.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Sung - Metal Age (2023) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave, Dar
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231130.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231130.jpgsave_picture_231130.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ VA - Levitated Trance - Summer (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231159.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231159.jpgsave_picture_231159.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Zardonic - Superstars (2023) [MP3|320 Kbps] <Industrial Rock, Drum & Bass, Elect
 >>Dubstep, Future Garage, Bass Music, UK Garage
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231267.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231267.jpgsave_picture_231267.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Step By Step [ex. Lime] - Reason Of My Life (1994) [MP3|320 Kbps] <Electronic, H
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231285.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231285.jpgsave_picture_231285.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ VA - Deep House Summer 2023 [MP3|320 Kbps] <House, Deep House, Dance, Club>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231287.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231287.jpgsave_picture_231287.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ VA - Uplifting Only Top 15: July 2023 (Extended Mixes) (2023) [MP3|320 Kbps] <Tr
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231312.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231312.jpgsave_picture_231312.jpg" />
 </div>
 
 

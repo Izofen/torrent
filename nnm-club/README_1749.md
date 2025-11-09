@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45831.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45831.jpgsave_picture_45831.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Homeless (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45832.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45832.jpgsave_picture_45832.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Outlanders (2023) [Ru/Multi] (20240822/dlc) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45833.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45833.jpgsave_picture_45833.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:72ADC32E3B089859A9C622B71C83A2A467D69C99
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45834.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45834.jpgsave_picture_45834.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Pink Floyd PULSE (1994) 2xDVD9
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45835.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45835.jpgsave_picture_45835.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:77A1DC5897A42A23FF7B460E5EB3DDCC2466A516
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45836.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45836.jpgsave_picture_45836.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:B14C977751719A3FCDFA80DB5837BDD3F982D960
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45837.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45837.jpgsave_picture_45837.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Microsoft Windows 11 [10.0.22631.4037], Version 23H2 (Updated August 2024) - О�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45838.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45838.jpgsave_picture_45838.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:C2F070AB5A41926C1F9FBD62DB4BE7DF3E28B674
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45839.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45839.jpgsave_picture_45839.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ magnet:?xt=urn:btih:A21DFE4BEF76A63160156BC6319CCABDCD3D74AC
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45840.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45840.jpgsave_picture_45840.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Electric Light Orchestra-The Very Best Of (1971-1986) DVD5
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45841.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45841.jpgsave_picture_45841.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:156BF96806F25BB177C847586106C3102603727D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45842.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45842.jpgsave_picture_45842.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Total Commander PowerUser v.74 Portable by HA3APET [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45843.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45843.jpgsave_picture_45843.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Pink Floyd. The Wall (1982) DVD9
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45844.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45844.jpgsave_picture_45844.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Pink Floyd - Live at Pompeii (Director's Cut, 1972/2003 гг. DVD9)
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45845.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45845.jpgsave_picture_45845.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:8B2252AA960DF0B5FDFC25BEB2FF7FB56030153F
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45846.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45846.jpgsave_picture_45846.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Deep Purple - History, Hits & Highlights '68-'76 (1968-1976) 2*DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45847.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45847.jpgsave_picture_45847.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ magnet:?xt=urn:btih:FE24428D9BE6BA9A70D2C2837A09C2F7390075DA
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45848.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45848.jpgsave_picture_45848.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ magnet:?xt=urn:btih:4395DFDEDCD410DF95E48D9B5F2C61C68A8FFFFE
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45849.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45849.jpgsave_picture_45849.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ magnet:?xt=urn:btih:92E1C1133D021F78997F3C4552E939FD846B02F6
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45850.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45850.jpgsave_picture_45850.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ magnet:?xt=urn:btih:585B52417E2ACCBB2075CD8A08480BF2E99980D7
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45851.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45851.jpgsave_picture_45851.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ magnet:?xt=urn:btih:C25542035D582D97AA1821741A5CC62FFDA94F62
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45852.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45852.jpgsave_picture_45852.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:C25542035D582D97AA1821741A5CC62FFDA94F62
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45853.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45853.jpgsave_picture_45853.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ magnet:?xt=urn:btih:6F2E809003466CDCF4E75E165826E13EFFFC1845
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45854.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45854.jpgsave_picture_45854.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ magnet:?xt=urn:btih:4E14897FAE19C68FF7C5B0C74E0990066D81552F
 >>Экранки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45855.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45855.jpgsave_picture_45855.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ magnet:?xt=urn:btih:12D1CF063E8C843320CB5C0DDC963D5739094C35
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45856.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45856.jpgsave_picture_45856.jpg" />
 </div>
 
 

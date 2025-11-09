@@ -6,7 +6,7 @@
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87192.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87192.jpgsave_picture_87192.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:A682F8E491C7FFA385272CD2D7C293AE3ED5B8B2
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87208.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87208.jpgsave_picture_87208.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:9D46D6B404F0D990E7CC325260B3BEAD705E7059
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87223.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87223.jpgsave_picture_87223.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:DAD3D4651D5D1A3A97F09C6E58F96BA7DE8D400E
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87409.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87409.jpgsave_picture_87409.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:AB9531159ECE0AC251ADD1C7B1EF1EE2015A9CFE
 >>Нормативная документация
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87447.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87447.jpgsave_picture_87447.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:0E345396CA3DAA3CBA49888A87DCFF9ABBA28D76
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87599.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87599.jpgsave_picture_87599.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:6BD758685BB108901049293FE06CEEBD70F93A37
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87710.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87710.jpgsave_picture_87710.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ magnet:?xt=urn:btih:46531043A0F15FFA7978EA5E369AA432F663B426
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87740.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87740.jpgsave_picture_87740.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ magnet:?xt=urn:btih:A528A7394839BF4F8C11F773A9DE24CAA929F6A2
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87807.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87807.jpgsave_picture_87807.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ magnet:?xt=urn:btih:5D86849760DF1DAD2FB1BA0E3184B17EC7BDFC21
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87822.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87822.jpgsave_picture_87822.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ magnet:?xt=urn:btih:88355DBBBFBBEA72447B2CF1E98DDB1B60A45784
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88041.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88041.jpgsave_picture_88041.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ magnet:?xt=urn:btih:CD3210C7BBFDE19D4DDD22F2F30BD7B5C1FB4D82
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88055.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88055.jpgsave_picture_88055.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ magnet:?xt=urn:btih:CACA1E9359301F5659B1A0DE8C316F3D8478F361
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88087.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88087.jpgsave_picture_88087.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ magnet:?xt=urn:btih:BA8A7580A762DA55521115CF75B5F8A70D1CA01F
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88294.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88294.jpgsave_picture_88294.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ magnet:?xt=urn:btih:757F98C52C17F02185AEE64BED15023545313574
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88337.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88337.jpgsave_picture_88337.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ magnet:?xt=urn:btih:FC23E69012CF85C7075EC260697251ECF1B6A629
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88345.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88345.jpgsave_picture_88345.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ magnet:?xt=urn:btih:47E56CDD05A56DDEF75C0065D3E25B85D3318969
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88369.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88369.jpgsave_picture_88369.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ magnet:?xt=urn:btih:67CA8A0A6BBEF534D2DB0231850B7F964B28FA6F
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88490.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88490.jpgsave_picture_88490.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ magnet:?xt=urn:btih:36A7631A7FA4536F147CFE05DBE787B118F65F0F
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88557.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88557.jpgsave_picture_88557.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ magnet:?xt=urn:btih:315FC1C95F7D0943C41B145C1C5EDBEF2D873FF4
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88653.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88653.jpgsave_picture_88653.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ magnet:?xt=urn:btih:FC99AF0987B697C35F9E8FDA53D1A4F61F89F176
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88787.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88787.jpgsave_picture_88787.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ magnet:?xt=urn:btih:F71BA585FDF86502CBB8023600501BB7E0015CC8
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88797.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88797.jpgsave_picture_88797.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ magnet:?xt=urn:btih:49BB1E5DF61248F6A2786FFB476591698EA3C306
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88861.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88861.jpgsave_picture_88861.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ magnet:?xt=urn:btih:E1FC29759F819C25B9FD2862C8B35F5F9875E3BF
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89178.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89178.jpgsave_picture_89178.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ magnet:?xt=urn:btih:3E325C15BB4DEC6C9C16A2E2CBECEB2FEE6BD136
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89225.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89225.jpgsave_picture_89225.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ magnet:?xt=urn:btih:7FF89C0DBF8AECBFAC3AF5EADC1A18B46A11BFBC
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89268.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89268.jpgsave_picture_89268.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Microsoft .NET 6.0.7 Runtime [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250097.jpgsave_picture_250097.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ R-Drive Image System Recovery Media Creator Technician 7.1 Build 7103 RePack (& 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250098.jpgsave_picture_250098.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:C7B9FA5881CC7BF6D78EB39B5E1A7B659A578081
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250099.jpgsave_picture_250099.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:8CCCAF4A870E663BF087FB884175486307A50730
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250100.jpgsave_picture_250100.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:9C7C85202E829EED16725291CB621FDCF2773A40
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250101.jpgsave_picture_250101.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ magnet:?xt=urn:btih:527E1180D397ACC6C6E675561E5B418EF4F89E0C
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250102.jpgsave_picture_250102.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ magnet:?xt=urn:btih:70A1378773C13339935D20AAA9431C6A3CF178D8
 >>Космос
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250103.jpgsave_picture_250103.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:228BE3A704BFD7E72C0F671BDB4A2B6C5EF7BC8A
 >>Космос
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250104.jpgsave_picture_250104.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:2C9F90221E223D8F21F4F5E63802613042427FE3
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250105.jpgsave_picture_250105.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:CD034FA2ED3DD5BE8117AB7782E929EAEB889E99
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250106.jpgsave_picture_250106.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:F8C87D56939B2AF92F88EE6CC94D7CAEB11B8586
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250107.jpgsave_picture_250107.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ DxO ViewPoint 4.4.0 Build 195 (x64) Portable by 7997 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250108.jpgsave_picture_250108.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ VA - Enigma-Forest-Transit 6 (1998) [OGG Vorbis|480 Kbps] <Electronic, Ambient, 
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250109.jpgsave_picture_250109.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Garmin: TrekMap Italia v6 PRO [It]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250110.jpgsave_picture_250110.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ magnet:?xt=urn:btih:EE8563C5E81936AF77329DEE5D8E50392D7BF9B4
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250111.jpgsave_picture_250111.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ magnet:?xt=urn:btih:05663A19DE91456E4905C2BDAC0BEB064F8C2F6E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250112.jpgsave_picture_250112.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ magnet:?xt=urn:btih:9BADC423ED11D3CAAFF43593AA551CAE6C5F4732
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250113.jpgsave_picture_250113.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ magnet:?xt=urn:btih:95D9AD55B4C0C401DFE49B2B4F991E9ABC480B82
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250114.jpgsave_picture_250114.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ magnet:?xt=urn:btih:9A4ECFA09D8F1B80DBA5ABD5975B2594A86D362F
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250115.jpgsave_picture_250115.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Garmin: TOPO Sweden v6 PRO [Sv]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250116.jpgsave_picture_250116.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ magnet:?xt=urn:btih:664571446869AD29A336336F6CCFAE1628B6DF27
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250117.jpgsave_picture_250117.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ magnet:?xt=urn:btih:ED446D73CD4F41073A14074723A479F208122761
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250118.jpgsave_picture_250118.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:9E844C3BC763A6FD49E0EF17A78BF4BB1BF28D97
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250119.jpgsave_picture_250119.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ magnet:?xt=urn:btih:A56654B3BBA1F0D84F014A4B036379B4E1C781F4
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250120.jpgsave_picture_250120.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Autorun Organizer 5.19 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250121.jpgsave_picture_250121.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ magnet:?xt=urn:btih:80027370ED807F03D872D4DDDE3ACBE85C8F805B
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250122.jpgsave_picture_250122.jpg" />
 </div>
 
 

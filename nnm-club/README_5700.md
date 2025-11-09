@@ -6,7 +6,7 @@
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175654.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175654.jpgsave_picture_175654.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:130EE33E03BB2C024F37797EEFFCAC2C14E8BC5A
 >>Картинки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175657.jpgsave_picture_175657.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ Sylvain Kassap Sextet - Octobres (2022) [FLAC|Lossless|tracks + .cue] <Avant-Gar
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175658.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175658.jpgsave_picture_175658.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ magnet:?xt=urn:btih:E9A8A329604B4370BFDC46A3F63E3E10F9A5DE40
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175660.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175660.jpgsave_picture_175660.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ magnet:?xt=urn:btih:3AE09106E29EAD382D95A6CB0D01F10EB290A6EF
 >>Музыка (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175661.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175661.jpgsave_picture_175661.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ MyPhoneExplorer 2.1 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175663.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175663.jpgsave_picture_175663.jpg" />
 </div>
 
 
@@ -161,7 +161,7 @@ Fiddler's Green - Seven Holy Nights (2022) [FLAC|Lossless|WEB-DL|tracks] <Celtic
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175664.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175664.jpgsave_picture_175664.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Philosophobia - Philosophobia (2022) [MP3|320 Kbps] <Progressive Rock, Progressi
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175666.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175666.jpgsave_picture_175666.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ magnet:?xt=urn:btih:77DEE899637A340D08D9BBE1111783B4B315438F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175667.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175667.jpgsave_picture_175667.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ Rosanna's Raiders - Calling Down Fire (1988) [FLAC|Lossless|image + .cue] <Heavy
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175669.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175669.jpgsave_picture_175669.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ FastStone Photo Resizer 4.4 RePack (& Portable) by elchupacabra [Ru/En]
 >>Просмотрщики Графики (вьюверы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175670.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175670.jpgsave_picture_175670.jpg" />
 </div>
 
 
@@ -290,7 +290,7 @@ qBittorrent 4.3.1 Portable by PortableApps + Themes [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175672.jpgsave_picture_175672.jpg" />
 </div>
 
 
@@ -314,7 +314,7 @@ ImageGlass 8.10.9.27 + Portable [Multi/Ru]
 >>Просмотрщики Графики (вьюверы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175673.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175673.jpgsave_picture_175673.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ Mentalist - Freedom of Speech (2020) [FLAC|Lossless|WEB-DL|tracks] <Melodic Powe
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175674.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175674.jpgsave_picture_175674.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Asterise - Two Worlds (2022) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Power Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175675.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175675.jpgsave_picture_175675.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ magnet:?xt=urn:btih:EA31035BD23F98D3D306F1AFC2F2E85B46F37E1B
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175676.jpgsave_picture_175676.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ Metal Order - Adventures & Nightmares (2022) [FLAC|Lossless|WEB-DL|tracks] <Heav
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175677.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175677.jpgsave_picture_175677.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ Debian Edu - Skolelinux 10.7.0 Buster [Linux для школы] [i386, x86-64] 2
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175678.jpgsave_picture_175678.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ magnet:?xt=urn:btih:8B9031B8B34BC29983163B1356816B3905BDB883
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175679.jpgsave_picture_175679.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Nightmare - Aeternam (2020) [FLAC|Lossless|image + .cue] <Heavy Metal, Power Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175680.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175680.jpgsave_picture_175680.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:C33086C99443DCDDC43BB82FD27EF972ACF8AD1E
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175681.jpgsave_picture_175681.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Richie Beirach & George Coleman - Convergence (1991) Triloka Records [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175682.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175682.jpgsave_picture_175682.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ magnet:?xt=urn:btih:B558DF9ED3358ABA873F28FC1AA230FDD69FAD74
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175683.jpgsave_picture_175683.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ magnet:?xt=urn:btih:54C9F0B0156CC3C0C26783E87484F3CBE051FEDE
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175685.jpgsave_picture_175685.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ magnet:?xt=urn:btih:6A94D5011EED4D1CCC0A13F8FA38CF4AAD1FE390
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175686.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175686.jpgsave_picture_175686.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ Revo Uninstaller Pro 5.2.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175688.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175688.jpgsave_picture_175688.jpg" />
 </div>
 
 

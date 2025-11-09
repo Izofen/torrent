@@ -6,7 +6,7 @@ Rammstein - Legacy of Kain: Soul reaver (sonne remix) (2011)
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137434.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137434.jpgsave_picture_137434.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:D2B6D4E637483C45DD10D80C6AF12948874B0B0A
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137435.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137435.jpgsave_picture_137435.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:D91588BA3ACBF58DAA11E8D58F88DEC57DF48048
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137436.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137436.jpgsave_picture_137436.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:13ECA8CF632388336CA83D943519CBDA0C234BBE
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137437.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137437.jpgsave_picture_137437.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:D1B8BC55E8125B45EDE5F5DC10217EC9D0B15EDC
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137438.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137438.jpgsave_picture_137438.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Jenn Mishra | Art Styles: Create Unique AI Image Prompts with ChatGPT or Claude 
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137439.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137439.jpgsave_picture_137439.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ magnet:?xt=urn:btih:C0A364BAB94ED34B8CBDC50688859912CD94770D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137440.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137440.jpgsave_picture_137440.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:D391EB7334398F365C389540DEB59A8657F50886
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137441.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137441.jpgsave_picture_137441.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Deborah Washington - Love Awaits (1979) LP [MP3|320 Kbps] <Electronic, Disco, Fu
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137443.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137443.jpgsave_picture_137443.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ magnet:?xt=urn:btih:A65F2190F59EB5174957B6DCBC83795397A2E894
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137444.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137444.jpgsave_picture_137444.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ magnet:?xt=urn:btih:C1A27C70621169D56BA084DD920C93209DFED37D
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137445.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137445.jpgsave_picture_137445.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ magnet:?xt=urn:btih:D7E8B8CEC6FD03BBFA7629E5615CFCCA90D6F9BA
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137446.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137446.jpgsave_picture_137446.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ magnet:?xt=urn:btih:1D1F6FA6B050BCCDFC486F250015686CD26833D8
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137447.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137447.jpgsave_picture_137447.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ magnet:?xt=urn:btih:E28F1EEAED630517B50515A62DE8AA1A0DC00A4B
 >>Трейлеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137448.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137448.jpgsave_picture_137448.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ magnet:?xt=urn:btih:56369B2CF566A20142FE40D60DAE79453F093D9A
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137449.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137449.jpgsave_picture_137449.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Glarysoft File Recovery Pro 1.20.0.20 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137450.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137450.jpgsave_picture_137450.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ magnet:?xt=urn:btih:1A6B3EBE615B4B2D9FBA0E9EDE51517CC2AF6357
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137451.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137451.jpgsave_picture_137451.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Deborah Washington - Any Way You Want It (1978) LP [MP3|320 Kbps] <Electronic, D
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137452.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137452.jpgsave_picture_137452.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Himouto! Umaru-chan R / Двуличная сестрёнка Умару [ТВ-2
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137453.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137453.jpgsave_picture_137453.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Tropico 3 / Тропико 3 (2009) [Ru/Multi] (2.1.474.38210) License PROPHET [
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137454.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137454.jpgsave_picture_137454.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ magnet:?xt=urn:btih:0068303CEF889363063CAE3D1873E2663D01F18C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137455.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137455.jpgsave_picture_137455.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ magnet:?xt=urn:btih:CAA19AF934C2E12D34462F8E86086C2773D888E8
 >>Прочие зимние виды спорта
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137457.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137457.jpgsave_picture_137457.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ magnet:?xt=urn:btih:62D3EFDEE21C2D137A39D753A0A27A7C27D16A84
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137458.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137458.jpgsave_picture_137458.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ magnet:?xt=urn:btih:A35C34782CBC847A689F7ED92D6043EC296CEC92
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137459.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137459.jpgsave_picture_137459.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ magnet:?xt=urn:btih:9151626B775F69FC0C067CBC873AEF005EFABF15
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137460.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137460.jpgsave_picture_137460.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ magnet:?xt=urn:btih:28E1F3C6F8ECCECE24EAB5D8A1BB1C432B02C63A
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137461.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137461.jpgsave_picture_137461.jpg" />
 </div>
 
 

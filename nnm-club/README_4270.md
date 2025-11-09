@@ -6,7 +6,7 @@
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132477.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132477.jpgsave_picture_132477.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:1F4A5F683A222765F8E2FED93EE269A552F7FDDD
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132478.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132478.jpgsave_picture_132478.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:4978529553EFAB4ACBA80A67814C648976BBCD71
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132479.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132479.jpgsave_picture_132479.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Reg Organizer 6.0 Beta 4 [Русский / Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132480.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132480.jpgsave_picture_132480.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ Reg Organizer® - это многофункциональная программ
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132481.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132481.jpgsave_picture_132481.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Redeemer Live DVD v.12.1212.46 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132482.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132482.jpgsave_picture_132482.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Redeemer 12.1212.46 - это мультизагрузочный Live DVD сбо�
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132483.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132483.jpgsave_picture_132483.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:4645E70CCDDD5478971CD42D2B79E232DE6C4C39
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132485.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132485.jpgsave_picture_132485.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:B2C9AF8C229C2E3A6F3B2489B134EAEF03BC04A8
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132486.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132486.jpgsave_picture_132486.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:F6DA424DEF3D993BD95BA4B3ACCF55235FA91991
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132487.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132487.jpgsave_picture_132487.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Graveyard - 6 albums (2007-2023) [FLAC|Lossless|image + .cue | tracks + .cue] <P
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132489.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132489.jpgsave_picture_132489.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:EFEC57AD16444E6F3E907684A61D44C15A546291
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132491.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132491.jpgsave_picture_132491.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ VA - 100 Hits 70's pop ( 100 Classic Tracks of the Decade ) (2009) 5CD Box Set[F
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132493.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132493.jpgsave_picture_132493.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ VA - 100 Hits 70's pop ( 100 Classic Tracks of the Decade ) (2009) 5CD Box Set[F
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132495.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132495.jpgsave_picture_132495.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ VA - Детская Discoтека (2012) [MP3|192 кб/с]<Детские пес
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132496.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132496.jpgsave_picture_132496.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ magnet:?xt=urn:btih:D2A53207093CE34135B0CA6E0A99E6137CE5666D
 >>Старые Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132497.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132497.jpgsave_picture_132497.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ magnet:?xt=urn:btih:D2A53207093CE34135B0CA6E0A99E6137CE5666D
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132498.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132498.jpgsave_picture_132498.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ magnet:?xt=urn:btih:E34097952780D598C54EDAE59841A49F5DD86302
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132500.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132500.jpgsave_picture_132500.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ magnet:?xt=urn:btih:09078981BD757E586C7F11FEE8B36201D94B06B7
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132501.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132501.jpgsave_picture_132501.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ magnet:?xt=urn:btih:B208457FEF1C95471C16588CFC470ADD9105365D
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132502.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132502.jpgsave_picture_132502.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ magnet:?xt=urn:btih:982704767D52F7510F4D09DC0FFBA5DCC49DC64C
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132503.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132503.jpgsave_picture_132503.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Vinci J Rufus | Building Micro Frontends with React 18 (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132504.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132504.jpgsave_picture_132504.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Planner 5D - дизайн интерьера v2.8.8 Mod by App_modz [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132505.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132505.jpgsave_picture_132505.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ Rainlendar Pro 2.11 Build 128 [Мульти\Рус.]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132506.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132506.jpgsave_picture_132506.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ Rainlendar - cимпатичный календарик для рабочего 
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132507.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132507.jpgsave_picture_132507.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ Oswald Campesato | Python for Absolute Beginners (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132509.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132509.jpgsave_picture_132509.jpg" />
 </div>
 
 

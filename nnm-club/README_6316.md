@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197839.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197839.jpgsave_picture_197839.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:957D874B846CFDE39A674D4081211E55B6713877
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197840.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197840.jpgsave_picture_197840.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:AD76E074AFB06D2F9E80CCEB012B7AC47DC500C6
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197841.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197841.jpgsave_picture_197841.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:A30C204C4DD678498CE30C49C557F6CB9BBC1F30
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197842.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197842.jpgsave_picture_197842.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:5BF92CB747CDBF9FCD86348679B5E8278599E530
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_197843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197843.jpgsave_picture_197843.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:9C755DB7A8FC7A5A6DECEBBD4617E83390A98B2F
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197845.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197845.jpgsave_picture_197845.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:B2D51455831B115E424610B1A4EE2F3E7751A756
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197846.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197846.jpgsave_picture_197846.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ Elypse (2023) [Multi] (1.6) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197847.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197847.jpgsave_picture_197847.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:B490DE99EAFA4F31E6F7203DA532A654630C9587
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197849.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197849.jpgsave_picture_197849.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:A051C1186133A07065C56859D786613CFAF6B75B
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197850.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197850.jpgsave_picture_197850.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Chris Rea - Легенды зарубежного рока (2000) [FLAC 2.0|48/2
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197851.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197851.jpgsave_picture_197851.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:6A58E6C29AC8EAFA9AB982DB1D4F85700DC5B32F
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_197852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197852.jpgsave_picture_197852.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ magnet:?xt=urn:btih:5C0FB8DDD8E5DF2E7114D093A2D06C013277216A
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197853.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197853.jpgsave_picture_197853.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ magnet:?xt=urn:btih:3028547341D85D6BC919A5067323A97B2EF8396D
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197854.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197854.jpgsave_picture_197854.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ magnet:?xt=urn:btih:B59233B72A76469CC8B907B8EB518578536B97BB
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197855.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197855.jpgsave_picture_197855.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ magnet:?xt=urn:btih:12C433F52AFCA4B8FAD8758291106383A696E66D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197856.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197856.jpgsave_picture_197856.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ magnet:?xt=urn:btih:683DAAA8F621F70A5DBD370022FDABE61EA7577B
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197857.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197857.jpgsave_picture_197857.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ magnet:?xt=urn:btih:E54FE838D6E325517B03DEC3B228BC31EC61404B
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_197859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197859.jpgsave_picture_197859.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ magnet:?xt=urn:btih:37A18751853469CED329453B4BF7F0C57DE80911
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_197860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197860.jpgsave_picture_197860.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ magnet:?xt=urn:btih:95550F6D14A4FBB917CBE82D4CE0D4C30BF7BA11
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_197861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197861.jpgsave_picture_197861.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ PotPlayer 230523 (1.7.21916) (x64) Stable RePack (& portable) by 7sh3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197862.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197862.jpgsave_picture_197862.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ magnet:?xt=urn:btih:5A6619193BF21D5C749BA3E1442C27BA46726013
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197863.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197863.jpgsave_picture_197863.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:1E49ADE18D2247B8FF4ECDA9EC896C2C72917C5F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_197864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197864.jpgsave_picture_197864.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ magnet:?xt=urn:btih:6D1400CB613DD905B756A0D7A5E616C301C82A50
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197865.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197865.jpgsave_picture_197865.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Windows 7 (3in1) x64 by Updated Edition (10.05.2023) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197866.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197866.jpgsave_picture_197866.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ magnet:?xt=urn:btih:1C19A160DFCA7B6A93E6D231C3A812056019A646
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197867.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197867.jpgsave_picture_197867.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Sattelfest - Die Welt steht Kopf (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234620.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234620.jpgsave_picture_234620.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Cold Drop - Cold Drop (2023) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234623.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234623.jpgsave_picture_234623.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Soul Grinder - Filth Encrusted (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Thras
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234625.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234625.jpgsave_picture_234625.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Eterea - Legend (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234629.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234629.jpgsave_picture_234629.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Tragedian - Master Of Illusions (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Po
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234636.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234636.jpgsave_picture_234636.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Sarcophilous - Hive Mind (2022) [FLAC|Lossless|WEB-DL|tracks] <Blackened Progres
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234641.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234641.jpgsave_picture_234641.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Morass Of Molasses - End All We Know (2023) [FLAC|Lossless|WEB-DL|tracks] <heavy
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234646.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234646.jpgsave_picture_234646.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Jett Black - Night Flight (1985) Reissue, Remastered, 2022, Bad Reputation [FLAC
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234647.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234647.jpgsave_picture_234647.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Laura Cox - Head Above Water (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Bl
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234651.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234651.jpgsave_picture_234651.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ House of Shakira - Xit (2023) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234652.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234652.jpgsave_picture_234652.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Angerot - The Profound Recreant (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234653.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234653.jpgsave_picture_234653.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Transworld Identity - Seven Worlds (2023) [FLAC|Lossless|image + .cue] <Melodic 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234654.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234654.jpgsave_picture_234654.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Sarcator - Alkahest (2022) [FLAC|Lossless|WEB-DL|tracks] <Blackened Thrash Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234660.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234660.jpgsave_picture_234660.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Tulus - Fandens Kall (2023) [MP3|320 Kbps] <Black Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234663.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234663.jpgsave_picture_234663.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Alex Nunziati - Black Space Void (2023) [FLAC|Lossless|WEB-DL|tracks] <Horror He
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234669.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234669.jpgsave_picture_234669.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Cry Of Dawn - Anthropocene (2023) [FLAC|Lossless|image + .cue] <Melodic Hard Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234675.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234675.jpgsave_picture_234675.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Mean Green - Mean Green (2023) [FLAC|Lossless|WEB-DL|tracks] <Stoner Doom, Sludg
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234677.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234677.jpgsave_picture_234677.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Exgenesis - Solve et Coagula (2020) [FLAC|Lossless|image + .cue] <Melodic Doom, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234678.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234678.jpgsave_picture_234678.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Sebia - Acceptance Of Reality (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234683.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234683.jpgsave_picture_234683.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Massacre - Submergence: Live Beyond 2019 (2023) [FLAC|Lossless|WEB-DL|tracks] <D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234684.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234684.jpgsave_picture_234684.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Iron Walrus - Tales Never Told (2023) [FLAC|Lossless|WEB-DL|tracks] <Doom, Sludg
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234695.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234695.jpgsave_picture_234695.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Riotor - Recrudescence of Darkness (2022) [FLAC|Lossless|WEB-DL|tracks] <Death, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234704.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234704.jpgsave_picture_234704.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Dig Me No Grave - Under The Pyramids (2020) [FLAC|Lossless|image + .cue] <Death 
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234706.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234706.jpgsave_picture_234706.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Tyranis - Failure to Yield (2023) [MP3|320 Kbps] <Heavy, Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234707.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234707.jpgsave_picture_234707.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ magnet:?xt=urn:btih:36FE503C4ECDAED08DB2117E40C730CCA53325C5
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234712.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234712.jpgsave_picture_234712.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Perc3ption - Once and for All (2016) [FLAC|Lossless|WEB-DL|tracks] <Progressive,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234713.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234713.jpgsave_picture_234713.jpg" />
 </div>
 
 

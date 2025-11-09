@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188341.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188341.jpgsave_picture_188341.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:1A75C0D0F4E7FA4134882F3917712B99F5E87A77
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188343.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188343.jpgsave_picture_188343.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:AA0E3968B61D8A04D508A4B05DE283467B0C0CCA
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188344.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188344.jpgsave_picture_188344.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ SAS.Планета 230909 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188346.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188346.jpgsave_picture_188346.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Planet VPN 1.4.02.08 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188347.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188347.jpgsave_picture_188347.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Bonnie & Slide, Егор Мараев | Убойная анимация 2.0 (202
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188348.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188348.jpgsave_picture_188348.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:E19AAA08CADD1641BAA01A5CA6A4C87F913F468E
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188349.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188349.jpgsave_picture_188349.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ The Shore (2021) [Ru/Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188350.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188350.jpgsave_picture_188350.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:542727FA9D1B7C8AA27F29F4190829879364EFCE
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188351.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188351.jpgsave_picture_188351.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:5A0CCE35DD2E9065B67A5F8DE4ED4EB9BF807C47
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188352.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188352.jpgsave_picture_188352.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:107E3A6662D125C92D0AD9FB18CE014DCD348A7C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188353.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188353.jpgsave_picture_188353.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Stepik, Evgeniy Lestopadov | Регулярные выражения на при
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188354.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188354.jpgsave_picture_188354.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:9C1404B9151F943CF69767249F4203B7460456DC
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188355.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188355.jpgsave_picture_188355.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Icewind Dale 2 (2002) [Ru/Multi] (2.1.0.13/dlc) License GOG [Complete]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188357.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188357.jpgsave_picture_188357.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ magnet:?xt=urn:btih:DCF88B60B35E991AD819C038760CFCE32D786BAB
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188358.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188358.jpgsave_picture_188358.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ magnet:?xt=urn:btih:F577A8E4C4C7D57707B823C6A25CDE92F8C042A5
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188359.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188359.jpgsave_picture_188359.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ magnet:?xt=urn:btih:0974CE9E2198086D2F6E500E9DA0F22DF61B475C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188360.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188360.jpgsave_picture_188360.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ magnet:?xt=urn:btih:F339736546107EF4E4C0A5D7261BB172149FD176
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188361.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188361.jpgsave_picture_188361.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ magnet:?xt=urn:btih:0E05285852FA5ED839F8A51A5BA56CF02A9F02D1
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188362.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188362.jpgsave_picture_188362.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ JETT: The Far Shore (2023) [Multi] (2.1.7.r24099/dlc) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188363.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188363.jpgsave_picture_188363.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ BBC. Замёрзшая планета 2 / Frozen Planet II (2022) WEB-DL [H.265
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188364.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188364.jpgsave_picture_188364.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:1BCE1D387D45BD49B6EB610D8DEC8EB2188CD641
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188365.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188365.jpgsave_picture_188365.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ magnet:?xt=urn:btih:73902533F6636EF7975811EFFEB225946ED22EF6
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188366.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188366.jpgsave_picture_188366.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ ABBYY FineReader PDF for Mac 15.2.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188367.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188367.jpgsave_picture_188367.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ magnet:?xt=urn:btih:FCBFD81435906CBD43CDBE102345196944E8E49D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188369.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188369.jpgsave_picture_188369.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ magnet:?xt=urn:btih:CBCEDABAE192B229B3056F6692B2FF9CC1313354
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188371.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188371.jpgsave_picture_188371.jpg" />
 </div>
 
 

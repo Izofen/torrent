@@ -6,7 +6,7 @@
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84675.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84675.jpgsave_picture_84675.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:F5C47642CA72DD366135D24B7DABA36A34760BC7
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84678.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84678.jpgsave_picture_84678.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:8F8020492FE1BEFEAF22F6BCD8F70E693BF5BDCB
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84679.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84679.jpgsave_picture_84679.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:8746D906C8EC014BC006E7CDE3DD9C9977ADAA75
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84682.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84682.jpgsave_picture_84682.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ Autodesk AutoCAD Mechanical 2013 (x86) (Английский)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84683.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84683.jpgsave_picture_84683.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ AutoCAD® Mechanical – это AutoCAD® для машиностроитель�
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84685.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84685.jpgsave_picture_84685.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:D81FAF40D822478F3AB2F96BDA04D5E9F9EA09F5
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84693.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84693.jpgsave_picture_84693.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Monument Builders: Titanic (P) [En] 2012
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84694.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84694.jpgsave_picture_84694.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:B2D06EBA935DDA8B6AF90C1CBDDF2B1DD5AC5483
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84695.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84695.jpgsave_picture_84695.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ Wolfgang Amadeus Mozart-Serenade No.13 in G major KV525; Divertimento KV136 & KV
 >>Камерная (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84696.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84696.jpgsave_picture_84696.jpg" />
 </div>
 
 
@@ -262,7 +262,7 @@ magnet:?xt=urn:btih:AB091F13EE8864FD0F2478E1391CC11F438E02D3
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84698.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84698.jpgsave_picture_84698.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ magnet:?xt=urn:btih:71B13778D21A35C04712FCBFB1CDCD1BEB601927
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84700.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84700.jpgsave_picture_84700.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ magnet:?xt=urn:btih:24CD368444D5B1B2A713C72B756B153C3A84F4F6
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84701.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84701.jpgsave_picture_84701.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ magnet:?xt=urn:btih:24CD368444D5B1B2A713C72B756B153C3A84F4F6
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84703.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84703.jpgsave_picture_84703.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ Wolfgang Amadeus Mozart - Requiem in D minor, K 626: Munchner Philharmoniker (17
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84704.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84704.jpgsave_picture_84704.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ magnet:?xt=urn:btih:6C4C44507F3557E7D3F4C5406CF650C84A846933
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84705.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84705.jpgsave_picture_84705.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ VA - Лучшая Клубная Музыка Марта (2012) [MP3|192 кб/с
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84706.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84706.jpgsave_picture_84706.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ VA - Лучшая Клубная Музыка Марта (2012) [MP3|192 кб/с
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84708.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84708.jpgsave_picture_84708.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Autodesk AutoCAD Mechanical 2013 (x64) (Английский)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84709.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84709.jpgsave_picture_84709.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Axel Rudi Pell - Circle of the Oath (2012) (Limited Edition) [FLAC|Lossless]<Hea
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84710.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84710.jpgsave_picture_84710.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Axel Rudi Pell - Circle of the Oath (2012) (Limited Edition) [FLAC|Lossless]<Hea
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84713.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84713.jpgsave_picture_84713.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ magnet:?xt=urn:btih:10BCEB433AF1101A5AF8F02F58CA79811C8316A9
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84715.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84715.jpgsave_picture_84715.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ magnet:?xt=urn:btih:602304155C35B731BAEC45651474C29A244F5F52
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84716.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84716.jpgsave_picture_84716.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ magnet:?xt=urn:btih:602304155C35B731BAEC45651474C29A244F5F52
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84717.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84717.jpgsave_picture_84717.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ magnet:?xt=urn:btih:602304155C35B731BAEC45651474C29A244F5F52
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84718.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84718.jpgsave_picture_84718.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ magnet:?xt=urn:btih:602304155C35B731BAEC45651474C29A244F5F52
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84719.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84719.jpgsave_picture_84719.jpg" />
 </div>
 
 

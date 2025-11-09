@@ -6,7 +6,7 @@
 >>Другие мультимедийные материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85768.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85768.jpgsave_picture_85768.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:916E551C506194D24C3EF66E70B7C0BCF6ABD029
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85769.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85769.jpgsave_picture_85769.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:916E551C506194D24C3EF66E70B7C0BCF6ABD029
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85771.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85771.jpgsave_picture_85771.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Pet Hotel Tycoon  / 101 любимчик. Домашний зоопарк {7+} (
 >>Детские Игры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85772.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85772.jpgsave_picture_85772.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:7C39DF0537F2A50E99BFA6EF9D1F5B2AD17A28EB
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85777.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85777.jpgsave_picture_85777.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ magnet:?xt=urn:btih:EC33E23391A9FD41AA37BF84B95DC5174970DD2D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85782.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85782.jpgsave_picture_85782.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ Rammstein - Live Aus Moskau 2012-02-11 (2012)[1080p] HDCamRip (Ver. 1)
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85784.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85784.jpgsave_picture_85784.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ World War Zero / Iron Storm / Коммандос: В тылу врага [En] (L
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85785.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85785.jpgsave_picture_85785.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ magnet:?xt=urn:btih:0BD53F5E19B9AB7C4343F8DBBB3D9C3C547B9CC2
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85790.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85790.jpgsave_picture_85790.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ SBMAV Disk Cleaner 3.50.0.1326 + Portable [English+Russian]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85791.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85791.jpgsave_picture_85791.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ SBMAV Disk Cleaner - мощный набор инструментов для о�
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85794.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85794.jpgsave_picture_85794.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ Melda Production - MTotal Bundle v6.00 x86 x64 by ASSiGN [английский]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85796.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85796.jpgsave_picture_85796.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ MTotalBundle 6.00 - набор из 60-ти плагинов для обрабо
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85802.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85802.jpgsave_picture_85802.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ magnet:?xt=urn:btih:0FDF05D8DDD147FEB9DD561A69F1CA635117B764
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85803.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85803.jpgsave_picture_85803.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Soft7 2.0 by AP-GRAPHIK - тема для Windows 7 2012 [Rus\Eng]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85804.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85804.jpgsave_picture_85804.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Soft7 2.0 by AP-GRAPHIK - тема для Windows 7 2012 [Rus\Eng]
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85807.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85807.jpgsave_picture_85807.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Soft7 2.0 by AP-GRAPHIK - тема для Windows 7 2012 [Rus\Eng]
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85808.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85808.jpgsave_picture_85808.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Soft7 2.0 by AP-GRAPHIK - тема для Windows 7 2012 [Rus\Eng]
 >>Классика (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85809.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85809.jpgsave_picture_85809.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Warlords: Battlecry II \ Варлорды: Боевой клич 2 (RePack) [Ru]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85810.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85810.jpgsave_picture_85810.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ magnet:?xt=urn:btih:0515795ECCCB23AED0B429F64034ECA7AC8055A0
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85811.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85811.jpgsave_picture_85811.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ magnet:?xt=urn:btih:0515795ECCCB23AED0B429F64034ECA7AC8055A0
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85812.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85812.jpgsave_picture_85812.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ magnet:?xt=urn:btih:CAA4C82A37EC0DC41D43F9E4CF2F0661E0C0734A
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85813.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85813.jpgsave_picture_85813.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ magnet:?xt=urn:btih:D33453A21CE0CB2F853AF1214C2FBE3E9916F556
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85814.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85814.jpgsave_picture_85814.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Toontrack - EZkeys Player v1.0.1 UNLOCKED x86 x64 by ASSiGN [английски�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85816.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85816.jpgsave_picture_85816.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Toontrack - EZkeys Player v1.0.1 UNLOCKED x86 x64 by ASSiGN [английски�
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85818.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85818.jpgsave_picture_85818.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ magnet:?xt=urn:btih:C74A8CF40454BFE8596FE68A64C28D36747182F0
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85820.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85820.jpgsave_picture_85820.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ ArtIcons Pro 5.42 [Multi(Rus)]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133472.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133472.jpgsave_picture_133472.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ ArtIcons Pro - простая в использовании программа �
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133473.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133473.jpgsave_picture_133473.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ AnyMP4 iPhone Password Manager for Mac 1.0.12 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133475.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133475.jpgsave_picture_133475.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:6DD46E50A53A989612423C6CC76C9378C6423066
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133476.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133476.jpgsave_picture_133476.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Voodoo Circle - 15 Years of Voodoo (2023) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133477.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133477.jpgsave_picture_133477.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ magnet:?xt=urn:btih:3CDF5BB2FC05550EF099A8311CDC8A8176309E1F
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133478.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133478.jpgsave_picture_133478.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Magic Disk Cleaner 2.5.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133479.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133479.jpgsave_picture_133479.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ magnet:?xt=urn:btih:1BE231DF249B0BF5A13BF8BE28142A6F87F79320
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133480.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133480.jpgsave_picture_133480.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ Smart AudioBook Player 10.3.0 Mod by KirIif' [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133481.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133481.jpgsave_picture_133481.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ magnet:?xt=urn:btih:8CB22B808816969E02B4855AEFC380FB09F016CE
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133482.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133482.jpgsave_picture_133482.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Voodoo Circle - 15 Years of Voodoo (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133483.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133483.jpgsave_picture_133483.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:1D915B5C90C8191D21450B9CC7CF4B0FB9900A8A
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133486.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133486.jpgsave_picture_133486.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Leawo DVD Ripper FREE 5.0.0.0 [ Eng]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133489.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133489.jpgsave_picture_133489.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Keysmith for Mac 1.18.6 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133490.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133490.jpgsave_picture_133490.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ VA - Новогодняя Авто Дискотека DFM 50+50 - (2012) [MP3|25
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133492.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133492.jpgsave_picture_133492.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ magnet:?xt=urn:btih:923E6C307DE53D6ACEC53CB39449778BC147867F
 >>История
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133493.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133493.jpgsave_picture_133493.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ magnet:?xt=urn:btih:5714CD4B478FDBFF0663AB392330DC2555427521
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133495.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133495.jpgsave_picture_133495.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ magnet:?xt=urn:btih:986F785FD58511CCCA6D1A02C6CEB4C1D2909177
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133496.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133496.jpgsave_picture_133496.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ magnet:?xt=urn:btih:6E0E5DDD00F04FD3A116F32BB8B26981C1DBCA1D
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133497.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133497.jpgsave_picture_133497.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ magnet:?xt=urn:btih:A29018238E0A7E781A049C7074501BCBBEE327F1
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133499.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133499.jpgsave_picture_133499.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ magnet:?xt=urn:btih:D56DAC60E7266EB6F2173DBC5CE4798A608ABDE0
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133501.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133501.jpgsave_picture_133501.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Disk Space Saver 2.6.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133502.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133502.jpgsave_picture_133502.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ magnet:?xt=urn:btih:8E4DA12B76EFC8B6D218067C78B0767FE03106AD
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133503.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133503.jpgsave_picture_133503.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ magnet:?xt=urn:btih:250D3969300B3E0745C3834BE97F5DA8378935A5
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133504.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133504.jpgsave_picture_133504.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ GoodTask 7.6.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133505.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133505.jpgsave_picture_133505.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ magnet:?xt=urn:btih:6384B242B5347C105BC18C8BC496E1B7B5D8A796
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133506.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133506.jpgsave_picture_133506.jpg" />
 </div>
 
 

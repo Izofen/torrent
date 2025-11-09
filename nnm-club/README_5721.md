@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_176402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176402.jpgsave_picture_176402.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:168AA2E02C098493F1EAA1A46B3BC8ABC287883B
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176403.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176403.jpgsave_picture_176403.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:ABD4944C37BA22A9937882E10EE5287B77AB32CE
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176404.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176404.jpgsave_picture_176404.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:7D01822FF13DE433B4100F1E1E46B6215FB5735A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176406.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176406.jpgsave_picture_176406.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ Evanescence - Synthesis (2017) Japanese Edition [FLAC|Lossless|image + .cue] <Al
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_176407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176407.jpgsave_picture_176407.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ Disgaea 7: Vows of the Virtueless (2023) [Multi] (1.0/dlc) Scene Rune [Ultimate 
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176408.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176408.jpgsave_picture_176408.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ magnet:?xt=urn:btih:9D267BF2AAD6A9DA457953645577BAFF8B6E6FF3
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176410.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176410.jpgsave_picture_176410.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:BAA5DFAD5D1884583F5F66FA7916B46D441BE606
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_176411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176411.jpgsave_picture_176411.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ Dome Keeper v.3.0.1 (2022) [Multi/Ru] [macOS Native game]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176412.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176412.jpgsave_picture_176412.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ magnet:?xt=urn:btih:80292F39D9749B6EA8E914D09EB4FAA8C31FA005
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176414.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176414.jpgsave_picture_176414.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:DE89DDD20026E738C1248E6FB72A18BDDC8392AA
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_176415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176415.jpgsave_picture_176415.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:03A24461E2D1E2C82E889302CADA004B062475E5
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176416.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176416.jpgsave_picture_176416.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ Hidden Through Time 2: Myths & Magic (2023) [Ru/Multi] (1.0.30a) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176418.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176418.jpgsave_picture_176418.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ magnet:?xt=urn:btih:365B832802C02EF3B61C605A546BAE2D2DB2D5EF
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176419.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176419.jpgsave_picture_176419.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ magnet:?xt=urn:btih:DFFE6F022BCA369F15F6F78D50F001C91F8926F7
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_176420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176420.jpgsave_picture_176420.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ magnet:?xt=urn:btih:55EE964182496863D843648792359BF94D2CFA7D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176422.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176422.jpgsave_picture_176422.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Adguard 7.11.3 (7.11.4107.0) RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176423.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176423.jpgsave_picture_176423.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ magnet:?xt=urn:btih:9B6954EA3B977DA8E1AAA1A5393BBE290D0D31B4
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_176424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176424.jpgsave_picture_176424.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ magnet:?xt=urn:btih:578B3222E20A98CBA5EBE0DE359BB4C7D00773FA
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176426.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176426.jpgsave_picture_176426.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ magnet:?xt=urn:btih:D6D8F80CE25DFF516D2EB032756FE9F23364E9DD
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176427.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176427.jpgsave_picture_176427.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ The Secret of Monkey Island (2009) [Multi] (1.0) License GOG [Special Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176429.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176429.jpgsave_picture_176429.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ magnet:?xt=urn:btih:9D41E0488FC38B35DE57AA7D5BBF980D46FAD4F9
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176430.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176430.jpgsave_picture_176430.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ magnet:?xt=urn:btih:0BCCBAEF1775581BF1ED6AA1E70B0799B7885E4F
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176432.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176432.jpgsave_picture_176432.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ magnet:?xt=urn:btih:E70190AA35A02C386CF6DB834A49C494579681C9
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176433.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176433.jpgsave_picture_176433.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ magnet:?xt=urn:btih:2CD73F898B9FBD225F54A6E42BFFACEA85FC1E7F
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176435.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176435.jpgsave_picture_176435.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ magnet:?xt=urn:btih:4E5EFDECBDF3AD9D5FCD6976683A1A04FC36F470
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176437.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176437.jpgsave_picture_176437.jpg" />
 </div>
 
 

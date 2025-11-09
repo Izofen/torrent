@@ -6,7 +6,7 @@ PicPick Free+Pro 7.3.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26246.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26246.jpgsave_picture_26246.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Tablacus Explorer 25.2.24 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26247.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26247.jpgsave_picture_26247.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:4D91353E5B54148BA97C930222A51E2766470548
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26248.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26248.jpgsave_picture_26248.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:D7453A624309539FB1C78A1DB816E9E74B0791BE
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26249.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26249.jpgsave_picture_26249.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Vivaldi 7.1.3570.58 include standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26250.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26250.jpgsave_picture_26250.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:1ECE83EA128C9B991141E0060560E2626BB7C100
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26251.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26251.jpgsave_picture_26251.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:11C7F9A0091D05135746A80DBCC25DA07A4A48B3
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26252.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26252.jpgsave_picture_26252.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:2771CE5BA84D41D6968BFAB444724ACCD3F2251F
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26253.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26253.jpgsave_picture_26253.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:97BAD697D5D5CBDB96E24E11E84EF45DF11C32F4
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26254.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26254.jpgsave_picture_26254.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:2F738DFFD6BECA07D177908C75AFF04CA319379A
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26255.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26255.jpgsave_picture_26255.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Dirkschneider - Balls To The Wall Reloaded (2025) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26256.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26256.jpgsave_picture_26256.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Dirkschneider - Balls To The Wall Reloaded (2025) [FLAC 24/44.1|Lossless|WEB-DL|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26257.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26257.jpgsave_picture_26257.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:DE4D16A71EA1F9332C782ABDA9E9F5B191BEC116
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26258.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26258.jpgsave_picture_26258.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Sante DICOM Editor 10.2.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26259.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26259.jpgsave_picture_26259.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ magnet:?xt=urn:btih:FEEEADA1976440CC25300D959CCAA454B44A4FB0
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26260.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26260.jpgsave_picture_26260.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ VA - Trance In Motion Vol.385 (2024) [MP3|320 Kbps] <Trance, Uplifting Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26261.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26261.jpgsave_picture_26261.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ magnet:?xt=urn:btih:551AC9FDFD6AE0CC5539FDF84671BC927A164F9A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26262.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26262.jpgsave_picture_26262.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ The Forest Quartet v1.0.0 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26263.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26263.jpgsave_picture_26263.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ magnet:?xt=urn:btih:A48BD3E2E258D1E96AEBDEFAAC027D40267D5515
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26264.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26264.jpgsave_picture_26264.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Sante DICOM Viewer Pro 14.2.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26265.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26265.jpgsave_picture_26265.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ magnet:?xt=urn:btih:6B63A8F309C88F34D47B7CBC8A165FFEF662E069
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26266.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26266.jpgsave_picture_26266.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ magnet:?xt=urn:btih:F93C336EE8F94E3CB35159787D21DF7208DEF113
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26267.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26267.jpgsave_picture_26267.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ A Day to Remember - Studio Albums (8 releases) (2005-2025) hand made [restored, 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26268.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26268.jpgsave_picture_26268.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Native Instruments - Kontakt 8.2.1 STANDALONE, VSTi, VSTi 3, AAX (x64) Portable 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26269.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26269.jpgsave_picture_26269.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ magnet:?xt=urn:btih:82B69CEAB42E3F32A80642C0868085BB13E2C344
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26270.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26270.jpgsave_picture_26270.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ VA - Music News For Forum vol.066 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26271.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26271.jpgsave_picture_26271.jpg" />
 </div>
 
 

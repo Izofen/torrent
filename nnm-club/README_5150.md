@@ -6,7 +6,7 @@ Saboter - Architects Of Evil (2018) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160638.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160638.jpgsave_picture_160638.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Pasărea Colibri - Ciripituri (1996) [APE|Lossless|image + .cue] <Folk>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160639.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160639.jpgsave_picture_160639.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:B2B9602661BE49259FDA09C707D4D2878AF3244F
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160640.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160640.jpgsave_picture_160640.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ VA - Party Tracks (2023) [MP3|320 Kbps] <Dance, Club, Pop, Electronic>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160641.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160641.jpgsave_picture_160641.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ FonePaw Data Recovery 3.5.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160642.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160642.jpgsave_picture_160642.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ magnet:?xt=urn:btih:1770690730F701131136B61FC9D276BEB197451F
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160643.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160643.jpgsave_picture_160643.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ VA - Pop & Dance Anthems 2023 [MP3|320 Kbps] <Dance, Club, House, Electronic>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160644.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160644.jpgsave_picture_160644.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ magnet:?xt=urn:btih:4394871AB50C31CAE16C6F818BB0EFE14CFFC39F
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160645.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160645.jpgsave_picture_160645.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ VA - Hit News Vol. 8 (1993) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Italo
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160646.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160646.jpgsave_picture_160646.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ magnet:?xt=urn:btih:C0C810E63242815CDF924C294C2D7D63A22F567F
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160647.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160647.jpgsave_picture_160647.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ Red Harvest - Cold Dark Matter (2000) Promo CD [APE|Lossless|image + .cue] <Indu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160648.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160648.jpgsave_picture_160648.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ magnet:?xt=urn:btih:6F56C75C3BF3C33F446B51BAA6B2252B3DD0F3DC
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160649.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160649.jpgsave_picture_160649.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ Dreams - Dreams (1987) 2xCD, Reissue, 2023, Bad Reputation [FLAC|Lossless|image 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160650.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160650.jpgsave_picture_160650.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ Barcode 2.5.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160651.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160651.jpgsave_picture_160651.jpg" />
 </div>
 
 
@@ -365,7 +365,7 @@ magnet:?xt=urn:btih:7D41E7DA2FBE384BEBC9C58CC9E951B0025DCF9A
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160652.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160652.jpgsave_picture_160652.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ magnet:?xt=urn:btih:F019CDA5DD8F1358C63493ABCAF8A2F3F7A43D58
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160653.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160653.jpgsave_picture_160653.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ Angel Dust - Border Of Reality (1998) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160654.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160654.jpgsave_picture_160654.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Seventh Wonder - The Great Escape (2010) Reissue, 2023, Frontiers Music SRL [FLA
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160655.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160655.jpgsave_picture_160655.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ magnet:?xt=urn:btih:D1D79F0D2F176BF1F22D1ABE5203ACFB61CD50A1
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160656.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160656.jpgsave_picture_160656.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Be Focused Pro - Focus Timer 2.4 [En/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160657.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160657.jpgsave_picture_160657.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Aura - Злая магия (2019) [FLAC|Lossless|image + .cue] <Symphonic Gothic
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160658.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160658.jpgsave_picture_160658.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ FonePaw iOS Transfer for Mac 5.7.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160659.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160659.jpgsave_picture_160659.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Radioactive - Taken (2005) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160660.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160660.jpgsave_picture_160660.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Degreed - Lost Generation (2019) Japanese Edition [FLAC|Lossless|image + .cue] <
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160661.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160661.jpgsave_picture_160661.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ Necrophagia - The Divine Art Of Torture (2003) [APE|Lossless|image + .cue] <Deat
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160662.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160662.jpgsave_picture_160662.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ Joshua Redman - Where Are We (2023) Blue Note Records [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160663.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160663.jpgsave_picture_160663.jpg" />
 </div>
 
 

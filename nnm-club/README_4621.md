@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144640.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144640.jpgsave_picture_144640.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:4E1D7F977F6E06D9E79DB278B857FF1FD3EFCCCB
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144641.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144641.jpgsave_picture_144641.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:21E5BEEAF0369267F64AA4EF85AD28937D8319F3
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144642.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144642.jpgsave_picture_144642.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ VA - Русские свежаки радиостанций. Топ новино
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144643.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144643.jpgsave_picture_144643.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ The Fade Beta - Yesterday's Eden (2018) [FLAC|Lossless|WEB-DL|tracks] <IDM, Down
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144644.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144644.jpgsave_picture_144644.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ PullTube 1.6.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144646.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144646.jpgsave_picture_144646.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ BBC. Гарри Поттер: История Магии / Harry Potter: A Histor
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144647.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144647.jpgsave_picture_144647.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ Mark Isham - The Accountant / Расплата (Original Motion Picture Soundtra
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144648.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144648.jpgsave_picture_144648.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ Adobe Flash Player 20.0.0.267 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144649.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144649.jpgsave_picture_144649.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ magnet:?xt=urn:btih:C839CFD266592E6B2842F69A0830976F7D676EBA
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144650.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144650.jpgsave_picture_144650.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ iGlasses 3.4.6 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144652.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144652.jpgsave_picture_144652.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ Udemy, Anthony Kelleher | English Grammar Launch Advanced: Upgrade your speaking
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144653.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144653.jpgsave_picture_144653.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ magnet:?xt=urn:btih:7212E05B3C543CD525EDF46FC2873BF2086A9818
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144654.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144654.jpgsave_picture_144654.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ magnet:?xt=urn:btih:AE5D251FFE36CCDFF984B254B2EC422AD41E97C8
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144656.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144656.jpgsave_picture_144656.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ How to Dress Well - The Anteroom (2018) [FLAC|Lossless|tracks + .cue] <Experimen
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144657.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144657.jpgsave_picture_144657.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ magnet:?xt=urn:btih:02798350BBE3E166182DAFD1B9CB89ABF4C690C9
 >>Старые Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144658.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144658.jpgsave_picture_144658.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ magnet:?xt=urn:btih:FBB6A2FF8DC1F0C03A8C19FF138C6202E42E5DD0
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144659.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144659.jpgsave_picture_144659.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ magnet:?xt=urn:btih:1A24094670037065690318A48F396F723F61342A
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144660.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144660.jpgsave_picture_144660.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ David Sandilands | Puppet 8 for DevOps Engineers (2023) [PDF][EN]
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144662.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144662.jpgsave_picture_144662.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ magnet:?xt=urn:btih:3885D9AF1147AA6F981190D9F9D820D944AE06C1
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144663.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144663.jpgsave_picture_144663.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Udemy, Roman Trukhtanov | CSS – Как анимировать интерфей
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144664.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144664.jpgsave_picture_144664.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Any Video Converter Ultimate 4.5.8 [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144665.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144665.jpgsave_picture_144665.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Any Video Converter Ultimate предоставляет пользователя
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144666.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144666.jpgsave_picture_144666.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ VA - Utopia: Psychedelic Electronica (2018) [MP3|320 Kbps] <Psychedelic, Electro
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144667.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144667.jpgsave_picture_144667.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ magnet:?xt=urn:btih:FF8E476CFC59700117CBBF8BE74E3C9EBE02E72D
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144668.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144668.jpgsave_picture_144668.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ Keda Z | Онлайн-класс по постобработке свадьбы 
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144669.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144669.jpgsave_picture_144669.jpg" />
 </div>
 
 

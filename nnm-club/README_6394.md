@@ -6,7 +6,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202905.jpgsave_picture_202905.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Microsoft PowerToys 0.73.0 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202906.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202906.jpgsave_picture_202906.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:2F21C756459D5D36D2A51FFCAFEE7919D62E0800
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202908.jpgsave_picture_202908.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Smart Launcher 6.3 build 012 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202909.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202909.jpgsave_picture_202909.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Windows 11 Manager 1.2.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202910.jpgsave_picture_202910.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:B11DC1BAA646F9297F1828104A531CC925E598F8
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202911.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202911.jpgsave_picture_202911.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ V.A. - Meddle Reimagined - A Tribute To Pink Floyd (2023) [FLAC|Lossless|WEB-DL|
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202912.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202912.jpgsave_picture_202912.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:4B16DD5C18A656EB04C3B40C11CF2CF289B975B3
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202913.jpgsave_picture_202913.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ Auslogics Anti-Malware Pro 1.22.0.2 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202914.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202914.jpgsave_picture_202914.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ WhatsApp 2.2305.7.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202915.jpgsave_picture_202915.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ HyperSnap 9.2.2.0 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202916.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202916.jpgsave_picture_202916.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ magnet:?xt=urn:btih:110E322F46340F85D38FA7A84C7259B6F17128DB
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202917.jpgsave_picture_202917.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ High-Logic FontCreator Professional Edition 15.0.0.2927 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202918.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202918.jpgsave_picture_202918.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Allavsoft Video Downloader Converter 3.25.3.8436 RePack (& Portable) by TryRooM 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202919.jpgsave_picture_202919.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ magnet:?xt=urn:btih:B399F8C8A60C1A5AE32D6D51C1A5C3E71243FC24
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202920.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202920.jpgsave_picture_202920.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ NVIDIA GeForce Desktop Game Ready 528.49 WHQL + DCH [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202921.jpgsave_picture_202921.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ WinToUSB Free / Pro / Enterprise / Technician 7.8 RePack (& Portable) by Dodakae
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202922.jpgsave_picture_202922.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ VPN Inf - Security Fast VPN 7.5.822 Mod by ModdingUnited [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202923.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202923.jpgsave_picture_202923.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ Transparent clock & weather / Прозрачные часы и погода 6.35
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202924.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202924.jpgsave_picture_202924.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ magnet:?xt=urn:btih:C6C720361627887686308A0AF682D96482615BF1
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202925.jpgsave_picture_202925.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Macrorit Partition Expert 7.9.8 Unlimited Edition RePack (& Portable) by elchupa
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202926.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202926.jpgsave_picture_202926.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:513217E638519C71F0006292C419ECFF30915CE5
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202927.jpgsave_picture_202927.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Luminar Neo 1.13.0 Intel/ARM [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202928.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202928.jpgsave_picture_202928.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ magnet:?xt=urn:btih:E4B84FB0FC6474ED28CDAD30DDE7F1AC6D1EB785
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202929.jpgsave_picture_202929.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ magnet:?xt=urn:btih:3FE906E257F51CB6D6CEE6934B9902D1A9681CE2
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202930.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202930.jpgsave_picture_202930.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ magnet:?xt=urn:btih:FC07AD1BF078E65407947D690C67F699E6D4B3F9
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202931.jpgsave_picture_202931.jpg" />
 </div>
 
 

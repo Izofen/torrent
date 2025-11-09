@@ -6,7 +6,7 @@ Speedtest от Ookla 5.4.2 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107851.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107851.jpgsave_picture_107851.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:DD8356FA405695F61CB39AA6F3E2EC2AEB94CF58
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107852.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107852.jpgsave_picture_107852.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:CEA18839B020C2CD5AF6CBD7CC06B801B17836AE
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107853.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107853.jpgsave_picture_107853.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:1888F68221E0B326B808D36088457D5B4B03CD82
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107854.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107854.jpgsave_picture_107854.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ Mantus - Mantus (1980) LP [MP3|320 Kbps] <Funk Soul, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107855.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107855.jpgsave_picture_107855.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ magnet:?xt=urn:btih:214C222152DDB506ED59FCB9B3F74D7741A43CE3
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107856.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107856.jpgsave_picture_107856.jpg" />
 </div>
 
 
@@ -161,7 +161,7 @@ magnet:?xt=urn:btih:ADFCCD53D74C44D6D6234B7A5B2F6C26D67C1267
 >>Industrial, EBM, Dark Electro
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107857.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107857.jpgsave_picture_107857.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Torture Squad - Studio Albums (10 releases) (1998-2023) hand made [restored, dec
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107858.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107858.jpgsave_picture_107858.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ magnet:?xt=urn:btih:8B71312888D786CF75616463A890529BC01D0324
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107859.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107859.jpgsave_picture_107859.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ magnet:?xt=urn:btih:3C93B5DFDF48C7C42C942D81C2A1CBF80C7DD572
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107860.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107860.jpgsave_picture_107860.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Speedtest от Ookla 5.4.2 Lite-Mod by Balatan [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107861.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107861.jpgsave_picture_107861.jpg" />
 </div>
 
 
@@ -291,7 +291,7 @@ Andre Camilleri - Top Dog (2024) [FLAC|Lossless|WEB-DL|tracks] <Alt-Country, Blu
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107862.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107862.jpgsave_picture_107862.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ magnet:?xt=urn:btih:42CFFF612CB886E3AC94AA7922EC4D26F6FDD7F9
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107863.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107863.jpgsave_picture_107863.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Rascal - Rascal (1990) [MP3|192 Kbps] <AOR>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107864.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107864.jpgsave_picture_107864.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ VA - Ibiza Summer Vibes (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107865.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107865.jpgsave_picture_107865.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Storm Inside - Серый человек (2024) [FLAC|Lossless|WEB-DL|tracks] <M
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107866.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107866.jpgsave_picture_107866.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ The Iron Bees - Ржавый Тромбон (2024) [FLAC|Lossless|WEB-DL|tracks]
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107867.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107867.jpgsave_picture_107867.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ VA - Gym Workout Pumped Up 2024 [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107868.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107868.jpgsave_picture_107868.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Aythis - Lost Lighthouse (2024) [FLAC|Lossless|WEB-DL|tracks] <neoclassical, eth
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107869.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107869.jpgsave_picture_107869.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ VA - Gothic Music Orgy, Vol. 6 (2020) [MP3|320 Kbps] <Dark Electro, EBM, Industr
 >>Industrial, EBM, Dark Electro
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107870.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107870.jpgsave_picture_107870.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Brave Browser 1.67.116 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107871.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107871.jpgsave_picture_107871.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Lonely Fire - The Last Ride (2024) [MP3|320 Kbps] <Melodic Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107872.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107872.jpgsave_picture_107872.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ VA - Ibiza (Deep House Sensations) (2024) [MP3|320 Kbps] <House, Deep House, Dan
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107873.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107873.jpgsave_picture_107873.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Moog Music - Mariana 1.2.0 Standalone, VSTi 3, AAX (x64) RePack by TCD [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107874.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107874.jpgsave_picture_107874.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Black Country Communion - V (2024) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107875.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107875.jpgsave_picture_107875.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ The Jive Aces - Keeping The Show On The Road (2024) [FLAC|Lossless|image + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107876.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107876.jpgsave_picture_107876.jpg" />
 </div>
 
 

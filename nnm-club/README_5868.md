@@ -6,7 +6,7 @@ Volume2 1.1.8.465 Beta + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184389.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184389.jpgsave_picture_184389.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:3D0BD6C783E4F20CB5AFDC4B6750B2E7D2725587
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184390.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184390.jpgsave_picture_184390.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Mono Inc. - The Book Of Fire (2020) [WavPack|Lossless|image + .cue] <Gothic Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184392.jpgsave_picture_184392.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ VA - Swinging Classics (2006) [FLAC|Lossless|tracks + .cue] <Jazz, Classical>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184395.jpgsave_picture_184395.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Auslogics Disk Defrag Pro 11.0.0.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184396.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184396.jpgsave_picture_184396.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ DxO PureRAW 3.6.0 build 22 RePack by KpoJIuK [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184397.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184397.jpgsave_picture_184397.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ magnet:?xt=urn:btih:C27F08CC400FE78B82F154F4D125FD1ACC6A2987
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184400.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184400.jpgsave_picture_184400.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ Liveclasses, Анатолий Ясинский | Массовый человек
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184401.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184401.jpgsave_picture_184401.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ CodeRunner 4 v4.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184402.jpgsave_picture_184402.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ TG Pro (Temperature Gauge Pro) 2.53 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184404.jpgsave_picture_184404.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ LibreOffice 7.6.2.1 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184406.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184406.jpgsave_picture_184406.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ magnet:?xt=urn:btih:2AF02F4798788BD008DE18CEBC07C77CA9DB231B
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184407.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184407.jpgsave_picture_184407.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ Alfa eBooks Manager 8.6.20.1 Pro & Web [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184409.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184409.jpgsave_picture_184409.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Auslogics File Recovery 11.0.0.0 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184411.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184411.jpgsave_picture_184411.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ L.A. Guns - Renegades (2020) [FLAC|Lossless|image + .cue] <Hard Rock, Glam Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184412.jpgsave_picture_184412.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ VA - Deep Sleep Lounge: Chillout Your Mind (2020) [AAC|~313 Kbps] <Lounge, Chill
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184414.jpgsave_picture_184414.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ magnet:?xt=urn:btih:3CB6F49DCA385D34462F959AE9F813DB809A7CB1
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184416.jpgsave_picture_184416.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Magic Hider 1.4.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184418.jpgsave_picture_184418.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ magnet:?xt=urn:btih:96B1802928BED0DE8A54A2AA5215EB5AC985B28E
 >>Футбол
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184420.jpgsave_picture_184420.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ magnet:?xt=urn:btih:A5D04A4602A24D82FD2D7A78A234FDFF5D856A68
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184422.jpgsave_picture_184422.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Leslie O'Hara - Gipsy Boy (1978) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184424.jpgsave_picture_184424.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ magnet:?xt=urn:btih:E286FBC866DB9AF7B3FFE4FD41A70193374D5920
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184425.jpgsave_picture_184425.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ magnet:?xt=urn:btih:E1F3279364F63CC26E0FDA0F0B29F286746EA737
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184427.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184427.jpgsave_picture_184427.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ ANTIKLAN - Under Wetiko (Hymns from Beneath the Veil) (2022) [FLAC|Lossless|WEB-
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184428.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184428.jpgsave_picture_184428.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ magnet:?xt=urn:btih:E39D8F6569CE699352BEC1EB6A364958424764A4
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184430.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184430.jpgsave_picture_184430.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ Auslogics Registry Cleaner Pro 10.0.0.0 RePack (& Portable) by TryRooM [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184432.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184432.jpgsave_picture_184432.jpg" />
 </div>
 
 

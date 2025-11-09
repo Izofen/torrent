@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131749.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131749.jpgsave_picture_131749.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Udemy, Passive Income Gen Z | ChatGPT & DALL-E2 to Create a KDP Storybook for Ch
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131750.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131750.jpgsave_picture_131750.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ VA - 90's Hits Euro Dance Remix Classics Vol 2 (2012) [MP3|320 кб/с]<Funky, C
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131751.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131751.jpgsave_picture_131751.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Udemy, Rufana Zade | Master Brand Design: Graphic Masterclass - Time-Saving Step
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131752.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131752.jpgsave_picture_131752.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ VA 90's Hits - Euro Dance Remix Classics Vol 1 (2012) [MP3|320 кб/с]<Club, Ho
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131753.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131753.jpgsave_picture_131753.jpg" />
 </div>
 
 
@@ -144,7 +144,7 @@ magnet:?xt=urn:btih:06B03610A283AC1E265CF860198FC49A0889EA8B
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131755.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131755.jpgsave_picture_131755.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ LEGO The Lord Of The Rings / LEGO Властелин колец [Ru/En] (RePack)
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131756.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131756.jpgsave_picture_131756.jpg" />
 </div>
 
 
@@ -196,7 +196,7 @@ magnet:?xt=urn:btih:409F0A7DB6B2CA1252BF039034273B44DEB2E3A8
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131759.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131759.jpgsave_picture_131759.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ VA - CarMusic 2 for lady (2023) [MP3|320 Kbps] <Pop, House, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131760.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131760.jpgsave_picture_131760.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Braid [Ru/En] (RePack/1.0.1.5) 2008 | R.G. Механики
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131761.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131761.jpgsave_picture_131761.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ magnet:?xt=urn:btih:F359E3D87B6E0F4EB02902C4B8A5301C6686748E
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131762.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131762.jpgsave_picture_131762.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ magnet:?xt=urn:btih:60412A6EF37944CE5673DADE7500789A07964340
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131763.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131763.jpgsave_picture_131763.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ The War Z [En] (RePack/0.9.3) 2012 | R.G. Element Arts
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131764.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131764.jpgsave_picture_131764.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Demigod / Demigod. Битвы богов [Ru/En] (RePack/1.30.154) 2009 | R.G. �
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131765.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131765.jpgsave_picture_131765.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Fort Firewall 3.10.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131766.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131766.jpgsave_picture_131766.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Opera One 105.0.4970.34 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131768.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131768.jpgsave_picture_131768.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ magnet:?xt=urn:btih:358D6910C504D56618B22005208258AE3D123727
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131770.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131770.jpgsave_picture_131770.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ magnet:?xt=urn:btih:DA2E9E0B281BBE5E28520553BB63E4899300A0A1
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131771.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131771.jpgsave_picture_131771.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ magnet:?xt=urn:btih:DA2E9E0B281BBE5E28520553BB63E4899300A0A1
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131772.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131772.jpgsave_picture_131772.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ magnet:?xt=urn:btih:AD077412BA0DE1E8DB5EEB01F7ED92A1DB85F90D
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131774.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131774.jpgsave_picture_131774.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ magnet:?xt=urn:btih:9536962A73DE11745FE735AFD53CB251EC9C1111
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131775.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131775.jpgsave_picture_131775.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ magnet:?xt=urn:btih:E166A8270A54F0C4D9C03301C6B44E86C6659041
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131776.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131776.jpgsave_picture_131776.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ NVIDIA GeForce Desktop Game Ready 546.29 WHQL + DCH [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131778.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131778.jpgsave_picture_131778.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ magnet:?xt=urn:btih:1633DE2D178B055F5F6E2D6AED83B4E19E2FC7E1
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131779.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131779.jpgsave_picture_131779.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Melon VPN - Secure Proxy VPN 7.9.633 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131780.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131780.jpgsave_picture_131780.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ IceCream Ebook Reader Pro 6.43 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131781.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131781.jpgsave_picture_131781.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ My Memory of Us (2018) [Ru/Multi] (Build 16287132) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30229.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30229.jpgsave_picture_30229.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:2711366D0928289602E0210BBDB829D062692B17
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30230.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30230.jpgsave_picture_30230.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ HopToDesk 1.42.8.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30231.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30231.jpgsave_picture_30231.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Firefox Browser 134.0.2 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30232.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30232.jpgsave_picture_30232.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Paranormal Files 12: Fatal Flaw / Паранормальные явления 12
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30233.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30233.jpgsave_picture_30233.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Opera One 116.0.5366.51 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30234.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30234.jpgsave_picture_30234.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:20F5C78450A5FD513F0FC52EF9B9FBE899BE348C
 >>Комиксы на русском языке
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30235.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30235.jpgsave_picture_30235.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ The Star Named EOS (2024) [Ru/Multi] (1.0.0.04) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30236.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30236.jpgsave_picture_30236.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:31E3BAD08411AA6ECB2773CECABFF0FB75395B58
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30237.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30237.jpgsave_picture_30237.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:44D0D844907EF43A6D3F788A52E6E2A677AAAC0D
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30238.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30238.jpgsave_picture_30238.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ magnet:?xt=urn:btih:135FCAAA441FE0D560350D9E33ABA6EA9B8839EF
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30239.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30239.jpgsave_picture_30239.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ magnet:?xt=urn:btih:C38DFA788B7F46C30C39C18F4CDDEB1C87E25153
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30240.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30240.jpgsave_picture_30240.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ magnet:?xt=urn:btih:0117A451482062D76930AC431327432CA3398FA9
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30241.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30241.jpgsave_picture_30241.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ magnet:?xt=urn:btih:497860C1A3C785C44F325B036F4BAF39F657FCF8
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30242.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30242.jpgsave_picture_30242.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ magnet:?xt=urn:btih:B411150D076C0170F004D017260956386FEC8B75
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30243.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30243.jpgsave_picture_30243.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ RustDesk 1.3.7 + portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30244.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30244.jpgsave_picture_30244.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ magnet:?xt=urn:btih:F35D6D58411EE8FBD12E870120BB2A0EEF77AFDD
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30245.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30245.jpgsave_picture_30245.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ Art Me: ИИ-художник v5.4 Mod by PieMods [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30246.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30246.jpgsave_picture_30246.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ magnet:?xt=urn:btih:68F2F5027374573A046AEB0A529AC51F0622414D
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30247.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30247.jpgsave_picture_30247.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ magnet:?xt=urn:btih:A38281EB286FB984DFFC1386DA1B8F46578885A2
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30248.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30248.jpgsave_picture_30248.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ magnet:?xt=urn:btih:50E2495A2097B76BE48B44F9855D0FCCB2BF7033
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30249.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30249.jpgsave_picture_30249.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ magnet:?xt=urn:btih:6F328EB6CE5463601177F58E6E7E104FE5DAA20A
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30250.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30250.jpgsave_picture_30250.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Brian Tarquin - High Life (2001) [WavPack|Lossless] <Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30251.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30251.jpgsave_picture_30251.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ magnet:?xt=urn:btih:05EFFF23D7469F87399C32EF644CEDAD44F1BBCC
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30252.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30252.jpgsave_picture_30252.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Genius Art: Image AI Generator v1.1.2 Mod by vadj [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30253.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30253.jpgsave_picture_30253.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ magnet:?xt=urn:btih:A5E4E7BCC285F5A1FE7830E3AE86F6AFDF19539A
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30254.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30254.jpgsave_picture_30254.jpg" />
 </div>
 
 

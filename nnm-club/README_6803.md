@@ -6,7 +6,7 @@
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_234040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_234040.jpgsave_picture_234040.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:EA8446A9639B3FD7F9A9A2D7B570FEA398346B74
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234042.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234042.jpgsave_picture_234042.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Darkest Hour: A Hearts of Iron Game (2011) [Ru/Multi] (1.05.1) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_234043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_234043.jpgsave_picture_234043.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ NIUBI Partition Editor 9.6.3 Technician Edition Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234044.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234044.jpgsave_picture_234044.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ EditPlus 5.7.0 build 4352 + EditPlus 5.7.0 patch 4506 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234046.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234046.jpgsave_picture_234046.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ The Kinks - Soap Opera (1975) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234047.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234047.jpgsave_picture_234047.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ Reckless - T.M.T.T.80 (2022) [FLAC|Lossless|WEB-DL|tracks] <Glam Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_234048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_234048.jpgsave_picture_234048.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ VA - What About Lounge, Vol. 1 (2021) [AAC|~316 Kbps] <Lounge, Chill Out, Downte
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_234049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_234049.jpgsave_picture_234049.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ Microsoft Windows 11 [10.0.22000.978], Version 21H2 (Updated September 2022) - �
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_234050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_234050.jpgsave_picture_234050.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ Firefox Browser 115.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234051.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234051.jpgsave_picture_234051.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ magnet:?xt=urn:btih:353AC30FE7D97EF9A14C23CD74503CD6240F0C48
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234053.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234053.jpgsave_picture_234053.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ Windows 10 21H2 x64 Rus by OneSmiLe [19044.1737]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_234054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_234054.jpgsave_picture_234054.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ Stormwarning - Stormwarning (2023) [FLAC|Lossless|image + .cue] <Melodic Hard Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234055.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234055.jpgsave_picture_234055.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ Space Vacation - White Hot Reflection (2022) [FLAC|Lossless|WEB-DL|tracks] <Heav
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_234056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_234056.jpgsave_picture_234056.jpg" />
 </div>
 
 
@@ -364,7 +364,7 @@ magnet:?xt=urn:btih:E5A8DEEE85A3D13EE973390EBC08B943D16C2FC5
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_234057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_234057.jpgsave_picture_234057.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ FastStone Capture 10.1 Final RePack (& portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234058.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234058.jpgsave_picture_234058.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Armored Dawn - Viking Zombie (2019) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234060.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234060.jpgsave_picture_234060.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Exmortus - In Hatred's Flame (2008) [FLAC|Lossless|image + .cue] <Death Metal, T
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_234061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_234061.jpgsave_picture_234061.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Barcode 2.5 beta [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234062.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234062.jpgsave_picture_234062.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Tysondog - Midnight (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_234063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_234063.jpgsave_picture_234063.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:1BA95F121686E19C919DB2749F68E21052C11101
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_234064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_234064.jpgsave_picture_234064.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ magnet:?xt=urn:btih:1F854B81580479E9ED1021ED7E160BAA0C81727C
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_234065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_234065.jpgsave_picture_234065.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Outer Head - Delirium (2023) [MP3|320 Kbps] <Psych Doom, Stoner, 70's>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234067.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234067.jpgsave_picture_234067.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Node Video - Pro Video Editor 6.3.0 Mod by PieMods [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234068.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234068.jpgsave_picture_234068.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ American Grim - 1947 (2023) [FLAC|Lossless|WEB-DL|tracks] <Industrial Rock, Rap 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234069.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234069.jpgsave_picture_234069.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ DxO PhotoLab 6 ELITE Edition 6.6.0 (build 50) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234070.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234070.jpgsave_picture_234070.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85695.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85695.jpgsave_picture_85695.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:6B8E8FCD8351FBC9EBA8DEC44823AAA0F60CA662
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85696.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85696.jpgsave_picture_85696.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ Kula Shaker - [5 альбомов] Дискография (1996-2010) [MP3|320 �
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85697.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85697.jpgsave_picture_85697.jpg" />
 </div>
 
 
@@ -89,7 +89,7 @@ magnet:?xt=urn:btih:275D08FAC246B947E6C7A141ACEF834B78A1A3B2
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85698.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85698.jpgsave_picture_85698.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ magnet:?xt=urn:btih:F23D023CE3F6E3CF973D695CCB17A09658772F7C
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85701.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85701.jpgsave_picture_85701.jpg" />
 </div>
 
 
@@ -148,7 +148,7 @@ magnet:?xt=urn:btih:86AEF5C509D9F5A656C6369F0B944A4730DD0ED1
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85704.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85704.jpgsave_picture_85704.jpg" />
 </div>
 
 
@@ -172,7 +172,7 @@ magnet:?xt=urn:btih:86AEF5C509D9F5A656C6369F0B944A4730DD0ED1
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85706.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85706.jpgsave_picture_85706.jpg" />
 </div>
 
 
@@ -196,7 +196,7 @@ Audials One 9.1 Build 13600.0 [English]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85707.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85707.jpgsave_picture_85707.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Audials One supplies you with unlimited music—completely free, ultra-fast and 
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85709.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85709.jpgsave_picture_85709.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ magnet:?xt=urn:btih:07ECF66566233A36EE79339CE55D4983150F56C9
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85710.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85710.jpgsave_picture_85710.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ magnet:?xt=urn:btih:07ECF66566233A36EE79339CE55D4983150F56C9
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85713.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85713.jpgsave_picture_85713.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ History Channel: Добро пожаловать в 80-е (серии 1-6 из 6
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85716.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85716.jpgsave_picture_85716.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ magnet:?xt=urn:btih:1AADD5306DF64ADEE9D2869B93726B6334F84F29
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85717.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85717.jpgsave_picture_85717.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ magnet:?xt=urn:btih:00C4BF04E2A65907D0F4F0FC39D1213BD79E7FA5
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85718.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85718.jpgsave_picture_85718.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Joan Jett & The Blackhearts - Greatest Hits [2CD] (2010) [WavPack|Lossless]<Glam
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85719.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85719.jpgsave_picture_85719.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Fedora Electronic Lab 16 [i686 + x86_64] (2xDVD)
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85721.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85721.jpgsave_picture_85721.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ The Shadows - Platinum Collection 2CD (2006) [MP3|320 кб/с]<Instrumental Guit
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85722.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85722.jpgsave_picture_85722.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ magnet:?xt=urn:btih:DB2A07069BC5B6097B0BC513AA35A36520535D6D
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85723.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85723.jpgsave_picture_85723.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Wood Мастер - журнал, ориентированный на людей
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85724.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85724.jpgsave_picture_85724.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Armin van buuren video asot 550 live in Kiev (2012) (CamRip/DVD5)
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85725.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85725.jpgsave_picture_85725.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ Armin van buuren video asot 550 live in Kiev (2012) (CamRip/DVD5)
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85726.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85726.jpgsave_picture_85726.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ magnet:?xt=urn:btih:CEE87D8EBBDC48DC6850F33F393AB9CB445EE8CC
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85727.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85727.jpgsave_picture_85727.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ VA - Девочка с планеты Земля. Детские песни и �
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85728.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85728.jpgsave_picture_85728.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Windows 7 Manager 4.0.3 Final [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85729.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85729.jpgsave_picture_85729.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Windows 7 Manager - это системная утилита, которая п�
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85730.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85730.jpgsave_picture_85730.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ magnet:?xt=urn:btih:59FE65FCA6235C9C34F9DD063249E8946EAABA91
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85733.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85733.jpgsave_picture_85733.jpg" />
 </div>
 
 

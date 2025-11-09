@@ -6,7 +6,7 @@ OsmAnd+  Карты & GPS Офлайн v5.1.4 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11729.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11729.jpgsave_picture_11729.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:E110DDC553EE57CD73C7E26F4D1B0A092CA11164
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11730.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11730.jpgsave_picture_11730.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:83A57D4D263327B2DDF702178B626012668EBD95
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11731.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11731.jpgsave_picture_11731.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ My Time At Portia (2019) [Ru/Multi] (2.0.141719/dlc) Repack FitGirl [Digital Del
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11732.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11732.jpgsave_picture_11732.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:09AB23B261F61E81B7F0B15BADA88EB1EC2AC18D
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11733.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11733.jpgsave_picture_11733.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:A09B5D0D3A93D41C67A3A8025050E28F1044420C
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11734.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11734.jpgsave_picture_11734.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ LUNAR Remastered Collection (2025) [Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11735.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11735.jpgsave_picture_11735.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:D4B7617D4EB2FE718C4B4B48F849ADE4FB68C6DB
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11736.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11736.jpgsave_picture_11736.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ iTubeGo YouTube Downloader 10.2.6 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11737.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11737.jpgsave_picture_11737.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ City Enigma / Тайна города (2025) [Ru] (1.0) Unofficial [Collector's 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11738.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11738.jpgsave_picture_11738.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Process Lasso Pro  16.0.0.42 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11739.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11739.jpgsave_picture_11739.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:74C45ABADEF3F4FF57ED4F464E90031A17532CBA
 >>Картинки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11740.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11740.jpgsave_picture_11740.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:E80684DF15628FFF95EF6B3EFDD5AEE74A53A6B6
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11741.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11741.jpgsave_picture_11741.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ magnet:?xt=urn:btih:D88BE02FAE219B67DEA3826BACA24C942F150F20
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11742.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11742.jpgsave_picture_11742.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ magnet:?xt=urn:btih:73F6668DAF1277DE9BDEC8D3431831E532774CE0
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11743.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11743.jpgsave_picture_11743.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Display Driver Uninstaller 18.1.2.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11744.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11744.jpgsave_picture_11744.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ magnet:?xt=urn:btih:016D80986C4B45B8534F0E8DCB57DEA7C968854F
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11745.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11745.jpgsave_picture_11745.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ magnet:?xt=urn:btih:0843F560BC258F9D95CC6CAABCB7ED4DF57D7F52
 >>Отечественные Мультфильмы 21-го века (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11746.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11746.jpgsave_picture_11746.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ magnet:?xt=urn:btih:2002F9CBB0051F6E1174501FB11666804C584B38
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11747.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11747.jpgsave_picture_11747.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ magnet:?xt=urn:btih:E444F655017AD58129446D0C73337491E9015111
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11748.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11748.jpgsave_picture_11748.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ magnet:?xt=urn:btih:424494DA1523504A58AC69DAE5A962533ED9DB5F
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11749.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11749.jpgsave_picture_11749.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ Ashampoo Music Studio 12.0.0.14 x64 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11750.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11750.jpgsave_picture_11750.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ magnet:?xt=urn:btih:EB0B77969BFA8D776CD7F1F786385D69052719BD
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11751.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11751.jpgsave_picture_11751.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Perfectly Clear WorkBench 4.8.0.2830 RePack (& Portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11752.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11752.jpgsave_picture_11752.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ magnet:?xt=urn:btih:5B688E63F35A3F90F12781E8F43458B4FFE1919A
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11753.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11753.jpgsave_picture_11753.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ RegCool 2.035 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11754.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11754.jpgsave_picture_11754.jpg" />
 </div>
 
 

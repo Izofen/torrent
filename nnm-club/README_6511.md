@@ -6,7 +6,7 @@ Chris Spheeris & Paul Voudouris - Enchantment (1991) [FLAC|Lossless|image + .cue
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206744.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206744.jpgsave_picture_206744.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:C6A4C0BFC98481749CFA940C28ECAC21AB7A6C2B
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206747.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206747.jpgsave_picture_206747.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:47ED7205A5100FFE49FBA8CFECC5CB6AC90E5416
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206749.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206749.jpgsave_picture_206749.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Splunk Enterprise for Mac 9.1.0.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206750.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206750.jpgsave_picture_206750.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Emerson, Lake & Palmer - The Return of the Manticore (1993) 4 x CD, Compilation,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206752.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206752.jpgsave_picture_206752.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ VA - Lo-Fi Chill - Relaxing Beats (2023) [MP3|320 Kbps] <Lounge, Downtempo, Lo F
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206757.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206757.jpgsave_picture_206757.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ WinCatalog 2024.1.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206760.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206760.jpgsave_picture_206760.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:455A313CA14F435224B55D2B79562BE3532483B1
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206763.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206763.jpgsave_picture_206763.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ Macrorit Partition Expert 7.9.6 Technician Edition RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206764.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206764.jpgsave_picture_206764.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ Stephane Maarek | Ultimate AWS Certified Cloud Practitioner - 2023 (2023) WEBRip
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206766.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206766.jpgsave_picture_206766.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ magnet:?xt=urn:btih:7922665083A9EE667AA8EC06946D366365ACF696
 >>История
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206768.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206768.jpgsave_picture_206768.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ Liberte (2023) [En] (1.0.2.b) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206769.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206769.jpgsave_picture_206769.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ magnet:?xt=urn:btih:B5A98C2A8829B56EA443265A5C01262648613C51
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206772.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206772.jpgsave_picture_206772.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:4275C3EE7C8364EF1B138D39BCF4E40F9CC5B38D
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206773.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206773.jpgsave_picture_206773.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Internet Download Manager 6.41 Build 18 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206774.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206774.jpgsave_picture_206774.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ magnet:?xt=urn:btih:A780013D84CBDADB114E89AC931DDD29B4AD4AA3
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206777.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206777.jpgsave_picture_206777.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ magnet:?xt=urn:btih:2E6B9BBA842A5DCA78CECDFBB8D1D4776C0FB6EF
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206778.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206778.jpgsave_picture_206778.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ NonVisual Desktop Access (NVDA) 2023.1 include Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206782.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206782.jpgsave_picture_206782.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ magnet:?xt=urn:btih:3C4558C0A6181D6FE34D327516A5471A31BB43D3
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206783.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206783.jpgsave_picture_206783.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ BurnAware Professional 16.9 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206785.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206785.jpgsave_picture_206785.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ magnet:?xt=urn:btih:7A0559CCC33529A50395E7DA934C70381FE13642
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206786.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206786.jpgsave_picture_206786.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ magnet:?xt=urn:btih:4D6DF444055363226A5B0E4FB3C754F7E9190305
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206791.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206791.jpgsave_picture_206791.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ magnet:?xt=urn:btih:13628E659B23CAA7B02D608C39F17AD2A9CCDE42
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206792.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206792.jpgsave_picture_206792.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ magnet:?xt=urn:btih:13628E659B23CAA7B02D608C39F17AD2A9CCDE42
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206794.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206794.jpgsave_picture_206794.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Capture One 23 Enterprise 16.2.3.32 [En/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206796.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206796.jpgsave_picture_206796.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ PhotoInstrument 7.7 Build 1052 RePack by softwox [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206797.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206797.jpgsave_picture_206797.jpg" />
 </div>
 
 

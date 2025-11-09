@@ -6,7 +6,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95662.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95662.jpgsave_picture_95662.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Kubuntu 12.04 LTS "Precise Pangolin" Beta 1 [i386 + x86_64] (2xCD)
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95678.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95678.jpgsave_picture_95678.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:488C4B448A74B055BF0E118CC1263D1BCF8F4E06
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95689.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95689.jpgsave_picture_95689.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Kaiser Chiefs - Start The Revolution Without Me (2012) [MP3|~245 кб/с (V0)]<I
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95699.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95699.jpgsave_picture_95699.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ magnet:?xt=urn:btih:E6B982893C073C65FFB59F83CC91B212435BF29C
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95700.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95700.jpgsave_picture_95700.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ magnet:?xt=urn:btih:34E3571061372F7E6ACD238D36FAE09D32E7247C
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95713.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95713.jpgsave_picture_95713.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ magnet:?xt=urn:btih:68E38813168A267D520B2FB5E0D6CA30EAA0AA16
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95720.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95720.jpgsave_picture_95720.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ magnet:?xt=urn:btih:AE8B3AA855AC665F4548F48A0269B9BBAC7EDA54
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95721.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95721.jpgsave_picture_95721.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ Double B - Мы Любим Власть (2012) [MP3|320 кб/с]<Rap>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95725.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95725.jpgsave_picture_95725.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ VA - Timegate 2012 (2011) [MP3|~254 кб/с (V0)]<Psy-Progressive>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95740.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95740.jpgsave_picture_95740.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ VA - Trance. Vocal Fascination 14 (06.03.2012) [MP3|320 кб/с]<Uplifting Tranc
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95749.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95749.jpgsave_picture_95749.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ magnet:?xt=urn:btih:45E09C4AC6EFF38F0C1E4EE6C256BFEBB8CF268C
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95753.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95753.jpgsave_picture_95753.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ VA - Interpret Reality (2011) [MP3|320 кб/с]<Psy-Prog, Full On>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95755.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95755.jpgsave_picture_95755.jpg" />
 </div>
 
 
@@ -364,7 +364,7 @@ magnet:?xt=urn:btih:DB75C36E5335836601581C85787433F2D594B71A
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95758.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95758.jpgsave_picture_95758.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ C. Васильев | Александровская слобода [1971] [PDF]
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95764.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95764.jpgsave_picture_95764.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ magnet:?xt=urn:btih:50AACB9B6916578F5E2766A808FDA216B00A0802
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95765.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95765.jpgsave_picture_95765.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ VA - Most Wanted Chill & Lounge (10.02.2012) [MP3|320 кб/с]<Downtempo, Lounge
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95768.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95768.jpgsave_picture_95768.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Red Lamb - Red Lamb (2012) [MP3|320 кб/с]<Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95776.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95776.jpgsave_picture_95776.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ magnet:?xt=urn:btih:67714F45164DD2701F5B1AE6667BC6C6D067D863
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95780.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95780.jpgsave_picture_95780.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ magnet:?xt=urn:btih:3B36074DD6BC5B55E0237D0757F1A5D4E929A940
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95787.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95787.jpgsave_picture_95787.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Marcus Miller - Original Album Classic (1993-2007) [5CD Box Set] (2009) [MP3|320
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95796.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95796.jpgsave_picture_95796.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ magnet:?xt=urn:btih:2CC200D8CDF02E23EE78F43690D3CEB3D3253402
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95803.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95803.jpgsave_picture_95803.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ magnet:?xt=urn:btih:743F94BEB6AA8E24FFA01B49EE292E39FCD86403
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95806.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95806.jpgsave_picture_95806.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ VA - Sexy Trance #28 (06.03.2012) [MP3|320 кб/с]<Uplifting Trance, Trance, Vo
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95825.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95825.jpgsave_picture_95825.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ magnet:?xt=urn:btih:25F559E8C3D9C53A66EE0C898856045A854AD04A
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95826.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95826.jpgsave_picture_95826.jpg" />
 </div>
 
 
@@ -690,7 +690,7 @@ Arminstel - Trance Evolution vol.70 (04.03.2012) [MP3|320 кб/с]<Uplifting Tra
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95850.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95850.jpgsave_picture_95850.jpg" />
 </div>
 
 

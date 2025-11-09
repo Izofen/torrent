@@ -6,7 +6,7 @@ Lord Belial - Kiss the Goat (1994) [WavPack|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244558.jpgsave_picture_244558.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ TV Players - Big City Visions (2022) [MP3|320 Kbps] <Synthwave, Retrowave>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244559.jpgsave_picture_244559.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:7A5716BC3270F298B0859E1FCA488A1734303763
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244560.jpgsave_picture_244560.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Tom Raley - Day To Day (2023) [MP3|320 Kbps] <Classic Rock, Blues Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244561.jpgsave_picture_244561.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Home Business Card 1.7.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244562.jpgsave_picture_244562.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ magnet:?xt=urn:btih:E3E8C3E9E33A5D19F67D9ADBCED073192AD0AC59
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244563.jpgsave_picture_244563.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ magnet:?xt=urn:btih:30C094F4C9011BDBB7A6BB2B30AB9A7F1CB0FD44
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244564.jpgsave_picture_244564.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ A Fragile Tomorrow - Generation Loss (2019) [FLAC|Lossless|tracks + .cue] <Rock,
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244565.jpgsave_picture_244565.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Tal Babitzky - Internal Voice (2002) [FLAC|Lossless|tracks + .cue] <Fusion, Smoo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244566.jpgsave_picture_244566.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ VA - Mystera III (1999) [OGG Vorbis|480 Kbps] <Electronic, Ambient, Meditative>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244567.jpgsave_picture_244567.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ magnet:?xt=urn:btih:33F8D128B65EA22EDECC526BFE24606694B9BE2C
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244568.jpgsave_picture_244568.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ City Of Lights - Before the Sun Sets (2022) [FLAC|Lossless|WEB-DL|tracks] <Melod
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244569.jpgsave_picture_244569.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ magnet:?xt=urn:btih:0FE1565413F5C51B7C2272C26BC5E1757E4D2C13
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244570.jpgsave_picture_244570.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ magnet:?xt=urn:btih:7DE0B7188EB15C5A67A5B0ED5DF616F14EBCE1C0
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244571.jpgsave_picture_244571.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ Spotify 1.1.90.859 (Repack & Portable) by Elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244572.jpgsave_picture_244572.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ magnet:?xt=urn:btih:821218947E348DCB60DD713F45A246F2C10AB93B
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244573.jpgsave_picture_244573.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ Eric Lengyel | Foundations of Game Engine Development, Volume 1: Mathematics, Vo
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244574.jpgsave_picture_244574.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ Sandboxie plus 1.8.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244575.jpgsave_picture_244575.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ magnet:?xt=urn:btih:55967FB13FC81591393CF2CB83A3BCF942E8E088
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244576.jpgsave_picture_244576.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Baest - Necro Sapiens (2021) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244577.jpgsave_picture_244577.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ BBC. Год, Изменивший Планету  / The Year Earth Changed (2021
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244578.jpgsave_picture_244578.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ magnet:?xt=urn:btih:BD478607AD27D03F8A3C066D88814566D4AEB197
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244579.jpgsave_picture_244579.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ magnet:?xt=urn:btih:362771588209F61AC5C6FEC1CE277E7958E2ED05
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244580.jpgsave_picture_244580.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Noctem (2022) [Multi] (1.0) License TiNYiSO
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244581.jpgsave_picture_244581.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ magnet:?xt=urn:btih:966E456F94DE489BE6D25BB8207D250DBF16757E
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244582.jpgsave_picture_244582.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Nausea - World Struggle: Demos '88-'92 (2013) [FLAC|Lossless|image + .cue] <Deat
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244583.jpgsave_picture_244583.jpg" />
 </div>
 
 

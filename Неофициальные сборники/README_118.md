@@ -6,7 +6,7 @@ VA - German Top 40 DBC Deutsche Black Charts 24.02.(2017) [MP3|192-320 Kbps] <Hi
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242023.jpgsave_picture_242023.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - German Top 100 Single Charts 07.04.2023 [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242077.jpgsave_picture_242077.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - Flower Power - Children of Flowers Best Of (2023) [MP3|320 Kbps] <Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242220.jpgsave_picture_242220.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - Uplifting Trance: Spring Episode (2023) [MP3|320 Kbps] <Uplifting, Trance, 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242234.jpgsave_picture_242234.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ VA - Hypnotic Sunset In Jungle (2023) [MP3|320 Kbps] <Techno, Minimal, Electro>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242302.jpgsave_picture_242302.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ VA - Beatport Electro House: Sound Pack #262 (2021) [MP3|320 Kbps] <House, Elect
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242476.jpgsave_picture_242476.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ VA - Шансон Весна (2022) [MP3|320 Kbps] <Шансон>
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242827.jpgsave_picture_242827.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ VA - Beatport Electro House: Sound Pack #259 (2021) [MP3|320 Kbps] <Electro, Dan
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243075.jpgsave_picture_243075.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ VA - Beatport Clubbing Techno: Electro Sound Pack #260 (2021) [MP3|320 Kbps] <Cl
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243099.jpgsave_picture_243099.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ VA - Best Chillout Vol.21 (2016) [MP3|320 Kbps] <Chillout, Downtempo, Lounge>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243136.jpgsave_picture_243136.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ VA - Шансон 2020 Музыкальный хит-парад [часть.02] 
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243137.jpgsave_picture_243137.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ VA - German Top 100 Single Charts 25.03.2022 [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243153.jpgsave_picture_243153.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ VA - The Synthpop Disco (2022) [MP3|320 Kbps] <Synthpop, Electronic, Electro Pop
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243200.jpgsave_picture_243200.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ VA - National Pop Dance Music (Vol.32) (2022) [MP3|320 Kbps] <Pop, Dance, Folk S
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243224.jpgsave_picture_243224.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ VA - Top Hit Music Mission Charts (2016) [MP3|239~320 Kbps] <House, Funky,  Nu D
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243225.jpgsave_picture_243225.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ VA - Заключительная осенняя дискотека. Верси�
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243250.jpgsave_picture_243250.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ VA - Звездная вечеринка. Зарядись хитами. Час�
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243277.jpgsave_picture_243277.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ VA - Flex All Night: Electronic Dance Mix (2023) [MP3|320 Kbps] <Synthwave, Danc
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243366.jpgsave_picture_243366.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ VA - 00s Anthems (2023) [MP3|320 Kbps] <Pop, Rock, RnB>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243425.jpgsave_picture_243425.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Hayit Murat - Compilation (2023) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243431.jpgsave_picture_243431.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ VA - Sunshine Universe Harmonies (2016) [MP3|320 Kbps] <Trance, Melodic, Uplifti
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243438.jpgsave_picture_243438.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ VA - Finding Around Happiness (Energy Tech Trance) 011 (2016) [MP3|320 Kbps] <Tr
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243448.jpgsave_picture_243448.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ VA - Europa Plus №7 (2016) [MP3|256 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243533.jpgsave_picture_243533.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ VA - Top 100 DJs Chart (24-March-2023) (2023) [MP3|320 Kbps] <Pop, Dance, Electr
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243545.jpgsave_picture_243545.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ VA - Sunshine Live Vol.59 (2016) [MP3|320 Kbps] <Future House, Trance, Nu Disco,
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243571.jpgsave_picture_243571.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ VA - R&B Nation (2021) [MP3|320 Kbps] <R%B, Soul>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243597.jpgsave_picture_243597.jpg" />
 </div>
 
 

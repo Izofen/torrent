@@ -6,7 +6,7 @@ Jolly Jackers - Welcome to the Grind (2024) [FLAC|Lossless|WEB-DL|tracks] <Celti
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110217.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110217.jpgsave_picture_110217.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ U.D.O. - Game Over (2021) Limited Edition,2022, AFM Records[FLAC|24/192|tracks|V
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110218.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110218.jpgsave_picture_110218.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Daath - The Deceivers (2024) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Melodic De
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110219.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110219.jpgsave_picture_110219.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Kevin Ito - 000 (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Smooth Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110220.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110220.jpgsave_picture_110220.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ magnet:?xt=urn:btih:B0EC59C70542891E36018621B9EC8F1499E4B256
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110221.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110221.jpgsave_picture_110221.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Coffee Shop Vibes - Possibilities (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110222.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110222.jpgsave_picture_110222.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Alicate - Heaven Tonight (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110223.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110223.jpgsave_picture_110223.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Ava Rane - Insanity (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110224.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110224.jpgsave_picture_110224.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:72F1302722F2F37456033D648717ED1FB4A3046F
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110225.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110225.jpgsave_picture_110225.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ soundlea - Юность под землёй (2024) [MP3|320 Kbps] <Indie Rock, S
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110226.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110226.jpgsave_picture_110226.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Raff Ranieri - Flows (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Contemporary Ja
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110227.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110227.jpgsave_picture_110227.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Mekong Delta - Studio Albums (6 releases) (1996-2020) hand made [restored, decli
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110228.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110228.jpgsave_picture_110228.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Benke Bunker Band - Rulla Hatt (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110229.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110229.jpgsave_picture_110229.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ magnet:?xt=urn:btih:71C5A6DFF8C69B14C62B8A40790F1940632B0FA2
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110230.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110230.jpgsave_picture_110230.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ magnet:?xt=urn:btih:837E389943C8BCD02A90A89319E253A15FBDED95
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110231.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110231.jpgsave_picture_110231.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ magnet:?xt=urn:btih:14AEF2E14AC36081E18A12424510C7A6AEB8D201
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110232.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110232.jpgsave_picture_110232.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ magnet:?xt=urn:btih:483AA826A08F08100D67647F78386BD788865398
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110233.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110233.jpgsave_picture_110233.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ magnet:?xt=urn:btih:5303168FE672C75C3A55BD683207470231CBFDE9
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110234.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110234.jpgsave_picture_110234.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Speedtest от Ookla 5.3.6 Mod by maxi123444 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110235.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110235.jpgsave_picture_110235.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ KineMaster - Video Editor & Maker v7.4.10.32410.GP Mod by Shadow_Patcher [Ru/Mul
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110236.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110236.jpgsave_picture_110236.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ FireAlpaca 2.11.20 RePack (& Portable) by elchupacabra
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110237.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110237.jpgsave_picture_110237.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ magnet:?xt=urn:btih:8DA00CECBA54418840DCA00791076361B9AAEB3D
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110238.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110238.jpgsave_picture_110238.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ FastCopy Pro 5.7.8 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110239.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110239.jpgsave_picture_110239.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ magnet:?xt=urn:btih:3C07040D55E24C08D8B78C0857C64C85F1991D4E
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110240.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110240.jpgsave_picture_110240.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ magnet:?xt=urn:btih:14DBCECA9956D591458DD206A085AC6B68261995
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110241.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110241.jpgsave_picture_110241.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ VA - New Music Friday (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110242.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110242.jpgsave_picture_110242.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Steinberg Cubase Pro 13.0.10.123 (x64) Portable by 7997 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161900.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161900.jpgsave_picture_161900.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:15CBB4C2E21962B2A5872FFDDBADA1B9C377452A
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161901.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161901.jpgsave_picture_161901.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ DJ RumBuRak  - The Universe (2022) [FLAC|Lossless|WEB-DL|tracks] <Psy-Trance>
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161902.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161902.jpgsave_picture_161902.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:09EE3DAE243BA53C3272EC8852304A6370D36219
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161903.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161903.jpgsave_picture_161903.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:8A19D2175C4E0B4C545615D4E54DC18E5BEE277B
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161904.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161904.jpgsave_picture_161904.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:5F3F1DBA3A766515F39A98E6B388E980249A9FD5
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161905.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161905.jpgsave_picture_161905.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ VA - " Золотой фонд эстрады " - Многое в жизни б�
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161906.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161906.jpgsave_picture_161906.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ IObit Uninstaller Pro 11.2.0.10 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161907.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161907.jpgsave_picture_161907.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ magnet:?xt=urn:btih:AA4561491B7AA98F017230B2C9B5999E1F18735B
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161908.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161908.jpgsave_picture_161908.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ magnet:?xt=urn:btih:1841CA192A5413CAC2576388155C6708A86714B4
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161909.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161909.jpgsave_picture_161909.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:3F2E9FA3A74C948B5ADFF1AF4AEBEB444F2EE48C
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161910.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161910.jpgsave_picture_161910.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:D8EACED7983BC76D85683A5CE55B736D84F2BE74
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161911.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161911.jpgsave_picture_161911.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Revo Uninstaller Pro 4.5.3 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161912.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161912.jpgsave_picture_161912.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ magnet:?xt=urn:btih:51F4BBF7815BAB31CB49B9A5B56FBAF728113F6D
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161913.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161913.jpgsave_picture_161913.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Bridge to Another World 7: Secrets of the Nutcracker (2020) [En] (1.0) Unofficia
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161914.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161914.jpgsave_picture_161914.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ LEX LIVE 10 Preview v.26.0.3 [Ru]
 >>LiveCD/DVD/Flash
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161915.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161915.jpgsave_picture_161915.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ magnet:?xt=urn:btih:6A8C7ADF2B4BD1F87421DF110AEED281E184C8E2
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161916.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161916.jpgsave_picture_161916.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ IObit Driver Booster Pro 9.1.0.140 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161917.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161917.jpgsave_picture_161917.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ One Eleven (2023) [Ru/En] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161918.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161918.jpgsave_picture_161918.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ VA - 25 лет радио шансон (2025) [FLAC|Lossless|WEB-DL|tracks] <Ш�
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161919.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161919.jpgsave_picture_161919.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ magnet:?xt=urn:btih:CC1E3A10B610FB5EEF1E06B9061FD9621C56824E
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161920.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161920.jpgsave_picture_161920.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ magnet:?xt=urn:btih:613F50DB4727036508CC987A15604FE641C3EFD5
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161921.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161921.jpgsave_picture_161921.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ magnet:?xt=urn:btih:68A2B25716AB5D615C0AFA355FF799DD511FF978
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161922.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161922.jpgsave_picture_161922.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ magnet:?xt=urn:btih:6CE22980DB1B0B865F267C7994DB1B5C131EB82A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161923.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161923.jpgsave_picture_161923.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ magnet:?xt=urn:btih:9DFACBE6F95A631D26A74CE4D4D8D2C18AD2AFCE
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161924.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161924.jpgsave_picture_161924.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ VA - Music To Watch Girls By (2019) 3xCD, Compilation [FLAC|Lossless|image + .cu
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161925.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161925.jpgsave_picture_161925.jpg" />
 </div>
 
 

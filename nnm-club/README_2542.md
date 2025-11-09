@@ -6,7 +6,7 @@ Kaguya-sama wa Kokurasetai: Tensai-tachi no Renai Zunousen | Кагуя: В лю
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66842.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66842.jpgsave_picture_66842.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Oldschool Union - Herra Ja Hidalgo (2025) [MP3|320 Kbps] <EBM>
 >>Industrial, EBM, Dark Electro
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66843.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66843.jpgsave_picture_66843.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Shonan Seven | Семерка Шонана (2014) [17 томов, 67 глав] [
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66844.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66844.jpgsave_picture_66844.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ Elleven - 8030 (2025) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66845.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66845.jpgsave_picture_66845.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Interceptor - Metal Death (2025) [FLAC|Lossless|WEB-DL|tracks] <Black Metal, Hea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66846.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66846.jpgsave_picture_66846.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Samiarus - Reign Destroyer (2025) EP [FLAC|Lossless|WEB-DL|tracks] <Black, Death
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66847.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66847.jpgsave_picture_66847.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Bad Company | Плохая Компания (1996) [1 том, 10 глав] [Ма
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66848.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66848.jpgsave_picture_66848.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Kami nomi zo Shiru Sekai | Одному лишь Богу ведомый мир 
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66849.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66849.jpgsave_picture_66849.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ magnet:?xt=urn:btih:769F83C372D62B266A27D84EAC65BD92BCD1CE66
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66850.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66850.jpgsave_picture_66850.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ VA - Top 11 February 2025 Emotional and Uplifting Trance (2025) [MP3|320 Kbps] <
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66851.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66851.jpgsave_picture_66851.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Boney James - Slow Burn (2024) [FLAC|Lossless|tracks + .cue] <Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66852.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66852.jpgsave_picture_66852.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Fates Warning - Disconnected (Expanded Edition) (2000) Reissue, 2023, Metal Blad
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66853.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66853.jpgsave_picture_66853.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Chronosynthesis - Echoes Of Forlorn Tales (2025) [FLAC|Lossless|WEB-DL|tracks] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66854.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66854.jpgsave_picture_66854.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Art Blakey - Four Classic Albums: Second Set (1958 - 1961) 2CD, 2017, Avid Jazz 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66855.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66855.jpgsave_picture_66855.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Symmetry Was Never An Option - Scientist (2025) [MP3|320 Kbps] <Progressive-Meta
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66856.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66856.jpgsave_picture_66856.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Inferni - Raízes do Imanifesto (2025) [MP3|320 Kbps] <Black Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66857.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66857.jpgsave_picture_66857.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Believer - Dimensions (1993) [FLAC|24/192|image + .cue|Vinyl-Rip] <Progressive, 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66858.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66858.jpgsave_picture_66858.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Ruthie Foster - Mileage (Deluxe Edition) (2025) [FLAC|Lossless|WEB-DL|tracks] <B
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66859.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66859.jpgsave_picture_66859.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ MHMM - Do Not Disturb (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66860.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66860.jpgsave_picture_66860.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ magnet:?xt=urn:btih:3442A0BD11615C71A708DA5F22DD899ABDB45387
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66861.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66861.jpgsave_picture_66861.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Crystal Shawanda - Sing Pretty Blues (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66862.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66862.jpgsave_picture_66862.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ magnet:?xt=urn:btih:BC3F22A95223533CDE14786692D3F3979F8FA116
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66863.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66863.jpgsave_picture_66863.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ JB & The Huggeli - The Blues Supadupa (2025) [FLAC|Lossless|WEB-DL|tracks] <Blue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66864.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66864.jpgsave_picture_66864.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Dave Packham - The Wedding Dance (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66865.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66865.jpgsave_picture_66865.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ Noel Evans - AZTEC MOON (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66866.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66866.jpgsave_picture_66866.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ Brody Buster - Redemption (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66867.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66867.jpgsave_picture_66867.jpg" />
 </div>
 
 

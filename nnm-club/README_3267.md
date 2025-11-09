@@ -6,7 +6,7 @@
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105303.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105303.jpgsave_picture_105303.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Brian Ray - My Town (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Classic Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105304.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105304.jpgsave_picture_105304.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Hazel Gaze - Hazel Gaze II (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105305.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105305.jpgsave_picture_105305.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ A.D.A.M. Music Project - World Takeover (2024) [FLAC 24/44.1|Lossless|WEB-DL|tra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105306.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105306.jpgsave_picture_105306.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Jim Peterik And World Stage - Roots & Shoots, Vol. 2 (2024) [FLAC 24/96|Lossless
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105307.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105307.jpgsave_picture_105307.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Budderside - Good For Nothing (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Hard R
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105308.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105308.jpgsave_picture_105308.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Strevellna - Revoldom (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock, Pow
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105309.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105309.jpgsave_picture_105309.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Tight - Right Between The Eyes (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Har
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105310.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105310.jpgsave_picture_105310.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Charlie Mariano - Boston All Stars (1951 - 1953) 1990, Original Jazz Classics [F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105311.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105311.jpgsave_picture_105311.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Crossfade - Carousel (2019) [FLAC|Lossless|image + .cue] <Westcoast, Soft Rock, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105312.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105312.jpgsave_picture_105312.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:AD55ECF8F1DA0EDDD9EA1B26C64F3FB44C5FF490
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105313.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105313.jpgsave_picture_105313.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ The Church - Eros Zeta And The Perfumed Guitars (2024) [FLAC|Lossless|tracks + .
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105314.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105314.jpgsave_picture_105314.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Qika - I'm So Excited (2010) [FLAC|Lossless|tracks] <House, Italo House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105315.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105315.jpgsave_picture_105315.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ magnet:?xt=urn:btih:C26F4AC349F0BE9D08D69B92F270C8E7543A3E63
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105316.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105316.jpgsave_picture_105316.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Rosie Lowe - Lover, Other (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Pop, Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105317.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105317.jpgsave_picture_105317.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Holycide - Towards Idiocracy (2024) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105318.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105318.jpgsave_picture_105318.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Claus Ogerman - Featuring Michael Brecker (1991) GRP [APE|Lossless|image + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105319.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105319.jpgsave_picture_105319.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ magnet:?xt=urn:btih:0A2E8496C463E6E418331CC4715A9BB51C85C1DB
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105320.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105320.jpgsave_picture_105320.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ Jontavious Willis - West Georgia Blues (2024) [FLAC 24/96|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105321.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105321.jpgsave_picture_105321.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ SuperDетки - Бикини-Мини (2007) Саундтрек к к/ф "Св�
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105322.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105322.jpgsave_picture_105322.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Slim *CENTR - Холодно (2009) [WavPack|Lossless|image + .cue] <Rap, Hardco
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105323.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105323.jpgsave_picture_105323.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ magnet:?xt=urn:btih:E29A410A22D2A68FB4B38977090863B703602BA2
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105324.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105324.jpgsave_picture_105324.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ magnet:?xt=urn:btih:3E77CF0D0D4C5FECCCAA30C8C2AD91EE6226C976
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105325.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105325.jpgsave_picture_105325.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ La Banda Salsa - Viva La Salsa (1976) LP [MP3|320 Kbps] <Latin, Funk Soul, Salsa
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105326.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105326.jpgsave_picture_105326.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ magnet:?xt=urn:btih:7013198736AD043437F29F087A48CC1C9695AF5C
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105327.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105327.jpgsave_picture_105327.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ magnet:?xt=urn:btih:9BCC34D61870776910F2A920ED7772F0DE1EAC4A
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105328.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105328.jpgsave_picture_105328.jpg" />
 </div>
 
 

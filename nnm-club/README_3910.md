@@ -6,7 +6,7 @@
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122132.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122132.jpgsave_picture_122132.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:3C78FBE726CD1671602A0F4DF58BFFE8756BCB0D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122133.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122133.jpgsave_picture_122133.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ PullTube 1.8.5.23 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122134.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122134.jpgsave_picture_122134.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ MetaVideo for Mac 1.1.3 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122135.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122135.jpgsave_picture_122135.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ MetaRename for Mac 1.0.8 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122136.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122136.jpgsave_picture_122136.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Trapsix - Scenery (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122137.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122137.jpgsave_picture_122137.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ QuickLinks 3.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122138.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122138.jpgsave_picture_122138.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ Text Workflow 1.8.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122139.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122139.jpgsave_picture_122139.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ Darzamat - Studio Albums (7 releases) (1996-2020) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122140.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122140.jpgsave_picture_122140.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ Saxon - Hell, Fire and Damnation (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122141.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122141.jpgsave_picture_122141.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ magnet:?xt=urn:btih:EFE02D262AB1742898CA0F0B9499AC4628D37A89
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122142.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122142.jpgsave_picture_122142.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ PhotoRoom 4.8.1 Mod by Maximoff [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122143.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122143.jpgsave_picture_122143.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ Metalite - Expedition One (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Power Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122144.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122144.jpgsave_picture_122144.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ Apeaksoft Android Toolkit 1.2.16 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122145.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122145.jpgsave_picture_122145.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Aiseesoft Mac FoneLab for Android 5.0.30 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122146.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122146.jpgsave_picture_122146.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ dBpoweramp Music Converter 2023-12-22 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122147.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122147.jpgsave_picture_122147.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ Wizard 2 for Mac 2.0.16 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122148.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122148.jpgsave_picture_122148.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ WiFi Explorer 3.5.1 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122149.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122149.jpgsave_picture_122149.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ magnet:?xt=urn:btih:F53200EEAD209C9B7E45B032B9BDB301C0CAF9AB
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122150.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122150.jpgsave_picture_122150.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ VA - The Quiet Storm Soothing Easy Listening Warm Tunes (2024) [FLAC|Lossless|WE
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122151.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122151.jpgsave_picture_122151.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Greeting Card Shop v.4.0.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122152.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122152.jpgsave_picture_122152.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Joe Taylor - Westside Chill - Joe Taylor - Westside Chill (2024) [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122153.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122153.jpgsave_picture_122153.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Gotus - Gotus (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122154.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122154.jpgsave_picture_122154.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Gotus - Gotus (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122155.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122155.jpgsave_picture_122155.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ News Headlines 4.2 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122156.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122156.jpgsave_picture_122156.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ Project 86 - OMNI, Pt. 2 (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternative
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122157.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122157.jpgsave_picture_122157.jpg" />
 </div>
 
 

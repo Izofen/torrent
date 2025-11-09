@@ -6,7 +6,7 @@ Honzuki no Gekokujou: Shisho ni Naru Tame ni wa Shudan o Erande Iraremasen | В�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137244.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137244.jpgsave_picture_137244.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:E675E805B9268A6BB53B09D97756B8127A05EF61
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137245.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137245.jpgsave_picture_137245.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:2F723F62E91F0C758F25DF5212D6BD280551F191
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137246.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137246.jpgsave_picture_137246.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Podlodka | Podlodka Techlead Crew #1-5 (2021-2023) WEB-DL [RU] [Обновляе
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137247.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137247.jpgsave_picture_137247.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:6F0AF3AFFB071DB137C8A3E6709DAFFD895D6B6B
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137248.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137248.jpgsave_picture_137248.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:C435646A2A3627CE9F9041B98028B3E3CD7147DA
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137249.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137249.jpgsave_picture_137249.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:8F17FA7CC09128943C1E5EF205CB3830EFCC2285
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137250.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137250.jpgsave_picture_137250.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:CF0F013194FCE603AB572331F8EFC95C44CE1DEF
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137251.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137251.jpgsave_picture_137251.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:9C3DDEA2E9D10B200A0F6C7ED31ACD61BA74CFE0
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137252.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137252.jpgsave_picture_137252.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:6749A554C3F24D5046A4F7981FD1B5BB3C2F65F4
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137253.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137253.jpgsave_picture_137253.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Genymotion 2.6.0 [En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137255.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137255.jpgsave_picture_137255.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Kalaban (2016) [En] (1.0.2) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137256.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137256.jpgsave_picture_137256.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:21843CBC618612D0A96A0F837AF9591024DED6EB
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137257.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137257.jpgsave_picture_137257.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ magnet:?xt=urn:btih:35B3E900FC04EE10E05942B75C8CB79983FA9D04
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137258.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137258.jpgsave_picture_137258.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Ken Follett’s The Pillars of the Earth (2017) [Ru/Multi] (1.1.636) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137259.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137259.jpgsave_picture_137259.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ magnet:?xt=urn:btih:F304493D964088622032223DFD057161C01D38DB
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137260.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137260.jpgsave_picture_137260.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ Titan Quest: Immortal Throne (2007) [Ru] (1.1) License [Expansion Pack]
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137261.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137261.jpgsave_picture_137261.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ magnet:?xt=urn:btih:EB35DAB4CE4CCFF5CBCB07200E44ADE08A439C74
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137262.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137262.jpgsave_picture_137262.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Discovery. Восходы / Sunrise Earth (2004-2008) [1080p/i] 17*Blu-ray
 >>Релакс / Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137263.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137263.jpgsave_picture_137263.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ magnet:?xt=urn:btih:B58AA421C31A600D4E65B18981ABA366B2518966
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137264.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137264.jpgsave_picture_137264.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ magnet:?xt=urn:btih:A7A8EB26B32E00B6229C0F67D3FE453294F35BBB
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137265.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137265.jpgsave_picture_137265.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:643636E9639A6F89C47019404B23F51547B3DB76
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137266.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137266.jpgsave_picture_137266.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ magnet:?xt=urn:btih:9F41682AB064E452969A349331824B37F185BD2E
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137267.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137267.jpgsave_picture_137267.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ magnet:?xt=urn:btih:E6EC515244AFD58904D2BBC14838FA31BB734AA2
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137268.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137268.jpgsave_picture_137268.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ The Evil Within (2014) [Ru/Multi] (30.12.2015/dlc) Repack R.G. Механики
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137269.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137269.jpgsave_picture_137269.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ magnet:?xt=urn:btih:2D72EC63881CBA6B8ED8131F85C44B99BC401010
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137270.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137270.jpgsave_picture_137270.jpg" />
 </div>
 
 

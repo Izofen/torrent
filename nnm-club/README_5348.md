@@ -6,7 +6,7 @@
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165895.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165895.jpgsave_picture_165895.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:345622F982442E26A3A2F385DA4198843311D030
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165896.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165896.jpgsave_picture_165896.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ Samsung SSD Magician Tool 8.0.0.900 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165897.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165897.jpgsave_picture_165897.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ Brother Ali - Secrets & Escapes (2019) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, R
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165898.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165898.jpgsave_picture_165898.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ PDF to Numbers Converter 6.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165899.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165899.jpgsave_picture_165899.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ magnet:?xt=urn:btih:CEDC09B3CC0BFF352C08C7DB31E1EB3EF00E37EB
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165900.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165900.jpgsave_picture_165900.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ magnet:?xt=urn:btih:23820C85B1655E65C8E4D1AF765764F013C03F46
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165901.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165901.jpgsave_picture_165901.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:0440084B0E7B8CDD99C46F90660C045BCC0B396A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165902.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165902.jpgsave_picture_165902.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ Phil Hey Quartet - Subduction: Live at the Artists' Quarter (2005) Self-Released
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165903.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165903.jpgsave_picture_165903.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ magnet:?xt=urn:btih:362AE94E82271BD07F0DF24DAD3C68AFB03A5F78
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165904.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165904.jpgsave_picture_165904.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ magnet:?xt=urn:btih:5F264E3C3DACCBEF7895BE10D3DE1A987C2F106A
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165905.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165905.jpgsave_picture_165905.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ Ed Neumeister Quartet - New Standards (2005) MeisteroMusic [FLAC|Lossless|image 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165906.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165906.jpgsave_picture_165906.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ magnet:?xt=urn:btih:763B5EB4E45027F0D83D98D362AE5AF4F0408E50
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165907.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165907.jpgsave_picture_165907.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ magnet:?xt=urn:btih:B3D6354808E1A0FE07A5857ACC884E169D242CC6
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165908.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165908.jpgsave_picture_165908.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Scrutiny 9 v9.3.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165909.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165909.jpgsave_picture_165909.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ magnet:?xt=urn:btih:528328EB5DF5B199D26AFEADCA2F19C4B2E74623
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165910.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165910.jpgsave_picture_165910.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ magnet:?xt=urn:btih:67F7FE8CBB89339310DBB92EBD222B09F52FBC5B
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165911.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165911.jpgsave_picture_165911.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ magnet:?xt=urn:btih:03F41198E5A61AC7FD8B28FA4E420D4687498FA0
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165912.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165912.jpgsave_picture_165912.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ CheckBook Pro 2.6.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165913.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165913.jpgsave_picture_165913.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ magnet:?xt=urn:btih:4F213B02F89208D6F783081D3F756795701DAC6B
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165914.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165914.jpgsave_picture_165914.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ VA - Best 90s Rock 2022 (2022) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165915.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165915.jpgsave_picture_165915.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ Xliff Editor 2.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165916.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165916.jpgsave_picture_165916.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ magnet:?xt=urn:btih:39553922D8EB134818FA9941AE35B5290C2D33BA
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165917.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165917.jpgsave_picture_165917.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ magnet:?xt=urn:btih:4DD89A7E217A5DCFFED32ED882EC05A7478A34C9
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165918.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165918.jpgsave_picture_165918.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ magnet:?xt=urn:btih:AF95A2CB53C884B16CB91DC2F79F7EAECDB625C2
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165919.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165919.jpgsave_picture_165919.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ Display Driver Uninstaller 18.0.6.9 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165920.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165920.jpgsave_picture_165920.jpg" />
 </div>
 
 

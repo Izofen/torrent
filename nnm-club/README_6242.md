@@ -6,7 +6,7 @@
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195820.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195820.jpgsave_picture_195820.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:EFB2BE9AD0F0AE175281C4DF597E35C70FE80101
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_195821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195821.jpgsave_picture_195821.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:55588AB3D892247EB976C5B570AE2B429B2BBD8C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195822.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195822.jpgsave_picture_195822.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:81434487F8815E5C7745427EC2DAADA994FEFFAC
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195823.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195823.jpgsave_picture_195823.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Radio Commander (2019) [Ru/Multi] (1.155g/dlc) License GOG [Complete Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195824.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195824.jpgsave_picture_195824.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Mozilla Thunderbird 115.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195825.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195825.jpgsave_picture_195825.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Battle Axe (2021) [Multi] (1.0.4) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195826.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195826.jpgsave_picture_195826.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Auslogics BoostSpeed 13.0.0.4 RePack (& Portable) by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195827.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195827.jpgsave_picture_195827.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:2D31F400C3B73A3176D86E80627A93D03C7B69EC
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195828.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195828.jpgsave_picture_195828.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Sky Haven Tycoon - Airport Simulator (2022) [Ru/Multi] (1.0.0.289) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195829.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195829.jpgsave_picture_195829.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ magnet:?xt=urn:btih:A2C4DA1DF2CF703D8262A1B342771D3EB35B4B8D
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195830.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195830.jpgsave_picture_195830.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Maximum Action (2018) [En] (0.92) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195831.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195831.jpgsave_picture_195831.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Ben Shaw, Saurabh Badhwar, Chris Guest и др. | Web Development with Django (2
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195832.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195832.jpgsave_picture_195832.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ magnet:?xt=urn:btih:172F7EADD5E429F4446EEB4547BDC8AF1C391C8F
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195833.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195833.jpgsave_picture_195833.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ CrystalDiskInfo 9.1.1 + Portable (Shizuku Edition & Kurei Kei Edition) [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195834.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195834.jpgsave_picture_195834.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Rufus 4.2 (Build 2070) Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195835.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195835.jpgsave_picture_195835.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ Advanced SystemCare Pro 16.5.0.237 Portable by zeka.k [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195836.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195836.jpgsave_picture_195836.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ BananaDefenderBlocker 1.0.0.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195837.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195837.jpgsave_picture_195837.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ magnet:?xt=urn:btih:D0D272E573A9E5A56AABB7D815EF0AE9684DF94C
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195838.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195838.jpgsave_picture_195838.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ magnet:?xt=urn:btih:E4F9C69DC22C6136A887BB80CAA3493B05FA0E36
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195839.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195839.jpgsave_picture_195839.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ magnet:?xt=urn:btih:37228E4DD9C86ED53236C25DB1E508C726408D37
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195840.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195840.jpgsave_picture_195840.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ magnet:?xt=urn:btih:C85ABDF33810F75D845990CF0BA1EBA1FF572BD6
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195841.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195841.jpgsave_picture_195841.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ magnet:?xt=urn:btih:1712CDD8E7F0E3A0ABCD9CB18E356F77857A5558
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195842.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195842.jpgsave_picture_195842.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ FastStone Capture 10.2 Final RePack (& portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195843.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195843.jpgsave_picture_195843.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ ColorControl 9.6.2.0 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195844.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195844.jpgsave_picture_195844.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ magnet:?xt=urn:btih:033D8A8CE70B5EC6673B98669AC49CC0C3DE9C92
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195845.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195845.jpgsave_picture_195845.jpg" />
 </div>
 
 

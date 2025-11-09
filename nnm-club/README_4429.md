@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138396.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138396.jpgsave_picture_138396.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:AFC8FE97C658B5E88F1533AFF3C60E217AEB6E0D
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138397.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138397.jpgsave_picture_138397.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:D81B423EF3C98016072462AF8CFACC56CD5E9759
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138399.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138399.jpgsave_picture_138399.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:88301351A7E36EB732A28F923A1ABDADDFEDE133
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138400.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138400.jpgsave_picture_138400.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:F53D9BF5E6745EBE7A754DC6194D938F1A26C2F7
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138401.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138401.jpgsave_picture_138401.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:78113F3FB7EFC3A4D842E0614E4A02FAC4D830A4
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138404.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138404.jpgsave_picture_138404.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:A68B3968C8E72AC21DC0436D402AF849C7BD2158
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138405.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138405.jpgsave_picture_138405.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:201AD5648D46C3034882DE7772CEEE5796AE9562
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138406.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138406.jpgsave_picture_138406.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:92AB7B256ECAD332BDE8D7276A66A64B51EBADC8
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138407.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138407.jpgsave_picture_138407.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Skype 7.17.0.106 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138408.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138408.jpgsave_picture_138408.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Peter Hammill - In A Foreign Town / Out Of Water (1988-1990) Remaster, 2023, Eso
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138409.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138409.jpgsave_picture_138409.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:FFEA7AC89E16D3B9972A962200343E0622200F1E
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138410.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138410.jpgsave_picture_138410.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ magnet:?xt=urn:btih:5FF6044DA923EA112122584270317DEB78E43F64
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138412.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138412.jpgsave_picture_138412.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ magnet:?xt=urn:btih:386C40ABC70C406421A854D3D79E7EA00E3B9A26
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138413.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138413.jpgsave_picture_138413.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Atack - Nine Lives (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Modern rock wit
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138415.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138415.jpgsave_picture_138415.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ VA - De Top 100 Aller Tijden 1988 (RadioVeronica) (2017) [MP3|320 Kbps] <Electro
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138416.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138416.jpgsave_picture_138416.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ magnet:?xt=urn:btih:785F2A0AF8E543215F3DEB087B4F6063288D992F
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138418.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138418.jpgsave_picture_138418.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ magnet:?xt=urn:btih:A71154981C00D77112AB627C4E1841F844B95ED7
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138420.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138420.jpgsave_picture_138420.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ magnet:?xt=urn:btih:9CFC4BCA3530F371F5378CC12CB7BE46425DD74C
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138421.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138421.jpgsave_picture_138421.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Red Faction (2001) [En/Ge] (1.21) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138422.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138422.jpgsave_picture_138422.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ magnet:?xt=urn:btih:7A9FA8137B4295CB6D13C654C83BC3B1B2B1B68A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138423.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138423.jpgsave_picture_138423.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ magnet:?xt=urn:btih:B0605E85A21E329CD7FACCCDDDE9519197D8ADA6
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138424.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138424.jpgsave_picture_138424.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Lee Morgan - The Rumproller (1965) 1987, Blue Note [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138426.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138426.jpgsave_picture_138426.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:2508F50BE02F3BA1AF22EA390985433771D6BB58
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138427.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138427.jpgsave_picture_138427.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ magnet:?xt=urn:btih:9802A1113898E907363C119A950D4071FE13C9B3
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138428.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138428.jpgsave_picture_138428.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ VA - Spotify – Top Tracks of 2017 [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138429.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138429.jpgsave_picture_138429.jpg" />
 </div>
 
 

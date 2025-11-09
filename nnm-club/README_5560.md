@@ -6,7 +6,7 @@ Wondershare PDFelement 10.1.3.2510 + OCR Plugin (x64) Portable by 7997 [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171546.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171546.jpgsave_picture_171546.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:5C3E6D6C4E26A133F8C3237D682F42AFE2630305
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171547.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171547.jpgsave_picture_171547.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:F74B33783CCF6EF31534A357E800C4C1C659EAA1
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171548.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171548.jpgsave_picture_171548.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:1157E5DF5CA15FF216C3F9ACD481CD4D45B847C4
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171549.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171549.jpgsave_picture_171549.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ VueScan Pro 9.8.19 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171550.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171550.jpgsave_picture_171550.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:792D7CECC08B2946C03B69CB39818CFE5F9B8335
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171551.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171551.jpgsave_picture_171551.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ O&O DiskImage Professional 18.4 Build 334 RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171552.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171552.jpgsave_picture_171552.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:2AFFFFF3BE7116C593F8A23AC385794A6FCBA0D5
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171553.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171553.jpgsave_picture_171553.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ Christone "Kingfish" Ingram - Live In London (2023) 2 x CD [FLAC|Lossless|tracks
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171554.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171554.jpgsave_picture_171554.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ DxO ViewPoint 4 for Mac v.4.10.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171555.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171555.jpgsave_picture_171555.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Arjen Lucassen's Supersonic Revolution - Golden Age Of Music (2023) 2 x CD [FLAC
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171556.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171556.jpgsave_picture_171556.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ magnet:?xt=urn:btih:8FD0A46A81CEB86B9EB0B3CBA889805D35AC27FF
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171557.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171557.jpgsave_picture_171557.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Topaz Photo AI for Mac 2.0.6 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171558.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171558.jpgsave_picture_171558.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Principle 6.33 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171559.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171559.jpgsave_picture_171559.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ RuPaul - Essential Christmas (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop, 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171560.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171560.jpgsave_picture_171560.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ magnet:?xt=urn:btih:6AE5BC3FFA3D1B6DF11AD95E910EF6A29CF9634E
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171561.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171561.jpgsave_picture_171561.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ magnet:?xt=urn:btih:3F3C3C66CC7E3C1D643E7E85AE0B15DCC2CC9729
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171563.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171563.jpgsave_picture_171563.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Renamer 6.2.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171564.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171564.jpgsave_picture_171564.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ magnet:?xt=urn:btih:2F990487A2D50E0421AA8BDA6E1847851A993FA7
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171565.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171565.jpgsave_picture_171565.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Elvin Jones - Dear John C. (1965) MCA [FLAC|Lossless|tracks + .cue] <Hard Bop, P
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171566.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171566.jpgsave_picture_171566.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ Sketch 98.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171567.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171567.jpgsave_picture_171567.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ Ruffyunz - Ruffyunz III (2023) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171568.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171568.jpgsave_picture_171568.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ magnet:?xt=urn:btih:30931782417C0CC9BB239D2DB03DC4EAD99484FD
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171569.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171569.jpgsave_picture_171569.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ WiFiRadar Pro 4.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171570.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171570.jpgsave_picture_171570.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ EditReady 23.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171571.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171571.jpgsave_picture_171571.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Erik Norlander - Stars Rain Down (2004) [FLAC|Lossless|image + .cue] <Symphonic 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171572.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171572.jpgsave_picture_171572.jpg" />
 </div>
 
 

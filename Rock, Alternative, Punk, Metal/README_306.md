@@ -6,7 +6,7 @@
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179661.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179661.jpgsave_picture_179661.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Yqpy - Yqpy (2022) [FLAC|Lossless|WEB-DL|tracks] <Rock, Electronic>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179669.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179669.jpgsave_picture_179669.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:8E0644A818F96394459E40D18D720BB772FBB0AC
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179672.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179672.jpgsave_picture_179672.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Good Morning, Professor - Nymphaea (2023) [FLAC|Lossless|WEB-DL|tracks] <Metal>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_179693.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_179693.jpgsave_picture_179693.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ TIR - Молчи (2023) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Rap Rock>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179698.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179698.jpgsave_picture_179698.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Unheilig - Goldene Zeiten (2006) 2CD [FLAC|Lossless|image + .cue] <Industrial, G
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179701.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179701.jpgsave_picture_179701.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Acid Magus - Wyrd Syster (2021) [FLAC|Lossless|WEB-DL|tracks] <Stoner, Doom Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179708.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179708.jpgsave_picture_179708.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Sol Negate - On The Verge of Dreaming Again (2023) [FLAC|Lossless|WEB-DL|tracks]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179718.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179718.jpgsave_picture_179718.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ VA - Рок зима (Russian Rock Legends) (2019) [FLAC|Lossless|WEB-DL|tracks]
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179758.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179758.jpgsave_picture_179758.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Silence of Her Death - 1 Album, 7 Singles (2018-2022) [FLAC|Lossless|WEB-DL|trac
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179848.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179848.jpgsave_picture_179848.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ White Spirit - Right Or Wrong (2022) [FLAC|Lossless|image + .cue] <Melodic Hard 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179883.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179883.jpgsave_picture_179883.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Lee Aaron - Elevate (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179913.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179913.jpgsave_picture_179913.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Roger Waters - The Dark Side of the Moon Redux (2023) [FLAC|Lossless|image + .cu
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179927.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179927.jpgsave_picture_179927.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Dark Matter - The Rectory (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Doom Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179954.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179954.jpgsave_picture_179954.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Once Human - Scar Weaver (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death, Gr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179962.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179962.jpgsave_picture_179962.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ League Of Distortion - League of Distortion (2022) [FLAC|Lossless|WEB-DL|tracks]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179977.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179977.jpgsave_picture_179977.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Steelwings - Still Rising (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179982.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179982.jpgsave_picture_179982.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Black Paisley - Human Nature (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179983.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179983.jpgsave_picture_179983.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Wildness - Wildness (2017) Reissue, 2022, ERFX Productions [FLAC|Lossless|image 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179991.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179991.jpgsave_picture_179991.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Steve Holliday - Stark Raving Mad (1997) Japanese Edition [FLAC|Lossless|image +
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179997.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179997.jpgsave_picture_179997.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Bad Baron - Ace Of Hearts (2022) [FLAC|Lossless|image + .cue] <Melodic Hard Rock
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180003.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180003.jpgsave_picture_180003.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Pursuit - Loose Lips (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180005.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180005.jpgsave_picture_180005.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ VA - The Best Rock Album In The World...Ever! (2023) [FLAC|Lossless|WEB-DL|track
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180010.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180010.jpgsave_picture_180010.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Cowboys & Aliens - Burn! (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Stone
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180011.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180011.jpgsave_picture_180011.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Oceans Turn Red - MOIRAE (2022) [FLAC|Lossless|WEB-DL|tracks] <Metalcore / Death
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180026.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180026.jpgsave_picture_180026.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Molllust - Mother Universe (2022) [FLAC|Lossless|WEB-DL|tracks] <Neo-Classical, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180030.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180030.jpgsave_picture_180030.jpg" />
 </div>
 
 

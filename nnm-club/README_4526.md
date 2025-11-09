@@ -6,7 +6,7 @@ Silvertomb - Edge of Existence (2019) [MP3|320 Kbps] <Heavy Metal, Stoner Doom>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141596.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141596.jpgsave_picture_141596.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:2D076026B53188F34EEC2351E43A3A131BF9423F
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141597.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141597.jpgsave_picture_141597.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:17C04A1445E57846FF71D29736D2949534490D08
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141598.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141598.jpgsave_picture_141598.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ GOM Player Plus 2.3.92.5362 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141599.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141599.jpgsave_picture_141599.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:3C1130703B3E6DF5FB04E4DC5F9B0FD3E49001B3
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141600.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141600.jpgsave_picture_141600.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:7DC90EFF6C2967ADAE9BC70B9CDA07BDCC069FA6
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141603.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141603.jpgsave_picture_141603.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:91566FA7976928331F5EB44C12953485AD737451
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141604.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141604.jpgsave_picture_141604.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:6B3CBEF420E629EB8A21BDC3F5BE31B7F057A9CA
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141605.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141605.jpgsave_picture_141605.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ CODA: Ребёнок глухих родителей / CODA (2021) WEB-DL [1080p
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141606.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141606.jpgsave_picture_141606.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ ReviverSoft Driver Reviver 5.25.0.6 RePack (& Portable) by TryRooM  [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141608.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141608.jpgsave_picture_141608.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Tina Turner - Queen Of Rock 'n' Roll (2023) 3 x CD [FLAC|Lossless|WEB-DL|tracks]
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141609.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141609.jpgsave_picture_141609.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ magnet:?xt=urn:btih:00F1F626076B89B4D79738DDA8854B80A7A89F52
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141610.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141610.jpgsave_picture_141610.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ magnet:?xt=urn:btih:A5A8D8C7DF2C32D64EFFDAEEB30ACDE72300E79E
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141611.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141611.jpgsave_picture_141611.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ magnet:?xt=urn:btih:F081406BD69683EC414BFD473B7A0A535C079563
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141612.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141612.jpgsave_picture_141612.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ magnet:?xt=urn:btih:029A9BCEA4452C9FC719E49C49143D865F232A4A
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141614.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141614.jpgsave_picture_141614.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ magnet:?xt=urn:btih:A1173262B85A5675A1E192858FA07FD6EC549FE3
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141615.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141615.jpgsave_picture_141615.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ magnet:?xt=urn:btih:2B9A0561BF1F2E98CD37E5C82C844BE2AB0B2D43
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141616.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141616.jpgsave_picture_141616.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Internet Download Manager 6.42 Build 1 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141617.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141617.jpgsave_picture_141617.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ magnet:?xt=urn:btih:842992B092002E208E63C99395E26D5C7BDE6192
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141618.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141618.jpgsave_picture_141618.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ VA - New Year Party (2016) (2015) [MP3|320 кб/с] <Club, Progressive, House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141620.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141620.jpgsave_picture_141620.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Infected Mushroom - Part of the Dream (2023) [FLAC|Lossless|WEB-DL|tracks] <Psy-
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141621.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141621.jpgsave_picture_141621.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ magnet:?xt=urn:btih:EB058919C3870E87BA6257039B1958D1174CAA45
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141622.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141622.jpgsave_picture_141622.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Reason Studios Reason 12.2.3 STANDALONE, VST3, AAX (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141624.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141624.jpgsave_picture_141624.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ VA - Cafe Del Mar Ibiza (2010) 8 CD [FLAC|Lossless|tracks + .cue]<Lounge, Chill 
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141626.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141626.jpgsave_picture_141626.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ magnet:?xt=urn:btih:E7EF130DA11DA75C6FF9CA4941CC69497C9E3CD2
 >>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141627.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141627.jpgsave_picture_141627.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ magnet:?xt=urn:btih:DED9CEA7B64DA95E63EC2C66D346A9430742DF2C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141630.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141630.jpgsave_picture_141630.jpg" />
 </div>
 
 

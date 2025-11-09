@@ -6,7 +6,7 @@
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_228938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228938.jpgsave_picture_228938.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ P.O.D. - When Angels & Serpents Dance (2008) 2022, Remixed & Remastered, Mascot 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_228939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228939.jpgsave_picture_228939.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:9F59F6B957BD98F2E4FC3BB09797B626CE2D4AD0
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_228942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228942.jpgsave_picture_228942.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Roxette - Good Karma (2016) [OGG Vorbis|480 Kbps] <Rock, Pop>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_228943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228943.jpgsave_picture_228943.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:348BDE4549F14CF657A2E0FDFFF357DF783DB2E5
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_228945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228945.jpgsave_picture_228945.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ Aquarium 4K – Live Wallpaper 1.0.4 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_228946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228946.jpgsave_picture_228946.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:A37C361C14074110118F160CE6E0A40F011F4978
 >>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_228947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228947.jpgsave_picture_228947.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ NG: Последствия: Преданные Солнцем / Aftermath: Betra
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_228950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228950.jpgsave_picture_228950.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ Mystic State - Discography 28 Releases (2013-2020) Artikal Music UK, The Chikara
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_228951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228951.jpgsave_picture_228951.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ magnet:?xt=urn:btih:1DB1CF26B32B4D7FED309737D3EB0C5B677FC3E2
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_228953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228953.jpgsave_picture_228953.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ Mozilla Thunderbird 91.3.2 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_228954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228954.jpgsave_picture_228954.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ magnet:?xt=urn:btih:8D84ACFECC30E6AEA2781AC2FEB101708EFDF72F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_228955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228955.jpgsave_picture_228955.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ magnet:?xt=urn:btih:52237F9723E546C3489720A4275BD6B49B84EDBA
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_228957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228957.jpgsave_picture_228957.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ NG. Путешествия с Гордоном Рамзи / Gordon Ramsay Unchar
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_228958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228958.jpgsave_picture_228958.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Uwocaust and the Angry Bois - Das alte Feuer (2022) [MP3|320 Kbps] <Hardcore>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_228960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228960.jpgsave_picture_228960.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ magnet:?xt=urn:btih:5713C01D9239C0CE6E3CB9D15FD433FBCC6CAA9E
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_228961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228961.jpgsave_picture_228961.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ DjVu To PDF Converter 2.0 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_228964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228964.jpgsave_picture_228964.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ magnet:?xt=urn:btih:AF513632F5CCFC8ED96304F52FA0089921ED51C9
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_228965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228965.jpgsave_picture_228965.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Chris Norman - Definitive Collection: Smokie And Solo Years (2018) 2CD, Compilat
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_228967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228967.jpgsave_picture_228967.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ magnet:?xt=urn:btih:751042F65DE02AACF037303C4694E1AA4F189C8D
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_228969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228969.jpgsave_picture_228969.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Family Tree Maker 2019 v24.0.1.252 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_228970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228970.jpgsave_picture_228970.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ magnet:?xt=urn:btih:10BF39EF9E8B93F1D52C41E59CE3DE2DCB5D6B44
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_228972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228972.jpgsave_picture_228972.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ magnet:?xt=urn:btih:49CAC15EE62F4FBDB3182006B7ABDFE4958A4F98
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_228973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228973.jpgsave_picture_228973.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ AnyMP4 DVD Copy 3.1.32 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_228974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228974.jpgsave_picture_228974.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ magnet:?xt=urn:btih:9EF0AE894D08858C023062E06455B17646CCA435
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_228975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228975.jpgsave_picture_228975.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ magnet:?xt=urn:btih:B8C6AA3000122F9E57CE402B57AAF535D6D7AC0A
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_228976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228976.jpgsave_picture_228976.jpg" />
 </div>
 
 

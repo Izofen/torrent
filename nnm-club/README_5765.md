@@ -6,7 +6,7 @@ Adobe Acrobat Pro 2022.003.20282 Portable by NNM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178913.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178913.jpgsave_picture_178913.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Icecream Video Editor Pro 3.08 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_178916.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_178916.jpgsave_picture_178916.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:88563BFB21262A3B10DE88861D9CD1CA6FA22F75
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178918.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178918.jpgsave_picture_178918.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:FDD58C5FE6390D9FFBBCB730A111DF0D2D4A6B63
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178920.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178920.jpgsave_picture_178920.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Another Day Dawns - Finding Peace Through All The Noise (2023) [MP3|320 Kbps] <A
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178923.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178923.jpgsave_picture_178923.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:183E3F55C3445B020E977B21B800F858E76AEB61
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178924.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178924.jpgsave_picture_178924.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ PrivaZer 4.0.78 Free + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178926.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178926.jpgsave_picture_178926.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:D9CA18D427FF686A372A823C3DC35254C02F3E5B
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178927.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178927.jpgsave_picture_178927.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Alexey Teplykh - Different Styles (2023) [MP3|320 Kbps] <Synthpop>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178929.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178929.jpgsave_picture_178929.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:C6C833B48E9FD29EB0ED2EBA688F6178E9F23C1C
 >>Космос
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178930.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178930.jpgsave_picture_178930.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:184E9B892F663D88019B1DB2ADA91051D9D38667
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178932.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178932.jpgsave_picture_178932.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:F3137168F19E31193D269643E8AD33D9A6DFE0C3
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178933.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178933.jpgsave_picture_178933.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:21F44FFBB150553DDEB052E451253934A43BA8A9
 >>Элементы (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178934.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178934.jpgsave_picture_178934.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:6F513550613F3D3443E516EC204F8D5EDF5E5207
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178937.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178937.jpgsave_picture_178937.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ IObit Driver Booster Pro 10.1.0.86 Portable by NNM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178939.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178939.jpgsave_picture_178939.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:ED58E50CA200350AF34146FB8FD72516DA899775
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178944.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178944.jpgsave_picture_178944.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ magnet:?xt=urn:btih:36A9562D2016C4A2666A73C83CE9225395FB5587
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178946.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178946.jpgsave_picture_178946.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ Dogstar - Somewhere Between the Power Lines and Palm Trees (2023) [FLAC 24/48|Lo
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178949.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178949.jpgsave_picture_178949.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ Scar Symmetry - Studio Albums (7 releases) (2005-2023) hand made [restored, decl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178953.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178953.jpgsave_picture_178953.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ magnet:?xt=urn:btih:FEB566CF7549519A280FE23102EB2B5BF8698DA2
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178955.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178955.jpgsave_picture_178955.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Hollow Knight 1.2.2-Final (Unofficial port) Mod by Skaizek & Dan Cooper [Ru/Mult
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178957.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178957.jpgsave_picture_178957.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ magnet:?xt=urn:btih:40FE3050B1DF5D8BD6FBF1F667A7C26761328E52
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178960.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178960.jpgsave_picture_178960.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ magnet:?xt=urn:btih:9CFBB5056B1EAB06C36B2EEBBA4C6B26D8D312F9
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178964.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178964.jpgsave_picture_178964.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ magnet:?xt=urn:btih:C73CD368F5D32B1F5190C13675442F98B65E506F
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178965.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178965.jpgsave_picture_178965.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ magnet:?xt=urn:btih:5250E2F21B13D4C4A64A8823BE34634C25900A40
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178967.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178967.jpgsave_picture_178967.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ magnet:?xt=urn:btih:2B17589E751D5CD781B453FE8279D24F2F422F8E
 >>Элементы (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178968.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178968.jpgsave_picture_178968.jpg" />
 </div>
 
 

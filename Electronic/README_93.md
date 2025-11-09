@@ -6,7 +6,7 @@ VA - Suanda Music Year Mix 2016 (Mixed by Roman Messer) (2016) [MP3|320 Kbps] <T
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139282.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139282.jpgsave_picture_139282.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Ibiza Chillout Series (1999-2007) Ayia Napa [FLAC|Lossless|tracks+.cue] <Do
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139359.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139359.jpgsave_picture_139359.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - Relax Culture, Vol. 2 (2020) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Chillo
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139530.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139530.jpgsave_picture_139530.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Claptone - Fantast (2018) [FLAC|Lossless|tracks + .cue] <Deep House, Indie Dance
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139554.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139554.jpgsave_picture_139554.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Kennelklubben - Kennelklubben (2018) [FLAC|Lossless|tracks + .cue] <Synth-pop>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139670.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139670.jpgsave_picture_139670.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Stardust - Music Sounds Better With You (1998) Maxi-Single [FLAC|Lossless|tracks
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139749.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139749.jpgsave_picture_139749.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ VA - Ouie First X (2018) [FLAC|Lossless|WEB-DL|tracks] <Deep House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139755.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139755.jpgsave_picture_139755.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ VA - Addicted 2 House, Vol. 30 (2018) [MP3|320 Kbps] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139807.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139807.jpgsave_picture_139807.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ VA - FreeZone vol. 1-7 (1994-2001) SSR Records [FLAC|Lossless|tracks+.cue]<Downt
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140298.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140298.jpgsave_picture_140298.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Depeche Mode - 101 (1989) 2 SACD, Remastered, 2004 Mute [FLAC|Lossless|image + .
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140663.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140663.jpgsave_picture_140663.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ VA - Anjunadeep: The Yearbook 2017 (2017) [FLAC|Lossless|WEB-DL|tracks] <Deep Ho
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140671.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140671.jpgsave_picture_140671.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Everdune - Cyborg Nation (2021) [MP3|320 Kbps] <Spacesynth, Synthwave>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140682.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140682.jpgsave_picture_140682.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ VA - Space Holidays Vol. 7 (2015) 3CD [MP3|320 Kbps] <Synthpop, Spacesynth>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140800.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140800.jpgsave_picture_140800.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ VA - Hed Kandi The Mix (2005) HEDK054 [FLAC|Lossless|tracks] <House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140848.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140848.jpgsave_picture_140848.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Depeche Mode - Playing The Angel (2005) SACD [FLAC|Lossless|tracks + .cue] <Synt
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140876.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140876.jpgsave_picture_140876.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ VA - International Sports Collective 7 (2017) [MP3|320 Kbps] <House, Euro-House,
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140891.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140891.jpgsave_picture_140891.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ VA - Sunshine Dance 9 (2017) [MP3|320 Kbps] <House, Euro-House, Dance>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140905.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140905.jpgsave_picture_140905.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ VA - Hardcore Bodybuilding Music 2016 (2016) [MP3|320 Kbps] <Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140940.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140940.jpgsave_picture_140940.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Pet Shop Boys - Disco Four (Remixed By Pet Shop Boys) (2007) [FLAC|Lossless|trac
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141026.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141026.jpgsave_picture_141026.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ VA - Workout After Xmas 2016 (2016) [MP3|320 Kbps] <Electro House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141125.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141125.jpgsave_picture_141125.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ VA - Female Vocal Trance Remixes (2019) [FLAC|Lossless|WEB-DL|tracks] <Trance>
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141136.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141136.jpgsave_picture_141136.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Profondita - Ciel (2016) [MP3|320 Kbps] <Psychill, Progressive Chill>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141192.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141192.jpgsave_picture_141192.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ VA - Goodnight Music Playlist: A Peaceful Chillout Goodnight Sleep (2016) [MP3|3
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141280.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141280.jpgsave_picture_141280.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ VA - Focus Me: Lounge (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141293.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141293.jpgsave_picture_141293.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ VA - Future Sound of Egypt - Best Of (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141380.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141380.jpgsave_picture_141380.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ VA - Happy New Year Party 2019 (2018) [MP3|320 Kbps] <House, Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141445.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141445.jpgsave_picture_141445.jpg" />
 </div>
 
 

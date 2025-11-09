@@ -6,7 +6,7 @@ Dave the Diver (2023) [Ru/Multi] (1.0.5.1702/dlc) Repack Let'sРlay [Deluxe Edit
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4708.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4708.jpgsave_picture_4708.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ HCL Lotus Notes 14.0 Fix Pack 2 [En/Ru]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4709.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4709.jpgsave_picture_4709.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:834D9CDFAF3A44125668FA5A59C908CFF5D9B386
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4710.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4710.jpgsave_picture_4710.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ v2rayN 7.14.5 portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4711.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4711.jpgsave_picture_4711.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:1C1A21EBBC9D963797427DB313043C7BEB8B1384
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4712.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4712.jpgsave_picture_4712.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Purpleschool, Антон Ларичев | Vue.js 3, Vue Router и Pinia (2025) W
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4713.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4713.jpgsave_picture_4713.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:A17CBA877F648C42CDC4C4D245D86BDFA4F7B09B
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4714.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4714.jpgsave_picture_4714.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ JetBrains PhpStorm 2024.2.3 macOS Repack by Sitego [En] (Intel & Apple Silicon)
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4715.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4715.jpgsave_picture_4715.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:2B8A83266C681B43452271C10746E7785E8A4088
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4716.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4716.jpgsave_picture_4716.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:BE1DCFF7A84C28E0D8E670A722E9F5D95A6C0D54
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4717.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4717.jpgsave_picture_4717.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:1625BDE475D621499387616224B72A77E7A78624
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4718.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4718.jpgsave_picture_4718.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ magnet:?xt=urn:btih:FC17D85B98431198D6BFF684527AE0C57947084E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4720.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4720.jpgsave_picture_4720.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ magnet:?xt=urn:btih:7D3C9C41325F589877A200C43F96E2C7A593F4A4
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4721.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4721.jpgsave_picture_4721.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ magnet:?xt=urn:btih:7D3C9C41325F589877A200C43F96E2C7A593F4A4
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4722.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4722.jpgsave_picture_4722.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ magnet:?xt=urn:btih:4D03B1BF83DD71FAA6F37F7FB326AD906D0E3B0F
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4723.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4723.jpgsave_picture_4723.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Hell is Us (2025) [Ru/Multi] (build 19773152) Repack seleZen
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4724.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4724.jpgsave_picture_4724.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ magnet:?xt=urn:btih:38151E93FBBF0E0EB2F814D674CBD7FBFD80E023
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4725.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4725.jpgsave_picture_4725.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ Driver Magician 6.0 Portable by conservator [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4726.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4726.jpgsave_picture_4726.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ Empty Shell (2023) [Ru/Multi] (1.6i) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4727.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4727.jpgsave_picture_4727.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ magnet:?xt=urn:btih:F8E80C6233F4C488E820B68BE93E609878A51A70
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4728.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4728.jpgsave_picture_4728.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Mortal Glory 2 (2024) [Multi] (1.4.1b/dlc) License GOG
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4729.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4729.jpgsave_picture_4729.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ Emperor of the Fading Suns / Император Угасающих Звезд (1
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4731.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4731.jpgsave_picture_4731.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Ceno Browser Alpha 0.0.4 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4732.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4732.jpgsave_picture_4732.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ magnet:?xt=urn:btih:1ED9E46348B4EE690452DF7A4952322D094BE623
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4733.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4733.jpgsave_picture_4733.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ NBC: Режим выживания / Survival Mode (2025) WEBRip [H.264/1080p] (
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4734.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4734.jpgsave_picture_4734.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ magnet:?xt=urn:btih:3BA472C13B194858D801725EFCC9A1236F8C81A0
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4735.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4735.jpgsave_picture_4735.jpg" />
 </div>
 
 

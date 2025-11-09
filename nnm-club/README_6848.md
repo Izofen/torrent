@@ -6,7 +6,7 @@ Ben Tankard - Shine! (2021) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235324.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235324.jpgsave_picture_235324.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:2366ED267351C6F762CDC2A29DCCB8590BEB73DC
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235325.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235325.jpgsave_picture_235325.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:1ADCDFAE038ABEAD9848F986E4AA9D67BFDE0712
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235326.jpgsave_picture_235326.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Sugar Bytes - DrumComputer 1.3.0 Standalone, VSTi, VSTi 3, AAX RePack by TCD [En
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235327.jpgsave_picture_235327.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Jungle Jim Smith - Electric Boogieland (2023) [FLAC|Lossless|WEB-DL|tracks] <Blu
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235328.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235328.jpgsave_picture_235328.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:0EBBBD6BF7ADF19EFE6891C38DC20931A3874345
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235329.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235329.jpgsave_picture_235329.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ Gorod - The Orb (2023) [FLAC|Lossless|WEB-DL|tracks] <Technical Death, Progressi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235330.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235330.jpgsave_picture_235330.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ The Heavy - AMEN (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative & Indie>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235331.jpgsave_picture_235331.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ Dirty Rose - Rock & Roll Is My Religion (2021) [FLAC|Lossless|WEB-DL|tracks] <Ha
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235332.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235332.jpgsave_picture_235332.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ Cattle Decapitation - Terrasite (2023) [FLAC|Lossless|image + .cue] <Death Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235333.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235333.jpgsave_picture_235333.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ magnet:?xt=urn:btih:A3DC97FCFE2ACE850F1527C74DC1B363B667241E
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235334.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235334.jpgsave_picture_235334.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ magnet:?xt=urn:btih:3505F8BCAC11BD2477A9377C6946B24A23558FE4
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235335.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235335.jpgsave_picture_235335.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ Tone2 - Saurus 4.0.2 STANDALONE, VSTi, VSTi 3 (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235336.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235336.jpgsave_picture_235336.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ magnet:?xt=urn:btih:53DEF4A0324E60E9054B349857E67186BE91E246
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235337.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235337.jpgsave_picture_235337.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ Chinatown Detective Agency (2022) [Multi] (1.0.17) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235338.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235338.jpgsave_picture_235338.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ magnet:?xt=urn:btih:1A0AE279CECDE138F261C1B99BA310D49D5BC348
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235339.jpgsave_picture_235339.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ magnet:?xt=urn:btih:5B0EC5A9D4670EEB05CD458D65902119D9AB3EEB
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235340.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235340.jpgsave_picture_235340.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ magnet:?xt=urn:btih:D2A06227A3A29072ACACDF4F006AFB6836F6324C
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235341.jpgsave_picture_235341.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ Sagath - Necrotica 2 (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235342.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235342.jpgsave_picture_235342.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Ben Granfelt - Gratitude (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235343.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235343.jpgsave_picture_235343.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ magnet:?xt=urn:btih:A674AC76AFA67AB1F1202D12C7C6DDED1D32FC02
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235344.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235344.jpgsave_picture_235344.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Among These Ashes - Dominion Enthroned (2022) [FLAC|Lossless|WEB-DL|tracks] <Pow
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235345.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235345.jpgsave_picture_235345.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Pasquale Grasso - Be-Bop! (2022) Sony Music [FLAC|Lossless|tracks + .cue] <Bop, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235346.jpgsave_picture_235346.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Bettye LaVette - LaVette! (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235347.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235347.jpgsave_picture_235347.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ The Sins Of Thy Beloved - Studio Albums (3 releases) (1997-2002) hand made [rest
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235348.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235348.jpgsave_picture_235348.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Oxido - Breaking Down The Walls (1990) Reissue, 2022, Minotauro [FLAC|Lossless|i
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235349.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235349.jpgsave_picture_235349.jpg" />
 </div>
 
 

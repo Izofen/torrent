@@ -6,7 +6,7 @@
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122611.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122611.jpgsave_picture_122611.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:2684C3DF18BD70A603C7687A3B610CE3AB8EDC34
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122612.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122612.jpgsave_picture_122612.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:A9B015554F4376500E457B730AB80EC5A843D11D
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122613.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122613.jpgsave_picture_122613.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Waves Ultimate 2024.01.10 VST, VST 3, AAX, STANDALONE (x64) RePack by R2R [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122614.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122614.jpgsave_picture_122614.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:00D660C801FD04067A01D958B82F71BF9377039A
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122615.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122615.jpgsave_picture_122615.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:028D49681F0B52DA62339EFCB2E05F09C7580899
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122616.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122616.jpgsave_picture_122616.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:BB6BC9690D56C4867952DF3E36D91C3F3E11284E
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122617.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122617.jpgsave_picture_122617.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ Aiseesoft Video Converter Ultimate 10.8.10 RePack (& Portable) by elchupacabra [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122618.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122618.jpgsave_picture_122618.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ Ennio Morricone - Ennio Morricone: Winter Walks (2024) [FLAC|Lossless|WEB-DL|tra
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122619.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122619.jpgsave_picture_122619.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:EBE5C1E2E7A04DC550AE005A85287884C689131E
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122620.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122620.jpgsave_picture_122620.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:B4CCD5987918CEB4ADD84AE74D28A903AFBE4448
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122621.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122621.jpgsave_picture_122621.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:372CBF414F2FC33061558D092E650F0FF5909F9D
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122622.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122622.jpgsave_picture_122622.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ magnet:?xt=urn:btih:357885D47E33E40C17E5A8D97BA6F6FF3A1DC10C
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122623.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122623.jpgsave_picture_122623.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ magnet:?xt=urn:btih:497DAA9144852D7608338C2F02FE9D16F3653E5C
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122625.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122625.jpgsave_picture_122625.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ magnet:?xt=urn:btih:2EB5B984ECF953EE3B8F8330F8BD3A0DA9908890
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122626.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122626.jpgsave_picture_122626.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ magnet:?xt=urn:btih:FB48B071C1E4FF43CB8C93A8AB80A8693E1BF131
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122627.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122627.jpgsave_picture_122627.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ magnet:?xt=urn:btih:3D0E9128B4B102BD0E6E11EEB06B818E9E475A8F
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122628.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122628.jpgsave_picture_122628.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ magnet:?xt=urn:btih:0A123768B143C6ECE2A8B9D9D044E89421327E32
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122629.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122629.jpgsave_picture_122629.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ NVIDIA GeForce Desktop Game Ready 474.64 WHQL + DCH [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122630.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122630.jpgsave_picture_122630.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ magnet:?xt=urn:btih:BA5DD6545AB6B52F171AA85BD34443B1E20A0ECB
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122631.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122631.jpgsave_picture_122631.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ magnet:?xt=urn:btih:3703E147305647BED6514A82317EC4FFEDC87F51
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122632.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122632.jpgsave_picture_122632.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Memtest86+ 7.00 [En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122633.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122633.jpgsave_picture_122633.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ IObit Driver Booster Pro 11.2.0.46 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122634.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122634.jpgsave_picture_122634.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ GPS АнтиРадар v41.1 Mod by viktorovich31 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122635.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122635.jpgsave_picture_122635.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ magnet:?xt=urn:btih:C37DFC09B56B4475F4C202466AFBCD1BD5C82262
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122636.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122636.jpgsave_picture_122636.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ WinToUSB Free / Pro / Enterprise / Technician 8.4 RePack (& Portable) by Dodakae
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122637.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122637.jpgsave_picture_122637.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Total Commander 10.52 (18.02.2023) Portable by MiG [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202559.jpgsave_picture_202559.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ VA - 80s Gold (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202560.jpgsave_picture_202560.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ XtraTools Professional 23.3.1 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202561.jpgsave_picture_202561.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Skrillex - Don’t Get Too Close (2023) [FLAC|Lossless|WEB-DL|tracks] <Dubstep, 
 >>Dubstep, Future Garage, Bass Music, UK Garage (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202562.jpgsave_picture_202562.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:FA1ABEF7924328DFAE18AB0306DDD0C3271E2208
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202563.jpgsave_picture_202563.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:63928819A41EC0CCD0F9BD45693DFC22F6C65E9F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202564.jpgsave_picture_202564.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:EAF3232446CD714406DAF4F14E74A162B8300AE2
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202565.jpgsave_picture_202565.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Bob Dylan - Biograph (1985) compilation 1961-1981 5LPs [FLAC 2.0|192/24|image +.
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202566.jpgsave_picture_202566.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ magnet:?xt=urn:btih:4837B27E6E20DF1EAA4CDD7435D9AAA3AED3CEAB
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202567.jpgsave_picture_202567.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ magnet:?xt=urn:btih:85E505748744B9AC02ADDA87566F25D559A41A00
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202568.jpgsave_picture_202568.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ SENRAN KAGURA SHINOVI VERSUS (2016) [Multi] (6) License GOG [18+]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202569.jpgsave_picture_202569.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ magnet:?xt=urn:btih:B22C8AD36A591B3D70E8D1BF43C0A5BB4E57E253
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202570.jpgsave_picture_202570.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ magnet:?xt=urn:btih:F3A37847ED242A4D83E4F59E3240EE5ADBE9191A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202572.jpgsave_picture_202572.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ Secret Agent HD (2021) [En] (1.0.5) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202573.jpgsave_picture_202573.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ GenoPro 2020 3.1.0.1 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202574.jpgsave_picture_202574.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ magnet:?xt=urn:btih:7F9343092B9BC42AC8B600047D548174BD40176C
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202575.jpgsave_picture_202575.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ magnet:?xt=urn:btih:C6CE2DF2CB10A662F05F3583FF692A7C228B95DC
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202576.jpgsave_picture_202576.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ magnet:?xt=urn:btih:FF993FB2D268E65A57FEA81E997FDB3D94954D1A
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202577.jpgsave_picture_202577.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ magnet:?xt=urn:btih:7B181D918D49D694D3CC3E7EE33660FA1A00287A
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202578.jpgsave_picture_202578.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ magnet:?xt=urn:btih:E71E5D68D78D6E364643392D45AD21A5791C2639
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202579.jpgsave_picture_202579.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ magnet:?xt=urn:btih:B9FA9F03D11E25E077D396F77B18045D42A75FB3
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202580.jpgsave_picture_202580.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ magnet:?xt=urn:btih:951FBAA75579FA0CE51F31551DDB55572C1D7300
 >>Сериалы Marvel Comics
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202581.jpgsave_picture_202581.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ Hike Isle (2023) [En] (1.0.2) Scene DARKSiDERS
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202582.jpgsave_picture_202582.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Soulfly - Сollection (1998 - 2022) 17CD [FLAC|Lossless|image + .cue|tracks + .c
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202583.jpgsave_picture_202583.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Optimizer 14.9 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202584.jpgsave_picture_202584.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ Rainlendar Pro 2.19.1 Build 173 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202585.jpgsave_picture_202585.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86098.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86098.jpgsave_picture_86098.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:91C6330DBBCF7F51860D475AB5445F581A9AFCC4
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86100.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86100.jpgsave_picture_86100.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:91C6330DBBCF7F51860D475AB5445F581A9AFCC4
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86101.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86101.jpgsave_picture_86101.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ School house Shuffle (P) [En] 2008
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86102.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86102.jpgsave_picture_86102.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:74C365F4C6A5EE4DD73DB0B5745369273ACB6613
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86103.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86103.jpgsave_picture_86103.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Foreigner - Extended Versions (2011) [MP3|320 кб/с]<Rock, Hard rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86104.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86104.jpgsave_picture_86104.jpg" />
 </div>
 
 
@@ -161,7 +161,7 @@ Foreigner - Extended Versions (2011) [FLAC|Lossless]<Rock, Hard rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86105.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86105.jpgsave_picture_86105.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Foreigner - Extended Versions (2011) [FLAC|Lossless]<Rock, Hard rock>
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86106.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86106.jpgsave_picture_86106.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ magnet:?xt=urn:btih:E483EA24A48A45FF8F60E6B370A6253007938FB2
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86107.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86107.jpgsave_picture_86107.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ magnet:?xt=urn:btih:E483EA24A48A45FF8F60E6B370A6253007938FB2
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86112.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86112.jpgsave_picture_86112.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ magnet:?xt=urn:btih:E483EA24A48A45FF8F60E6B370A6253007938FB2
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86113.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86113.jpgsave_picture_86113.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ VA - Drum & Bass Antology Volume #2 - SQUASH SESSION (2005) [FLAC|Lossless]<Drum
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86114.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86114.jpgsave_picture_86114.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ VA - Drum & Bass Antology Volume #2 - SQUASH SESSION (2005) [FLAC|Lossless]<Drum
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86117.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86117.jpgsave_picture_86117.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ magnet:?xt=urn:btih:259FCDD859626FB146A498B1C0F4A55B9293AF09
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86118.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86118.jpgsave_picture_86118.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ magnet:?xt=urn:btih:C010D4AE31A4B6699D9690643A3B40F580CE5A6A
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86120.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86120.jpgsave_picture_86120.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ magnet:?xt=urn:btih:DE1FB90FA0E756975B5D213A3C7D46781331846C
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86121.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86121.jpgsave_picture_86121.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ magnet:?xt=urn:btih:196D6FF2E9F6EE96E2797E922EA28696D09EF43D
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86122.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86122.jpgsave_picture_86122.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ magnet:?xt=urn:btih:7B6DACAC10881C24E4B18A164524DCC29889E07A
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86123.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86123.jpgsave_picture_86123.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Overkill - The Electric Age (2012) [MP3|320 кб/с]<Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86124.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86124.jpgsave_picture_86124.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ magnet:?xt=urn:btih:5F009844E3E78FBEC1B78DDF8F74D5F857B8394A
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86128.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86128.jpgsave_picture_86128.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ Sters (P) [En] 2012
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86130.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86130.jpgsave_picture_86130.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ magnet:?xt=urn:btih:80286F92F0B8D4DB85244C310000D3665432AD17
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86135.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86135.jpgsave_picture_86135.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ magnet:?xt=urn:btih:80286F92F0B8D4DB85244C310000D3665432AD17
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86137.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86137.jpgsave_picture_86137.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ magnet:?xt=urn:btih:69C47E41712BDC2FCB258CD38B5CE6C35868CEE1
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86138.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86138.jpgsave_picture_86138.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ magnet:?xt=urn:btih:3B0154F9B08C95F5F058547F61AC9305CC631C29
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86139.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86139.jpgsave_picture_86139.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ magnet:?xt=urn:btih:3B0154F9B08C95F5F058547F61AC9305CC631C29
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86140.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86140.jpgsave_picture_86140.jpg" />
 </div>
 
 

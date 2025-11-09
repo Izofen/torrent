@@ -6,7 +6,7 @@ Kinland Station - Electric! (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66712.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66712.jpgsave_picture_66712.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Downward - Downward 2 (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternative Ro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66713.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66713.jpgsave_picture_66713.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Marrowomb - Phisenomie (2025) [MP3|320 Kbps] <Black, Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66714.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66714.jpgsave_picture_66714.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VideoShow VIP v11.0.0.0 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66715.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66715.jpgsave_picture_66715.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ magnet:?xt=urn:btih:BA10C117A94A54AA7E397048F09BC6CD42A088FC
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66716.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66716.jpgsave_picture_66716.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ magnet:?xt=urn:btih:388D8E256EC0C5563FB12E536DB97B07D1719945
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66717.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66717.jpgsave_picture_66717.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ magnet:?xt=urn:btih:528D1EC1BFC556F745891AF386D2DA2DDC58F378
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66718.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66718.jpgsave_picture_66718.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ magnet:?xt=urn:btih:5115CDF6BD9C9AB5F036F0A3741139461F55CAAF
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66719.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66719.jpgsave_picture_66719.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ VA - Deep House Touch 2025 (2025) [MP3|320 Kbps] <House, Deep House, Dance, Club
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66720.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66720.jpgsave_picture_66720.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ VA - Santorini Solaire Chill 2025 (2025) [MP3|320 Kbps] <Downtempo, Chillout, Lo
 >>Downtempo, Trip-Hop, Lounge
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66721.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66721.jpgsave_picture_66721.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ magnet:?xt=urn:btih:F2B61CB5778025316B54EC77DEE81031F6323AA2
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66722.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66722.jpgsave_picture_66722.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ magnet:?xt=urn:btih:DEB9CCB0F844E55E5E4ADA8357FB7DAD09DD12EB
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66723.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66723.jpgsave_picture_66723.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ The Storyteller - The Final Stand (2025) [FLAC|Lossless|WEB-DL|tracks] <Power Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66724.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66724.jpgsave_picture_66724.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ magnet:?xt=urn:btih:D6DF84D3E2347D3A071AB882EAEA22C905F85D39
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66725.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66725.jpgsave_picture_66725.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Voodoo Ramble - In the Heart of the City (2025) [FLAC|Lossless|WEB-DL|tracks] <B
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66726.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66726.jpgsave_picture_66726.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Supreme Void - Towards Oblivion (2025) [FLAC|Lossless|WEB-DL|tracks] <Technical 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66727.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66727.jpgsave_picture_66727.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Bernie Marsden - Icons (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66728.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66728.jpgsave_picture_66728.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Katagory V - Awaken A New Age Of Chaos (2025) [FLAC|Lossless|WEB-DL|tracks] <Hea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66729.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66729.jpgsave_picture_66729.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Shanti Celeste - Romance (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Dance, El
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66730.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66730.jpgsave_picture_66730.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ Brad "Guitar" Wilson - The Californian (2025) [FLAC|Lossless|WEB-DL|tracks] <Blu
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66731.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66731.jpgsave_picture_66731.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Mako, Kanoa - Blues in the Bar (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66732.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66732.jpgsave_picture_66732.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ magnet:?xt=urn:btih:D1D171F26AAF45C7F28F9524CB7AE847A84DAB75
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66733.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66733.jpgsave_picture_66733.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ magnet:?xt=urn:btih:BA27BCA6EC42B5F3FBA33D9F64CCECC7A24F4266
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66734.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66734.jpgsave_picture_66734.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ magnet:?xt=urn:btih:BB9DFC740D7C2E3311A861DB412862DA3204DBBD
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66735.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66735.jpgsave_picture_66735.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ magnet:?xt=urn:btih:986C49EAA2F95CE4E5F25C40FFFB988A379BBBCB
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66736.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66736.jpgsave_picture_66736.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ VA - Assorted Compilation Part 6 (2025) [MP3|320 Kbps] <Electronic, Easy listeni
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66737.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66737.jpgsave_picture_66737.jpg" />
 </div>
 
 

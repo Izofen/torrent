@@ -6,7 +6,7 @@ Kami-tachi ni Hirowareta Otoko | By the Grace of the Gods | Избранный �
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155529.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155529.jpgsave_picture_155529.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:BE99A2A29C9F0DE95A37B8B6DEB599CBB63CFC22
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155530.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155530.jpgsave_picture_155530.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:38684E4186240C7CF63550EDD2EBA57FE99E10C8
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155531.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155531.jpgsave_picture_155531.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:01C59F842387910CD1EDB9CCCA84EB9AE6026B49
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155532.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155532.jpgsave_picture_155532.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:F798917C128E0DAC805C0BA9E18CBD28B016E8AB
 >>История
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155533.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155533.jpgsave_picture_155533.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Red Giant Trapcode Suite 13.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155534.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155534.jpgsave_picture_155534.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:5AD2830710BF121597009BA45112D9B1AE57ED71
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155535.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155535.jpgsave_picture_155535.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:B44E430D8540FA51AC26C8C40861B849019668A8
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155537.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155537.jpgsave_picture_155537.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:88663CE1E30E3567C80A67E3C6B5472BF014D564
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155538.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155538.jpgsave_picture_155538.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ magnet:?xt=urn:btih:3E4F9661143000EAF9E45B512FFC90CA79857EC6
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155539.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155539.jpgsave_picture_155539.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ magnet:?xt=urn:btih:8C13E54B886E55D32149478946CCF6866E2752B3
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155541.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155541.jpgsave_picture_155541.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ King's Bounty: Воин Севера / King's Bounty: Warriors of the North [Ru/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155542.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155542.jpgsave_picture_155542.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Interstellar Sequence - Out Of The Deeps (2017) [FLAC|Lossless|WEB-DL|tracks] <E
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155543.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155543.jpgsave_picture_155543.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ magnet:?xt=urn:btih:57C7DB3A31EF518B837348B5E252769CC407C832
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155544.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155544.jpgsave_picture_155544.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ The Dark Element - Songs The Night Sings (2019) Japanese Edition [WavPack|Lossle
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155545.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155545.jpgsave_picture_155545.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ VA - Sweet Dreams: Hard Dance Essentials Hits (2018) [MP3|320 Kbps] <Techno Hard
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155547.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155547.jpgsave_picture_155547.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ magnet:?xt=urn:btih:DDC62139981A5CAF6B29D3FA4E6F8CBEFC0AADE3
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155549.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155549.jpgsave_picture_155549.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ magnet:?xt=urn:btih:BDDC7243CA1BF1DEBBDC400714D1611DDA40106E
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155550.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155550.jpgsave_picture_155550.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ magnet:?xt=urn:btih:27E91E98A904A3705D488CBE61E793D8A9F52A10
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155551.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155551.jpgsave_picture_155551.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ magnet:?xt=urn:btih:70080CDCF412AA2F423CF6398552F0E5DC34CEB8
 >>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155552.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155552.jpgsave_picture_155552.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ magnet:?xt=urn:btih:76DBE77F11896C56DD9347CDB5F0BE24DD25BC47
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155553.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155553.jpgsave_picture_155553.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ magnet:?xt=urn:btih:76DBE77F11896C56DD9347CDB5F0BE24DD25BC47
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155554.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155554.jpgsave_picture_155554.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ magnet:?xt=urn:btih:8954A717DA1E8DB5CC014B9E9C067D8E4C925F93
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155556.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155556.jpgsave_picture_155556.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ magnet:?xt=urn:btih:0BD62C9FF752E05F267301238CD2E8225301F141
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155557.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155557.jpgsave_picture_155557.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ magnet:?xt=urn:btih:7E8373AC3B0EBC0EE0A118A24F07B12BF697E13D
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155558.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155558.jpgsave_picture_155558.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ magnet:?xt=urn:btih:73E43C1E812255A4306B99AFF403F673AB9B691B
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155559.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155559.jpgsave_picture_155559.jpg" />
 </div>
 
 

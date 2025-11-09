@@ -6,7 +6,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244849.jpgsave_picture_244849.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ VA - ICONYC Five Years, Pt. 2 (2022) [AAC|~332 Kbps] <Progressive House, Melodic
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244850.jpgsave_picture_244850.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ magnet:?xt=urn:btih:A1D2A908B94C69AF44495B8F7ED936899E21DF95
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244851.jpgsave_picture_244851.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:1162FD17DA242B493C5656F49A727BBAA490B6C1
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244852.jpgsave_picture_244852.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ Viva - Das ist die Wahrheit (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Mel
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244853.jpgsave_picture_244853.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ MediaHuman YouTube Downloader 3.9.9.81 (2503) RePack (& Portable) by Dodakaedr [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244854.jpgsave_picture_244854.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ magnet:?xt=urn:btih:01969230430BBD20450A15AD0C61EDE103DCE60F
 >>Отечественное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244855.jpgsave_picture_244855.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ Opera GX 94.0.4606.96 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244856.jpgsave_picture_244856.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:8AFCC3DF67DBCCB483221F750F99C2D9E3CB275B
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244857.jpgsave_picture_244857.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ VA - ICONYC Five Years, Pt. 1 (2021) [AAC|~331 Kbps] <Progressive House, Melodic
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244858.jpgsave_picture_244858.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ magnet:?xt=urn:btih:D8463C0A5EAB9A2A5B56497AFA96C457EE427FF3
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244859.jpgsave_picture_244859.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ magnet:?xt=urn:btih:9765AED2BF2AA70B4BC7444F3683EC5A8E30521E
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244860.jpgsave_picture_244860.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ Penumbra - Eden (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Gothic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244861.jpgsave_picture_244861.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ Spiro Buzharovski | Introducing Blockchain with Java (2022) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244862.jpgsave_picture_244862.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ FastStone Image Viewer 7.6 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244863.jpgsave_picture_244863.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ magnet:?xt=urn:btih:F3FDF040EB49D3A1004D047ADC98359884C477D9
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244864.jpgsave_picture_244864.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ magnet:?xt=urn:btih:5D804820DCB7060386A4617E92E7EFD8C20D2949
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244865.jpgsave_picture_244865.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Nurarihyon no Mago: Sennen Makyou | Nura: Rise Of The Yokai Clan Demon Capital |
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244866.jpgsave_picture_244866.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ VA - Bossa N Michael (2016) [MP3|320 Kbps] <Balearic, Downtempo>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244867.jpgsave_picture_244867.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ magnet:?xt=urn:btih:472A36522196A3D18E63059236BF9D0A35C608C5
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244868.jpgsave_picture_244868.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ magnet:?xt=urn:btih:F5F96910AA7E25D156D320C84ADC43AC6BE857B1
 >>Старые Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244869.jpgsave_picture_244869.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ The Hara - Survival Mode (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock,
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244870.jpgsave_picture_244870.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ magnet:?xt=urn:btih:1DB10699D6F7C5402B8D39CE804398D3E5A55F64
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244871.jpgsave_picture_244871.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ VA - Esperandote: New Latin Music (2021) [MP3|320 Kbps] <Latin, Pop, Reggaeton>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244872.jpgsave_picture_244872.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Altair SimSolid 2022.2.1 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244873.jpgsave_picture_244873.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Testament - The Very Best Of (2001) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244874.jpgsave_picture_244874.jpg" />
 </div>
 
 

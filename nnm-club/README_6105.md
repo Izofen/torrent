@@ -6,7 +6,7 @@
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192093.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192093.jpgsave_picture_192093.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:7D06EFC8514C6E925F77FE6E43C2B2040EF53806
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192094.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192094.jpgsave_picture_192094.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:F87435AFA8C0D52604BC7A1C933B39EF179888E1
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192095.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192095.jpgsave_picture_192095.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ VA - Ultimate Divas 1940 - 2004, feat. B. Holiday • E. Fitzgerald • S. Vaugh
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192096.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192096.jpgsave_picture_192096.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ Amy Dutton | Everything Svelte (Complete package) (2023) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192097.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192097.jpgsave_picture_192097.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:B41723F6CC9E50E67777A9B2836835A3FEE9E543
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192098.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192098.jpgsave_picture_192098.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ Duplicate Cleaner Pro 5.20.1 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192099.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192099.jpgsave_picture_192099.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:420604F26382625683013D5EBD603A93B90FA8FB
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192100.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192100.jpgsave_picture_192100.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:CF8F2449F6D46DB5E7D6792D16B85B2A4048B454
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192101.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192101.jpgsave_picture_192101.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:9CF8B88983CA55F6EBFE902BB65AE1A142E23121
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192102.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192102.jpgsave_picture_192102.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:4207C6ADE34101935E02CE88242AAF8F05A3A72D
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192103.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192103.jpgsave_picture_192103.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:E23F6AC79401054E827315893C3AF8BD7B0CD5EF
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192104.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192104.jpgsave_picture_192104.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:2C2F3FD897AF625FD178572778FA22C4DBD6ED5F
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192105.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192105.jpgsave_picture_192105.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ FileMenu Tools 8.2.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192106.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192106.jpgsave_picture_192106.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Skype 8.90.0.405 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192107.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192107.jpgsave_picture_192107.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ magnet:?xt=urn:btih:1ED8902FE471180F2998B5ECB3C61EC836F30FD3
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192108.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192108.jpgsave_picture_192108.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ magnet:?xt=urn:btih:7D43B71B3576BF7DE7E4C198F2375DB4174E72A9
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192109.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192109.jpgsave_picture_192109.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ magnet:?xt=urn:btih:998E4DDD4C06EE8B18068A420836733EBE9DBF1A
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192110.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192110.jpgsave_picture_192110.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ magnet:?xt=urn:btih:D920AF0835D6C5FE477F61C71A9828D4C0BDA5BA
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192111.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192111.jpgsave_picture_192111.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Steve Lucas and the Rising Tide - How Can I Sing the Blues (2022) [FLAC|Lossless
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192112.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192112.jpgsave_picture_192112.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ Ousama Ranking | Ranking of Kings | Рейтинг королей [2021, TV, 23 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192113.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192113.jpgsave_picture_192113.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ PotPlayer 230905 (1.7.21998) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192114.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192114.jpgsave_picture_192114.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ magnet:?xt=urn:btih:C2E44B47A5EF7CC6320BBF5134125AA521BF8ADA
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192115.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192115.jpgsave_picture_192115.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Square Home Launcher 2.4.15 Mod by PieMods [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192116.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192116.jpgsave_picture_192116.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ HWiNFO 7.62 Build 5200 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192117.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192117.jpgsave_picture_192117.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ OCCT 12.0.15 Final Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192118.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192118.jpgsave_picture_192118.jpg" />
 </div>
 
 

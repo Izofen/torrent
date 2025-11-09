@@ -6,7 +6,7 @@ Transformers: Earthspark - Expedition (2023) [Multi] (1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172184.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172184.jpgsave_picture_172184.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Knight vs Giant: The Broken Excalibur (2023) [En] (1.0.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172196.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172196.jpgsave_picture_172196.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Paleo Pines (2023) [Ru/Multi] (1.1.26) Scene Rune
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173321.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173321.jpgsave_picture_173321.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Plants vs. Zombies 2: It’s About Time (2013) [Multi] (1.7.2.9) Repack Necros
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173448.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173448.jpgsave_picture_173448.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Plants vs. Zombies (2009) [Ru/En] (1.2.0.1096) Repack Necros [Game of the Year E
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173449.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173449.jpgsave_picture_173449.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ OmniBus (2016) [Ru/Multi] (1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173726.jpgsave_picture_173726.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Starri (2023) [Multi] (1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174369.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174369.jpgsave_picture_174369.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Worms Armageddon (1999) [Ru/Multi] (3.8) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175365.jpgsave_picture_175365.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Destroy All Humans! 2 - Reprobed (2022) [Ru/Multi] (1.6a/dlc) License GOG [Dress
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175522.jpgsave_picture_175522.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Bang-On Balls: Chronicles (2023) [Ru/Multi] (0.5.9) Scene Rune
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176392.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176392.jpgsave_picture_176392.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Alien Shooter 2 - The Legend (2020) [Ru] (1.2.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178885.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178885.jpgsave_picture_178885.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Magicka 2 (2015) [Ru/Multi] (1.2/dlc) License HI2U
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179523.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179523.jpgsave_picture_179523.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Goat Simulator 3 (2022) [Ru/Multi] (208081) Repack DjDI
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182112.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182112.jpgsave_picture_182112.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ LEGO Batman 3: Beyond Gotham (2015) [Ru/Multi] (1.6/dlc) License GOG [Premium Ed
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182201.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182201.jpgsave_picture_182201.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Rabat Protocol: Metal Rhapsody (2023) [Multi] (20230802) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183464.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183464.jpgsave_picture_183464.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Shank 2 (2012) [Ru] (1.0dc120305) Repack Necros
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185761.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185761.jpgsave_picture_185761.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Shank (2010) [Ru] (1.3) Repack Necros
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185765.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185765.jpgsave_picture_185765.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Avatar: The Last Airbender - Quest for Balance (2023) [Multi] (1.0) Scene Rune
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186144.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186144.jpgsave_picture_186144.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Suicide Guy: The Lost Dreams (2023) [Ru/Multi] (1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186969.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186969.jpgsave_picture_186969.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Suicide Guy: Sleepin' Deeply (2018) [Ru/Multi] (1.30) Scene HI2U
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187037.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187037.jpgsave_picture_187037.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Suicide Guy (2021) [Ru/Multi] (1.0) Scene Plaza [Deluxe Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187047.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187047.jpgsave_picture_187047.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Suicide Guy (2017) [Ru/Multi] (1.70) Scene Plaza
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187051.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187051.jpgsave_picture_187051.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Boti: Byteland Overclocked (2023) [Multi] (1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187606.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187606.jpgsave_picture_187606.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Neighbours from Hell Dilogy + Remaster (2003-2020) [Ru/Multi] (1.0/1.01/1.2.1) R
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187902.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187902.jpgsave_picture_187902.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Skye Tales (2023) [Ru/Multi] (1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188472.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188472.jpgsave_picture_188472.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Tavernacle! (2023) [Ru/Multi] (1.0.1) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188697.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188697.jpgsave_picture_188697.jpg" />
 </div>
 
 

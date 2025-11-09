@@ -6,7 +6,7 @@ MediaHuman YouTube Downloader 3.9.17 (1510) RePack (& Portable) by Dodakaedr [Mu
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136883.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136883.jpgsave_picture_136883.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ MediaHuman YouTube Downloader 3.9.17 (1510) [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136888.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136888.jpgsave_picture_136888.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Internet Download Manager 6.42 Build 51 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136897.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136897.jpgsave_picture_136897.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Allavsoft Video Downloader Converter 3.28.4.9413 RePack (& Portable) by elchupac
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136917.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136917.jpgsave_picture_136917.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Windows Manager 2.2.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136918.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136918.jpgsave_picture_136918.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Internet Download Manager 6.42 Build 51 RePack by KpoJIuK [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136920.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136920.jpgsave_picture_136920.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ imyPass Windows Password Reset Standart / Platinum / Ultimate 1.0.16 [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136952.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136952.jpgsave_picture_136952.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Auslogics Duplicate File Finder 11.1.0.0 RePack (& Portable) by elchupacabra [Mu
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136953.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136953.jpgsave_picture_136953.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ Universal Maps Downloader 10.228 [En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136955.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136955.jpgsave_picture_136955.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ SIW 2025 Technician 15.9.1009 [Multi]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136957.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136957.jpgsave_picture_136957.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Psiphon 3 build 186 RePack (& Portable) by elchupacabra (DC 09.10.2025) [Multi/R
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136960.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136960.jpgsave_picture_136960.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ magnet:?xt=urn:btih:B5E7492FA799DBEC3E06879C241D553F8D0264F8
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136963.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136963.jpgsave_picture_136963.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ RustDesk 1.4.3 + portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136976.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136976.jpgsave_picture_136976.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Auto Shutdowner 1.3 + Portable [Ru/En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137576.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137576.jpgsave_picture_137576.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ ICQ 10.0 Build 38922 Final [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137748.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137748.jpgsave_picture_137748.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ Scrivener 1.9.16.0 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138316.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138316.jpgsave_picture_138316.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ EasyBCD 2.4.0.237 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138543.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138543.jpgsave_picture_138543.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ Driver Easy Pro 5.6.8.35406 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138547.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138547.jpgsave_picture_138547.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Tor Bridges Updater 0.1.5 Portable [En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138752.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138752.jpgsave_picture_138752.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ MediaHuman YouTube to MP3 Converter 3.9.8.18 (2812) RePack by вовава [Ru/E
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138907.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138907.jpgsave_picture_138907.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ magnet:?xt=urn:btih:19E47D3A2139403E7946169D110C9F7C6DCBCB09
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139079.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139079.jpgsave_picture_139079.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ magnet:?xt=urn:btih:F5C5F46B306E322F9A0FDBC9E758983FD83777F5
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139158.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139158.jpgsave_picture_139158.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Paragon Drive Copy 15 Professional 10.1.25.779 + Boot Medias [En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141588.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141588.jpgsave_picture_141588.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ OBS (Open Broadcaster Software) 0.657 Beta Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142242.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142242.jpgsave_picture_142242.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Password Recovery Bundle 2019 Enterprise Edition 5.2 RePack (& Portable) by elch
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142386.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142386.jpgsave_picture_142386.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Microsoft Office 2016 Professional/ProPlus + Visio Standard/Pro + Project Standa
 >>Оригинальные версии Office
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142649.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142649.jpgsave_picture_142649.jpg" />
 </div>
 
 

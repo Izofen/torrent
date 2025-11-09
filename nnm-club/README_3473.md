@@ -6,7 +6,7 @@ VA - Dario Caminita: Classic Revibes Collection Vol. 02 (2021) [MP3|320 Kbps] <D
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110659.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110659.jpgsave_picture_110659.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:5E253834986C6ACF5ECD67C2FA1A4118AB1F6A3F
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110660.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110660.jpgsave_picture_110660.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:23B146C618E7B831A0238333EC639E61395FA58A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110661.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110661.jpgsave_picture_110661.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:4CBA45B425F2B61C46100BAF9569D34C1274C8D6
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110662.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110662.jpgsave_picture_110662.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:E6EB93DC4DD2445FBE9052CF91F6458ADC1EFDD7
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110663.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110663.jpgsave_picture_110663.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:72ED8C77D91C87503952049BB5E62BD5E2F7C36A
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110664.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110664.jpgsave_picture_110664.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:BE6219C8FFD79B25BB744CA914386F8BCFBB81B9
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110665.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110665.jpgsave_picture_110665.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:BE6219C8FFD79B25BB744CA914386F8BCFBB81B9
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110666.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110666.jpgsave_picture_110666.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:BE6219C8FFD79B25BB744CA914386F8BCFBB81B9
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110667.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110667.jpgsave_picture_110667.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Topaz Gigapixel AI 7.1.2 (x64) + All Models Portable by FC Portables [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110668.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110668.jpgsave_picture_110668.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Topaz Gigapixel AI 7.1.2 (x64) RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110669.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110669.jpgsave_picture_110669.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:53F82073D92DB08C04757A1021BE3046DB613474
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110670.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110670.jpgsave_picture_110670.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Call Me Malcolm - Echoes and Ghosts (2024) [FLAC|Lossless|WEB-DL|tracks] <Altern
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110671.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110671.jpgsave_picture_110671.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ VA - Timeless Classical Pieces (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110672.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110672.jpgsave_picture_110672.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ magnet:?xt=urn:btih:5B2A2525B098D07E689729AF09AFB1A35F57640A
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110673.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110673.jpgsave_picture_110673.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ n-Track Studio Suite 10.1.0.8635 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110674.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110674.jpgsave_picture_110674.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ Brave Browser 1.65.123 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110675.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110675.jpgsave_picture_110675.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ magnet:?xt=urn:btih:F9CA403752B57D360A011C96596B3178F0F5F708
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110676.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110676.jpgsave_picture_110676.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ VA - Dario Caminita: Classic Revibes Collection Vol. 01 (2021) [MP3|320 Kbps] <D
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110677.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110677.jpgsave_picture_110677.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ magnet:?xt=urn:btih:AD8151E2DA0873F4BDD1EE1668C0DBFCD0BD10E0
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110678.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110678.jpgsave_picture_110678.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ WinPaletter 1.0.9.3 Standalone [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110679.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110679.jpgsave_picture_110679.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ simplewall 3.8.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110680.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110680.jpgsave_picture_110680.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ magnet:?xt=urn:btih:B8E0C5927689784BCA5382933961E5914EBCA8A4
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110681.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110681.jpgsave_picture_110681.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ magnet:?xt=urn:btih:124745D59362547E9670483CC66B72FA07C5E542
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110682.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110682.jpgsave_picture_110682.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ VA - Dario Caminita: Classic Revibes Collection Vol. 03 (2021) [MP3|320 Kbps] <D
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110683.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110683.jpgsave_picture_110683.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ Mylene Farmer - Remix XL (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110684.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110684.jpgsave_picture_110684.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22933.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22933.jpgsave_picture_22933.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ VCap Downloader 0.1.28.6488 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22934.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22934.jpgsave_picture_22934.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Men of Valor (2004) [Ru/Multi] (1.3) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22935.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22935.jpgsave_picture_22935.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Inayah - Life after Gods (2025) [Ru/Multi] (1.0) Repack seleZen
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22936.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22936.jpgsave_picture_22936.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ W.E.T. - Studio Albums (5 releases) (2010-2025) hand made [restored, declipped] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22937.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22937.jpgsave_picture_22937.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:BCFAF257650C5857C6100089E9DFD81AB49D79C6
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22938.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22938.jpgsave_picture_22938.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Unholy (2023) [Ru/Multi] (30864) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22939.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22939.jpgsave_picture_22939.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:2A0BBFDB5AEDCED57B007D2815FA7BFD7E893909
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22940.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22940.jpgsave_picture_22940.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ MiHome v10.3.700 Mod by Vevs [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22941.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22941.jpgsave_picture_22941.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ Battlefield 4 (2013) [Ru/Multi] (4700144/dlc) Repack Other s [Premium Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22942.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22942.jpgsave_picture_22942.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:7BF28C4879FC717D1A79C7C07AA6AA1BED7E24AE
 >>Новинки мирового проката
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22943.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22943.jpgsave_picture_22943.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ Youkai Gakkou no Sensei Hajimemashita! | A Terrified Teacher at Ghoul School! | 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22944.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22944.jpgsave_picture_22944.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ magnet:?xt=urn:btih:14B8279012D9BC022E6E9CF7758C0555D00441F3
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22945.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22945.jpgsave_picture_22945.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ magnet:?xt=urn:btih:38B7D32DEE7E9DA3DF3EAF41CC3ADF77980C3D07
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22946.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22946.jpgsave_picture_22946.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ magnet:?xt=urn:btih:B48D97E425A0B73E70546B5BDE7A1F4BB21D2DE0
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22947.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22947.jpgsave_picture_22947.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ magnet:?xt=urn:btih:B48D97E425A0B73E70546B5BDE7A1F4BB21D2DE0
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22948.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22948.jpgsave_picture_22948.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ magnet:?xt=urn:btih:7FD3A1833DEA035F0728423AC2D463E1046DED12
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22949.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22949.jpgsave_picture_22949.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ magnet:?xt=urn:btih:D57CC4CF519FC29E12FC748B540BD5CBE7EE9C76
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22950.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22950.jpgsave_picture_22950.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ magnet:?xt=urn:btih:8F469134D475B84A23ACD85D7B71137EDA7D3DD9
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22951.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22951.jpgsave_picture_22951.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ magnet:?xt=urn:btih:E5111CF90972863ADA924B598FAE264E8C74E937
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22952.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22952.jpgsave_picture_22952.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ magnet:?xt=urn:btih:A4DE67DD49C6B3B9A85B2B42BB6D2D1286A6B76A
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22953.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22953.jpgsave_picture_22953.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Sentai Red Isekai de Boukensha ni Naru | Крaсный рeйнджeр стaнoв
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22954.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22954.jpgsave_picture_22954.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Twilight Monk (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22955.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22955.jpgsave_picture_22955.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ magnet:?xt=urn:btih:3D7B490D65EE4D774C276F1E12A24917A949AE5A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22956.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22956.jpgsave_picture_22956.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ magnet:?xt=urn:btih:3D7B490D65EE4D774C276F1E12A24917A949AE5A
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22957.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22957.jpgsave_picture_22957.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ magnet:?xt=urn:btih:A54972E873A7FE6A9724440EB1757DBC0B903966
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22958.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22958.jpgsave_picture_22958.jpg" />
 </div>
 
 

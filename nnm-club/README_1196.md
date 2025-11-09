@@ -6,7 +6,7 @@
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31451.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31451.jpgsave_picture_31451.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:A202980A4CF3F9F2BEA13E9D45CCD1F95D80D430
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31452.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31452.jpgsave_picture_31452.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Gold Mining Simulator (2017) [Ru/Multi] (1.8.2.858/dlc) Repack Let'sРlay [Gold 
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31453.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31453.jpgsave_picture_31453.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:015BEC26E9344F8F8D0BEBA05C3059C7283B599F
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31454.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31454.jpgsave_picture_31454.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Secret Service - Top Secret* (*Greatest Hits) (2000) [AAC|320 Kbps] <Electronic,
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31455.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31455.jpgsave_picture_31455.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:B15B74AA6A372D54DA01563379BF0F66366CE850
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31456.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31456.jpgsave_picture_31456.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ Telegram Desktop 5.10.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31457.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31457.jpgsave_picture_31457.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ The Halo Effect - March Of The Unheard (2025) [FLAC 24/48|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31458.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31458.jpgsave_picture_31458.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:C84992B19E112EE12001EFDED88AD42DF3A7CDA2
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31459.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31459.jpgsave_picture_31459.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ magnet:?xt=urn:btih:B109222E87A1C417B3263ECC6B2B18BD6BDBAF19
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31460.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31460.jpgsave_picture_31460.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ magnet:?xt=urn:btih:9E07882E3D87536C2C84796BF29FA99627E51DDB
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31461.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31461.jpgsave_picture_31461.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ magnet:?xt=urn:btih:745E472DB8AC660F8C267545759292960B19A2C7
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31462.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31462.jpgsave_picture_31462.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Sevendust - Studio Albums (14 releases) (1997-2023) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31463.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31463.jpgsave_picture_31463.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:9E0BC8293CADA9E7A6C024203F19C040FD5798FB
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31464.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31464.jpgsave_picture_31464.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ magnet:?xt=urn:btih:F9913BAC2C626B9D9C9F70554CACE082F56E55E4
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31465.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31465.jpgsave_picture_31465.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ magnet:?xt=urn:btih:9A4B61DD7ED2F66E62F2814C67251DD2C7167559
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31466.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31466.jpgsave_picture_31466.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ PhotoDirector v19.10.1 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31467.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31467.jpgsave_picture_31467.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ magnet:?xt=urn:btih:741937EBA3D02A6AE454AED8787BF59A862BD925
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31468.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31468.jpgsave_picture_31468.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ magnet:?xt=urn:btih:11C86DAA89CAE8AAF54F23305B6FF784DCE0B192
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31469.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31469.jpgsave_picture_31469.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Blind Golem - Wunderkammer (2025) [FLAC|Lossless|WEB-DL|tracks] <Progressive Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31470.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31470.jpgsave_picture_31470.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ Marta Prell - Versus Songs (2012) [MP3|320 Kbps] <Chaotic Hardcore, Post Hardcor
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31471.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31471.jpgsave_picture_31471.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Theatres Des Vampires - Studio Albums (12 releases) (1996-2021) hand made [resto
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31472.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31472.jpgsave_picture_31472.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Tremonti - The End Will Show Us How (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31473.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31473.jpgsave_picture_31473.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Conquer Divide - Studio Albums (2 releases) (2015-2024) hand made [restored, dec
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31474.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31474.jpgsave_picture_31474.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ My Arrival - Lost 3mbers (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31475.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31475.jpgsave_picture_31475.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Iskald - Innhostinga (2018) [FLAC|Lossless|image + .cue] <Melodic Black Thrash M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31476.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31476.jpgsave_picture_31476.jpg" />
 </div>
 
 

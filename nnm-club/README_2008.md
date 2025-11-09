@@ -6,7 +6,7 @@ Mark Knopfler - People... (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52575.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52575.jpgsave_picture_52575.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Mozilla Thunderbird 115.12.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52576.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52576.jpgsave_picture_52576.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:5AEE09C1D8419780356E886F5248118FB12579C7
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52577.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52577.jpgsave_picture_52577.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:EDB61926FFCACE361C9557B981B3ED12F7A4B668
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52578.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52578.jpgsave_picture_52578.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ Ed Swick | Easy German Step-by-Step. Second edition (2019) [PDF] [EN]
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52579.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52579.jpgsave_picture_52579.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:A95B7293DF9274C94F3E3707AE0E864BB1A7C1BE
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52580.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52580.jpgsave_picture_52580.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:A95B7293DF9274C94F3E3707AE0E864BB1A7C1BE
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52581.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52581.jpgsave_picture_52581.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ Error Lookup 2.6 + Portable [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52582.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52582.jpgsave_picture_52582.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:8934AD8F6A83406BC2EF3AE83338F1754525907E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52583.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52583.jpgsave_picture_52583.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ My Horse: Bonded Spirits (2024) [Ru/Multi] (1.0) Scene Skidrow
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52584.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52584.jpgsave_picture_52584.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:F78AC8ABE9A0E6DC70D738E05E7B34BD188CE0B9
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52585.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52585.jpgsave_picture_52585.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:6A7ADC563DDE16FAB18F595EB0C38A04DB0776A7
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52586.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52586.jpgsave_picture_52586.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ magnet:?xt=urn:btih:32DDD3A23837755658175A5EC4900BF0965828C4
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52587.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52587.jpgsave_picture_52587.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ magnet:?xt=urn:btih:32DDD3A23837755658175A5EC4900BF0965828C4
 >>Зарубежные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52588.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52588.jpgsave_picture_52588.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ A Tower Full of Cats (2024) [Ru/Multi] (1.1.6) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52589.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52589.jpgsave_picture_52589.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ magnet:?xt=urn:btih:F0A6E46FA9EF70DE73F319EBC2D1B2AAFED093C8
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52590.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52590.jpgsave_picture_52590.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ magnet:?xt=urn:btih:F0A6E46FA9EF70DE73F319EBC2D1B2AAFED093C8
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52591.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52591.jpgsave_picture_52591.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ magnet:?xt=urn:btih:B819061E046C6093AA8E32570A6DDC21EEE5441C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52592.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52592.jpgsave_picture_52592.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ magnet:?xt=urn:btih:80942C46C023FB23F2DCA758FDEBC8F3BCABFDE6
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52593.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52593.jpgsave_picture_52593.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ magnet:?xt=urn:btih:CE2A450E8AD3F555DC5E8D246189A46AC0E11F61
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52594.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52594.jpgsave_picture_52594.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Wise Auto Shutdown 2.0.7.108 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52595.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52595.jpgsave_picture_52595.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ magnet:?xt=urn:btih:F253699AD03488D46214B64060C34570AFD747E3
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52596.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52596.jpgsave_picture_52596.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Alisa (2021) [Multi] (1.18) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52597.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52597.jpgsave_picture_52597.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ magnet:?xt=urn:btih:DF1700A748A30DE8B052C6EA093350C7D1E08CCD
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52598.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52598.jpgsave_picture_52598.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ magnet:?xt=urn:btih:DF1700A748A30DE8B052C6EA093350C7D1E08CCD
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52599.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52599.jpgsave_picture_52599.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ VA - Summer Car Music Hits 2024 (2024) [MP3|320 Kbps] <Dance, Club, House, Elect
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52600.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52600.jpgsave_picture_52600.jpg" />
 </div>
 
 

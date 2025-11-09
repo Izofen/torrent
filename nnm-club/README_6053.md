@@ -6,7 +6,7 @@ Frank Zappa - Live... New York 1984 (2023) [MP3|320 Kbps] <Rock, Pop Rock, Garag
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190589.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190589.jpgsave_picture_190589.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Sylosis - A Sign of Things to Come (2023) [MP3|320 Kbps] <Melodic Death Metal, T
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190592.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190592.jpgsave_picture_190592.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Blackwell - Blackwell (1970) [MP3|320 Kbps] <Psychedelic Blues Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190594.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190594.jpgsave_picture_190594.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:436E0D065158696D71C886C61A02B24D52F96138
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190596.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190596.jpgsave_picture_190596.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Mud - Let's Have A Party - The Best Of Mud (1990) 2023, Parlophone UK [MP3|320 K
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190598.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190598.jpgsave_picture_190598.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Eternal Voyager - Darkened Times (2023) [MP3|320 Kbps] <Heavy, Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190600.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190600.jpgsave_picture_190600.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ The March Violets - 2 Albums (2023) [MP3|320 Kbps] <Alternative, Post-Punk, Goth
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190602.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190602.jpgsave_picture_190602.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Dark Divine - Deadly Fun (2023) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Altern
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190604.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190604.jpgsave_picture_190604.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Butchamana And The Big Bang Brothers Band - Indian Dream (1981) [MP3|320 Kbps] <
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190605.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190605.jpgsave_picture_190605.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ The Flower Kings - Look At You Now (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphon
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190607.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190607.jpgsave_picture_190607.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Thunder Volt - 4 Releases (2021-2023) [FLAC|Lossless|WEB-DL|tracks] <Grunge, Sto
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190609.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190609.jpgsave_picture_190609.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Fire Rose - Blood On Your Hands (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard 'n' H
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190611.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190611.jpgsave_picture_190611.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Steely Dan - Memphis 1974 (Live) (2023) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190614.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190614.jpgsave_picture_190614.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Stream Of Passion - Beautiful Warrior (2023) EP [FLAC|Lossless|WEB-DL|tracks] <P
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190615.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190615.jpgsave_picture_190615.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Ed Rush & Optical - Classic Essential Mix 1999 (Rebroadcast 03.09.2023) [MP3|287
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190617.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190617.jpgsave_picture_190617.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ BuhoCleaner for Mac 1.9.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190619.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190619.jpgsave_picture_190619.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ magnet:?xt=urn:btih:E434FF55027501DCD31C1987EFAF3F15CB3B744A
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190620.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190620.jpgsave_picture_190620.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ VA - Metal Now (2023) [FLAC|Lossless|WEB-DL|tracks] <Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190621.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190621.jpgsave_picture_190621.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ King Gizzard & The Lizard Wizard - Live in Chicago '23 (2023) [MP3|320 Kbps] <Ps
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190624.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190624.jpgsave_picture_190624.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ The Staehely Brothers - Sta-Hay-Lee (1973) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190626.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190626.jpgsave_picture_190626.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Sarayasign - The Lion's Road (2023) [FLAC|Lossless|image + .cue] <Melodic Hard R
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190628.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190628.jpgsave_picture_190628.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Street Fighter - Second Hand Hero (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard 'n'
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190630.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190630.jpgsave_picture_190630.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ George Lynch - Guitars at the End of the World (2023) [FLAC|Lossless|WEB-DL|trac
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190632.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190632.jpgsave_picture_190632.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ magnet:?xt=urn:btih:6E4A0A7B650715B878F743B144493BFC8C29D13E
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190633.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190633.jpgsave_picture_190633.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Total Stranger - Mean Season (1986-1990) Remastered, 2023, MelodicRock Classics 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190634.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190634.jpgsave_picture_190634.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ OSI - Дискография (4 releases) (2003-2012) hand made [restored, decli
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190636.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190636.jpgsave_picture_190636.jpg" />
 </div>
 
 

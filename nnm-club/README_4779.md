@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149552.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149552.jpgsave_picture_149552.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Cerrone - Cerrone By Jamie Lewis (2009) Compilation, Mixed [FLAC|Lossless|tracks
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149553.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149553.jpgsave_picture_149553.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Cerrone - Cerrone By Jamie Lewis (2009) Compilation, Mixed [FLAC|Lossless|tracks
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149554.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149554.jpgsave_picture_149554.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Thorium - Extraordinary Journeys pt. I (2023) [FLAC|Lossless|WEB-DL|tracks] <Hea
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149555.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149555.jpgsave_picture_149555.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Witches Legacy 8: Dark Days To Come / Наследие ведьм 8: Гряду�
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149556.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149556.jpgsave_picture_149556.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Witches Legacy 8: Dark Days To Come / Наследие ведьм 8: Гряду�
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149558.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149558.jpgsave_picture_149558.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ Jerry Dugger - Don't Crow, Don't Cry (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149559.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149559.jpgsave_picture_149559.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ Jerry Dugger - Don't Crow, Don't Cry (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149560.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149560.jpgsave_picture_149560.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ Jerry Dugger - Don't Crow, Don't Cry (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149562.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149562.jpgsave_picture_149562.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ Jerry Dugger - Don't Crow, Don't Cry (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149564.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149564.jpgsave_picture_149564.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ Jerry Dugger - Don't Crow, Don't Cry (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149566.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149566.jpgsave_picture_149566.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ Beamer 3.2 [En]
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149567.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149567.jpgsave_picture_149567.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ Fuzzrider - Fuzzrider (2023) [FLAC|Lossless|WEB-DL|tracks] <Stoner Hard Rock>
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149569.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149569.jpgsave_picture_149569.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ Fuzzrider - Fuzzrider (2023) [FLAC|Lossless|WEB-DL|tracks] <Stoner Hard Rock>
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149570.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149570.jpgsave_picture_149570.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ National Suicide - Studio Albums (3 releases) (2009-2017) hand made [restored, d
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149571.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149571.jpgsave_picture_149571.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ VA - It's the Music Vol.2 (2012) [MP3|320 кб/с]<Minimal, Tech House>
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149573.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149573.jpgsave_picture_149573.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ VA - It's the Music Vol.2 (2012) [MP3|320 кб/с]<Minimal, Tech House>
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149574.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149574.jpgsave_picture_149574.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Directory Lister Pro 2.33 Enterprise [Multi/Ru]
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149575.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149575.jpgsave_picture_149575.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Directory Lister Pro - полезная программа, которая по�
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149576.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149576.jpgsave_picture_149576.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ CONSTRUCTOR - проект для создания необычной презе
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149577.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149577.jpgsave_picture_149577.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Lee Morgan - Blue Breakbeats (1963 - 1968) 1998, Blue Note [FLAC|Lossless|tracks
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149578.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149578.jpgsave_picture_149578.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Lee Morgan - Blue Breakbeats (1963 - 1968) 1998, Blue Note [FLAC|Lossless|tracks
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149579.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149579.jpgsave_picture_149579.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Duskwood + Mod Menu v1.6.6 [Ru/En]
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149580.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149580.jpgsave_picture_149580.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Movavi PDFChef for Mac 2022 v22.1.0 [Multi/Ru]
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149581.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149581.jpgsave_picture_149581.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ PDF-редактор теперь PDFChef. Сделать работу с PDF п
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149584.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149584.jpgsave_picture_149584.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ PDF-редактор теперь PDFChef. Сделать работу с PDF п
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149585.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149585.jpgsave_picture_149585.jpg" />
 </div>
 
 

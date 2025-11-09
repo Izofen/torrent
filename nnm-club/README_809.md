@@ -6,7 +6,7 @@ ActivePresenter Pro Edition 9.3.0 (x64) RePack (& Portable) by elchupacabra [Mul
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21362.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21362.jpgsave_picture_21362.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:A61E01205A776D1A072D367713CB5946DEEFE726
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21363.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21363.jpgsave_picture_21363.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:4D7B8A4E20C394AA0A2E658EAC2182C086914BDD
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21364.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21364.jpgsave_picture_21364.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Solid Explorer File Manager v2.8.61 + Plugins Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21365.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21365.jpgsave_picture_21365.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Battery Guru: Monitor & Health v2.3.19 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21366.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21366.jpgsave_picture_21366.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Microsoft Windows 11 [10.0.22631.5189], Version 23H2 (Updated April 2025) - Ор
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21367.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21367.jpgsave_picture_21367.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:2A43C7E21478CF286F98A1C7D8F18D756F5D8B89
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21368.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21368.jpgsave_picture_21368.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:2A43C7E21478CF286F98A1C7D8F18D756F5D8B89
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21369.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21369.jpgsave_picture_21369.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:FD903DA85230B0E6CBBC2D92F8310E7EBA2ACD6B
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21370.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21370.jpgsave_picture_21370.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:28A6A9B6325890A070E2B34587520392EA151E3C
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21371.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21371.jpgsave_picture_21371.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Microsoft Windows 11 [10.0.26100.3775], Version 24H2 (Updated April 2025) - Ор
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21372.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21372.jpgsave_picture_21372.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ VideoSolo Video Converter Ultimate 2.3.52 RePack (& Portable) by TryRooM [Multi/
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21373.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21373.jpgsave_picture_21373.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ magnet:?xt=urn:btih:4EF2619860EEB9EDA2F85DA325DA69A5C7AAAC0C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21374.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21374.jpgsave_picture_21374.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Dying Light: The Following (2016) [Ru/En] (1.50.0/dlc) Repack Other s [Definitiv
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21375.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21375.jpgsave_picture_21375.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ magnet:?xt=urn:btih:A9D77C79759615FBC93CD43F2B0AAAD8F325046B
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21376.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21376.jpgsave_picture_21376.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Windows Server 2022 LTSC [10.0.20348.3453], Version 21H2 (Updated April 2025) - 
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21377.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21377.jpgsave_picture_21377.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ magnet:?xt=urn:btih:5A2819BF132B3E49FCE36F23F2ABE626C8A629A0
 >>Автомобилисты здесь!
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21378.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21378.jpgsave_picture_21378.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ magnet:?xt=urn:btih:5A2819BF132B3E49FCE36F23F2ABE626C8A629A0
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21379.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21379.jpgsave_picture_21379.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ MakeMKV 1.18.1 Beta RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21380.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21380.jpgsave_picture_21380.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Topaz Photo AI Pro 3.6.2 (x64) [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21381.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21381.jpgsave_picture_21381.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Microsoft Windows 10 [10.0.19045.5737], Version 22H2 (Updated April 2025) - Ор
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21382.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21382.jpgsave_picture_21382.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ magnet:?xt=urn:btih:9F29C4C7698EDEC9342660EC9AFC6F0A0BCCABA4
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21383.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21383.jpgsave_picture_21383.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ Open Server 6.2.6 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21384.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21384.jpgsave_picture_21384.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:2FC9384BF622F71166290323C0F07CC213EE4C97
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21385.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21385.jpgsave_picture_21385.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ magnet:?xt=urn:btih:C3603D611605B9EAF2CC7FE397A7EE610FA2A0AA
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21386.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21386.jpgsave_picture_21386.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ magnet:?xt=urn:btih:BD911FB2FFD85224C6DA20923306257BEA84AB63
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21387.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21387.jpgsave_picture_21387.jpg" />
 </div>
 
 

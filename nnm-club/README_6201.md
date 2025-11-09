@@ -6,7 +6,7 @@ Demonic Supremacy (2023) [Ru/Multi] (1.0) Scene Tenoke
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194693.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194693.jpgsave_picture_194693.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:0F67CE5E5F2AE46E20362C05AAA6FA811ABD0051
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_194695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_194695.jpgsave_picture_194695.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ AOMEI Backupper Technician Plus 7.3.1 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194696.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194696.jpgsave_picture_194696.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Total Commander 11.00 Final (DC 03.08.2023) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194699.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194699.jpgsave_picture_194699.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:7168893E65BAF0EA160CF57EF5D97542D36800AE
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194700.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194700.jpgsave_picture_194700.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:5E0FB89407C048C6D1F39D3329547B0F2FA20422
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_194701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_194701.jpgsave_picture_194701.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:2C217B7E5E187F0A4868E81527D3355FF396DBE8
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194702.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194702.jpgsave_picture_194702.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:2193AEB3A1E84A03497CF270D175F2EAB8EB1DC7
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_194703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_194703.jpgsave_picture_194703.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:A5F7CC7EFA0EE9E0EDA964395BB1136BDD12E541
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_194704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_194704.jpgsave_picture_194704.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ magnet:?xt=urn:btih:F7D3C63FEA4BBBFBA228BC8AC916549936513AA8
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194705.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194705.jpgsave_picture_194705.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ magnet:?xt=urn:btih:C66E35614F67FC6ACC608CD7DA43CF06F931725F
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_194706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_194706.jpgsave_picture_194706.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Oceanhorn 2: Knights of the Lost Realm / Оушенхорн 2: Рыцари за
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194707.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194707.jpgsave_picture_194707.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ magnet:?xt=urn:btih:8540F5D5778D28C1A9E4576BF2EF50350822A742
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_194708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_194708.jpgsave_picture_194708.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ magnet:?xt=urn:btih:88AF4F36400F0AB8FF85E2A4A2520C9843802ADD
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194709.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194709.jpgsave_picture_194709.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ magnet:?xt=urn:btih:5BF70E1A4237DEC73D716BA0F0C1FC48BF293BD0
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_194710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_194710.jpgsave_picture_194710.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ magnet:?xt=urn:btih:FF4E1DD21235F9FFBDB8C8EC944B030424D33749
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_194711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_194711.jpgsave_picture_194711.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ magnet:?xt=urn:btih:9EF6820F15996012F96C1993A2D5DA2C5B5E91EC
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_194712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_194712.jpgsave_picture_194712.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ magnet:?xt=urn:btih:582FD3C864D499B8522C30563DA7A2E3027E2CBF
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194713.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194713.jpgsave_picture_194713.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ magnet:?xt=urn:btih:C691D5B58CB725B7B4BDEF58EFC129FBA63EB8BF
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_194714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_194714.jpgsave_picture_194714.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ magnet:?xt=urn:btih:2A2350025FCEC116DAF2854E394D2A8EFD5D7C01
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194715.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194715.jpgsave_picture_194715.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ magnet:?xt=urn:btih:12BEA4EDC83B4859B81952385B88EFB906D98686
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_194716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_194716.jpgsave_picture_194716.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ WWE 2K23 (2023) [Multi] (1.15/dlc) Scene Tenoke [Icon Edition]
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194717.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194717.jpgsave_picture_194717.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ magnet:?xt=urn:btih:D1786D8FE224F2A011D26C7C0848B21D41049682
 >>Сериалы Marvel Comics
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194718.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194718.jpgsave_picture_194718.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ magnet:?xt=urn:btih:DED03CD27CA852FC0342DC26A4A9AED05908C3B2
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194719.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194719.jpgsave_picture_194719.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ magnet:?xt=urn:btih:9C184CF5D2E8F7E3B50668239090D1CCDB4EB36C
 >>Сериалы Marvel Comics
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_194720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_194720.jpgsave_picture_194720.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ magnet:?xt=urn:btih:D019FA0C9EF146B3EDD0D61CF79581116EA5654A
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_194721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_194721.jpgsave_picture_194721.jpg" />
 </div>
 
 

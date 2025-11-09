@@ -6,7 +6,7 @@ Moss Upon The Skull - Quest For The Secret Fire (2024) [FLAC|Lossless|WEB-DL|tra
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2143.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2143.jpgsave_picture_2143.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Fear My Thoughts - Studio Albums (6 releases) (2001-2008) hand made [restored, d
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2144.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2144.jpgsave_picture_2144.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Exelerate - Hell For The Helpless (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2145.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2145.jpgsave_picture_2145.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:581420F3E7B98A726CF1029BC904864F857D9E8C
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2146.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2146.jpgsave_picture_2146.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ magnet:?xt=urn:btih:12CEAB43DE918AE85284241DF13803A5E337C879
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2147.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2147.jpgsave_picture_2147.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ magnet:?xt=urn:btih:336D8EC837E05C09AD6A263CDE15FA4FCFE30C6C
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2148.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2148.jpgsave_picture_2148.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ magnet:?xt=urn:btih:19BF91E686A7DBE93AAC727D38342B9AB54189CC
 >>Элементы (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2149.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2149.jpgsave_picture_2149.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ magnet:?xt=urn:btih:566DA7141E0257D6B20EB8D9B10139BCD6344868
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2150.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2150.jpgsave_picture_2150.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ magnet:?xt=urn:btih:4F20C331A264A8C764FC46509FC9146C4456EF2E
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2151.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2151.jpgsave_picture_2151.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ Gorillaz - The God of Lying ft. Joe Talbot (Studio Recreation) (2025) WEB-DL  [H
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2152.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2152.jpgsave_picture_2152.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ magnet:?xt=urn:btih:10A86DD74AC013C87AD79B5DE47922AAD9D30612
 >>Титры (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2153.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2153.jpgsave_picture_2153.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ magnet:?xt=urn:btih:EAA6C2C34794D23407CC81BFD0646D6307D1519D
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2154.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2154.jpgsave_picture_2154.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ magnet:?xt=urn:btih:08D52F9628BBEDFFD4874CC9FF4FADA73F748978
 >>Элементы (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2155.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2155.jpgsave_picture_2155.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ magnet:?xt=urn:btih:38D1AF39B521D05664B3B1EE810B0A4FA02505C9
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2156.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2156.jpgsave_picture_2156.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ VA - A Spa & Wellness Chill Experience (2025) [FLAC|Lossless|WEB-DL|tracks] <Lou
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2157.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2157.jpgsave_picture_2157.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ magnet:?xt=urn:btih:B9E9B17E871C075A57DE1902215321C01D50EC03
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2158.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2158.jpgsave_picture_2158.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ magnet:?xt=urn:btih:8B3E78F60E733C587E8048AAFA0FD20013A68733
 >>Разное (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2159.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2159.jpgsave_picture_2159.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Keb' Mo' - Compilation (1980-2025) [MP3|320 Kbps] <Blues>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2160.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2160.jpgsave_picture_2160.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ VA - Песни от всей души. Женщины (2025) [MP3|320 Kbps] <Ch
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2161.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2161.jpgsave_picture_2161.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ magnet:?xt=urn:btih:C054C8940FC2A140D908B221505233E646965B08
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2162.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2162.jpgsave_picture_2162.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ magnet:?xt=urn:btih:6E914784877AA74D850A99749993B16E839BBA27
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2163.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2163.jpgsave_picture_2163.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ magnet:?xt=urn:btih:AE0BDE7315F1D1DAE0903E443E8E51664D20E467
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2164.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2164.jpgsave_picture_2164.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ VA - В родных местах (2024) [MP3|320 Kbps] <Pop, Chanson>
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2165.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2165.jpgsave_picture_2165.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ magnet:?xt=urn:btih:70C22816FEA8DC460B80196D40BA0AD598FE7217
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2166.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2166.jpgsave_picture_2166.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ magnet:?xt=urn:btih:FAE6FB351EA896258FB20ADC0947007BF6418AB5
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2167.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2167.jpgsave_picture_2167.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ magnet:?xt=urn:btih:9D4947D77E61F2F8917A09F509FE9AE8AF425F41
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2168.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2168.jpgsave_picture_2168.jpg" />
 </div>
 
 

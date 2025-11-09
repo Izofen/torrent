@@ -6,7 +6,7 @@ Quatro | Tunstall - Face To Face (2023) [FLAC|Lossless|image + .cue] <Classic Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203016.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203016.jpgsave_picture_203016.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Marduk - Memento Mori (2023) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203019.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203019.jpgsave_picture_203019.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Pulsar - Дотла (2023) [MP3|320 Kbps] <Alternative Metal, Metalcore, Female,
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203023.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203023.jpgsave_picture_203023.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Phil Campbell and the Bastard Sons - Kings Of The Asylum (2023) [FLAC|Lossless|W
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203031.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203031.jpgsave_picture_203031.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Van Halen - Montevideo 1983 (Live) (2023) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203047.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203047.jpgsave_picture_203047.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Soen - Memorial (2023) [MP3|320 Kbps] <Progressive Metal, Rock>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203051.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203051.jpgsave_picture_203051.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Eclipse - Megalomanium (2023) [MP3|320 Kbps] <Melodic Heavy Metal, Hard Rock>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203061.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203061.jpgsave_picture_203061.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Royal Blood - Back To The Water Below (2023) [FLAC 24/44.1|WEB-DL|tracks] <Alter
 >>Alternative, Punk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203074.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203074.jpgsave_picture_203074.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Deserta - Don’t Dare Stop (2023) [Mp3|320kbps] <hard rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203077.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203077.jpgsave_picture_203077.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Sun Dweller - High Ride (2023) [MP3|320 Kbps] <Heavy Rock, Stoner, Grunge, Blues
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203086.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203086.jpgsave_picture_203086.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Mirror Of Enigma - Angels Are Dancing Alone (2023) Deluxe Edition [MP3|320 Kbps]
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203123.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203123.jpgsave_picture_203123.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ VA - Massive Rock Hits (2023) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203137.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203137.jpgsave_picture_203137.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Ugly Kid Joe - 5 Studio Albums, 2 Compilations, 4 Singles & EPs (1991 - 2022) 11
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203230.jpgsave_picture_203230.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Prime Creation - Tell Freedom I Said Hello (2023) [FLAC|Lossless|WEB-DL|tracks] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203268.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203268.jpgsave_picture_203268.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Triple Kill - Blackened Dawn (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Thras
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203271.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203271.jpgsave_picture_203271.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Steve Kilbey - The Hall Of Counterfeits (2021) 2 CD, Reissue, 2023, Easy Action 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203273.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203273.jpgsave_picture_203273.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Candlebox - The Long Goodbye (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative R
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203276.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203276.jpgsave_picture_203276.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Donefor - Sleep On It (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Ha
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203279.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203279.jpgsave_picture_203279.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Astral Wizard - Astral Wizard (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203281.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203281.jpgsave_picture_203281.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Bury the Darkness - Dead Inside (2023) [FLAC|Lossless|WEB-DL|tracks] <Metalcore,
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203286.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203286.jpgsave_picture_203286.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Powderfinger - Vulture Street (20th Anniversary Edition, 2023, Universal Music A
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203288.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203288.jpgsave_picture_203288.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Persуide (Perséide) - The Only Thing (2021) [FLAC|Lossless|WEB-DL|tracks] <Mod
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203290.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203290.jpgsave_picture_203290.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Jag Panzer - The Fourth Judgement (1997) Reissue, 2007, Century Media [FLAC|Loss
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203298.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203298.jpgsave_picture_203298.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Brothers - Rainbow Rider (1973) [FLAC|Lossless|WEB-DL|tracks] <Classic Rock, Pro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203302.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203302.jpgsave_picture_203302.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Solar Tide - A Small Piece Of Time (2023) [FLAC|Lossless|WEB-DL|tracks] <Progres
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203310.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203310.jpgsave_picture_203310.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Tarchon Fist - The Flame Still Burns (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203319.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203319.jpgsave_picture_203319.jpg" />
 </div>
 
 

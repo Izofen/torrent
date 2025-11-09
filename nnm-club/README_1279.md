@@ -6,7 +6,7 @@
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33609.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33609.jpgsave_picture_33609.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:C567E43B3122A36F7F1A7083111B82F125BFCCF8
 >>Новости P2P, Копирайт, Блокировки, Цензура
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33610.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33610.jpgsave_picture_33610.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:C567E43B3122A36F7F1A7083111B82F125BFCCF8
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33611.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33611.jpgsave_picture_33611.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:664612A84729CA110CA177A5F53B963D61D00874
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33612.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33612.jpgsave_picture_33612.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Crown Wars: The Black Prince (2024) [Ru/Multi] (Build 16501847/dlc) Repack Let's
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33613.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33613.jpgsave_picture_33613.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Dead God Land: Survival Games v0.0.0263 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33614.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33614.jpgsave_picture_33614.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:EADC4CD35CC279AA1C7F94B7DE60672F33BB037D
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33615.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33615.jpgsave_picture_33615.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:9DED39A80B92B33E58AC47F4A91305007DF57B0B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33616.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33616.jpgsave_picture_33616.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Mecha-ude (2024) | Mechanical Arms | Механические руки [2024, TV
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33617.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33617.jpgsave_picture_33617.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:921CA59B882DEE2FCC91D52C1F1CF018196926D8
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33618.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33618.jpgsave_picture_33618.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ NegaPosi Angler | Negative Positive Angler | Негативный позитив
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33619.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33619.jpgsave_picture_33619.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Microsoft Windows 10 [10.0.19045.5247], Version 22H2 (Updated December 2024) - �
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33620.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33620.jpgsave_picture_33620.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Windows Server 2022 LTSC [10.0.20348.2966], Version 21H2 (Updated December 2024)
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33621.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33621.jpgsave_picture_33621.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Tekken 8 (2024) [Ru/Multi] (1.10.01/dlc) Repack FitGirl [Ultimate Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33622.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33622.jpgsave_picture_33622.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ magnet:?xt=urn:btih:34C891649802945251E92451FFB946B1B62CE853
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33623.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33623.jpgsave_picture_33623.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ magnet:?xt=urn:btih:1BF88A2A27D9D959752760FA4E2794DAA4EC4D70
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33624.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33624.jpgsave_picture_33624.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ magnet:?xt=urn:btih:D0C0D2133529DC01B72A4620F4453789A9630D94
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33625.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33625.jpgsave_picture_33625.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ Dan Da Dan | Дандадан [2024, TV, 12 из 12] WEBRip 720p raw
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33626.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33626.jpgsave_picture_33626.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ Adobe Photoshop 2024 25.12.1.994 Full (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33627.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33627.jpgsave_picture_33627.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ magnet:?xt=urn:btih:1CFC44CD7997BB1A89E57E5411945AE4DBFFBD57
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33628.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33628.jpgsave_picture_33628.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Kamierabi | KamiErabi God.app | Избрание божества [2023, TV, 24 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33629.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33629.jpgsave_picture_33629.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ magnet:?xt=urn:btih:630E528369765764310E648A77E343B94EAFEFF9
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33630.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33630.jpgsave_picture_33630.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ magnet:?xt=urn:btih:AA3197A9EDDF3F119EF37C36B77C2C69B30E6E42
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33631.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33631.jpgsave_picture_33631.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ magnet:?xt=urn:btih:A40A428C954DF18092BDA5DA4D8278B7F6065EC5
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33632.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33632.jpgsave_picture_33632.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Microsoft Windows 11 [10.0.22631.4602], Version 23H2 (Updated December 2024) - �
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33633.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33633.jpgsave_picture_33633.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ magnet:?xt=urn:btih:D749E7C1F2B4887E71F1B836E4B78FCDF4B52A0B
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33634.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33634.jpgsave_picture_33634.jpg" />
 </div>
 
 

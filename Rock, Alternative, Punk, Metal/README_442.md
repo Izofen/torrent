@@ -6,7 +6,7 @@ VA - The Devil's Blues Christmas (2015) [MP3|320 Kbps] <Rock, Blues Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239704.jpgsave_picture_239704.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Bully - Lucky For You (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239708.jpgsave_picture_239708.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Cran Arcanaria - Raging Raven (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic, P
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239716.jpgsave_picture_239716.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Terrifier - Trample the Weak, Devour the Dead (2023) [MP3|320 Kbps] <Thrash Meta
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239726.jpgsave_picture_239726.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Alien - Into The Future (2020) Japanese Edition [FLAC|Lossless|image + .cue] <Me
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239732.jpgsave_picture_239732.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Black Hawk - Soulkeeper (2023) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239733.jpgsave_picture_239733.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Trespass - Wolf At The Door (2023) [FLAC|Lossless|WEB-DL|tracks] <NWOBHM, Heavy 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239734.jpgsave_picture_239734.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Stormage - Ashes Of Doom (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239750.jpgsave_picture_239750.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ WITCH - Zango (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239755.jpgsave_picture_239755.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Vansidian - Reflecting The Shadows (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239758.jpgsave_picture_239758.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Land Of The Sun - II (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Psych, Stoner, 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239762.jpgsave_picture_239762.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Cloak - Black Flame Eternal (2023) [FLAC|Lossless|WEB-DL|tracks] <Gothic, Black 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239764.jpgsave_picture_239764.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Great Wide Nothing - Hymns for Hungry Spirits, Vol. I (2020) [MP3|320 Kbps] <Pro
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239769.jpgsave_picture_239769.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Phlebotomized - Clouds of Confusion (2023) [FLAC|Lossless|WEB-DL|tracks] <Avant-
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239770.jpgsave_picture_239770.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Altered Dead - Returned To Life (2021) [FLAC|Lossless|image + .cue] <Death Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239773.jpgsave_picture_239773.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Seer of the Void - Mantra Monolith (2023) [FLAC|Lossless|WEB-DL|tracks] <Doom Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239776.jpgsave_picture_239776.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Gods of Space - 4 Albums (2018-2021) [MP3|320 Kbps] <Sci-Fi Stoner Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239782.jpgsave_picture_239782.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Outroduction - Cubique a Face Centree (2023) [FLAC|Lossless|WEB-DL|tracks] <Prog
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239786.jpgsave_picture_239786.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Deaf Aid - Hellgate (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239787.jpgsave_picture_239787.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ No One Alive - Don't Leave Your Child Alone (2023) [FLAC|Lossless|WEB-DL|tracks]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239788.jpgsave_picture_239788.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Mystic Circle - Erzdamon (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Black, De
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239794.jpgsave_picture_239794.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Shadow of Everest - Where Giants Die (2022) [MP3|320 Kbps] <Progressive Metal, G
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239804.jpgsave_picture_239804.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Oryx - Lamenting a Dead World (2021) [FLAC|Lossless|WEB-DL|tracks] <doom metal, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239809.jpgsave_picture_239809.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Dark Millennium - Acid River (2022) [FLAC|Lossless|image + .cue] <Progressive De
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239811.jpgsave_picture_239811.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Howling Giant - 8 Albums (2015-2021) [MP3|320 Kbps] <Stoner Rock, Doom Metal>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239812.jpgsave_picture_239812.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ ReVamp - ReVamp (2010) Limited Edition [FLAC|Lossless|image + .cue] <Symphonic M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239813.jpgsave_picture_239813.jpg" />
 </div>
 
 

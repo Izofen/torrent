@@ -6,7 +6,7 @@ Xliff Editor 2.9.16 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112701.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112701.jpgsave_picture_112701.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Downie 4 v.4.7.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112702.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112702.jpgsave_picture_112702.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Shadow Matter - Shadow Matter (2018) [FLAC|Lossless|WEB-DL|tracks] <Progressive 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112703.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112703.jpgsave_picture_112703.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:A5CDBF63272C40C5B8D2763E03D25B7030DCA177
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112704.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112704.jpgsave_picture_112704.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ ColorWell 7.4.3 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112705.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112705.jpgsave_picture_112705.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ BetterMouse for Mac 1.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112706.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112706.jpgsave_picture_112706.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:9363D546D8312F03898357524FD2A76476AC11BF
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112707.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112707.jpgsave_picture_112707.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:2F7CFDC5D211B8C6BCE5513FD38C41BB3A6DA1B6
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112708.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112708.jpgsave_picture_112708.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ MediaMate for Mac 3.1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112709.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112709.jpgsave_picture_112709.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ Satra - Sand of Time (2024) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112710.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112710.jpgsave_picture_112710.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ magnet:?xt=urn:btih:60774787CB9AB481A15BF9DBDED1534B255A14F0
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112711.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112711.jpgsave_picture_112711.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ Beyond the Hate - Darkest Times (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic De
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112712.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112712.jpgsave_picture_112712.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ magnet:?xt=urn:btih:43E5D27EB71C9B5073CFC42310CAA569A10ECE6A
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112713.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112713.jpgsave_picture_112713.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ Mp3tag 1.8.19 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112714.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112714.jpgsave_picture_112714.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ PopClip 2024.3.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112715.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112715.jpgsave_picture_112715.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Antonio Sanchez - Live In New York At Jazz Standard (2008) 2CD, 2010, CAM Jazz [
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112716.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112716.jpgsave_picture_112716.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ DVD-Cloner 2024 for Mac v.11.10.741 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112717.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112717.jpgsave_picture_112717.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ magnet:?xt=urn:btih:F57CE98AB6FCA89A71243286F37AD7554A2723D3
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112718.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112718.jpgsave_picture_112718.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ magnet:?xt=urn:btih:76D94328B6714C41DB12AC81705D2835753B73AF
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112719.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112719.jpgsave_picture_112719.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ PowerPhotos 2.5.7 U2B [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112720.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112720.jpgsave_picture_112720.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ eMail Address Extractor 4.7 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112721.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112721.jpgsave_picture_112721.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Fission 2.8.5 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112722.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112722.jpgsave_picture_112722.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Invisible 2.9 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112723.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112723.jpgsave_picture_112723.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Shadow Matter - All this Power (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112724.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112724.jpgsave_picture_112724.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Sandboxie 5.68.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112725.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112725.jpgsave_picture_112725.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Application Wizard 4.6 U2B [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112726.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112726.jpgsave_picture_112726.jpg" />
 </div>
 
 

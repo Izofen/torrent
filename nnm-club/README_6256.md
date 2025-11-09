@@ -6,7 +6,7 @@ Original ENIGMA Voices LIVE 2019 (2023) CamRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196204.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196204.jpgsave_picture_196204.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Avenged Sevenfold - Life Is But A Dream... (2023) [FLAC|Lossless|image + .cue] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196206.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196206.jpgsave_picture_196206.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ magnet:?xt=urn:btih:FBAF1AA9102749F5F59CFEB30804521E037076C2
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_196207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196207.jpgsave_picture_196207.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ magnet:?xt=urn:btih:1DA662E33CE6253343661A4D849CFC55D1E370AE
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196208.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196208.jpgsave_picture_196208.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ magnet:?xt=urn:btih:B41BE105DC9ABE6BABD0DDAAF9F54BA6D753C22F
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_196209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196209.jpgsave_picture_196209.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ magnet:?xt=urn:btih:FD8DC80AB135D18B2EF304261554BD5092D9931A
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196210.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196210.jpgsave_picture_196210.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ magnet:?xt=urn:btih:F390412BD029DB19D1ACF494869231451038C306
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_196211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196211.jpgsave_picture_196211.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ WSCC (Windows System Control Center) 7.0.6.8 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196212.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196212.jpgsave_picture_196212.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ magnet:?xt=urn:btih:DBD0F62D3D7929B27735BEB79FF2C9BB0F781E4D
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_196213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196213.jpgsave_picture_196213.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ magnet:?xt=urn:btih:C71C293FFF602F9CADE2709673780469E88E5A46
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196214.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196214.jpgsave_picture_196214.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ Foxford (Фоксфорд), Дарья Романова | Финансовая �
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196215.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196215.jpgsave_picture_196215.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ magnet:?xt=urn:btih:08B6E1F082729A37DC8708EE1240BFA26CD797F2
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196216.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196216.jpgsave_picture_196216.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ magnet:?xt=urn:btih:BA6EC63F3D6C09F65FCA532EAC543C474333560C
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196217.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196217.jpgsave_picture_196217.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ Psiphon 3 build 179 (03.07.2023) Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196218.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196218.jpgsave_picture_196218.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ magnet:?xt=urn:btih:7E45A732D18C356CC52F86FA9862A336B05BA3A2
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_196219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196219.jpgsave_picture_196219.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Qalculate! 4.7.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196220.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196220.jpgsave_picture_196220.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Kawaisugi Crisis | Too Cute Crisis | Слишком милый кризис [202
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_196221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196221.jpgsave_picture_196221.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ Firefox Browser 115.0.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196222.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196222.jpgsave_picture_196222.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ The Callisto Protocol Digital Deluxe Edition (2022) [PS4] [EUR] 5.05 [HEN] [Lice
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196223.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196223.jpgsave_picture_196223.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ magnet:?xt=urn:btih:2DC5754C16517B248DE6487BEC526864A252E01F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196224.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196224.jpgsave_picture_196224.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ magnet:?xt=urn:btih:6B2CD00F7A262B4FA304234EE99FDDE54432ADB7
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_196225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196225.jpgsave_picture_196225.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Rockets - Five Coloured Numbered Albums (2018-2021) Limited Edition, Numbered, R
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196226.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196226.jpgsave_picture_196226.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ magnet:?xt=urn:btih:D2E71AC9C5A5CD91CB152E3E12DF9D0CCE4B4095
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_196227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196227.jpgsave_picture_196227.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ magnet:?xt=urn:btih:D1162060EC618CD05C4F096448EFAFB6601F648A
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196228.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196228.jpgsave_picture_196228.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ magnet:?xt=urn:btih:76D4155E158E010E91F2EA2CF6D8AB63920E00FB
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196229.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196229.jpgsave_picture_196229.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ magnet:?xt=urn:btih:FC8182BC478B1D1B8C74C9B39F0AEE51E567A560
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196230.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196230.jpgsave_picture_196230.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138365.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138365.jpgsave_picture_138365.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:61BBB6A9DDFF0E61DA351E472AC840DCEFD3D25F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138366.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138366.jpgsave_picture_138366.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Skype 7.17.32.106 Business Edition [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138368.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138368.jpgsave_picture_138368.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Alesha Dixon - Fired Up (2006) Deluxe Edition, 2023, Back On Wax [FLAC|Lossless|
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138370.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138370.jpgsave_picture_138370.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ Comedy Woman. Новогодний выпуск (2016.12.31) SATRip
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138371.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138371.jpgsave_picture_138371.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:1FF45B9C114D77A8367361939385338BD29A39E3
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138372.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138372.jpgsave_picture_138372.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ Steve Draper Quartet - Have A Very Mellow Christmas (1999) Self-Released [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138373.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138373.jpgsave_picture_138373.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ Shadow Tactics: Blades of the Shogun (2016) [Ru/Multi] ( 2.2.10.f) License PROPH
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138374.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138374.jpgsave_picture_138374.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ magnet:?xt=urn:btih:1CCB6D1364075943BD50281E7CC94D793D8A548A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138375.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138375.jpgsave_picture_138375.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ magnet:?xt=urn:btih:084E0C3CEE7FBDD7F78D1ADE062DDAFD4452E973
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138376.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138376.jpgsave_picture_138376.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:EA29F6B7ED8FAB119D87F6B2007A8D127BE8EC27
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138377.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138377.jpgsave_picture_138377.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:A69404CBFC8418E7F136A26A981A786B40A9BCD3
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138378.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138378.jpgsave_picture_138378.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ magnet:?xt=urn:btih:1028F1492B638FB53D77B799371F4E2FBB10AA29
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138380.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138380.jpgsave_picture_138380.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ magnet:?xt=urn:btih:176C26A762F304E04AEC37283776AB0531680D3A
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138381.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138381.jpgsave_picture_138381.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Comedy Баттл. Новый сезон / Комеди Клаб / Comedy Club  
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138383.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138383.jpgsave_picture_138383.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Daum PotPlayer 1.6.57875 Stable RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138384.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138384.jpgsave_picture_138384.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ magnet:?xt=urn:btih:6326029E40E69A10BAE28D02F94E50BCACDC203C
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138385.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138385.jpgsave_picture_138385.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ magnet:?xt=urn:btih:28F82F2B468D2B5F8E9336ED67395AE205125709
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138386.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138386.jpgsave_picture_138386.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ magnet:?xt=urn:btih:1AF26C757218CC8341F4E259E00F755230C16A97
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138387.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138387.jpgsave_picture_138387.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ magnet:?xt=urn:btih:84DFC0FF5BA5D97BD6D0E0CDDC55841422113DA8
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138388.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138388.jpgsave_picture_138388.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ magnet:?xt=urn:btih:A090A2333FF5F9A13D23DE7F03C922EAA48D92F0
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138389.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138389.jpgsave_picture_138389.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ Anvir Task Manager 9.1.12 Final RePack (& Portable) by elchupacabra [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138390.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138390.jpgsave_picture_138390.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ magnet:?xt=urn:btih:7E527F08D94AD37783DB8FAA8D2A128D5561CDFD
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138391.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138391.jpgsave_picture_138391.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ magnet:?xt=urn:btih:97592E8D47AEF1E11FC70C6910D9FDFB8EDF4BEF
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138392.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138392.jpgsave_picture_138392.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ magnet:?xt=urn:btih:DE4C4EDE6FD00BAE36FC3A9720816805230B5D1E
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138393.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138393.jpgsave_picture_138393.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ Stellarium 0.17.0 Portable by PortableApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138395.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138395.jpgsave_picture_138395.jpg" />
 </div>
 
 

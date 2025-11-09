@@ -6,7 +6,7 @@ Lorelei K - Gucci Doom (2023) Deluxe Edition, 2024, Idol Records [FLAC 16,24/44.
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108094.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108094.jpgsave_picture_108094.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Barry Manilow - Barry Live In Britain (Live at The Royal Albert Hall) (1982) Rem
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108096.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108096.jpgsave_picture_108096.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Tony Hadley - The Mood I'm In (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108097.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108097.jpgsave_picture_108097.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Liar Thief Bandit - ICON (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Classic Roc
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108098.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108098.jpgsave_picture_108098.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Remedy - Pleasure Beats the Pain (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <C
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108099.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108099.jpgsave_picture_108099.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Big Head Todd and The Monsters - Her Way Out (2024) [FLAC 24/96|Lossless|WEB-DL|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108101.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108101.jpgsave_picture_108101.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Blue Grooves Trio - Afternoon Cafe Jazz BGM (2024) [FLAC 24/44.1|Lossless|WEB-DL
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108103.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108103.jpgsave_picture_108103.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Frunkyman - The Frunk Is Real (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz, 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108104.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108104.jpgsave_picture_108104.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Scott Gilman - So Far (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108105.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108105.jpgsave_picture_108105.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Collateral - Should've Known Better (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108106.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108106.jpgsave_picture_108106.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Freak Kitchen - Everyone Gets Bloody (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108107.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108107.jpgsave_picture_108107.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Strange Fruit - Once So High (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108108.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108108.jpgsave_picture_108108.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Bob Recchione - Bellissima (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108109.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108109.jpgsave_picture_108109.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Mighty Joe Belson - The Doodle Cats: 2020 Blues (2024) [FLAC 24/96|Lossless|WEB-
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108110.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108110.jpgsave_picture_108110.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Dying Fetus - Make Them Beg for Death (2023) [FLAC|24/192|image + .cue|Vinyl-Rip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108111.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108111.jpgsave_picture_108111.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Joanne Shaw Taylor - Heavy Soul (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Bl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108122.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108122.jpgsave_picture_108122.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Lucassen & Soeterboek's Plan Nine - The Long-Lost Songs (2024) [FLAC 24/44.1|Los
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108123.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108123.jpgsave_picture_108123.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Calvin Russell - Tribute To Calvin Russell (2024) [FLAC 24/48|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108124.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108124.jpgsave_picture_108124.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Ivan Kravchenko - Lady Made of Sand (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108126.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108126.jpgsave_picture_108126.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Johanna Red - Stronger Than You Thought (2024) [FLAC 24/44.1|Lossless|WEB-DL|tra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108129.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108129.jpgsave_picture_108129.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ The Hu - Live At Glastonbury (2024) Live [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108131.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108131.jpgsave_picture_108131.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ The Measure - Heaven Is Only In Our Dreams (2024) [FLAC 24/44.1|Lossless|WEB-DL|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108148.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108148.jpgsave_picture_108148.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Intranced - Muerte Y Metal (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Heavy Met
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108151.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108151.jpgsave_picture_108151.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Goat Girl - Below The Waste (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Indie 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108152.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108152.jpgsave_picture_108152.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Cristiano Giardini - Odisseya (2024) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <Jazz
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108153.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108153.jpgsave_picture_108153.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Adjentist - Ill (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive Metalc
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108155.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108155.jpgsave_picture_108155.jpg" />
 </div>
 
 

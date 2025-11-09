@@ -6,7 +6,7 @@ Indoorlands (2022) [Multi] (1.0.0f3) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204918.jpgsave_picture_204918.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ A Plague Tale: Requiem (2022) [Ru/Multi] (20221017_1052/dlc) Repack DjDI
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_205009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205009.jpgsave_picture_205009.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ We Happy Few (2018) [Ru/Multi] (1.9.88966/dlc) License GOG [Deluxe Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_205010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205010.jpgsave_picture_205010.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Demetrios - The BIG Cynical Adventure (2016) [Ru/Multi] (1.2.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_205116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205116.jpgsave_picture_205116.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ The Plague Doctor of Wippra (2022) [Multi] (1.0.3) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_205205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205205.jpgsave_picture_205205.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Mortal Kombat 11 (2019) [Ru/Multi] (0.384-34-CL237394/dlc) Repack Necros [Ultima
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205629.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205629.jpgsave_picture_205629.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ A Legionary's Life (2019) [Multi] (1.3.14.1) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_205631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205631.jpgsave_picture_205631.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Heroes of Hammerwatch II (2025) [Ru/Multi] (Build 20392961) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205658.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205658.jpgsave_picture_205658.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Planetary Annihilation: TITANS (2015) [Ru/Multi] (124627/dlc) Repack Let'sРlay
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205678.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205678.jpgsave_picture_205678.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Knights and Bikes (2019) [En] (1.12_rc3_v0_u) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_205679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205679.jpgsave_picture_205679.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ The Outer Worlds 2 (2025) [Ru/Multi] (1.0.3.0/dlc) Scene Tenoke [Premium Edition
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205680.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205680.jpgsave_picture_205680.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Sludge Life (2021) [Ru/Multi] (251013) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_205685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205685.jpgsave_picture_205685.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Strange Antiquities (2025) [Ru/Multi] (1.0.40) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205689.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205689.jpgsave_picture_205689.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Nicktoons and The Dice of Destiny (2025) [Ru/Multi] (1.0) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205707.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205707.jpgsave_picture_205707.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Halloween Stories 9: The Death Card / Хеллоуинские истории 9:
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205708.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205708.jpgsave_picture_205708.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ It Happened Here 2: Beacon of Truth / Это случилось здесь 2: С
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206014.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206014.jpgsave_picture_206014.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Royal Romances 4: Endless Winter / Королевские романы 4: Веч
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206030.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206030.jpgsave_picture_206030.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Baby Storm (2023) [Multi] (2.12.4) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206366.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206366.jpgsave_picture_206366.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Our Battle Has Just Begun! episode 2 (2022) [Multi] (1.0) Scene Darksiders
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206436.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206436.jpgsave_picture_206436.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ The Inheritance of Crimson Manor (2022) [Multi] (1.11) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206465.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206465.jpgsave_picture_206465.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Connection of Worlds 2: Star Riddle (2023) [En] (1.0) Unofficial [Collector's Ed
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206654.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206654.jpgsave_picture_206654.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Liberte (2023) [En] (1.0.2.b) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206769.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206769.jpgsave_picture_206769.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Franchise Hockey Manager 9 (2022) [En] (9.4.107) Scene Skidrow
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206819.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206819.jpgsave_picture_206819.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Coffee Talk Episode 2: Hibiscus & Butterfly (2023) [Multi] (1.11) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206848.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206848.jpgsave_picture_206848.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Mystical Riddles 3: Ship From Beyond / Мистические загадки 3: 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206954.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206954.jpgsave_picture_206954.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Probo Rush (2023) [Multi] (1.0.0) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206963.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206963.jpgsave_picture_206963.jpg" />
 </div>
 
 

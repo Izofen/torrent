@@ -6,7 +6,7 @@ Godnolytika, Влад Князев | Готовимся к собеседова�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58711.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58711.jpgsave_picture_58711.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:5F16B3537CAA0961EE4C85281657F10683267616
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58712.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58712.jpgsave_picture_58712.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Teenage Mutant Ninja Turtles Arcade: Wrath of the Mutants (2024) [Multi] (1.0) S
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58713.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58713.jpgsave_picture_58713.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:FE6A2195408FAB4A14936ECA7EA8365274BAAA18
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58714.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58714.jpgsave_picture_58714.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:2B3388BE55ED042DCAA7727C693E64446AE339CC
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58715.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58715.jpgsave_picture_58715.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Adguard 7.17.1 (7.17.4709.0) RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58716.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58716.jpgsave_picture_58716.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:529AAE4E68612235246F2E2EA57F0AE4044C68DC
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58717.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58717.jpgsave_picture_58717.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ BBC: Тайная жизнь кошек / The Secret Life of the Cat (2013) HDTV
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58718.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58718.jpgsave_picture_58718.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ Milan Jovanović | Pragmatic Clean Architecture (2024) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58719.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58719.jpgsave_picture_58719.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Adobe Photoshop 2024 25.7.0.504 Light (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58720.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58720.jpgsave_picture_58720.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ magnet:?xt=urn:btih:9E304AFC33960592B3435B5F5A62EE07A62CAFB3
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58721.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58721.jpgsave_picture_58721.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Canopy Games, Erindale Woodford | Advanced Geometry Nodes for Blender 3.3+ (2022
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58722.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58722.jpgsave_picture_58722.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Eiyuden Chronicle: Hundred Heroes (2024) [Ru/Multi] (1.0/dlc) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58723.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58723.jpgsave_picture_58723.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ BBC: Чудеса времен года / Seasonal Wonderlands (Earth's Greatest
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58724.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58724.jpgsave_picture_58724.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Windows 10 Manager 3.9.4 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58725.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58725.jpgsave_picture_58725.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ JUG Ru Group | GoFunc 2024. Конференция по разработке н�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58726.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58726.jpgsave_picture_58726.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Psiphon 3 build 182 (23.04.2024) Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58727.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58727.jpgsave_picture_58727.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ IObit Driver Booster Pro 11.4.0.60 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58728.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58728.jpgsave_picture_58728.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ Decision: Red Daze (2022) [Ru/Multi] (1.3.3(4)) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58729.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58729.jpgsave_picture_58729.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ INDUSTRIA (2021) [Ru/Multi] (1.3.2) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58730.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58730.jpgsave_picture_58730.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ magnet:?xt=urn:btih:533F5A930691CA221FAA3A6425210B25A27DF4DE
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58731.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58731.jpgsave_picture_58731.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Buccaneers! (2022) [Ru/Multi] (1.1.01) License GOG [VR]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58732.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58732.jpgsave_picture_58732.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ magnet:?xt=urn:btih:53662CD3FEEC096DB09ED6FBF91C2058274717A3
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58733.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58733.jpgsave_picture_58733.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ magnet:?xt=urn:btih:B0E96ED949B70C010D670292D12BED73F5DCAD63
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58734.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58734.jpgsave_picture_58734.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ magnet:?xt=urn:btih:E6A0EDFF01CC30B8A67B97DED997B9C0C9ADDB07
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58735.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58735.jpgsave_picture_58735.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ magnet:?xt=urn:btih:DB7BE5C17AC6543B0CFA0FBCD95CE7D6288F4383
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58736.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58736.jpgsave_picture_58736.jpg" />
 </div>
 
 

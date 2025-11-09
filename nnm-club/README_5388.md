@@ -6,7 +6,7 @@
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166967.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166967.jpgsave_picture_166967.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Realm - Endless War (1988) Reissued 2006 [FLAC|Lossless|image + .cue] <Thrash Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166968.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166968.jpgsave_picture_166968.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ FigrCollage 3.1.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166969.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166969.jpgsave_picture_166969.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:865F960696B4CB927223EEA45C250A8735AF72BF
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166970.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166970.jpgsave_picture_166970.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Resize Sense - Flexible batch image processing 2.3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166971.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166971.jpgsave_picture_166971.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Exhorder - Mourn The Southern Skies (2019) [FLAC|Lossless|image + .cue] <Thrash,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166972.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166972.jpgsave_picture_166972.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:448F41BAE78B60E996D9FAF9CF15D23F9EEB1DD7
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166973.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166973.jpgsave_picture_166973.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ magnet:?xt=urn:btih:5C4D143D6C6172DF2C5E3AC70D5064AEFED0D7A4
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166974.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166974.jpgsave_picture_166974.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ Kaasin - Fired Up (2021) [FLAC|Lossless|tracks + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166975.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166975.jpgsave_picture_166975.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ SiteSucker 4.0.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166976.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166976.jpgsave_picture_166976.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ magnet:?xt=urn:btih:084AB2427647E40B3797812A531E0A3652C5EA86
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166977.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166977.jpgsave_picture_166977.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ magnet:?xt=urn:btih:83F9A0C8C3D0298A59F6E595EC4A808B9870448D
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166978.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166978.jpgsave_picture_166978.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ Charlie Parker - The Complete Savoy & Dial Master Takes (1940-e) 3CD, 2002, Savo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166979.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166979.jpgsave_picture_166979.jpg" />
 </div>
 
 
@@ -340,7 +340,7 @@ Disbelief - Navigator (2007) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166980.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166980.jpgsave_picture_166980.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ Alicia Keys - KEYS (2021) [AAC|~298 Kbps] <Soul, R&B, Pop>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166981.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166981.jpgsave_picture_166981.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ magnet:?xt=urn:btih:A94EFABD0879F5BA81E9C127E585C3D385147CE9
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166982.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166982.jpgsave_picture_166982.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ magnet:?xt=urn:btih:99E257E7E0713F143F149FC96C2D728972952FEE
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166983.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166983.jpgsave_picture_166983.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Leama & Moor - Distance Between Us (2006) Single [FLAC|Lossless|WEB-DL|tracks] <
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166984.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166984.jpgsave_picture_166984.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Crimson Tears - Gothica (2005) [FLAC|Lossless|image + .cue] <Progressive Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166985.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166985.jpgsave_picture_166985.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ System Toolkit 5.1.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166986.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166986.jpgsave_picture_166986.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ magnet:?xt=urn:btih:8B93E2F9F0D84A642063B4520B94F42AA422A3FB
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166987.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166987.jpgsave_picture_166987.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Sigil 2.0.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166988.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166988.jpgsave_picture_166988.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Notebooks - Create Documents, Organize Files, Manage Tasks 2.3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166989.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166989.jpgsave_picture_166989.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Matter Of Taste - Chateau Obscure (1996) [FLAC|Lossless|image + .cue] <Progressi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166990.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166990.jpgsave_picture_166990.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ VA - FROZEN Yellow (2021) [AAC|~300 Kbps] <Dub Techno, Deep House, Deep Techno>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166991.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166991.jpgsave_picture_166991.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ Media Player Classic Home Cinema (MPC-HC) 2.1.0 + Portable (unofficial) [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166992.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166992.jpgsave_picture_166992.jpg" />
 </div>
 
 

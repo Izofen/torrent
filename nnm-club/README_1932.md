@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50589.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50589.jpgsave_picture_50589.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:191B308A464D5AB8BE64E79C686CA13104D2A807
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50590.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50590.jpgsave_picture_50590.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:3DE7ABDA0299E21919A83D828BD65E7B77DD9E36
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50591.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50591.jpgsave_picture_50591.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ GForce - Oberheim OB-1 1.0.0 Standalone, VSTi, VSTi 3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50592.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50592.jpgsave_picture_50592.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:4E730D9DAD4C7A7F0675AD26A0A3CAD30C7434CC
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50593.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50593.jpgsave_picture_50593.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:2DA2304E777603FC3A2B910040C3D1BDB25D98F0
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50594.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50594.jpgsave_picture_50594.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:242F3D9BA84E66B605DA2CFF7B5F911E366F63B5
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50595.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50595.jpgsave_picture_50595.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ Eyes of Destiny (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50596.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50596.jpgsave_picture_50596.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:229FAFFD5295DFF32AD2EFB47F39C7888A6C3EE8
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50597.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50597.jpgsave_picture_50597.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:3E462759E6F0C72CE463DF23A372C4BB414C3F52
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50598.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50598.jpgsave_picture_50598.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Mindroid: AVS, Mind machine v7.3 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50599.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50599.jpgsave_picture_50599.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:31FAE2D1354A7C323EE11DF67CAC5848C44AEFFD
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50600.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50600.jpgsave_picture_50600.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Telegram оштрафовали на 3 млн рублей за неудален
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50601.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50601.jpgsave_picture_50601.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Telegram оштрафовали на 3 млн рублей за неудален
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50602.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50602.jpgsave_picture_50602.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ magnet:?xt=urn:btih:84F7EF570132FD0C7167B6DDCC432AD371714414
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50603.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50603.jpgsave_picture_50603.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:5E5F4C5AF7943FC5DF13C199256365E2F85EBD4B
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50604.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50604.jpgsave_picture_50604.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ magnet:?xt=urn:btih:C17D50C4A41C1C944D47B909F3D33269F26506BA
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50605.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50605.jpgsave_picture_50605.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ magnet:?xt=urn:btih:DD19386483A97C6166E2BA4D145A401EB2F839E3
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50606.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50606.jpgsave_picture_50606.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ City Bus Manager (2024) [Ru/Multi] (2.0.16/dlc) Repack FitGirl [Deluxe Bundle]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50607.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50607.jpgsave_picture_50607.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ magnet:?xt=urn:btih:543D5A978B3F2E4CE18383B9AA5177083E478ED5
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50608.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50608.jpgsave_picture_50608.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ magnet:?xt=urn:btih:543D5A978B3F2E4CE18383B9AA5177083E478ED5
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50609.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50609.jpgsave_picture_50609.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:A61E9E221ACBD5951371BD3E3DFFEE2A442F66D9
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50610.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50610.jpgsave_picture_50610.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ magnet:?xt=urn:btih:EFE167B3EDA79D87DF9738FF8AA2518F21749C91
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50611.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50611.jpgsave_picture_50611.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ magnet:?xt=urn:btih:E42EA698EEE05358F594C4A41F35C494DF465B83
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50612.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50612.jpgsave_picture_50612.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Psiphon 3 build 183 (02.07.2024) Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50613.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50613.jpgsave_picture_50613.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Shrot (2024) [Multi] (1.2) Repack FitGirl
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50614.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50614.jpgsave_picture_50614.jpg" />
 </div>
 
 

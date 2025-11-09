@@ -6,7 +6,7 @@
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4842.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4842.jpgsave_picture_4842.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:C931964007FCAF214183E46BE4EF11BDE4B3D0B8
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4843.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4843.jpgsave_picture_4843.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:250D725DD2A12499E15D30DC63624192B9C11519
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4844.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4844.jpgsave_picture_4844.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ YT Downloader 9.16.7 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4845.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4845.jpgsave_picture_4845.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:14AA78D9F6B96B23C916C45069E25881648A91CD
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4846.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4846.jpgsave_picture_4846.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Michael Jackson - Off The Wall (1979) SACD, Reissue, Remastered, 2025, Mobile Fi
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4847.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4847.jpgsave_picture_4847.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Risk of Rain Returns (2023) [Ru/Multi] (1.1.0) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4848.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4848.jpgsave_picture_4848.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Telegram Desktop 6.1.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4849.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4849.jpgsave_picture_4849.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:18CEEEB6A84C02460888F09B52ACCE2E83C27757
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4850.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4850.jpgsave_picture_4850.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ VA - Music News For Forum vol.132 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4851.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4851.jpgsave_picture_4851.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ INCISION (2022) [En] (1.0) License GOG
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4852.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4852.jpgsave_picture_4852.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ magnet:?xt=urn:btih:65AB1A11AF971A61BFEE2625950E53689D653A5B
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4853.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4853.jpgsave_picture_4853.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ magnet:?xt=urn:btih:46BDDDF57D799A6A0258D3989407C09277627170
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4854.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4854.jpgsave_picture_4854.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ magnet:?xt=urn:btih:89A0EC9E2D41E0D046225E15A0E760DF5CC50573
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4855.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4855.jpgsave_picture_4855.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ FL Studio Producer Edition 25.1.4.4951 - All Plugins Edition + Addons + FLEX Pac
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4856.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4856.jpgsave_picture_4856.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Volume2 1.1.9.469 Beta + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4858.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4858.jpgsave_picture_4858.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ magnet:?xt=urn:btih:7F857A7ADECE650C76575B962727CEE4D4930EEB
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4859.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4859.jpgsave_picture_4859.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Lacey 3.07 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4860.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4860.jpgsave_picture_4860.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ magnet:?xt=urn:btih:309ED354F1D6E200F4AE8B431AB671A94C17275F
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4861.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4861.jpgsave_picture_4861.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ magnet:?xt=urn:btih:B2BE38B57D8528E073B204A8A90F0045548826D8
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4862.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4862.jpgsave_picture_4862.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ magnet:?xt=urn:btih:CB5F521CF5C638EF16727B5BBD63C3A01877D4C8
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4863.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4863.jpgsave_picture_4863.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Wondershare UniConverter 16.7.0.368 RePack (& Portable) by elchupacabra [Multi/R
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4864.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4864.jpgsave_picture_4864.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ FL Studio Producer Edition 25.1.4.4951 - All Plugins Edition + Addons (x64) RePa
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4865.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4865.jpgsave_picture_4865.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ magnet:?xt=urn:btih:2C4509CD877BFA09B9411F5BF97270E633A4F371
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4866.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4866.jpgsave_picture_4866.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ magnet:?xt=urn:btih:E500DA9D470007D062E1C96F564D5E78BA1E9489
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4867.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4867.jpgsave_picture_4867.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Bandicam 8.2.1.2530 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4868.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4868.jpgsave_picture_4868.jpg" />
 </div>
 
 

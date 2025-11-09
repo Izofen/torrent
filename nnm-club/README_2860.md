@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83443.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83443.jpgsave_picture_83443.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Richard Harvey — Арабские ночи [Арабские приключе�
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83449.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83449.jpgsave_picture_83449.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA- Для Юбилея, Дня Рождения Иностранный (2012) [
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83450.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83450.jpgsave_picture_83450.jpg" />
 </div>
 
 
@@ -97,7 +97,7 @@ Space-Rat: Xplode! (L) [Ge] 2012
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83454.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83454.jpgsave_picture_83454.jpg" />
 </div>
 
 
@@ -123,7 +123,7 @@ W.A. Mozart - Early Symphonies 1,2: The English Concert (1879-1882) on authentic
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83455.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83455.jpgsave_picture_83455.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:7BEA4B3BE3855E94034D81390A5693B987A5696E
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83457.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83457.jpgsave_picture_83457.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - Звёзды царской эстрады (приложение к кни�
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83458.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83458.jpgsave_picture_83458.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ Michael Bolton - Gems: The Very Best Of (2012) [MP3|320 кб/с]<Pop-Rock | Ball
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83459.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83459.jpgsave_picture_83459.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ magnet:?xt=urn:btih:86531B08ACAD656C4CAE67FC53798AD30DD537A7
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83460.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83460.jpgsave_picture_83460.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ magnet:?xt=urn:btih:AFA904EC0F31C85E680E169D8B4B2BCC735DFB32
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83461.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83461.jpgsave_picture_83461.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ magnet:?xt=urn:btih:CC7C012AD0118D4253EFE0E4285B020A0FF63F33
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83462.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83462.jpgsave_picture_83462.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Orbit Downloader 4.1.0.5 Final [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83467.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83467.jpgsave_picture_83467.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Mozart - Concertos For Flute and Harp, KV 299: The Amsterdam baroque orchestra (
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83469.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83469.jpgsave_picture_83469.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Archipelagoes / Ух-ты, бухты! (P) [Ru] 2011
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83470.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83470.jpgsave_picture_83470.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ magnet:?xt=urn:btih:EF64A80ECE415F4B44E5A473B91FE76A7826EB03
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83471.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83471.jpgsave_picture_83471.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ magnet:?xt=urn:btih:4DDEF907F5796F9C88F7B04B87D3D5900E1BD0DA
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83474.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83474.jpgsave_picture_83474.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ magnet:?xt=urn:btih:4DDEF907F5796F9C88F7B04B87D3D5900E1BD0DA
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83477.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83477.jpgsave_picture_83477.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ magnet:?xt=urn:btih:587E59C655D8A3002473BD9E41A01BCCE9979F49
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83478.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83478.jpgsave_picture_83478.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ magnet:?xt=urn:btih:587E59C655D8A3002473BD9E41A01BCCE9979F49
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83481.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83481.jpgsave_picture_83481.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ magnet:?xt=urn:btih:464F1BE00156A50AE23FFF642F1EE60E05FA1CE8
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83484.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83484.jpgsave_picture_83484.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ VA - 50 Miami Tunes 2012 WEB [FLAC|Lossless]<Trance, House, Progressive House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83485.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83485.jpgsave_picture_83485.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ VA - 50 Miami Tunes 2012 WEB
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83486.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83486.jpgsave_picture_83486.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ VA - 50 Miami Tunes 2012 WEB
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83487.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83487.jpgsave_picture_83487.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ VA - 50 Miami Tunes 2012 WEB
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83488.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83488.jpgsave_picture_83488.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ magnet:?xt=urn:btih:06BB86DF3767A657C98614EC34885011E6984280
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83489.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83489.jpgsave_picture_83489.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ magnet:?xt=urn:btih:08FF4D0D63D2BCD3B47BE633C1ACAEA9734CA81D
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83490.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83490.jpgsave_picture_83490.jpg" />
 </div>
 
 

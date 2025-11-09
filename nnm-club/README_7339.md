@@ -6,7 +6,7 @@ TrueDO, Сергей Дёмкин | Основы работы ручным фр�
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250980.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250980.jpgsave_picture_250980.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ TrueDO, Ольга Танана | Основы кожевенного дела (
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250982.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250982.jpgsave_picture_250982.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:2C963D4574994A0D411292EE611CBB04F42E5FE7
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250983.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250983.jpgsave_picture_250983.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ TrueDO, Сергей Дёмкин | Основы столярного дела (
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250984.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250984.jpgsave_picture_250984.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ TrueDO, Виталий Кудряшов | Основы сварочного де
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250986.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250986.jpgsave_picture_250986.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ DMG Audio - Compassion v.1.06 x86 x64[VST2|VST3|RTAS][английский]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250987.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250987.jpgsave_picture_250987.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ FavBackup 2.1.3 [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250989.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250989.jpgsave_picture_250989.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ FavBackup – это простая в использовании утилита
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250990.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250990.jpgsave_picture_250990.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:9CDEB64FDB2AA4BD775FA6449E472A9B2C0CBFAF
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250991.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250991.jpgsave_picture_250991.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ VA - Кавказская Дискотека Опа-Опа! (2012) [MP3|256 кб
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250992.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250992.jpgsave_picture_250992.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ magnet:?xt=urn:btih:00677E64B7B16125FDDD7F5DD3A304C3FE4D54F9
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250993.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250993.jpgsave_picture_250993.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ Girls und Panzer: Saishuushou | Girls und Panzer das Finale | Девушки и 
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250994.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250994.jpgsave_picture_250994.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ magnet:?xt=urn:btih:6E96BD3A5EA936216FD5DC4C33FB5C8505BB5A49
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250995.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250995.jpgsave_picture_250995.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ magnet:?xt=urn:btih:606D3595BB159496562DABB8B2E725B19ECBEFEF
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250996.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250996.jpgsave_picture_250996.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ magnet:?xt=urn:btih:0240B31A11D29412CB6966497D3AF1BE7C4E2C29
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250997.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250997.jpgsave_picture_250997.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ magnet:?xt=urn:btih:0240B31A11D29412CB6966497D3AF1BE7C4E2C29
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250998.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250998.jpgsave_picture_250998.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ Matia Bazar - Fantasia (Best & Rarities) (2CD) (2011) [FLAC|Lossless]<Italo-pop>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251000.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251000.jpgsave_picture_251000.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ VA - 70s Relaxing Pop (2025) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251001.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251001.jpgsave_picture_251001.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ VA - The Sound of the 60s (2025) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251002.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251002.jpgsave_picture_251002.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ magnet:?xt=urn:btih:6F77B39667BE72C90EF00F88C5D631D694CDF789
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251004.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251004.jpgsave_picture_251004.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ magnet:?xt=urn:btih:C46B2DC7ACCA4D5B215E5F8290CF49F28DC9AE2A
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251006.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251006.jpgsave_picture_251006.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ magnet:?xt=urn:btih:C46B2DC7ACCA4D5B215E5F8290CF49F28DC9AE2A
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251007.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251007.jpgsave_picture_251007.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ magnet:?xt=urn:btih:C1FDE5B7CF9D922D5F2D2DA28D4780F15ABEF5D8
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251008.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251008.jpgsave_picture_251008.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ magnet:?xt=urn:btih:6D4C5751305BDCB120429D10738CEAA7EEEF6857
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251009.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251009.jpgsave_picture_251009.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ magnet:?xt=urn:btih:6D4C5751305BDCB120429D10738CEAA7EEEF6857
 >>Изобразительное искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251011.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251011.jpgsave_picture_251011.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ magnet:?xt=urn:btih:E9A14AC531525C4E92869373F6558666D560C8D1
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251013.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251013.jpgsave_picture_251013.jpg" />
 </div>
 
 

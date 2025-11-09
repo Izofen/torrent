@@ -6,7 +6,7 @@ Necromortis - Burning Priest (1997) EP [FLAC|Lossless|WEB-DL|tracks] <Death Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_236074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_236074.jpgsave_picture_236074.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:C9EAB2DCA6BA68EE9B46C76338616EA61FC3A6E7
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236076.jpgsave_picture_236076.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:9239C375B6B153F1041B65A2B4B025CBE0675B3E
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_236077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_236077.jpgsave_picture_236077.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Extreme - Six (2023) [FLAC|Lossless|image + .cue] <Hard Rock, Heavy Metal>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236078.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236078.jpgsave_picture_236078.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Silent Winter - The Circles of Hell (2019) [FLAC|Lossless|WEB-DL|tracks] <Power 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236080.jpgsave_picture_236080.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Total Commander 10.50 beta 5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236081.jpgsave_picture_236081.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Loud & Clear - Disc-Connected (2002) [FLAC|Lossless|image + .cue] <Melodic Hard 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236082.jpgsave_picture_236082.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Paramore - This Is Why (2023) [FLAC|Lossless|image + .cue] <Alt. Rock, Pop Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_236084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_236084.jpgsave_picture_236084.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Christian Liljegren - Melodic Passion (2021) [FLAC|Lossless|WEB-DL|image + .cue]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236086.jpgsave_picture_236086.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Jessica Williams - Songs For A New Century (2008) Origin Records [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236087.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236087.jpgsave_picture_236087.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ magnet:?xt=urn:btih:87F14A3427C90AAA59BF55E4A580BF1087601D3A
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236088.jpgsave_picture_236088.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Never Reborn - Ashes of Our Past (2023) [FLAC|Lossless|WEB-DL|tracks] <Black, De
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_236089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_236089.jpgsave_picture_236089.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Windows Firewall Control 6.8.2.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236090.jpgsave_picture_236090.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ VA - Мелодии Друзей (1971) [FLAC 1.0|192/24|image +.cue|Vinyl-Rip] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_236092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_236092.jpgsave_picture_236092.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Carmen Lundy - Soul To Soul (2014) Core Port [FLAC|Lossless|tracks + .cue] <Voca
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236093.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236093.jpgsave_picture_236093.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ magnet:?xt=urn:btih:2422A3E245340C930BBE0673D5EF8C9D6E4DEDCC
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236094.jpgsave_picture_236094.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Necrovescent Ruiner - Untouchable Faith Decay (2023) [FLAC|Lossless|WEB-DL|track
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_236096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_236096.jpgsave_picture_236096.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Aiseesoft Video Converter Ultimate 10.7.8 RePack (& Portable) by elchupacabra [M
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_236097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_236097.jpgsave_picture_236097.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ magnet:?xt=urn:btih:ADB72210CB545698F1AF19872164B756A6B785F7
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236098.jpgsave_picture_236098.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Lumote: The Mastermote Chronicles (2022) [Ru/Multi] (1.5.3-rc5) License GOG [Dig
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236099.jpgsave_picture_236099.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ Exposure Software Blow Up 3 v3.1.4.393 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236100.jpgsave_picture_236100.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ PhotoSweeper X 4.8.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236102.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236102.jpgsave_picture_236102.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:3B9F519CED3BE0801DD82FFE8BE1CE95709CE2F6
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236103.jpgsave_picture_236103.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Danzig - Studio Albums (9 releases) (1994-2017) hand made [restored, declipped] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236104.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236104.jpgsave_picture_236104.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ Molekh - Ritus (2023) [FLAC|Lossless|WEB-DL|tracks] <Avant-garde Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_236105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_236105.jpgsave_picture_236105.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ ExpanDrive 7 v7.7.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236106.jpgsave_picture_236106.jpg" />
 </div>
 
 

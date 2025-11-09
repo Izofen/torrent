@@ -6,7 +6,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22517.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22517.jpgsave_picture_22517.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ KiCad 9.0.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22518.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22518.jpgsave_picture_22518.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ The Planet Crafter (2022) [Ru/Multi] (1.410/dlc) Repack Pioneer
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22519.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22519.jpgsave_picture_22519.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:F361ECB75356CC6A965E95580AAAACE5E8EF1986
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22520.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22520.jpgsave_picture_22520.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:6A088EEAA79FD02EB460A1376DAD5B6AB4AD7518
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22521.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22521.jpgsave_picture_22521.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Kimi no Koto ga Dai Dai Dai Dai Daisuki na 100 Nin no Kanojo 2 | Сто деву
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22522.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22522.jpgsave_picture_22522.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ OpenVPN 2.6.14 Final [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22523.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22523.jpgsave_picture_22523.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Windows избавится от синего «экрана смерти»
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22524.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22524.jpgsave_picture_22524.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Windows избавится от синего «экрана смерти»
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22525.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22525.jpgsave_picture_22525.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:B4C3F07755741F8F37BEC53FC12EB0CEB7BA48B4
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22526.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22526.jpgsave_picture_22526.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ magnet:?xt=urn:btih:6ED918F6B93678211FC1DE06A17F836F89458F52
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22527.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22527.jpgsave_picture_22527.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ American Truck Simulator (2016) [Ru/Multi] (1.54.2.3/dlc) Scene Rune
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22528.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22528.jpgsave_picture_22528.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ iTubeGo YouTube Downloader 10.2.2 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22529.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22529.jpgsave_picture_22529.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ magnet:?xt=urn:btih:EDF5C7336DAF782EFDC167C21C14186DE4FEC8E1
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22530.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22530.jpgsave_picture_22530.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ magnet:?xt=urn:btih:20D245F87BE25F939F35D31E64E8B82D52D6ED39
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22531.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22531.jpgsave_picture_22531.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ magnet:?xt=urn:btih:CA7D60B7C593EDD4C3EB2E51DD4CB68BCF829F47
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22532.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22532.jpgsave_picture_22532.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ magnet:?xt=urn:btih:8939A26523F4A1C54CA12E42A8C278F9CCF20F47
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22533.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22533.jpgsave_picture_22533.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ magnet:?xt=urn:btih:BD15F2277C9AC524D45FC44B76AE84DDDC2E7A81
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22534.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22534.jpgsave_picture_22534.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ magnet:?xt=urn:btih:270DBCB460AB60666AA5A7CD60B5BAA2A80BCB43
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22535.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22535.jpgsave_picture_22535.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Mars Vice (2025) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22536.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22536.jpgsave_picture_22536.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ CopyQ 10.0.0 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22537.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22537.jpgsave_picture_22537.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ magnet:?xt=urn:btih:425850FDD6E2F25957CBF0AA97D0682473F58998
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22538.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22538.jpgsave_picture_22538.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ magnet:?xt=urn:btih:4E8C406FAE00FB7520EAC39CEBDF46F47929D9E2
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22539.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22539.jpgsave_picture_22539.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Fiora (2025) [Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22540.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22540.jpgsave_picture_22540.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ magnet:?xt=urn:btih:A654A2A4189FAB9D32DD1F543A6C4EE434A220FA
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22541.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22541.jpgsave_picture_22541.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Ship Simulator: Maritime Search and Rescue (2014) [Multi] (1.0) Repack R.G. Ме
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22542.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22542.jpgsave_picture_22542.jpg" />
 </div>
 
 

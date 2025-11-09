@@ -6,7 +6,7 @@ Exile - 3 Albums (1973-1979) LP [MP3|320 Kbps] <Pop Rock, Soft Rock, Disco>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139906.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139906.jpgsave_picture_139906.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:9CCE6ABA95386C3C72BF7165919F1BDD2E6C864F
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139907.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139907.jpgsave_picture_139907.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:094FE6E5249E5EF11B07BDD64BB6B66DB58131B5
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139908.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139908.jpgsave_picture_139908.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:F626BB80BFFE9B0B8BE5EBA4F82A63D937A876FB
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139909.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139909.jpgsave_picture_139909.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:A6FA7984EF3DAC08A5DBD4F2C317B9C9437C0A91
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139911.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139911.jpgsave_picture_139911.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:5CC052FA758099B3ECC8F9B21D539F51418B45C9
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139914.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139914.jpgsave_picture_139914.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Acronis Disk Director 12 Build 12.0.3270 RePack by KpoJIuK [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139915.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139915.jpgsave_picture_139915.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ AllWinUSB Constructor by SmokieBlahBlah 28.12.18 [Ru/En]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139916.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139916.jpgsave_picture_139916.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ Wondershare Recoverit 8 v8.5.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139917.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139917.jpgsave_picture_139917.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:F5712B41C7FB996645D1013A1F1730CB768DB79F
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139919.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139919.jpgsave_picture_139919.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:DA036D4F9027C369FB428D87EE8A6C1A67CB2B4B
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139920.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139920.jpgsave_picture_139920.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ magnet:?xt=urn:btih:C089E42AF4FB65FAE42B31B01973191306B2BDE9
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139921.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139921.jpgsave_picture_139921.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ magnet:?xt=urn:btih:2ED822B61D1F5A5ACB54A34D9358F368AD23BA65
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139922.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139922.jpgsave_picture_139922.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ VA - Hit News Vol. 4 '96 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, I
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139924.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139924.jpgsave_picture_139924.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ magnet:?xt=urn:btih:53CCE0CE8C74B31BA90279C526DC5950647F99F2
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139925.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139925.jpgsave_picture_139925.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ magnet:?xt=urn:btih:986EBFF963E8A78F80995BFB6CDBF533DE412070
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139926.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139926.jpgsave_picture_139926.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ magnet:?xt=urn:btih:D5F9B6DEA2FE2752AD3208A9E79C5B7AC0CA0D5F
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139927.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139927.jpgsave_picture_139927.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Eiga Daisuki Pompo-san | Pompo: The Cinephile | Киноманка Помпо [2
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139928.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139928.jpgsave_picture_139928.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Windows 10 x86 x64 DVD  Present by StartSoft 43-49 2018 [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139929.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139929.jpgsave_picture_139929.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Robbie Williams - Different (Maxi-Single) (2012) [MP3|320 кб/с]<Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139931.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139931.jpgsave_picture_139931.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ magnet:?xt=urn:btih:30EE10E0A81E279EB1C7B8FEDBC7305BCB624DB0
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139933.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139933.jpgsave_picture_139933.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ magnet:?xt=urn:btih:73D4AE6F5796C190833493320F6F0FACD5ADACC6
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139934.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139934.jpgsave_picture_139934.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Windows x86 x64 Present by StartSoft 50-2018 Final [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139935.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139935.jpgsave_picture_139935.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ CudaText 1.202.1.0 Portable + addons [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139936.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139936.jpgsave_picture_139936.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ magnet:?xt=urn:btih:112929F30CB523112F944483BBE5E52F55BD5C3C
 >>Приколы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139938.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139938.jpgsave_picture_139938.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ VA - Давай попробуем вернуть (2007) [FLAC|Lossless|image + 
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139941.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139941.jpgsave_picture_139941.jpg" />
 </div>
 
 

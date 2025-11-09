@@ -6,7 +6,7 @@
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23063.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23063.jpgsave_picture_23063.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:035CDD428812A07C1B2EE0B572A10E1936F826FA
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23064.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23064.jpgsave_picture_23064.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Sentai Red Isekai de Boukensha ni Naru | Красный рейнджер ста�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23065.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23065.jpgsave_picture_23065.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:470D3F8AB3DB8B73EFCF39826AB4974BE0761962
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23066.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23066.jpgsave_picture_23066.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:D4EBFB97458522C3611B180020F4BDB229712B6F
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23067.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23067.jpgsave_picture_23067.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:51207FA4E8A03479ACDE63A118EEC6FC4448398C
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23068.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23068.jpgsave_picture_23068.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:5F44727713CCF689783E7686FDE3BEFE5F030F96
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23069.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23069.jpgsave_picture_23069.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:144930FCC90ED4012FC15173B752DC021F473E0E
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23070.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23070.jpgsave_picture_23070.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:100D1888F61F031CDBABAE4511DE0E0FC23290EE
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23071.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23071.jpgsave_picture_23071.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ magnet:?xt=urn:btih:0D94B8A309403AD06B36F30A0D0121F5464A0BD7
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23072.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23072.jpgsave_picture_23072.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ magnet:?xt=urn:btih:57095407037D1B8A29732C1CAAA767E476CF8335
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23073.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23073.jpgsave_picture_23073.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ magnet:?xt=urn:btih:3B2A584F0D39CDE2E6D3DE4CC6BA11381410BF7A
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23074.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23074.jpgsave_picture_23074.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ magnet:?xt=urn:btih:B7C1F63488F24C3938BD1D64A94595B606CF0650
 >>Новинки мирового проката
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23075.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23075.jpgsave_picture_23075.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ magnet:?xt=urn:btih:B7C1F63488F24C3938BD1D64A94595B606CF0650
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23076.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23076.jpgsave_picture_23076.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ The Axis Unseen (2024) [Ru/Multi] (1.092) Repack Wanterlude
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23077.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23077.jpgsave_picture_23077.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ magnet:?xt=urn:btih:6EF230FE32DBF7C54F3996B9D832866C75ACD214
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23078.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23078.jpgsave_picture_23078.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ Endzone 2 (2024) [Ru/Multi] (0.8.9203.21231/dlc) Repack Wanterlude [Early Access
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23079.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23079.jpgsave_picture_23079.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ magnet:?xt=urn:btih:36B58BCB34C700B3ABBFC2A66D16FBFC47BBEF85
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23080.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23080.jpgsave_picture_23080.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ magnet:?xt=urn:btih:951C94167E1F35496DD645CCF46926239AD61353
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23081.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23081.jpgsave_picture_23081.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ magnet:?xt=urn:btih:ED404FED0BFE6CC15C129614F0723F8CE9F2936C
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23082.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23082.jpgsave_picture_23082.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ magnet:?xt=urn:btih:A56EAB7C1E5C7CDBEE03E1B779F89DCD8BFE9F5C
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23083.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23083.jpgsave_picture_23083.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Akuyaku Reijou Tensei Ojisan | From Bureaucrat to Villainess | Пeрeрoждeн�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23084.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23084.jpgsave_picture_23084.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ magnet:?xt=urn:btih:993608717DB755347FAD1A2F577000CEE02DF1D5
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23085.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23085.jpgsave_picture_23085.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ magnet:?xt=urn:btih:E08AF4692B27A22EFD73CF5C10433FAFB1061DAC
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23086.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23086.jpgsave_picture_23086.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Tone Generator PRO 3.78 Mod by Alex.Strannik [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23087.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23087.jpgsave_picture_23087.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ magnet:?xt=urn:btih:50BA9BBDCCDA3ECBB14157BC6B0E704EF53D679B
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23088.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23088.jpgsave_picture_23088.jpg" />
 </div>
 
 

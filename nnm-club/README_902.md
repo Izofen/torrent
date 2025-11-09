@@ -6,7 +6,7 @@ Zenshuu. | Полное исследование [2025, TV, 12 эп.] WebRip 720
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23791.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23791.jpgsave_picture_23791.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ BLEACH Rebirth of Souls (2025) [Ru/Multi] (1.03/dlc) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23792.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23792.jpgsave_picture_23792.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Windows 11, 23H2 (22631.5039) 36in1 (x64) by adguard (v25.03.12) [Ru/En]
 >>Сборки Windows 11
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23793.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23793.jpgsave_picture_23793.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:60BE9C7FBD14F93EE3CD5A450F4857759F28D591
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23794.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23794.jpgsave_picture_23794.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ Coolmuster Android Assistant 5.2.60 RePack (& Portable) by elchupacabra [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23795.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23795.jpgsave_picture_23795.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ The Witcher 2: Assassins of Kings / Ведьмак 2: Убийцы короле�
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23796.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23796.jpgsave_picture_23796.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:F31093C42E7CB398CEF2CED579E96C72DC96492F
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23797.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23797.jpgsave_picture_23797.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ Blackmagic Design DaVinci Resolve Studio 19.1.4 Build 11 (x64) Portable by 7997 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23798.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23798.jpgsave_picture_23798.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ Contraband Police (2023) [Ru/Multi] (Build 17173236) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23799.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23799.jpgsave_picture_23799.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ magnet:?xt=urn:btih:970EADE8D8C87302749CD4646B2E9D241D884BD7
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23800.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23800.jpgsave_picture_23800.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Rogue Waters (2024) [Ru/Multi] (1.0.7.3265) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23801.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23801.jpgsave_picture_23801.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ magnet:?xt=urn:btih:ED6037F0C7034C6D8A6B08BBD2D57315E5AB131A
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23802.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23802.jpgsave_picture_23802.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Red Faction: Guerrilla Re-Mars-tered (2018) [Ru/Multi] (1.0 Fix) License GOG
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23803.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23803.jpgsave_picture_23803.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ magnet:?xt=urn:btih:4ADDD79DF9CEEB5E71C59AB6389B0F7792D234D5
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23804.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23804.jpgsave_picture_23804.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ magnet:?xt=urn:btih:A7F04708D2743C04B258054C83A9D052CF7E28A3
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23805.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23805.jpgsave_picture_23805.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ magnet:?xt=urn:btih:6F95F3E59500C093973C5E3FCF7229D79CC2B043
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23806.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23806.jpgsave_picture_23806.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ magnet:?xt=urn:btih:4ECD3E716CBD79231324A4FDF31D5F2E6DAF1B38
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23807.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23807.jpgsave_picture_23807.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ magnet:?xt=urn:btih:FE14D18E73A3CA7C0C25D81D2F16724720A663AB
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23808.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23808.jpgsave_picture_23808.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ magnet:?xt=urn:btih:9988D2CEA3C1E659A125B973CCAA8E6EC877431D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23809.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23809.jpgsave_picture_23809.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Adobe Acrobat Pro 2025.001.20435 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23810.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23810.jpgsave_picture_23810.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ magnet:?xt=urn:btih:EF96F429B0512B80F18AE823EF177CE1466F4705
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23811.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23811.jpgsave_picture_23811.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ magnet:?xt=urn:btih:2C9958AE3A7427667D4FDA6A6F0ACE21BDE41B67
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23812.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23812.jpgsave_picture_23812.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ magnet:?xt=urn:btih:2D57A0CA306D8C343677CF4E60BFBB15A3864B89
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23813.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23813.jpgsave_picture_23813.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ magnet:?xt=urn:btih:39D24BD5E656B1EC4828624E6DC65C67BDD8D83A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23814.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23814.jpgsave_picture_23814.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Windows 10, 22H2 [19045.5608] 64in2 (x86-x64) by adguard (v25.03.12) [Ru/En]
 >>Сборки Windows 10
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23815.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23815.jpgsave_picture_23815.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ StarCrawlers Chimera (2021) [En] (1.3.1) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23816.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23816.jpgsave_picture_23816.jpg" />
 </div>
 
 

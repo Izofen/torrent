@@ -6,7 +6,7 @@ VA - Pure Dreams, Vol. 1 (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115846.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115846.jpgsave_picture_115846.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Max Cruise - Heatwave (2023) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115856.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115856.jpgsave_picture_115856.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Two Friends - Big Bootie Mix Vol. 24 (2024-02-15) [MP3|320 Kbps] <Dance, Electro
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115858.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115858.jpgsave_picture_115858.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ VA - A State of Trams Rotterdam, Netherlands (2024-02-05) [MP3|320 Kbps] <Trance
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115859.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115859.jpgsave_picture_115859.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ Allie X - 2 Albums (2020-2024) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Canadian
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115870.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115870.jpgsave_picture_115870.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ Nutronic - Futures / Futures (Instrumentals) (2021) [FLAC|Lossless|WEB-DL|tracks
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115871.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115871.jpgsave_picture_115871.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ Industrial Destruction - Indifference (2024) [FLAC 24/44.1|Lossless|WEB-DL|track
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115875.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115875.jpgsave_picture_115875.jpg" />
 </div>
 
 
@@ -196,7 +196,7 @@ Jean Michel Jarre - Versailles 400 Live (2024) [FLAC|Lossless|WEB-DL|tracks] <El
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115910.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115910.jpgsave_picture_115910.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ VA - Ancient Egypt Seasons - Akhet (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115979.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115979.jpgsave_picture_115979.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ VA - Ancient Egypt Seasons - Peret (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116012.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116012.jpgsave_picture_116012.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ VA - Trance Winter 2024 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116013.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116013.jpgsave_picture_116013.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ Eight Seconds - Almacantar (1986) [FLAC|Lossless|WEB-DL|tracks] <New Wave, Synth
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116345.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116345.jpgsave_picture_116345.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ VA - Tranceparent Vol. 1 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116351.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116351.jpgsave_picture_116351.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ Eight Seconds - Big Houses (1990) [FLAC|Lossless|WEB-DL|tracks] <New Wave, Progr
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116352.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116352.jpgsave_picture_116352.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ Murdock - X-Ray (2024) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116364.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116364.jpgsave_picture_116364.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ VA - Gaming Music Chill After Hours (2024) [MP3|320 Kbps] <Dance, Club, House, E
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116370.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116370.jpgsave_picture_116370.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ VA - Vocal Trance 2024 (2024) [MP3|320 Kbps] <Trance, Vocal Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116386.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116386.jpgsave_picture_116386.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Red Zone Planet - Asteria (2023) [MP3|320 Kbps] <Synthwave, Space Rock>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116393.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116393.jpgsave_picture_116393.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Smash Palace - Smash Palace (1985) [FLAC|Lossless|WEB-DL|tracks] <New Wave, Powe
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116491.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116491.jpgsave_picture_116491.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ VA - Milk & Sugar Winter Sessions 2024 (2024) [MP3|320 Kbps] <House, Deep House,
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116706.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116706.jpgsave_picture_116706.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ V.A. - Buddha-Bar XXVI (2024) 2CD [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Loun
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116717.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116717.jpgsave_picture_116717.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ VA (Armin Van Buuren) - A State of Trance 2024 - DESTINATION (The Official Album
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116733.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116733.jpgsave_picture_116733.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ VA - Best of Chill out Sexy Music (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, 
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116883.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116883.jpgsave_picture_116883.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ Kanka + Bodewell - Stroboscope (2024) [FLAC|Lossless|WEB-DL|tracks] <EBM, Synthp
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116885.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116885.jpgsave_picture_116885.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Karl Bartos (ex-Kraftwerk) - The Cabinet Of Dr. Caligari (2024) [FLAC 24/44.1|Lo
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116889.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116889.jpgsave_picture_116889.jpg" />
 </div>
 
 
@@ -683,7 +683,7 @@ Kasra - Dream Metal (2024) [FLAC|Lossless|WEB|tracks] <Drum & Bass>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116908.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116908.jpgsave_picture_116908.jpg" />
 </div>
 
 

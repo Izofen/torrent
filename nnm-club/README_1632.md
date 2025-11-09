@@ -6,7 +6,7 @@ Elon and the Divine Proof (2024) [Multi] (1.5a) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42789.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42789.jpgsave_picture_42789.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Windows 11 Pro 23H2 22631.4169 x64 by SanLex [Lightweight] [Ru/En] (2024.09.21)
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42790.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42790.jpgsave_picture_42790.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:D2EBF297447F2AB4AC508061C27F588276B47D43
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42791.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42791.jpgsave_picture_42791.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ DREDGE (2023) [Ru/Multi] (2879/dlc) License GOG [Digital Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42792.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42792.jpgsave_picture_42792.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ Sin Episodes: Emergence (2006) [Ru] (1.0/dlc) Repack Fenixx
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42793.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42793.jpgsave_picture_42793.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:687C2DE9E094FD6C96E235353D4698D143AE3435
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42794.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42794.jpgsave_picture_42794.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Portal Reloaded (2021) [En] (1.0.1HF) Repack dixen18
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42795.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42795.jpgsave_picture_42795.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ Windows 10 Pro 22H2 build 19045.4651 x64 by LaK [Ru]
 >>Песочница ПО и сборок Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42796.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42796.jpgsave_picture_42796.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:18552E064DB1851093FC8EB58704C9FB05FE16CB
 >>Сатирики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42797.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42797.jpgsave_picture_42797.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Radio Tapok - Дискография (2016-2024) [MP3|320 Kbps] <Rock, Punk Rock
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42798.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42798.jpgsave_picture_42798.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ Kaspersky 21.18.5.438 Standard | Plus | Premium [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42799.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42799.jpgsave_picture_42799.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:B5E3E8846E1D47FB55AAD050104EF33E73338DDF
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42800.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42800.jpgsave_picture_42800.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ magnet:?xt=urn:btih:3C31934A17F110DEE69FD80A2703BA84BCDA2DAF
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42801.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42801.jpgsave_picture_42801.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ magnet:?xt=urn:btih:3C31934A17F110DEE69FD80A2703BA84BCDA2DAF
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42802.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42802.jpgsave_picture_42802.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ magnet:?xt=urn:btih:7638BEC7F83750528AFBCEA0DA2C3DE03A92C11F
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42803.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42803.jpgsave_picture_42803.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ magnet:?xt=urn:btih:B2C91EB34336678ED3653B953F783DE80D35804D
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42804.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42804.jpgsave_picture_42804.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Life is Strange 2 (2018) [Ru/Multi] (build 4874667/dlc) Repack dixen18 [Complete
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42805.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42805.jpgsave_picture_42805.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ Anger Foot (2024) [Ru/Multi] (1.46) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42806.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42806.jpgsave_picture_42806.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ Assassin's Creed II (2010) [Ru/Multi] (1.01/dlc) Repack dixen18
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42807.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42807.jpgsave_picture_42807.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ MediaHuman YouTube Downloader 3.9.9.96 (1909) RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42808.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42808.jpgsave_picture_42808.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ magnet:?xt=urn:btih:9BB1E71BE7FA3BD2B2E9582C25C0DCE65AE1B5B0
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42809.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42809.jpgsave_picture_42809.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:6E5DBBD51956CE427B328C15494498726FD486F5
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42810.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42810.jpgsave_picture_42810.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ magnet:?xt=urn:btih:8CF32E3B1EA2BD8B2B09737D42EF43BB9E2E5550
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42811.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42811.jpgsave_picture_42811.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Cerrone - Discoset 1 (2024) EP [FLAC|Lossless|WEB-DL|tracks] <Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42812.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42812.jpgsave_picture_42812.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ magnet:?xt=urn:btih:1A0A0A1E7D61E0510E9BFAADD2B472709F5C1CE6
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42813.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42813.jpgsave_picture_42813.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Garden Witch Life (2024) [Multi] (1.0) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42814.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42814.jpgsave_picture_42814.jpg" />
 </div>
 
 

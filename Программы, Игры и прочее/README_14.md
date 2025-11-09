@@ -6,7 +6,7 @@ AyuGram - неофициальный клиент Telegram 11.5.3 Mod by NURIK [
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26310.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26310.jpgsave_picture_26310.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Thenx v6.0.4 [En] Mod by youarefinished
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26553.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26553.jpgsave_picture_26553.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Bria Mobile: VoIP Softphone v6.19.1 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26576.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26576.jpgsave_picture_26576.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ MiHome v10.2.702 Mod by Vevs [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26579.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26579.jpgsave_picture_26579.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ All Recovery / Восстановление удаленных файлов v1.3
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26601.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26601.jpgsave_picture_26601.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ Medativo Meditation Timer / Таймер Медитации v1.3.7 Mod by Alex.S
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26670.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26670.jpgsave_picture_26670.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ MobiOffice (ex. OfficeSuite) Premium + PDF v15.2.55213 Extra Mod by Balatan [Ru/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26682.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26682.jpgsave_picture_26682.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Legacy - Reawakening v1.0.7.3 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26762.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26762.jpgsave_picture_26762.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Street Fighter IV CE v1.08.00 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26788.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26788.jpgsave_picture_26788.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ CamScanner v6.82.0.2502180000 Mod by derrin [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26825.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26825.jpgsave_picture_26825.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Bright Memory: Infinite v1.2 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26846.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26846.jpgsave_picture_26846.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Carmen Sandiego NETFLIX v1.0.1g [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26900.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26900.jpgsave_picture_26900.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Shogun's Curse v1.1 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26909.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26909.jpgsave_picture_26909.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Ninja Turtles: Legends v1.26.5 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26916.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26916.jpgsave_picture_26916.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ ISOLAND: Pumpkin Town v1.0.14 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26925.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26925.jpgsave_picture_26925.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Cover Fire: Offline Shooting v1.32.17 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26950.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26950.jpgsave_picture_26950.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Grimvalor v1.2.9 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27023.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27023.jpgsave_picture_27023.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Figment 2: Creed Valley v1.0.56 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27035.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27035.jpgsave_picture_27035.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ magnet:?xt=urn:btih:1A73C7C96A77B07A3FBE21922ED65030AD01F577
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27056.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27056.jpgsave_picture_27056.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Dragon Quest X Offline v1.0.0 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27089.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27089.jpgsave_picture_27089.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ Dungeons of Dreadrock 2 v1.0.4 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27095.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27095.jpgsave_picture_27095.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ Grand Mountain Adventure 2 v1.010 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27190.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27190.jpgsave_picture_27190.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Serial Cleaner v1.1.8 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27203.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27203.jpgsave_picture_27203.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ VN - Video Editor / VN - Видеоредактор v2.4.2 Mod by MustHave [Ru/M
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27400.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27400.jpgsave_picture_27400.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ MAPS.ME: Offline maps GPS Nav v16.3.71801 Mod by Balatan [Ru/Multi]
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27465.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27465.jpgsave_picture_27465.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ magnet:?xt=urn:btih:CC21E30F6FA008E06425AC6A12283E6D85E5FF1A
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27510.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27510.jpgsave_picture_27510.jpg" />
 </div>
 
 

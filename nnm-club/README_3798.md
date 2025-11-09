@@ -6,7 +6,7 @@ JetBrains DataSpell for Mac 2023.3.3 Intel/ARM [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119128.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119128.jpgsave_picture_119128.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Bryan Adams - Waking Up The Neighbours (1991) 1st German Press [APE|Lossless|ima
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119129.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119129.jpgsave_picture_119129.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:59D45C19F5C14F7AD0934B937FE1188757A566F8
 >>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119130.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119130.jpgsave_picture_119130.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Ars no Kyojuu | Ars no Kyojuu | Гигантский зверь Арса [2023, 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119131.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119131.jpgsave_picture_119131.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Arcane Tales - Until Where The Northern Lights Reign (2024) [FLAC 24/44.1|Lossle
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119132.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119132.jpgsave_picture_119132.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:A55F1EA7BBA24FD6CCB86237CC23BFC9485C6B94
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119133.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119133.jpgsave_picture_119133.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ DJ PafTron - Freestyle Arena (2023) [MP3|320 Kbps] <Freestyle, Electronic, Break
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119134.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119134.jpgsave_picture_119134.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ Lacey Free Music & Video Downloader 2.93 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119135.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119135.jpgsave_picture_119135.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ magnet:?xt=urn:btih:EEC3546CB997AB54B32DB9756856A4A20D987C04
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119136.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119136.jpgsave_picture_119136.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ K-Lite Codec Pack Update 18.0.6 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119137.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119137.jpgsave_picture_119137.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ magnet:?xt=urn:btih:20B31E62FD74689D4A970EE592430B9BB6FB59E8
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119138.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119138.jpgsave_picture_119138.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ Metallica - Metallica (1991) 1st German Press [APE|Lossless|image + .cue] <Thras
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119139.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119139.jpgsave_picture_119139.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ magnet:?xt=urn:btih:340E6BE24434DCB09BAE48133BCC3E2FB87230E6
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119140.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119140.jpgsave_picture_119140.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ Chromium-Gost 121.0.6167.139 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119141.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119141.jpgsave_picture_119141.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ magnet:?xt=urn:btih:EB3A87E569A02FE22956CC258987134944B2D58A
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119142.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119142.jpgsave_picture_119142.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ magnet:?xt=urn:btih:A550CF477DA2F1CAD288CD83DD3F45F6AD9FFCBB
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119143.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119143.jpgsave_picture_119143.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ magnet:?xt=urn:btih:6F0ACDABF0404369561AC8B46051596A705B9911
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119144.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119144.jpgsave_picture_119144.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ Attribute Changer 11.30a + Portable [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119145.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119145.jpgsave_picture_119145.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ OneCommander Pro 3.68.1.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119146.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119146.jpgsave_picture_119146.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ magnet:?xt=urn:btih:8B554BDA99AFBAEEB8865680E8B00AF7E38B2F71
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119147.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119147.jpgsave_picture_119147.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ The Outside Agency - Machine Visions (2024) [FLAC|Lossless|WEB-DL|tracks] <Hardc
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119148.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119148.jpgsave_picture_119148.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Kim Wilde - Love Moves (1990) 1st German Press [APE|Lossless|image + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119149.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119149.jpgsave_picture_119149.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Zoner Photo Studio X 19.2309.2.517 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119150.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119150.jpgsave_picture_119150.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ magnet:?xt=urn:btih:78A6AEA945D875AF31B8B13991CF9C8D8BCCFC85
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119151.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119151.jpgsave_picture_119151.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ VA - Моя Любимая... (1995) German Press [APE|Lossless|image + .cue] <R
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119152.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119152.jpgsave_picture_119152.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ magnet:?xt=urn:btih:16D46FA013C8AA91CEB92DB6DB6F4F55363EFB4F
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119153.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119153.jpgsave_picture_119153.jpg" />
 </div>
 
 

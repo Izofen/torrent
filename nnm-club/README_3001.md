@@ -6,7 +6,7 @@
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90458.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90458.jpgsave_picture_90458.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:3748EF330A6D6DBB448FDEDD962F6CEF663F5CAE
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90460.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90460.jpgsave_picture_90460.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:4EC96D99E22C92DCD43AC05BE84BF2C38F6CF1C6
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90462.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90462.jpgsave_picture_90462.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:F12A327C6477A740C2DCD52099528B81499E94BD
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90465.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90465.jpgsave_picture_90465.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Ashampoo WinOptimizer 9.4.3 [Multi/Rus] + Portable by Boomer
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90467.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90467.jpgsave_picture_90467.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Ashampoo WinOptimizer - новая 9-ая линейка пакета прогр
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90468.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90468.jpgsave_picture_90468.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - Мы военной разведки спецназ (2005) [MP3|256 кб/с
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90469.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90469.jpgsave_picture_90469.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ Dr.Web LiveCD 6.0.0  (23.04.2012) 6.0.0 [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90471.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90471.jpgsave_picture_90471.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Kvisoft Flash Photo Gallery 1.5.3 [English]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90473.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90473.jpgsave_picture_90473.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ IconGroups 1.4.2 [Multi/Rus] Portable
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90477.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90477.jpgsave_picture_90477.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ IconGroups - симпатичная программка поможет Вам �
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90482.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90482.jpgsave_picture_90482.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ magnet:?xt=urn:btih:D092EE6628776991B43D4E4E433465C45AD79002
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90483.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90483.jpgsave_picture_90483.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ magnet:?xt=urn:btih:00860EF142EF164C109651D5C4D8225AF71292BC
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90484.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90484.jpgsave_picture_90484.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ magnet:?xt=urn:btih:00860EF142EF164C109651D5C4D8225AF71292BC
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90486.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90486.jpgsave_picture_90486.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ magnet:?xt=urn:btih:558EC76E3DC8EA60C882D029DA051B7DC1D0353E
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90487.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90487.jpgsave_picture_90487.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ magnet:?xt=urn:btih:558EC76E3DC8EA60C882D029DA051B7DC1D0353E
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90490.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90490.jpgsave_picture_90490.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Internet Download Manager 6.11 Build 5 Final RePack by KpoJIuk [Русский, 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90495.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90495.jpgsave_picture_90495.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Internet Download Manager (IDM) – удобный инструмент, поз�
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90499.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90499.jpgsave_picture_90499.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Sova film | Самомассаж: снимаем боль своими рука�
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90502.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90502.jpgsave_picture_90502.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Sova film | Самомассаж: снимаем боль своими рука�
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90505.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90505.jpgsave_picture_90505.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ magnet:?xt=urn:btih:640AEF42668264B3E1CF96691C421954709B5A3E
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90506.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90506.jpgsave_picture_90506.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ LEGO Indiana Jones [Native] [Eng]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90510.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90510.jpgsave_picture_90510.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ magnet:?xt=urn:btih:9B6CA494AD0D8C3FCA398EB2ED6FD161A8829952
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90511.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90511.jpgsave_picture_90511.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ magnet:?xt=urn:btih:9B6CA494AD0D8C3FCA398EB2ED6FD161A8829952
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90515.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90515.jpgsave_picture_90515.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Eros Ramazzotti - Eros Best Love Songs (2012) [FLAC|Lossless]<Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90517.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90517.jpgsave_picture_90517.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Nightlong: Union City Conspiracy [Ru] (RePack) 1998 | Kirill Games
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90518.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90518.jpgsave_picture_90518.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Deadpool (2013) [Ru/En] (1.0/dlc) Repack dixen18
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58087.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58087.jpgsave_picture_58087.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:F2F752D29CA8BE6B48E47D5FC91645B8DF78D265
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58088.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58088.jpgsave_picture_58088.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ LinguaTrip, Марина Могилко, Веня Пак, Анжела Пиро�
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58089.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58089.jpgsave_picture_58089.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Infostart, Анна Щепина | Проектирование интерфей
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58090.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58090.jpgsave_picture_58090.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Project MIKHAIL: A Muv-Luv War Story (2024) [Multi] (1.0000.5178) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58091.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58091.jpgsave_picture_58091.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:41E6D912B8C5003894B264A32443634685FF630E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58092.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58092.jpgsave_picture_58092.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Windows 10 (v22h2) x64 HSL/PRO by KulHunter v17 (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58093.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58093.jpgsave_picture_58093.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:6C51F21C44A201FB718BAD85B5192EF03D570B50
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58094.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58094.jpgsave_picture_58094.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:275825BA1C33A670C55643D4F963AA3047C2235C
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58095.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58095.jpgsave_picture_58095.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ XPiratez - Labyrinthus Noctis (2024) [Ru/En] (N8) Repack/Mod AndyFox
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58096.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58096.jpgsave_picture_58096.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:92B1772CDA82379A0F5B1BB4AF777DACBFD4A167
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58097.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58097.jpgsave_picture_58097.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ AOMEI Partition Assistant Standard Edition 10.4.0 [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58098.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58098.jpgsave_picture_58098.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Dawn of Man (2019) [Multi] (1.8.2) License GOG (обновляемая)
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58099.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58099.jpgsave_picture_58099.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Microsoft® Windows® 10 Professional VL x86-x64 22H2 RU by OVGorskiy 04.2024
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58100.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58100.jpgsave_picture_58100.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ magnet:?xt=urn:btih:E142836D482A7C93D448CED11DE6C5471109B680
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58101.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58101.jpgsave_picture_58101.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:A0F8DC9BD45ABC0C0B35FDF83F02D530892FBCF7
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58102.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58102.jpgsave_picture_58102.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ magnet:?xt=urn:btih:C3E00C4F43DD384101DED4AC8B4AED19DFFD83C8
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58103.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58103.jpgsave_picture_58103.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ War Hospital (2024) [Multi] (1.10/dlc) License GOG [Supporter Edition]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58104.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58104.jpgsave_picture_58104.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:3838224D6EE570B6B79CD0106B7A6467CDCEE523
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58105.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58105.jpgsave_picture_58105.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ magnet:?xt=urn:btih:D7C1C14BE2557E7BBC7E7494A5909004E5B548F7
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58106.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58106.jpgsave_picture_58106.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Nokia 3210 возвращается спустя 25 лет
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58107.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58107.jpgsave_picture_58107.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Cпустя 25 лет HMD возвращает культовую модель N
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58108.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58108.jpgsave_picture_58108.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ magnet:?xt=urn:btih:C3BCEB8EB08BD7313D86E9A8F8BEEF6F13D95C32
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58109.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58109.jpgsave_picture_58109.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ magnet:?xt=urn:btih:3B1B57FBFA649ACD0B7D3F20121AA62B4708EA26
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58110.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58110.jpgsave_picture_58110.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Three Kingdoms Story: Conussia (2020) [Ru/En] (27042024/dlc) License GOG [18+]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58111.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58111.jpgsave_picture_58111.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ magnet:?xt=urn:btih:7B3BD35D04F251F168554EB162DD680836C01891
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58112.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58112.jpgsave_picture_58112.jpg" />
 </div>
 
 

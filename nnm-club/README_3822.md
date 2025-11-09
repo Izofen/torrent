@@ -6,7 +6,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119757.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119757.jpgsave_picture_119757.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:000E2B983D41617710826736A5FC565374626103
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119758.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119758.jpgsave_picture_119758.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Sandboxie 5.67.8 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119759.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119759.jpgsave_picture_119759.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Guns N' Roses - Appetite for Destruction (1987) [FLAC|24/192|image + .cue|Vinyl-
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119760.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119760.jpgsave_picture_119760.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:4C442A97E71BEA7AB3B36B5D28953CB0CA5445DD
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119761.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119761.jpgsave_picture_119761.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:A59CF335809C65EEE97B14A53C525C44E60183A0
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119762.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119762.jpgsave_picture_119762.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:5487AC47F2A68BA337AF3863535CA58456BDBEA1
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119763.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119763.jpgsave_picture_119763.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ Guns N' Roses - G N' R Lies (1988) [FLAC|24/192|image + .cue|Vinyl-Rip] <Hard Ro
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119764.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119764.jpgsave_picture_119764.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ Room Arranger 9 fo Mac 9.8.2 U2B [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119765.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119765.jpgsave_picture_119765.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ magnet:?xt=urn:btih:62457B3021B3BB8081E068A75BB2F63455FBC38F
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119766.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119766.jpgsave_picture_119766.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ Serial Box & SerialSeeker 02-2024 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119767.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119767.jpgsave_picture_119767.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ VA - Infrasonic Winter Selection (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119768.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119768.jpgsave_picture_119768.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ Caligula's Horse - Charcoal Grace (2024) [FLAC|Lossless|WEB-DL|tracks] <Progress
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119769.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119769.jpgsave_picture_119769.jpg" />
 </div>
 
 
@@ -341,7 +341,7 @@ Kayak - Seventeen (2018) 2 x CD [FLAC|Lossless|tracks + .cue] <Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119770.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119770.jpgsave_picture_119770.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ MediaInfo for Mac 24.01 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119771.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119771.jpgsave_picture_119771.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ magnet:?xt=urn:btih:B13195D8EBE06990729A44C10B0B2E7E5B3684DE
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119772.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119772.jpgsave_picture_119772.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ magnet:?xt=urn:btih:2DB7E78A7DAA4D6D205EB0970F49B07C671267B3
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119773.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119773.jpgsave_picture_119773.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ magnet:?xt=urn:btih:4277881F974500ED49D2F8A5EA27E011CFC817AA
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119774.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119774.jpgsave_picture_119774.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ INVRS - Live @ Ural Mountains for SE:VER, Russia (2024-01-23) [MP3|320 Kbps] <Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119775.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119775.jpgsave_picture_119775.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ VA - Cupid's Heartbeat Sensational Bossa Nova Music, Romantic Latin Jazz, Brazil
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119776.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119776.jpgsave_picture_119776.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Soul Browser 1.4.03 Mod by AnBo39 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119777.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119777.jpgsave_picture_119777.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Sandboxie plus 1.12.8 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119778.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119778.jpgsave_picture_119778.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ VA - Soft Lights Romantic Night Jazz & Sensual Flamenco Guitar to Ignite Your Se
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119779.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119779.jpgsave_picture_119779.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Ashley Ryan - Too Far Gone (2024) [FLAC|Lossless|WEB-DL|tracks] <Contemporary Co
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119780.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119780.jpgsave_picture_119780.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ Smooth Jazz Music Academy - Winter's Warmth Relaxing Jazz with Hot Chocolate (20
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119781.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119781.jpgsave_picture_119781.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ Club Des Belugas - Remixes (2024) [FLAC|Lossless|WEB-DL|tracks] <Nu Jazz, Broken
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119782.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119782.jpgsave_picture_119782.jpg" />
 </div>
 
 

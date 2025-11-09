@@ -6,7 +6,7 @@
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109775.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109775.jpgsave_picture_109775.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:FD1CEEA94A55CBFFE371ED9FECCEE41EA43B3D81
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109776.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109776.jpgsave_picture_109776.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ VA - Armin van Buuren - A State Of Trance 1172 (2024) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109777.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109777.jpgsave_picture_109777.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Nils - Feelin' Good (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109778.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109778.jpgsave_picture_109778.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ PhotoDirector - Редактор фото 19.2.0 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109779.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109779.jpgsave_picture_109779.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Praying Mantis - Defiance (2024) Japanese Edition [FLAC|Lossless|image + .cue] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109780.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109780.jpgsave_picture_109780.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ AfterTime - Arcane Horizons (2024) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109781.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109781.jpgsave_picture_109781.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Freedom Call - Silver Romance (2024) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109782.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109782.jpgsave_picture_109782.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Hexe - Дурак (2024) [MP3|320 Kbps] <Alternative>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109783.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109783.jpgsave_picture_109783.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ VA - Modern Rock Mavericks (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109784.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109784.jpgsave_picture_109784.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Feuerschwanz - Warriors (2024) [FLAC|Lossless|WEB-DL|tracks] <Gothic, Black, Dea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109785.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109785.jpgsave_picture_109785.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Haylen - Compilation (2024) [MP3|320 Kbps] <Rock, Pop Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109786.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109786.jpgsave_picture_109786.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Robotic attacks - Robot is here (2014) [MP3|320 Kbps] <Spacesynth>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109787.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109787.jpgsave_picture_109787.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Scotty McCreery - Rise & Fall (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Countr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109788.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109788.jpgsave_picture_109788.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Intru.Der - The First Journey (2013) [MP3|320 Kbps] <Spacesynth>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109789.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109789.jpgsave_picture_109789.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Bobina - Catchy! (20th Anniversary Edition) (2024) [FLAC|Lossless|tracks] <Tranc
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109790.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109790.jpgsave_picture_109790.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ Foo Fighters - Studio Albums (12 releases) (1995-2023) hand made [restored, decl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109791.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109791.jpgsave_picture_109791.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ Imagination - The Golden Hits (2024) [FLAC|Lossless|WEB-DL|tracks] <R&B, Disco>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109792.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109792.jpgsave_picture_109792.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ magnet:?xt=urn:btih:A6CF7320568269EAE4BE0D3CB64794C7A59F00FC
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109793.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109793.jpgsave_picture_109793.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ magnet:?xt=urn:btih:A0D9475AE843C88D9FC181B73C1504F81F2AE122
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109794.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109794.jpgsave_picture_109794.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ magnet:?xt=urn:btih:885210F840DDFBDE767DC36D2B19B0FAAA299D7C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109795.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109795.jpgsave_picture_109795.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ magnet:?xt=urn:btih:C89727B3DFC3D8AC36F14C77662792C83AC553D6
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109796.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109796.jpgsave_picture_109796.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Elyanna - WOLEDTO (2024) [MP3|320 Kbps] <World, Arabic, R&B>
 >>Folk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109797.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109797.jpgsave_picture_109797.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Dessar - Кошмар (посв. студентам РГГУ) (2024) WEBRip [H.2
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109798.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109798.jpgsave_picture_109798.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ magnet:?xt=urn:btih:F253215582C5B3E2E3F86DF10D23968F790605F7
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109799.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109799.jpgsave_picture_109799.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ magnet:?xt=urn:btih:4D0C555191C5A1F244E05542A3EC46C46091831E
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109800.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109800.jpgsave_picture_109800.jpg" />
 </div>
 
 

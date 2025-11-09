@@ -6,7 +6,7 @@
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_196260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196260.jpgsave_picture_196260.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:723CA93EA85FD2987431E2ABCBC1C7C881DB5EF4
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_196261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196261.jpgsave_picture_196261.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:241F654FA9F893B484AE9A94D8669F4D1606CE66
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196262.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196262.jpgsave_picture_196262.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:246783ED1F13819EB79943370EE90180E67569F3
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196263.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196263.jpgsave_picture_196263.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Tone Generator PRO v3.36 [En/Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_196264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196264.jpgsave_picture_196264.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:DEEA961C5D776488CE86E67B1A8867B59FA370DC
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196265.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196265.jpgsave_picture_196265.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:8512BFA0AB4F26B8A5D5E26B4902BC2B3E8BAAFB
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196266.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196266.jpgsave_picture_196266.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:64FF70DB332E4399EEC9639D1D31398BFBDAFE93
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196267.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196267.jpgsave_picture_196267.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Avast Premium Security 23.6.6070 RePack by xetrin [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196268.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196268.jpgsave_picture_196268.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:3017AF592C12791F2C6EAF3B4C640AFADF187E38
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196269.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196269.jpgsave_picture_196269.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ WiFi Analyzer v3.7 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_196270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196270.jpgsave_picture_196270.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ magnet:?xt=urn:btih:819173BE9A4B958B335F005D5B2B51B41E1E63AE
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196271.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196271.jpgsave_picture_196271.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ magnet:?xt=urn:btih:8C5570BB03DC1A87131ECF72780076FEBC23A9BA
 >>Ходячие мертвецы / The Walking Dead; Бойтесь ходячих мертвецов / Fear the Walking Dead
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196272.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196272.jpgsave_picture_196272.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ magnet:?xt=urn:btih:4547431CA663FFE3BEF68EA4343FA30D70D9C476
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196273.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196273.jpgsave_picture_196273.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Simple PDF Reader \ Простой PDF Reader v1.0.82 [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_196274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196274.jpgsave_picture_196274.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ magnet:?xt=urn:btih:6209C4816C8B757FAED4E200552A1CC40409C73E
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_196275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196275.jpgsave_picture_196275.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ The Tartarus Key (2023) [En] (01.01b) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196276.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196276.jpgsave_picture_196276.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ magnet:?xt=urn:btih:CE44695C59A01682F72A87B096E6B05C8EF51AB1
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_196277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196277.jpgsave_picture_196277.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ magnet:?xt=urn:btih:5FC7A3E7DE6A8DC8DFC399448D6CBDE525C7820D
 >>Сериалы Marvel Comics
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_196278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196278.jpgsave_picture_196278.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Dr. Fetus Mean Meat Machine (2023) [Ru/Multi] (1.0.1) License GOG
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196279.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196279.jpgsave_picture_196279.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ magnet:?xt=urn:btih:71AACA667D9E0FF25035DCB5F2AFBB77010C2613
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196280.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196280.jpgsave_picture_196280.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ magnet:?xt=urn:btih:F37ABA3E4D08830A99311A1F6A3E739479CDA9F5
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196281.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196281.jpgsave_picture_196281.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ Civitatem (2022) [En] (1.09) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_196282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196282.jpgsave_picture_196282.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:CEAF35E3B9D9B26FBD636DC3BC848163E2F84BD9
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196283.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196283.jpgsave_picture_196283.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ magnet:?xt=urn:btih:3D169FD358A099F685F9E6B65BA09A43D302ECA8
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196284.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196284.jpgsave_picture_196284.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ magnet:?xt=urn:btih:C9EFAB19A3A159DCC3E0547F65495FCFC933FBDB
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_196285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196285.jpgsave_picture_196285.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53589.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53589.jpgsave_picture_53589.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:FBEEC44B9295FE97294EC806CCB656A29A66EDA8
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53590.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53590.jpgsave_picture_53590.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:803B9B7808CE6F0B32E73E27A598D562FDCE34DE
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53591.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53591.jpgsave_picture_53591.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:6C44B4293C887AF4E9CB7BD6F23418EC7234DC96
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53592.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53592.jpgsave_picture_53592.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ Lenny Kravitz - 13 альбомов (1989 - 2024) 21 CD [FLAC|Lossless|image + .
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53593.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53593.jpgsave_picture_53593.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ magnet:?xt=urn:btih:54C54831FC55E0C2DDCBACFE2E65BFA32F72DA57
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53594.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53594.jpgsave_picture_53594.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ Robert Schumann - The Complete Piano Works (13 CD Set) (1989) [APE]<Classical>
 >>Полные собрания сочинений (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53595.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53595.jpgsave_picture_53595.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ magnet:?xt=urn:btih:636B3A230715F22A3A0064B38F747BF5A9B9B7F7
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53596.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53596.jpgsave_picture_53596.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ magnet:?xt=urn:btih:636B3A230715F22A3A0064B38F747BF5A9B9B7F7
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53597.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53597.jpgsave_picture_53597.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ Windows 11 x64 Rus by OneSmiLe [22631.3737]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53598.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53598.jpgsave_picture_53598.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ The Wild at Heart (2021) [Multi] (1.1.9.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53599.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53599.jpgsave_picture_53599.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ magnet:?xt=urn:btih:394DCDCF7909E5CA205139A71FFBBE8536BF3336
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53600.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53600.jpgsave_picture_53600.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ magnet:?xt=urn:btih:D4DB922167466A87817F345F1CD1303F19674B18
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53601.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53601.jpgsave_picture_53601.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Windows 10 x64 Rus by OneSmiLe [19045.4529]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53602.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53602.jpgsave_picture_53602.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ magnet:?xt=urn:btih:AD85BA46FA9FD3F939E379CDAF02FA8C984153CD
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53603.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53603.jpgsave_picture_53603.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ magnet:?xt=urn:btih:C8EF44EDCAE815DB2FF75C9C3AA3AE4553AE2F7D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53604.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53604.jpgsave_picture_53604.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ magnet:?xt=urn:btih:2A0DCA607F4C07E04FB37A5808D55D334903CC35
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53605.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53605.jpgsave_picture_53605.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Doom: The Dark Ages официально анонсирована — со щи�
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53606.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53606.jpgsave_picture_53606.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Doom: The Dark Ages официально анонсирована — со щи�
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53607.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53607.jpgsave_picture_53607.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Cactus - Temple Of Blues - Influences & Friends (2024) [FLAC|Lossless|image + .c
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53608.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53608.jpgsave_picture_53608.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ magnet:?xt=urn:btih:97091365CB30229437CF36FA922D5FE15BFA7567
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53609.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53609.jpgsave_picture_53609.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ magnet:?xt=urn:btih:0950DF1618FBF656BD0F7793C53AC0CC37913E32
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53610.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53610.jpgsave_picture_53610.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ VA - DJ Hits 41 (1995) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Eurodance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53611.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53611.jpgsave_picture_53611.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ magnet:?xt=urn:btih:D23E2B107F7E9B1AAE9E18C1AB22A32342566B33
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53612.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53612.jpgsave_picture_53612.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ VA - Top 7 May 2024 Emotional and Uplifting Trance (2024) [MP3|320 Kbps] <Trance
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53613.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53613.jpgsave_picture_53613.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Ablaze My Sorrow - Studio Albums (7 releases) (1996-2023) hand made [restored, d
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53614.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53614.jpgsave_picture_53614.jpg" />
 </div>
 
 

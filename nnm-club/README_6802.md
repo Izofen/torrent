@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_234012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_234012.jpgsave_picture_234012.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:CFB5976EB30603226D41E517EABADAD2FF4774AC
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234013.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234013.jpgsave_picture_234013.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:07E3EDD9A1E5DB631107635B2FAD60526DEB813F
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_234014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_234014.jpgsave_picture_234014.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:88C02C2A79E8E8DF4114D0E5C3ACDF7EFCD06322
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234015.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234015.jpgsave_picture_234015.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ AirBrush: ИИ Фоторедактор 5.8.0 Mod by 0x7d, alenka_persikova [Ru/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234016.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234016.jpgsave_picture_234016.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ VA - Mastermix Essential Hits: 00s R’n’B (2022) [MP3|320 Kbps] <Pop, R’n�
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_234017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_234017.jpgsave_picture_234017.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Röyksopp - The Inevitable End (2014) [AAC|~309 Kbps] <Electronic, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_234018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_234018.jpgsave_picture_234018.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:136D34EDB5A85DA3E45E3FEA544E2DFBA58A0811
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_234019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_234019.jpgsave_picture_234019.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Aiseesoft Video Converter Ultimate 10.7.10 RePack (& Portable) by TryRooM [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234020.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234020.jpgsave_picture_234020.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ Louis Armstrong - Louis on Broadway (2023) [FLAC|Lossless|WEB-DL|tracks] <Early 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234021.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234021.jpgsave_picture_234021.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ Memoria - Memoria (2022) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_234022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_234022.jpgsave_picture_234022.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ magnet:?xt=urn:btih:14643D83F103336C616C80AD1B8B18677D15FBDA
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_234023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_234023.jpgsave_picture_234023.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ magnet:?xt=urn:btih:16DB3996CBA5D55BC20CD4C7780B3B3FD2B4183C
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234024.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234024.jpgsave_picture_234024.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ Billy Talent - Live at Festhalle Frankfurt (2023) [FLAC|Lossless|WEB-DL|tracks] 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234025.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234025.jpgsave_picture_234025.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ Nik Complete 5 Collection by DxO v.5.2.0 U2B [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_234027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_234027.jpgsave_picture_234027.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Ocenaudio 3.12.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234028.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234028.jpgsave_picture_234028.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ VA - What About Lounge, Vol. 3 (2021) [AAC|~317 Kbps] <Lounge, Chill Out, Downte
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_234029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_234029.jpgsave_picture_234029.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ magnet:?xt=urn:btih:A4A047F01A371C25E34550429B9762A7FFD432B0
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234030.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234030.jpgsave_picture_234030.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ Moodoid - Primadonna Collection (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternativ
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234031.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234031.jpgsave_picture_234031.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ magnet:?xt=urn:btih:D23A6E592A7EC5F59E08C65EA88D47B54A2794C5
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234032.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234032.jpgsave_picture_234032.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ Dr. Jazz & Dirty Bucks Swing Band - Ammuìn' a Congo Square (2017) [AAC|~342 Kbp
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_234033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_234033.jpgsave_picture_234033.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ magnet:?xt=urn:btih:F5D1C3A3CFCCF9325A09C5A83E118FA7D77DA336
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_234034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_234034.jpgsave_picture_234034.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Microsoft Windows 11 [10.0.22621.382], Version 22H2 - Оригинальные �
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_234035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_234035.jpgsave_picture_234035.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ magnet:?xt=urn:btih:0A96C933DBB5A34C22A5FC94B3C7551E94C74F8C
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234036.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234036.jpgsave_picture_234036.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Markus Schulz - The Rabbit Hole Circus (2023) [MP3|320 Kbps] <Trance, Progressiv
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234037.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234037.jpgsave_picture_234037.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ Omni Downloader 1.4.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234038.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234038.jpgsave_picture_234038.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55045.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55045.jpgsave_picture_55045.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:75C60ECDBD3FA32D833376FF73F70ED73A7AF497
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55046.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55046.jpgsave_picture_55046.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:6E68B2AE60D1EF16B3A06BEF5B1A7284A4C004B5
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55047.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55047.jpgsave_picture_55047.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:6EA7E62822D126EFEBA9CC234F26EE9988D1926C
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55048.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55048.jpgsave_picture_55048.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:6C6228FD734EDAFE4E0C593CCFE12A56571795EC
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55049.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55049.jpgsave_picture_55049.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Network for Everyone (NFE, N4E) | Open Shortest Path First (2024) WEB-DL [AD] [R
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55050.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55050.jpgsave_picture_55050.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Microsoft Edge WebView2 Runtime 1.3.187.37 [Ru]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55051.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55051.jpgsave_picture_55051.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:A94263248BDBB6DC54D85051F002542E8A37FE84
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55052.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55052.jpgsave_picture_55052.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:A78E958EDE6F4BBA2A2ECAA697548C21B72CA79C
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55053.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55053.jpgsave_picture_55053.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ SpellForce 3 Reforced (2017-2021) [Ru/Multi] (163238.365571) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55054.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55054.jpgsave_picture_55054.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:F28F0505090C7D8887A8F45D18DEF68FF476DAEC
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55055.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55055.jpgsave_picture_55055.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ RAILGRADE (2023) [Ru/Multi] (6.1.56.1) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55056.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55056.jpgsave_picture_55056.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ magnet:?xt=urn:btih:86C58BB3FCFF0A9A2D482DCCB76F8434755E27CE
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55057.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55057.jpgsave_picture_55057.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Ozymandias: Bronze Age Empire Sim (2022) [Ru/Multi] (1.6.0.10) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55058.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55058.jpgsave_picture_55058.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ magnet:?xt=urn:btih:FB247E264ABCFC8AC03183058CE5A5939F70CA21
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55059.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55059.jpgsave_picture_55059.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ magnet:?xt=urn:btih:D49F89BB01377B77D119AAF59412E19501483458
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55060.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55060.jpgsave_picture_55060.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ StarCraft: Remastered (2017) [Ru/Multi] (1.23.9.10756/dlc) Repack FitGirl
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55061.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55061.jpgsave_picture_55061.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ magnet:?xt=urn:btih:D620ACC39B0E00B1B6F7FA3BA3908587FA0C06F3
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55062.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55062.jpgsave_picture_55062.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ magnet:?xt=urn:btih:7DE58A2C48EF72997B0E48C8D998CA31C17704C0
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55063.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55063.jpgsave_picture_55063.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ magnet:?xt=urn:btih:C09A22A10E32170807F9F68076DE04BC96FEBD53
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55064.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55064.jpgsave_picture_55064.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Vox Machinae (2022) [En] (1.4.0) Scene Rune
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55065.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55065.jpgsave_picture_55065.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ magnet:?xt=urn:btih:6AFCF4340052792059A1B01CC0DC6D47BE7F548E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55066.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55066.jpgsave_picture_55066.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Udemy, Алексей Леонтьев | Магия сводных таблиц 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55067.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55067.jpgsave_picture_55067.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ magnet:?xt=urn:btih:0CF6E010CEDF09C81A520F9EEDE4C840E706C59E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55068.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55068.jpgsave_picture_55068.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ magnet:?xt=urn:btih:D5F9006124F3214D43AB97883D1D94D182DA6CA8
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55069.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55069.jpgsave_picture_55069.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Lapin (2023) [Multi] (1.8.3.2) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55070.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55070.jpgsave_picture_55070.jpg" />
 </div>
 
 

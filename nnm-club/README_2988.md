@@ -6,7 +6,7 @@
 >>Развивающие Игры для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89482.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89482.jpgsave_picture_89482.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ IconTo 5.51 Professional [Мульти, есть русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89484.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89484.jpgsave_picture_89484.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ IconTo 5.51 Professional [Мульти, есть русский]
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89485.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89485.jpgsave_picture_89485.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:B96DBA8C3F98F0C9FAB5CF4693F751A0AF8A4DB3
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89486.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89486.jpgsave_picture_89486.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:1015E2EFC5966A941ED85536CF9577D9A5310B6A
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89487.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89487.jpgsave_picture_89487.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Sandra - 18 Greatest Hits (1992) (Japan press) [FLAC|Lossless]<Pop>
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89489.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89489.jpgsave_picture_89489.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ Sandra - 18 Greatest Hits (1992) (Japan press) [FLAC|Lossless]<Pop>
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89491.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89491.jpgsave_picture_89491.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Daum PotPlayer 1.5.32007 [x86-x64] [Rus] [сборка 7sh3 от 12.04.2012]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89492.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89492.jpgsave_picture_89492.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Daum PotPlayer - это мультимедийный проигрыватель 
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89493.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89493.jpgsave_picture_89493.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ Daum PotPlayer - это мультимедийный проигрыватель 
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89494.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89494.jpgsave_picture_89494.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ Botanicula (P) [Milti12/+] 2012 | THETA
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89500.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89500.jpgsave_picture_89500.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:207CE82FA9C8877862E6F696DF209934EEC1DD4F
 >>Развивающие Игры для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89502.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89502.jpgsave_picture_89502.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ magnet:?xt=urn:btih:5DAFA6DA4180365D3833911F3C29257BABEC7F9D
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89505.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89505.jpgsave_picture_89505.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ magnet:?xt=urn:btih:5DAFA6DA4180365D3833911F3C29257BABEC7F9D
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89507.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89507.jpgsave_picture_89507.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ magnet:?xt=urn:btih:5DAFA6DA4180365D3833911F3C29257BABEC7F9D
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89509.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89509.jpgsave_picture_89509.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ magnet:?xt=urn:btih:6C44D00B2838E1CC9DE04B7027EF008D5412D291
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89511.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89511.jpgsave_picture_89511.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ magnet:?xt=urn:btih:0DB6476BE68D55E34A865879BF40D948D5C91DB5
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89513.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89513.jpgsave_picture_89513.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ magnet:?xt=urn:btih:B3F38B2741D195469DD73C2935EAE3529DA25AD0
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89518.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89518.jpgsave_picture_89518.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ magnet:?xt=urn:btih:8006A4F4A134DCF49E3BD9C769291511F3FF0F9D
 >>Развивающие Игры для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89519.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89519.jpgsave_picture_89519.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ magnet:?xt=urn:btih:4D99493F04DF5B96CAFFE80B2808DCDCE76EBD39
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89525.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89525.jpgsave_picture_89525.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ magnet:?xt=urn:btih:EC91D74E41E333D29BAA7A7FAAB4DCE5D93D4DB7
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89527.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89527.jpgsave_picture_89527.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:A9F489880CE662F8BA70B295140600564738734F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89528.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89528.jpgsave_picture_89528.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Sniper Elite [Ru/En] (RePack) 2005 | Seraph1
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89530.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89530.jpgsave_picture_89530.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ magnet:?xt=urn:btih:1E2374E0A360D0BC5165AE284C50B118BCA567B7
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89532.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89532.jpgsave_picture_89532.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ magnet:?xt=urn:btih:1E2374E0A360D0BC5165AE284C50B118BCA567B7
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89535.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89535.jpgsave_picture_89535.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Gran Turismo 4 [Multi5\-] (RePack/Emulator) 2005/2012 | MarkusEVO
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89536.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89536.jpgsave_picture_89536.jpg" />
 </div>
 
 

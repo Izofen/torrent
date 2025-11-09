@@ -6,7 +6,7 @@
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241882.jpgsave_picture_241882.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Zoo Match / Три в Ряд: Зоопарк и Животные v1.9.5 Mod by v
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250403.jpgsave_picture_250403.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Sky Words: Слова из Букв v1.4.1 Mod by vadj [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250404.jpgsave_picture_250404.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ Jewel Legend: игра три в ряд v3.18.00 Mod by vadj [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_251749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251749.jpgsave_picture_251749.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ Words of Wonders: Игра в слова v5.3.5 Mod by vadj [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252298.jpgsave_picture_252298.jpg" />
 </div>
 
 

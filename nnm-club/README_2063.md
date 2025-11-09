@@ -6,7 +6,7 @@
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54005.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54005.jpgsave_picture_54005.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:27D3863C5A8A6089326220F426047ABF2F451EC8
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54006.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54006.jpgsave_picture_54006.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:AE0A63AF3E97BA7BEB048846EEA5C37D30808DAA
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54007.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54007.jpgsave_picture_54007.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Outcast - A New Beginning (2024) [Ru/Multi] (1.0.5) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54008.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54008.jpgsave_picture_54008.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ X-VPN 76.1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54009.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54009.jpgsave_picture_54009.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:C4C3889E80FE4DC0CCAAA479D9ED782B97738201
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54010.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54010.jpgsave_picture_54010.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:F3DD5C476CBF34C7229607B858DFD00843BB0F89
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54011.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54011.jpgsave_picture_54011.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:F7E4848D4BD51FFB5BDA0D36D2242B6AF197944E
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54012.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54012.jpgsave_picture_54012.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ Armored Brigade (2018) [En] (1.068b/dlc) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54013.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54013.jpgsave_picture_54013.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ Google имеет право конфисковать ваш смартфон б
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54014.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54014.jpgsave_picture_54014.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Apple нередко критикуют за различные нюансы о�
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54015.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54015.jpgsave_picture_54015.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ magnet:?xt=urn:btih:0FF349CBD8343AB5DB6634EFE1A1ADDF08E6478F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54016.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54016.jpgsave_picture_54016.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ magnet:?xt=urn:btih:EEA4D37A1CBF12DAEF0DE1067D2D19C2C09C9064
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54017.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54017.jpgsave_picture_54017.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Chef: A Restaurant Tycoon Game (2020) [Ru/Multi] (1.6/dlc) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54018.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54018.jpgsave_picture_54018.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ magnet:?xt=urn:btih:5372A5CA980572E1AD1E2F4EEF02D8FF6FF9E28C
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54019.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54019.jpgsave_picture_54019.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:F1B7EB62540156D36936A6C7952768AFC46A0D07
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54020.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54020.jpgsave_picture_54020.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Adobe Photoshop Lightroom Classic 2024 13.3.1.1 (x64) Portable by 7997 [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54021.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54021.jpgsave_picture_54021.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ magnet:?xt=urn:btih:83EEBD9C817FC41D35CCA700BEDCEECF89C3EBDC
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54022.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54022.jpgsave_picture_54022.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:83EEBD9C817FC41D35CCA700BEDCEECF89C3EBDC
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54023.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54023.jpgsave_picture_54023.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ magnet:?xt=urn:btih:F473774342E6395BB8633B1DC2C294D53D94FF60
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54024.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54024.jpgsave_picture_54024.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:260414A1FA69427F275AF39F87F646299D4493CC
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54025.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54025.jpgsave_picture_54025.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ The Serious Men - M.I.R. (Made In Russia) (2020) [FLAC|Lossless|WEB-DL|tracks] <
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54026.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54026.jpgsave_picture_54026.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ EF Commander 24.06 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54027.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54027.jpgsave_picture_54027.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Marilyn Manson - Sweet Dreams Baby (2000) 2024, Smokin' [FLAC|Lossless|WEB-DL|tr
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54028.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54028.jpgsave_picture_54028.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Kdenlive 24.05 + Standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54029.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54029.jpgsave_picture_54029.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ magnet:?xt=urn:btih:234334054082C3EBE900F6181DFD9851A7995247
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54030.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54030.jpgsave_picture_54030.jpg" />
 </div>
 
 

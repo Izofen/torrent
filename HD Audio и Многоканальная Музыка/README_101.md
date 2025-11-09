@@ -6,7 +6,7 @@ Seventh Crystal - Entity (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic H
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103218.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103218.jpgsave_picture_103218.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Mezzrow - Studio Albums (2 releases) (1990; 2023) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103222.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103222.jpgsave_picture_103222.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Phil Vermont - Time Has Come (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues R
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103223.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103223.jpgsave_picture_103223.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Klone - The Unseen (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive-Gro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103225.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103225.jpgsave_picture_103225.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Whitney Houston - The Concert for a New South Africa (Durban) (1994) 2024, Arist
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103228.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103228.jpgsave_picture_103228.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Ghosts Of Atlantis - Studio Albums (2 releases) (2021-2023) hand made [restored,
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103231.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103231.jpgsave_picture_103231.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Orbital - A Beginner's Guide (Best Of) (2024) [FLAC 24/44.1|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103232.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103232.jpgsave_picture_103232.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ The Vintage Explosion - Saturday Night (2024) [FLAC 24/48|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103244.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103244.jpgsave_picture_103244.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ The Harpoonist - Did We Come Here To Dance (2024) [FLAC 24/96|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103250.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103250.jpgsave_picture_103250.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Charlotte Wessels (ex-Delain) - Studio Albums (3 releases) (2021-2024) hand made
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103275.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103275.jpgsave_picture_103275.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Fans Of The Dark - Video (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Melodic Har
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103299.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103299.jpgsave_picture_103299.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ TMG - TMG II (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103300.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103300.jpgsave_picture_103300.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Turbulence - Binary Dream (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progress
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103301.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103301.jpgsave_picture_103301.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Citizen Vicious - Studio Albums (3 releases) (2015-2024) hand made [restored, de
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103302.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103302.jpgsave_picture_103302.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Steelcity - Reverence (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Melodic Hard R
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103303.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103303.jpgsave_picture_103303.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Cleanbreak - We Are The Fire (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Heavy M
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103304.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103304.jpgsave_picture_103304.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ Delain - Dance with the Devil (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Symp
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103310.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103310.jpgsave_picture_103310.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ Windrow - Deus Universi (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Meta
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103315.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103315.jpgsave_picture_103315.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ Molly Miller Trio - Last Sunday (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Ja
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103344.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103344.jpgsave_picture_103344.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ Pink Magic Orchestra - Pink Magic Orchestra (2024) [FLAC 24/48|Lossless|WEB-DL|t
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103346.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103346.jpgsave_picture_103346.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Odrysian - Third Eye Blind (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz Fusi
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103348.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103348.jpgsave_picture_103348.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Michael Mayo - Fly (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Vocal Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103349.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103349.jpgsave_picture_103349.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Randy Hoexter - Tomorrowsville (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Con
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103350.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103350.jpgsave_picture_103350.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ King Crimson - Red (1974) Expanded & Remastered Original Album Mix, 2014, Discip
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103358.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103358.jpgsave_picture_103358.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ Robert Jon & The Wreck - Red Moon Rising (Deluxe Edition) (2024) [FLAC 24/44.1|L
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103362.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103362.jpgsave_picture_103362.jpg" />
 </div>
 
 
@@ -676,7 +676,7 @@ Zephira - Wisdom's Wrath (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Symphonic M
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103370.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103370.jpgsave_picture_103370.jpg" />
 </div>
 
 

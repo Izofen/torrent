@@ -6,7 +6,7 @@ Alterium - Of War And Flames (2024) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Pow
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113845.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113845.jpgsave_picture_113845.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ V.A. - In Paris Highlights. CD, Compilation (1995) [FLAC|Lossless|image + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113846.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113846.jpgsave_picture_113846.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Wade Black's Astronomica - The Awakening (2024) [FLAC|Lossless|WEB-DL|tracks] <H
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113847.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113847.jpgsave_picture_113847.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:7D2C00F618ED029E7FD201FE89B25A68F2B62F76
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113848.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113848.jpgsave_picture_113848.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Antar Goodwin - The Game (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113849.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113849.jpgsave_picture_113849.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Downie 4 v.4.7.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113850.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113850.jpgsave_picture_113850.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ magnet:?xt=urn:btih:C4033B01BC239D33056AADE7E3185F2CD5D6115D
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113851.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113851.jpgsave_picture_113851.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Wynton Marsalis & The Lincoln Center Jazz Orchestra - Experience Jazz Like Never
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113852.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113852.jpgsave_picture_113852.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ magnet:?xt=urn:btih:45BECD51A726C324FFB7425F7893D147FE61E8F1
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113853.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113853.jpgsave_picture_113853.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ EagleFiler 1.9.13 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113854.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113854.jpgsave_picture_113854.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Paul Winter (Пол Уинтер) - Concert For The Earth (Концерт Зем
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113855.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113855.jpgsave_picture_113855.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Eric Warren - Reminisce (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock, 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113856.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113856.jpgsave_picture_113856.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Dan Patlansky - Movin' On (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113857.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113857.jpgsave_picture_113857.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Handsome Jack - A Good Thing (2024) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <Blues
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113858.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113858.jpgsave_picture_113858.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Stephane Grappelli - Just One Of Those Things (1973) 1992, Black Lion [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113859.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113859.jpgsave_picture_113859.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ Dick Haymes - Till The End Of Time (1940 - 1950) 2CD, 2004, Living Era [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113860.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113860.jpgsave_picture_113860.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ The End Machine - The Quantum Phase (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard R
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113861.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113861.jpgsave_picture_113861.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ magnet:?xt=urn:btih:F2010D32463107EBE9330F76DB00D503D00C1C02
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113862.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113862.jpgsave_picture_113862.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ QOwnNotes 24.3.0 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113863.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113863.jpgsave_picture_113863.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Dion - Girl Friends (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues, Blues Rock, Sin
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113864.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113864.jpgsave_picture_113864.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Black Cat Bone - Tales of the Amplified (2024) [FLAC 24/48|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113865.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113865.jpgsave_picture_113865.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ magnet:?xt=urn:btih:828DC1B5AD2F913D4180DBEC465E75D44802EFD5
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113866.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113866.jpgsave_picture_113866.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ magnet:?xt=urn:btih:FD120BDB03BC5AD228C9B56A6C4C1FE757FAF401
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113867.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113867.jpgsave_picture_113867.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Sticky Fingers - Caress Your Soul (2013) Remaster, 2024, Abbey Road [FLAC|Lossle
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113868.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113868.jpgsave_picture_113868.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ PowerDirector – Video Editor v13.3.0 b1227071 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113869.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113869.jpgsave_picture_113869.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ Paul Anka - Paul Anka (1991) [FLAC 24/192|Lossless|tracks] <Pop>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113870.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113870.jpgsave_picture_113870.jpg" />
 </div>
 
 

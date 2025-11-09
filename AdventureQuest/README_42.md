@@ -6,7 +6,7 @@ Corbid! A Colorful Adventure (2024) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62033.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62033.jpgsave_picture_62033.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Deep in the Woods / Глубоко в лесу (2024) [Ru/Multi] (1.0) Scene Ten
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62053.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62053.jpgsave_picture_62053.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Amygdala (2024) [En] (1.5) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62081.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62081.jpgsave_picture_62081.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ A Twisted Tale (2024) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62173.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62173.jpgsave_picture_62173.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Alone in the Dark (2024) [Ru/Multi] (1.02/dlc) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62206.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62206.jpgsave_picture_62206.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ The Cadet Files: Scene Unseen (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62262.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62262.jpgsave_picture_62262.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Highwater (2024) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62284.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62284.jpgsave_picture_62284.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Unbearable (2024) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62294.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62294.jpgsave_picture_62294.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Alone in the Dark (2024) [Ru/Multi] (1.02/dlc) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62313.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62313.jpgsave_picture_62313.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ The Beast Inside (2019) [Ru/Multi] (1.05) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62398.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62398.jpgsave_picture_62398.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Left Behind (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62480.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62480.jpgsave_picture_62480.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Death Trick: Double Blind (2024) [Multi] (1.1.13) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62484.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62484.jpgsave_picture_62484.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ The Quarry (2022) [Ru/Multi] (1.07/dlc) Repack Decepticon [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62517.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62517.jpgsave_picture_62517.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Silent Cause (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62764.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62764.jpgsave_picture_62764.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ The Unknown (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62799.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62799.jpgsave_picture_62799.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Somerville (2022) [Multi] (1.0) License Razor1911
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62934.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62934.jpgsave_picture_62934.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ YOKO (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63020.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63020.jpgsave_picture_63020.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Zoonomaly (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63023.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63023.jpgsave_picture_63023.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Stellar Ghosts Settlers (2024) [En] (1.0.220) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63654.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63654.jpgsave_picture_63654.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ IMMORTALITY (2022) [Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63670.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63670.jpgsave_picture_63670.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ REVEIL (2024) [Ru/Multi] (1.0.3f4/dlc) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63676.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63676.jpgsave_picture_63676.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Evil Nun: The Broken Mask (2023) [Ru/Multi] (1.671) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63754.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63754.jpgsave_picture_63754.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ The Bunker 69 (2019) [Ru/En] (1.0/dlc) Repack Other s [18+]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63780.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63780.jpgsave_picture_63780.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Ever 17 - The Out of Infinity (2025) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65641.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65641.jpgsave_picture_65641.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ The Hungry Lamb: Traveling in the Late Ming Dynasty / Epiao: Ming Mo Qianli Xing
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65661.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65661.jpgsave_picture_65661.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Tex Murphy: The Pandora Directive (1996) [Multi] (1.02) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65662.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65662.jpgsave_picture_65662.jpg" />
 </div>
 
 

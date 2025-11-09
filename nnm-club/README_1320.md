@@ -6,7 +6,7 @@
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34675.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34675.jpgsave_picture_34675.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:0D2748FD39F296B82F963F19844EB95BEE45FCAB
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34676.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34676.jpgsave_picture_34676.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Twin Mind 5: The Deathly Trick / Двуединое сознание 5: Смер
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34677.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34677.jpgsave_picture_34677.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:2408B3D083F6E7479DAFE7245C2BE7FB21FA017D
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34678.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34678.jpgsave_picture_34678.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:24221994F7F534BD5F34D5997A2F34812F8E9FD1
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34679.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34679.jpgsave_picture_34679.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Strange Investigations 4: Truth Will Out / Удивительные рассле
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34680.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34680.jpgsave_picture_34680.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:21457761FCF322083EFDC31DCF7850497AEE14FF
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34681.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34681.jpgsave_picture_34681.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Roxette - Crash! Boom! Bang! 30th Anniversary Edition (1994) Reissue, Remastered
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34682.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34682.jpgsave_picture_34682.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:33240C6BA2133A205C72C6F21D16137B57D0F90D
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34683.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34683.jpgsave_picture_34683.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:3F0AEC552FB08D7AF79CE4927A5195259C4F6C8F
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34684.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34684.jpgsave_picture_34684.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ The Orb - Orboretum: The Orb Collection (2024) 2CD [FLAC|Lossless|tracks + .cue]
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34685.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34685.jpgsave_picture_34685.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ magnet:?xt=urn:btih:9BC19571818A95FC189294C327A5E915F1F4882D
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34686.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34686.jpgsave_picture_34686.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ magnet:?xt=urn:btih:2369457188B9DB60FC400B92642D3CF4C168803D
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34687.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34687.jpgsave_picture_34687.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ magnet:?xt=urn:btih:0772E466AD78F4A5A557442C9404ADC7C87E9EB3
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34688.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34688.jpgsave_picture_34688.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ magnet:?xt=urn:btih:B96C0235BA502B50728B1E76FAF369B3E2700555
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34689.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34689.jpgsave_picture_34689.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ magnet:?xt=urn:btih:0C1E8D53073B58B71C5C56A5052678933ED5B86C
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34690.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34690.jpgsave_picture_34690.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ magnet:?xt=urn:btih:60500111803BD7B3B91BF591539716E41F864B21
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34691.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34691.jpgsave_picture_34691.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ magnet:?xt=urn:btih:7C55FBE792A5124D99F6718310BD2E9A40C185CD
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34692.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34692.jpgsave_picture_34692.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ magnet:?xt=urn:btih:C4B9F658000DB79FC38CFF40FF71962C80E48BE7
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34693.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34693.jpgsave_picture_34693.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Alphaville - I Die For You Today (2023) The Blank & Jones Mixes [FLAC|Lossless|W
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34694.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34694.jpgsave_picture_34694.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ magnet:?xt=urn:btih:1E0713072041B681D78B0F86FBB059CB086776DD
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34695.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34695.jpgsave_picture_34695.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ magnet:?xt=urn:btih:5B85331474EE29EF3D54635150C483E2841545E0
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34696.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34696.jpgsave_picture_34696.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ VA - Lounge Philosophy Vol 1 (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34697.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34697.jpgsave_picture_34697.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ TSA - Soft Noir Jazz for Winter Evenings (2024) [MP3|320 Kbps] <Jazz, Electro, N
 >>Jazz
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34698.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34698.jpgsave_picture_34698.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ OsmAnd+  Карты & GPS Офлайн v4.9.9 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34699.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34699.jpgsave_picture_34699.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ magnet:?xt=urn:btih:E88373500D6AADA4BEA9A35885B02861680B68C0
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34700.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34700.jpgsave_picture_34700.jpg" />
 </div>
 
 

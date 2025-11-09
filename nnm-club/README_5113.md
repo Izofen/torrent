@@ -6,7 +6,7 @@ Nat King Cole - 1945 (1996) Classics [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159662.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159662.jpgsave_picture_159662.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Charlie Christian - The Original Guitar Hero (1940, 1941) 2002, Sony Records [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159663.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159663.jpgsave_picture_159663.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ BadTrip Boys - Первый (2022) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159664.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159664.jpgsave_picture_159664.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ IceHammer - Печать ночных штормов (2022) [FLAC|Lossless|WEB-D
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159665.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159665.jpgsave_picture_159665.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ magnet:?xt=urn:btih:F8508C5A011563FBC5D1B1000F6992CE79918CA9
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159666.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159666.jpgsave_picture_159666.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ magnet:?xt=urn:btih:AB57E8E52E10E2482CECFE399EFEA3C541A300C9
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159667.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159667.jpgsave_picture_159667.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ DeathAwaits - XX (2022) [FLAC|Lossless|WEB-DL|tracks] <Modern Death Metal, Hardc
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159668.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159668.jpgsave_picture_159668.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Choke Out - Mechanized Order (2022) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Be
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159669.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159669.jpgsave_picture_159669.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ magnet:?xt=urn:btih:6AEF7D68BD388F64FE66F74A2624623D16AAA7CE
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159670.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159670.jpgsave_picture_159670.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Witness Effect - WE (2022) [FLAC|Lossless|WEB-DL|tracks] <Death, Groove Metal>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159671.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159671.jpgsave_picture_159671.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ magnet:?xt=urn:btih:F18B8F6EEB2E5BDC4618A7B7A0E57360338381AD
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159672.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159672.jpgsave_picture_159672.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ LG karaoke 200 ver.8.0 - 200 суперхитов (2009) DVD-9 <ПОП>
 >>Караоке
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159673.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159673.jpgsave_picture_159673.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ magnet:?xt=urn:btih:E41F3BE558ED846C55A28F083CF905E28C29D187
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159674.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159674.jpgsave_picture_159674.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Microsoft Windows 11 [10.0.22621.963], Version 22H2 (Updated December 2022) - О
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159675.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159675.jpgsave_picture_159675.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ magnet:?xt=urn:btih:FB0B54A203DA1242B9DFFA04101BAA3E63EA0429
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159676.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159676.jpgsave_picture_159676.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ Futuremark 3DMark 2.25.8056 Professional Edition RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159677.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159677.jpgsave_picture_159677.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ magnet:?xt=urn:btih:A4763334AC4407B4B554CE8A24A78B3A1874922A
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159678.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159678.jpgsave_picture_159678.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ Skid Row - 6 Albums, 3 EP, 1 Compilation (1989 - 2022) 15 CD [Lossless|FLAC|imag
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159679.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159679.jpgsave_picture_159679.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ magnet:?xt=urn:btih:3EC8C705B97B848CE962AAFDC32FF9A5C247BD02
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159680.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159680.jpgsave_picture_159680.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ magnet:?xt=urn:btih:A529BF427205A1A544294B1104C9D9BDBB5A0A08
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159681.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159681.jpgsave_picture_159681.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:A6390E8332951910C889E76B37EC569D1F5F40CC
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159682.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159682.jpgsave_picture_159682.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ magnet:?xt=urn:btih:7A6E4654209B47AE293988B8A1D10A2BF32A13D6
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159683.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159683.jpgsave_picture_159683.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ magnet:?xt=urn:btih:08FB686984764A93BF6D6BD426DD736399887583
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159684.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159684.jpgsave_picture_159684.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ magnet:?xt=urn:btih:6721032F071982FD879067D2049E94F142207E5E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159686.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159686.jpgsave_picture_159686.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ magnet:?xt=urn:btih:0A8B58B5CE2802DD0CB84FE20DBF99113663BB10
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159687.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159687.jpgsave_picture_159687.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ magnet:?xt=urn:btih:CDBAD35CAD2C768CB50702B8764A2CB519BEC24C
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159688.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159688.jpgsave_picture_159688.jpg" />
 </div>
 
 

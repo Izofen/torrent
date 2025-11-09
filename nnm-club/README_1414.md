@@ -6,7 +6,7 @@ AdGuard Ad Blocker  Nightly Premium [No-Root] v4.7.113 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37119.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37119.jpgsave_picture_37119.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Little Big Adventure – Twinsen’s Quest (2024) [Ru/Multi] (1.0.4) Repack FitG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37120.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37120.jpgsave_picture_37120.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:465B5083653BF8FE26892ED3A41296A323C7DD30
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37121.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37121.jpgsave_picture_37121.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Eric's Movie DataBase (EMDB) 5.35 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37122.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37122.jpgsave_picture_37122.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:A6ECE3100012E32CC8F9228D360F546490592020
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37123.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37123.jpgsave_picture_37123.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:B60141ABC02ABA0C2FA1954E3CF3E012709AC2C9
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37124.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37124.jpgsave_picture_37124.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Kusuriya no Hitorigoto | The Apothecary Diaries | Монолог фармаце�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37125.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37125.jpgsave_picture_37125.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Warcraft I: Remastered (2024) [Ru/Multi] (1.0.0.2137) Scene Razor1911
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37126.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37126.jpgsave_picture_37126.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:4384435BE7245CC07C9B957EC8D220ABD9762F81
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37127.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37127.jpgsave_picture_37127.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:857FD55B0A3065313169689800F4715016565EC2
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37128.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37128.jpgsave_picture_37128.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:857FD55B0A3065313169689800F4715016565EC2
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37129.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37129.jpgsave_picture_37129.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Snappy Driver Installer 1.24.8 (R2408) | Драйвер-паки 24.11.0 [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37130.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37130.jpgsave_picture_37130.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:8F95C790E35580F0B81D9BE0F21F0B8F14FF40C0
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37131.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37131.jpgsave_picture_37131.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Ara: History Untold (2024) [Ru/Multi] (1.1.0/dlc) Scene Rune
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37132.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37132.jpgsave_picture_37132.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Vasilisa and Baba Yaga / Василиса и Баба Яга (2024) [Ru/Multi] (
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37133.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37133.jpgsave_picture_37133.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ magnet:?xt=urn:btih:5A59C3D7359EC685FB560C67CE6EED5172CADB52
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37134.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37134.jpgsave_picture_37134.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ magnet:?xt=urn:btih:A4EC4321CA3D5E9FBA9B4CB60B3684D13567BDBE
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37135.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37135.jpgsave_picture_37135.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ magnet:?xt=urn:btih:A4EC4321CA3D5E9FBA9B4CB60B3684D13567BDBE
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37136.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37136.jpgsave_picture_37136.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ magnet:?xt=urn:btih:FDF2F378619559FD54BAFF7E14A3DE7523317A87
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37137.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37137.jpgsave_picture_37137.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Topaz Gigapixel AI 8.0.3 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37138.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37138.jpgsave_picture_37138.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ magnet:?xt=urn:btih:3D19307EC145E60053C4F5016077D3DCC964C260
 >>Сериалы DC Comics
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37139.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37139.jpgsave_picture_37139.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ magnet:?xt=urn:btih:47942BF1012400E0743285EDA6F73BA1811C4636
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37140.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37140.jpgsave_picture_37140.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ NVIDIA GeForce Desktop Game Ready 566.14 WHQL + DCH [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37141.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37141.jpgsave_picture_37141.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ magnet:?xt=urn:btih:9F46C124276E8A84D0EBCBB6028B40E0A2F78465
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37142.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37142.jpgsave_picture_37142.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ magnet:?xt=urn:btih:B98CF3DE719782E04F1E552FEBD61017AE39F961
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37143.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37143.jpgsave_picture_37143.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ VA - Best of the Best, 1 Song Only (1955-2024) Remaster SMRP, Russia, 2024, De-N
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37144.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37144.jpgsave_picture_37144.jpg" />
 </div>
 
 

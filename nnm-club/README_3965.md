@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123606.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123606.jpgsave_picture_123606.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:07A2B614EDC0BF9D0B23382DD03D599C691B97B4
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123607.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123607.jpgsave_picture_123607.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:AEC395AFCF0C7C311133639A24A9D3D443EF9BFB
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123608.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123608.jpgsave_picture_123608.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ Disk Drill 5.4.844 Enterprise (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123609.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123609.jpgsave_picture_123609.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:0CFAA801E3129F08AB3A58732C39E2E0758F4E6C
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123610.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123610.jpgsave_picture_123610.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:5BD4CC085CDAC96C871FADE3FC9E2739091C0337
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123611.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123611.jpgsave_picture_123611.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ TeraCopy 3.17.0 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123612.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123612.jpgsave_picture_123612.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:C4D1A5462FF274DF84BEA5AB51E4EFDC629BF51B
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123613.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123613.jpgsave_picture_123613.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ Windows 10 Debloater 2.6.4 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123614.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123614.jpgsave_picture_123614.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Hurricane on Saturn - Фnx (2023) [FLAC|Lossless|WEB-DL|tracks] <Electro, Metal,
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123615.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123615.jpgsave_picture_123615.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ The Fog - The Fog (2024) [FLAC|Lossless|WEB-DL|tracks] <Classic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123616.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123616.jpgsave_picture_123616.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ magnet:?xt=urn:btih:3AB6AC29FF686387485BE2E8486D37027F6EE61C
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123617.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123617.jpgsave_picture_123617.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Liva - Ecce Mundus (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123618.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123618.jpgsave_picture_123618.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ magnet:?xt=urn:btih:F69971BEAEEB55011C17C8409376C3BE734BBBA7
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123619.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123619.jpgsave_picture_123619.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Andrew W. Boss - Strength (2024) [MP3|320 Kbps] <Rap-Metal, Alt.Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123620.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123620.jpgsave_picture_123620.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Ryan Adams - Heatwave (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123621.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123621.jpgsave_picture_123621.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ magnet:?xt=urn:btih:784D65F2BB6A5EC992D281CD048F550D30436798
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123622.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123622.jpgsave_picture_123622.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ magnet:?xt=urn:btih:E938067DB3BB5F0A6230A33CB64B4997A6403CE6
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123623.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123623.jpgsave_picture_123623.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ magnet:?xt=urn:btih:0C875571C0566157A482F126C995C25C9D91DD4D
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123624.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123624.jpgsave_picture_123624.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Klipa Trio - Miatanu (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123625.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123625.jpgsave_picture_123625.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ Ryan Adams - Prisoners (Live) (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123626.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123626.jpgsave_picture_123626.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ magnet:?xt=urn:btih:B5E20065961AEDCB761490F39D47ECC97C480768
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123627.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123627.jpgsave_picture_123627.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Andrew W. Boss - The Arrival (2024) [FLAC|Lossless|WEB-DL|tracks] <Rap-Metal, Al
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123628.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123628.jpgsave_picture_123628.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ TodoMal - Ultracrepidarian (2021) [FLAC|Lossless|tracks] <Atmospheric Doom Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123629.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123629.jpgsave_picture_123629.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ magnet:?xt=urn:btih:1C8B777DC2026020FA08EAAB3DBCDEC39E259699
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123630.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123630.jpgsave_picture_123630.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ Proteos - Эпитафия (2023) [FLAC|Lossless|WEB-DL|tracks] <Deathcore, Meta
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123631.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123631.jpgsave_picture_123631.jpg" />
 </div>
 
 

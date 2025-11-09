@@ -6,7 +6,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61805.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61805.jpgsave_picture_61805.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ VA - Пионерские песни - А. Долуханян (1969) [FLAC 24/19
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61806.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61806.jpgsave_picture_61806.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Waterfox Current G6.0.11 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61807.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61807.jpgsave_picture_61807.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Sandy Marton - Maxi And Singles Collection (2023) Compilation [FLAC|Lossless|ima
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61808.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61808.jpgsave_picture_61808.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:53E97F6B30BC87F32745A3B597B6D758AF11DF92
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61809.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61809.jpgsave_picture_61809.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:5B550905F657A096BEAF65DFBF06636214305387
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61810.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61810.jpgsave_picture_61810.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ Alan Barry - Maxi & Singles Collection (2023) Compilation [FLAC|Lossless|image +
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61811.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61811.jpgsave_picture_61811.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:8F52361A4A5F26C28C935232DF45E26F37371A51
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61812.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61812.jpgsave_picture_61812.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:9D7616912C80646ACD340F6F1F1D8861F1D14BD4
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61813.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61813.jpgsave_picture_61813.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ Text Edit Plus 14.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61814.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61814.jpgsave_picture_61814.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ VA - Epic Rock (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61815.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61815.jpgsave_picture_61815.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ VA - Rock for Running (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61816.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61816.jpgsave_picture_61816.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ VA - Пульс 1 - Музыкальный компьютер. (Серия "Сп
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61817.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61817.jpgsave_picture_61817.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ Text Editor Pro 28.4.4 + Portable + Bonus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61818.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61818.jpgsave_picture_61818.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ magnet:?xt=urn:btih:FF01E340CEFE3BA1EB85FE59AEB43AB83ED40D77
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61819.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61819.jpgsave_picture_61819.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ magnet:?xt=urn:btih:324E74BF1D73C053E237F1D410287FF2BFE631E9
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61820.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61820.jpgsave_picture_61820.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Office Installer & Office Installer+ 1.09 by Ratiborus [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61821.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61821.jpgsave_picture_61821.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ Simple Sticky Notes 6.4.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61822.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61822.jpgsave_picture_61822.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ magnet:?xt=urn:btih:42E9B6E14BC7A3752452F92A1A145117F80B2873
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61823.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61823.jpgsave_picture_61823.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ VA - Erotic Lofi-Fi & Lounge Music (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge,
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61824.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61824.jpgsave_picture_61824.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ magnet:?xt=urn:btih:FB5B683FDE3F339E9E6A02E6575B10D7F856262E
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61825.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61825.jpgsave_picture_61825.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ magnet:?xt=urn:btih:CF4DC4B145154FB213C3C444FDB8F8772F0B8198
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61826.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61826.jpgsave_picture_61826.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ magnet:?xt=urn:btih:A98F98F27A205F7112284D1271B0EA3F592CB2AC
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61827.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61827.jpgsave_picture_61827.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ magnet:?xt=urn:btih:032A99D3BAC02E2145347CED8109015D6716F322
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61828.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61828.jpgsave_picture_61828.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Rakudai Kishi no Cavalry | Chivalry of a Failed Knight | Сага о безда�
 >>Ранобэ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61829.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61829.jpgsave_picture_61829.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ magnet:?xt=urn:btih:645321FB975448F8EA9CB41A2CE12AC6E53665DB
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61830.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61830.jpgsave_picture_61830.jpg" />
 </div>
 
 

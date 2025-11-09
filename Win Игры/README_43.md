@@ -6,7 +6,7 @@ Nanomon Virtual Pet (2025) [Ru/Multi] (1.0.6) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13170.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13170.jpgsave_picture_13170.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Crown Gambit (2025) [Ru/Multi] (1.0.3) Repack FitGirl [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13186.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13186.jpgsave_picture_13186.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Boxville (2022) [Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13197.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13197.jpgsave_picture_13197.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Medieval Dynasty (2020) [Ru/Multi] (2.4.0.3/dlc) Repack FitGirl [Ultimate Editio
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13201.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13201.jpgsave_picture_13201.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ LIMINAL SHIFT (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13220.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13220.jpgsave_picture_13220.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Hidden Legacy: Dark Heirloom (2025) [Multi] (1.0) Unofficial [Collector's Editio
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13274.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13274.jpgsave_picture_13274.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Argonauts Agency 9: God of the Storm / Агентство Аргонавты 9: 
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13292.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13292.jpgsave_picture_13292.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Aliens vs. Predator (2010) [Ru] (2.27u7/dlc) Rip EXROW [Expanded Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13307.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13307.jpgsave_picture_13307.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Gex Trilogy: Gex, Enter the Gecko, Deep Cover Gecko (2025) [Multi] (1.1) License
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13312.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13312.jpgsave_picture_13312.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ NEDRA (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13313.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13313.jpgsave_picture_13313.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ S.T.A.L.K.E.R.: Shadow of Chernobyl / S.T.A.L.K.E.R.: Тень Чернобыл�
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13324.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13324.jpgsave_picture_13324.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Fate Seeker II (2) (2021) [Multi] (18655320) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13325.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13325.jpgsave_picture_13325.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Timberborn (2021) [Ru/Multi] (0.7.10.2-5762fd5-gw) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13329.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13329.jpgsave_picture_13329.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Crusader Kings III (3) (2020) [Ru/Multi] (1.16.2.3/dlc) Scene Rune [Royal Editio
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13331.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13331.jpgsave_picture_13331.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Escape from the 70's (2022) [Ru/En] (Build 8771485) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13335.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13335.jpgsave_picture_13335.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Little Nightmares: Enhanced Edition (2025) [Ru/Multi] (BuildID 18639334) Repack 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13338.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13338.jpgsave_picture_13338.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ NEDRA (2025) [Ru/Multi] (1.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13340.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13340.jpgsave_picture_13340.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Dustborn (2024) [Ru/Multi] (1.14/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13392.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13392.jpgsave_picture_13392.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ System Shock 2: 25th Anniversary Remaster (2025) [Multi] (Mod HotFix) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13396.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13396.jpgsave_picture_13396.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Monster Train 2 (2025) [Ru/Multi] (Build #11691) Repack FitGirl [Supporter Pack]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13402.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13402.jpgsave_picture_13402.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Teardown (2022) [Ru/Multi] (1.7.0/dlc) Repack FitGirl [Deluxe Edition]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13406.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13406.jpgsave_picture_13406.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Capcom Fighting Collection 2 (2025) [Ru/Multi] (1.0/dlc) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13407.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13407.jpgsave_picture_13407.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Warhammer 40,000: Rogue Trader (2023) [Ru/Multi] (1.4.0.184/dlc) Repack FitGirl 
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13416.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13416.jpgsave_picture_13416.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Banquet for Fools (2024) [En] (3.02) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13424.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13424.jpgsave_picture_13424.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Serious Sam 3: BFE (2011) [Ru/Multi] (3.0.3.0.261096/dlc) Repack EXROW [Gold Edi
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13428.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13428.jpgsave_picture_13428.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ WWE 2K25 (2025) [Multi] (1.16/dlc) Scene Rune
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13448.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13448.jpgsave_picture_13448.jpg" />
 </div>
 
 

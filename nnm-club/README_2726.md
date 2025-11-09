@@ -6,7 +6,7 @@
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71626.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71626.jpgsave_picture_71626.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:ABF2B83C52D1FF3FE6CB66A334CF392929DB25DC
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71627.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71627.jpgsave_picture_71627.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Cock Robin - Precious Dreams (2024) 3xCD [FLAC|Lossless|image + .cue] <Pop-Rock,
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71628.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71628.jpgsave_picture_71628.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:9746079D70220EF1CF3637AF4AA0C872A928546D
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71629.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71629.jpgsave_picture_71629.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:2899D856C24796DD8F639950663C234A6CE41C92
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71630.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71630.jpgsave_picture_71630.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ magnet:?xt=urn:btih:E9D437B213285B4E8B650EF3403997DD2AC64F8D
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71631.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71631.jpgsave_picture_71631.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ magnet:?xt=urn:btih:0D752880C868D8E31F79C89E62AB1F8EE8D793DD
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71632.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71632.jpgsave_picture_71632.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ magnet:?xt=urn:btih:245517C6E633255ABC3DC171213F6A9BFCB5771D
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71633.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71633.jpgsave_picture_71633.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ VA - KAZAL Records presents Volume1 (2024) [MP3|320 Kbps] <Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71634.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71634.jpgsave_picture_71634.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ The Borstal Boys - Time Bomb (2025) [MP3|320 Kbps] <Classic Rock, Rock'n'Roll, B
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71635.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71635.jpgsave_picture_71635.jpg" />
 </div>
 
 
@@ -262,7 +262,7 @@ QOwnNotes 25.1.4 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71636.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71636.jpgsave_picture_71636.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ magnet:?xt=urn:btih:B245FF280CDDCFEB126873CD410CC12F90EF8C28
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71637.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71637.jpgsave_picture_71637.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ Accept - Predator (1996) Remaster, 2025, Silver Lining Music [FLAC|Lossless|WEB-
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71638.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71638.jpgsave_picture_71638.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ magnet:?xt=urn:btih:BE0FF70CD77B9527B47B2814AFD59FCDEC0B98E7
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71639.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71639.jpgsave_picture_71639.jpg" />
 </div>
 
 
@@ -364,7 +364,7 @@ Postfactum - 2 Albums (2022, 2024) [FLAC|Lossless|WEB-DL|tracks] <Electro, Chill
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71640.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71640.jpgsave_picture_71640.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ magnet:?xt=urn:btih:120C23DF44B89A922D7D04FC903CFF68ADDA7A99
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71641.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71641.jpgsave_picture_71641.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ magnet:?xt=urn:btih:F61CCE08E4D3991FEF42925AF3FFEE5F3B4ED9A1
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71642.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71642.jpgsave_picture_71642.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ magnet:?xt=urn:btih:41AFB25042C0F10ACECB00F8A045CEC7A73C1F31
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71643.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71643.jpgsave_picture_71643.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ magnet:?xt=urn:btih:1028907942AA8808458AA300EB355DF0D5C40772
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71644.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71644.jpgsave_picture_71644.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ PilotEdit Lite & Pro 19.6.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71645.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71645.jpgsave_picture_71645.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ magnet:?xt=urn:btih:6DA0E7FC29DDE27A19068E86313DB2F4A541B21B
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71646.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71646.jpgsave_picture_71646.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Microsoft Visual Studio 2019 Enterprise 16.11.43 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71647.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71647.jpgsave_picture_71647.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Free Download Manager 6.25.1.6042 x64 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71648.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71648.jpgsave_picture_71648.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Periodic Table / Таблица Менделеева 2025 PRO v3.5.8 Mod by Bala
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71649.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71649.jpgsave_picture_71649.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Advanced Renamer 4.08 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71650.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71650.jpgsave_picture_71650.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ Photo Lab PRO v3.13.45 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71651.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71651.jpgsave_picture_71651.jpg" />
 </div>
 
 

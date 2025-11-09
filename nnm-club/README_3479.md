@@ -6,7 +6,7 @@ Ultimaker Cura 5.7.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110815.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110815.jpgsave_picture_110815.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Gradient v2.10.17 Mod by ImanAlien [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110816.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110816.jpgsave_picture_110816.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Atlantis Word Processor 4.3.9.2 Repack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110817.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110817.jpgsave_picture_110817.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ WinMerge 2.16.40 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110818.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110818.jpgsave_picture_110818.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Aiseesoft Screen Recorder 2.9.50 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110819.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110819.jpgsave_picture_110819.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Soft Organizer Pro 9.44 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110820.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110820.jpgsave_picture_110820.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Aggressor - Procreate the Petrifactions (1993) Released, 2012, Roundsound [FLAC|
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110821.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110821.jpgsave_picture_110821.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ Charlie Byrd, Barney Kessel, Herb Ellis - Great Guitars: Recorded Live At The Co
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110822.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110822.jpgsave_picture_110822.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ magnet:?xt=urn:btih:E99A7F1BFF616A779D33DE409EFA2C61A0C72B09
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110823.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110823.jpgsave_picture_110823.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ Giuffria - Giuffria (1984) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Hard Rock, A
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110824.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110824.jpgsave_picture_110824.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ Six by Six - Beyond Shadowland (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Progr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110825.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110825.jpgsave_picture_110825.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ H.E.A.T. - Freedom Rock (2010) Remixed, 2023, H.e.a.t. [FLAC 24/44.1|Lossless|WE
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110826.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110826.jpgsave_picture_110826.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ magnet:?xt=urn:btih:04F67DAA69602F6396361CE4A1B611D2377E0E7B
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110827.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110827.jpgsave_picture_110827.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ Gerald Albright - G (2016) Bright Music Records [FLAC|Lossless|tracks + .cue] <S
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110828.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110828.jpgsave_picture_110828.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ magnet:?xt=urn:btih:0E8D7E6998EE9F026AFD54414879DE8AB1DBFD4C
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110829.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110829.jpgsave_picture_110829.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ Bobby Hutcherson - Landmarks (1984 - 1986) 1991, Landmark Records [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110830.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110830.jpgsave_picture_110830.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ magnet:?xt=urn:btih:A9A2740C8B0E22358A40DB453C49A3BD032D5EF1
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110831.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110831.jpgsave_picture_110831.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ VA - Ocean Experience: Chillout Your Mind (2024) [FLAC|Lossless|WEB-DL|tracks] <
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110832.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110832.jpgsave_picture_110832.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ magnet:?xt=urn:btih:6CF2D0DCF25E5BDC35B9993BA930497E2E303A2D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110833.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110833.jpgsave_picture_110833.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ magnet:?xt=urn:btih:6CF2D0DCF25E5BDC35B9993BA930497E2E303A2D
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110834.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110834.jpgsave_picture_110834.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ Waterfox Current G6.0.13 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110835.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110835.jpgsave_picture_110835.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Q-Dir 11.62 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110836.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110836.jpgsave_picture_110836.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ magnet:?xt=urn:btih:DC700B5A0F633D4687B0517680ACB0A917AFDE03
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110837.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110837.jpgsave_picture_110837.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Kasper Bjorke - Puzzles (2024) [FLAC|Lossless|WEB-DL|tracks] <new disco, Alterna
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110838.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110838.jpgsave_picture_110838.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Wise Care 365 Pro 6.7.1.643 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110839.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110839.jpgsave_picture_110839.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ Neil Young & Crazy Horse - Fu##in' Up (2024) [FLAC|Lossless|WEB-DL|tracks] <Clas
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110840.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110840.jpgsave_picture_110840.jpg" />
 </div>
 
 

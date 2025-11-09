@@ -6,7 +6,7 @@ Django Reinhardt - 1934 - 1935 (1993) Classics [FLAC|Lossless|tracks + .cue] <Sw
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237926.jpgsave_picture_237926.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:9497859D4DEF4461C8851AE6AB7ACD4AB4028E76
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237927.jpgsave_picture_237927.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Fort Firewall 3.6.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237928.jpgsave_picture_237928.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Prydain - The Gates of Aramore (2023) [FLAC|Lossless|WEB-DL|tracks] <Power Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237929.jpgsave_picture_237929.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ VA - Shazam Хит-парад World Top 200 Апрель (2022) [MP3|320 Kbps] <
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237930.jpgsave_picture_237930.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ Jay Gruska - Which One of Us Is Me (1984) [MP3|320 Kbps] <AOR>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237931.jpgsave_picture_237931.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Rename Expert 5.29.8 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237932.jpgsave_picture_237932.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ magnet:?xt=urn:btih:7048CA8F64225DB317538D9F9B7A603DD9527835
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237933.jpgsave_picture_237933.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ Diego Rivera - Indigenous (2019) 2021, Posi-Tone [FLAC|Lossless|tracks + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237934.jpgsave_picture_237934.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ start 4.5 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237935.jpgsave_picture_237935.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ Wytch Hazel - IV: Sacrament (2023) [FLAC|Lossless|WEB-DL|tracks] <70's Hard, Hea
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237936.jpgsave_picture_237936.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ magnet:?xt=urn:btih:9F9A63E9D3B7C86B2FDA44281E2F13305FA58B57
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237937.jpgsave_picture_237937.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ Stan Bush & Barrage - Stan Bush & Barrage (1987) [FLAC|Lossless|image + .cue] <A
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237938.jpgsave_picture_237938.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ magnet:?xt=urn:btih:4AA65A8066CBE7F21519DDB43F5BB41030117952
 >>Новости
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237939.jpgsave_picture_237939.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ Aiseesoft Data Recovery 1.6.10 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237940.jpgsave_picture_237940.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ Icecream PDF Editor Pro 2.71 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237941.jpgsave_picture_237941.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ James Moody - 1948 - 1949 (2000) Classics [FLAC|Lossless|tracks + .cue] <Bop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237942.jpgsave_picture_237942.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Order in Chaos - S(K)In (2022) [FLAC|Lossless|WEB-DL|tracks] <alternative rock, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237943.jpgsave_picture_237943.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Kjellerbandet - Mingus Schmingus (2004) Sonor Records [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237944.jpgsave_picture_237944.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Ike Quebec - Four Classic Albums (1961, 1962) 2CD, 2018, Avid Jazz [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237945.jpgsave_picture_237945.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ magnet:?xt=urn:btih:938A41EAF60C70303F91BE82AB24BEBDD815F32F
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237946.jpgsave_picture_237946.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ magnet:?xt=urn:btih:33D5ADDF7308AA30995A703AF22BFAD4D0C85D26
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237947.jpgsave_picture_237947.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Psiphon 3 build 178 (26.04.2023) Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237948.jpgsave_picture_237948.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ MiniNote Pro 5.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237949.jpgsave_picture_237949.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ magnet:?xt=urn:btih:FCF1E72B5A3073C4BFBAF4C21F5FDD84D4D3CF58
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237950.jpgsave_picture_237950.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Timer RH PRO  2.11.0 [En/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237951.jpgsave_picture_237951.jpg" />
 </div>
 
 

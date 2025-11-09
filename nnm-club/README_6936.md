@@ -6,7 +6,7 @@ Wondershare UniConverter 14.1.16.174 (х64) Repack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238135.jpgsave_picture_238135.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:78E623AC65B2A29C53EF0C140DF7C8E3CA7563A7
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238136.jpgsave_picture_238136.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Akilla - The Gods Have Spoken (2023) [MP3|320 Kbps] <Melodic Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238137.jpgsave_picture_238137.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:6479660E4098E27C8BFB2AE5329E781FCA1DBC08
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238138.jpgsave_picture_238138.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:B9F6DEB93B497E0D1DBCF1A94146499EB52ACA1B
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238139.jpgsave_picture_238139.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:0BC0F5481031338AA125377D33A59DC53643A237
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238140.jpgsave_picture_238140.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Gumroad, Henrique Campanha | Painting a Realistic Skin Texture using Mari (2015)
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238141.jpgsave_picture_238141.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ Triskelyon - Downfall (2022) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238142.jpgsave_picture_238142.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ magnet:?xt=urn:btih:28862CB7ECE10510BD96CC76207467A25DA67E88
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238143.jpgsave_picture_238143.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ magnet:?xt=urn:btih:67ADDFBB77F4333DCFF9E145F8DB6D0FEDC1DBB4
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238144.jpgsave_picture_238144.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ magnet:?xt=urn:btih:4777A685F48882B2E8B5D2944134171348D88F9E
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238145.jpgsave_picture_238145.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ magnet:?xt=urn:btih:D2F003AAD864A497CAEB3B634F3374970CFBB020
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238146.jpgsave_picture_238146.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ MetaImage  2.5.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238147.jpgsave_picture_238147.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Unbowed - Colour The Soul (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death, B
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238148.jpgsave_picture_238148.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ magnet:?xt=urn:btih:43D817F856D6DA811C2167E8B2E4450F12E7DB52
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238149.jpgsave_picture_238149.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ AnyDroid 7 v7.4.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238150.jpgsave_picture_238150.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ VA - Мелодии экрана, 7 серия (1961) [FLAC 1.0|96/24|tracks|Vin
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238151.jpgsave_picture_238151.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ magnet:?xt=urn:btih:385A9BCBA4B819EAD00B0348ED667D5DCFB3DE3B
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238152.jpgsave_picture_238152.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ magnet:?xt=urn:btih:97F48C482BAD98CA0F75507DC5514B724077BF3E
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238153.jpgsave_picture_238153.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Dark Age of Technology - 4 Albums (2018-2022) [FLAC|Lossless|WEB-DL|tracks] <Thr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238154.jpgsave_picture_238154.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ SnapMotion Unlimited 5.1.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238155.jpgsave_picture_238155.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ magnet:?xt=urn:btih:40CA1B69D192F711BFB5FF7038554BADFED7303B
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238156.jpgsave_picture_238156.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ magnet:?xt=urn:btih:E3277E8156BC714290DBB16B03AA0A23168E945F
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238157.jpgsave_picture_238157.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ FSNotes 6.2.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238158.jpgsave_picture_238158.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ magnet:?xt=urn:btih:983E32C25C0532C95DE0078E52FCED0D4E5F7D36
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238159.jpgsave_picture_238159.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Opera GX 98.0.4759.22 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238160.jpgsave_picture_238160.jpg" />
 </div>
 
 

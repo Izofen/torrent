@@ -6,7 +6,7 @@ Leningrad Nights - Collection (2024) [MP3|320 Kbps] <Disco, Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23843.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23843.jpgsave_picture_23843.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:A969843ED3284628AFA93EE35C3B03B52FFC94A5
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23844.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23844.jpgsave_picture_23844.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:E162C06AEF478C0BB07D5120C1A127AF8459B493
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23845.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23845.jpgsave_picture_23845.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:80A7A99E1F77B0D10FD51CC9F4252DDF514A221D
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23846.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23846.jpgsave_picture_23846.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:54B8A6FF6C0F3FB40F4F5A1A1E5BE5D4AB567684
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23847.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23847.jpgsave_picture_23847.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:35A946E26BCFDA0F7C8D4CFD4D9057F4FF58C400
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23848.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23848.jpgsave_picture_23848.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ FBReader Premium v3.8.6 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23849.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23849.jpgsave_picture_23849.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ N.I.C.E. 2 / BreakNeck (2000) [Multi] (1.1.0) License GOG
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23850.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23850.jpgsave_picture_23850.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Whitney Houston - Whitney (2023) [DSD64 2.0|1bit/2822,4kHz |SACD-R] <Pop>
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23851.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23851.jpgsave_picture_23851.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ Multi Commander Full Edition 15.2 Build 3077 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23852.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23852.jpgsave_picture_23852.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ Double Commander 1.1.23 gamma  + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23853.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23853.jpgsave_picture_23853.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ Wondershare PDFelement 11.4.11.3379 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23854.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23854.jpgsave_picture_23854.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ Cataclismo (2024) [Ru/Multi] (1.0.0.33.199) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23855.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23855.jpgsave_picture_23855.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ magnet:?xt=urn:btih:F587BC521EF204E421CD54B8350DB3159CB67576
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23856.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23856.jpgsave_picture_23856.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Word Learn Languages v5.11 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23857.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23857.jpgsave_picture_23857.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ magnet:?xt=urn:btih:AA1656515C4B02B2FD5AEC1078FB148CC3EA9DB4
 >>Картинки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23858.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23858.jpgsave_picture_23858.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ magnet:?xt=urn:btih:9E517286A0B325A9C39088480AA79B3E443340CE
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23859.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23859.jpgsave_picture_23859.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ magnet:?xt=urn:btih:E7B4AB04881CBA97DC3E9F3B73BC32AE7FF9A7DD
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23860.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23860.jpgsave_picture_23860.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Grand Blue | Grand Blue Dreaming | Необъятный Океан [2018, TV, 12
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23861.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23861.jpgsave_picture_23861.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ magnet:?xt=urn:btih:5CA4E592494F08E500222D776DEFD94412985A2C
 >>Книжная иллюстрация
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23862.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23862.jpgsave_picture_23862.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ Zoo Match / Три в Ряд: Зоопарк и Животные v1.7.9 Mod by v
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23863.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23863.jpgsave_picture_23863.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ Media Player Classic Home Cinema (MPC-HC) 2.4.1.0 + Portable (unofficial) [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23864.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23864.jpgsave_picture_23864.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ magnet:?xt=urn:btih:E804B081CBED0253D996136C69141B98633CF75F
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23865.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23865.jpgsave_picture_23865.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Blender 4.2.8 LTS + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23866.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23866.jpgsave_picture_23866.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ magnet:?xt=urn:btih:65986A0E92E2D8F4421E8F93959C2E5565258778
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23867.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23867.jpgsave_picture_23867.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ Bass Defense: Rhythm Meets Strategy (2024) [Mutli] (1.0) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23868.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23868.jpgsave_picture_23868.jpg" />
 </div>
 
 

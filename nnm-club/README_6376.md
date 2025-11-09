@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202428.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202428.jpgsave_picture_202428.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:FF789DDED19B34C73D6586F0B26F2698CD435A9C
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202429.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202429.jpgsave_picture_202429.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:52CCEFFBF5B922D09870FB689CFA9048E2995CC1
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202430.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202430.jpgsave_picture_202430.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:19AE471BD505009E3CE89DE214A6721FA2E38559
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202431.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202431.jpgsave_picture_202431.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:264CBF38123DA5F1986A6B7E7B7490C8DB0A1191
 >>Картинки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202432.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202432.jpgsave_picture_202432.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:72AF467407B00179EC200210CBD6720C60FCE60C
 >>Элементы (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202433.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202433.jpgsave_picture_202433.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ CWT (Clockwork Times) - CWT (2025) [FLAC|Lossless|WEB-DL|tracks] <Punk, Ska>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202434.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202434.jpgsave_picture_202434.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:146C3D95D9B61664F98658C2C1CBEA77701AE1CB
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202435.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202435.jpgsave_picture_202435.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:DDF8F7C74DD94314C6129C3C01EB8A9D6EBFDE41
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202436.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202436.jpgsave_picture_202436.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ VA - Deep Relax - Yoga & Chillout Grooves (2025) [FLAC|Lossless|WEB-DL|tracks] <
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202437.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202437.jpgsave_picture_202437.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ The Crew 2 (2018) [Ru/Multi] (4060652/dlc) Repack FitGirl [Gold Edition]
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202438.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202438.jpgsave_picture_202438.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ One Hand Clapping (2021) [Ru/Multi] (1.0.41 Release.1) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202439.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202439.jpgsave_picture_202439.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Jenny LeClue - Detectivu (2019) [Ru/Multi] (2.2.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202440.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202440.jpgsave_picture_202440.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Truberbrook / Trüberbrook: A Nerd Saves the World (2019) [Ru/Multi] (1.6-fix) L
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202441.jpgsave_picture_202441.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Labyrinthine (2023) [Ru/Multi] (Build 19882271/dlc) Repack Pioneer [Supporter Ed
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202442.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202442.jpgsave_picture_202442.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ magnet:?xt=urn:btih:EC684EECD2CF30F242858785E3E5BE92290B0CBD
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202443.jpgsave_picture_202443.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Windows 7 SP1 with Update [7601.27974] AIO (x64) by SURASOFT (v25.10.14) [Ru]
 >>Песочница ПО и сборок Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202444.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202444.jpgsave_picture_202444.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ magnet:?xt=urn:btih:A896C1986D67CE147E7E4C85C6163B47DD505EAF
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202445.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202445.jpgsave_picture_202445.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ magnet:?xt=urn:btih:1B1A087C32DB3352F9C870A7D07055A52A6DB26A
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202446.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202446.jpgsave_picture_202446.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ magnet:?xt=urn:btih:3C6A57082F2287415D58DE4846D9FEAB3E13C74F
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202447.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202447.jpgsave_picture_202447.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ magnet:?xt=urn:btih:794CAE2FE18A36E4DA7495B26FBE40A92B3F102F
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202448.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202448.jpgsave_picture_202448.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ magnet:?xt=urn:btih:C016CD4D80408BBC110E85F8B656E8DCE176C7D4
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202449.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202449.jpgsave_picture_202449.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Minimal Firewall 2.5.2 Portable [En]
 >>Firewalls
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202450.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202450.jpgsave_picture_202450.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ magnet:?xt=urn:btih:9F822852C38B9C69DCBD7D21C5A6AD1BA8DF6336
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202451.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202451.jpgsave_picture_202451.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ Onirism (2025) [Ru/Multi] (1.0) Scene Rune
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202452.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202452.jpgsave_picture_202452.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Gunfire Reborn (2021) [Ru/Multi] (20506329/dlc) Scene Rune
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202453.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202453.jpgsave_picture_202453.jpg" />
 </div>
 
 

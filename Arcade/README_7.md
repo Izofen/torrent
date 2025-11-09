@@ -6,7 +6,7 @@ Virtua Fighter 5 R.E.V.O. (2025) [Multi] (1.00/dlc) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28802.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28802.jpgsave_picture_28802.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Retro City Rampage DX (2014) [Multi] (2.10) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28864.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28864.jpgsave_picture_28864.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Virtua Fighter 5 R.E.V.O. (2025) [Multi] (Build 17103742/dlc) Scene Rune
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28893.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28893.jpgsave_picture_28893.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Mika and The Witch's Mountain (2024) [Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28925.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28925.jpgsave_picture_28925.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ ReSetna (2025) [Ru/Multi] (build 17191225) Repack seleZen
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29221.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29221.jpgsave_picture_29221.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Primeval (2020) [En] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29725.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29725.jpgsave_picture_29725.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Fragrance Point (2025) [En] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29784.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29784.jpgsave_picture_29784.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ STAR WARS: Episode I: Jedi Power Battles (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29984.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29984.jpgsave_picture_29984.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ My Memory of Us (2018) [Ru/Multi] (Build 16287132) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30229.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30229.jpgsave_picture_30229.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ JUMP! The Floor Is... (2025) [Ru/Multi] (build 16957809) Repack seleZen
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30998.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30998.jpgsave_picture_30998.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Bugs Bunny & Taz: Time Busters (2000) [Ru/Multi] (1.0) Repack Ma2012ks
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31007.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31007.jpgsave_picture_31007.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ magnet:?xt=urn:btih:7725D29CA7FE481D5E0A74EED20DD78E2E89EDC9
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31272.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31272.jpgsave_picture_31272.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Warden's Will (2025) [Ru/Multi] (1.0.0c) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31302.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31302.jpgsave_picture_31302.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Warden's Will (2025) [Ru/Multi] (1.0.0c) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31375.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31375.jpgsave_picture_31375.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Warden's Will (2025) [Ru/Multi] (1.0.0c) Repack seleZen
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31512.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31512.jpgsave_picture_31512.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Only Up: Lizards Must Fall / Only Up: Восхождение Русов (2025) [
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31526.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31526.jpgsave_picture_31526.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Living With Sister: Monochrome Fantasy (2024) [En] (20241219/dlc) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31746.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31746.jpgsave_picture_31746.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Adventure Allies (2025) [Ru/Multi] (build 16612391) Repack seleZen
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31832.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31832.jpgsave_picture_31832.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Only Up: Lizards Must Fall / Only Up: Восхождение Русов (2025) [
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31853.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31853.jpgsave_picture_31853.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Tekken 8 (2024) [Ru/Multi] (1.10.01/dlc) Repack seleZen [Ultimate Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31945.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31945.jpgsave_picture_31945.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ magnet:?xt=urn:btih:0499B81AD5AE6F0A309969DB06618D741CC2BDC0
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32116.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32116.jpgsave_picture_32116.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Finding Frankie (2024) [Ru/Multi] (Build 16260850) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32218.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32218.jpgsave_picture_32218.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Snow Bros. Wonderland (2024) [Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32282.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32282.jpgsave_picture_32282.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Snow Bros. Wonderland (2024) [Multi] (1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32341.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32341.jpgsave_picture_32341.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Slopecrashers (2024) [En] (1.0.0.4) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32345.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32345.jpgsave_picture_32345.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Penny Blood: Hellbound (2024) [Multi] (1.0.00628) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32363.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32363.jpgsave_picture_32363.jpg" />
 </div>
 
 

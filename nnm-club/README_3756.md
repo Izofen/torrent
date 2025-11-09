@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118036.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118036.jpgsave_picture_118036.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118037.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118037.jpgsave_picture_118037.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:A87A75D0DE564D484B198D961335A7BA5D5A8825
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118038.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118038.jpgsave_picture_118038.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Revo Uninstaller Pro 5.2.5 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118039.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118039.jpgsave_picture_118039.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Sword of Moonlight / King's Field (2000) [En] (1.2) License
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118040.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118040.jpgsave_picture_118040.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:D3F038E8051DCB350DAA625D0F4070BBE82F1279
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118041.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118041.jpgsave_picture_118041.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:BB05C5DD27B9E86A8A5F2A1A315D8AAC8A53D79D
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118042.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118042.jpgsave_picture_118042.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:5AC8B1AD9C54F8B74652FCD2CB5B60B53A969A4E
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118043.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118043.jpgsave_picture_118043.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ CrossOver Linux 23.7.1-1 [x64] (deb, rpm, bin)
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118044.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118044.jpgsave_picture_118044.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ magnet:?xt=urn:btih:5E1CD9BD53AB0EC31680909F51A95390EF24C765
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118045.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118045.jpgsave_picture_118045.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ magnet:?xt=urn:btih:B7A917EA3BB7C73254C2B602D83BE0EC5BEC8D3E
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118046.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118046.jpgsave_picture_118046.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:7F652AAF51E1BB9537B85BA68420DB62D754C3FA
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118047.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118047.jpgsave_picture_118047.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:E01860A2577C4B15A04A7C782AB32A5FF9A64ADC
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118048.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118048.jpgsave_picture_118048.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ magnet:?xt=urn:btih:0814592BDBA07E2EE62D6267EE6A578EB3AA2420
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118049.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118049.jpgsave_picture_118049.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ magnet:?xt=urn:btih:0814592BDBA07E2EE62D6267EE6A578EB3AA2420
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118050.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118050.jpgsave_picture_118050.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ magnet:?xt=urn:btih:F0D44730F86FCABC9A5F89B89F18FE7516A9C4ED
 >>Новости Клуба
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118051.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118051.jpgsave_picture_118051.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ magnet:?xt=urn:btih:F0D44730F86FCABC9A5F89B89F18FE7516A9C4ED
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118052.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118052.jpgsave_picture_118052.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ magnet:?xt=urn:btih:5D9A350E9BDF184A59FCC811B06D12A5A3B6FE3E
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118053.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118053.jpgsave_picture_118053.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ Defender Remover Portable 12.7.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118054.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118054.jpgsave_picture_118054.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Stellaris v.3.10.4 DLC (2018) [Multi/Ru] [macOS Native game]
 >>Strategy, RPG для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118055.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118055.jpgsave_picture_118055.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ magnet:?xt=urn:btih:3A3EA53044E9728C886CA823647E1EE0B254EB1B
 >>11
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118056.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118056.jpgsave_picture_118056.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ magnet:?xt=urn:btih:3A3EA53044E9728C886CA823647E1EE0B254EB1B
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118057.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118057.jpgsave_picture_118057.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Smart AudioBook Player Pro v10.6.4 Mod by Balatan [Ru/Multi]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118058.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118058.jpgsave_picture_118058.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ GoodbyeDPI 0.2.2 Launcher 6.7 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118059.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118059.jpgsave_picture_118059.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ magnet:?xt=urn:btih:8F638F22427251387B99729169A077487E78BB9E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118060.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118060.jpgsave_picture_118060.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ Universe Sandbox v.34.0.4 (2015) [Multi/Ru] [macOS Native game]
 >>Racing, Simulation, Sports для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118061.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118061.jpgsave_picture_118061.jpg" />
 </div>
 
 

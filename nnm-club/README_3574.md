@@ -6,7 +6,7 @@ DigiKam 8.3.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113299.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113299.jpgsave_picture_113299.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:0B693B95ECB3DFB3149B6AF6907E27551C85FC04
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113300.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113300.jpgsave_picture_113300.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ VA - Music News vol.353 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113301.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113301.jpgsave_picture_113301.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:171083B014F2AF210CF6AA89A2CACE92468A7465
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113302.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113302.jpgsave_picture_113302.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ LibreWolf 123.0.1-1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113303.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113303.jpgsave_picture_113303.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ VA - Electro Swing, Nu Jazz Compilation part 64 (2024) [MP3|320 Kbps] <Electro S
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113304.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113304.jpgsave_picture_113304.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ Cherry Laine - The Singles Collection - B’ Sides (2023) [FLAC|Lossless|image +
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113305.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113305.jpgsave_picture_113305.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ magnet:?xt=urn:btih:145E39D9DEDFA6D7D17BC4C2EB9F39BFB5ACA6ED
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113306.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113306.jpgsave_picture_113306.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ magnet:?xt=urn:btih:9EB4CEA5EF26747F842E905EF74CBF3116E0B4C6
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113307.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113307.jpgsave_picture_113307.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ Emurasoft EmEditor Professional 24.0.1 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113308.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113308.jpgsave_picture_113308.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ TuneIn Radio 33.6.1 Paid [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113309.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113309.jpgsave_picture_113309.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ magnet:?xt=urn:btih:6B58834C4C3B2011F63DA950106B7FFBCC240813
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113310.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113310.jpgsave_picture_113310.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ magnet:?xt=urn:btih:BD3C9AC66F4599D88A04E88B09705BD72A5361D6
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113311.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113311.jpgsave_picture_113311.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ magnet:?xt=urn:btih:2B5CD4C40D682C1B5B6F79AF7609984703489E87
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113312.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113312.jpgsave_picture_113312.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Wes Montgomery & Wynton Kelly Trio - Maximum Swing: The Unissued Half Note Recor
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113313.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113313.jpgsave_picture_113313.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ The Howard Alden Trio - A Good Likeness (1993) Concord Jazz [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113314.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113314.jpgsave_picture_113314.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Howard Alden Trio - Misterioso (1991) Concord Jazz [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113315.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113315.jpgsave_picture_113315.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ VA - Для вас, женщины! Женский портрет (1987) [FLAC 2
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113316.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113316.jpgsave_picture_113316.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ PowerDirector – Video Editor v13.3.1 b1227130 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113317.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113317.jpgsave_picture_113317.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ magnet:?xt=urn:btih:2AB1A6CF172BAEC05D9AB447D4C1404E6D5AC618
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113318.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113318.jpgsave_picture_113318.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ magnet:?xt=urn:btih:B0A7CBDBF657B4C015D2AFB82F78BE0F0421880A
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113319.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113319.jpgsave_picture_113319.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ magnet:?xt=urn:btih:3271AD8C61FA7C17D3B3848F4E454CF445D33882
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113320.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113320.jpgsave_picture_113320.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ magnet:?xt=urn:btih:FE5880A75B84B5E387BE53318B729FE92BDB241E
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113321.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113321.jpgsave_picture_113321.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ VA - Supreme Lounge Chill Selection Jazzy Vibe Tunes (2024) [FLAC|Lossless|WEB-D
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113322.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113322.jpgsave_picture_113322.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ magnet:?xt=urn:btih:CB6D71354118ECD04A52F8BFDD1A50E6C7111307
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113323.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113323.jpgsave_picture_113323.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ VA - Paramount Jazz Lounge Chilling Experience (2024) [FLAC|Lossless|WEB-DL|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113324.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113324.jpgsave_picture_113324.jpg" />
 </div>
 
 

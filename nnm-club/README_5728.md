@@ -6,7 +6,7 @@ Paul McCartney - The 7” Singles (2022) [MP3|320 Kbps] <Pop Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176646.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176646.jpgsave_picture_176646.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:D0391539718231BB44CD0B693F4D6729145DFFB1
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176647.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176647.jpgsave_picture_176647.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ FreeFileSync 11.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_176648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176648.jpgsave_picture_176648.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:8DF50BC642E724C6D6EDC12DEECC5BE7AA594ED9
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176650.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176650.jpgsave_picture_176650.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:1B44D406032F7CA0A41C25CA2F47AE68E088854A
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176651.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176651.jpgsave_picture_176651.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:F152994F673D8D5CEF390A01251576B712C02770
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_176652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176652.jpgsave_picture_176652.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ Tower Pro 9 v.9.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176654.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176654.jpgsave_picture_176654.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:F4FA0270B1EB6B01D21767FB3730BC3192EA8D82
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176655.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176655.jpgsave_picture_176655.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ Auslogics Disk Defrag Pro 10.0.0.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_176656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176656.jpgsave_picture_176656.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ magnet:?xt=urn:btih:FA24FADDBACAC1981F00647ACC8587B074F31EB9
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176658.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176658.jpgsave_picture_176658.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:9056395838E8575A086424D52D24F0A09335F636
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_176659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176659.jpgsave_picture_176659.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ Imagine 1.3.1 + Portable + Plugins  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176660.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176660.jpgsave_picture_176660.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Lacey Free Music & Video Downloader 2.90 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176662.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176662.jpgsave_picture_176662.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ QOwnNotes 22.12.0 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176663.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176663.jpgsave_picture_176663.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Dua Lipa - Future Nostalgia (2020) [AAC|~311 Kbps] <Pop>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_176664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176664.jpgsave_picture_176664.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ magnet:?xt=urn:btih:9D9115F8EA47DE9EBE55C017470BDF0978B6D56B
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176666.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176666.jpgsave_picture_176666.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ magnet:?xt=urn:btih:4BC7FBD7A378485404B59153C5FD0CBC627D6A86
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176667.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176667.jpgsave_picture_176667.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Luminar Neo 1.5.1 Intl [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176669.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176669.jpgsave_picture_176669.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ magnet:?xt=urn:btih:7E344E586C517F2F86416F95A482F43776A5F468
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176670.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176670.jpgsave_picture_176670.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ AirMail Pro 5 v.5.5.81 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176672.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176672.jpgsave_picture_176672.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ magnet:?xt=urn:btih:A2904697691AE15AA8108CEF38B34AD8677494B9
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176673.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176673.jpgsave_picture_176673.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ magnet:?xt=urn:btih:079C6C88E8150A3267E95C0F2816A6F3A2F76DDE
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176675.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176675.jpgsave_picture_176675.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ magnet:?xt=urn:btih:8DD3A7ADCDD8398056F8A80AD8EA7DD693A24204
 >>КВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176677.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176677.jpgsave_picture_176677.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ magnet:?xt=urn:btih:0F2C39BFA68B3316C40596FB730EA57888712D2C
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_176679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176679.jpgsave_picture_176679.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ magnet:?xt=urn:btih:5945E199F8023F2339C30D14288332A9FE96FB32
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176680.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176680.jpgsave_picture_176680.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ Ron Madore - Intoxicating (2020) [FLAC|Lossless|WEB-DL|tracks] <Country, Rock>
 >>Folk
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_176682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176682.jpgsave_picture_176682.jpg" />
 </div>
 
 

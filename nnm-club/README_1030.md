@@ -6,7 +6,7 @@
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27130.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27130.jpgsave_picture_27130.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ qBittorrent 5.0.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27131.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27131.jpgsave_picture_27131.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:6E6F4E6ADC36F5176619ADCB59D065915B26B412
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27132.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27132.jpgsave_picture_27132.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:901453FE5284023D7189CB53B854A0BDEAF34E87
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27133.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27133.jpgsave_picture_27133.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ AIDA64 Extreme | Engineer | Business Edition | Network Audit 7.60.7300 RePack (&
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27134.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27134.jpgsave_picture_27134.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Lost Records Bloom & Rage (2025) [Ru/Multi] (1.02.118358) Scene FAiRLiGHT
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27135.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27135.jpgsave_picture_27135.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ BiglyBT 3.8 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27136.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27136.jpgsave_picture_27136.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ PurpleSchool, Антон Ларичев | React state менеджер Zustand (
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27137.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27137.jpgsave_picture_27137.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:1F9555D90F141619D7C65C5D3B362BD043D32F2F
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27138.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27138.jpgsave_picture_27138.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ GetAnalyst | Интеграции: подходы к решению практи
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27139.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27139.jpgsave_picture_27139.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:3E7B5F1025F156D9DB069D849E94EB753870CCF8
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27140.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27140.jpgsave_picture_27140.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ magnet:?xt=urn:btih:55AD26294818DC0C6EF4B7DEBC6CDE5EDEEB09D0
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27141.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27141.jpgsave_picture_27141.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Nvidia сломала PhysX во множестве старых игр на н�
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27142.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27142.jpgsave_picture_27142.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Nvidia сломала PhysX во множестве старых игр на н�
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27143.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27143.jpgsave_picture_27143.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ WinRAR 7.10 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27144.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27144.jpgsave_picture_27144.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Adobe Acrobat Pro 2024.005.20414 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27145.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27145.jpgsave_picture_27145.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ magnet:?xt=urn:btih:D69B4664939FAC196C731F46F40BBC49B3560D62
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27146.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27146.jpgsave_picture_27146.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ magnet:?xt=urn:btih:CD8FCEF8F1116504C376EFA96AB9A8A6CCD0B141
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27147.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27147.jpgsave_picture_27147.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ magnet:?xt=urn:btih:3F8483AFB59C847E472BF07139DA48BD92113114
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27148.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27148.jpgsave_picture_27148.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Windows 11 PRO 23H2 22631.4890 Update 16 by Ghost Spectre [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27149.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27149.jpgsave_picture_27149.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ magnet:?xt=urn:btih:336C0C7C0CF63934C02BD290D0190E28C60DB1B3
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27150.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27150.jpgsave_picture_27150.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ magnet:?xt=urn:btih:286CE3C0E61FD62C4120E12D659D6AF724C6AD67
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27151.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27151.jpgsave_picture_27151.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ magnet:?xt=urn:btih:CB4E222AE3BFA835E2A77D95D86C83B875934697
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27152.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27152.jpgsave_picture_27152.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ qBittorrent 5.0.4 Portable by stalkerok (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27153.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27153.jpgsave_picture_27153.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ WarCraft II (2) (1995) [Ru] (2.02b/dlc) Repack EXROW [Battle.net Edition]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27154.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27154.jpgsave_picture_27154.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ NINJA GAIDEN 2 Black (2025) [Ru/Multi] (1.0.7.0) Repack Wanterlude
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27155.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27155.jpgsave_picture_27155.jpg" />
 </div>
 
 

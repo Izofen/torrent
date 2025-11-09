@@ -6,7 +6,7 @@ iZotope - Neutron 4 4.2.0 VST3, AAX (x64) RePack by R2R [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_191349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191349.jpgsave_picture_191349.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:5888F1C32C92B9D7A6225519A08DE4C7C822F822
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191350.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191350.jpgsave_picture_191350.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Garmin: Дороги России Топо 6.43 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191351.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191351.jpgsave_picture_191351.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ From Every Ruin - Without Light, It Never Heals (2022) [FLAC|Lossless|WEB-DL|tra
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_191352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191352.jpgsave_picture_191352.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ Apeaksoft Video Converter Ultimate 2.3.18 RePack (& Portable) by TryRooM [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_191353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191353.jpgsave_picture_191353.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ magnet:?xt=urn:btih:8A33F9C120CD78B2F8A9504806E8353BDA3C73BC
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191354.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191354.jpgsave_picture_191354.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ magnet:?xt=urn:btih:0CD315D0665BAA38025384BB06B4697E046C0702
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191355.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191355.jpgsave_picture_191355.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:37E11E84610B4A1277A8E9A61A1B699DF4A3FC56
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_191356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191356.jpgsave_picture_191356.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ Soft Cell - *Happiness Not Included (2022) [FLAC|Lossless|image + .cue] <Synth-p
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_191357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191357.jpgsave_picture_191357.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ Systems.Education, Анна Вичугова | BPMN для людей: осно�
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191358.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191358.jpgsave_picture_191358.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ magnet:?xt=urn:btih:E5D3F4BA675036D102E96AD27C626AD41146AE39
 >>Компьютерные новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191359.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191359.jpgsave_picture_191359.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ magnet:?xt=urn:btih:E5D3F4BA675036D102E96AD27C626AD41146AE39
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_191360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191360.jpgsave_picture_191360.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ magnet:?xt=urn:btih:CDC9DA30AE11782AA63921763686099233CFEE7D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191361.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191361.jpgsave_picture_191361.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Ugly Kid Joe - Rad Wings Of Destiny (2022) [FLAC|Lossless|image + .cue] <Hard Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191362.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191362.jpgsave_picture_191362.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ VA - Привет Уходящему Лету (2023) [MP3|320 Kbps] <Pop, Dance,
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191363.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191363.jpgsave_picture_191363.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ iZotope - Nectar 4 Advanced 4.0.0 VST 3, AAX (x64) RePack by R2R [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191364.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191364.jpgsave_picture_191364.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ magnet:?xt=urn:btih:C3B22B721AA517AF0FA802563238F4EBD47BC35D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191365.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191365.jpgsave_picture_191365.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ magnet:?xt=urn:btih:89312AA288512C2557ED1A0EE9A9B16CC1BD2E6F
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191366.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191366.jpgsave_picture_191366.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ magnet:?xt=urn:btih:BEE95C3381EB1D59BEA6ECD1F39CDBAF22FC170A
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191367.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191367.jpgsave_picture_191367.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ magnet:?xt=urn:btih:BFD869EE915E08BC944D5619D15A4BE7776FB222
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191368.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191368.jpgsave_picture_191368.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ magnet:?xt=urn:btih:4117C1EA5617D3EEA922461613831D9CF101B291
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191369.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191369.jpgsave_picture_191369.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ magnet:?xt=urn:btih:A70D6B09D6DE76175EADFE5BD4333D2EC9677C65
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191370.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191370.jpgsave_picture_191370.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ iZotope - Ozone 11 Advanced 11.0.0 VST 3, AAX (x64) RePack by R2R [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191371.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191371.jpgsave_picture_191371.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ magnet:?xt=urn:btih:45DE153DAE9699E440705AEBC216547192D19F6C
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191372.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191372.jpgsave_picture_191372.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ Huawei может начать выпускать ноутбуки на HarmonyO
 >>Компьютерные новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191373.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191373.jpgsave_picture_191373.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ Huawei может начать выпускать ноутбуки на HarmonyO
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191374.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191374.jpgsave_picture_191374.jpg" />
 </div>
 
 

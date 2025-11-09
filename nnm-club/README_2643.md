@@ -6,7 +6,7 @@ ALT Linux 8 СП C9F2 [i586, amd64] 6xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69468.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69468.jpgsave_picture_69468.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Saraya - When The Blackbird Sings (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69469.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69469.jpgsave_picture_69469.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:AFF007D69534C566201AE41340F762269766AD2A
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69470.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69470.jpgsave_picture_69470.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ Space Chaser - Studio Albums (5 releases) (2013-2021) hand made [restored, decli
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69471.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69471.jpgsave_picture_69471.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Beppe Capozza - T O U C H (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz Fusio
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69472.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69472.jpgsave_picture_69472.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Pioneers - In A State Of Rock (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melo
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69473.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69473.jpgsave_picture_69473.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Untold Stories - Wind and Memories (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69474.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69474.jpgsave_picture_69474.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ The Late Speakers - Freaking News (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69475.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69475.jpgsave_picture_69475.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Arthur Guyard - Pocket Grooves (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69476.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69476.jpgsave_picture_69476.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Moonsorrow - Voimasta Ja Kunniasta (2001) Released, 2017, Blood Music [FLAC|24/1
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69477.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69477.jpgsave_picture_69477.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Avion - Lady Of The Night (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Roc
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69478.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69478.jpgsave_picture_69478.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Tomislav Goluban & Crooked Eye Tommy - Nashville Road (2025) [FLAC 24/48|Lossles
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69479.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69479.jpgsave_picture_69479.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ The Witches´ Dream - Muses & Conjurations (2025) [FLAC 24/44.1|Lossless|WEB-DL|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69480.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69480.jpgsave_picture_69480.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Surya - Into the Emerald (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69481.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69481.jpgsave_picture_69481.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ magnet:?xt=urn:btih:AD3E323D8CA5A1C18BB6ECD6A5F7A211EE7C9BEB
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69482.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69482.jpgsave_picture_69482.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Tony Scott - Three Classic Albums Plus (1953 - 1958) 2CD, 2013, Avid Jazz [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69483.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69483.jpgsave_picture_69483.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ The Bud Powell Trio - Time Was (1956, 1957) 1987, Bluebird [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69484.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69484.jpgsave_picture_69484.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ The Bob Lanza Blues Band - Breadman's Blues (2025) [FLAC 24/44.1|Lossless|WEB-DL
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69485.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69485.jpgsave_picture_69485.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ Belleville Birds - Merle alors (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Conte
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69486.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69486.jpgsave_picture_69486.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ Art Pepper - Winter Moon (1980) 2005, Galaxy [FLAC|Lossless|tracks + .cue] <Cool
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69487.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69487.jpgsave_picture_69487.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Heldmaschine - Eiszeit (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Neue Deutsc
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69488.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69488.jpgsave_picture_69488.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ magnet:?xt=urn:btih:612B4012937718F884855EA995C966893D034E4E
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69489.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69489.jpgsave_picture_69489.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ The Night Flight Orchestra - Give Us The Moon (2025) [FLAC 24/44.1|Lossless|WEB-
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69490.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69490.jpgsave_picture_69490.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ David Rose - A Good Catch (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69491.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69491.jpgsave_picture_69491.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ Warbringer - Wrath And Ruin (2025) 2 x CD [FLAC|Lossless|WEB-DL|tracks] <Thrash 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69492.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69492.jpgsave_picture_69492.jpg" />
 </div>
 
 
@@ -675,7 +675,7 @@ magnet:?xt=urn:btih:D2C12D457B217B89EE99EF7A2439E8787539DD39
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69493.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69493.jpgsave_picture_69493.jpg" />
 </div>
 
 

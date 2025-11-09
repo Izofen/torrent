@@ -6,7 +6,7 @@ VA - The Best of Transensations (2018 - 2020) (2021) [AAC|~338 Kbps] <Progressiv
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129930.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129930.jpgsave_picture_129930.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:961A9474E55BB0A76588EE43FBB5C4255D48BBCC
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129931.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129931.jpgsave_picture_129931.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:1C2AD5608C7A23B7FA09C5668813D2560CAD2E83
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129932.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129932.jpgsave_picture_129932.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ VA - C Recordings 2021 (2022) [AAC|~309 Kbps] <Drum & Bass, Liquid Funk, Deep Du
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129933.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129933.jpgsave_picture_129933.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:C799D65227610383052689E1D101C952D5923D2E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129934.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129934.jpgsave_picture_129934.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:B1BCF10DC3243AF0ED1CFE222961C7E479148AC5
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129936.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129936.jpgsave_picture_129936.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ Boxy SVG 3  v3.75.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129937.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129937.jpgsave_picture_129937.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:DB1598230E1337C5D8638E20A16B38864B934BDF
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129938.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129938.jpgsave_picture_129938.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Dan McCafferty - In Memory of Dan McCafferty - No Turning Back (2023) [FLAC|Loss
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129939.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129939.jpgsave_picture_129939.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ AYVY 1.18.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129940.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129940.jpgsave_picture_129940.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ magnet:?xt=urn:btih:C9DF93CE520E7FB3740CBC1F329607A451F01860
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129942.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129942.jpgsave_picture_129942.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ Action 1.1.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129943.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129943.jpgsave_picture_129943.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:767991E9B65A51DD5AAC7A6DE20C5347EE0BA89D
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129944.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129944.jpgsave_picture_129944.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ magnet:?xt=urn:btih:31AA94A88FBF3B6F21C18AE8727FE4FF3D81BD9E
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129945.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129945.jpgsave_picture_129945.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Fusion Bass - Seasons (2021) [AAC|~345 Kbps] <Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129946.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129946.jpgsave_picture_129946.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Old Gods of Asgard - Rebirth - Greatest Hits (2023) Music from the Games 'Alan W
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129947.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129947.jpgsave_picture_129947.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ Alfred 4 Powerpack 4.6.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129948.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129948.jpgsave_picture_129948.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Artstudio Pro 4.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129949.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129949.jpgsave_picture_129949.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ magnet:?xt=urn:btih:F8219111BBA925F7597354F42AF98A358D026FD1
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129950.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129950.jpgsave_picture_129950.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Smooze Pro 2.0.10 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129951.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129951.jpgsave_picture_129951.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ David Gilmour - About Face (1984) Japanese Edition, Reissue, Remastered, 2020, S
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129952.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129952.jpgsave_picture_129952.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ magnet:?xt=urn:btih:2DC5F2E5EDD378EDC9808F6CFF5449889837C125
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129953.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129953.jpgsave_picture_129953.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ One Switch 1.24 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129954.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129954.jpgsave_picture_129954.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ Josh Steele, Renan Dias | Real-World iOS by Tutorials (2022) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129955.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129955.jpgsave_picture_129955.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ Scherlokk - Files finder 4 v4.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129956.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129956.jpgsave_picture_129956.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ MarkMyWords 2.3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129957.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129957.jpgsave_picture_129957.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Udemy, Valentina Grobler | Free To Speak Foundation (2023) WEB-DL [RU]
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125136.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125136.jpgsave_picture_125136.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:395A2255C723A4237E4868E5CF246DE80285C36B
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125137.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125137.jpgsave_picture_125137.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ HitPaw Video Enhancer x64 1.7.1.0 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125138.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125138.jpgsave_picture_125138.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:FD860FB6418C70DB862CAC45BC5A9C9175666D33
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125139.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125139.jpgsave_picture_125139.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:DE95764D6840FC195EC3BC87FDFDAE86209FCC27
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125140.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125140.jpgsave_picture_125140.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:3300BD727A428B2C770A41F91FF731859E019957
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125141.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125141.jpgsave_picture_125141.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:F193FDC1B1F631976C137427251D21EE711E6B7B
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125142.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125142.jpgsave_picture_125142.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:EC276FC036ACC8C479CFAB411A1E6C143540B2B0
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125143.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125143.jpgsave_picture_125143.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:EF4E0CE12EA66C7C006968255D5213864702E5FE
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125144.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125144.jpgsave_picture_125144.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:7FA0D004C23CF90D55E4193DC64BEFF68BD64BC5
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125145.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125145.jpgsave_picture_125145.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:2D077C8F6BB042BBE899670C2212F904F38A445B
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125146.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125146.jpgsave_picture_125146.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:921F80F6D0FA48606DC32ABF9B6F72A84BEB922A
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125147.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125147.jpgsave_picture_125147.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:1696F910906A69ACFFC0419774257AFDC73B5014
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125148.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125148.jpgsave_picture_125148.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ magnet:?xt=urn:btih:9D22AD356BF53BD239207B7680C3AC16451E6045
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125149.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125149.jpgsave_picture_125149.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ magnet:?xt=urn:btih:9075DCA458837F725076D6C335288E99F5E44222
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125150.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125150.jpgsave_picture_125150.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ magnet:?xt=urn:btih:F0C5510B3877AAE7F1DE12BD09981B707FB8EB5C
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125151.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125151.jpgsave_picture_125151.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Kori - Húszra (Huszra lapot) (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125152.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125152.jpgsave_picture_125152.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ David Benoit - Remembering Christmas (1996) GRP [FLAC|Lossless|tracks + .cue] <S
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125153.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125153.jpgsave_picture_125153.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ magnet:?xt=urn:btih:B30CD921B08216A873C3BC0E5F205B3D541B3119
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125154.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125154.jpgsave_picture_125154.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Memory Garden - 1349 (2021) [FLAC|Lossless|image + .cue] <Power Metal, Doom Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125155.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125155.jpgsave_picture_125155.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ magnet:?xt=urn:btih:5B86BDF860BB4DCA020C214D868A2D8C8A233592
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125156.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125156.jpgsave_picture_125156.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Nobuo Hara & His Sharps & Flats - Big Band Congress (1970) 2013, Nippon Columbia
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125157.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125157.jpgsave_picture_125157.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Tadd Dameron - Four Classic Albums (1948 - 1962) 2CD, 2015, Avid Jazz [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125158.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125158.jpgsave_picture_125158.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ magnet:?xt=urn:btih:5DF3AE6D80869A39131AB3798A9CCB4C9CB19357
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125159.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125159.jpgsave_picture_125159.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ magnet:?xt=urn:btih:A563F828E16F4082143BBA4FFE8A460BCFF39DDB
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125160.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125160.jpgsave_picture_125160.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ magnet:?xt=urn:btih:C311A3CCB616D4C05E59BF4C62518B16C6C1BFCE
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125161.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125161.jpgsave_picture_125161.jpg" />
 </div>
 
 

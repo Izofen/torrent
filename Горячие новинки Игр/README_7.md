@@ -6,7 +6,7 @@ Forgotten Seas (2024) [Ru/Multi] (1.0) Repack Pioneer
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193363.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193363.jpgsave_picture_193363.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Forgotten Seas (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193364.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193364.jpgsave_picture_193364.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Dispatch (2025) [Ru/Multi] (1.0.14753/dlc) Repack Wanterlude [Digital Deluxe Edi
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193365.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193365.jpgsave_picture_193365.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Painkiller (2025) [Ru/Multi] (224001/dlc) Repack Other s
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193386.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193386.jpgsave_picture_193386.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Painkiller (2025) [Ru/Multi] (224001/dlc) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193387.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193387.jpgsave_picture_193387.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Vampire: The Masquerade - Bloodlines 2 (2025) [Ru/Multi] (46047/dlc) Repack sele
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193388.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193388.jpgsave_picture_193388.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Vampire: The Masquerade - Bloodlines 2 (2025) [Ru/Multi] (46047/dlc) Repack FitG
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193394.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193394.jpgsave_picture_193394.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Dispatch (2025) [Ru/Multi] (1.0.14864/dlc) Repack Other s [Digital Deluxe Editio
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193462.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193462.jpgsave_picture_193462.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Onirism (2025) [Ru/Multi] (1.0) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193468.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193468.jpgsave_picture_193468.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Plants vs. Zombies: Replanted (2025) [Multi] (1.2) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193583.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193583.jpgsave_picture_193583.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ The Outer Worlds 2 (2025) [Ru/Multi] (1.0.3.0/dlc) Repack Wanterlude [Premium Ed
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_199746.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_199746.jpgsave_picture_199746.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ The Outer Worlds 2 (2025) [Ru/Multi] (1.0.3.0/dlc) Repack Let'sРlay [Premium Ed
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_199853.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_199853.jpgsave_picture_199853.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Plants vs. Zombies: Replanted (2025) [Multi] (1.2) Repack Other s
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_199991.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_199991.jpgsave_picture_199991.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Tormented Souls 2 (2025) [Ru/Multi] (1.2.0/dlc) Scene Rune [Digital Deluxe Editi
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_200002.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_200002.jpgsave_picture_200002.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Arcane Path (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_200581.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_200581.jpgsave_picture_200581.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Lone Soul (2025) [Ru/Multi] (1.0.1A/dlc) Repack Let'sРlay [Supporter Edition]
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_201764.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_201764.jpgsave_picture_201764.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Tormented Souls 2 (2025) [Ru/Multi] (1.2.0/dlc) Repack Other s [Digital Deluxe E
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202034.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202034.jpgsave_picture_202034.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Farthest Frontier (2025) [Ru/Multi] (1.0.0) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202096.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202096.jpgsave_picture_202096.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Bleak Haven (2025) [Ru/Multi] (1.2.1) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202221.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202221.jpgsave_picture_202221.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ The Outer Worlds 2 (2025) [Ru/Multi] (1.0.3.0/dlc) Repack Other s
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202371.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202371.jpgsave_picture_202371.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ GODBREAKERS (2025) [Ru/Multi] (Build 20302905/dlc) Repack Let'sРlay [Juice Edit
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202375.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202375.jpgsave_picture_202375.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Lost Eidolons: Veil of the Witch (2024) [Ru/Multi] (1.0.6/dlc) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202396.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202396.jpgsave_picture_202396.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Mushroom Hunter World (2025) [Ru/Multi] (1.0.2) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202397.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202397.jpgsave_picture_202397.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ EMOTIONLESS: The Last Ticket (2025) [Ru/Multi] (1.071025) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202398.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202398.jpgsave_picture_202398.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ EMOTIONLESS: The Last Ticket (2025) [Ru/Multi] (1.071025) Repack Other s
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202399.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202399.jpgsave_picture_202399.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Onirism (2025) [Ru/Multi] (1.0) Scene Rune
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202452.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202452.jpgsave_picture_202452.jpg" />
 </div>
 
 

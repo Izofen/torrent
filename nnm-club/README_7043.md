@@ -6,7 +6,7 @@
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241322.jpgsave_picture_241322.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Mississippi Fever - 300 Miles to Memphis (2015) [FLAC|Lossless|image + .cue] <Bl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241323.jpgsave_picture_241323.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ magnet:?xt=urn:btih:9995872A0FB492EE6AB0C1B85FF1382423956F23
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241324.jpgsave_picture_241324.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ Emsisoft Emergency Kit 2022.8.1.11609 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241325.jpgsave_picture_241325.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ magnet:?xt=urn:btih:FA46D36123A41D39FE826B2654EBF315AF045135
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241326.jpgsave_picture_241326.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ magnet:?xt=urn:btih:1B1CD47A83264FE65C4E326CA643C32D968C273D
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241327.jpgsave_picture_241327.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ magnet:?xt=urn:btih:20D7DC236674D1D8B6BAAA0172BC967701CFAEB1
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241328.jpgsave_picture_241328.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ magnet:?xt=urn:btih:7B1EC4BBB9CBD1BA5C0E3E44B8F3F03F698E733B
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241329.jpgsave_picture_241329.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ magnet:?xt=urn:btih:6A9490AAD325515782728B14DD1F7DE2ECD8A8AE
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241330.jpgsave_picture_241330.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ magnet:?xt=urn:btih:FFD5162A2507E0464878E5295DC4EFC2D5B7A94E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241331.jpgsave_picture_241331.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ Bireli Lagrene - Routes To Django (1980) 1987, Antilles [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241332.jpgsave_picture_241332.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ Dave Brubeck - Les Incontournables (1996) [FLAC|Lossless|tracks + .cue] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241333.jpgsave_picture_241333.jpg" />
 </div>
 
 
@@ -314,7 +314,7 @@ Toxxic Project - Secrets of Planet Helios (2023) [FLAC|Lossless|WEB-DL|tracks] <
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241334.jpgsave_picture_241334.jpg" />
 </div>
 
 
@@ -341,7 +341,7 @@ magnet:?xt=urn:btih:EA45BB413DED9B7F471F8309F84FDD25856852C6
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241335.jpgsave_picture_241335.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ VA - Electrozombies Records • Compilations Collection - 14 Releases (2016-2022
 >>Industrial, EBM, Dark Electro
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241336.jpgsave_picture_241336.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ Directory Lister Enterprise 2.48 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241337.jpgsave_picture_241337.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ magnet:?xt=urn:btih:A86E456CF989AAFA13BEEF480BD375AD30C204A4
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241338.jpgsave_picture_241338.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ VA - В машине с музыкой Vol.296 (2022) [MP3|320 Kbps] <Pop, Dance
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241339.jpgsave_picture_241339.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ VA - Music For Everyone - Club House Vol.5 (2017) [MP3|320 Kbps] <House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241340.jpgsave_picture_241340.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ PdfFactory Std & Pro 8.36 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241341.jpgsave_picture_241341.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:8E837397ED65714F9A3435E4C071DE49DF1267DB
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241342.jpgsave_picture_241342.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:D0B6BF13F7C745BE4A526F1E25C4BAE8DA1DC514
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241343.jpgsave_picture_241343.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ magnet:?xt=urn:btih:4572E9A35D8FEF513E10C20CD0FB269393F7A9AA
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241345.jpgsave_picture_241345.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ magnet:?xt=urn:btih:5BC7428E6421C4CD3E1DBB545A6AAA0DE1F6CB20
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241346.jpgsave_picture_241346.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ magnet:?xt=urn:btih:3AD2238DFE14051DC3A3D1E5314988BDEF5F4F89
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241347.jpgsave_picture_241347.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Neil Young - Promise of the Real - Noise and Flowers (2022) [FLAC|Lossless|track
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241348.jpgsave_picture_241348.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Jazz Erotic Lounge Collective, Background Instrumental Music Collective - Sexy O
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113830.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113830.jpgsave_picture_113830.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Jason Derulo - Nu King (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop, Swing, R
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113833.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113833.jpgsave_picture_113833.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Rudiger (Rüdiger) Krause - Parallel Real (2024) [FLAC 24/44.1|Lossless|WEB-DL|t
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113844.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113844.jpgsave_picture_113844.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Antar Goodwin - The Game (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113849.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113849.jpgsave_picture_113849.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Paul Winter (Пол Уинтер) - Concert For The Earth (Концерт Зем
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113855.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113855.jpgsave_picture_113855.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Eric Warren - Reminisce (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock, 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113856.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113856.jpgsave_picture_113856.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Dan Patlansky - Movin' On (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113857.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113857.jpgsave_picture_113857.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Handsome Jack - A Good Thing (2024) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <Blues
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113858.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113858.jpgsave_picture_113858.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Black Cat Bone - Tales of the Amplified (2024) [FLAC 24/48|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113865.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113865.jpgsave_picture_113865.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Paul Anka - Paul Anka (1991) [FLAC 24/192|Lossless|tracks] <Pop>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113870.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113870.jpgsave_picture_113870.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Mike Della Bella Project - The Man With The Red Shoes (2024) [FLAC 24/48|Lossles
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113873.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113873.jpgsave_picture_113873.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Marisol - Поёт Марисоль (1980) [FLAC 24/192|Lossless|tracks] <Pop>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113875.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113875.jpgsave_picture_113875.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Dion - Girl Friends (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113877.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113877.jpgsave_picture_113877.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Norah Jones - Visions (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Contemporary J
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113883.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113883.jpgsave_picture_113883.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Shylmagoghnar - Studio Albums (3 releases) (2014-2023) hand made [restored, decl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113888.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113888.jpgsave_picture_113888.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ The Rolling Stones - Live At The Wiltern (2024) [FLAC 24/48|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113893.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113893.jpgsave_picture_113893.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ VA - Для вас, женщины. Принцесса (1989) [FLAC 24/192|Lossl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113894.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113894.jpgsave_picture_113894.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ VA - Для вас, женщины! Деловая женщина (1988) [FLAC 2
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113898.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113898.jpgsave_picture_113898.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ magnet:?xt=urn:btih:5A51DA18CE547C93F9EB9C7F779BB758908DAC2E
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113906.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113906.jpgsave_picture_113906.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ magnet:?xt=urn:btih:3AE74A07D4A394B2BE6FA24845AE6BBDBB945AB8
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113925.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113925.jpgsave_picture_113925.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ Kikki (Кикки) - Полуночное солнце (1986) [FLAC 24/192|Lossl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113952.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113952.jpgsave_picture_113952.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Joanna Stingray (Джоанна Стингрэй) - Thinking Till Monday (Дум
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113958.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113958.jpgsave_picture_113958.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ Kenny Rogers - Поет Кенни Роджерс (1980) [FLAC 24/192|Lossless|t
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113963.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113963.jpgsave_picture_113963.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ VA - With love to children (С любовью к детям) (1991) [FLAC 24/192
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113973.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113973.jpgsave_picture_113973.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ magnet:?xt=urn:btih:B6E92DD8AE3F1FDF6C1C9E3E2817F6CB906B86B5
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113987.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113987.jpgsave_picture_113987.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ Emerson, Lake & Palmer - Trilogy (1972) 1990-е [FLAC 24/192|Lossless|tracks] <R
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113997.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113997.jpgsave_picture_113997.jpg" />
 </div>
 
 

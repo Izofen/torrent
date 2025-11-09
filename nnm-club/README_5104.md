@@ -6,7 +6,7 @@ Colony Ship: A Post-Earth Role Playing Game (2021) [En] (1.0) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159422.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159422.jpgsave_picture_159422.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Rogue Amoeba Farrago 1.6.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159423.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159423.jpgsave_picture_159423.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:DDF6E80BAF406AA989EB938F028C87221A6A3BF7
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159424.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159424.jpgsave_picture_159424.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Ad Eternum - Creando Suenos (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159425.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159425.jpgsave_picture_159425.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:1944B86CB9F60E300657D1913B29F5C3F413518E
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159426.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159426.jpgsave_picture_159426.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ Nat King Cole - 1946 (1997) Classics [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159427.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159427.jpgsave_picture_159427.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ GUNHEAD (2023) [Multi] (1.2) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159428.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159428.jpgsave_picture_159428.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ Wretched Path - Heavy Lies the Crown (2022) [FLAC|Lossless|WEB-DL|tracks] <Death
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159429.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159429.jpgsave_picture_159429.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ magnet:?xt=urn:btih:F39F48795F29C83ACD0967B11F29414F6D54155D
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159430.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159430.jpgsave_picture_159430.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ Worm - Foreverglade (2021) [FLAC|Lossless|WEB-DL|tracks] <Death, Black, Doom Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159431.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159431.jpgsave_picture_159431.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ Stardock Start 2.0.0.6 RePack by xetrin [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159432.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159432.jpgsave_picture_159432.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ Pete Rugolo - Adventures In Rhythm (1954) 2007, Membran Music [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159433.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159433.jpgsave_picture_159433.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ GroupsPro 5.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159434.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159434.jpgsave_picture_159434.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ Arathorn - Treue & Verrat (2008) [FLAC|Lossless|image + .cue] <Medieval Black Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159435.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159435.jpgsave_picture_159435.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ Zoofilia - Sangradas escrituras (2022) [FLAC|Lossless|WEB-DL|tracks] <Death Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159436.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159436.jpgsave_picture_159436.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ Worm - Bluenothing (2022) EP [FLAC|Lossless|WEB-DL|tracks] <Death, Black, Doom M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159437.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159437.jpgsave_picture_159437.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ Wyrmwoods - Gamma (2020) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Avant-garde 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159438.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159438.jpgsave_picture_159438.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ Office 2013-2024 C2R Install + Lite 7.7.6 ++ Portable by Ratiborus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159439.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159439.jpgsave_picture_159439.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Zaeer - El Taree (2022) [FLAC|Lossless|WEB-DL|tracks] <Groove, Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159440.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159440.jpgsave_picture_159440.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ Udemy, Андрей Бегишев | Большой курс Чжун Юань �
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159441.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159441.jpgsave_picture_159441.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ Wolf Spider - Kingdom Of Paranoia (1990) Remaster 2009 [FLAC|Lossless|image + .c
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159442.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159442.jpgsave_picture_159442.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ magnet:?xt=urn:btih:777F44ABBF508D04890259A1B24AA87DDDEEA01F
 >>Общественно-политические и пропагандистские ток-шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159443.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159443.jpgsave_picture_159443.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ PreviewMarkdown 1.4.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159444.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159444.jpgsave_picture_159444.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Adobe Acrobat Reader 2023.006.20380.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159445.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159445.jpgsave_picture_159445.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Athentech Perfectly Clear WorkBench for Mac 4 v.4.2.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159446.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159446.jpgsave_picture_159446.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ magnet:?xt=urn:btih:6A0626E4398796A071C0753DBB7A20F4C6D1E10D
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159447.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159447.jpgsave_picture_159447.jpg" />
 </div>
 
 

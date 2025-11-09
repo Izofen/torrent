@@ -6,7 +6,7 @@ Shinigami Bocchan to Kuro Maid | The Duke of Death and His Maid | Смертон
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18396.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18396.jpgsave_picture_18396.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Notification Widget v1.5.174 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18397.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18397.jpgsave_picture_18397.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:358EF2BE113493EB5BE3515CC32B07CD13365CB7
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18398.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18398.jpgsave_picture_18398.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:AEA18C3714B7A6F8CD96678FEDD80198684ECB54
 >>Растровый клипарт (иллюстрации)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18399.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18399.jpgsave_picture_18399.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:D84D504FB513081BD063479499253CC22DF0214B
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18400.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18400.jpgsave_picture_18400.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:9C39B82F29BACDFAA0E40F9CA5A030A3034FFAAB
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18401.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18401.jpgsave_picture_18401.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ INXS - Listen Like Thieves (1985) 40th Anniversary Deluxe, 2025, Petrol Records 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18402.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18402.jpgsave_picture_18402.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:3BCF54274A910747B0E530D37F556BEABCA5D956
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18403.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18403.jpgsave_picture_18403.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ Bria Mobile: VoIP Softphone v6.19.4 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18404.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18404.jpgsave_picture_18404.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:016442653936AA789383C8482F42BE96F3279C5E
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18405.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18405.jpgsave_picture_18405.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:2CEE4C04FB977300335FF27B2CDDC40105951133
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18406.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18406.jpgsave_picture_18406.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ magnet:?xt=urn:btih:EFD239CA7D1D8AAE2037561181BD44BA027694ED
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18407.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18407.jpgsave_picture_18407.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Queensrÿche - Empire (1990) BOX Set, 3xCD, Compilation, Reissue, Remastered, 20
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18408.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18408.jpgsave_picture_18408.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ VA - Nothing But... Late Night Deep House, Vol. 01 (2025) [MP3|320 Kbps] <House,
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18409.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18409.jpgsave_picture_18409.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ magnet:?xt=urn:btih:E83F4CA8C184086C828F71C6939C749F657A3188
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18410.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18410.jpgsave_picture_18410.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Notification Dots v1.2.63 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18411.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18411.jpgsave_picture_18411.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Amos Media Co. | Scott 2020 Standard Postage Stamp Catalogue + Scott New Listing
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18412.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18412.jpgsave_picture_18412.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ magnet:?xt=urn:btih:1909F29A5D3A6D56AE26B3EA72FCEA72CC3A99AE
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18413.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18413.jpgsave_picture_18413.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ magnet:?xt=urn:btih:C20C9C5E1362C4D5DDCB209461E5F2172A6D34D5
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18414.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18414.jpgsave_picture_18414.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Imagine Dragons - Compilation (2009-2024) [MP3|320 Kbps] <Alternative rock, Indi
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18415.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18415.jpgsave_picture_18415.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ magnet:?xt=urn:btih:0030ED341368BD9881B7674069395EE7B70316B1
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18416.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18416.jpgsave_picture_18416.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ magnet:?xt=urn:btih:ED438727B64AA68DCB4B2ED265F799C354FEFB72
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18417.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18417.jpgsave_picture_18417.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ magnet:?xt=urn:btih:9071D1164D7F5B022364B2A97F9B281ADDE2EFDA
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18418.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18418.jpgsave_picture_18418.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ magnet:?xt=urn:btih:F659E533B78DA2BAAE6649F88EA4BDFF3BEADB17
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18419.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18419.jpgsave_picture_18419.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ VA - Compilation Part 161 Electronic (2025) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18420.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18420.jpgsave_picture_18420.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ magnet:?xt=urn:btih:559265D01402F5459677C7EDA618D8B8D56DEAA4
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18421.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18421.jpgsave_picture_18421.jpg" />
 </div>
 
 

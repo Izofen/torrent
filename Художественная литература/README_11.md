@@ -6,7 +6,7 @@
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8129.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8129.jpgsave_picture_8129.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:DCC72BA024000C50585CD29538B65912406411DD
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8277.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8277.jpgsave_picture_8277.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:323ABAEAA039BF30E303734DBF97C2005A8A2F15
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8626.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8626.jpgsave_picture_8626.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:33372D3DFA049B0774B11AB5AD08D7676BE83B6C
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8676.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8676.jpgsave_picture_8676.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:B6A3F900C602CAF8D7016FC59B5F623C1E103A78
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8684.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8684.jpgsave_picture_8684.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:81BE87337CEED144F386192494E0F5668DD06B8C
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8689.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8689.jpgsave_picture_8689.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:DE9277063C45EBBD3DFE68CFFD5B68E0B53AE1A9
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8691.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8691.jpgsave_picture_8691.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:7666DF90D42CE4AE982F3CF56282A86785899FF8
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8692.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8692.jpgsave_picture_8692.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:E6AD3852C86FF5449905D82C9BF301B824B409BD
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8717.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8717.jpgsave_picture_8717.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:358709010DCC65F01A04580E9737B682D7682624
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8787.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8787.jpgsave_picture_8787.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:5181D1C4DD1BB9E321B9E57DA21F1F308284C111
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8807.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8807.jpgsave_picture_8807.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ magnet:?xt=urn:btih:8ECA084696BA09A14D0900AE90FA2E36DBB6D466
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8812.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8812.jpgsave_picture_8812.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ magnet:?xt=urn:btih:C43B5D531E052233457ADDB37CFC7A95034F220E
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8818.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8818.jpgsave_picture_8818.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ magnet:?xt=urn:btih:15D3B6FAC5368D01623DFC7EF957730B5B64BCF6
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8819.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8819.jpgsave_picture_8819.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ magnet:?xt=urn:btih:7CD65645A203B372AE82849934864F9022529C5E
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8832.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8832.jpgsave_picture_8832.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ magnet:?xt=urn:btih:A39B41460EBFD4605EB016B0BD7B08857EB069C0
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8884.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8884.jpgsave_picture_8884.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ magnet:?xt=urn:btih:BE2D5D1817BCE82BB57510B4E6D6225A8FCBC1A2
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8899.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8899.jpgsave_picture_8899.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ magnet:?xt=urn:btih:928C8A0B86C5DBA819BACE72BAA64F3648FFFD1D
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8911.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8911.jpgsave_picture_8911.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ magnet:?xt=urn:btih:63D728602E9B9C7BC99BC0CBB370087F0EA1D73F
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8916.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8916.jpgsave_picture_8916.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ magnet:?xt=urn:btih:114AD6D4703485FD84FBCDDC1E68424BC609BABC
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8920.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8920.jpgsave_picture_8920.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ magnet:?xt=urn:btih:496E55E0C6CFD325D4B86BF539E6AD2096049A5F
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8958.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8958.jpgsave_picture_8958.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ magnet:?xt=urn:btih:D0F83E9CEF480C8BD55A1568C9882BEE2BA7762D
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8988.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8988.jpgsave_picture_8988.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ magnet:?xt=urn:btih:C36D5FE0128CDF0C83815436D34AB399BB6C1A55
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8990.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8990.jpgsave_picture_8990.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ magnet:?xt=urn:btih:4AB84731E7CA10C389C8E80B607CC9B7F9F49369
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8997.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8997.jpgsave_picture_8997.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ magnet:?xt=urn:btih:B2C936D3C98DD8BF7A36A435367CF62FE189B2BA
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9153.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9153.jpgsave_picture_9153.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ magnet:?xt=urn:btih:F56D0F6B7884F2CC4544DACEEA858D28386E6E11
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9334.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9334.jpgsave_picture_9334.jpg" />
 </div>
 
 

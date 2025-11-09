@@ -6,7 +6,7 @@ The Cabin Factory (2024) [Ru/Multi] (1.07) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33486.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33486.jpgsave_picture_33486.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Line's Guarder (2023) [Ru/Multi] (Update 10) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33509.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33509.jpgsave_picture_33509.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Between the Stars (2019) [Ru/Multi] (1.0.0.8) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33522.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33522.jpgsave_picture_33522.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Jixo: The Season of Joy / Jixo: Сезон веселья (2024) [Ru] (1.0) Unof
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33542.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33542.jpgsave_picture_33542.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Alaskan Road Truckers (2023) [Ru/Multi] (1.6/dlc) Repack seleZen
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33543.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33543.jpgsave_picture_33543.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Unsolved Case 6: Ash and Secrets / Нераскрытое дело 6: Пепел
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33544.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33544.jpgsave_picture_33544.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Connected Hearts 5: Hour of the Witch / Связанные сердца 5: Ча�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33545.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33545.jpgsave_picture_33545.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Ebenezer and the Invisible World (2023) [Ru/Multi] (1.2.0.1) Repack Let'sРlay [
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33556.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33556.jpgsave_picture_33556.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Monster Jam Steel Titans 2 (2021) [Ru/Multi] (1.0e/dlc) License GOG
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33565.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33565.jpgsave_picture_33565.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Alaskan Road Truckers (2023) [Ru/Multi] (1.6/dlc) Scene Rune
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33567.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33567.jpgsave_picture_33567.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Crown Wars: The Black Prince (2024) [Ru/Multi] (Build 16501847/dlc) Repack Let's
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33613.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33613.jpgsave_picture_33613.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ magnet:?xt=urn:btih:32B01560D888E5B0E15C5E58B49FC875AC2DDAE1
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33615.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33615.jpgsave_picture_33615.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Tekken 8 (2024) [Ru/Multi] (1.10.01/dlc) Repack FitGirl [Ultimate Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33622.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33622.jpgsave_picture_33622.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Anima Flux (2018) [Ru/Multi] (1.0.9) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33673.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33673.jpgsave_picture_33673.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ INDIKA (2024) [Ru/Multi] (Build 15648284) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33697.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33697.jpgsave_picture_33697.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Chess Assistant 25 (2024) [En] (12.0.0) License
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33708.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33708.jpgsave_picture_33708.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Unknown 9: Awakening (2024) [Ru/Multi] (Build 16687288/dlc) Repack Let'sРlay [D
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33720.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33720.jpgsave_picture_33720.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Until Dawn / Дожить до рассвета (2024) [Ru/Multi] (1.08) Repack 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33736.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33736.jpgsave_picture_33736.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ State of Decay 2 (2020) [Ru/Multi] (38.2/dlc) Repack Pioneer [Juggernaut Edition
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33744.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33744.jpgsave_picture_33744.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ The Cabin Factory (2024) [Ru/Multi] (1.07) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33795.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33795.jpgsave_picture_33795.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ No More Snow (2023) [Multi] (1.2.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33810.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33810.jpgsave_picture_33810.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Blasphemous 2 (2023) [Ru/Multi] (2.2.0-cs57553/dlc) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33836.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33836.jpgsave_picture_33836.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Harold Halibut (2024) [Ru/Multi] (1.1.1) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33841.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33841.jpgsave_picture_33841.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Barony (2015) [Ru/En] (4.3.1) Repack Pioneer
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33869.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33869.jpgsave_picture_33869.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ The Cabin Factory (2024) [Ru/Multi] (1.07) Repack seleZen
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33909.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33909.jpgsave_picture_33909.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ DEVOUR (2021) [Ru/Multi] (5.1.3) Repack Pioneer
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33927.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33927.jpgsave_picture_33927.jpg" />
 </div>
 
 

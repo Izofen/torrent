@@ -6,7 +6,7 @@ VA - YORK Mini Mix (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70092.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70092.jpgsave_picture_70092.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Paul&Chucky - Letter From Silence (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70093.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70093.jpgsave_picture_70093.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Luiz Bonfa - Amor! (1959) 2001, Collectables [FLAC|Lossless|tracks + .cue] <Braz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70094.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70094.jpgsave_picture_70094.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Pastor Brad - Cloud of Witnesses (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <M
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70095.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70095.jpgsave_picture_70095.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ magnet:?xt=urn:btih:9B89A8448437017D6F2698E732965F3B3A9D9543
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70096.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70096.jpgsave_picture_70096.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Nemoy and the NPCs - Warzone Blues (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <B
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70097.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70097.jpgsave_picture_70097.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Mellow Blues - Mellow Blues (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70098.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70098.jpgsave_picture_70098.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ magnet:?xt=urn:btih:A7B923F0D3B03FEC94C743E94D9ACC20921573FA
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70099.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70099.jpgsave_picture_70099.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Gyasi - Here Comes The Good Part (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <R
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70100.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70100.jpgsave_picture_70100.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ DGM - Tragic Separation (2020) [FLAC|Lossless|image + .cue] <Progressive Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70101.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70101.jpgsave_picture_70101.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Mary Ann Hawkins - Helsinki Surf City (2025) [FLAC 24/48|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70102.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70102.jpgsave_picture_70102.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ magnet:?xt=urn:btih:9D1869045E837187A09C2D8AF438687AC567C237
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70103.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70103.jpgsave_picture_70103.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ magnet:?xt=urn:btih:222F3D6A36A4D78AEC4130D67D2AA5E9B3236AC7
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70104.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70104.jpgsave_picture_70104.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Microsoft Visual Studio 2022 Professional 17.13.1 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70105.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70105.jpgsave_picture_70105.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ magnet:?xt=urn:btih:8FEDBB453CA36F8384727B8C93CE626B351893AF
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70106.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70106.jpgsave_picture_70106.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ magnet:?xt=urn:btih:6E12DBF7AE5E8D68492B20EE32B84C783F0CB661
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70107.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70107.jpgsave_picture_70107.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ magnet:?xt=urn:btih:0913C58B80CE4B9B4497FB1489D31D124EE4B1FD
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70108.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70108.jpgsave_picture_70108.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ VA - Best of Gallant Synthax 2024 (2024) [MP3|320 Kbps] <Trance, Progressive, El
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70109.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70109.jpgsave_picture_70109.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ magnet:?xt=urn:btih:FF38D11D385806F7A1ACE9144EA8CA1FE20CA3AF
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70110.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70110.jpgsave_picture_70110.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ VA - Modern 80's - The Best Of Discopop Vol.4 (1999) 2 CD [OGG Vorbis|480 Kbps] 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70111.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70111.jpgsave_picture_70111.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ magnet:?xt=urn:btih:ED35A712A961F0D317F7EA75F90C875DBF158C8C
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70112.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70112.jpgsave_picture_70112.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ magnet:?xt=urn:btih:3D0B341ADACB5A4886E7CE25EF89B6F87127BFBE
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70113.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70113.jpgsave_picture_70113.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ magnet:?xt=urn:btih:7418517F3524AAF18E3E78EB25AFEE97DAC0E5E4
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70114.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70114.jpgsave_picture_70114.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ No Money Kids - Fireworks (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Roc
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70115.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70115.jpgsave_picture_70115.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ magnet:?xt=urn:btih:F28FAFB31C243C2C4C41CD3C408B7E5BAA4AAD66
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70116.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70116.jpgsave_picture_70116.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ magnet:?xt=urn:btih:89A72A79D9591B1D0CEA6842DD1107CF639BBD61
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70117.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70117.jpgsave_picture_70117.jpg" />
 </div>
 
 

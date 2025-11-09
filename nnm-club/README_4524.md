@@ -6,7 +6,7 @@ Pixies - Doolittle (1989) SACD, Remastered, 2008 Mobile Fidelity Sound Lab [FLAC
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141525.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141525.jpgsave_picture_141525.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ DIGI Clock Widget Plus 3.0.1 Mod by Katafrakt [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141527.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141527.jpgsave_picture_141527.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Donemax Disk Clone 2.1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141528.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141528.jpgsave_picture_141528.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:6F23195F640A74462D070DFD22AE0B95D027FD5C
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141529.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141529.jpgsave_picture_141529.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:BC479B74FD2A45FD967EF720274D23A3DF687BDA
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141531.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141531.jpgsave_picture_141531.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:A2D768CEC75599CF9CED8A3FC64DBBF9C79DADE6
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141532.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141532.jpgsave_picture_141532.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:BDA944F2361BEA6CD3931E9BAD611856936E45BD
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141533.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141533.jpgsave_picture_141533.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ VA - FSOE UV - Best of (2018) [MP3|320 Kbps] <Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141534.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141534.jpgsave_picture_141534.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:8EB95FADAF59EA98FC00BC0FBDACFFB00A0E87F1
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141537.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141537.jpgsave_picture_141537.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:A0DE71716EB28A4928A5E6A01A563D7A32DA80C3
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141538.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141538.jpgsave_picture_141538.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ Sonny & Cher - The Collection (1990) [FLAC|Lossless|image + .cue] <Pop Rock>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141539.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141539.jpgsave_picture_141539.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ WinPE 10-8 Sergei Strelec (x86/x64/Native x86) 2016.12.29 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141541.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141541.jpgsave_picture_141541.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ magnet:?xt=urn:btih:5E0AB5D9274F488D2131CE3D87CCDBD49F1F9BBD
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141542.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141542.jpgsave_picture_141542.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ magnet:?xt=urn:btih:ED4A3E95B0B9ED24BC6F1330F30BF7145FF3DA9F
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141543.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141543.jpgsave_picture_141543.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Frank Wright - Unity (1974) 2006, ESP Disk [FLAC|Lossless|tracks + .cue] <Avant-
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141544.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141544.jpgsave_picture_141544.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ VA - Kerrang! Ultimate Rock Heroes! (2015) [FLAC|Lossless|tracks + .cue] <Altern
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141547.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141547.jpgsave_picture_141547.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Kujira no Kora wa Sajou ni Utau | Children of the Whales | В песках по�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141548.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141548.jpgsave_picture_141548.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ magnet:?xt=urn:btih:1CDCDFE305584AC31E4F3E1F89E82191C98A3DC4
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141549.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141549.jpgsave_picture_141549.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Claude Hopkins - 1937 - 1940 (1993) Classics [FLAC|Lossless|tracks + .cue] <Swin
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141550.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141550.jpgsave_picture_141550.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ magnet:?xt=urn:btih:21695DA30C5E778F91E739F17603E1420269AFE8
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141553.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141553.jpgsave_picture_141553.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ magnet:?xt=urn:btih:EBA91C546FF2BBE8FBA8FD149D95ED49BBFC06CF
 >>Классическая поэзия и проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141554.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141554.jpgsave_picture_141554.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ magnet:?xt=urn:btih:2B8154DA5AAB97B87B8135FD4F7F2243CAE08A3E
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141555.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141555.jpgsave_picture_141555.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ magnet:?xt=urn:btih:9B6DE2EDDCE36D2246246FC5EC8A45CEE7913C7C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141556.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141556.jpgsave_picture_141556.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ magnet:?xt=urn:btih:58815E9DDF2665D3E218D377A58B1F762CDDDCF7
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141557.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141557.jpgsave_picture_141557.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ magnet:?xt=urn:btih:AB1785D9A7EA76020B4C1B72E28FE7E388A885B5
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141558.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141558.jpgsave_picture_141558.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ Jono - Silence (2015) [FLAC|Lossless|image + .cue] <Progressive, Melodic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141559.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141559.jpgsave_picture_141559.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113184.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113184.jpgsave_picture_113184.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:F71F79F5739AE2FBB65E834F0709359F539181A8
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113185.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113185.jpgsave_picture_113185.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - От мелодии к мелодии (5 серия) - Концерт ит�
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113190.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113190.jpgsave_picture_113190.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - Эстрадная орбита (1974) [FLAC 24/192|Lossless|tracks] <Retro
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113191.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113191.jpgsave_picture_113191.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ VA - Музыкальный телетайп 2 (1987) [FLAC 24/192|Lossless|trac
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113193.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113193.jpgsave_picture_113193.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ VA - Парад ансамблей (3) (1985) [FLAC 24/192|Lossless|tracks] <Pop
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113194.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113194.jpgsave_picture_113194.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ VA - Мелодии в танцевальных ритмах (1972) [FLAC 24/192
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113209.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113209.jpgsave_picture_113209.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ M.O.D - Surfin' M.O.D (1988) EP [FLAC|24/192|image + .cue|Vinyl-Rip] <Thrash Met
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113255.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113255.jpgsave_picture_113255.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ M.O.D - Devolution (1994) [WavPack|32/192|image + .cue|Vinyl-Rip] <Thrash Metal,
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113256.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113256.jpgsave_picture_113256.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ VA - Для вас, женщины! Женский портрет (1987) [FLAC 2
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113316.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113316.jpgsave_picture_113316.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:BED83AEBF4EE2AE0810CA62C2CEBE014F14B3F16
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113318.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113318.jpgsave_picture_113318.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Alice Cooper - Dada (1983) [FLAC 24/96|Lossless|tracks] <Hard-Rock, Classic Rock
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113327.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113327.jpgsave_picture_113327.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Elan - School Party (1986) [FLAC 16/192|Lossless|tracks] <Pop Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113328.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113328.jpgsave_picture_113328.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ VA - Вас поздравляют звёзды! (1990) [FLAC 24/192|Lossless|tr
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113337.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113337.jpgsave_picture_113337.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ magnet:?xt=urn:btih:941B09A9774DCE39C45A8297CC80046CE118DF0D
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113339.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113339.jpgsave_picture_113339.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ magnet:?xt=urn:btih:4BCAF74FD1A40A4EE01256B3C0D299EE5FC3E61B
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113342.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113342.jpgsave_picture_113342.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ magnet:?xt=urn:btih:FF550A794EADD651CA2985309D154B5BB59DF04D
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113345.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113345.jpgsave_picture_113345.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ magnet:?xt=urn:btih:AFAEEA98AEB7D6312EF2C92DBA81D3B981178052
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113351.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113351.jpgsave_picture_113351.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:E1F1EEA7EAD75F272EFAFCAC28FA6141FACE8065
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113357.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113357.jpgsave_picture_113357.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ VA - С Новым Годом! (1983) [FLAC 24/192|Lossless|tracks] <Pop>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113359.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113359.jpgsave_picture_113359.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:2D71F315A617AB89E38525C3AD9C3DFA51656663
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113360.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113360.jpgsave_picture_113360.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ VA - Маскарад (1986) [FLAC 24/192|Lossless|tracks] <Pop>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113362.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113362.jpgsave_picture_113362.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ VA - С Новым Годом! (1985) [FLAC 24/192|Lossless|tracks] <Pop>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113367.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113367.jpgsave_picture_113367.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ VA - Радуга (2 пластинка) (1979) [FLAC 24/192|Lossless|tracks] <P
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113369.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113369.jpgsave_picture_113369.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Darkthrone - Under a Funeral Moon (1993) Reissue, 2010, Peaceville [FLAC|24/192|
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113471.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113471.jpgsave_picture_113471.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ VA - Перекати-поле. Песни на стихи Лидии Козло
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113477.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113477.jpgsave_picture_113477.jpg" />
 </div>
 
 

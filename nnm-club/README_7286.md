@@ -6,7 +6,7 @@
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249473.jpgsave_picture_249473.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ GoFingerstyle, Максим Ярушкин | Техника Фингерстай
 >>Музыка (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249474.jpgsave_picture_249474.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:F38AD8B1C83DE4BC263ED9887E22397A61D643B4
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249475.jpgsave_picture_249475.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Fausto Papetti - I Remember (1968) [FLAC 24/96|Lossless|WEB-DL|tracks] <Instrume
 >>Instrumental (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249476.jpgsave_picture_249476.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:C2C627E411B4E9A16EDB09D0C72D8CF052DED921
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249477.jpgsave_picture_249477.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:1DD9F75168B1BA882525753249B21C6BC2670E8D
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249478.jpgsave_picture_249478.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:79A3610510C53DDFA4FA1FB20DBC059EF1A9A135
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249479.jpgsave_picture_249479.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:856878D0BF3F5F5DED1195B304660462D5BC0D2A
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249480.jpgsave_picture_249480.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Fausto Papetti - Somethin' Saxy (1968) [FLAC 24/96|Lossless|WEB-DL|tracks] <Inst
 >>Instrumental (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249481.jpgsave_picture_249481.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ VA - Шансон 2022 года (Музыкальный хит-парад) [MP3|
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249482.jpgsave_picture_249482.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ Blood Sky - MMXXV (2025) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal, Power
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249483.jpgsave_picture_249483.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ GoFingerstyle, Максим Ярушкин | Аккордовая камасут
 >>Музыка (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249484.jpgsave_picture_249484.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ PhotoLine 23.53 (х64) Portable by Spirit Summer [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249485.jpgsave_picture_249485.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ Movavi Screen Recorder 22.3.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249486.jpgsave_picture_249486.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ magnet:?xt=urn:btih:FB93F70D4D16BEADFDB33A45D5F94D10721425F5
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249487.jpgsave_picture_249487.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ CCleaner 6.02.9938 Free / Professional / Business / Technician Edition RePack (&
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249488.jpgsave_picture_249488.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ magnet:?xt=urn:btih:5476F931786E26C13FFC651B561F8EBC9EE65F42
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249489.jpgsave_picture_249489.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ magnet:?xt=urn:btih:183C19C0FA6E15095ABCF4D0F7D12797A80973D4
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249490.jpgsave_picture_249490.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ ALLPlayer 8.9.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249491.jpgsave_picture_249491.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ RizomUV Virtual Spaces 2022.0.11 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249492.jpgsave_picture_249492.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Brian Culbertson - Day Trip (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Smooth J
 >>Jazz (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249493.jpgsave_picture_249493.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ magnet:?xt=urn:btih:B44405D002B4333097B175F1DCFD75F06173A0B2
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249494.jpgsave_picture_249494.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ magnet:?xt=urn:btih:B0F202DF81D894297622FF4F8809996376E93E5D
 >>Музыка (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249495.jpgsave_picture_249495.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ magnet:?xt=urn:btih:82E4BBFFEF49008A9D042C76B5601C54B8BA2864
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249496.jpgsave_picture_249496.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ magnet:?xt=urn:btih:175CF26EA9EA9BACE5E1CA83E799437BA91476E0
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249497.jpgsave_picture_249497.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ magnet:?xt=urn:btih:CF056748BD3DB86EB11831B4652B2A8F60C0A2D5
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249498.jpgsave_picture_249498.jpg" />
 </div>
 
 

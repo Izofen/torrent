@@ -6,7 +6,7 @@
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141826.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141826.jpgsave_picture_141826.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:DD7F52EB7A46D526265BC8A406A0B57CA75B1012
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141827.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141827.jpgsave_picture_141827.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Sons Of Apollo - MMXX (2020) [MP3|320 Kbps] <Progressive Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141828.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141828.jpgsave_picture_141828.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:A0EB38F30B7133862E5D374220C3147841FAF674
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141829.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141829.jpgsave_picture_141829.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Ed Calle - Compilation (2021) [MP3|320 Kbps] <Jazz>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141831.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141831.jpgsave_picture_141831.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:CCBD96D5E841A735D42AD47572BBDA719F831A4A
 >>Универ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141832.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141832.jpgsave_picture_141832.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ Shazam 14.3.1-231120 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141833.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141833.jpgsave_picture_141833.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Windows 8 Codecs 1.34 + x64 Components [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141835.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141835.jpgsave_picture_141835.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ Windows 8 Codecs - Набор кодеков от разработчиков Win
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141836.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141836.jpgsave_picture_141836.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ magnet:?xt=urn:btih:FFBACE8FA6BC08055CF998F16A26F0A0EA98A443
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141837.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141837.jpgsave_picture_141837.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ NaviBand - NaviBand (2019) [MP3|320 Kbps] <Indie Pop, Indie Rock>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141838.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141838.jpgsave_picture_141838.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ Adobe Dreamweaver CC 2017 (17.0.1) [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141839.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141839.jpgsave_picture_141839.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ VA - Now 100 Hits Christmas (2019) Box Set, 5 CD [FLAC|Lossless|tracks + .cue] <
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141840.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141840.jpgsave_picture_141840.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ FilmoraGo - Free Video Editor 13.1.52(13152) Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141841.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141841.jpgsave_picture_141841.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ Google Earth 7.0.2.8415 Final [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141842.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141842.jpgsave_picture_141842.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Stas Isometrica - Moving To Light (2012) [MP3|320 Kbps] <Trance, Tech House>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141843.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141843.jpgsave_picture_141843.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ magnet:?xt=urn:btih:16DE8B731D3334C0E902F7CADE2BBE550437CC97
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141845.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141845.jpgsave_picture_141845.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ magnet:?xt=urn:btih:02CAFD360009A76029030FF7F3A4EC8734626887
 >>Универ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141846.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141846.jpgsave_picture_141846.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ Picas – Photo Artwork Editor v2.0.3 Vip [En] - Арт-фоторедактор
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141848.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141848.jpgsave_picture_141848.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Rydell & Quick - 2 альбома Discography (2006-2012) [FLAC|Lossless|image +
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141849.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141849.jpgsave_picture_141849.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Glary Utilities Pro 5.179.0.207 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141850.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141850.jpgsave_picture_141850.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ PC Cleaner Pro 9.5.1.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141851.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141851.jpgsave_picture_141851.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ magnet:?xt=urn:btih:115D4002877C8069CB6A2DE48DCC6F1481984585
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141852.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141852.jpgsave_picture_141852.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ De Phazz, Karl Frierson - 8 альбомов (1997 - 2007) [APE|Lossless]<Downte
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141854.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141854.jpgsave_picture_141854.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Death by Chocolate (2001)(   Читать дальше...   )Жанр: Downtempo
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141855.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141855.jpgsave_picture_141855.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ magnet:?xt=urn:btih:2DC5D37B448BE09FFECA7B3D480ECE5F1A2FA899
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141856.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141856.jpgsave_picture_141856.jpg" />
 </div>
 
 

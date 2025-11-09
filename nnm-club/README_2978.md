@@ -6,7 +6,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88872.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88872.jpgsave_picture_88872.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88878.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88878.jpgsave_picture_88878.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88879.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88879.jpgsave_picture_88879.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Red Hot Chili Peppers – Californication (1999) [FLAC 2.0 24/192 | image (Vinyl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88881.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88881.jpgsave_picture_88881.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Dave Gahan (солист Depeche Mode) - Дискография (2003-2008) [MP3
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88882.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88882.jpgsave_picture_88882.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ NBA 2K11 Fans Edition {1.0.1} (RePack) [Ru] 2010 | Naitro
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88883.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88883.jpgsave_picture_88883.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Windows 7 (x86) Ultimate UralSOFT v.4.6.12 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88884.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88884.jpgsave_picture_88884.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ Windows 7 (x86) Ultimate UralSOFT v.4.6.12 [Русский]
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88885.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88885.jpgsave_picture_88885.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:F68CAB84C908222D8B209C6DD6BC68BF90BAC64B
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88890.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88890.jpgsave_picture_88890.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ Over the Hedge / Лесная братва [10+] (RePack) [Ru] (2006) | NICK0304
 >>Детские Игры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88891.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88891.jpgsave_picture_88891.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:4DCBCAD72E306F5D986FA42F1ADE75D26596E2DD
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88893.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88893.jpgsave_picture_88893.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Terminator Коллекция [En/Ru] (RePack) 1990-2003 | Pilotus
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88895.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88895.jpgsave_picture_88895.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Terminator Коллекция [En/Ru] (RePack) 1990-2003 | Pilotus
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88899.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88899.jpgsave_picture_88899.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Waves Complete 9.0 R1 [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88900.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88900.jpgsave_picture_88900.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Carmageddon TDR2000 / Кармагеддон. Колеса смерти [Ru] (Re
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88902.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88902.jpgsave_picture_88902.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Dead Mountaineer Hotel / Отель "У погибшего альпиниста"
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88904.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88904.jpgsave_picture_88904.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ magnet:?xt=urn:btih:DC36E45418C59209C834A68FD5CF0B4269A71B49
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88905.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88905.jpgsave_picture_88905.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ magnet:?xt=urn:btih:DC36E45418C59209C834A68FD5CF0B4269A71B49
 >>2D графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88906.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88906.jpgsave_picture_88906.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ magnet:?xt=urn:btih:3312C05626F81A49AE4750413D801797F24845E9
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88907.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88907.jpgsave_picture_88907.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Guitar Pro [3.0+Jailbreake]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88909.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88909.jpgsave_picture_88909.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Guitar Pro [3.0+Jailbreake]
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88910.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88910.jpgsave_picture_88910.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ BBC: Планета Земля / Planet Earth (2006) BDRip [720p]
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88912.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88912.jpgsave_picture_88912.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Airport Tower Simulator 2012 [En/Ge] (L) 2012
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88916.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88916.jpgsave_picture_88916.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Aero Crystal - набор тем для Windows 7
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88917.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88917.jpgsave_picture_88917.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Stone Quarry Simulator 2012 {1.2} (L) [En] 2012
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88918.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88918.jpgsave_picture_88918.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ magnet:?xt=urn:btih:B2A2FE1973166E5FB1360F6D2C4F0CC1CB8CDDD1
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88919.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88919.jpgsave_picture_88919.jpg" />
 </div>
 
 

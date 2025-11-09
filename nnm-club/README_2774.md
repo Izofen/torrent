@@ -6,7 +6,7 @@
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77402.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77402.jpgsave_picture_77402.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:00EBC62A33C7406BE39B2E9A3DAAC89F8EC713BD
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77409.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77409.jpgsave_picture_77409.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:0055DBA350CFDD7929A308481B9167D75952B5F2
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77410.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77410.jpgsave_picture_77410.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ Suzuki TIS
 >>Автомобильные мультимедийные материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77411.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77411.jpgsave_picture_77411.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:F826653378C96D389E368426F16A1D56DC5B1135
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77414.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77414.jpgsave_picture_77414.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Usavich 4 / Усавич [ТВ-4] [2011, TV, 13 серий] DVDrip 480p raw
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77416.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77416.jpgsave_picture_77416.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:93E1BE9758EA734F4B3589967925DC1743FD231E
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77417.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77417.jpgsave_picture_77417.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ FLVPlayer4Free 4.6.0.0 [Multi/Русский]
 >>Видео Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77424.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77424.jpgsave_picture_77424.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ FlvPlayer4Free - медиаплеер для удобного воспроизв
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77426.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77426.jpgsave_picture_77426.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:341EB7BFA7224A4B417754EACE9863BF947DB8FE
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77430.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77430.jpgsave_picture_77430.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Eufloria - это  инди-игра, в  которой  вам  предсто
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77433.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77433.jpgsave_picture_77433.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:09962C0E1A1303EFD11E395BC832A76031BBA84C
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77435.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77435.jpgsave_picture_77435.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ magnet:?xt=urn:btih:09962C0E1A1303EFD11E395BC832A76031BBA84C
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77438.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77438.jpgsave_picture_77438.jpg" />
 </div>
 
 
@@ -340,7 +340,7 @@ magnet:?xt=urn:btih:09962C0E1A1303EFD11E395BC832A76031BBA84C
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77439.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77439.jpgsave_picture_77439.jpg" />
 </div>
 
 
@@ -364,7 +364,7 @@ magnet:?xt=urn:btih:BC4A9FA24BB4C818CD26C35ADF767FE609435E84
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77440.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77440.jpgsave_picture_77440.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ magnet:?xt=urn:btih:7E6806DC7C378EDA31039D93BC5F21BF03E733EA
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77442.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77442.jpgsave_picture_77442.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Need For Speed: Porsche Unleashed [Cider] [Eng]
 >>Racing, Simulation, Sports для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77450.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77450.jpgsave_picture_77450.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Windows 7 Ultimate SP1 (x64) by Loginvovchyk с программами {Февр
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77458.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77458.jpgsave_picture_77458.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Chick Corea, Eddie Gomez and Paul Motian - Further Explorations (2012) [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77475.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77475.jpgsave_picture_77475.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ VA - Самые Сливки на Хит FM (2012) [MP3|256 кб/с]<pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77476.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77476.jpgsave_picture_77476.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ magnet:?xt=urn:btih:DA0216496C5B77C886E4DAF56BE932FB31F4A5D8
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77487.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77487.jpgsave_picture_77487.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ magnet:?xt=urn:btih:33ED2B86AD1A1A51514F21CCDA80BF0785C2D12A
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77488.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77488.jpgsave_picture_77488.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Sam Yahel, Ari Hoenig, Mike Moreno & Seamus Blake - Jazz Side of the Moon: The M
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77495.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77495.jpgsave_picture_77495.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Sam Yahel, Ari Hoenig, Mike Moreno & Seamus Blake - Jazz Side of the Moon: The M
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77496.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77496.jpgsave_picture_77496.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Louna - Время X (2012) [PROMO] [MP3|128 kbps]<Alternative Rock>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77499.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77499.jpgsave_picture_77499.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ magnet:?xt=urn:btih:2E9B7B2D483602D6FEA843CF97858CB1961E6B4D
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77502.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77502.jpgsave_picture_77502.jpg" />
 </div>
 
 

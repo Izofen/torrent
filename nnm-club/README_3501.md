@@ -6,7 +6,7 @@ VA - The Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111387.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111387.jpgsave_picture_111387.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ MotoGP. Этап 03 из 21. Гран-при США. Спринт (13.04.2024) W
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111388.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111388.jpgsave_picture_111388.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ VA - Electro Blues - In House Selection (2024) [FLAC|Lossless|WEB-DL|tracks] <El
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111389.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111389.jpgsave_picture_111389.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Brave Browser 1.64.122 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111390.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111390.jpgsave_picture_111390.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:C22D78135FC88887957016995A8781E3B41C7C9C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111391.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111391.jpgsave_picture_111391.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Telegram Desktop 4.16.6 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111392.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111392.jpgsave_picture_111392.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ magnet:?xt=urn:btih:9CB9318853A5BE6FEAB6198811B96C2445E1F9D2
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111393.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111393.jpgsave_picture_111393.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ Tyr - Battle Ballads (2024) [FLAC|Lossless|WEB-DL|tracks] <Folk Metal, Progressi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111394.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111394.jpgsave_picture_111394.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ magnet:?xt=urn:btih:B25C0BAABC6CBC3724D70258C8B291311C6FD12E
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111395.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111395.jpgsave_picture_111395.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ MotoGP. Этап 03 из 21. Гран-при США. Квалификация (1
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111396.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111396.jpgsave_picture_111396.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ Black Sabbath - Paris 1970 (Live) (1970) Re-Recorded, 2024, The Media Champ[FLAC
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111397.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111397.jpgsave_picture_111397.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ Boku no Hero Academia: Yuuei Heroes Battle | Моя геройская акад�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111398.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111398.jpgsave_picture_111398.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ magnet:?xt=urn:btih:19C30AF291944E4DE3082273EE94EE76E57E4DE2
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111399.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111399.jpgsave_picture_111399.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ Text Editor Pro 29.0.0 + Portable + Bonus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111400.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111400.jpgsave_picture_111400.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ magnet:?xt=urn:btih:B063A7EFE16DF09C57DB87C8FC5E73F34E14E9A3
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111401.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111401.jpgsave_picture_111401.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ Castle Rat - Into The Realm (2024) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111402.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111402.jpgsave_picture_111402.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ magnet:?xt=urn:btih:907C13607BD9D10CA1C93A2CA3CF493791BD5EEB
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111403.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111403.jpgsave_picture_111403.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ magnet:?xt=urn:btih:ED616B1D8F93211106369217D7EB148F15716205
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111404.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111404.jpgsave_picture_111404.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Draw.io 24.2.5+ Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111405.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111405.jpgsave_picture_111405.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ magnet:?xt=urn:btih:687BC72B6C8515514FAA2FCB9AA165E44165B461
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111406.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111406.jpgsave_picture_111406.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ magnet:?xt=urn:btih:547B1DA1CA5955C17A3822771F4D9B692288B208
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111407.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111407.jpgsave_picture_111407.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ magnet:?xt=urn:btih:DF51B47A56CA806A3545210C11C994631ACF4223
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111408.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111408.jpgsave_picture_111408.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ magnet:?xt=urn:btih:75C149CFDDB3E88B9940245B7ACF6389663BEDD2
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111409.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111409.jpgsave_picture_111409.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ magnet:?xt=urn:btih:BA6619A5843EBA352ADC6E05D869CC67F523EAE1
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111410.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111410.jpgsave_picture_111410.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Nena - 7 Albums (1983-1989) LP Collection [MP3|320 Kbps] <New Wave, Pop Rock, Sy
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111411.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111411.jpgsave_picture_111411.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ magnet:?xt=urn:btih:2F10DD4B35C5BE40FF3B24E593195C844A3C8929
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111412.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111412.jpgsave_picture_111412.jpg" />
 </div>
 
 

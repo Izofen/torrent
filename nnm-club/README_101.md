@@ -6,7 +6,7 @@ MKVToolNix 95.0 Stable + Portable [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2663.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2663.jpgsave_picture_2663.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Deep Purple - Made In Japan (1972) 5 x CD, Reissue, 2025, Warner Records LLC [FL
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2664.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2664.jpgsave_picture_2664.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:9001FF93F99C1F07ACFE5EB00FD9F22C9A0B0E51
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2665.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2665.jpgsave_picture_2665.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Ten Years After - Live compilation (2025) [MP3|320 Kbps] <Hard Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2666.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2666.jpgsave_picture_2666.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Demon Hunter - Studio Albums (13 releases) (2002-2025) hand made [restored, decl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2667.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2667.jpgsave_picture_2667.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ Adobe Bridge 2025 15.1.2.737 RePack by KpoJIuK [Multi/Ru]
 >>Просмотрщики Графики (вьюверы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2668.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2668.jpgsave_picture_2668.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ Auslogics Registry Cleaner Pro 11.1.0.0 + Portable [Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2669.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2669.jpgsave_picture_2669.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:2FF12D9819CFBEA94C9E4CD24A5425DC44A5B74A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2670.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2670.jpgsave_picture_2670.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:C87168ABA022F85EEAAE25C21AA09AF923A6692E
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2671.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2671.jpgsave_picture_2671.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ magnet:?xt=urn:btih:5D66DC230E505B1383B61C34695A422B8994527D
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2672.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2672.jpgsave_picture_2672.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ magnet:?xt=urn:btih:1887112815C408B591B4B9FE5EFFD9BA744B9400
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2673.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2673.jpgsave_picture_2673.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ Lost Eidolons (2022) [Ru/Multi] (1.5.4/dlc) Repack Let'sРlay [Digital Deluxe]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2674.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2674.jpgsave_picture_2674.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:57B701F7644FE0A402B92DDAF9FC207798E43EDB
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2675.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2675.jpgsave_picture_2675.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Tokyo Underground Killer (2025) [Ru/Multi] (1.0.3) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2676.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2676.jpgsave_picture_2676.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ magnet:?xt=urn:btih:DFD3A054CBD21580C06449FCBF2E696CE5461D31
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2677.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2677.jpgsave_picture_2677.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ magnet:?xt=urn:btih:14C41AC637F45D31DD369EF29FA1BFEDA1B3AB99
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2678.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2678.jpgsave_picture_2678.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ AOMEI Backupper Technician Plus 8.0.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2679.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2679.jpgsave_picture_2679.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ FreeTube 0.23.9 Beta RePack (& Portable) by elchupacabra [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2680.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2680.jpgsave_picture_2680.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ magnet:?xt=urn:btih:772440760B7170BBDA19BABD4C8EA60F714CC6DA
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2681.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2681.jpgsave_picture_2681.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ magnet:?xt=urn:btih:F3BB8211E206979F9E65140A9A31A33F29C13577
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2682.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2682.jpgsave_picture_2682.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ magnet:?xt=urn:btih:A9CEC1AF8C4E4B877FB8E8AA7D04579C36F076F1
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2683.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2683.jpgsave_picture_2683.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ magnet:?xt=urn:btih:1405AD1C93A4B52D9DBAFAF812A904832A2BB3AB
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2684.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2684.jpgsave_picture_2684.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ AIDA64 Extreme | Engineer | Business Edition | Network Audit 8.00.8000 [Multi/Ru
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2685.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2685.jpgsave_picture_2685.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ magnet:?xt=urn:btih:C86853F78244133C0981821250A94B31F241EFB0
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2686.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2686.jpgsave_picture_2686.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ RoadCraft (2025) [Ru/Multi] (4.1.PATCH.529928/dlc) Repack Wanterlude
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2687.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2687.jpgsave_picture_2687.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ magnet:?xt=urn:btih:2CFD923488F6225DA620CA997116AE416893283B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2688.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2688.jpgsave_picture_2688.jpg" />
 </div>
 
 

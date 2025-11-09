@@ -6,7 +6,7 @@
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161848.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161848.jpgsave_picture_161848.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:C05359CFD7660AAC368AF9E8AF62757268685021
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161849.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161849.jpgsave_picture_161849.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Strawberry 1.0.10 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161850.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161850.jpgsave_picture_161850.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ magnet:?xt=urn:btih:CF3FBCF16BE63ADC9F0DE4F6BF24458CE46FA796
 >>Автомобильные обуч.видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161851.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161851.jpgsave_picture_161851.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ SUPERHOT: MIND CONTROL DELETE (2020) [Ru/Multi] (1.0.8b plus l1.1.36) License GO
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161852.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161852.jpgsave_picture_161852.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:AAF87F6F993154432266F6E5A4918F6219085C19
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161853.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161853.jpgsave_picture_161853.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:BDEA533C84249E32738CD901F35AD751B24834B8
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161854.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161854.jpgsave_picture_161854.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ magnet:?xt=urn:btih:E63731CFC1571073E5BFA171A800E754B3FCCAF3
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161855.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161855.jpgsave_picture_161855.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ Nina Hagen - Unity (2022) [FLAC|Lossless|WEB-DL|tracks] <Synth-pop, Pop Rock, Pu
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161856.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161856.jpgsave_picture_161856.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ magnet:?xt=urn:btih:C7AB29E7F05D926B5DE73000E5843F09762997BF
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161857.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161857.jpgsave_picture_161857.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ magnet:?xt=urn:btih:E11F030891F2663B53258AAF3CF6BD3F51048F47
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161858.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161858.jpgsave_picture_161858.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ magnet:?xt=urn:btih:E11F030891F2663B53258AAF3CF6BD3F51048F47
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161859.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161859.jpgsave_picture_161859.jpg" />
 </div>
 
 
@@ -314,7 +314,7 @@ magnet:?xt=urn:btih:4993A6977C6F031C934C667F10FA244699144B46
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161860.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161860.jpgsave_picture_161860.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ HitPaw Video Converter 2.6.3.4 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161861.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161861.jpgsave_picture_161861.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ magnet:?xt=urn:btih:F5D6361D809D5688736D089606C90D181FA6000F
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161862.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161862.jpgsave_picture_161862.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ Little Big Workshop (2019) [Ru/Multi] (2.0.14042.1/dlc) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161863.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161863.jpgsave_picture_161863.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ magnet:?xt=urn:btih:3D74DCBE99EDC4E866D3B69E233B7068E8A20304
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161864.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161864.jpgsave_picture_161864.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ magnet:?xt=urn:btih:DEE77CDC4BB7F113BDE387B9A6C4D0CF6F43FB02
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161865.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161865.jpgsave_picture_161865.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ Katie Melua - Call Off The Search (2003) Dramatico DRAMCD0002 [FLAC|Lossless|ima
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161866.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161866.jpgsave_picture_161866.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ magnet:?xt=urn:btih:333BB49EF3CBDCEB148991EC5A6BD2BDBE111CFC
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161867.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161867.jpgsave_picture_161867.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ magnet:?xt=urn:btih:CE59EF8A28BEF266116650F41A8B2E4EFF23DF4A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161868.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161868.jpgsave_picture_161868.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ CCleaner 5.88.9346 Free / Professional / Business / Technician Edition RePack (&
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161869.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161869.jpgsave_picture_161869.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ magnet:?xt=urn:btih:04062291E55BACEF4C6A087D8AC43CB4B0F1776A
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161870.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161870.jpgsave_picture_161870.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ magnet:?xt=urn:btih:61638B4A06401DE6BEA87465198022959F7E00A8
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161871.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161871.jpgsave_picture_161871.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ magnet:?xt=urn:btih:B1106DEB38193D071D49C73C7F7A6C3D43EB6DD0
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161872.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161872.jpgsave_picture_161872.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Tipard Video Converter Ultimate 10.1.10 RePack (& Portable) by TryRooM [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161873.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161873.jpgsave_picture_161873.jpg" />
 </div>
 
 

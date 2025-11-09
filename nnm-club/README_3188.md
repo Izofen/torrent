@@ -6,7 +6,7 @@
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103226.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103226.jpgsave_picture_103226.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Impellitteri - War Machine (2024) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103227.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103227.jpgsave_picture_103227.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Whitney Houston - The Concert for a New South Africa (Durban) (1994) 2024, Arist
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103228.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103228.jpgsave_picture_103228.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Seventh Crystal - Entity (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103229.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103229.jpgsave_picture_103229.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ VA - La Isla Del Sol, Vol. 1 (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103230.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103230.jpgsave_picture_103230.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Ghosts Of Atlantis - Studio Albums (2 releases) (2021-2023) hand made [restored,
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103231.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103231.jpgsave_picture_103231.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Orbital - A Beginner's Guide (Best Of) (2024) [FLAC 24/44.1|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103232.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103232.jpgsave_picture_103232.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ magnet:?xt=urn:btih:2973F5DBD412C13FB61CEB01DED5409072357DF9
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103233.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103233.jpgsave_picture_103233.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ magnet:?xt=urn:btih:367F5C9E385520C83CD043DF991A795C82336726
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103234.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103234.jpgsave_picture_103234.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ magnet:?xt=urn:btih:B89B42337C285CEEBF7E6A7437175B52C3A4D7CC
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103235.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103235.jpgsave_picture_103235.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ Spyro Gyra - Jubilee (2024) [FLAC|Lossless|WEB-DL|tracks] <Fusion, Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103236.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103236.jpgsave_picture_103236.jpg" />
 </div>
 
 
@@ -290,7 +290,7 @@ VA - Jazz Guitar Ultimate Collection, , Vol.1 (1947 - 1960) 10CD, 2024, Fermata 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103237.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103237.jpgsave_picture_103237.jpg" />
 </div>
 
 
@@ -317,7 +317,7 @@ The Score - Last Legends (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop-Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103238.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103238.jpgsave_picture_103238.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Neal Morse - No Hill For A Climber (2024) [MP3|320 Kbps] <Progressive Rock, Symp
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103239.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103239.jpgsave_picture_103239.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Victor Special - Friendsland (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103240.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103240.jpgsave_picture_103240.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ magnet:?xt=urn:btih:9BDDA8729CF4812284250C8E42BF71B484BC7D1B
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103241.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103241.jpgsave_picture_103241.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ magnet:?xt=urn:btih:A8C3ECB84D1945A20272581A4C599C4B5C7D9556
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103242.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103242.jpgsave_picture_103242.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Frank Sinatra & Bing Crosby - The Golden Era Of Jazz Vol. 1 (2006) 2CD [WavPack|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103243.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103243.jpgsave_picture_103243.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ The Vintage Explosion - Saturday Night (2024) [FLAC 24/48|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103244.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103244.jpgsave_picture_103244.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ magnet:?xt=urn:btih:13685E065DDE4687173EE73F4AAD7BAF6CA76695
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103245.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103245.jpgsave_picture_103245.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Sleep Monitor: Sleep Tracker v2.8.0 Premium Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103246.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103246.jpgsave_picture_103246.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ magnet:?xt=urn:btih:354F57BA7BE4C28845D460D65030526A9984F50C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103247.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103247.jpgsave_picture_103247.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ magnet:?xt=urn:btih:4F9A36123A39D8BDFAB37FA6F71B2E67B994DCF4
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103248.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103248.jpgsave_picture_103248.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ magnet:?xt=urn:btih:F0055D3E937971AD56655D03938EEE9835D3EC12
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103249.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103249.jpgsave_picture_103249.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ The Harpoonist - Did We Come Here To Dance (2024) [FLAC 24/96|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103250.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103250.jpgsave_picture_103250.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ Zucchero - DISCOVER II (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103251.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103251.jpgsave_picture_103251.jpg" />
 </div>
 
 

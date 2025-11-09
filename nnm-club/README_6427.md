@@ -6,7 +6,7 @@
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203787.jpgsave_picture_203787.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:F381E3290D860C7DF323DF255BBE65674D965007
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203788.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203788.jpgsave_picture_203788.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Topaz Gigapixel AI 6.3.3 Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203789.jpgsave_picture_203789.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:CBAABD04D0F335140D47A1E69703091FBAC23850
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203790.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203790.jpgsave_picture_203790.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:938E0A20EDE2E4F6F4971453E35FA2DD41DED165
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203791.jpgsave_picture_203791.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:363F3875AB5D99A9B422A877FB037AEE085C05C1
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203792.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203792.jpgsave_picture_203792.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ Beyond the Black - 9 Releases (2015-2023) [MP3|320 Kbps] <Symphonic Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203793.jpgsave_picture_203793.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:2DED68C221223A3F318DF1437812CACC98817ED9
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203794.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203794.jpgsave_picture_203794.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ Emerson, Lake & Powell - Эмерсон, Лейк И Пауэлл (1987) ВФГ 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203795.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203795.jpgsave_picture_203795.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ magnet:?xt=urn:btih:FBF43BC248540E603C906DEC9C075587250AC43B
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203796.jpgsave_picture_203796.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ PixARK (2019) [Ru/Multi] (1.151/dlc) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203797.jpgsave_picture_203797.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ magnet:?xt=urn:btih:1E24752BF193D9EACFB257AAAF761A03CDCF6759
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203798.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203798.jpgsave_picture_203798.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ PotPlayer 230825 (1.7.21983) beta (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203799.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203799.jpgsave_picture_203799.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ magnet:?xt=urn:btih:C489B8E734823B0AB311E4B2FF77F1E9F14BCA92
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203800.jpgsave_picture_203800.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ File & Image Uploader 8.3.5 Portable + Skins [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203801.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203801.jpgsave_picture_203801.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Mark J. Price | C# 11 and .NET 7 – Modern Cross-Platform Development Fundament
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203802.jpgsave_picture_203802.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Topaz Photo AI 1.1.7 Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203803.jpgsave_picture_203803.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ XYplorer 24.90.0000 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203804.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203804.jpgsave_picture_203804.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ magnet:?xt=urn:btih:1512904A2227359FA5E7F357DA38044B0878A171
 >>Отечественные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203805.jpgsave_picture_203805.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ magnet:?xt=urn:btih:1D9B14549E2812C12853CECE1B9FFA100CB2E19C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203806.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203806.jpgsave_picture_203806.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ magnet:?xt=urn:btih:432FFFA0139683FFE916D53A81508FD036F9C984
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203807.jpgsave_picture_203807.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ magnet:?xt=urn:btih:1A1F947BAF4A16123E7AE3EBBD7766110BB91159
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203808.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203808.jpgsave_picture_203808.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ magnet:?xt=urn:btih:8F6A279E66336ACBBD1B4B0FD833F06AA5138770
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203809.jpgsave_picture_203809.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ SponsorBlock for YouTube 5.4.18 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203810.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203810.jpgsave_picture_203810.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ magnet:?xt=urn:btih:D728B4773E39BBD067719FCA3D4E40662D54DE8F
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203811.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203811.jpgsave_picture_203811.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ magnet:?xt=urn:btih:10D07BAD09425CE264633B2D4EA92C1CFDD267D6
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203812.jpgsave_picture_203812.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185322.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185322.jpgsave_picture_185322.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:CBD6E23CE474473F82CC1B1D382DBB01CE5F8FBA
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_185323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185323.jpgsave_picture_185323.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Alt SwitchER 20.0 BETA Portable [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185324.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185324.jpgsave_picture_185324.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ GForce - Oddity3 1.0.1 Standalone, VSTi, VSTi3, AAX (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185326.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185326.jpgsave_picture_185326.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ AllDup 4.5.50 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185327.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185327.jpgsave_picture_185327.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:6542FBB3FF51FE736E121FB989F0337D04964F42
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185329.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185329.jpgsave_picture_185329.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:324C61E0DC7E5D74DA37D1AB0B9B6B8EEF1B5B46
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185330.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185330.jpgsave_picture_185330.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Moratory - 10 Relises (2016-2022) [MP3|320 Kbps] <Crossover, Hardcore Punk, Thra
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_185331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185331.jpgsave_picture_185331.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ DesktopDigitalClock 5.03 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185333.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185333.jpgsave_picture_185333.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ magnet:?xt=urn:btih:8D152DBBA80938E97CAEDC16CADAE98819DD2647
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_185335.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_185335.jpgsave_picture_185335.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ Jared Dines - the grey (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metalco
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185336.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185336.jpgsave_picture_185336.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ magnet:?xt=urn:btih:AE258DA5D7CF7F6C502CB0498208650A2F2453CF
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185338.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185338.jpgsave_picture_185338.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ magnet:?xt=urn:btih:045648A98E8A678FA449B1CD646817C3A2B696AD
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185339.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185339.jpgsave_picture_185339.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Takunomi. | Алкогольные посиделки [2018, TV, 12] BDRip 1080p
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_185341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185341.jpgsave_picture_185341.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Odonata - Gravitational Perturbation (2022) [FLAC|Lossless|WEB-DL|tracks] <Psych
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185342.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185342.jpgsave_picture_185342.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ XYplorer 25.00.0000 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185344.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185344.jpgsave_picture_185344.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ magnet:?xt=urn:btih:1F0A1A4B3A4991987DF10424D97021D01FF5B5DB
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185347.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185347.jpgsave_picture_185347.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ magnet:?xt=urn:btih:4542FF0DA3AE0F21315F6A20F5C34A585019738F
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185348.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185348.jpgsave_picture_185348.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ magnet:?xt=urn:btih:C67F7199EA42910BCE0C0A7042C338AEDA2B4B7C
 >>Кинолетопись Страны Советской
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_185349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185349.jpgsave_picture_185349.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ magnet:?xt=urn:btih:D12349D65668EA18714CEA7063BAF94009F0ACC1
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_185352.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_185352.jpgsave_picture_185352.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Tallah - 2 Albums (2020-2022) [FLAC|Lossless|WEB-DL|tracks] <Nu-Metal, Hardcore,
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185353.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185353.jpgsave_picture_185353.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ The Common Linnets - The Hits (2020) [FLAC|Lossless|image + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_185354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185354.jpgsave_picture_185354.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Skype 8.105.0.208 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185357.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185357.jpgsave_picture_185357.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ magnet:?xt=urn:btih:8B151F58C2EF85B1B7B29F515628E4D126D93A95
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185358.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185358.jpgsave_picture_185358.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ MacDroid Pro 1.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_185359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185359.jpgsave_picture_185359.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ VA - Relax Winter Soul Music (2020) [FLAC|Lossless|WEB-DL|tracks] <Soul>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_185362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185362.jpgsave_picture_185362.jpg" />
 </div>
 
 

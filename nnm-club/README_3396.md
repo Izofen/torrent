@@ -6,7 +6,7 @@
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108657.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108657.jpgsave_picture_108657.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Telegram Desktop 5.0.4 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108658.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108658.jpgsave_picture_108658.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ Rhapsody of Fire - Challenge the Wind (2024) [MP3|320 Kbps] <Symphonic Power Met
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108659.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108659.jpgsave_picture_108659.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ Opera GX 109.0.5097.108 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108660.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108660.jpgsave_picture_108660.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ magnet:?xt=urn:btih:E8A2FC51BD0CFB8F05844E27EB29BF2E4A5B7310
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108661.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108661.jpgsave_picture_108661.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Night Pleasure Hotel - Portraits (2024) [MP3|320 Kbps] <Melodic Rock, AOR>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108662.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108662.jpgsave_picture_108662.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Allan Barron - Money To Burn (2024) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108663.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108663.jpgsave_picture_108663.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Silly - Bataillon D'Amour (1986) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Pop Roc
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108664.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108664.jpgsave_picture_108664.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Anthony Phillips - Private Parts & Pieces XII: The Golden Hour (2024) ex-Genesis
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108665.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108665.jpgsave_picture_108665.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ magnet:?xt=urn:btih:26B3C969E15A49BB900F882096B12474542D683A
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108666.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108666.jpgsave_picture_108666.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ VA - Lounge Heaven, Vol 1 (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Ou
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108667.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108667.jpgsave_picture_108667.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:DF52E025704D33FB0D5C19F1DE35CADEFD87573E
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108668.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108668.jpgsave_picture_108668.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ magnet:?xt=urn:btih:6483169509BB92EAEB6EF762E582BC95C5C884A0
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108669.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108669.jpgsave_picture_108669.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ VA - Uplifting Only Top 15: June 2024 (Extended Mixes) (2024) [MP3|320 Kbps] <Tr
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108670.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108670.jpgsave_picture_108670.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Decortication - Necrolatry: A Morbid Worship (2023) [FLAC|Lossless|image + .cue]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108671.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108671.jpgsave_picture_108671.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Horace Parlan - In Copenhagen (1999) 2008, Storyville [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108672.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108672.jpgsave_picture_108672.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ The Birdland Big Band - Live (2019) Birdland Records [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108673.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108673.jpgsave_picture_108673.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Sun Ra - Excelsior Mill (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108674.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108674.jpgsave_picture_108674.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ magnet:?xt=urn:btih:990EA97BDCA6B1128F5CD2C37356032BD68D801E
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108675.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108675.jpgsave_picture_108675.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ VA - Ultimate Enjoyable Sweet Intimate Lounge Chill Tunes (2024) [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108676.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108676.jpgsave_picture_108676.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ magnet:?xt=urn:btih:FD82EBEC01BA90EE01C6AAC4952568348EF242A9
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108677.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108677.jpgsave_picture_108677.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Pleasurekraft - On Growth and Form (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108678.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108678.jpgsave_picture_108678.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Allen Gilliland - Revenge (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108679.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108679.jpgsave_picture_108679.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ magnet:?xt=urn:btih:C7448B96FD4CABAECB2956BBD224C8FBC78EC6CC
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108680.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108680.jpgsave_picture_108680.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ After Dark - Memories Gone (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Gothic 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108681.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108681.jpgsave_picture_108681.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ VA - The Groove Funk Sessions (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Funk, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108682.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108682.jpgsave_picture_108682.jpg" />
 </div>
 
 

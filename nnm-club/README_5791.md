@@ -6,7 +6,7 @@ Scaffold - Codex Gigas (2021) [FLAC|Lossless|image + .cue] <Death Metal, Thrash 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180376.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180376.jpgsave_picture_180376.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:70C43EC62A5EDE56884C4FD0AC91028581EE8281
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180380.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180380.jpgsave_picture_180380.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ MediaHuman YouTube Downloader 3.9.9.77 (2411) RePack (& Portable) by Dodakaedr [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180383.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180383.jpgsave_picture_180383.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:DFAE4FC1C38CC4CB266CEAAE1E70F5A9950A74B0
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180384.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180384.jpgsave_picture_180384.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:F03BF063CD945D9F326147BA85F703EEAE11B623
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180387.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180387.jpgsave_picture_180387.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:2A05AC1CE19C86B697A176215997DF8E7801E4C4
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180393.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180393.jpgsave_picture_180393.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ Windows 10 Pro 22H2 x64 Compact Edition [19045.3448] 23.09.2023 by bulygin-dima 
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180395.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180395.jpgsave_picture_180395.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ GoldWave 6.69 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180397.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180397.jpgsave_picture_180397.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:FB1616DF3797296EB746C1D646541003233C500C
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180400.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180400.jpgsave_picture_180400.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ magnet:?xt=urn:btih:EEB9CF52F737F0BEFCCD6D26EE7108146A466DA6
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180404.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180404.jpgsave_picture_180404.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ Sleep Timer v22.11 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180405.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180405.jpgsave_picture_180405.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ magnet:?xt=urn:btih:16E4AB06DAEBC659F58FFED94FA532C1C276531C
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180407.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180407.jpgsave_picture_180407.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ magnet:?xt=urn:btih:50AE150DFCBBF94CC712622E14275A28C28708F9
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180408.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180408.jpgsave_picture_180408.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ magnet:?xt=urn:btih:058A1B0B83864A0371310B947D1058533A48FD4A
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180411.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180411.jpgsave_picture_180411.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Sandboxie 5.61.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180415.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180415.jpgsave_picture_180415.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ magnet:?xt=urn:btih:CC7EEE9834E3CB315A6CA658C97D9FAAE4D43770
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180418.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180418.jpgsave_picture_180418.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ magnet:?xt=urn:btih:9D33618CB606D898EAF8F0D33C9789B59E7E8FF3
 >>Футбол. Чемпионаты мира
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180419.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180419.jpgsave_picture_180419.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Kamiarizuki no Kodomo | Child of Kamiari Month | Дитя месяца бого�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180422.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180422.jpgsave_picture_180422.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ magnet:?xt=urn:btih:375A26FCB6691A7A6D93C348F9C3D5F3893F95ED
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180423.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180423.jpgsave_picture_180423.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ magnet:?xt=urn:btih:0D42AF66594DF61FC02D78EFABD5BF9BE40E1AD9
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180424.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180424.jpgsave_picture_180424.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ History Channel: Древние пришельцы / Ancient Aliens (2023) WEB-D
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180426.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180426.jpgsave_picture_180426.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ magnet:?xt=urn:btih:B12844E9B32D3A4D431578F109C174299651E3CF
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180430.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180430.jpgsave_picture_180430.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Momo Yang - Salsa Jeans (1977) LP [MP3|320 Kbps] <Electronic, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180431.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180431.jpgsave_picture_180431.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:55088C0714C4A72947A6C30B8EC6A9236BD1A823
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180432.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180432.jpgsave_picture_180432.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ magnet:?xt=urn:btih:1DD37DA36711347BAB61393C20AA801F3653189A
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180434.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180434.jpgsave_picture_180434.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ Chris Rea - Whatever Happened to Benny Santini? (1978) Reissue, 1991, EastWest [
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180439.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180439.jpgsave_picture_180439.jpg" />
 </div>
 
 

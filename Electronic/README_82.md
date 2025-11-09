@@ -6,7 +6,7 @@ VA - Spektra's History - 16th Anniversary (2024) [MP3|320 Kbps] <Breaks, Breakbe
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120454.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120454.jpgsave_picture_120454.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Cosmonaut & Satellites (Космонавт и спутники) -  Наверх 
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120459.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120459.jpgsave_picture_120459.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Cosmonaut & Satellites (Космонавт и спутники) - макси-с�
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120463.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120463.jpgsave_picture_120463.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - Friends V (2024) [FLAC|Lossless|WEB-DL|tracks] <House, Afro House, Indie Da
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120471.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120471.jpgsave_picture_120471.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ VA - Nu Deep House, Vol. 8 (2024) [FLAC|Lossless|WEB-DL|tracks] <Deep House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120483.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120483.jpgsave_picture_120483.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ VA - Пименов представляет Будущие хиты 2006 (2006)
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120491.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120491.jpgsave_picture_120491.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ VA - Florilegi I (2024) [FLAC|Lossless|WEB-DL|tracks] <Bass, Breaks>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120493.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120493.jpgsave_picture_120493.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ VA - Dream Dance Vol. 95 - The Annual (2024) [MP3|320 Kbps] <Trance, Progressive
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120504.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120504.jpgsave_picture_120504.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Vintage Culture - Live @ VNTG Is A Festival,Sao Paulo Brazil (2023-12-09) [MP3|3
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120601.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120601.jpgsave_picture_120601.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ VA - Uplifting Only Top 15: January 2024 (Extended Mixes) (2024) [MP3|320 Kbps] 
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120627.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120627.jpgsave_picture_120627.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ VA - Uplifting Only Top 15: December 2023 (Extended Mixes) (2023) [MP3|320 Kbps]
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120637.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120637.jpgsave_picture_120637.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ VA - Winter Car Music Hits 2024 (2024) [MP3|320 Kbps] <Dance, Club, House, Elect
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120644.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120644.jpgsave_picture_120644.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Quirk - Quality Control (1999) [FLAC|Lossless|tracks + .cue] <Psy-Trance, Experi
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120647.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120647.jpgsave_picture_120647.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Cyberwalker - Become Human (2024) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retr
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120651.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120651.jpgsave_picture_120651.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ VA - Electronic Music 2024 (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120652.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120652.jpgsave_picture_120652.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ VA - Techno Club Vol. 71 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120657.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120657.jpgsave_picture_120657.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ magnet:?xt=urn:btih:D7141D8A6ED1AA6C23C3E124C29C9E05EFEDFC1E
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120679.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120679.jpgsave_picture_120679.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ The Luna Sequence - I Only Remember Falling (2023) [FLAC|Lossless|WEB-DL|tracks]
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120786.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120786.jpgsave_picture_120786.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ VA - Trance 2024 [MP3|320 Kbps] <Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120787.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120787.jpgsave_picture_120787.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ VA - Armin van Buuren - A State Of Trance 1157 (2024) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120802.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120802.jpgsave_picture_120802.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ magnet:?xt=urn:btih:369E24C3F178A65B75B47DE3277A0F0F3AF5897F
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120813.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120813.jpgsave_picture_120813.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ VA - Deep Blue Sea, Vol. 7 (2024) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Loun
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120970.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120970.jpgsave_picture_120970.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ VA - Melodically Trance 01 (2023) [MP3|320 Kbps] <Trance, Progressive, Electroni
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121108.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121108.jpgsave_picture_121108.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ VA - Melodically Trance 02 (2024) [MP3|320 Kbps] <Trance, Progressive, Electroni
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121109.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121109.jpgsave_picture_121109.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ VA - Redux Selection Vol. 2 (2024) [MP3|320 Kbps] <Trance, Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121119.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121119.jpgsave_picture_121119.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ Pet Shop Boys - Format (B-Sides And Bonus Tracks 1996–2009) (2012) [OGG Vorbis
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121306.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121306.jpgsave_picture_121306.jpg" />
 </div>
 
 

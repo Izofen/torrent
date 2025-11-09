@@ -6,7 +6,7 @@ Moribund Dawn - Dark Mysteries Of Time & Eternity (2022) [MP3|320 Kbps] <Black M
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238242.jpgsave_picture_238242.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Wizzerd - Space? Issue No. 001 (2022) [FLAC|Lossless|WEB-DL|tracks] <Psych Stone
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238254.jpgsave_picture_238254.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Bloodgutter - Death Mountain (2023) [MP3|320 Kbps] <Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238260.jpgsave_picture_238260.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Toxik - Dis Morta (2022) [FLAC|Lossless|WEB-DL|tracks] <Technical Speed, Thrash 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238263.jpgsave_picture_238263.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Autonoesis - Moon of Foul Magics (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic T
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238270.jpgsave_picture_238270.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Tibet - Tibet (1978) Remastered, 2013, Belle Antique [FLAC|Lossless|image + .cue
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238277.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238277.jpgsave_picture_238277.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Brethren Hogg - 2 Albums (2021-2022) [FLAC|Lossless|WEB-DL|tracks] <Southern, Do
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238280.jpgsave_picture_238280.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Criminal Madhouse Conspiracy - Criminal Madhouse Conspiracy (2022) [FLAC|Lossles
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238288.jpgsave_picture_238288.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ VA - Music for Running Are You Ready?!? (2023) [FLAC|Lossless|WEB-DL|tracks] <Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238295.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238295.jpgsave_picture_238295.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Deer Creek - 2 Albums (2018-2022) [FLAC|Lossless|WEB-DL|tracks] <Sludge, Doom Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238296.jpgsave_picture_238296.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Apoplexy - Infection (1997) [FLAC|Lossless|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238306.jpgsave_picture_238306.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Siren - A Mercenary's Fate (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238320.jpgsave_picture_238320.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Def Leppard - Mirror Ball - Live & More (2011) (2 CD) [OGG Vorbis|484 Kbps] <Roc
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238329.jpgsave_picture_238329.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Carrion Vael - Abhorrent Obsessions (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238343.jpgsave_picture_238343.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ magnet:?xt=urn:btih:0DAB3E4BE23B788E32632CC410D486A79BEC3277
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238356.jpgsave_picture_238356.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ Paralyzed - Heavy Road (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Stoner Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238358.jpgsave_picture_238358.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ Astodan - 3 Albums (2018-2022) [FLAC|Lossless|WEB-DL|tracks] <Post-Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238362.jpgsave_picture_238362.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ Bob Dylan - Shadow Kingdom (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238367.jpgsave_picture_238367.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ Them Damn Kings - Rise Up (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238368.jpgsave_picture_238368.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ Scarlet Dorn - Queen Of Broken Dreams (2022) [FLAC|Lossless|WEB-DL|tracks] <Symp
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238398.jpgsave_picture_238398.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Rage - Spreading the Plague (2022) EP [MP3|320 Kbps] <Heavy Metal, Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238405.jpgsave_picture_238405.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Scarlet Dorn - Queen of Broken Dreams (2022) [MP3|320 Kbps] <Dark Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238412.jpgsave_picture_238412.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ Rage - Spreading the Plague (2022) EP [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238428.jpgsave_picture_238428.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ Within Destruction - Lotus (2022) [MP3|320 Kbps] <Nu Metalcore, Electronic>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238436.jpgsave_picture_238436.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ Within Destruction - Lotus (2022) [FLAC|Lossless|WEB-DL|tracks] <Nu Metalcore, E
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238448.jpgsave_picture_238448.jpg" />
 </div>
 
 
@@ -677,7 +677,7 @@ Rammstein - Zeit (2022) [FLAC 2.0|48/24|WEB-DL|tracks] <Industrial-Metal, Neue-D
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238470.jpgsave_picture_238470.jpg" />
 </div>
 
 

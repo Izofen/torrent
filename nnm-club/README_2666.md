@@ -6,7 +6,7 @@
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70066.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70066.jpgsave_picture_70066.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Dirkschneider - Balls To The Wall Reloaded (2025) [FLAC|Lossless|WEB-DL|tracks] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70067.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70067.jpgsave_picture_70067.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ VA - I Love Tocata 80s (2012) 2 CD [OGG Vorbis|480 Kbps] <Italo-Disco, Euro-Disc
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70068.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70068.jpgsave_picture_70068.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:E228D1CC71238C986D79C6C93E3CE29E5FA6B817
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70069.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70069.jpgsave_picture_70069.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ magnet:?xt=urn:btih:D10FF078C4E9FB9DC9E58B54CBD8C0B5D92A6CC8
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70070.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70070.jpgsave_picture_70070.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ magnet:?xt=urn:btih:A4BE5E3C13C8D4BC66DAC85A61A54A421D964C47
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70071.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70071.jpgsave_picture_70071.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ Architects - The Sky, The Earth & All Between (2025) [FLAC 24/48|Lossless|WEB-DL
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70072.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70072.jpgsave_picture_70072.jpg" />
 </div>
 
 
@@ -187,7 +187,7 @@ magnet:?xt=urn:btih:ADBA1AC0F6ACBD00FCA4F9A96A06FABE7D535EB1
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70073.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70073.jpgsave_picture_70073.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ magnet:?xt=urn:btih:A121F81B7021E8D73A293178E46B1A55A52C7D98
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70074.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70074.jpgsave_picture_70074.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ magnet:?xt=urn:btih:A5CE90F50BAFC7139800FAF698DF57F51189332F
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70075.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70075.jpgsave_picture_70075.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ magnet:?xt=urn:btih:2F66EF31F437F7639C9C485D44FAEAECAE856AFC
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70076.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70076.jpgsave_picture_70076.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ Saint Asonia - Studio Albums (3 releases) (2015-2022) hand made [restored, decli
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70077.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70077.jpgsave_picture_70077.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ Brian Lynch - Madera Latino (2012) 2CD, 2016, Hollistic Musicworks [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70078.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70078.jpgsave_picture_70078.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ Nightrage - Studio Albums (11 releases) (2003-2024) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70079.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70079.jpgsave_picture_70079.jpg" />
 </div>
 
 
@@ -364,7 +364,7 @@ Greg Coulson - Greg Coulson: Live at Crescent Records Studio (2025) [FLAC 24/48|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70080.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70080.jpgsave_picture_70080.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ magnet:?xt=urn:btih:A3429A10B74B246A77F1A0B28C1D1F8960ED2FB0
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70081.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70081.jpgsave_picture_70081.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ magnet:?xt=urn:btih:13A6448FB5F93E70636A386CE92DBFAE9927E5B4
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70082.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70082.jpgsave_picture_70082.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ magnet:?xt=urn:btih:DA1E278A9DFDB1FD439B7F8A86716BE5868BA7E3
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70083.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70083.jpgsave_picture_70083.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ magnet:?xt=urn:btih:B859165955A1DC0D0F266AF9E6B217FF63953D81
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70084.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70084.jpgsave_picture_70084.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ magnet:?xt=urn:btih:B179E06D49249285BFD248AED4B82C22D4A2A647
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70085.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70085.jpgsave_picture_70085.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ magnet:?xt=urn:btih:90071F4DAB55B30E256255E3BF71C234CF9E8B2B
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70086.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70086.jpgsave_picture_70086.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ magnet:?xt=urn:btih:DBF69744552AFF4D41260B964CE71DA54D2E236D
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70087.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70087.jpgsave_picture_70087.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Marko Hietala - Roses from the Deep (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70088.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70088.jpgsave_picture_70088.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ VA - 25 Years Of Anjuna Mixed By Luttrell (2025) [MP3|320 Kbps] <Progressive Hou
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70089.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70089.jpgsave_picture_70089.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ magnet:?xt=urn:btih:78E5D9CF364ECDC8D1E7045CAC749C116373CEE0
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70090.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70090.jpgsave_picture_70090.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ Perfect Plan - Heart Of A Lion (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Mel
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70091.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70091.jpgsave_picture_70091.jpg" />
 </div>
 
 

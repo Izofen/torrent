@@ -6,7 +6,7 @@ VA - Top 100 Зайцев.нет (04.04.2012) (2012) [MP3|128-320 kbps]<Pop|Danc
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86539.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86539.jpgsave_picture_86539.jpg" />
 </div>
 
 
@@ -39,7 +39,7 @@ VA - 50 Лучших Клубных Треков в Тачку (2012) [MP3|~249-
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86540.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86540.jpgsave_picture_86540.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ Brian Johnson - Brian Johnson And Geordie (1981) [MP3|320kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86541.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86541.jpgsave_picture_86541.jpg" />
 </div>
 
 
@@ -96,7 +96,7 @@ magnet:?xt=urn:btih:88652BC056FFCEB9D433CB7200E11CB39C7B0603
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86542.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86542.jpgsave_picture_86542.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ magnet:?xt=urn:btih:5B82AD0DAE550BB8EF6508C0DA0480375B68D479
 >>Автомобильная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86543.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86543.jpgsave_picture_86543.jpg" />
 </div>
 
 
@@ -146,7 +146,7 @@ magnet:?xt=urn:btih:8D86B76E5A55424F6D00A2D0E2DC08F6221893BE
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86544.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86544.jpgsave_picture_86544.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:F2343BCCEDDB0E349CD2A09D3B229FE497F3B9CC
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86546.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86546.jpgsave_picture_86546.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ MIDI Pack - Collection TWO Part 2 (MIDI) [Английский]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86547.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86547.jpgsave_picture_86547.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ MIDI Pack - Collection TWO - Это огромнейший сборник сод
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86548.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86548.jpgsave_picture_86548.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ MIDI Pack - Collection TWO Part 4 (MIDI) [Английский]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86549.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86549.jpgsave_picture_86549.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ MIDI Pack - Collection TWO - Это огромнейший сборник сод
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86550.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86550.jpgsave_picture_86550.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:DBC7EAEF28CEA7F020EBA0D00772762B7F07E549
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86551.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86551.jpgsave_picture_86551.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:4F8CA26A2B17F6741E324BD6C21E12AE82811552
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86553.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86553.jpgsave_picture_86553.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ magnet:?xt=urn:btih:03C9B172F55487B53DCBC7780B02FDD1E9EE5E8E
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86554.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86554.jpgsave_picture_86554.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ magnet:?xt=urn:btih:AC5905DA61D095869147360409F2AB3797E973B4
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86555.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86555.jpgsave_picture_86555.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Warp [Ru] (RePack) 2012 | Naitro
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86556.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86556.jpgsave_picture_86556.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ magnet:?xt=urn:btih:B19282F65D095FD26AFA16095F279E06ACE26B69
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86557.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86557.jpgsave_picture_86557.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ NG: Забытый соперник Египта / Egypt's lost rival (2010) IPT
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86558.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86558.jpgsave_picture_86558.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ magnet:?xt=urn:btih:A0736B788E8666F06B7C1E8BAAA8E108B82C1396
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86559.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86559.jpgsave_picture_86559.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ magnet:?xt=urn:btih:48EDCA4D868D917413072E4B18E974FD2B0397CF
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86560.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86560.jpgsave_picture_86560.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ magnet:?xt=urn:btih:59FCA5F2F830A997D8EA4F1D4B344F410F7BFFBC
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86561.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86561.jpgsave_picture_86561.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ magnet:?xt=urn:btih:59FCA5F2F830A997D8EA4F1D4B344F410F7BFFBC
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86563.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86563.jpgsave_picture_86563.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ magnet:?xt=urn:btih:59FCA5F2F830A997D8EA4F1D4B344F410F7BFFBC
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86565.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86565.jpgsave_picture_86565.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ magnet:?xt=urn:btih:4BDAF5B5A6FFAA0BC912B0BEAD29299BDDE6F75F
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86566.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86566.jpgsave_picture_86566.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Chris de Burgh - Greatest Hits (2012) 2CD [FLAC|Lossless]<Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86568.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86568.jpgsave_picture_86568.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ Chris de Burgh - Greatest Hits (2012) 2CD [FLAC|Lossless]<Pop>
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86571.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86571.jpgsave_picture_86571.jpg" />
 </div>
 
 

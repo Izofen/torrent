@@ -6,7 +6,7 @@ Chuck Prophet feat. ¿Qiensave? - Wake The Dead (2024) [FLAC 24/48|Lossless|WEB-
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102888.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102888.jpgsave_picture_102888.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:ADCF205F47DC41EB45DF6ABDB9601B6AE7D7D8F4
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102889.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102889.jpgsave_picture_102889.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ magnet:?xt=urn:btih:46DAA2A939AE4391CAEF86A374C09BEEEA8AEDF9
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102890.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102890.jpgsave_picture_102890.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ Bobby Hutcherson - Mirage (1991) Landmark Records [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102891.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102891.jpgsave_picture_102891.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ J.P. Reali - Blues Since Birth (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102892.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102892.jpgsave_picture_102892.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Mezzanottemmezza - Out of This Place (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102893.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102893.jpgsave_picture_102893.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ magnet:?xt=urn:btih:F8FE17CF4522DDDEB109CEB7AA45CE25ED63A1A6
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102894.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102894.jpgsave_picture_102894.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Hubert Laws - The Rite Of Spring (1971) 1991, CBS [WavPack|Lossless|image + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102895.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102895.jpgsave_picture_102895.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ magnet:?xt=urn:btih:8A933B926BBE53C8DB3D63E9315C14DD7663137E
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102896.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102896.jpgsave_picture_102896.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Tim Janis - The Promise (2005) [FLAC|Lossless|tracks + .cue] <New Age, Instrumen
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102897.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102897.jpgsave_picture_102897.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Mannheim Steamroller By Chip Davis - Christmas In The Aire (1995) [FLAC|Lossless
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102898.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102898.jpgsave_picture_102898.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ VA - Uplifting Only Top 15: December 2024 (Extended Mixes) (2024) [MP3|320 Kbps]
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102899.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102899.jpgsave_picture_102899.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ VA - The Independent Blues Project (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102900.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102900.jpgsave_picture_102900.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ VA - Fusion Classics (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz Fusion & Jazz Ro
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102901.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102901.jpgsave_picture_102901.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Sheep on Drugs - From A to H and Back Again (1994) [FLAC|Lossless|tracks + .cue]
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102902.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102902.jpgsave_picture_102902.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Activator - Хранитель жизни (2013) [MP3|252-276 Kbps VBR (V0)] <He
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102903.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102903.jpgsave_picture_102903.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ VA - Omakase (2023) Mello Music Group [FLAC|Lossless|tracks + .cue] <Hip-Hop, Ja
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102904.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102904.jpgsave_picture_102904.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ Black Shaman - Black Shaman (2020) [FLAC|Lossless|Web-DL|tracks] <Dark Chill, Do
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102905.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102905.jpgsave_picture_102905.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ Zero One Zero - Traces Of Yesterday (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard R
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102906.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102906.jpgsave_picture_102906.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ magnet:?xt=urn:btih:47BA640193233F205797ACA4D5C0FB888DE2D15F
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102907.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102907.jpgsave_picture_102907.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ magnet:?xt=urn:btih:CFB70B3656502C55E8C02C2E0DBBD42F4DFEC64E
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102908.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102908.jpgsave_picture_102908.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Nomos - The Great Unknown (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102909.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102909.jpgsave_picture_102909.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Sky Wolves - Forgotten Tales (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102910.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102910.jpgsave_picture_102910.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Furor Gallico - Future To Come (2024) [FLAC|Lossless|image + .cue] <Folk Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102911.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102911.jpgsave_picture_102911.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Memory Garden - Studio Albums (7 releases) (1995-2021) hand made [restored, decl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102912.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102912.jpgsave_picture_102912.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ Rising Sunset - Vade Draconem Maledicte (2024) [FLAC|Lossless|WEB-DL|tracks] <Sy
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102913.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102913.jpgsave_picture_102913.jpg" />
 </div>
 
 

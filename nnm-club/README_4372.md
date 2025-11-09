@@ -6,7 +6,7 @@
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136712.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136712.jpgsave_picture_136712.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:18111D74740EFA765CDBA96515B19B5A4991B2D0
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136713.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136713.jpgsave_picture_136713.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ The Legacy (2025) [Ru/Multi] (build 20303577) Repack seleZen
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136714.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136714.jpgsave_picture_136714.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ The Dream Syndicate - Medicine Show: I Know What You Like (1984) Reissue, Remast
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136715.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136715.jpgsave_picture_136715.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Chrissie Hynde - Duets Special (2025) [MP3|320 Kbps] <Post-Punk>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136716.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136716.jpgsave_picture_136716.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:ACBE6ED8BEB74C3210E5978DF2DB6C1CEED31313
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136717.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136717.jpgsave_picture_136717.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ Rick Wakeman - Melancholia (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Progressi
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136718.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136718.jpgsave_picture_136718.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ Scorpions - From The First Sting (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136719.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136719.jpgsave_picture_136719.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ Jump King (2019) [Ru] (Build 14374430) Repack Necros
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136720.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136720.jpgsave_picture_136720.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ David Gilmour - The Luck And Strange Concerts (2025) [FLAC 24/96|Lossless|WEB-DL
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136721.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136721.jpgsave_picture_136721.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ MathType 7.9.1.454 [Ru/En]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136722.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136722.jpgsave_picture_136722.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ magnet:?xt=urn:btih:03ECA369F0FAFC15A53DFDBE2DB9717DD1BA5B73
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136723.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136723.jpgsave_picture_136723.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ magnet:?xt=urn:btih:4C1B1F69CF0BBE53A4C2B2CED5F70F68780767EF
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136724.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136724.jpgsave_picture_136724.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ magnet:?xt=urn:btih:D04948250B30588C685F12BFE7F72DF1E09EEC85
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136725.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136725.jpgsave_picture_136725.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ magnet:?xt=urn:btih:A3D91D6B3B747F7F236475A6251B0171F69CEBE5
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136726.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136726.jpgsave_picture_136726.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ magnet:?xt=urn:btih:A73A6118AA7A5C88617E322E8276E90C30823165
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136727.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136727.jpgsave_picture_136727.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Battle Beast - Steelbound (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136728.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136728.jpgsave_picture_136728.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ ACDSee Photo Studio Ultimate 2026 19.0.0.4295 Full / Lite (17.10.2025) RePack by
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136729.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136729.jpgsave_picture_136729.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ magnet:?xt=urn:btih:57AE165AB44B0613738947F11404D3895E408ADE
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136730.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136730.jpgsave_picture_136730.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ magnet:?xt=urn:btih:4D886F374BB78F5BFEF59887D772D9A274470921
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136731.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136731.jpgsave_picture_136731.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ magnet:?xt=urn:btih:15C25E047F02041A0A4B599D91404F19FEA9A879
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136732.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136732.jpgsave_picture_136732.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Microsoft  Visual C++ Runtimes AIO v0.102.0 x86-x64 Repack by abbodi1406 [Multi/
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136733.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136733.jpgsave_picture_136733.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Dead Age (2016) [Ru/Multi] (1.12-fix) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136734.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136734.jpgsave_picture_136734.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Grailknights - Forever (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Power Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136735.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136735.jpgsave_picture_136735.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ DBF Viewer 2000 8.85 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136736.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136736.jpgsave_picture_136736.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ magnet:?xt=urn:btih:137BE0D58D61987F54AC3F0440D4584A872F0C47
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136737.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136737.jpgsave_picture_136737.jpg" />
 </div>
 
 

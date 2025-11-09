@@ -6,7 +6,7 @@ Photo! 3D Screensaver 1.0 [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82503.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82503.jpgsave_picture_82503.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Photo! 3D Screensaver - приложение, позволяющее увиде�
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82505.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82505.jpgsave_picture_82505.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Photo! 3D Screensaver - приложение, позволяющее увиде�
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82511.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82511.jpgsave_picture_82511.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:59AE35B6EBF99E4A13DBA0F125137064D2473E0F
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82512.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82512.jpgsave_picture_82512.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:59AE35B6EBF99E4A13DBA0F125137064D2473E0F
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82514.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82514.jpgsave_picture_82514.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ Sherlock - Original Television Soundtrack Music From Series One (2012) [MP3|~256
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82515.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82515.jpgsave_picture_82515.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Triangle Sun - 3Albums (2007-2008-2009) [MP3|320 kbps]<Chillout / Downtempo>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82526.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82526.jpgsave_picture_82526.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Triangle Sun - 3Albums (2007-2008-2009) [MP3|320 kbps]<Chillout / Downtempo>
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82533.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82533.jpgsave_picture_82533.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ TrackChecker - Самая лучшая программа для отслежи�
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82535.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82535.jpgsave_picture_82535.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ Mountion Lion Skin Pack 2.0 for Windows 8 Consumer Preview (x32/x64) 2.0 [Englis
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82536.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82536.jpgsave_picture_82536.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ Mountion Lion Skin Pack 2.0 включают в себя пакет програ
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82537.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82537.jpgsave_picture_82537.jpg" />
 </div>
 
 
@@ -290,7 +290,7 @@ magnet:?xt=urn:btih:B992BB2E79A8EDA5E127370BCC0D008F1DD3987F
 >>Старые Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82538.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82538.jpgsave_picture_82538.jpg" />
 </div>
 
 
@@ -314,7 +314,7 @@ magnet:?xt=urn:btih:B992BB2E79A8EDA5E127370BCC0D008F1DD3987F
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82543.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82543.jpgsave_picture_82543.jpg" />
 </div>
 
 
@@ -340,7 +340,7 @@ magnet:?xt=urn:btih:C71CC1783122CB2F7F3A6A67B185CE9F6FC48FE4
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82546.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82546.jpgsave_picture_82546.jpg" />
 </div>
 
 
@@ -364,7 +364,7 @@ magnet:?xt=urn:btih:1883191799C6AA202873F8BCD8A3C71131AC6136
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82547.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82547.jpgsave_picture_82547.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ magnet:?xt=urn:btih:F61B77C39154640C88FEAB0FBC3D1055239D8862
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82550.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82550.jpgsave_picture_82550.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ magnet:?xt=urn:btih:F61B77C39154640C88FEAB0FBC3D1055239D8862
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82552.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82552.jpgsave_picture_82552.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ magnet:?xt=urn:btih:FA8E7586E00D0B829A34851FBFAB685AA57E8847
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82553.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82553.jpgsave_picture_82553.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ magnet:?xt=urn:btih:FA8E7586E00D0B829A34851FBFAB685AA57E8847
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82555.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82555.jpgsave_picture_82555.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ magnet:?xt=urn:btih:7FEA9778D65FD27F3DAD375156026E0A57F34228
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82558.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82558.jpgsave_picture_82558.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ magnet:?xt=urn:btih:7FEA9778D65FD27F3DAD375156026E0A57F34228
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82559.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82559.jpgsave_picture_82559.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Mitsubishi, Обновление MMC ASA Europe update 253 03.02.2012 1.4.0.2
 >>Архив Авто
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82563.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82563.jpgsave_picture_82563.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ ABBA - Gold: Greatest Hits (1993) [MP3|320 кб/с]<Pop, Disco>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82564.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82564.jpgsave_picture_82564.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ magnet:?xt=urn:btih:3C1DEE5B22DB310F3136F5964D51BF55773E34D7
 >>12
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82566.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82566.jpgsave_picture_82566.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ magnet:?xt=urn:btih:7762D08536875789D307C69AC4D0A1C11DACE6D5
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82567.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82567.jpgsave_picture_82567.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ magnet:?xt=urn:btih:67474EC678C94839F66739559E4CBD898C34554C
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82569.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82569.jpgsave_picture_82569.jpg" />
 </div>
 
 

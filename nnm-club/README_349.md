@@ -6,7 +6,7 @@ XMedia Recode 3.6.1.6 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9209.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9209.jpgsave_picture_9209.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:BA169B1533BD28608A726A9EA1BEF7517C1E57EF
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9210.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9210.jpgsave_picture_9210.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ John Skelley - We Were Lightning (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Roc
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9211.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9211.jpgsave_picture_9211.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:AA0EC9A49E2ADFB7587F02CA2B652E666415834A
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9212.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9212.jpgsave_picture_9212.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:490CAD36A55E74728721A17AEFE3F995CD68E16A
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9213.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9213.jpgsave_picture_9213.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ Ui Kits - UI8 - Fodidi - Food Ordering Apps For UI Kits [FIG]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9214.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9214.jpgsave_picture_9214.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ magnet:?xt=urn:btih:A5CE05497E3529B7FFED5DCE19805CC15D27AA7A
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9215.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9215.jpgsave_picture_9215.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:60E6A04F6274CD1CBD39FC4A1872ECA632ED06B5
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9216.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9216.jpgsave_picture_9216.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ magnet:?xt=urn:btih:5CF32D009F2D751E76990D03823F9473B91AAA8B
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9217.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9217.jpgsave_picture_9217.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ magnet:?xt=urn:btih:CD8DD2FCA8B3D451096B485DE50138339C0413DE
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9218.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9218.jpgsave_picture_9218.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ Paul McCartney - Chaos And Creation In The Backyard (2005) SHM-CD, Japanese Edit
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9219.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9219.jpgsave_picture_9219.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ magnet:?xt=urn:btih:E40EB262EE32B18354D781115B21FA52C5AD2771
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9220.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9220.jpgsave_picture_9220.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ VA - Eurobeat Stars Vol. 1-2 (2009) [FLAC|Lossless|WEB-DL|tracks] <Euro Dance/Po
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9221.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9221.jpgsave_picture_9221.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ magnet:?xt=urn:btih:D17BC2D11FCFE82E6FEF9B7EB3D99BF9AF127E0E
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9222.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9222.jpgsave_picture_9222.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ magnet:?xt=urn:btih:786F500981BF066B67A3C91DC1574FF4AC49E942
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9223.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9223.jpgsave_picture_9223.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ magnet:?xt=urn:btih:24EFCF3CF39E5F056153A9C4AD44CF18A42C1434
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9224.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9224.jpgsave_picture_9224.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ magnet:?xt=urn:btih:9B59BE6F2C499B329FEFE343F34CD98A2BC181D7
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9225.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9225.jpgsave_picture_9225.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ magnet:?xt=urn:btih:44F3D6E976EA85C84DB02EA41E28F01316DEC20E
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9226.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9226.jpgsave_picture_9226.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ magnet:?xt=urn:btih:30459D5E437F20A76F0E751AC9550EE20250684C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9227.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9227.jpgsave_picture_9227.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Ocenaudio 3.15.3 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9228.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9228.jpgsave_picture_9228.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ magnet:?xt=urn:btih:D662164CA00545E600F83199DBC43BCCF6101F85
 >>Сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9229.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9229.jpgsave_picture_9229.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ magnet:?xt=urn:btih:4B4ABDD1169AAF748D5142A93D716ED1DD61EFC4
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9230.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9230.jpgsave_picture_9230.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ magnet:?xt=urn:btih:F81CE4285F6B254CC2CFDEB0BD462B0E7777D108
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9231.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9231.jpgsave_picture_9231.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ magnet:?xt=urn:btih:0FB7E10751A4A252A6FAD29BACEACA2BEB803435
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9232.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9232.jpgsave_picture_9232.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ magnet:?xt=urn:btih:EEA704424C2E37AF669146401969D9C931169E1D
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9233.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9233.jpgsave_picture_9233.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ magnet:?xt=urn:btih:D6372FC5E8A04E4EAEB732E1AA689B0C3DDE90C8
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9234.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9234.jpgsave_picture_9234.jpg" />
 </div>
 
 

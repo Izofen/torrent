@@ -6,7 +6,7 @@ PGWare SuperRam 6.1.1.2013 [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130826.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130826.jpgsave_picture_130826.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ PGWare SuperRam - утилита для оптимизации и управле
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130828.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130828.jpgsave_picture_130828.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:CFBCA8C2734203595AD1FFE7BF60D869E6F470F5
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130829.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130829.jpgsave_picture_130829.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:CD8AF396AF5C8A1A9069FB6527EC3284976BC9E6
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130830.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130830.jpgsave_picture_130830.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Dalida - Vive le vent (2023) [FLAC|Lossless|tracks] <Pop, French Music>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130832.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130832.jpgsave_picture_130832.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:07F2A0611AA4183FE51E02617D0F5EA9DD13FC35
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130833.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130833.jpgsave_picture_130833.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ VA - Музыка для машины Vol.50 (2023) [MP3|320 Kbps] <Pop, Dance, 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130835.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130835.jpgsave_picture_130835.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - 80's Club Classics Repress (2003) 2CD [FLAC|Lossless]<Hip Hop, Electro, Sou
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130836.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130836.jpgsave_picture_130836.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ HomeBank 5.7.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130837.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130837.jpgsave_picture_130837.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ magnet:?xt=urn:btih:2C77C98A5254F067BE545299851623BC4F88D3AD
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130839.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130839.jpgsave_picture_130839.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ magnet:?xt=urn:btih:77BE7CA883BFAEF257F3C19561DA40E2472FCD0A
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130840.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130840.jpgsave_picture_130840.jpg" />
 </div>
 
 
@@ -291,7 +291,7 @@ magnet:?xt=urn:btih:77BE7CA883BFAEF257F3C19561DA40E2472FCD0A
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130841.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130841.jpgsave_picture_130841.jpg" />
 </div>
 
 
@@ -315,7 +315,7 @@ PDF24 Creator 11.15.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130842.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130842.jpgsave_picture_130842.jpg" />
 </div>
 
 
@@ -340,7 +340,7 @@ Soulsavers - The Light The Dead See (2012) [FLAC|Lossless]<Alternative>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130843.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130843.jpgsave_picture_130843.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Soulsavers - The Light The Dead See (2012) [FLAC|Lossless]<Alternative>
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130844.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130844.jpgsave_picture_130844.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ magnet:?xt=urn:btih:251C5F37678BD3809D5F97BB07965206059FA3EE
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130845.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130845.jpgsave_picture_130845.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ magnet:?xt=urn:btih:53E61D8B32FB706630472595C9649C658ED5D9BB
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130847.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130847.jpgsave_picture_130847.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ magnet:?xt=urn:btih:A223F01B8B5591D76E572110AD7052A48C3E9EF6
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130848.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130848.jpgsave_picture_130848.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ magnet:?xt=urn:btih:29BC9D39353A12DCC91396253463943A67C68A60
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130852.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130852.jpgsave_picture_130852.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ VA - Новогодний Хит За Хитом (2012) [MP3|256 кб/с]<Pop>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130853.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130853.jpgsave_picture_130853.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ magnet:?xt=urn:btih:7FA9829DAF3BE914A352970E3FC9156427EC6D61
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130854.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130854.jpgsave_picture_130854.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ magnet:?xt=urn:btih:61E1DCC1D1421F70DB015C345A8DB9E70CC89F3F
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130856.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130856.jpgsave_picture_130856.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ magnet:?xt=urn:btih:D62C8B1392C3920269EB92435358A0A59F37E84E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130858.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130858.jpgsave_picture_130858.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ PGWare Throttle 6.1.1.2013 [English]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130859.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130859.jpgsave_picture_130859.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Bad Company - 25 Albums (1974 - 2018) 47 CD [FLAC|Lossless|image + .cue|tracks +
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130860.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130860.jpgsave_picture_130860.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ magnet:?xt=urn:btih:694FC0499D357A7E973DA582722E22148911693E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130862.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130862.jpgsave_picture_130862.jpg" />
 </div>
 
 

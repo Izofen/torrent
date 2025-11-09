@@ -6,7 +6,7 @@ Legendary Hoplite (2024) [Ru/Multi] (1.0.2) Repack FitGirl [Support Ithaca Bundl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118667.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118667.jpgsave_picture_118667.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Heroes of Eternal Quest (2024) [Multi] (1.0.16a) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118673.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118673.jpgsave_picture_118673.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Darkest Dungeon II (2023) [Ru/Multi] (1.04.59290/dlc) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119240.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119240.jpgsave_picture_119240.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Dungeon Siege: Legends of Aranna / Осада подземелья: Легенд
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119382.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119382.jpgsave_picture_119382.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Long Gone Days (2023) [Ru/Multi] (20240130) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119562.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119562.jpgsave_picture_119562.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Floating Life 2 (2023) [Multi] (1.0.2.58) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119572.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119572.jpgsave_picture_119572.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ The Elder Scrolls V: Skyrim (2021) [Ru/En] (1.6.1170.0.8/dlc) Repack Other s [An
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119584.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119584.jpgsave_picture_119584.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Lunacid (2023) [En] (1.2.1) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119709.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119709.jpgsave_picture_119709.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Cris Tales (2021) [Ru/Multi] (1.0.7) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120022.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120022.jpgsave_picture_120022.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Star Explorers (2018) [En] (5.4.4a) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120347.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120347.jpgsave_picture_120347.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Boyfriend Dungeon (2021) [Ru/Multi] (1.3.7294S/dlc) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120375.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120375.jpgsave_picture_120375.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Gloomhaven (2021) [Multi] (1.1.8307.0/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120582.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120582.jpgsave_picture_120582.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Heroes of Eternal Quest (2024) [Multi] (1.0) Scene Skidrow
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120896.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120896.jpgsave_picture_120896.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Monster Hunter Rise (2022) [Ru/Multi] (16.0.2.0/dlc) Scene Razor1911
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121219.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121219.jpgsave_picture_121219.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ GRAVEN (2021) [Ru/Multi] (1.0) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121224.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121224.jpgsave_picture_121224.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Eternights (2023) [Multi] (20230920) Scene Tenoke [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121377.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121377.jpgsave_picture_121377.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Nienix: Cosmic Warfare (2023) [Ru/Multi] (1.0501) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121626.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121626.jpgsave_picture_121626.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Sovereign Syndicate (2024) [En] (1.0.25) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121628.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121628.jpgsave_picture_121628.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Above Snakes (2023) [Ru/Multi] (1.4.5) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121783.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121783.jpgsave_picture_121783.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Achilles: Legends Untold (2023) [Ru/Multi] (1.1) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121806.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121806.jpgsave_picture_121806.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Above Snakes (2023) [Ru/Multi] (1.4.5) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121812.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121812.jpgsave_picture_121812.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Kingsvein (2024) [En] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121957.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121957.jpgsave_picture_121957.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Affogato (2023) [Multi] (1.0.19) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122261.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122261.jpgsave_picture_122261.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Path of the Midnight Sun (2023) [Multi] (2.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122411.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122411.jpgsave_picture_122411.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Ys Origin (2012) [En] (2024-01-08) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122677.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122677.jpgsave_picture_122677.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Dragon Quest Treasures (2023) [Multi] (20240111/dlc) Scene Tenoke [Digital Delux
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123356.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123356.jpgsave_picture_123356.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15625.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15625.jpgsave_picture_15625.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:9F5C0D9575CE399A54A5E6076E2AE046897EC514
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15626.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15626.jpgsave_picture_15626.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:8C00CDB771AB3B9E08909CBF1283EE1BA3EB786D
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15627.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15627.jpgsave_picture_15627.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:FE13C29E807883A46AEFF7F0CC61D44C44CC1DDC
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15628.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15628.jpgsave_picture_15628.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:3D6FFBA39BB885D5B9CC96FEC65DF57CF59EB6AF
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15629.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15629.jpgsave_picture_15629.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Paul McCartney - Tug Of War (1982) Japanese Edition, SHM-CD, Reissue, Remastered
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15630.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15630.jpgsave_picture_15630.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:39889977A8326B1009635953D35956A08F3A6EB7
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15631.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15631.jpgsave_picture_15631.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:76553E506E8B68C89A05EF39B0A028098A673C8C
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15632.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15632.jpgsave_picture_15632.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:4232F3BEF0BC828544F555BE24AACBADD8543FDE
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15633.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15633.jpgsave_picture_15633.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:4C806D1CAB463FD5AB4710AC2631E479CC7B2FE5
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15634.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15634.jpgsave_picture_15634.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Photo Studio PRO v2.8.2.4344 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15635.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15635.jpgsave_picture_15635.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Failure Frame | Hazure Waku no Joutai Ijou Skill de Saikyou ni Natta Ore ga Sube
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15636.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15636.jpgsave_picture_15636.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ magnet:?xt=urn:btih:B3E56D6769C480794FFA0CAF1C057AC120AEBA58
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15637.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15637.jpgsave_picture_15637.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ VA - Top 11 March 2025 Emotional and Uplifting Trance (2025) [MP3|320 Kbps] <Tra
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15638.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15638.jpgsave_picture_15638.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Megami no Cafe Terrace (2024) | The Cafe Terrace and Its Goddesses (2024) | Бо
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15639.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15639.jpgsave_picture_15639.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ magnet:?xt=urn:btih:C484341C31BDE56B366B846796A73EF5E3EE2D9C
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15640.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15640.jpgsave_picture_15640.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ PowerDirector – Video Editor v15.3.1 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15641.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15641.jpgsave_picture_15641.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Manowar - Kings Of Metal (1988)[APE|24/96|image + .cue|Vinyl-Rip]  <Heavy Metal>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15642.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15642.jpgsave_picture_15642.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ magnet:?xt=urn:btih:2A17CBD52C4C5C51BA168FD8D3B5FC49D49E1450
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15643.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15643.jpgsave_picture_15643.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ magnet:?xt=urn:btih:AD45C3762DDC2535397B7EB2B770CD8008A1590F
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15644.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15644.jpgsave_picture_15644.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Kimi no Koto ga Dai Dai Dai Dai Daisuki na 100 Nin no Kanojo | The 100 Girlfrien
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15645.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15645.jpgsave_picture_15645.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ magnet:?xt=urn:btih:870D838E1DE1725EFDD14B2EC75B3C097A0E91FC
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15646.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15646.jpgsave_picture_15646.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ magnet:?xt=urn:btih:8E2625489B92892E34CD8649E21474A1CA008460
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15647.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15647.jpgsave_picture_15647.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ Fort Firewall 3.18.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15648.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15648.jpgsave_picture_15648.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ magnet:?xt=urn:btih:BF3A257A10EBD632ADB5B4D3C9A147F41DD361D1
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15649.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15649.jpgsave_picture_15649.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ ZWCAD MFG 2026 SP0 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15650.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15650.jpgsave_picture_15650.jpg" />
 </div>
 
 

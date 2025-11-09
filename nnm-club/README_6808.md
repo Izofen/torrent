@@ -6,7 +6,7 @@ Snakes Don't Belong In Alaska - merch community Sounds Of A Forming Planet (2023
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234175.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234175.jpgsave_picture_234175.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:C6977C5823ABBE5D50011B4F00A3C1122389E5A3
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234176.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234176.jpgsave_picture_234176.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ Windows Update Viewer 0.5.14.0 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234177.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234177.jpgsave_picture_234177.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:4DBF9603C9565263976A1E46E9D6FE1243D3B1F8
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234178.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234178.jpgsave_picture_234178.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:5F6A5C158485125F094D4563624F002BAE138A5E
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234179.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234179.jpgsave_picture_234179.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ VA - Secret Room: Chillout Your Mind (2021) [AAC|~313 Kbps] <Lounge, Chill Out, 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234180.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234180.jpgsave_picture_234180.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ Opera One 100.0.4815.30 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234181.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234181.jpgsave_picture_234181.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ Dead Shape Figure - The Sworn Book (2023) [MP3|320 Kbps] <Melodic Death, Thrash 
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234182.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234182.jpgsave_picture_234182.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ Ray Temple - II (2023) [MP3|320 Kbps] <Heavy Rock, Psych, Stoner, Garage, Bluesy
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234183.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234183.jpgsave_picture_234183.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ Udemy, Ivan Yosifov | Unreal Engine 5 - Create Zombie Survivor FPS Game (2022) P
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234184.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234184.jpgsave_picture_234184.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ AOMEI Backupper Pro 6.9.2 [Multi/Ru] (акция Comss)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234185.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234185.jpgsave_picture_234185.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ VA - Flora Lounge Tunes by Smooth Deluxe, Vol. 2 (2021) [AAC|~321 Kbps] <Chill O
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234186.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234186.jpgsave_picture_234186.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ magnet:?xt=urn:btih:71B43D17313B7365746F6ECAADE24E0715AF341F
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234187.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234187.jpgsave_picture_234187.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ Wise Care 365 Pro 6.5.5.628 + Portable [Multi/Ru] (акция Comss)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234188.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234188.jpgsave_picture_234188.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ WinRAR 6.22 Beta 1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234189.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234189.jpgsave_picture_234189.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Nonel - Empire (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metalcore>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234190.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234190.jpgsave_picture_234190.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Udemy, Ivan Yosifov | Unreal Engine 5 - Make AAA Game Vehicles (2022) PCRec [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234191.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234191.jpgsave_picture_234191.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ VA - Vanlife Chill, Vol. 3 (2021) [AAC|~314 Kbps] <Lounge, Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234192.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234192.jpgsave_picture_234192.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ magnet:?xt=urn:btih:16F7E00A063D1C34D9B89E5B8CCC30522E27FC69
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234193.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234193.jpgsave_picture_234193.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ magnet:?xt=urn:btih:F92F5D2CED5088E416152177BFCDB5A9030A50AB
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234194.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234194.jpgsave_picture_234194.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ magnet:?xt=urn:btih:6FA6FDACDB5F2F0439F4D843AE892D04356AEACB
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234195.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234195.jpgsave_picture_234195.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ The Devil Wears Prada - Color Decay (2022) Deluxe, 2023, Solid State Records  [M
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234196.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234196.jpgsave_picture_234196.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ VA - Close to You (2021) [AAC|~303 Kbps] <Lounge, Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234197.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234197.jpgsave_picture_234197.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ magnet:?xt=urn:btih:D2DE50A063549B86F6EC54AF6C1A07899F027834
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234198.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234198.jpgsave_picture_234198.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ SmartOffice Pro 3.13.10 Mod by srajawwal09 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234199.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234199.jpgsave_picture_234199.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ They Grieve - To Which I Bore Witness (2023) [FLAC|Lossless|WEB-DL|tracks] <Atmo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234200.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234200.jpgsave_picture_234200.jpg" />
 </div>
 
 

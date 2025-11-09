@@ -6,7 +6,7 @@
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94675.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94675.jpgsave_picture_94675.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:9C85ECD8998E74751788B347E5F624029C968C5E
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94676.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94676.jpgsave_picture_94676.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:A29BA1DDF33668703AFB9CD585FC679331A99D0E
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94678.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94678.jpgsave_picture_94678.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:6FFDFBC875823594C7121E62378BB20154F5598A
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94680.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94680.jpgsave_picture_94680.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:BF8CF0639A5E0421DBD4C04027F7F307E76D3001
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94682.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94682.jpgsave_picture_94682.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ VA - ZYX Italo Disco New Generation Vol. 27 (2025) 2CD, Compilation [FLAC|Lossle
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94684.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94684.jpgsave_picture_94684.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:911D7322F2F4A711817AFE09C04C39C13D32B2FD
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94689.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94689.jpgsave_picture_94689.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:281A02FBC40EE48302F6E735F7448265423AE13D
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94692.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94692.jpgsave_picture_94692.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ Skid Row - Studio Albums (8 releases) (1989-2022) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94694.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94694.jpgsave_picture_94694.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ magnet:?xt=urn:btih:2DF1F77A7E347935055C712EC66FA2B6F573DD8B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94696.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94696.jpgsave_picture_94696.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:CFFF20637A0D6A8DBE718DCA5DA49EA6C34C1A7D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94698.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94698.jpgsave_picture_94698.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:665EB17D37EFCD890DB22153780548174C9771E6
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94699.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94699.jpgsave_picture_94699.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ VA - The Orient Collective: Ancient Spirits (2025) [FLAC|Lossless|WEB-DL|tracks]
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94701.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94701.jpgsave_picture_94701.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ BOOKlis: Слушай аудиокниги v2.3.0 Mod by SurvivalHorror [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94702.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94702.jpgsave_picture_94702.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Words of Wonders: Игра в слова v5.5.20 Mod by vadj [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94703.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94703.jpgsave_picture_94703.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ magnet:?xt=urn:btih:10F661545C287F9720EB698CF340109383F7F9ED
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94704.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94704.jpgsave_picture_94704.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ VA - Music News For Forum vol.137 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94705.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94705.jpgsave_picture_94705.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ magnet:?xt=urn:btih:5A951F68EAFFD320861B687D6F092E32404A276E
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94706.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94706.jpgsave_picture_94706.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ magnet:?xt=urn:btih:B49EB7A6B9B04F019E9316B67023A687992B2F97
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94707.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94707.jpgsave_picture_94707.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Theodor Bastard - Oikuomene (2012) [MP3|320 кб/с]<Rock, Folk, Darkwave>
 >>Folk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94708.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94708.jpgsave_picture_94708.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ magnet:?xt=urn:btih:9A66B199848D1339B4B472134E2F224F0B41A098
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94709.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94709.jpgsave_picture_94709.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ EOBD Facile: OBD 2 авто сканер v3.79.1122 Mod by derrin [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94711.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94711.jpgsave_picture_94711.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Strava: бег, велоезда, хайкинг v431.9 Mod by PieMods [Ru/Multi
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94713.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94713.jpgsave_picture_94713.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ magnet:?xt=urn:btih:9EB5BB09B1B8F2C48031F9D09383FB4F5724325B
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94714.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94714.jpgsave_picture_94714.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ magnet:?xt=urn:btih:85E5517ED5FF50904F969CCF2377EB6319887D31
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94715.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94715.jpgsave_picture_94715.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ magnet:?xt=urn:btih:EBFF64055C09C1E07E534F261F1CD3FE56E57237
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94717.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94717.jpgsave_picture_94717.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Релакс / Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144236.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144236.jpgsave_picture_144236.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:41E9F0C141EED4D6AAD4C7218EC2E6F2ABC5AB09
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144238.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144238.jpgsave_picture_144238.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:817E7E15386DB7CFC1BE4858461C1A9E68666B9F
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144239.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144239.jpgsave_picture_144239.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Animatronix - Echotone (2017) [FLAC|Lossless|WEB-DL|tracks] <Psychill, Downtempo
 >>Psybient, Psychill, Psydub (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144240.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144240.jpgsave_picture_144240.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:7E66DF26F81B7507DB2AEACB0A75146CE6CC65D8
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144241.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144241.jpgsave_picture_144241.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ Thief™ Gold (1999) [En] (1.26ND) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144242.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144242.jpgsave_picture_144242.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ Katholik - Entropic Evolution (2023) [FLAC|Lossless|WEB-DL|tracks] <Technical De
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144244.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144244.jpgsave_picture_144244.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:3E3639DE57D13298B748FA2610CAB0F149E2C64F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144245.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144245.jpgsave_picture_144245.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ Topaz Photography Suite 2015 Plugin Portable by PortableWares (28.12.2015) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144246.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144246.jpgsave_picture_144246.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ magnet:?xt=urn:btih:798A71FC49CCF2AD75C80292D1A79E7EE5E5DD45
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144247.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144247.jpgsave_picture_144247.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ Atlas - Breeze (1987) [FLAC|Lossless|tracks + .cue] <Fusion, New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144248.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144248.jpgsave_picture_144248.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ magnet:?xt=urn:btih:21BCBBA4C94EBA1D6406E94DA324F264AEFE3A18
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144249.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144249.jpgsave_picture_144249.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ Windows 11 Enterprise 21H2 x64 Rus by OneSmiLe [22000.376]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144250.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144250.jpgsave_picture_144250.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ magnet:?xt=urn:btih:AA07FFFE3269D152718A11E95B78300127572EB3
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144251.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144251.jpgsave_picture_144251.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Clipboard Manager 2.5.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144252.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144252.jpgsave_picture_144252.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ magnet:?xt=urn:btih:D4B29646DB6F1D028507AF3EFA6E2E5BBD0E2DB1
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144253.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144253.jpgsave_picture_144253.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ magnet:?xt=urn:btih:5D17161793E928253F16384F789FE7EFC6C03A05
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144256.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144256.jpgsave_picture_144256.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ magnet:?xt=urn:btih:B0EC9D0C711A4024D3D2FF097D164AC586703F2C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144257.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144257.jpgsave_picture_144257.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ magnet:?xt=urn:btih:38C0D43D451E52E4B3ED3DC3853944185E7F82CC
 >>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144258.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144258.jpgsave_picture_144258.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ magnet:?xt=urn:btih:D69F53FC22490017CF7DDD35D9C83B8A45367D9F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144259.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144259.jpgsave_picture_144259.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Wincent Weiss - Irgendwas gegen die Stille (2017) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144260.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144260.jpgsave_picture_144260.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ magnet:?xt=urn:btih:E97A0BBF96DB66669723F6AA7F2C450502E4E5CE
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144261.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144261.jpgsave_picture_144261.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ magnet:?xt=urn:btih:6C13A2BC1B81E8D692A12282436076D136F02B3C
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144262.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144262.jpgsave_picture_144262.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Vehemence - God Was Created (2002) [FLAC|Lossless|WEB-DL|tracks] <Metal, Melodic
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144263.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144263.jpgsave_picture_144263.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Senpai ga Uzai Kouhai no Hanashi | My Senpai Is Annoying | Мой сэмпай �
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144264.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144264.jpgsave_picture_144264.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ VA - Hed Kandi - Twisted Disco (2010) [FLAC|Lossless|tracks] <House, Electronica
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144266.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144266.jpgsave_picture_144266.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Animal ДжаZ - Ян (2024) [MP3|320 Kbps] <Alternative Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48977.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48977.jpgsave_picture_48977.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ YT Downloader 9.9.8 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48978.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48978.jpgsave_picture_48978.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ RisohEditor 5.8.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48979.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48979.jpgsave_picture_48979.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ Ocenaudio 3.14 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48980.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48980.jpgsave_picture_48980.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ Jindřich Parma (Jindrich Parma) - Juno: Nové Retro (2015) [FLAC|Lossless|WEB-D
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48981.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48981.jpgsave_picture_48981.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ Sonic Tribe - 6 Albums (2018-2024) [MP3|320 Kbps] <Progressive Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48982.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48982.jpgsave_picture_48982.jpg" />
 </div>
 
 
@@ -161,7 +161,7 @@ Sandboxie plus 1.14.5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48983.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48983.jpgsave_picture_48983.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ Dickey Betts - Live From The Lone Star Roadhouse New York City 1988 (2018) Reiss
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48984.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48984.jpgsave_picture_48984.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ magnet:?xt=urn:btih:1B651254A71ACA9064D8F77F1392EF2C7F25545A
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48985.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48985.jpgsave_picture_48985.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ VA - Ibiza Chillout & Lounge Music 2024 (2024) [FLAC|Lossless|WEB-DL|tracks] <Lo
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48986.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48986.jpgsave_picture_48986.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ KI Bild Generator - DoFoto v1.186.44 Mod by MixRoot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48987.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48987.jpgsave_picture_48987.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ magnet:?xt=urn:btih:21E842BFE05A9BD1CF833E1C0F94A850488D00F3
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48988.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48988.jpgsave_picture_48988.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ magnet:?xt=urn:btih:2094B4FC9B26AA398222B1DA1E16B62AECFD1A99
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48989.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48989.jpgsave_picture_48989.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ magnet:?xt=urn:btih:ADC82970FAAB9C4CF2E86297F61DDA12226D2A53
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48990.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48990.jpgsave_picture_48990.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ magnet:?xt=urn:btih:00953BED5D070851C6676DE6CD9F85FD1C2ECE2E
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48991.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48991.jpgsave_picture_48991.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ magnet:?xt=urn:btih:6706B6984413D2CB292266D199971ED23EDC6789
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48992.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48992.jpgsave_picture_48992.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Windows Manager 2.0.3 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48993.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48993.jpgsave_picture_48993.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ magnet:?xt=urn:btih:6E4F11FCED5E2EAE7A9A25605C89A52856F76228
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48994.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48994.jpgsave_picture_48994.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ magnet:?xt=urn:btih:41AEEF201E315BE7B0754CD7193BFD2951D42152
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48995.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48995.jpgsave_picture_48995.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ Skywalkers: История одной пары / Skywalkers: A Love Story (2024)
 >>Экстрим
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48996.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48996.jpgsave_picture_48996.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ magnet:?xt=urn:btih:6C1D9AAE5086FE3295EA1978A69C68717A9ADB3A
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48997.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48997.jpgsave_picture_48997.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Twinkle Tray 1.15.5 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48998.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48998.jpgsave_picture_48998.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ magnet:?xt=urn:btih:468CCFCF85552FBBC84BD2160492B087070D9828
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48999.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48999.jpgsave_picture_48999.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ magnet:?xt=urn:btih:9E0723DF17A2F9FB8CC5E4BBE6A85E826E8DFB34
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49000.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49000.jpgsave_picture_49000.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Internet Download Manager 6.42 Build 16 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49001.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49001.jpgsave_picture_49001.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ VA - part 100 velvet saxophone compilation (2024) [MP3|320 Kbps] <Easy Listening
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49002.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49002.jpgsave_picture_49002.jpg" />
 </div>
 
 

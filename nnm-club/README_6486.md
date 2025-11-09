@@ -6,7 +6,7 @@ Sargon - In Contempt (2011) [MP3|320 Kbps] <Thrash, Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205463.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205463.jpgsave_picture_205463.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Blutgott - Respawned In Heavy Metal (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205465.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205465.jpgsave_picture_205465.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:0849BECCBE9CE45B8CCB4BF07F7DEDB38B092DCD
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205467.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205467.jpgsave_picture_205467.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ VA - Zumbadance Workout (2023) [MP3|320 Kbps] <Pop, Latin, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205475.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205475.jpgsave_picture_205475.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ K-Lite Codec Pack Update 17.7.2 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205476.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205476.jpgsave_picture_205476.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ magnet:?xt=urn:btih:CFFC569AC1530FDE08078BAF8653801FE348A283
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205478.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205478.jpgsave_picture_205478.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:1CCEDD6F59D88DED1F57DEB73AE95B0D0071A117
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205481.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205481.jpgsave_picture_205481.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ VA - Deep House Sessions 2023 [MP3|320 Kbps] <House, Deep House, Dance, Club>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205483.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205483.jpgsave_picture_205483.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ magnet:?xt=urn:btih:89710437DF30396AA084E79BB36897545726A46F
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205485.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205485.jpgsave_picture_205485.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ magnet:?xt=urn:btih:1E5F623E63C9CC38A01312605704412424BB89FD
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205486.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205486.jpgsave_picture_205486.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ VA - Rock and Jazz (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz Vocal, Rock>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205488.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205488.jpgsave_picture_205488.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ magnet:?xt=urn:btih:387A1585549FB651436082C91F98859F953595C5
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205490.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205490.jpgsave_picture_205490.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ VA - File Under: Trance (2021) [FLAC|Lossless|WEB-DL|tracks] <Trance>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205492.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205492.jpgsave_picture_205492.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ Rhinoceros 7 v.7.32 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205494.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205494.jpgsave_picture_205494.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ magnet:?xt=urn:btih:A55A11DA120CD6404E36E3731C3407D9734DF934
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205497.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205497.jpgsave_picture_205497.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ Infuse PRO 7.5.9 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205499.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205499.jpgsave_picture_205499.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ VA - Jazz Love Songs (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz Vocal>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205500.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205500.jpgsave_picture_205500.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ magnet:?xt=urn:btih:B04BCE8F05A6A78A0B1E4B8EE72C0B429691A226
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205503.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205503.jpgsave_picture_205503.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ magnet:?xt=urn:btih:AB4CC28331A4054AAA4F60CF2183E1634FB1CEB8
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205504.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205504.jpgsave_picture_205504.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ magnet:?xt=urn:btih:9DD9D15AEA444CCE043EC7E73A60701BE8821190
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205506.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205506.jpgsave_picture_205506.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ magnet:?xt=urn:btih:C1FAD4752E5124B228548161377C9866FFEFD4BF
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205508.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205508.jpgsave_picture_205508.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ magnet:?xt=urn:btih:79A6CD70919CC256B87F42F9068124BF2D72B663
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205509.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205509.jpgsave_picture_205509.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ AirRadar 7 v.7.4 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205510.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205510.jpgsave_picture_205510.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Duolingo: изучай языки 5.114.4 Mod by RBMods [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205513.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205513.jpgsave_picture_205513.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Jackie McLean & John Jenkins - Alto Madness (1957) 1991, Original Jazz Classics 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205515.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205515.jpgsave_picture_205515.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Foaming at the Mouth - Writhing (2018) [FLAC|Lossless|WEB-DL|tracks] <Death Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205517.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205517.jpgsave_picture_205517.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122584.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122584.jpgsave_picture_122584.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ SMPlayer 23.12.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122585.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122585.jpgsave_picture_122585.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Baldr Sky (2019) [En] (1.01) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122586.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122586.jpgsave_picture_122586.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:70CDF079E4A27242CA3E8BFF5BF8DC4EA0DDFD82
 >>Мультимедийные справочники, Энциклопедии
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122587.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122587.jpgsave_picture_122587.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:37C037D8B8A72D072784EF5C2605DC00F17AAC58
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122588.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122588.jpgsave_picture_122588.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Blackmagic Design Fusion Studio 18.6.4 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122589.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122589.jpgsave_picture_122589.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ S.T.A.L.K.E.R.: Сердце ангела (2021) WEBRip [H.264]
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122590.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122590.jpgsave_picture_122590.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ S.T.A.L.K.E.R.: Сердце ангела (2021) WEBRip [H.264/1080p] [PR]
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122591.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122591.jpgsave_picture_122591.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:9573757CB502EAD2F1BFFFC7C918EFD129B4F256
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122592.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122592.jpgsave_picture_122592.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:07B11C5C1DD40AF4FB447BA2FE8C4FAB4920E246
 >>Мультимедийные справочники, Энциклопедии
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122593.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122593.jpgsave_picture_122593.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:FA3AD7A1EB02F666CD70291AF9D6B3986AE144BF
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122594.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122594.jpgsave_picture_122594.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:255374D918E8173C0E5BBC70B07DBC7381DBA91F
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122595.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122595.jpgsave_picture_122595.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ FabFilter - Total Bundle 2023.12.20 STANDALONE, VST, VST 3, AAX (x86/x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122596.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122596.jpgsave_picture_122596.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Udemy, Jeremy Hazel, Lindsay Marsh | Learn the Entire Affinity Suite: Photo, Des
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122597.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122597.jpgsave_picture_122597.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ magnet:?xt=urn:btih:B912E3E58CD1E464A336E2B122EFB5C7A54C89B9
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122598.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122598.jpgsave_picture_122598.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ magnet:?xt=urn:btih:9AA8DA3AD54FF858084BF6F294B2013D4CE79BF7
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122599.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122599.jpgsave_picture_122599.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ Coloring / Раскраска v2.0.94 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122600.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122600.jpgsave_picture_122600.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ magnet:?xt=urn:btih:43B5179FB8B4C93003F79B4E93A1074CB8943F93
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122601.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122601.jpgsave_picture_122601.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ magnet:?xt=urn:btih:6EE9C49DB298F16932A99EA54BABBE8CEEB2328B
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122602.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122602.jpgsave_picture_122602.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ magnet:?xt=urn:btih:74562B3F4AC0434CB9366893B2EF55827EFAC61B
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122603.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122603.jpgsave_picture_122603.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Media Player Classic Home Cinema (MPC-HC) 2.1.4 RePack (& portable) by KpoJIuK [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122604.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122604.jpgsave_picture_122604.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ IconTo Pro 7.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122605.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122605.jpgsave_picture_122605.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ magnet:?xt=urn:btih:6749B6063659752548E86B572301A71F45D8EACB
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122606.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122606.jpgsave_picture_122606.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Process Lasso Pro 12.4.7.20 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122608.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122608.jpgsave_picture_122608.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ magnet:?xt=urn:btih:A55DFF98F88415E4C1060F4944AB5319DE5E1589
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122609.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122609.jpgsave_picture_122609.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ VPstudio V12.01 C9 x64 SP2 [Multi/Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122610.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122610.jpgsave_picture_122610.jpg" />
 </div>
 
 

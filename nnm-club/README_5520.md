@@ -6,7 +6,7 @@
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170489.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170489.jpgsave_picture_170489.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:2879ED51B14764E521ACDAC61DF7826340F1D8B8
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170490.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170490.jpgsave_picture_170490.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Murasaki 2.4.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170491.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170491.jpgsave_picture_170491.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:97858D40E32434AE2F7E6E2569714F37EBB4701F
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170492.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170492.jpgsave_picture_170492.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:75F523B2A605F82154186719DAAA66FDEF9B9AA0
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170493.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170493.jpgsave_picture_170493.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Swift Publisher 5 v.5.6.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170494.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170494.jpgsave_picture_170494.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Nitro Pro 13.32.0.623 RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170495.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170495.jpgsave_picture_170495.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:C71E50E0CE23E6E28C80D851D39E7349884502AB
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170496.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170496.jpgsave_picture_170496.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ Dashcam Viewer 3.3.2 Repack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170497.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170497.jpgsave_picture_170497.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:7AF32E85564AFE746F32B9594384C60C1A88424A
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170498.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170498.jpgsave_picture_170498.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:3B0C51CE652039FBFE3ECFD8072A5024F46C06D0
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170499.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170499.jpgsave_picture_170499.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Sabu - Banshee (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170500.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170500.jpgsave_picture_170500.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Steve Gadd Band - At Blue Note Tokyo (2021) BFM Jazz [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170501.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170501.jpgsave_picture_170501.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ magnet:?xt=urn:btih:0301C16B3D241E7615BA2239552FAF5F2A75D874
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170502.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170502.jpgsave_picture_170502.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Endseeker - Global Worming (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Death Met
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170503.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170503.jpgsave_picture_170503.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ magnet:?xt=urn:btih:8E74884A72DBF89438CB01C1A029D06A87A9ED9A
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170504.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170504.jpgsave_picture_170504.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ VideoDuke 2.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170505.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170505.jpgsave_picture_170505.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ magnet:?xt=urn:btih:A6C3B9DCC67927C1ED642C62BBD46DDA5C4EBD86
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170506.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170506.jpgsave_picture_170506.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ magnet:?xt=urn:btih:0929CCCAF7911A4703827EB3595989BECC4F9294
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170507.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170507.jpgsave_picture_170507.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Angelus Apatrida - Aftermath (2023) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170508.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170508.jpgsave_picture_170508.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ Lich King - Necromantic Maelstrom (2007) [WavPack|Lossless|image + .cue] <Thrash
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170509.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170509.jpgsave_picture_170509.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ GrabIt 4.931 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170510.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170510.jpgsave_picture_170510.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Opera 65.0.3467.69 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170511.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170511.jpgsave_picture_170511.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ magnet:?xt=urn:btih:882A99E46AFE85DA481AF6CF40AE1A6A4D109720
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170512.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170512.jpgsave_picture_170512.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Lich King - Born of the Bomb (2012) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170513.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170513.jpgsave_picture_170513.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ magnet:?xt=urn:btih:2A427F3B700F90D9997F37BDDB2DDC3D2291E012
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170514.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170514.jpgsave_picture_170514.jpg" />
 </div>
 
 

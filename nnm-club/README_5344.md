@@ -6,7 +6,7 @@
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165788.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165788.jpgsave_picture_165788.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:4E96279771E8A1DC2DB07E0F2A6C40741B393EE5
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165789.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165789.jpgsave_picture_165789.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:04571ED446C30FC9043C3A685EAC3ADFEFC3EAC5
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165790.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165790.jpgsave_picture_165790.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ Privacy Eraser Free 4.57.2 Build 3324 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165791.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165791.jpgsave_picture_165791.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:2A35AF815D0E9B3F9F3A861B78F6107329B3F65C
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165792.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165792.jpgsave_picture_165792.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:D37032CD2C54240A6AAAB14D54E7D8D3A7EAD016
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165793.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165793.jpgsave_picture_165793.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:61F848CBB92C3EED8787F514694C1DE121E9D5C4
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165794.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165794.jpgsave_picture_165794.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:4959190DC8F321EC267F4E59FEE66B4856C8CDEB
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165795.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165795.jpgsave_picture_165795.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:B9BFB564C2AA9C4B25C52812211F173CDDB54E13
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165796.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165796.jpgsave_picture_165796.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ One Switch 1.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165797.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165797.jpgsave_picture_165797.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:9EB844240EDF786A18612412775FE202FD62B7A6
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165798.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165798.jpgsave_picture_165798.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:828F6FC978BB72E39558A34D3492AC0FF3DED790
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165799.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165799.jpgsave_picture_165799.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:743551345233E9CFF12C0A0C8C629968FB9E77F9
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165800.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165800.jpgsave_picture_165800.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ RazorSQL 9.0.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165801.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165801.jpgsave_picture_165801.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ magnet:?xt=urn:btih:CEFD92ADF787610BEE286D6FCB39A8A9FE0EBF5A
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165802.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165802.jpgsave_picture_165802.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Scarlean - Soulmates (2019) [FLAC|Lossless|WEB-DL|tracks] <Alternative-Metal, Nu
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165803.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165803.jpgsave_picture_165803.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ magnet:?xt=urn:btih:478EF09EDF86F423285CA68C71929EB76A01BCF6
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165804.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165804.jpgsave_picture_165804.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ magnet:?xt=urn:btih:5381DE14E84650BB6D6A7499990F74AF394EC98F
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165805.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165805.jpgsave_picture_165805.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ iWork Converter 2.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165806.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165806.jpgsave_picture_165806.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ magnet:?xt=urn:btih:386FD066A706147904DC31016243D1D634D4E5A9
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165807.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165807.jpgsave_picture_165807.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ Microsoft Windows 11 [10.0.22631.2428], Version 23H2 - Оригинальные 
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165808.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165808.jpgsave_picture_165808.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ Softorino YouTube Converter 2 2.1.11 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165809.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165809.jpgsave_picture_165809.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ magnet:?xt=urn:btih:8F3431BB9C1497499250F659FA60FA1E4965A935
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165810.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165810.jpgsave_picture_165810.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ magnet:?xt=urn:btih:BEE92125BA7DD407AE87979408B5003C2D883D61
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165811.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165811.jpgsave_picture_165811.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ FontLab 7 7.0.1 (build 7276) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165812.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165812.jpgsave_picture_165812.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ magnet:?xt=urn:btih:BA2641826F86CEDA32077FE8BDDC2D7A724B38E8
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165813.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165813.jpgsave_picture_165813.jpg" />
 </div>
 
 

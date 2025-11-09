@@ -6,7 +6,7 @@ AGContacts v13.10.14.31819 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172956.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172956.jpgsave_picture_172956.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:66EDB029F1A8E5F84881A828CF9EC723934949D3
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172957.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172957.jpgsave_picture_172957.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ S.T.A.L.K.E.R.: Сердце ангела (2021) WEBRip
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172958.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172958.jpgsave_picture_172958.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ AVID Sibelius Ultimate Complete for Mac 2023.8 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172959.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172959.jpgsave_picture_172959.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:8A14D0ABB996B7EEF18CA9C554F4BC34A7019A70
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172960.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172960.jpgsave_picture_172960.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Kajgūn(Kajgun) - Collection 4 Releases (2020-2022) [FLAC|Lossless|Web-DL|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172961.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172961.jpgsave_picture_172961.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ Ashampoo Snap Business 10.0.3 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172962.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172962.jpgsave_picture_172962.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:1A8FF6101BDE9CF32159641C3A093DCE50FCED64
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172963.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172963.jpgsave_picture_172963.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ magnet:?xt=urn:btih:9B7436FE0AF7D168E8995BC64168B70368BAEB37
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172964.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172964.jpgsave_picture_172964.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ VA - Motivation Mix 5 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172965.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172965.jpgsave_picture_172965.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ magnet:?xt=urn:btih:7658EB0E5A88043C0EC667F69BE4E25940C63213
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172966.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172966.jpgsave_picture_172966.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ magnet:?xt=urn:btih:5E48646D42D0DE0900DF6E529F2863B5134E11CD
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172967.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172967.jpgsave_picture_172967.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ magnet:?xt=urn:btih:1DDBE28CDC2AE1252AFD8EC606CA4450950ED5E1
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172968.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172968.jpgsave_picture_172968.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ magnet:?xt=urn:btih:E9BB1DDC187C9DB553EA54C9C4BFE2A66CD6B351
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172969.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172969.jpgsave_picture_172969.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ magnet:?xt=urn:btih:FDDD143BB7D563DE5BC06B792F97E2B8F8CF2B7A
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172970.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172970.jpgsave_picture_172970.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ magnet:?xt=urn:btih:F678066837F6324C4C714905E3C5387F8AC7EA79
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172971.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172971.jpgsave_picture_172971.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Ashampoo Photo Optimizer 9.4.7.36 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172972.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172972.jpgsave_picture_172972.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Agnetha Faltskog - A+ (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172973.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172973.jpgsave_picture_172973.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ magnet:?xt=urn:btih:9D2445F2BE8D494AF77C3AF4336ABC0DE74C7B25
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172974.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172974.jpgsave_picture_172974.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Topaz Photo AI 2.0.5 (x64) RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172975.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172975.jpgsave_picture_172975.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Topaz Video AI 3.5.4 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172976.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172976.jpgsave_picture_172976.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ magnet:?xt=urn:btih:C9593124DE7A10387749A183F12FE85B5B38BB1D
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172977.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172977.jpgsave_picture_172977.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ magnet:?xt=urn:btih:E34A8FC674C2304A6A6F3B0D14E2951D28B848DD
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172978.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172978.jpgsave_picture_172978.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ Logic Circuit Simulator Pro / Симулятор Логической Схемы
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172979.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172979.jpgsave_picture_172979.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ IcoFX 3.9.0 Portable by 7997 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172980.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172980.jpgsave_picture_172980.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ VA - Машина Времени / Самоцветы - Песни Из Кино
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172981.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172981.jpgsave_picture_172981.jpg" />
 </div>
 
 

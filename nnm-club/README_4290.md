@@ -6,7 +6,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133163.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133163.jpgsave_picture_133163.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ S-VOX feat. Давид Тодуа, Вадим Самойлов - Моя звез
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133165.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133165.jpgsave_picture_133165.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ magnet:?xt=urn:btih:36FDEC732ABC75DB6A64698D9421F23A7382BEC6
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133166.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133166.jpgsave_picture_133166.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:E8D3893EEE4F18A5273424164D3E467FA3A04FFF
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133169.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133169.jpgsave_picture_133169.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:E064F156C72EB8916C57D85A24F2BFE10B2A5288
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133170.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133170.jpgsave_picture_133170.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ magnet:?xt=urn:btih:CD8ACCE950488A1C74DC6EBC10089A0DBF7C4541
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133171.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133171.jpgsave_picture_133171.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ magnet:?xt=urn:btih:7477EAAED98AAB56C2DB4BC4DFC5F661A4AB0E98
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133172.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133172.jpgsave_picture_133172.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ Hellfrost - Hellfrost (2023) [FLAC|Lossless|WEB-DL|tracks] <Blackened Death Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133173.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133173.jpgsave_picture_133173.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ Greydon Fields - Otherworld (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Thrash 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133175.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133175.jpgsave_picture_133175.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ magnet:?xt=urn:btih:7987F7D163CC9C3F54603E209C82B21D3BBF08E1
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133177.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133177.jpgsave_picture_133177.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ RonyaSoft Poster Designer 2.01.42.02 [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133178.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133178.jpgsave_picture_133178.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ Sebasteion - Tales +1 (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133179.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133179.jpgsave_picture_133179.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ Presto Ballet - 5 CD (2005 - 2012) [FLAC|Lossless]<Crossover Prog>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133180.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133180.jpgsave_picture_133180.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ VA - The Birth Of Bop: The Savoy 10-Inch LP Collection (1944 - 1949) 2CD, 2023, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133181.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133181.jpgsave_picture_133181.jpg" />
 </div>
 
 
@@ -365,7 +365,7 @@ magnet:?xt=urn:btih:1723C2E3C424B4A1B5C159E9F9FFA25B7E72E727
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133183.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133183.jpgsave_picture_133183.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ magnet:?xt=urn:btih:4ACA65360F9145BCB09C3B790D857A4E432E6047
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133185.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133185.jpgsave_picture_133185.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ DropDMG 3.2 [Eng]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133186.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133186.jpgsave_picture_133186.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ Kelakos - Hurtling Towards Extinction (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133187.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133187.jpgsave_picture_133187.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ VA - Alex Ultrawox - YearMix 2012 (2012) [MP3|320 кб/с]<Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133188.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133188.jpgsave_picture_133188.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Dissection - Live Legacy (1997) Live album, 2003, Nuclear Blast [FLAC|Lossless|i
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133189.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133189.jpgsave_picture_133189.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Ella Fitzgerald - Ella Fitzgerald's Christmas (1990) [FLAC|Lossless]<Jazz, Vocal
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133191.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133191.jpgsave_picture_133191.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Morbid Silence - Дискография (10 релизов) (2010-2012) [MP3|320
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133192.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133192.jpgsave_picture_133192.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ magnet:?xt=urn:btih:74C64AAB36F5D65E208DABE529648DE16108DCF8
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133193.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133193.jpgsave_picture_133193.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ John Moulder - Through The Open Door (1997) Self-Released [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133194.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133194.jpgsave_picture_133194.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Night In Gales - Sylphlike (1995) EP [FLAC|Lossless|image + .cue] <Melodic Death
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133195.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133195.jpgsave_picture_133195.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ magnet:?xt=urn:btih:CACC1E09EFA535B8193737B0D5F32BC4A6BC60BA
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133196.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133196.jpgsave_picture_133196.jpg" />
 </div>
 
 

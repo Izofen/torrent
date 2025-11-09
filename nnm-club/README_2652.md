@@ -6,7 +6,7 @@
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69702.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69702.jpgsave_picture_69702.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:90555406A40769D26C87C5534678C47626D3C4D6
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69703.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69703.jpgsave_picture_69703.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ VA - Шансон для мужчин (2025) [FLAC|Lossless|WEB-DL|tracks] <Ша
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69704.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69704.jpgsave_picture_69704.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ STEEZY Studio - Learn To Dance v5.7.0 Mod by youarefinished [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69705.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69705.jpgsave_picture_69705.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:2336D971794421D975E4B814664F457C6637B800
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69706.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69706.jpgsave_picture_69706.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:76969D6EA4ABC84A7A86EA1D5DACA852AEEE4DB7
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69707.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69707.jpgsave_picture_69707.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:666B8361E484F8314BEF7704AB32E29682BEAD6D
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69708.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69708.jpgsave_picture_69708.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Plugin Boutique - DC Snares 1.2.0 VSTi 3, AAX (x64) RePack by BUBBiX [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69709.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69709.jpgsave_picture_69709.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:BF7E2654D804A0FCD8AB321722300642B1CBFFE7
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69710.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69710.jpgsave_picture_69710.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:60A97B1F3D4B17AFB587E016232ABD14F2E87C8A
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69711.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69711.jpgsave_picture_69711.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:6C8F014EFCD20856E9AD9FD4304A4F263B88FA5A
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69712.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69712.jpgsave_picture_69712.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:FE65752853ECE9799A5C45291F304FA614715688
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69713.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69713.jpgsave_picture_69713.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ magnet:?xt=urn:btih:A925019686AF332BC0DA1DAD2BCD2B5520979A6A
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69714.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69714.jpgsave_picture_69714.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ magnet:?xt=urn:btih:68549060061B4B2B5673B30434DF356F9991686F
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69715.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69715.jpgsave_picture_69715.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ GPS Locker Prime v2.4.9 Mod by Dymonyxx [Ru/Multi]
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69716.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69716.jpgsave_picture_69716.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ magnet:?xt=urn:btih:C7903E061B825B4E1B9DDEE5AFFBFB61179E1D14
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69717.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69717.jpgsave_picture_69717.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Karing 1.1.0.583 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69718.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69718.jpgsave_picture_69718.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ magnet:?xt=urn:btih:D3E4ACDBFCD514D17688236F5A7DFABD422ABF56
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69719.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69719.jpgsave_picture_69719.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ PictureThis - Plant Identification v5.1.4 Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69720.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69720.jpgsave_picture_69720.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ magnet:?xt=urn:btih:C7B37CCBA3BAD606428A4EAA62777C5ABC24F6B7
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69721.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69721.jpgsave_picture_69721.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ Emurasoft EmEditor Professional 25.0.0 RePack (& Portable) by elchupacabra [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69722.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69722.jpgsave_picture_69722.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ magnet:?xt=urn:btih:71B3330F0B3D5D5B06DAA8C8E18020C9EEF62975
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69723.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69723.jpgsave_picture_69723.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:D8D51BA2C64CF3A03FC8860102AEFA36F95AF1BC
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69724.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69724.jpgsave_picture_69724.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Rock Identifier - Stone ID v2.3.51 Mod by youarefinished [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69725.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69725.jpgsave_picture_69725.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ VA - Самые новые песни 2025 (2025) [FLAC|Lossless|WEB-DL|tracks] 
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69726.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69726.jpgsave_picture_69726.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ magnet:?xt=urn:btih:C2697273EB584C4C5361DC6C99A80C9FF059330A
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69727.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69727.jpgsave_picture_69727.jpg" />
 </div>
 
 

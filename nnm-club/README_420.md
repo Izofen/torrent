@@ -6,7 +6,7 @@ RoboCop: Rogue City - Unfinished Business (2025) [Ru/Multi] (1.2.0.0/dlc) Repack
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11131.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11131.jpgsave_picture_11131.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:378A652CF62FF57F5B1FB3C8F478F989DC159DB2
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11132.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11132.jpgsave_picture_11132.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:16771CCD69319DA64B444A4DEC1331BAED10A8A7
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11133.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11133.jpgsave_picture_11133.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:0300C88F89A7B8B29E2D4374CE7E951A815C595A
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11134.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11134.jpgsave_picture_11134.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:4C13E13BC0AA4E757BA74A42E5012FE784C6E8A9
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11135.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11135.jpgsave_picture_11135.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:3F2EEFA7C1303A9E980C76BD3B0AF7C0A514C60A
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11136.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11136.jpgsave_picture_11136.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ Cyberpunk 2077: Ultimate v2.3 (2025) [Multi/Ru] [macOS Native game]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11137.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11137.jpgsave_picture_11137.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:69E1EFA9B0E79392615F2E05431387FD1689DAE9
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11138.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11138.jpgsave_picture_11138.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:C8B8C4CC65E3F229E2C6CA604E62B4BE18801BF8
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11139.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11139.jpgsave_picture_11139.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:2BA34FB1FBCE11AE9F0F76A75BE272F7015FCEEC
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11140.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11140.jpgsave_picture_11140.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:D983273478994A72C0682A8223C4F08A3F318ED7
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11141.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11141.jpgsave_picture_11141.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ EasyUEFI 6.0 Release 1 Technician RePack (& Portable) by elchupacabra [Ru/En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11142.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11142.jpgsave_picture_11142.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:6B6DE6D68C861EFDA285E4BAED5A744D4D8EE4D5
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11143.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11143.jpgsave_picture_11143.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ magnet:?xt=urn:btih:61E6F9B9374485F329983D957A4D1EDB32173C10
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11144.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11144.jpgsave_picture_11144.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ magnet:?xt=urn:btih:328529BFDC7B5C7D542664DB77CAABA3A0182EA1
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11145.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11145.jpgsave_picture_11145.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ GeekBrains | Блокчейн-разработка (2020) WEB-DL [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11146.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11146.jpgsave_picture_11146.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Striving for Light (2021) [Ru/Multi] (1.0.0.0c) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11147.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11147.jpgsave_picture_11147.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ magnet:?xt=urn:btih:D1192733AD6D55D870A13D95ADD6EB5A1185B6A2
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11148.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11148.jpgsave_picture_11148.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ magnet:?xt=urn:btih:9E883A4F407B15CD7D9303A27BF046C5B3768AEB
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11149.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11149.jpgsave_picture_11149.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ magnet:?xt=urn:btih:55FCD4C5F2BAB78E10BDA8393497C10D596F91FD
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11150.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11150.jpgsave_picture_11150.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ magnet:?xt=urn:btih:0E83B3692045D8490A1C3C12B87A7749D756ED91
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11151.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11151.jpgsave_picture_11151.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:25217C5CE9905F58D313AAAE1F1FC05CB7E78CEA
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11152.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11152.jpgsave_picture_11152.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ magnet:?xt=urn:btih:3518DAD78564F2B7D8ECA5702512409293439C82
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11153.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11153.jpgsave_picture_11153.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ magnet:?xt=urn:btih:3B3D1BB84CBD2F03D02BAABA1E8E0C378DADB928
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11154.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11154.jpgsave_picture_11154.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ magnet:?xt=urn:btih:44140C8E7CDA4C0B0218234F9D494A3C67E87B81
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11155.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11155.jpgsave_picture_11155.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ NASA реально это сделала.  Знакомьтесь: X-59
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11156.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11156.jpgsave_picture_11156.jpg" />
 </div>
 
 

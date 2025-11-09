@@ -6,7 +6,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84588.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84588.jpgsave_picture_84588.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:F5FA8820D7DC255542F5A61DB9CBFB378A6EA616
 >>Камерная
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84589.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84589.jpgsave_picture_84589.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ magnet:?xt=urn:btih:B9C86A1D4F74067F142352EEABF9BCEDD6B101D1
 >>Бокс
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84591.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84591.jpgsave_picture_84591.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:6FD9AB7F1628FA7D0AB319F7F40FAC00211A4FCC
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84592.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84592.jpgsave_picture_84592.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ magnet:?xt=urn:btih:6FD9AB7F1628FA7D0AB319F7F40FAC00211A4FCC
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84593.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84593.jpgsave_picture_84593.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ magnet:?xt=urn:btih:98CB563D319CDD4A549C03D5F8AB851BCE718FAC
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84594.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84594.jpgsave_picture_84594.jpg" />
 </div>
 
 
@@ -161,7 +161,7 @@ Driver Genius Professional 11.0.0.1112 Update 24.03.2012 [Русский]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84595.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84595.jpgsave_picture_84595.jpg" />
 </div>
 
 
@@ -187,7 +187,7 @@ Gatling Gears [Ru] (RePack) 2011 | Naitro
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84596.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84596.jpgsave_picture_84596.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ magnet:?xt=urn:btih:381477D0AC66BFA5C84162EC25DE993D3B118FD8
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84597.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84597.jpgsave_picture_84597.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ DraftSight V1R1.4 beta [x86] (rpm, deb)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84598.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84598.jpgsave_picture_84598.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ DraftSight дает возможность профессиональным по
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84599.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84599.jpgsave_picture_84599.jpg" />
 </div>
 
 
@@ -290,7 +290,7 @@ VA - Двигай попой! Full Collection (1996-2006) [MP3|128 ~ 320 кб/с
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84602.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84602.jpgsave_picture_84602.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ magnet:?xt=urn:btih:B25B8E3B9D5A9C0646F3FBD6BA0EEA2549BC179A
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84603.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84603.jpgsave_picture_84603.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ HitFilm Ultimate v1.1 Build 2412 [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84604.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84604.jpgsave_picture_84604.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Coloropus (P) [En] 2012
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84609.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84609.jpgsave_picture_84609.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ magnet:?xt=urn:btih:598D1A0769599CE96CE069BD3553E673FF5E98D6
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84611.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84611.jpgsave_picture_84611.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ magnet:?xt=urn:btih:BAECB3D008B7B63FF3379FD8F1EFE98713A7D191
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84612.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84612.jpgsave_picture_84612.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ Iron Maiden: En Vivo! (2011/2012) [720p] BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84613.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84613.jpgsave_picture_84613.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Iron Maiden: En Vivo! (2011/2012) [720p] BDRip
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84615.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84615.jpgsave_picture_84615.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ Armin van Buuren - A State of Trance 000 - 550 Radioshows+.CUE (2001-2012) [MP3|
 >>9
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84617.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84617.jpgsave_picture_84617.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ Armin van Buuren - A State of Trance 000 - 550 Radioshows+.CUE (2001-2012) [MP3|
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84618.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84618.jpgsave_picture_84618.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ VA - XXXL Лучшая музыка для секса (2012) [MP3|224 kbps]<Pop|
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84620.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84620.jpgsave_picture_84620.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ magnet:?xt=urn:btih:5189E1B917B9E82561FCA2EAF7E2B0F2F596B8EA
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84622.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84622.jpgsave_picture_84622.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ magnet:?xt=urn:btih:5189E1B917B9E82561FCA2EAF7E2B0F2F596B8EA
 >>PSP
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84624.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84624.jpgsave_picture_84624.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ Vampire: The Masquerade: Redemption [Ru] (RePack) 2000 | Pilotus
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84625.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84625.jpgsave_picture_84625.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ VA - 500 величайших песен всех времён по версии
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84626.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84626.jpgsave_picture_84626.jpg" />
 </div>
 
 

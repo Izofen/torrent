@@ -6,7 +6,7 @@
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191749.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191749.jpgsave_picture_191749.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Auslogics BoostSpeed 13.0.0.0 RePack (& Portable) by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191750.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191750.jpgsave_picture_191750.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Google может сканировать и удалять сохраненны�
 >>Компьютерные новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191751.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191751.jpgsave_picture_191751.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Google начал удалять из функции «Сохраненные» 
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191752.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191752.jpgsave_picture_191752.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ VueScan Pro 9.8.16 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191753.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191753.jpgsave_picture_191753.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:FF8CD206BC4FECF25C0FE139D4F2F53BB1A85F0B
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191754.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191754.jpgsave_picture_191754.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:06E5999D803EECC4BC8E7CF3E1FBC810A338E05A
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191755.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191755.jpgsave_picture_191755.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ Freemake Video Converter 4.1.13.156 RePack (& Portable) by elchupacabra [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191756.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191756.jpgsave_picture_191756.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ CPU-Z 2.07.0 Portable [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191757.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191757.jpgsave_picture_191757.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ magnet:?xt=urn:btih:45BCE9E9D709430E3BB1D7C9F17FC0294FC313C9
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191758.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191758.jpgsave_picture_191758.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Corona Benchmark 10.0.0.20034 [En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191759.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191759.jpgsave_picture_191759.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ magnet:?xt=urn:btih:8CA187827AC4E4D14B0EDBF77213531F53182CFF
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191760.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191760.jpgsave_picture_191760.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ magnet:?xt=urn:btih:6EB9B4C090E71274E24D0DDE4331389E9A22A43D
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191761.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191761.jpgsave_picture_191761.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ CrystalDiskInfo 8.17.11 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191762.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191762.jpgsave_picture_191762.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Wise Registry Cleaner Pro 11.1.1.716 RePack (& portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191763.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191763.jpgsave_picture_191763.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ magnet:?xt=urn:btih:987104D11B358CDD25700EC1857065E2A0B3D0EB
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191764.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191764.jpgsave_picture_191764.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ AIDA64 Extreme Edition 6.90.6528 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191765.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191765.jpgsave_picture_191765.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ Adguard 7.11.1 (7.11.4095.0) RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191766.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191766.jpgsave_picture_191766.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ magnet:?xt=urn:btih:D73D3A7CFED6F98AA27F908B5F701B775DE530CD
 >>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191767.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191767.jpgsave_picture_191767.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Process Explorer 17.01 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191768.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191768.jpgsave_picture_191768.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Adguard 7.11.1 (7.11.4095.0) RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191769.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191769.jpgsave_picture_191769.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ magnet:?xt=urn:btih:DE02A43FBAEB1554A312C6A19F7F02AE5906AEAA
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191770.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191770.jpgsave_picture_191770.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ magnet:?xt=urn:btih:60CA8AFFA52EC7640ADA90BB73C904A07B5EE09B
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191771.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191771.jpgsave_picture_191771.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Internet Download Manager 6.41 Build 19 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191772.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191772.jpgsave_picture_191772.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ FinePrint Software (FinePrint 11.41 / pdfFactory Pro 8.41) RePack by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191773.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191773.jpgsave_picture_191773.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ magnet:?xt=urn:btih:872D6C9982AE3A9F86F31A388552BC233845C60F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191774.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191774.jpgsave_picture_191774.jpg" />
 </div>
 
 

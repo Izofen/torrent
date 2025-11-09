@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203089.jpgsave_picture_203089.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ The House of Da Vinci 3 (2022) [Ru/Multi] (1.0.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203090.jpgsave_picture_203090.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:512E602A2B97915391CA0C820D7A1A58F3061422
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203091.jpgsave_picture_203091.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ LibreOffice 7.6.0.3 Stable Portable by PortableApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203092.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203092.jpgsave_picture_203092.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:0882F1F8B7597B88BEE78A9801345AE9310DE33B
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203093.jpgsave_picture_203093.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ LibreWolf 117.0-1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203094.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203094.jpgsave_picture_203094.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:6A24AE8B4FBEE659A7C8F597C007C7DD12534B69
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203095.jpgsave_picture_203095.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:33AAFC7004E50B8DF9F81FFA07F3E4E8B76B1B45
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203096.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203096.jpgsave_picture_203096.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:4926D30C6AFE33E7788646356E2F475EB73BF9C3
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203097.jpgsave_picture_203097.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ magnet:?xt=urn:btih:5FFCC1100615004EB49B0A12707FB7A5EE9C9D57
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203098.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203098.jpgsave_picture_203098.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Advanced Renamer 3.90.0 Final + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203099.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203099.jpgsave_picture_203099.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:72B0848FF46BA2D26EEBFCA0D914B9951BFD7D04
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203100.jpgsave_picture_203100.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ RadioMaximus 2.31.8 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203101.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203101.jpgsave_picture_203101.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ VA - Shazam Хит-парад World Top 200 Январь (2023) [MP3|320 Kbps] <
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203102.jpgsave_picture_203102.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ magnet:?xt=urn:btih:71D177CBCB719F9F40CA237534095F1AE8EAE1CC
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203103.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203103.jpgsave_picture_203103.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ magnet:?xt=urn:btih:CEE06314B399469CB84EBDCA7E0E05A19EBE03F3
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203104.jpgsave_picture_203104.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ NetLimiter 5.3.0.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203105.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203105.jpgsave_picture_203105.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ magnet:?xt=urn:btih:48363A003F25F2970E1E588A2D3C6AA0DAC0748D
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203106.jpgsave_picture_203106.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ Brave Browser 1.57.57 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203107.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203107.jpgsave_picture_203107.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ AMS³, Надежда Бейнер | Видеокурс оформление п�
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203108.jpgsave_picture_203108.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ magnet:?xt=urn:btih:97A8E0C520E735844F2EF1DEFC6997C9C31BCE65
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203109.jpgsave_picture_203109.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ magnet:?xt=urn:btih:669546FA8C57865F0733C74D14C58C90F395A37F
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203110.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203110.jpgsave_picture_203110.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ magnet:?xt=urn:btih:D40B0E8F9162942B96FAC167548FFFFD587D3E32
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203111.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203111.jpgsave_picture_203111.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ magnet:?xt=urn:btih:A88731E41C8C3EB7C9E3E9E8765D78DD3A1FE68F
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203112.jpgsave_picture_203112.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ magnet:?xt=urn:btih:A4467DD286549F6271DBF661D67FA3D9B643A637
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203114.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203114.jpgsave_picture_203114.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ magnet:?xt=urn:btih:D369E4EC1C872D3AEC08228D9D5E39EA1EEF6CCE
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203115.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203115.jpgsave_picture_203115.jpg" />
 </div>
 
 

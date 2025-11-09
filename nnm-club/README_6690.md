@@ -6,7 +6,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229544.jpgsave_picture_229544.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ DearMob iPhone Manager 4.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229546.jpgsave_picture_229546.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ One Piece Movie 2 - Nejimaki Tou no Daibouken / Ван-Пис: Фильм вто
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229547.jpgsave_picture_229547.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:F4C3E4AB99FE4F6A961B6DE487E018088D09B9FB
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229548.jpgsave_picture_229548.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:E1F73345AA8ED2E4E9B315937B58592211876EF8
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229550.jpgsave_picture_229550.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ Floating Cloud - 7 альбомов (2010-2013) Touhou Instrumental /Doujin/ [FL
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229551.jpgsave_picture_229551.jpg" />
 </div>
 
 
@@ -161,7 +161,7 @@ magnet:?xt=urn:btih:2E792E6D1FC5773AC423C8F5575FC45D9B521963
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229552.jpgsave_picture_229552.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Udemy.com | Adobe Photoshop cc course from A-Z Beginner to Master (2019) PCRec [
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229553.jpgsave_picture_229553.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ magnet:?xt=urn:btih:92CB720B2D375E9ECA26FB04848418D20ED4DE15
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229554.jpgsave_picture_229554.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ magnet:?xt=urn:btih:BB710D1652D9F93B21A2E53715F2E33143B94A0B
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229555.jpgsave_picture_229555.jpg" />
 </div>
 
 
@@ -262,7 +262,7 @@ WinToUSB Technician 7.2 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229556.jpgsave_picture_229556.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ magnet:?xt=urn:btih:C5D8922234A15EAFD6BB8FCB5D48F5D799E6B386
 >>Футбол
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229558.jpgsave_picture_229558.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ magnet:?xt=urn:btih:E996AEB3ACFBDA501519DB52947CD20CE4B1943B
 >>Автомобильные мультимедийные материалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229560.jpgsave_picture_229560.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ VA - Best Music. Special Limited Offer (2018) [MP3|320 Kbps] <Club, Christmas, R
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229561.jpgsave_picture_229561.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ magnet:?xt=urn:btih:52354D39D8B6D5C3CA3C07B0A83F1B446633ED1E
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229562.jpgsave_picture_229562.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ magnet:?xt=urn:btih:5A1AA4A4BD5C10795572F01C1FC906C8906E3C9A
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229563.jpgsave_picture_229563.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ magnet:?xt=urn:btih:63EA32AAF4C9834B3A115A4E6ED9517679453D3B
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229565.jpgsave_picture_229565.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Adobe Photoshop 2023 24.7.0.643 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_229566.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_229566.jpgsave_picture_229566.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ One Piece Movie 4 - Dead end no Bouken / One Piece: Dead End / Ван-Пис: Ф
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229567.jpgsave_picture_229567.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ USB Protection & Recovery 1.2 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229568.jpgsave_picture_229568.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ Windows 11 16in1 +/- [x86] Office 2019 by SmokieBlahBlah 2021.11.24 [Ru/En]
 >>18
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229570.jpgsave_picture_229570.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ magnet:?xt=urn:btih:A5286ADD68133A31F2E26C8A4B398CDB9C2C9E18
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229571.jpgsave_picture_229571.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ magnet:?xt=urn:btih:E18BB6D6B378822E4D0CF59640A983FCABAD1C1B
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229572.jpgsave_picture_229572.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ magnet:?xt=urn:btih:A3870F854DA40EB26F70643AE00AE61AC600067D
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229573.jpgsave_picture_229573.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ magnet:?xt=urn:btih:F5A3BBC369F9529799D3750DC7EC03EA876CF10F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229574.jpgsave_picture_229574.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ magnet:?xt=urn:btih:65CE17BD3AA59B97C7F0BACC339BF203BB15D4ED
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229575.jpgsave_picture_229575.jpg" />
 </div>
 
 

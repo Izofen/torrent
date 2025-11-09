@@ -6,7 +6,7 @@
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155193.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155193.jpgsave_picture_155193.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ VA - Black Hole Recordings: Best Of 2017 (2017) [FLAC|Lossless|WEB-DL|tracks] <P
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155194.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155194.jpgsave_picture_155194.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ PDF Search 10.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155195.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155195.jpgsave_picture_155195.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ Grant Warwick, Grant Warwick | Mastering Lighting Lessons 5 (2016) PCRec [Час
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155196.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155196.jpgsave_picture_155196.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:7504E0464F82A8E2666C5EA1DAF4C515FD8A40D0
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155198.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155198.jpgsave_picture_155198.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:2383E34CB7889DBA09E7B6CDA2453B3C463FAE70
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155199.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155199.jpgsave_picture_155199.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ Total Commander 11.02 MAX-Pack 2023.11.11 by Mellomann [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155201.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155201.jpgsave_picture_155201.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:D652D911C786C7B9D5E87ED47D3638C950277C54
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155202.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155202.jpgsave_picture_155202.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:B10D418BB99D486D1B722156D2AF03348CE3DB96
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155203.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155203.jpgsave_picture_155203.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ Rufus 2.6 (Build 818) Final Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155204.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155204.jpgsave_picture_155204.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:2392F76F25DF304F064EA44D350B2512F36CFF01
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155205.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155205.jpgsave_picture_155205.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ magnet:?xt=urn:btih:E113810BA83AF1E17015C012DB50251DF3617B60
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155206.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155206.jpgsave_picture_155206.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ magnet:?xt=urn:btih:D041D4FF9CA56D1484562700A19EEDE661735E84
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155207.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155207.jpgsave_picture_155207.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ PrefEdit 4.51 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155208.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155208.jpgsave_picture_155208.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ magnet:?xt=urn:btih:F98ECC6146DB2F85D71558F974D46A661BD25C49
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155209.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155209.jpgsave_picture_155209.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ magnet:?xt=urn:btih:C23B030BB182D22676F85DB5E18AE81989D21DBC
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155210.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155210.jpgsave_picture_155210.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ magnet:?xt=urn:btih:9D5C54889E8D4E56D250108F7BD666572B70E5DC
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155211.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155211.jpgsave_picture_155211.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Roland VS - SRX DANCE TRAX VSTi, VSTi3, AAX 1.0.1 [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155212.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155212.jpgsave_picture_155212.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ magnet:?xt=urn:btih:D287F3C30735B41EDF2515C2C892EA96E83D8098
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155213.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155213.jpgsave_picture_155213.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ Gilrs Wallpaper (13.12.12) [Wallpapers 16+]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155216.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155216.jpgsave_picture_155216.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Hudozhnik Online, Настасья Кучинская | Рисование те�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155217.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155217.jpgsave_picture_155217.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ magnet:?xt=urn:btih:6DC72E5D31A2D499DE6A4FCEDB9490C84CC2C4E4
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155218.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155218.jpgsave_picture_155218.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ magnet:?xt=urn:btih:75A23DE87DE072E02598E45493787006E20F79BA
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155219.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155219.jpgsave_picture_155219.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Middle 1.5.13 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155220.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155220.jpgsave_picture_155220.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ K-Lite Codec Pack 11.8.0 Mega/Full/Standard/Basic + Update [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155221.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155221.jpgsave_picture_155221.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ magnet:?xt=urn:btih:67650E5CB8FC0D1E6FF27E36713ECA9BA6F3322D
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155222.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155222.jpgsave_picture_155222.jpg" />
 </div>
 
 

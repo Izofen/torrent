@@ -6,7 +6,7 @@ Residual (2021) [Ru/Multi] (1.3.7) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5281.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5281.jpgsave_picture_5281.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Legends of Amberland: The Forgotten Crown (2019) [Ru/Multi] (1.31) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5284.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5284.jpgsave_picture_5284.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Gears of War Reloaded (2025) [Ru/Multi] (1.0.1.3689997/1.0.1.3725653 Update 1) R
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5295.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5295.jpgsave_picture_5295.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:51487E9E36873F1E78A638B91A50ADE3D99CBB75
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5303.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5303.jpgsave_picture_5303.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Knights of the Chalice 2 (2022) [En] (1.91) License GOG [Archmage Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5304.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5304.jpgsave_picture_5304.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Workers & Resources: Soviet Republic / Workers and Resources: Soviet Republic (2
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5305.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5305.jpgsave_picture_5305.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Caves of Lore (2023) [En] (1.8.0.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5306.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5306.jpgsave_picture_5306.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Kynseed (2018) [En] (1.2.11.14505) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5307.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5307.jpgsave_picture_5307.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ The Last of Us: Part I / Одни из нас: Часть I (2023) [Ru/En] (1.1.
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5308.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5308.jpgsave_picture_5308.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Legends of Amberland II: The Song of Trees (2023) [En] (1.24) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5309.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5309.jpgsave_picture_5309.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ ELDEN RING (2022) [Ru/Multi] (1.16.1/dlc) Repack Wanterlude [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5310.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5310.jpgsave_picture_5310.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Dragon Is Dead (2024) [Multi] (1.0783) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5311.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5311.jpgsave_picture_5311.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Telepath Tactics Liberated (2022) [En] (1.0.60l) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5313.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5313.jpgsave_picture_5313.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ The RPG (2025) [Ru/Multi] (1.021) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5315.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5315.jpgsave_picture_5315.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Mystery Trackers 21: The Shrouded Village (2025) [En] (1.0) Unofficial [Collecto
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5352.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5352.jpgsave_picture_5352.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Get To Work (2024) [Multi] (1.1.1.6) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5358.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5358.jpgsave_picture_5358.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Fly Corp (2021) [Ru/Multi] (1.8.6/dlc) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5364.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5364.jpgsave_picture_5364.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Get To Work (2024) [Multi] (1.1.1.6) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5365.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5365.jpgsave_picture_5365.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Countryballs: Power Protocol (2025) [Ru/Multi] (build 19413235) Repack seleZen
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5381.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5381.jpgsave_picture_5381.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Far Cry 4 (2014) [Ru/Multi] (1.12/dlc) Repack Wanterlude [Gold Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5403.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5403.jpgsave_picture_5403.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Tainted Grail: The Fall of Avalon (2023) [Ru/Multi] (1.07a/dlc) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5427.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5427.jpgsave_picture_5427.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Lords of the Fallen (2023) [Ru/Multi] (2.0.69/dlc) Repack Wanterlude
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5428.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5428.jpgsave_picture_5428.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Shantae Advance Risky Revolution (2025) [Multi] (1.0.2/dlc) Repack Let'sРlay [D
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5431.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5431.jpgsave_picture_5431.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Assassin's Creed: Valhalla (2020) [Ru/Multi] (1.7.0/dlc) Repack Wanterlude [Comp
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5434.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5434.jpgsave_picture_5434.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ RimWorld (2018) [Ru/Multi] (1.6.4566/dlc) Repack Let'sРlay
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5443.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5443.jpgsave_picture_5443.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Haste: Broken Worlds (2025) [Ru/Multi] (1.6.a) Repack Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5444.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5444.jpgsave_picture_5444.jpg" />
 </div>
 
 

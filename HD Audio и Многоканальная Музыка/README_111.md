@@ -6,7 +6,7 @@ The Funeral Portrait - Greetings From Suffocate City (2024) [FLAC 24/44.1|Lossle
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104341.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104341.jpgsave_picture_104341.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Mastodon, Lamb of God - Floods of Triton (2024) [FLAC 24/96|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104346.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104346.jpgsave_picture_104346.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Cult Of Luna - Studio Albums (9 releases) (2001-2022) hand made [restored, decli
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104439.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104439.jpgsave_picture_104439.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Acres - The Host (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Metalcore, Altern
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104448.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104448.jpgsave_picture_104448.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Playingtheangel - любовь побеждает смерть (2025) [FLAC 24/4
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104450.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104450.jpgsave_picture_104450.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Deaf Havana - We're Never Getting Out (2025) [FLAC 24/48|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104453.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104453.jpgsave_picture_104453.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Stryper - When We Were Kings (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Glam me
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104519.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104519.jpgsave_picture_104519.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Velvet Revolver - Contraband (2024 Deluxe Edition) (2004) Reissue, 2024, RCA - L
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104524.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104524.jpgsave_picture_104524.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ London Grammar - The Greatest Love (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104531.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104531.jpgsave_picture_104531.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Witchz - Drugz2feel (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternative Rock
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104533.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104533.jpgsave_picture_104533.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Big Big Train - A Flare On The Lens (Live in London 2023) (2024) [FLAC 24/96|Los
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104534.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104534.jpgsave_picture_104534.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Lenny Kravitz - Human (Remixes Edits) (2024) EP [FLAC 24/44.1|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104551.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104551.jpgsave_picture_104551.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Lenny Kravitz - Human (Paul Woolford Remix) (2024) EP [FLAC 24/44.1|Lossless|WEB
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104552.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104552.jpgsave_picture_104552.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Aircoach - Prism (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104553.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104553.jpgsave_picture_104553.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Leprous - Studio Albums (10 releases) (2004-2024) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104573.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104573.jpgsave_picture_104573.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Earthside - Studio Albums (2 releases) (2015-2023) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104585.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104585.jpgsave_picture_104585.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ Aviations - Studio Albums (4 releases) (2012-2023) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104613.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104613.jpgsave_picture_104613.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ Negative - Studio Albums (6 releases) (2003-2010) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104647.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104647.jpgsave_picture_104647.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ Banco De Gaia - Trauma (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Downtempo, Am
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104653.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104653.jpgsave_picture_104653.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ The Dead Daisies - Light 'Em Up (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Ha
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104657.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104657.jpgsave_picture_104657.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ blink-182 - One More Time... (2023) (Deluxe Edition) [FLAC 24/48|Lossless|WEB-DL
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104692.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104692.jpgsave_picture_104692.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ These Are They (Novembers Doom members) - Studio Albums (3 releases) (2009-2014)
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104698.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104698.jpgsave_picture_104698.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Rex Orange County - Who Cares? (2022) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alter
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104700.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104700.jpgsave_picture_104700.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Mr. Big - The BIG Finish Live (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104702.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104702.jpgsave_picture_104702.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ Jab Aggressors - Silent Cry (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard R
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104740.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104740.jpgsave_picture_104740.jpg" />
 </div>
 
 
@@ -675,7 +675,7 @@ SonicFlame - FLAME OF LIFE (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104743.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104743.jpgsave_picture_104743.jpg" />
 </div>
 
 

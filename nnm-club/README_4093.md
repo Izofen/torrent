@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126993.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126993.jpgsave_picture_126993.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:B60EE1986C18AB77CD634764C213A1BFBDF95665
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126994.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126994.jpgsave_picture_126994.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ This Bed We Made (2023) [Multi] (1.0.2) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126995.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126995.jpgsave_picture_126995.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Toaru Ossan no VRMMO Katsudouki | A Playthrough of a Certain Dude's VRMMO Life |
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126996.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126996.jpgsave_picture_126996.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:83C2712B4CC645EEF20552CFCFC69D6345609B87
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126997.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126997.jpgsave_picture_126997.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:FE1E668D1436448DF9EDEBBB0DEA0E7DA0144C2C
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126998.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126998.jpgsave_picture_126998.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:BB22D7C2A1AA951F4A593F56BE3DB2E7686AABF6
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126999.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126999.jpgsave_picture_126999.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:2C6BA0132B2EA0E8E80A798FA71D583460D61FD0
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127000.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127000.jpgsave_picture_127000.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ Need for Speed: ProStreet (2007) [Ru/En] (1.1) Repack Decepticon
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127001.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127001.jpgsave_picture_127001.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Snappy Driver Installer Origin R759 | Драйверпаки 23.12.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127002.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127002.jpgsave_picture_127002.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ magnet:?xt=urn:btih:21AE2739C9917C8ED662AF006AEC8374EE8D532D
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127003.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127003.jpgsave_picture_127003.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ magnet:?xt=urn:btih:763460C66DEB592A1970E0A14683FF97852C46D1
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127004.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127004.jpgsave_picture_127004.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ magnet:?xt=urn:btih:763460C66DEB592A1970E0A14683FF97852C46D1
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127005.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127005.jpgsave_picture_127005.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Seijo no Maryoku wa Bannou Desu 2 / The Saint's Magic Power is Omnipotent 2 / В
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127006.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127006.jpgsave_picture_127006.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ magnet:?xt=urn:btih:5E3892261DD0C59E39872773F6930F862E08C881
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127007.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127007.jpgsave_picture_127007.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ magnet:?xt=urn:btih:5C4B575673340F179727B726BF43FC1C437C7728
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127008.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127008.jpgsave_picture_127008.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ magnet:?xt=urn:btih:1F05A4F9453674E15B1FB34968350DDF9A0A7BB7
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127009.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127009.jpgsave_picture_127009.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ The Long Dark (2017) [Ru/Multi] (2.08.125148 S/2.26.126828 S/dlc) Repack Other s
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127010.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127010.jpgsave_picture_127010.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ magnet:?xt=urn:btih:3A96A672DAB3F2D3F8F99F32531B02E735ADECC9
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127011.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127011.jpgsave_picture_127011.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ magnet:?xt=urn:btih:59056C6CB95FDAA1BCD5600D6F1C5AAC247E9EA5
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127012.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127012.jpgsave_picture_127012.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Journey to the Center of the Earth / Путешествие к центру Зе
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127013.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127013.jpgsave_picture_127013.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ Ready or Not (2023) [Multi] (39903) Repack DjDI [Supporter Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127014.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127014.jpgsave_picture_127014.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Astra Linux Special Edition 1.7.5 [amd64] 2xDVD
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127015.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127015.jpgsave_picture_127015.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ UFS Explorer Professional Recovery 5.20.3 RePack (& Portable) by Trovel [Multi/R
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127016.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127016.jpgsave_picture_127016.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ magnet:?xt=urn:btih:6DC3A029E5AAD1195DA4AE7D08250BE144F7582F
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127017.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127017.jpgsave_picture_127017.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Cygnus Enterprises (2023) [Multi] (1.0) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127018.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127018.jpgsave_picture_127018.jpg" />
 </div>
 
 

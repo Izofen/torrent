@@ -6,7 +6,7 @@ Tailgunner - Guns For Hire (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231869.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231869.jpgsave_picture_231869.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Strangerland - Echoes from the Past (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodi
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231870.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231870.jpgsave_picture_231870.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Pussy Pistol - Икона стиля (2023) [FLAC|Lossless|WEB-DL|tracks] <Punk,
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231875.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231875.jpgsave_picture_231875.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ The Design Abstract - Transhuman Ascendant (2023) [FLAC|Lossless|WEB-DL|tracks] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231879.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231879.jpgsave_picture_231879.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Vendetta - Black As Coal (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231885.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231885.jpgsave_picture_231885.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Kim Dracula - A Gradual Decline In Morale (2023) [FLAC|Lossless|WEB-DL|tracks] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231895.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231895.jpgsave_picture_231895.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Ghost - Phantomime (2023) EP [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_231898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231898.jpgsave_picture_231898.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Ontborg - Following the Steps of Damnation (2023) [MP3|320 Kbps] <Melodic Death 
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231899.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231899.jpgsave_picture_231899.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ All For Metal - Legends (2023) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231900.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231900.jpgsave_picture_231900.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Morkt Stof - Revival (2023) [MP3|320 Kbps] <Progressive, Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231904.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231904.jpgsave_picture_231904.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Steve Lukather - Bridges (2023) Japanese Edition [FLAC|Lossless|image + .cue] <M
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231907.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231907.jpgsave_picture_231907.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Bangalore Choir - Center Mass (2023) 2CD [FLAC|Lossless|WEB-DL|tracks] <Hard Roc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231917.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231917.jpgsave_picture_231917.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:4BDBD3C8CBC9053E0A3FD3F44305E121FAD23F05
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231919.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231919.jpgsave_picture_231919.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Winterage - Nekyia (2023) [FLAC|24/44,1|tracks|WEB-DL] <Symphonic-Power-Metal>
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231925.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231925.jpgsave_picture_231925.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ The Dust Coda - Loco Paradise (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231932.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231932.jpgsave_picture_231932.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Freedom Call - The M.E.T.A.L. Fest (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231935.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231935.jpgsave_picture_231935.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ John Greenwood - Dark Blue (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Progr
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231943.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231943.jpgsave_picture_231943.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Lee Small - The Last Man On Earth (2023) Japanese Edition [FLAC|Lossless|image +
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231944.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231944.jpgsave_picture_231944.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:D40A3D5437D25FC8E82F61521CD412538F9C8579
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231954.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231954.jpgsave_picture_231954.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Kikimora - For A Broken Dime (2023) [FLAC|24/48|WEB-DL|tracks] <Hard-Rock>
 >>Hard Rock (Hi Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231960.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231960.jpgsave_picture_231960.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:BA7FDA11E7AC2DE1313CBDE808F06C221979CF56
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_231961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231961.jpgsave_picture_231961.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:1F4B02E25C8179FD54F1A3082AE5B88A8581141D
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231967.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231967.jpgsave_picture_231967.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Arkham Witch - Beer and Bullet Belts (2023) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231981.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231981.jpgsave_picture_231981.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Mourning Knight - A World of Dreams (2023) [MP3|320 Kbps] <Progressive Rock, Sym
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231988.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231988.jpgsave_picture_231988.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Tokyo Blade - Fury (2022) [FLAC|Lossless|image + .cue] <NWOBHM, Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231993.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231993.jpgsave_picture_231993.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ SoulSplit - Пустой ад. Часть 1-2 (2021-2023) [MP3|320 Kbps] <Gothic
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231994.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231994.jpgsave_picture_231994.jpg" />
 </div>
 
 

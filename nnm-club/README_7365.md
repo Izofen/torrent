@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251981.jpgsave_picture_251981.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Stereophonics - 14 альбомов (1997 - 2022) 18 CD [FLAC|Lossless|tracks + 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251982.jpgsave_picture_251982.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ magnet:?xt=urn:btih:C32AFFA22C94489D2191DC0102B7F033A537A354
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251983.jpgsave_picture_251983.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:C32AFFA22C94489D2191DC0102B7F033A537A354
 >>Анатомия страсти / Grey's Anatomy
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251984.jpgsave_picture_251984.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:618339E52EFAE2AA10075E69C0B32F86B44349F6
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251985.jpgsave_picture_251985.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:66676FFB7018C29739429F4FE4AFF672F7D107F1
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251986.jpgsave_picture_251986.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:42061B8B1CF66DB1686B4CBC41D338E63C9084E3
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251987.jpgsave_picture_251987.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:91D8D0E2379F217E26D8140E1A8E95391AAF6ABB
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251988.jpgsave_picture_251988.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:BECC9F9D424C00A5A9E20DDDF540C2888F73BD9C
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251989.jpgsave_picture_251989.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:C474F80C961C26D7857A89F8E9B112C1237E2471
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251990.jpgsave_picture_251990.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:CCB543360B4ACFCDC12E0EE8FBB13F7EF67AF3C7
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251991.jpgsave_picture_251991.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:9736AE8FBCEAC0D3A53F48552B49E57CC9407BB5
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251992.jpgsave_picture_251992.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ magnet:?xt=urn:btih:E266841D700D00B454492C32D0EDCEA795238110
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251993.jpgsave_picture_251993.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ magnet:?xt=urn:btih:348D3F22BCA2D9C252A89B14A91C466C334840AA
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251994.jpgsave_picture_251994.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ magnet:?xt=urn:btih:0814D5DB8D95D7DC2DD2E0ECC2D6D20B0719BB75
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251995.jpgsave_picture_251995.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ magnet:?xt=urn:btih:6C4C95DCBEA3ADA3600581DDF465DE124B7ECEBF
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251996.jpgsave_picture_251996.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ magnet:?xt=urn:btih:23514DEE3E3490E21E051F8299FD4FD589F43D0B
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251997.jpgsave_picture_251997.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ WinDirStat 1.1.2.80 [Ru/En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251998.jpgsave_picture_251998.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ magnet:?xt=urn:btih:91D4C1C5B8EE32853F6D6B8B64C66485C71B0067
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251999.jpgsave_picture_251999.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ magnet:?xt=urn:btih:94DD4FA12D5CB8E807EC31B986D94C4EB3BCBDBA
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252000.jpgsave_picture_252000.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ magnet:?xt=urn:btih:F960BDC9499E9C436A6871E0145A5CD194937079
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252001.jpgsave_picture_252001.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:11BB528619FCC4A1393DB66D194E6A01DCD63988
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252002.jpgsave_picture_252002.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ magnet:?xt=urn:btih:20B09D9FEFC29014E1D742CA242E2EE1F95DC465
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252003.jpgsave_picture_252003.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ The Lord of the Rings: Gollum (2023) [Ru/Multi] (0.2.51064/dlc) Repack DjDI [Pre
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252004.jpgsave_picture_252004.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Railway Empire 2 (2023) [Ru/Multi] (1.0.1.52027/dlc) Repack DjDI [Digital Deluxe
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252005.jpgsave_picture_252005.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ magnet:?xt=urn:btih:86E2E57598B6C5BAF728E7CA186BE1A10EC7A56A
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252006.jpgsave_picture_252006.jpg" />
 </div>
 
 

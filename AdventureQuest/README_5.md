@@ -6,7 +6,7 @@ Vesnith Tapes (2025) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11667.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11667.jpgsave_picture_11667.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Liminality (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11722.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11722.jpgsave_picture_11722.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:0710DEC8DCBD40C7DE1BDAF56EB798AEFC5ED695
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11766.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11766.jpgsave_picture_11766.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Everdeep Aurora (2025) [Ru/Multi] (1.1.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11847.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11847.jpgsave_picture_11847.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Sofia in Exchange for Lies (2025) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11976.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11976.jpgsave_picture_11976.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ The Plucky Squire / Отважный паж (2024) [Ru/Multi] (1.50.18) Repack L
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12082.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12082.jpgsave_picture_12082.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Eternal Strands (2025) [Ru/Multi] (1.0.14.1638) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12195.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12195.jpgsave_picture_12195.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Still Wakes the Deep (2024) [Ru/Multi] (1.6) Repack Let'sРlay [The Complete Col
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12299.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12299.jpgsave_picture_12299.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Tales Beyond The Tomb - White Silence (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12354.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12354.jpgsave_picture_12354.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Disney Dreamlight Valley (2022) [Ru/Multi] (1.17.0.7420/dlc) Repack Let'sРlay [
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12371.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12371.jpgsave_picture_12371.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ The Echo Paradox (2025) [En] (19081580) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12387.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12387.jpgsave_picture_12387.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Grand Theft Auto V (5) Enhanced (2025) [Ru/Multi] (1.0.889.15) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12410.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12410.jpgsave_picture_12410.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Clink (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12451.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12451.jpgsave_picture_12451.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ I Know This Place..? / Я знаю это место..? (2023-2025) [Ru/En] (Bui
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12466.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12466.jpgsave_picture_12466.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Paranormal Torment (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12497.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12497.jpgsave_picture_12497.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ PRIM (2024) [Ru/Multi] (1.3.27) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12902.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12902.jpgsave_picture_12902.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Until Then (2024) [Multi] (20241126 Build 16523932) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12905.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12905.jpgsave_picture_12905.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Boxville 2 (2025) [Ru/Multi] (build 18344919) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13000.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13000.jpgsave_picture_13000.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ THEMIS (2025) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13148.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13148.jpgsave_picture_13148.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Tex Murphy: Overseer (1998) [En] (2.0.0.21) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13155.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13155.jpgsave_picture_13155.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Boxville 2 (2025) [Ru/Multi] (build 18344919) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13164.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13164.jpgsave_picture_13164.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Boxville (2022) [Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13197.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13197.jpgsave_picture_13197.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ LIMINAL SHIFT (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13220.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13220.jpgsave_picture_13220.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Gex Trilogy: Gex, Enter the Gecko, Deep Cover Gecko (2025) [Multi] (1.1) License
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13312.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13312.jpgsave_picture_13312.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Silent Hill 4: The Room (2004) [Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13328.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13328.jpgsave_picture_13328.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Escape from the 70's (2022) [Ru/En] (Build 8771485) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13335.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13335.jpgsave_picture_13335.jpg" />
 </div>
 
 

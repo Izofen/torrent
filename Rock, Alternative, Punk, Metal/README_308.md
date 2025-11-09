@@ -6,7 +6,7 @@
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180488.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180488.jpgsave_picture_180488.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Danny Wilde - The Boyfriend (1986) Reissue, 2022, Bad Reputation [FLAC|Lossless|
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180492.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180492.jpgsave_picture_180492.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Assignment - Reflections (2020) [FLAC|Lossless|image + .cue] <Progressive Power 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180496.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180496.jpgsave_picture_180496.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Ali Thomson - The Last Rodeo (2022) Japanese Edition [FLAC|Lossless|image + .cue
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180500.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180500.jpgsave_picture_180500.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ In Sanity - For We Triumph (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180506.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180506.jpgsave_picture_180506.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Oceans - Is Where The Heart Is (2022) [FLAC|Lossless|WEB-DL|tracks] <Post-Metal,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180512.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180512.jpgsave_picture_180512.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ FoN - Мамонт (2022) [MP3|320 Kbps] <Rock, Blues>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180523.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180523.jpgsave_picture_180523.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Grim Justice - Justice in the Night (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180526.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180526.jpgsave_picture_180526.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Malemort - Ball Trap (2016) [FLAC|Lossless|tracks] <Heavy Metal, Rock>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180529.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180529.jpgsave_picture_180529.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Monolithe - Kosmodrom (2022) [FLAC|Lossless|WEB-DL|tracks] <Funeral Doom Metal, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180535.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180535.jpgsave_picture_180535.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ The Crossed - The Producer Of Suffering (2022) [FLAC|Lossless|WEB-DL|tracks] <Pr
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180539.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180539.jpgsave_picture_180539.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Malemort - Chateau-Chimeres (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, R
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180542.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180542.jpgsave_picture_180542.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Maledictive Pigs - Soul Surgery (2005) [FLAC|Lossless|image + .cue] <Death Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180544.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180544.jpgsave_picture_180544.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Artificial Brain - Artificial Brain (2022) [FLAC|Lossless|tracks + .cue] <Death 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180563.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180563.jpgsave_picture_180563.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Maleficarum - The Nine Circles (2019) [FLAC|Lossless|WEB-DL|tracks] <Death, Thra
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180564.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180564.jpgsave_picture_180564.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Maelstrom - Slaughter of the Dead (2013) Compilation [FLAC|Lossless|WEB-DL|track
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180565.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180565.jpgsave_picture_180565.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Maligno - Maligno (2022) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180567.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180567.jpgsave_picture_180567.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Cradle Of Filth - Trouble And Their Double Lives (2023) 2 x CD [FLAC|Lossless|im
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180813.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180813.jpgsave_picture_180813.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Ann Wilson & Tripsitter - Another Door (2023) [FLAC|Lossless|WEB-DL|tracks] <Cla
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180851.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180851.jpgsave_picture_180851.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Shy - Sunset And Vine (2005) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180874.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180874.jpgsave_picture_180874.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Soul Exchange - Metamorphosis (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative,
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180893.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180893.jpgsave_picture_180893.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Ritual Fire - Lost In A Nightmare (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180895.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180895.jpgsave_picture_180895.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Backwater - Rock Me To The Limits (2023) [FLAC|Lossless|WEB-DL|tracks] <Southern
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180905.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180905.jpgsave_picture_180905.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Dark The Suns - Raven and the Nightsky (2023) [FLAC|Lossless|WEB-DL|tracks] <Mel
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180907.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180907.jpgsave_picture_180907.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Muse - Ghosts (How Can I Move On) [feat. Elisa] (2022) [FLAC|Lossless|WEB-DL|tra
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180931.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180931.jpgsave_picture_180931.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ Warwolf - The Apocalyptic Waltz (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180940.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180940.jpgsave_picture_180940.jpg" />
 </div>
 
 

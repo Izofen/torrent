@@ -6,7 +6,7 @@
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250070.jpgsave_picture_250070.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ PhotoLayers v4.0.0 [En/Ru] (обновляемая)
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250190.jpgsave_picture_250190.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Screen Stream Mirroring Pro 2.7.0c Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250204.jpgsave_picture_250204.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Meditopia: Сон и Медитация 3.24.0 Mod by ApkDone Team [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250209.jpgsave_picture_250209.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:50F86AE10B97612D8E0DF4D6727F1E5E972C91F1
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250313.jpgsave_picture_250313.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ GO Weather EX Premium 6.162 Mod by Balatan, tasker67 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250322.jpgsave_picture_250322.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:D2AB46F717C80441B0454B7FA27B8FDC42868B45
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250391.jpgsave_picture_250391.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ All File Reader and Viewer v54 Mod by vadj [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250392.jpgsave_picture_250392.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Exo Player - Видеоплеер и IPTV v2.0.6 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250393.jpgsave_picture_250393.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Picsart AI Photo Editor, Video v28.7.3 Gold Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250396.jpgsave_picture_250396.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Jigsawscapes® - Пазлы v4.2.7 Mod by vadj [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250397.jpgsave_picture_250397.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ OsmAnd+  Карты & GPS Офлайн v5.2.7 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250402.jpgsave_picture_250402.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ HiPER Calc Pro v11.2.8 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250429.jpgsave_picture_250429.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ NokoPrint v5.24.4 Mod by derrin [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250430.jpgsave_picture_250430.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ Vanced Tube v5.5.80.136 Mod by TRUMods [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250485.jpgsave_picture_250485.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ Photo Editor v12.1 Pro Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250495.jpgsave_picture_250495.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ Photo Editor v12.1 Pro Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250496.jpgsave_picture_250496.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ Material Pods: батарея AirPods v6.70 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_251750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251750.jpgsave_picture_251750.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Parrot Timer / Кухонный таймер v2.11.0 Mod by Alex.Strannik [Multi
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_251758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251758.jpgsave_picture_251758.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ MP3 Cuter v1.7.5 Mod by vadj [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_251760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251760.jpgsave_picture_251760.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ Portrait Painter v1.17.21 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_251794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251794.jpgsave_picture_251794.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Artista Impresso v1.3.58 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_251803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251803.jpgsave_picture_251803.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ magnet:?xt=urn:btih:7ABDC19EF6C58B060403E4FE4D695E8B1F8C72D3
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251882.jpgsave_picture_251882.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Vanced Tube v5.5.80.142 Mod by TRUMods [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251884.jpgsave_picture_251884.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ magnet:?xt=urn:btih:ADA64112AA8F02401A199E7036E5DD1057A37624
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251886.jpgsave_picture_251886.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ magnet:?xt=urn:btih:82C790DA8DA379CF7EA2793CE82400F18BE952DD
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251889.jpgsave_picture_251889.jpg" />
 </div>
 
 

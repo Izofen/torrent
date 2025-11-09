@@ -6,7 +6,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67336.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67336.jpgsave_picture_67336.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:5B0EB711F0C19355DFBCC5469861F906B73B6C3D
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67337.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67337.jpgsave_picture_67337.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:1A9320210F601B48E47C1B0717807E7826289F88
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67338.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67338.jpgsave_picture_67338.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Togu Audio Line - TAL-J-8 2.0.0 VSTi, VSTi 3, AAX, CLAP (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67339.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67339.jpgsave_picture_67339.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:08F07C992240B0D86713A175D4486A607EA2A35F
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67340.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67340.jpgsave_picture_67340.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Paul Polotsk - Я иду долиной (2025) Сергей Есенин [MP3|32
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67341.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67341.jpgsave_picture_67341.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ VA - Ibiza Lounge Hits (Deep Strips Records) (2025) [FLAC|Lossless|WEB-DL|tracks
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67342.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67342.jpgsave_picture_67342.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Billy Idol - Dream Into It (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Punk Ro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67343.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67343.jpgsave_picture_67343.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:ACFB20A01FF0FEEC60DE99DCBB657A728DAB8E08
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67344.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67344.jpgsave_picture_67344.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ magnet:?xt=urn:btih:86BAD4E0F0D18530C97C1832EDAEE5E3BD633335
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67345.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67345.jpgsave_picture_67345.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ magnet:?xt=urn:btih:15F500DB6CAD9A5B103AD089CE3C6DFBA8CAC64E
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67346.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67346.jpgsave_picture_67346.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ magnet:?xt=urn:btih:CD4BA55D1A9B419E54969020B88EB474B2C1A252
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67347.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67347.jpgsave_picture_67347.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Togu Audio Line - TAL-U-NO-LX-V2 5.0.0 VSTi, VSTi 3, AAX, CLAP (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67348.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67348.jpgsave_picture_67348.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ magnet:?xt=urn:btih:22395EA1BC52709D8230774C8B9A2F72FF27CD92
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67349.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67349.jpgsave_picture_67349.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ magnet:?xt=urn:btih:0BA37ECEE275BB027EC4DFB80B3526539EB2FF74
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67350.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67350.jpgsave_picture_67350.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ magnet:?xt=urn:btih:3B27447344117222B0257E1189B9F27B2E51EE3C
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67351.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67351.jpgsave_picture_67351.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ magnet:?xt=urn:btih:53C0E3E16857C2ED37F8E69CC3443166AC75E4D0
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67352.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67352.jpgsave_picture_67352.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Saint Liar | Способности (2024) [MP3, Puffin Сafe]
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67353.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67353.jpgsave_picture_67353.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ magnet:?xt=urn:btih:27CD84185D770AFBA0AA724285C40E5F90E8E149
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67354.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67354.jpgsave_picture_67354.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ magnet:?xt=urn:btih:A175D00BD0FD0AC6A00692965FD4A8B19F8E3DCF
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67355.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67355.jpgsave_picture_67355.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ DLNow Video Downloader 1.54.2025.04.26 RePack (& Portable) by elchupacabra [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67356.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67356.jpgsave_picture_67356.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ MONOЛИЗА - Кит (2025) [MP3|320 Kbps] <Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67357.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67357.jpgsave_picture_67357.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ magnet:?xt=urn:btih:C261582EF6F8C47C821F7E15F8DEE96E021B2899
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67358.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67358.jpgsave_picture_67358.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Text Editor Pro 32.1.1 + Portable + Bonus [Multi/Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67359.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67359.jpgsave_picture_67359.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ magnet:?xt=urn:btih:BD9A5C88267E9F7873E9AE4D81F1F205E9F32CBA
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67360.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67360.jpgsave_picture_67360.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ magnet:?xt=urn:btih:FA0D4C13B0B9C70B6A71A13A62AE8A91FB9C55FA
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67361.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67361.jpgsave_picture_67361.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ VA - The Orient Collective: Caravan Rhythms (2025) [FLAC|Lossless|WEB-DL|tracks]
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70118.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70118.jpgsave_picture_70118.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:70592D0F7272AEACD88AACDEA292539EDB301E96
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70119.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70119.jpgsave_picture_70119.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ VA - Trance Your Mind, Vol. 1 (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70120.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70120.jpgsave_picture_70120.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:E90C6B23B6B2C663B8E80124F20401D01EC0DA6C
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70121.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70121.jpgsave_picture_70121.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:7EC55EA9C4AB999C0491B5FEB5C23881575D90F6
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70122.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70122.jpgsave_picture_70122.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:14DB1CADDCF0608163C2E2F8872B26A97C1F1341
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70123.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70123.jpgsave_picture_70123.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:676D6D35C3742AD91E984D37F151A73BA0C9B593
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70124.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70124.jpgsave_picture_70124.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ magnet:?xt=urn:btih:AE25AAD1B829B4DF12590B6947B197EE9370CDF0
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70125.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70125.jpgsave_picture_70125.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ magnet:?xt=urn:btih:9A49F906A1C3231FEA0ECAFEEC913DACDF66C573
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70126.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70126.jpgsave_picture_70126.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ magnet:?xt=urn:btih:C403892732D5A0231FA5FE5062D16CA5B13DD011
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70127.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70127.jpgsave_picture_70127.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ magnet:?xt=urn:btih:4DD3C42D20DCCF3F6EBC95FBAC6A3663C61D4450
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70128.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70128.jpgsave_picture_70128.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ magnet:?xt=urn:btih:5DC80A49E712B19DED382D467428678A075665C4
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70129.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70129.jpgsave_picture_70129.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ GPU-Z 2.64 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70130.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70130.jpgsave_picture_70130.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ magnet:?xt=urn:btih:156BAE2249596649D336E432DF1307B9529347B6
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70131.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70131.jpgsave_picture_70131.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ VA - Modern 80's - The Best Of Discopop Vol.4 (1999) [AAC|320 Kbps] <Electronic,
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70132.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70132.jpgsave_picture_70132.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ magnet:?xt=urn:btih:B958F08C6B98236275BFC4FFD5DC1F58BD110B0A
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70133.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70133.jpgsave_picture_70133.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Plugin Alliance - Vertigo 1.0.0 VST 3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70134.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70134.jpgsave_picture_70134.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ ScreenToGif 2.41.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70135.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70135.jpgsave_picture_70135.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Microsoft Visual Studio 2022 Community 17.13.1 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70136.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70136.jpgsave_picture_70136.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ magnet:?xt=urn:btih:796F6D04FEED34DB247636B17660BAF005D1397D
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70137.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70137.jpgsave_picture_70137.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Bill Evans - Live In Tokyo (1973) 1986, Sony [FLAC|Lossless|tracks + .cue] <Post
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70138.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70138.jpgsave_picture_70138.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ The Emily Remler Quartet - Take Two (1982) 1992, Concord Jazz [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70139.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70139.jpgsave_picture_70139.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ magnet:?xt=urn:btih:B29C378553B37D2F11466192F8388DA155F2339D
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70140.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70140.jpgsave_picture_70140.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ magnet:?xt=urn:btih:AE78397C153E1079CD022772A2FA7DEE889C1A18
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70141.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70141.jpgsave_picture_70141.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ magnet:?xt=urn:btih:AF2631DBBD5AEA30D475E37D67C8B7318C47A054
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70142.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70142.jpgsave_picture_70142.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ magnet:?xt=urn:btih:EB9EC165924445C50410E8B6E1B48350E7A9FAC2
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70143.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70143.jpgsave_picture_70143.jpg" />
 </div>
 
 

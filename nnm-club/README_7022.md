@@ -6,7 +6,7 @@ ScrollNavigator 5.15.1 RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240735.jpgsave_picture_240735.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ SRWare Iron 111.0.5650.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240736.jpgsave_picture_240736.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Godsmack - Lighting Up The Sky (2023) [FLAC|Lossless|tracks + .cue] <Hard Rock, 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240737.jpgsave_picture_240737.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:DBC1AA028E2F3C3BC1721AD3378406E730D18CAE
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240738.jpgsave_picture_240738.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ And Hell Followed With - Quietus (2022) [FLAC|Lossless|WEB-DL|tracks] <Deathcore
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240739.jpgsave_picture_240739.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ Pain - Nothing Remains The Same (2002) [FLAC|Lossless|image + .cue] <Industrial 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240740.jpgsave_picture_240740.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ magnet:?xt=urn:btih:2548D25757C58967F36B9026DD74526EF7D34095
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240741.jpgsave_picture_240741.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ Holy Moses - Invisible Queen (2023) [MP3|320 kbps] <Speed, Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240742.jpgsave_picture_240742.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ magnet:?xt=urn:btih:CA86A4D15F8BD1FEFE9B1D65D8C7345D6A350394
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240743.jpgsave_picture_240743.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ magnet:?xt=urn:btih:1E1ED818743029A3B375DB9E1567F6DB6D469586
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240744.jpgsave_picture_240744.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ Cisdem DVDBurner 5.1.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240745.jpgsave_picture_240745.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ magnet:?xt=urn:btih:5A21AF9F608CD3C92168FFA949C1D34280A3B121
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240746.jpgsave_picture_240746.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ Helms Alee - Keep This Be the Way (2022) [FLAC|Lossless|WEB-DL|tracks] <Sludge M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240747.jpgsave_picture_240747.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ FastFlix 5.5.5 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240748.jpgsave_picture_240748.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ magnet:?xt=urn:btih:BF9038FCA663A816C7CA81E604614BF5CE1862E4
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240749.jpgsave_picture_240749.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ RedNotebook 2.29.5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240750.jpgsave_picture_240750.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ i-Ten - Taking a Cold Look (1983) [MP3|320 Kbps] <AOR, Melodic Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240751.jpgsave_picture_240751.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Substance Academy, Nikola Damjanov | Tree Bark with Nikola Damjanov (2021) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240752.jpgsave_picture_240752.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ Folder-Factory 5.9.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240753.jpgsave_picture_240753.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Jay Migliori - Smile (1996) Cexton Records [FLAC|Lossless|tracks + .cue] <Bop, H
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240754.jpgsave_picture_240754.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ Blick Bassy - Madiba (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Africa>
 >>Folk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240755.jpgsave_picture_240755.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Aiseesoft Video Converter Ultimate 10.7.8 RePack (& Portable) by elchupacabra (0
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240756.jpgsave_picture_240756.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ magnet:?xt=urn:btih:87A7C29C736DF999603F1E5F0D3B326E13A36AEB
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240757.jpgsave_picture_240757.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ MNRVA - Hollow (2022) [MP3|320 kbps] <Doom, Stoner, Sludge Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240758.jpgsave_picture_240758.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ magnet:?xt=urn:btih:005662A1D8FE8397BCA715A285AC1D284ABD2B64
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240759.jpgsave_picture_240759.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ magnet:?xt=urn:btih:B30A39523A9F3B969105E6FF785E7B6A4D32F69C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240760.jpgsave_picture_240760.jpg" />
 </div>
 
 

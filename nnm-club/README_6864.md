@@ -6,7 +6,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235740.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235740.jpgsave_picture_235740.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:2950331974EC10F1CE252976F692A1A907725934
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235741.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235741.jpgsave_picture_235741.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ The Bluesland Horn Band - SIX (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235742.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235742.jpgsave_picture_235742.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ VA - Record Super Chart 27.03.2021 [MP3|320 Kbps] <Pop, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235743.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235743.jpgsave_picture_235743.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Electric Crown - Prophecy of Doom (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Me
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235744.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235744.jpgsave_picture_235744.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ Viber 20.0.0.4 (x64) RePack (Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235745.jpgsave_picture_235745.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Pretty School - 2 Albums (2023) [MP3|320 Kbps] <Punk Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235746.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235746.jpgsave_picture_235746.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Jared Curtis - COLLIDE (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235747.jpgsave_picture_235747.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ magnet:?xt=urn:btih:6F871D953CA427EBDE88F5013AFD79FF01D26B52
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235748.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235748.jpgsave_picture_235748.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Project Office X Pro 1.1.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235749.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235749.jpgsave_picture_235749.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ MotoGP. Этап 01. Гран-При Катара. Квалификация. (27
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235750.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235750.jpgsave_picture_235750.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ Black Spiders - Black Spiders (2021) [MP3|320 Kbps] <Hard Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235751.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235751.jpgsave_picture_235751.jpg" />
 </div>
 
 
@@ -315,7 +315,7 @@ French, Frith, Kaiser, Thompson - Live, Love, Larf & Loaf  (1987) [FLAC|Lossless
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235752.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235752.jpgsave_picture_235752.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ magnet:?xt=urn:btih:34C01A7C33D5BF433B3119C255B0FD6363BD22E0
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235753.jpgsave_picture_235753.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ Topaz Gigapixel AI 6.1.0 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235754.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235754.jpgsave_picture_235754.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ XYplorer 24.60.0000 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235755.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235755.jpgsave_picture_235755.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ magnet:?xt=urn:btih:0E965716C6F34754DCF71698D6AB0233ED8093C5
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235756.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235756.jpgsave_picture_235756.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:736FD5B4547DE701D0268CFFD335314958E2AF1D
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235757.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235757.jpgsave_picture_235757.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Russell Traywick - Lost (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235758.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235758.jpgsave_picture_235758.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ John Beasley - MONK'estra Plays John Beasley (2020) Mack Avenue [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235759.jpgsave_picture_235759.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ Haissem - Philosofiend (2021) [MP3|320 Kbps] <Melodic Black, Dark Metal>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235760.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235760.jpgsave_picture_235760.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ magnet:?xt=urn:btih:D1AB4CAD0D5EF8418E758ED928BE878BDD742E01
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235761.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235761.jpgsave_picture_235761.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Topaz Video AI 3.2.4 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235762.jpgsave_picture_235762.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ magnet:?xt=urn:btih:9C481EFD82C1FE183A2ADCA1FCD6CFCBFC6796C5
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235763.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235763.jpgsave_picture_235763.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ magnet:?xt=urn:btih:904D3ABD346613783B19EA9368B35AEBB6F3341E
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235764.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235764.jpgsave_picture_235764.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Solis 1.0.8 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235765.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235765.jpgsave_picture_235765.jpg" />
 </div>
 
 

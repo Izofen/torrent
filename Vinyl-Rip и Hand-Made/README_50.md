@@ -6,7 +6,7 @@ Steeler - Steeler (1983) [FLAC|24/96|image + .cue|Vinyl-Rip] <Heavy Metal>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178333.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178333.jpgsave_picture_178333.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ The Riverboat Minstrels - Stereo Minstrel Show (1971) [FLAC 2.0|24/96|image + .c
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178416.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178416.jpgsave_picture_178416.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Scar Symmetry - Studio Albums (7 releases) (2005-2023) hand made [restored, decl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178953.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178953.jpgsave_picture_178953.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ Steeler - Rulin' The Earth (1985) [FLAC|24/96|image + .cue|Vinyl-Rip] <Heavy Met
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179036.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179036.jpgsave_picture_179036.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ Steeler - Undercover Animal (1988) [WavPack|24/192|image + .cue|Vinyl-Rip] <Heav
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179060.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179060.jpgsave_picture_179060.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ Steeler - Strike Back (1986) [FLAC|24/192|image + .cue|Vinyl-Rip] <Heavy Metal>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179068.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179068.jpgsave_picture_179068.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ Mago De Oz - Ira Dei (2019) [FLAC|24/192|image + .cue|Vinyl-Rip] <Celtic, Folk, 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179676.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179676.jpgsave_picture_179676.jpg" />
 </div>
 
 
@@ -196,7 +196,7 @@ October Falls - The Plague of a Coming Age (2013) [FLAC|24/192|image + .cue|Viny
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179695.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179695.jpgsave_picture_179695.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Dua Lipa - Future Nostalgia (The Moonlight Edition) (2021) hand made [restored, 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180013.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180013.jpgsave_picture_180013.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Kylie Minogue - Tension (2023) hand made [restored, declipped] [FLAC|Lossless|tr
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180116.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180116.jpgsave_picture_180116.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ Benassi Bros. feat. Dhany - Hit My Heart (2004) hand made [restored, declipped] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180228.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180228.jpgsave_picture_180228.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ Wolf - Studio Albums (9 releases) (2000-2022) hand made [restored, declipped] [F
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_180248.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_180248.jpgsave_picture_180248.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ Benassi Bros. feat. Dhany - Every single day (2005) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180259.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180259.jpgsave_picture_180259.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ October Falls - The Womb of Primordial Nature (2008) [FLAC|24/192|image + .cue|V
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_180368.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_180368.jpgsave_picture_180368.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Creed (Tremonti, Scott Stapp) - Studio Albums (4 releases) (1997-2009) hand made
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180375.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180375.jpgsave_picture_180375.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ magnet:?xt=urn:btih:033080AE11A8FAB841BABB0F6D12C6BB5E892E6D
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180623.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180623.jpgsave_picture_180623.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Diablo (Diablo Brothers) - Studio Albums (8 releases) (2000-2022) hand made [res
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180860.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180860.jpgsave_picture_180860.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ October Falls - Marras (2005) [FLAC|24/192|image + .cue|Vinyl-Rip]<Atmospheric B
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180956.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180956.jpgsave_picture_180956.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Smokie - Ансамбль «Смоуки» (1980) Reissue, Licensed From – EMI
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181262.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181262.jpgsave_picture_181262.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ October Falls - Tuoni (2003) EP [FLAC|24/192|image + .cue|Vinyl-Rip] <Atmospheri
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181613.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181613.jpgsave_picture_181613.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Alter Bridge (Creed, Tremonti) - Studio Albums (7 releases) (2004 - 2022) hand m
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182296.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182296.jpgsave_picture_182296.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Vader - Studio Albums (19 releases) (1992-2020) hand made [restored, declipped] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183203.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183203.jpgsave_picture_183203.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Possessed - Shadowcult (2019) EP [FLAC|24/192|image + .cue|Vinyl-Rip] <Death, Th
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183346.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183346.jpgsave_picture_183346.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Secret Service/Сикрет Сервис - Two Albums: When The Night Closes In/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183669.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183669.jpgsave_picture_183669.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ Lost Horizon - Studio Albums (2 releases) (2001-2003) hand made [restored, decli
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183997.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183997.jpgsave_picture_183997.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ Russell Allen collaborative projects: Allen - Lande; Allen - Olzon - Studio Albu
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184797.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184797.jpgsave_picture_184797.jpg" />
 </div>
 
 

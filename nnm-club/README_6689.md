@@ -6,7 +6,7 @@
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229509.jpgsave_picture_229509.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:4B446AAB3D247D0D849E2C93E4C22FCAE7E34F96
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229510.jpgsave_picture_229510.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Kyle Bobby Dunn - FHTE-B (2019) Past Inside the Present [FLAC 2.0|44.1/24|tracks
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229511.jpgsave_picture_229511.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ VA - Chillout Adventures, Pt. 5 (2021) [AAC|~334 Kbps] <Ambient, Chill Out, Down
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229513.jpgsave_picture_229513.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:0C59FE042FC31ECF7BE5F4CD2B74FDD3CA20BD29
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229515.jpgsave_picture_229515.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:E7A42AD0A3438E2A4635055950CBB791AFA8E45F
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229516.jpgsave_picture_229516.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ magnet:?xt=urn:btih:85AFDF5B7D89EA1BB00E50D099C358C2AEE3BD66
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229517.jpgsave_picture_229517.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:2C50ED40C1C71F06F59BB84792590D613DD92932
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229518.jpgsave_picture_229518.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ MEDUZA - Tomorrowland Friendship Mix (2020-11-12) [MP3|320 Kbps] <Deep House, Pr
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229520.jpgsave_picture_229520.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ magnet:?xt=urn:btih:47687A2A8FB739C8A8869C509165FCFA676F5936
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229522.jpgsave_picture_229522.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ VA - Chillout Adventures, Pt. 6 (2021) [AAC|~336 Kbps] <Ambient, Chill Out, Down
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229523.jpgsave_picture_229523.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ magnet:?xt=urn:btih:28168A6BA3F974D5E7B3A9835B03DDF2B464E371
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229524.jpgsave_picture_229524.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ Love Live! Superstar!! 2 / Живая любовь! Суперзвёзды!! 2 [
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229525.jpgsave_picture_229525.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ magnet:?xt=urn:btih:DEE3D6B5090CFC6B718558B1CCA090EA5C0E986B
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229526.jpgsave_picture_229526.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ One Piece Movie 6 - Omatsuri Danshaku to Himitsu no Shima / One Piece: Baron Oma
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229529.jpgsave_picture_229529.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ ui.dev (ex. Tyler McGinnis), Tanner Linsley | React Query (2022) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229530.jpgsave_picture_229530.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ magnet:?xt=urn:btih:71DB1EFE7B70B04A56A80A785169DF434C30859C
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229531.jpgsave_picture_229531.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ magnet:?xt=urn:btih:89FCD388CA60782E33BAD7CF396FE28AE116B63E
 >>Футбол
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229532.jpgsave_picture_229532.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ magnet:?xt=urn:btih:3CAC9FE51F0FBFD27DA46E4A5047F5B2F3724E08
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229534.jpgsave_picture_229534.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ One Piece Movie 5 - Norowareta Seiken / One Piece - The Curse of the Sacred Swor
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229535.jpgsave_picture_229535.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ magnet:?xt=urn:btih:DEF6972A47B7CBE0199A83E3340CB6EBF9421317
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229536.jpgsave_picture_229536.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ magnet:?xt=urn:btih:3883C4F822E30155F9A472CBAB80D9F95A7DC509
 >>Футбол
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229538.jpgsave_picture_229538.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ magnet:?xt=urn:btih:6517F2CCDBB3AC60E6E7467D7ACD54A310821D54
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229540.jpgsave_picture_229540.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ magnet:?xt=urn:btih:840D940FBF86D69FD7D16ADDB37BADF20D9CBE24
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229541.jpgsave_picture_229541.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Fuyu ni Saku, Kiseki no Sakura / One Piece Movie 9 - Episode of Chopper Plus / �
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229542.jpgsave_picture_229542.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ magnet:?xt=urn:btih:2239A88808D59CE747EEBC7C574AD06F869A798E
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229543.jpgsave_picture_229543.jpg" />
 </div>
 
 

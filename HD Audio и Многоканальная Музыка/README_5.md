@@ -6,7 +6,7 @@ Orchestra Electrecord + Grupul vocal «Cantabile» - Non Stop Dancing I (1971) [
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3456.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3456.jpgsave_picture_3456.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Static Movement - Underwater (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Psy-T
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3464.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3464.jpgsave_picture_3464.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Glenn Hughes - Chosen (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3465.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3465.jpgsave_picture_3465.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ In Mourning - Studio Albums (9 releases) (2008-2025) hand made [restored, declip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3486.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3486.jpgsave_picture_3486.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Skyharbor - Studio Albums (3 releases) (2012-2018) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3551.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3551.jpgsave_picture_3551.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Isle Of Man - Isle Of Man (1986) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip <Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3554.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3554.jpgsave_picture_3554.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Polaris - Fatalism (2023, 2025) 2CD [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3568.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3568.jpgsave_picture_3568.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Green Carnation - Studio Albums (7 releases) (2000-2025) hand made [restored, de
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3598.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3598.jpgsave_picture_3598.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ Pantera (Damageplan; Rebel Meets Rebel) - Studio Albums (12 releases) (1983-2006
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3663.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3663.jpgsave_picture_3663.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Big Thief - Double Infinity (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Indie Ro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3699.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3699.jpgsave_picture_3699.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Faithless - Champion Sound (2025) 4CD [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3717.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3717.jpgsave_picture_3717.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Faithless - All Blessed (2021) Deluxe - Explicit, 2021, BMG[FLAC 24/44.1|Lossles
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3844.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3844.jpgsave_picture_3844.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Justin Bieber - Swag II (2025) 2CD [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3857.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3857.jpgsave_picture_3857.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Ryan Adams - Heartbreaker (2000) 25th Anniversary Edition, 2025, PAX-AM [FLAC 24
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3861.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3861.jpgsave_picture_3861.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ David Byrne - Who Is The Sky? (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Glam R
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3879.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3879.jpgsave_picture_3879.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Rob Thomas - All Night Days (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop, Pop
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4053.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4053.jpgsave_picture_4053.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ Faithless - Champion Sound: Side 1 Forever Free (2025) [FLAC 24/44.1|Lossless|WE
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4079.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4079.jpgsave_picture_4079.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Jean-Michel Jarre - Live In Bratislava (2025) [FLAC 24/48|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4156.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4156.jpgsave_picture_4156.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Spinal Tap - Break Like The Wind (2025 Remaster) (1992) Remastered, 2025, Geffen
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4271.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4271.jpgsave_picture_4271.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ The Rods - Wild Dogs Unchained (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Heavy
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4272.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4272.jpgsave_picture_4272.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ La Dispute - No One Was Driving The Car (2025) [FLAC 24/96|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4277.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4277.jpgsave_picture_4277.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Till Bronner - ITALIA (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Smooth Jazz, C
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4284.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4284.jpgsave_picture_4284.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ Acoustic Alchemy - The Empire of Lights (2025) EP [FLAC 24/44.1|Lossless|WEB-DL|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4287.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4287.jpgsave_picture_4287.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ Slipknot - Slipknot (1999) 25th Anniversary Edition, 2025, Roadrunner Records [F
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4289.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4289.jpgsave_picture_4289.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ FM - Brotherhood (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4291.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4291.jpgsave_picture_4291.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ Primal Fear - Domination (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy, Po
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4292.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4292.jpgsave_picture_4292.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8923.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8923.jpgsave_picture_8923.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Soft Organizer Pro 10.20 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8924.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8924.jpgsave_picture_8924.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ TechSmith Snagit 2025.3.0 Build 7627 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8925.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8925.jpgsave_picture_8925.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ Soft Organizer Pro 10.20 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8926.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8926.jpgsave_picture_8926.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ Hidden Portals: Eternal Balance / Скрытые порталы: Вечный б
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8927.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8927.jpgsave_picture_8927.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:ADF9E9A5039B3EE0221751DF03D3C4134C849CA9
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8928.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8928.jpgsave_picture_8928.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:ADF9E9A5039B3EE0221751DF03D3C4134C849CA9
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8929.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8929.jpgsave_picture_8929.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:14C384EF7AC1909AAC5C9EE4B0BC58244F06C5CE
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8930.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8930.jpgsave_picture_8930.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Deck of Haunts (2025) [Ru/Multi] (1.16) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8931.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8931.jpgsave_picture_8931.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:0E1C2632262A74486589245B46CAAF5E6703D76D
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8932.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8932.jpgsave_picture_8932.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:0E1C2632262A74486589245B46CAAF5E6703D76D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8933.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8933.jpgsave_picture_8933.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:110033A908893D1B96101A8CC524660CE10A4C7B
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8934.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8934.jpgsave_picture_8934.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:1DF55D72A7B85F9035CDA0A1C52FAA5446D014E0
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8935.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8935.jpgsave_picture_8935.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Thomas Anders - …Sings Modern Talking In the Middle of Nowhere (2025) [FLAC|Lo
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8936.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8936.jpgsave_picture_8936.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Foxit PDF Editor Pro 13.1.7.23637 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8937.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8937.jpgsave_picture_8937.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ LEILA (2025) [Ru/Multi] (20250803 Build 19462323) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8938.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8938.jpgsave_picture_8938.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Audacity 3.7.5 + Portable [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8939.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8939.jpgsave_picture_8939.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ magnet:?xt=urn:btih:C3079087F37553EF94A19E93F75C3262BE00D188
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8940.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8940.jpgsave_picture_8940.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ MyLanViewer 6.5.4 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8941.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8941.jpgsave_picture_8941.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ magnet:?xt=urn:btih:2BD7168310214A311E94AA170C0F6573EB536F1B
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8942.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8942.jpgsave_picture_8942.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Reg Organizer 9.80 + Portable [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8943.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8943.jpgsave_picture_8943.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ magnet:?xt=urn:btih:15AAE5D4BC323BA5E9FC7A6DA06F06BFEC957559
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8944.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8944.jpgsave_picture_8944.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ magnet:?xt=urn:btih:232110A4C9D86C54C27E3B48B2797C807B5F90F6
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8945.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8945.jpgsave_picture_8945.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ magnet:?xt=urn:btih:4AD527AFF1B672AEDD89649991113F2B39139AA6
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8946.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8946.jpgsave_picture_8946.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ magnet:?xt=urn:btih:5F69F5D046D716ECB4C570263450C633128905D3
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8947.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8947.jpgsave_picture_8947.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ magnet:?xt=urn:btih:23F1C28BDE98981564A72F512FF8BB7A9518AF94
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8949.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8949.jpgsave_picture_8949.jpg" />
 </div>
 
 

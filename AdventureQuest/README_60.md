@@ -6,7 +6,7 @@ The Captain (2021) [Multi] (1.1.4) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247662.jpgsave_picture_247662.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ A Plague Tale: Innocence (2019) [Ru/Multi] (1.07/dlc) Repack dixen18
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247671.jpgsave_picture_247671.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Beautiful Desolation (2020) [Ru/Multi] (1.0.7.3 C) License GOG [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247674.jpgsave_picture_247674.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ A Light in the Dark / Yeguang (2018) [Ru/Multi] (1.2.5) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247761.jpgsave_picture_247761.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Morrok (2023) [Ru/Multi] (Build 11369620) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247798.jpgsave_picture_247798.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Subnautica (2018) [Ru/Multi] (83031) Repack Pioneer
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249369.jpgsave_picture_249369.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Nine Sols (2024) [Ru/Multi] (202511032357.953572b8.0) Repack Necros
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250586.jpgsave_picture_250586.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:C785BECFCF687CBA30485FB15FC846F32C26E3F7
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250678.jpgsave_picture_250678.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ The Sojourn (2020) [Ru/Multi] (1.2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251240.jpgsave_picture_251240.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ STASIS: BONE TOTEM (2023) [Ru/Multi] (1.0.1.1) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_251765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251765.jpgsave_picture_251765.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ TUNIC (2022) [Ru/Multi] (1.0-t1513-b45) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251852.jpgsave_picture_251852.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Star Trek: Resurgence (2023) [Multi] (1.0) Repack DjDI
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252023.jpgsave_picture_252023.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ The Quarry (2022) [Ru/Multi] (Build 11105655/dlc) Repack Other s [Deluxe Edition
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252113.jpgsave_picture_252113.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Machinika Museum (2021) [Ru/Multi] (1.22051101) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252286.jpgsave_picture_252286.jpg" />
 </div>
 
 

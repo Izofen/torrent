@@ -6,7 +6,7 @@ Legenda Aurea - Ellipsis (2009) [APE|Lossless|image + .cue] <Symphonic Power Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142752.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142752.jpgsave_picture_142752.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Deep Purple - Machine Head (1972) SACD, 2003 EMI [FLAC|Lossless|tracks + .cue] <
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142791.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142791.jpgsave_picture_142791.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Soilwork - Verkligheten (2019) [MP3|320 Kbps] <Modern Melodic Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142840.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142840.jpgsave_picture_142840.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Accept-SP - Dream Of Tree (2019) [MP3|320 Kbps] <Metal, Progressive Rock>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142975.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142975.jpgsave_picture_142975.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ nobody.one - 4 Альбома (2010-2015) [MP3|128-320 кб/с] <Instrumental Ro
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143003.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143003.jpgsave_picture_143003.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Mass Of The Heretic - Flames Of Hatred (2016) [MP3|320 Kbps] <Black Metal>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143079.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143079.jpgsave_picture_143079.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Dead Meadow - The Nothing They Need (2018) [FLAC|Lossless|tracks + .cue] <Stoner
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143109.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143109.jpgsave_picture_143109.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Carcariass - Hell And Torment (2012) Compilation [MP3|~245 кб/с (V0)]<Technic
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143134.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143134.jpgsave_picture_143134.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ New Found Glory - Makes Me Sick (2017) [FLAC|Lossless|tracks + .cue] <Pop Punk>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143150.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143150.jpgsave_picture_143150.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Notorious - Sexy Funky Monkey (1997) Single [FLAC|Lossless|tracks + .cue] <Rock,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143201.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143201.jpgsave_picture_143201.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Ridel High - Emotional Rollercoaster (1998) [FLAC|Lossless|tracks + .cue] <Pop R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143223.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143223.jpgsave_picture_143223.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Le Maximum Kouette - Moi j'aime ça! (2002) Maxi-Single [FLAC|Lossless|tracks + 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143227.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143227.jpgsave_picture_143227.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Maciej Malenczuk - Psychodancing (2008) [MP3|192 кб/с]<Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143230.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143230.jpgsave_picture_143230.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ The Bronx - The Bronx (2006) [FLAC|Lossless|tracks + .cue] <Hardcore>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143248.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143248.jpgsave_picture_143248.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ R.E.M. - Out Of Time (1991) [FLAC|Lossless|tracks + .cue] <Alternative Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143296.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143296.jpgsave_picture_143296.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ Megadeth - Warheads On Foreheads (2019) Compilation, Remastered [FLAC|Lossless|i
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143317.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143317.jpgsave_picture_143317.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Artemesia - Apocryphal (2003) [WavPack|Lossless]<Melodic Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143412.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143412.jpgsave_picture_143412.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ Jessica Wolff - Grounded (2015) Japanese Edition [FLAC|Lossless|image + .cue] <M
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143417.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143417.jpgsave_picture_143417.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Billy Joel - Turnstiles (1976) SACD, Remastered 2012, Mobile Fidelity Sound Lab 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143510.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143510.jpgsave_picture_143510.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Lost Society - Braindead (2016) [MP3|320 кб/с] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143550.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143550.jpgsave_picture_143550.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Pretenders - Pretenders II (1981) SACD, Reissue 2010, Mobile Fidelity Sound Lab 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143582.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143582.jpgsave_picture_143582.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Megadeth - Endgame (2009) Reissue, Remastered, 2019, BMG Echo [FLAC|Lossless|ima
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143608.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143608.jpgsave_picture_143608.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Megadeth - Th1rt3en (2011) Reissue, Remastered, 2019, BMG Echo [FLAC|Lossless|im
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143628.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143628.jpgsave_picture_143628.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ The Great Affairs - Sleepwalker (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143700.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143700.jpgsave_picture_143700.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ VA - Greatest Ever! Rock Ballads (2017) [MP3|320 Kbps] <Rock, Pop Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143741.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143741.jpgsave_picture_143741.jpg" />
 </div>
 
 
@@ -689,7 +689,7 @@ Agonizer - Birth The End (2007) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143754.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143754.jpgsave_picture_143754.jpg" />
 </div>
 
 

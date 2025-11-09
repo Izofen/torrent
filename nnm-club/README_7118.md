@@ -6,7 +6,7 @@
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244004.jpgsave_picture_244004.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:F5F6E56D87594132FD742C59C82B1A26092EA03F
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244005.jpgsave_picture_244005.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ David Essex - Rock On (1973) [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Pop Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244006.jpgsave_picture_244006.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ VA - External Source (2023) [MP3|320 Kbps] <Psy, Goa-Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244007.jpgsave_picture_244007.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:DB7631ABC4355BC51C6A66067481F5F1246E6115
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244008.jpgsave_picture_244008.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Rudolf Buchbinder, Strauss, Schubert, Schumann, Beethoven, Chopin - Soirèe De V
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244009.jpgsave_picture_244009.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:BA3807B63FA63B67C2449A128D1180EE5E52659E
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244010.jpgsave_picture_244010.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ Berlin - Pleasure Victim (1982)  [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Synth-
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244011.jpgsave_picture_244011.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ AnyMP4 Mac Video Converter Ultimate 9.2.16 [Rus/Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244012.jpgsave_picture_244012.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ Google Chrome 111.0.5563.147 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244013.jpgsave_picture_244013.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ magnet:?xt=urn:btih:0C89BA7170564ADC29C3F6D7118ADB37796033B3
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244014.jpgsave_picture_244014.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ iA Writer 5.6.9 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244015.jpgsave_picture_244015.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ K-Lite Codec Pack Update 17.5.8 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244017.jpgsave_picture_244017.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ Drug Mother - Rise Witch (2023) [MP3|320 Kbps] <Heavy Rock, Stoner, Doom, Grunge
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244018.jpgsave_picture_244018.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ XLN Audio - RC-20 Retro Color 1.2.6.2 VST, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244019.jpgsave_picture_244019.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Altair PSIM 2022.2.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244020.jpgsave_picture_244020.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ magnet:?xt=urn:btih:FFCA59ADBE5EC587517ECBDCCFDFF9D7E09924CA
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244021.jpgsave_picture_244021.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ magnet:?xt=urn:btih:8C7F05D5CE3466A4FB07DD09B2A18E09E4536879
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244022.jpgsave_picture_244022.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ The Radio Sun - Wrong Things Right (2014) [FLAC|Lossless|image + .cue] <Melodic 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244023.jpgsave_picture_244023.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ magnet:?xt=urn:btih:9FB4C223CE0E6E30C6B938B04B77A4C6BD7A1C09
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244024.jpgsave_picture_244024.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ Pierce The Veil - The Jaws of Life (2023) [MP3|320 Kbps] <Post-Hardcore, Pop-Pun
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244025.jpgsave_picture_244025.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ magnet:?xt=urn:btih:0CC9F225CF3B815D210AE93C1096F7507C29077C
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244026.jpgsave_picture_244026.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ magnet:?xt=urn:btih:42800DE953C113C78A0CDDA5159AE5B270BE3180
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244027.jpgsave_picture_244027.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Waterfox Current G5.1.6 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244028.jpgsave_picture_244028.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ magnet:?xt=urn:btih:60D3FE430F577BA9A75D5417620DBC9F9954FDDC
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244029.jpgsave_picture_244029.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ DxO PhotoLab Elite 6.4.0 build 158 RePack by KpoJIuK [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244030.jpgsave_picture_244030.jpg" />
 </div>
 
 

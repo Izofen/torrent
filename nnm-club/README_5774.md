@@ -6,7 +6,7 @@ Josh Read - God Fodder (A-B-Sides) (2022) [FLAC|Lossless|WEB-DL|tracks] <Progres
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179414.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179414.jpgsave_picture_179414.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Marked As An Enemy - Meanwhile (2022) [FLAC|Lossless|WEB-DL|tracks] <Metalcore>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179416.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179416.jpgsave_picture_179416.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:973ED2063C4E2636F88E2A3FC5146FE3C30539BB
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179417.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179417.jpgsave_picture_179417.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Mother Vulture - Mother Knows Best (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues R
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179421.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179421.jpgsave_picture_179421.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ GPU Shark 0.31.0 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179422.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179422.jpgsave_picture_179422.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ magnet:?xt=urn:btih:5998D5B1C000F245472816F01470C5FB180A7595
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179424.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179424.jpgsave_picture_179424.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ GPU Caps Viewer 1.62.0 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179428.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179428.jpgsave_picture_179428.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ Microsoft PowerToys 0.74.1 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179430.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179430.jpgsave_picture_179430.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ magnet:?xt=urn:btih:84396C01911CEA15960B5748BF86E9EC4E650CEF
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_179433.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_179433.jpgsave_picture_179433.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ FurMark 1.37.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179437.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179437.jpgsave_picture_179437.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ magnet:?xt=urn:btih:752115807156DC99D09BFDEDA3728EDF50537862
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179439.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179439.jpgsave_picture_179439.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ ESET Endpoint Antivirus / ESET Endpoint Security 10.0.2034.0 (28.11.2022) RePack
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179441.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179441.jpgsave_picture_179441.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ magnet:?xt=urn:btih:4544F6D68B4797C6582590B8C4F2DED250B6D53A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179443.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179443.jpgsave_picture_179443.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ PrivaZer Pro 4.0.78 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179446.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179446.jpgsave_picture_179446.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Windows 11 Enterprise x64 MD 22H2 build 22621.898 by Zosma [Ru]
 >>Сборки Windows 11
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179447.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179447.jpgsave_picture_179447.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ MediaInfo 23.10 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179449.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179449.jpgsave_picture_179449.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ magnet:?xt=urn:btih:602B0BE2A8A94CB634B3989A626BB4D6C7879EF8
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179454.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179454.jpgsave_picture_179454.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ magnet:?xt=urn:btih:DD23895F2FE8B4F796C5BC7F2AD54BC62EC4BD75
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179458.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179458.jpgsave_picture_179458.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Imagenomic Portraiture 4.0.3 Build 4033 [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179459.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179459.jpgsave_picture_179459.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Khymera - 4 Albums (2003-2023) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_179462.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_179462.jpgsave_picture_179462.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ magnet:?xt=urn:btih:AC9522B0274B30E6053275E8C29C6FEB690120BA
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179465.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179465.jpgsave_picture_179465.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Will Jacobs, Ally Venable, Ashley Sherlock - Blues Caravan 2023 (2023) [MP3|320 
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179468.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179468.jpgsave_picture_179468.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Amok Runner (2022) [Ru/Multi] (9865847) Repack DjDI
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179471.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179471.jpgsave_picture_179471.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ magnet:?xt=urn:btih:07DE9EB0A2634CEE5E541DB4B15951C0F5A0FC47
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179473.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179473.jpgsave_picture_179473.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ PortableApps.com Platform 26.2.2.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179477.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179477.jpgsave_picture_179477.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ Adobe Photoshop 2023 24.0.1.112 Portable by NNM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179478.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179478.jpgsave_picture_179478.jpg" />
 </div>
 
 

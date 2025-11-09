@@ -6,7 +6,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99043.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99043.jpgsave_picture_99043.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:7E3E82E8B47825F03D6E2BDB76BBA57C72046C0F
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99044.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99044.jpgsave_picture_99044.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ magnet:?xt=urn:btih:F1470F49DB7A1510234BDB60791E7F13C7CDEC40
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99045.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99045.jpgsave_picture_99045.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - Танцевальное Движжение 50/50 (2012) [MP3|224 kbps]<Clu
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99048.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99048.jpgsave_picture_99048.jpg" />
 </div>
 
 
@@ -120,7 +120,7 @@ VA - Wellness Hotels (2012) [MP3|320 кб/с]<Downtempo, ChillOut, Lounge>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99050.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99050.jpgsave_picture_99050.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:966B649CA72D5B46E331093F147A54FCD13CC923
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99051.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99051.jpgsave_picture_99051.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Mariko Makino - On the Beach (2005) [MP3|320 кб/с]<New age, Relax>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99052.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99052.jpgsave_picture_99052.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ Desultor - Masters Of Hate (2012) [MP3|320 кб/с]<Progressive Death>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99053.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99053.jpgsave_picture_99053.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ VA - С Нами Не Соскучишься 50/50 (2012) [MP3|256 kbps]<Pop | D
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99054.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99054.jpgsave_picture_99054.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ magnet:?xt=urn:btih:131980E89AAA23C820A4A1BD415798AE3AA5C883
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99056.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99056.jpgsave_picture_99056.jpg" />
 </div>
 
 
@@ -291,7 +291,7 @@ VA - Klubnye novinki Vol.62 from GvertO (2012) [MP3|320 кб/с]<Club, Dance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99057.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99057.jpgsave_picture_99057.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Sarcophagy - The Summoning (2012) [MP3|320 кб/с]<Brutal Death>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99058.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99058.jpgsave_picture_99058.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ VA - Клубная хитовая волна (2012) [MP3|160-320 кб/с]<Club>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99060.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99060.jpgsave_picture_99060.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ magnet:?xt=urn:btih:1268BCA0176A29BEAF49FF0591309A4B306A4437
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99061.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99061.jpgsave_picture_99061.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ magnet:?xt=urn:btih:B90B060910B17895DA465F04D2D9372685EAC7AF
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99064.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99064.jpgsave_picture_99064.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ VA - Солнечный музыкальный отрыв (2012) [MP3|256 кб/�
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99066.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99066.jpgsave_picture_99066.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ VA - XXXL Максимальный размер удовольствия 6 (2012
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99068.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99068.jpgsave_picture_99068.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ magnet:?xt=urn:btih:7E639BA10D4FA17427C2ABDB7B8FAC975A13E5CF
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99071.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99071.jpgsave_picture_99071.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ VA - Хиты на радио клубнячек и попса vol.1 (2012) [MP3
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99072.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99072.jpgsave_picture_99072.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ magnet:?xt=urn:btih:3638F770B800196BA1B9E6EAA09B1431778AE1DE
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99075.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99075.jpgsave_picture_99075.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Blotted Science - 2 Albums (2007 - 2011) [MP3|320 кб/с]<Instrumental/Progress
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99078.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99078.jpgsave_picture_99078.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ magnet:?xt=urn:btih:1BF582C42533626C232D03331F27C66D909BDEF1
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99079.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99079.jpgsave_picture_99079.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ VA - Jazz In Britain 1919-1950 (2005)(4CD) [MP3|192 кб/с]<Jazz>
 >>Jazz
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99080.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99080.jpgsave_picture_99080.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ magnet:?xt=urn:btih:82D525014864E02F955E3DBF90CF5D0A3F267436
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99081.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99081.jpgsave_picture_99081.jpg" />
 </div>
 
 
@@ -696,7 +696,7 @@ VA - В Машину! Клубный (2012) [MP3|256 kbps]<Club | Dance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99083.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99083.jpgsave_picture_99083.jpg" />
 </div>
 
 
@@ -729,7 +729,7 @@ magnet:?xt=urn:btih:928FC58CC6928138AEC686B0D19DB0660E993296
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99085.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99085.jpgsave_picture_99085.jpg" />
 </div>
 
 

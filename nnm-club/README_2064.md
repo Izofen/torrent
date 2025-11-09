@@ -6,7 +6,7 @@
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54031.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54031.jpgsave_picture_54031.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Music News vol.385 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54032.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54032.jpgsave_picture_54032.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:C21BF956BFA40FAD70307ACC32A11710AE71BB48
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54033.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54033.jpgsave_picture_54033.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ magnet:?xt=urn:btih:68D5809EFF69C86E825040D607DD33137F23FE94
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54034.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54034.jpgsave_picture_54034.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ USB Device Tree Viewer 4.2.6.1 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54035.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54035.jpgsave_picture_54035.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ magnet:?xt=urn:btih:A5644AA608C4BE7EA108F4B0620C79CE4EC8C099
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54036.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54036.jpgsave_picture_54036.jpg" />
 </div>
 
 
@@ -161,7 +161,7 @@ magnet:?xt=urn:btih:60ED4088EF383EC8F4BD2950A6AD4070A1C7A071
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54037.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54037.jpgsave_picture_54037.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ magnet:?xt=urn:btih:401ABFDDD8B2B2E7516F4C9B9526E8D4EEC13212
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54038.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54038.jpgsave_picture_54038.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ magnet:?xt=urn:btih:501123794784E68596B3DDDB2D302E29460067DD
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54039.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54039.jpgsave_picture_54039.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ Christine C.M. Goh, Anne Burns | Teaching Speaking (2012) [PDF] [EN]
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54040.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54040.jpgsave_picture_54040.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ magnet:?xt=urn:btih:3DEA239124294D738EFB83FEFE42AF614F6ADF12
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54041.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54041.jpgsave_picture_54041.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ Sumatra PDF 3.6.16341 Prerelease + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54042.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54042.jpgsave_picture_54042.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ OneCommander Pro 3.82.0.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54043.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54043.jpgsave_picture_54043.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ David Crosby - If I Could Only Remember My Name (1971) 50th Anniversary Edition,
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54044.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54044.jpgsave_picture_54044.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ Draw.io 24.5.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54045.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54045.jpgsave_picture_54045.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ Draw.io 24.4.13 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54046.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54046.jpgsave_picture_54046.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ magnet:?xt=urn:btih:FB7C3CC71959A08E99E9375C36B8106A36C45E42
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54047.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54047.jpgsave_picture_54047.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ Severe Torture - Torn From The Jaws Of Death (2024) [FLAC|Lossless|WEB-DL|tracks
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54048.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54048.jpgsave_picture_54048.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ VA - Music News vol.386 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54049.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54049.jpgsave_picture_54049.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ magnet:?xt=urn:btih:39AE86C2A95EB817F4054DE4FAFE164ECE49A694
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54050.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54050.jpgsave_picture_54050.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ PDF24 Creator 11.18.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54051.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54051.jpgsave_picture_54051.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ magnet:?xt=urn:btih:0FD8875E07A991397AF518587461ABE1F122B9B4
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54052.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54052.jpgsave_picture_54052.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Ashampoo WinOptimizer 27.00.03 Portable by FC Portables [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54053.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54053.jpgsave_picture_54053.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ magnet:?xt=urn:btih:1A0B0E3AB5F17A7877E2B397DB2ED82F3FDD6C4E
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54054.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54054.jpgsave_picture_54054.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ magnet:?xt=urn:btih:8FB0E56D90DD12509425D64CE343F0AF81126972
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54055.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54055.jpgsave_picture_54055.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ magnet:?xt=urn:btih:AF421974ED75F353E5A800D13C211ED1D983C361
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54056.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54056.jpgsave_picture_54056.jpg" />
 </div>
 
 

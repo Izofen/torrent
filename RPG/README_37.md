@@ -6,7 +6,7 @@ Sengoku Dynasty (2023) [Ru/Multi] (1.0.3.1) Repack Pioneer
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66419.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66419.jpgsave_picture_66419.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Tails of Iron (2021) [Ru/Multi] (1.52/dlc) Repack Wanterlude
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70786.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70786.jpgsave_picture_70786.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Darkest Dungeon II (2023) [Ru/Multi] (2.00.73217/dlc) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71364.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71364.jpgsave_picture_71364.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Risen [Ru] (Lossless RePack/1.1/1.2) 2009 | pe4enko
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81764.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81764.jpgsave_picture_81764.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ Neverend [Ru] (RePack) 2005 | Sash HD
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84192.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84192.jpgsave_picture_84192.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Venetica: HD Edition [Ru] (Lossless RePack) 2010 | Naitro
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84834.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84834.jpgsave_picture_84834.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ King's Bounty Platinum Edition [Ru/En] (RePack) 2008-2010 | Seraph1
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86874.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86874.jpgsave_picture_86874.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ Angels vs Devils [Ru] (L) 2004
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87244.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87244.jpgsave_picture_87244.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Avernum: Escape from the Pit (P) [En] 2012
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88315.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88315.jpgsave_picture_88315.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Realms of Arkania Антология [En/Ru] (RePack) 1992-1996 | Pilotus
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88714.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88714.jpgsave_picture_88714.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Prince Of Qin [Ru/En] (P) 2004
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90531.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90531.jpgsave_picture_90531.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ Lost in Random: The Eternal Die (2025) [Ru/Multi] (rc6/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94586.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94586.jpgsave_picture_94586.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Titan Quest (2016) [Ru/Multi] (2.10.21415/dlc) Repack Let'sРlay [Anniversary Ed
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98583.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98583.jpgsave_picture_98583.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Luck & Loot (2025) [Ru/Multi] (1.1c) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100782.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100782.jpgsave_picture_100782.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Talisman (2014) [Ru/Multi] (84935/dlc) License GOG [Digital Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100802.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100802.jpgsave_picture_100802.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Tainted Grail: Conquest (2021) [Ru/Multi] (1.62) License GOG [Original Soundtrac
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100803.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100803.jpgsave_picture_100803.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Diablo 2 + Lord of Destruction [En/Ru] (RePack/1.13d) 2000 | R.G. ReCoding
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101932.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101932.jpgsave_picture_101932.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Cat Quest (2017) [Ru/Multi] (1.2.13) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104435.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104435.jpgsave_picture_104435.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ Cat Quest II (2019) [Ru/Multi] (1.7.6) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104451.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104451.jpgsave_picture_104451.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ I Was a Teenage Exocolonist (2022) [En] (1) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106464.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106464.jpgsave_picture_106464.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Siralim Ultimate (2021) [En] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107632.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107632.jpgsave_picture_107632.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Immortal Mantis (2022) [Multi] (1.1) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111974.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111974.jpgsave_picture_111974.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Immortal Mantis: Revenge (2024) [Multi] (1.1) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112001.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112001.jpgsave_picture_112001.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Disgaea 7: Vows of the Virtueless (2023) [Multi] (1.12/dlc) Scene Tenoke [Ultima
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112445.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112445.jpgsave_picture_112445.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Robin Hood: Sherwood Builders (2024) [Ru/Multi] (1.0) Repack DjDI
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114084.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114084.jpgsave_picture_114084.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ The Witcher 3: Wild Hunt / Ведьмак 3: Дикая Охота (2015) [Ru/Mu
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114266.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114266.jpgsave_picture_114266.jpg" />
 </div>
 
 

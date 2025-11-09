@@ -6,7 +6,7 @@
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103621.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103621.jpgsave_picture_103621.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:11EBB2E858FD1559FBCADBE3075491D83CF3003F
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103622.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103622.jpgsave_picture_103622.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ magnet:?xt=urn:btih:1C28A8B4E5AD1A6CA0BF57F6475E43646913B6A6
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103623.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103623.jpgsave_picture_103623.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ magnet:?xt=urn:btih:EF9563DB6D3ABACCBCB3C8335F097395D80E9AEF
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103624.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103624.jpgsave_picture_103624.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ magnet:?xt=urn:btih:07ACF6420C1F8F9D32C83FAF4B9AA6A88759198E
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103625.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103625.jpgsave_picture_103625.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ magnet:?xt=urn:btih:7118772007F8ABC8CFF34123EBB36263283F8A3E
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103626.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103626.jpgsave_picture_103626.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ magnet:?xt=urn:btih:F3D7C81264C1367F4ADF46CDD20AF28B0807CF68
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103627.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103627.jpgsave_picture_103627.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ magnet:?xt=urn:btih:27FECDA6A386B779D1B6AB623DD8CB0972B399DB
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103628.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103628.jpgsave_picture_103628.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ VA - The Orient Collective - Ancient Wisdom (2024) [FLAC|Lossless|WEB-DL|tracks]
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103629.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103629.jpgsave_picture_103629.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ magnet:?xt=urn:btih:BCAB4806674CC55883C66BB95AB8889D80121C15
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103630.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103630.jpgsave_picture_103630.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Eclipse - Megalomanium II (2024) Japanese Edition [FLAC|Lossless|image + .cue] <
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103631.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103631.jpgsave_picture_103631.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Crossbone Skully - High On You (feat. Nikki Sixx) (2024) EP [MP3|320 Kbps] <Hard
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103632.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103632.jpgsave_picture_103632.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ magnet:?xt=urn:btih:881712B4603F02BC92C3ABED673AE2EC6846013C
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103633.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103633.jpgsave_picture_103633.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ magnet:?xt=urn:btih:F4938C58A750CDB1C29E2BD2316F0EE639F78E2C
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103634.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103634.jpgsave_picture_103634.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ magnet:?xt=urn:btih:C381DF528A10970C2433BC0C02182A0B66CEC560
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103635.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103635.jpgsave_picture_103635.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ magnet:?xt=urn:btih:DA9B08B1FA264EB5EC84558F0B33122C8123A946
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103636.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103636.jpgsave_picture_103636.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ magnet:?xt=urn:btih:AF5BE20831B754EE7C7223756C375DC0033EA3D5
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103637.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103637.jpgsave_picture_103637.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Nightmare - Waiting For The Power: The Early Years (2024) 3CD [FLAC|Lossless|WEB
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103638.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103638.jpgsave_picture_103638.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ RDS GP: Шинная борьба (2024) WEBRip [H.264/1080p] (сезон 3, с�
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103639.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103639.jpgsave_picture_103639.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Keys - The Grand Seduction (2024) [FLAC|Lossless|image + .cue] <Melodic Hard Roc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103640.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103640.jpgsave_picture_103640.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ magnet:?xt=urn:btih:F3123869205BF68C3C209244DCF86C4CF19F1F04
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103641.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103641.jpgsave_picture_103641.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ Gabrielle De Val and The Dragonlords - Tiger (2024) [FLAC|Lossless|image + .cue]
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103642.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103642.jpgsave_picture_103642.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ RDS GP: Шинная борьба (2023) HDTV [H.264/1080p] (сезон 2, се�
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103643.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103643.jpgsave_picture_103643.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ magnet:?xt=urn:btih:D373EDC265B4F544D9854B23EB0A73E639D9E14C
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103644.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103644.jpgsave_picture_103644.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ magnet:?xt=urn:btih:953B1E245AC7C9AB9A28C8592BC5ECE1969D676E
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103645.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103645.jpgsave_picture_103645.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ Enchanted Duo - Werifesteria (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103646.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103646.jpgsave_picture_103646.jpg" />
 </div>
 
 

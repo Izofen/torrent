@@ -6,7 +6,7 @@ VA - Chillout King Ibiza: Aperitivo Del Mar (2018) [AAC|~334 Kbps] <Lounge, Chil
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164559.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164559.jpgsave_picture_164559.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Microsoft Office 2021 for Mac LTSC v16.68 VL [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164560.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164560.jpgsave_picture_164560.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Edenbridge - The Chronicles Of Eden (2008) 2CD [FLAC|Lossless|image + .cue] <Sym
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164561.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164561.jpgsave_picture_164561.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ A.S.M. (A State of Mind) - Color Wheel (2019) [FLAC|Lossless|Web-DL|tracks] <Hip
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164562.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164562.jpgsave_picture_164562.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ iPulse 3.1.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164563.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164563.jpgsave_picture_164563.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ BusyCal 2021.4.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164564.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164564.jpgsave_picture_164564.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ WinRAR 6.20 Beta 3 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164565.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164565.jpgsave_picture_164565.jpg" />
 </div>
 
 
@@ -187,7 +187,7 @@ Mia for Gmail 2.4.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164566.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164566.jpgsave_picture_164566.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ magnet:?xt=urn:btih:81DF81FF9BE2C994239792AAEF9C5E84BA68B1F5
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164567.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164567.jpgsave_picture_164567.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ TaskPaper 3.9.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164568.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164568.jpgsave_picture_164568.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ Stats 2.6.23 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164569.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164569.jpgsave_picture_164569.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ magnet:?xt=urn:btih:8C92C82D982D8A8744471B4619771D2E7F9A4A9C
 >>9
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164570.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164570.jpgsave_picture_164570.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ PaintCode 3 v3.5.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164571.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164571.jpgsave_picture_164571.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ Lanark Artefax - Live - No Bounds Festival 2019 (2019) [FLAC|Lossless|WEB-DL|tra
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164572.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164572.jpgsave_picture_164572.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Noir – Dark Mode for Safari 2023.2.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164573.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164573.jpgsave_picture_164573.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ magnet:?xt=urn:btih:51AB48D05403F51E90869044E900D7816B2D68E9
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164574.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164574.jpgsave_picture_164574.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Galactic Civilizations III (2015) [Ru] (4.01.1/dlc) Repack xatab
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164575.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164575.jpgsave_picture_164575.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ magnet:?xt=urn:btih:8630A9FCB217FA617AB36177AFF925D13AB70DBC
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164576.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164576.jpgsave_picture_164576.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Office 2013-2021 C2R Install + Lite 7.5.0.1 ++ Portable by Ratiborus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164577.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164577.jpgsave_picture_164577.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ GoodNotes 5 v5.7.54 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164578.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164578.jpgsave_picture_164578.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Magic Disk Cleaner 2.5.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164579.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164579.jpgsave_picture_164579.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Devil May Cry 5 (2019) [Ru/Multi] (1.0.5962864/dlc) Repack Other s [Deluxe Editi
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164580.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164580.jpgsave_picture_164580.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ VirtualHostX 8 v8.7.15 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164581.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164581.jpgsave_picture_164581.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Aeonian Sorrow - Into the Eternity a Moment We Are (2018) [FLAC|Lossless|image +
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164582.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164582.jpgsave_picture_164582.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Benko Dixieland Band - A Jazz Szuletesetol Napjainkig (2002) Bencolor [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164583.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164583.jpgsave_picture_164583.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ magnet:?xt=urn:btih:24A023AD6106028C06C3441CFCC6E19037CA5F42
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164584.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164584.jpgsave_picture_164584.jpg" />
 </div>
 
 

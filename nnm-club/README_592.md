@@ -6,7 +6,7 @@ Contraption Maker (2014) [En] (1.4.11/dlc) License GOG
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15703.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15703.jpgsave_picture_15703.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:338AFAD47A97EE4EC3B5D704535273CF4D153E1C
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15704.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15704.jpgsave_picture_15704.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:B9EA06DBC70F82AB58DEDCA7516155E0B8B13CD6
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15705.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15705.jpgsave_picture_15705.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:B9EA06DBC70F82AB58DEDCA7516155E0B8B13CD6
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15706.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15706.jpgsave_picture_15706.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ UBOAT (2019) [Ru/Multi] (2025.1.1 patch 4/dlc) License GOG (обновляема
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15707.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15707.jpgsave_picture_15707.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Space Haven (2020) [Ru/Multi] (0.20.0.29) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15708.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15708.jpgsave_picture_15708.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ The Rolling Stones - Studio Albums 28, Live 37, Compilations 42, Singles 16, Box
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15709.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15709.jpgsave_picture_15709.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Terra Invicta (2022) [Multi] (0.4.90) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15710.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15710.jpgsave_picture_15710.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:D1B04B8039621926F1BBF39003ADA24B555C8D5C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15711.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15711.jpgsave_picture_15711.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Caves of Qud (2015) [En] (2.0.210.20/dlc) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15712.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15712.jpgsave_picture_15712.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ The Sims 4 (2014) [Ru/Multi] (1.115.216.1030/dlc) Repack Other s [Deluxe Edition
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15713.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15713.jpgsave_picture_15713.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Revival: Recolonization (2023) [Ru/Multi] (1.2.452) License GOG [Deluxe Edition]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15714.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15714.jpgsave_picture_15714.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:5A9F25B6A42E25A609DF38CDF8F4CDF465B899B4
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15715.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15715.jpgsave_picture_15715.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Tank Squad (2025) [Ru/Multi] (1.0.12.1) Repack Let'sРlay
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15716.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15716.jpgsave_picture_15716.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Interstellar Space: Genesis (2019) [En] (1.6.3/dlc) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15717.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15717.jpgsave_picture_15717.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ Microsoft подаёт на банкротство в России
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15718.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15718.jpgsave_picture_15718.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ SketchUp Pro 2025 25.0.660 [Multi/Ru]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15719.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15719.jpgsave_picture_15719.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ SketchUp Pro 2025 25.0.660 RePack by KpoJIuK [Ru/En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15720.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15720.jpgsave_picture_15720.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ IObit Driver Booster Pro 12.5.0.597 RePack (& Portable) by elchupacabra [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15721.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15721.jpgsave_picture_15721.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ magnet:?xt=urn:btih:A01FEC5A931BC8C80F69533C0ED423A53CADFAE7
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15722.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15722.jpgsave_picture_15722.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ IObit Driver Booster Pro 12.5.0.597  RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15723.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15723.jpgsave_picture_15723.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ magnet:?xt=urn:btih:4B5A6CD0B90471A67C10490630DBD268C4DB8250
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15724.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15724.jpgsave_picture_15724.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ magnet:?xt=urn:btih:2A6713CEC7CB4626FBA2364133BD451E455A55ED
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15725.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15725.jpgsave_picture_15725.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Revo Uninstaller Pro 5.4.0 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15726.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15726.jpgsave_picture_15726.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ magnet:?xt=urn:btih:6A5C6205CFC32BFAF17CFAAAC50506EED63583AC
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15727.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15727.jpgsave_picture_15727.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ magnet:?xt=urn:btih:9E6819428D88324DA7DBDAACCEB02E229EE9243A
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15728.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15728.jpgsave_picture_15728.jpg" />
 </div>
 
 

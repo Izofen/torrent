@@ -6,7 +6,7 @@ Ui Kits - UI8 - Akshan - Furniture E-Commerce UI Kit [FIG]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4107.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4107.jpgsave_picture_4107.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:DE0EA328B87A33C560C0705BAEDF664D8B6B9C8F
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4108.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4108.jpgsave_picture_4108.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:FC7D64192FE58151F6B36F8321F903A50A51EAA2
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4109.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4109.jpgsave_picture_4109.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:A35B2D2E72C3AE141B4058B286D91C6C4AE9896E
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4110.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4110.jpgsave_picture_4110.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:11312431CDD0B93E23DA7BC2BBF07F3545B09A52
 >>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4111.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4111.jpgsave_picture_4111.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:76585BFC25B2588801A6DEFE655E5AF740121F00
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4112.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4112.jpgsave_picture_4112.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:A45A673E21DF25D9B02BE0E6ED42D3D614757117
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4113.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4113.jpgsave_picture_4113.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:35B4BC3F135178FD74C9765F00511ABBA6E46171
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4114.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4114.jpgsave_picture_4114.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:FD539D69EE13A602225A09B461BC781550E58493
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4115.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4115.jpgsave_picture_4115.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:9ADF93015403FB00DEF32516D4B6390E16A054DB
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4116.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4116.jpgsave_picture_4116.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:39C4DB2EF8D5C8B38211F942450E21FE963D7BF4
 >>Историческая проза, Мифы и Легенды
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4117.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4117.jpgsave_picture_4117.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:1037AA37E4FC489AFA5C5CF613F8551BC2D49A95
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4118.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4118.jpgsave_picture_4118.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:568A30989898B3D0272C3E957399CA8831F4B10B
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4119.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4119.jpgsave_picture_4119.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:BAFB88A7FE4DAFD3B8995B9F511B026A1E99D56E
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4120.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4120.jpgsave_picture_4120.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ magnet:?xt=urn:btih:2AD7DED910DB7D580281D67D980442F0022AF83A
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4121.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4121.jpgsave_picture_4121.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Primal Fear - Domination (2025) [FLAC|Lossless|image + .cue] <Heavy Metal, Power
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4122.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4122.jpgsave_picture_4122.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ magnet:?xt=urn:btih:C15E2BCC6D011095F061CE79C2C9BDB0700D9632
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4123.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4123.jpgsave_picture_4123.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ magnet:?xt=urn:btih:4BF6E7667EA5D2F19D021CB32894C679A93B1027
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4124.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4124.jpgsave_picture_4124.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ magnet:?xt=urn:btih:3BD1412DC20F680F9FE0391F7023348B12FB31F1
 >>Космос
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4125.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4125.jpgsave_picture_4125.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ magnet:?xt=urn:btih:29EC1D464A93E668CA5ECCFDCDE37A1FB9D947B7
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4126.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4126.jpgsave_picture_4126.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Glenn Hughes - Chosen (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4127.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4127.jpgsave_picture_4127.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ magnet:?xt=urn:btih:4ADDE54B211D26F5579D979417D262AF26416296
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4128.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4128.jpgsave_picture_4128.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ magnet:?xt=urn:btih:81B7267EEDB62C100B548E0383DAFF5E0365EDB7
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4129.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4129.jpgsave_picture_4129.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ magnet:?xt=urn:btih:D7CA204D1EA5EEB3DCACE95ECF529B85212CB514
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4130.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4130.jpgsave_picture_4130.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ IObit Uninstaller Pro 15.0.0.8 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4131.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4131.jpgsave_picture_4131.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ magnet:?xt=urn:btih:0E67F231C320526E052D499FC13656B99BEA40D3
 >>Сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4132.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4132.jpgsave_picture_4132.jpg" />
 </div>
 
 

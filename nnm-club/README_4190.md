@@ -6,7 +6,7 @@
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129760.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129760.jpgsave_picture_129760.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Bad Touch - Bittersweet Satisfaction (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard-
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129761.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129761.jpgsave_picture_129761.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ James Morrison - The Awakening (2011) [MP3|320 кб/с]<Soul, Adult Contemporary
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129762.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129762.jpgsave_picture_129762.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ Green Day - BBC Sessions (2021) Live [FLAC|Lossless|tracks + .cue] <Punk>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129763.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129763.jpgsave_picture_129763.jpg" />
 </div>
 
 
@@ -117,7 +117,7 @@ magnet:?xt=urn:btih:F2CD56DF6025FCD64012EAA26FD73479F21F2F60
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129764.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129764.jpgsave_picture_129764.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Red Eye Temple - Vortex (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129766.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129766.jpgsave_picture_129766.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Skype 8.80.0.143 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129767.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129767.jpgsave_picture_129767.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ magnet:?xt=urn:btih:706F16EC2809184073B08AC2E08B4DB62703520D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129768.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129768.jpgsave_picture_129768.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ magnet:?xt=urn:btih:E07D8EF9072871F42620024243F567F7947A7F92
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129769.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129769.jpgsave_picture_129769.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ DaVinci Resolve Studio for Linux 17.4.2 Build 9 [amd64] (run, deb)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129770.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129770.jpgsave_picture_129770.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ magnet:?xt=urn:btih:1E63CFA05D14AE1DD9CF7709B385C0836CD76821
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129771.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129771.jpgsave_picture_129771.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ Ektomorf - Vivid Black (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal, Groov
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129772.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129772.jpgsave_picture_129772.jpg" />
 </div>
 
 
@@ -315,7 +315,7 @@ MAGIX Movie Edit Pro 2022 Premium 21.0.1.116 (x64) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129773.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129773.jpgsave_picture_129773.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ Crusade of Bards - Tales of the Seven Seas (2022) [FLAC|Lossless|image + .cue] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129774.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129774.jpgsave_picture_129774.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ magnet:?xt=urn:btih:3597FE548AC468E407D19309515A9529C76F9065
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129775.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129775.jpgsave_picture_129775.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ magnet:?xt=urn:btih:AE2AF8297FE36044E3C5635F617E854EB5473F71
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129777.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129777.jpgsave_picture_129777.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ magnet:?xt=urn:btih:9054725144DE4F144F31FA9D5D6C9C4E0963E1D1
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129778.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129778.jpgsave_picture_129778.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Beyond God - The Great Divide (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129779.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129779.jpgsave_picture_129779.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Google Chrome 97.0.4692.99 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129780.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129780.jpgsave_picture_129780.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ magnet:?xt=urn:btih:02727BDB0EFA851150E973D37404076B5158A46B
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129782.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129782.jpgsave_picture_129782.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ magnet:?xt=urn:btih:42301379FEC199DE0C4DB4574BD0DC846B449A90
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129783.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129783.jpgsave_picture_129783.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Pig - The Swining - Red Raw & Sore (1999) Remastered, 2023, Cleopatra Records [F
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129785.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129785.jpgsave_picture_129785.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ GPU-Z 2.44.0 + ASUS_ROG [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129786.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129786.jpgsave_picture_129786.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ magnet:?xt=urn:btih:8D3000D878AA8E51879744C0D1C21F3566E316E8
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129788.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129788.jpgsave_picture_129788.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Strike Master - Up For The Massacre X Anniversary Edition (2006) Reissue, 2016, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129789.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129789.jpgsave_picture_129789.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ magnet:?xt=urn:btih:A484A780D7F2B44AB1619713F2D652903A65658E
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129791.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129791.jpgsave_picture_129791.jpg" />
 </div>
 
 

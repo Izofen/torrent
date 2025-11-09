@@ -6,7 +6,7 @@
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173808.jpgsave_picture_173808.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ VA - The Forest Chill Lounge, Vol. 6 (2015) [AAC|~305 Kbps] <Chillout, Lounge, D
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173809.jpgsave_picture_173809.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:5EAB91A559A4639EB96B2EEA5D210A64C16B0C29
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173810.jpgsave_picture_173810.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:1101E58831466E3DD5DE727C86744C39E9C5C95A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173811.jpgsave_picture_173811.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Urahara | Урахара | Вопреки [2017, TV, 12 эп.] WEB-DL 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173813.jpgsave_picture_173813.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ VA - Ретро Шлягер Новогодний (2006) [MP3|320 Kbps] <Рет�
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173814.jpgsave_picture_173814.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ K-Lite Codec Pack Update 17.3.4 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_173815.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_173815.jpgsave_picture_173815.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - The Forest Chill Lounge, Vol. 14 (2019) [AAC|~309 Kbps] <Chillout, Lounge, 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173816.jpgsave_picture_173816.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:8675E166579C6948E4968780B295132359D74025
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173817.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173817.jpgsave_picture_173817.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ magnet:?xt=urn:btih:E42C9CABBE7ABF5E978735361F8B64F80FACE9D6
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173819.jpgsave_picture_173819.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ magnet:?xt=urn:btih:B224A1727E5C5E6C553E639129472841FC295F07
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173820.jpgsave_picture_173820.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ magnet:?xt=urn:btih:40F0F5D119F75403D0C08EFBB02654F6B2FBC17F
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_173821.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_173821.jpgsave_picture_173821.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ VA - Music For Everyone - Club House Vol.4 (2015) [MP3|320 кб/с] <House, Voca
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173822.jpgsave_picture_173822.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ magnet:?xt=urn:btih:77F080E2DBA375648C198EC73989D9868FC9ABBA
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173824.jpgsave_picture_173824.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ Skype 8.106.0.210 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173825.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173825.jpgsave_picture_173825.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ magnet:?xt=urn:btih:94D8C891F7655A6E3E309AA2D4EB4862B657D388
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173826.jpgsave_picture_173826.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ magnet:?xt=urn:btih:CC19920B5DF4218CB2DC732C6476671AC99FC89D
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173827.jpgsave_picture_173827.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ VA - The Forest Chill Lounge, Vol. 13 (2018) [AAC|~311 Kbps] <Chillout, Lounge, 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173828.jpgsave_picture_173828.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ Noize MC - Царь Горы (2016) [FLAC|Lossless|tracks] <Rap, Rap-Rock, Alter
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173829.jpgsave_picture_173829.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Scarlxrd - DeadRising (2021) [MP3|320 Kbps] <Trap, Hardcore Hip-Hop>
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_173830.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_173830.jpgsave_picture_173830.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ magnet:?xt=urn:btih:A2F9FCDD58DDC485AC25A26DD95FAE14C1714187
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173831.jpgsave_picture_173831.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Ableton Live Suite 11 v.11.3.12 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173833.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173833.jpgsave_picture_173833.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ magnet:?xt=urn:btih:F705AA91ED837536B0FC27E2B51F8A0532941E23
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173834.jpgsave_picture_173834.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ magnet:?xt=urn:btih:65687E2BEAFEE37BDC7322473A0C09DF18D7B50C
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173835.jpgsave_picture_173835.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ magnet:?xt=urn:btih:1C258575453015007FDCFF0A687C37AD0F67D061
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_173836.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_173836.jpgsave_picture_173836.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ VA - The Forest Chill Lounge, Vol. 8 (2016) [AAC|~323 Kbps] <Chillout, Lounge, D
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173837.jpgsave_picture_173837.jpg" />
 </div>
 
 

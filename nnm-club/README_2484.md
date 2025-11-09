@@ -6,7 +6,7 @@ Relligary - Hearts and Minds (2025) [MP3|320 Kbps] <Heavy, Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65334.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65334.jpgsave_picture_65334.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Black Majesty - Oceans of Black (2025) [MP3|320 Kbps] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65335.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65335.jpgsave_picture_65335.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:F9203E6527D55A569202A9893778CF8999A1CE92
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65336.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65336.jpgsave_picture_65336.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Midnight Darkwave - Among Bones and Corpses (2025) [FLAC|Lossless|WEB-DL|tracks]
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65337.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65337.jpgsave_picture_65337.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Kerry Kearney - The Kerry Kearney Band (2025) [FLAC|Lossless|WEB-DL|tracks] <Blu
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65338.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65338.jpgsave_picture_65338.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ magnet:?xt=urn:btih:EE118F104235ED3288B7FB92624A1B9DE0F6E2ED
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65339.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65339.jpgsave_picture_65339.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ magnet:?xt=urn:btih:491246E3B4942741C8FB336921278F8973CBE936
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65340.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65340.jpgsave_picture_65340.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Willie Buck & Bob Corritore - Oh Yeah! (2025) [FLAC|Lossless|WEB-DL|tracks] <Blu
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65341.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65341.jpgsave_picture_65341.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ MotoGP. Этап 11 из 22. Гран-при Германии. Гонка (13.07
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65342.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65342.jpgsave_picture_65342.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ Bernard Sellam & The Boyz From The Hood - Barnyard Boogie (2025) [FLAC|Lossless|
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65343.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65343.jpgsave_picture_65343.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ In The Woods... - Otra (2025) [FLAC|Lossless|WEB-DL|tracks] <Black Metal, Gothic
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65344.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65344.jpgsave_picture_65344.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Cabin AI - Memphis Soul (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65345.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65345.jpgsave_picture_65345.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Bluerock Junction - Thrift Store Queen (2025) [FLAC|Lossless|WEB-DL|tracks] <Blu
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65346.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65346.jpgsave_picture_65346.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Restive Plaggona - Manipulation Techniques (2025) [FLAC|Lossless|WEB-DL|tracks] 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65347.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65347.jpgsave_picture_65347.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Morgan Giosa - Supernova: A Blues Odyssey (2025) [FLAC|Lossless|WEB-DL|tracks] <
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65348.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65348.jpgsave_picture_65348.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Mighty Dead Rabbits - Fly High Again (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65349.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65349.jpgsave_picture_65349.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ magnet:?xt=urn:btih:AADC500BF6D8F33DBA60F52CEED9B5AE44A326FB
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65350.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65350.jpgsave_picture_65350.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Exvamon - Odyssey of Fate (2025) [FLAC|Lossless|WEB-DL|tracks] <Power, Heavy Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65351.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65351.jpgsave_picture_65351.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Tropical Fuck Storm (TFS) - Fairyland Codex (2025) [FLAC|Lossless|WEB-DL|tracks]
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65352.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65352.jpgsave_picture_65352.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ MotoGP. Этап 11 из 22. Гран-при Германии. Спринт (12.
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65353.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65353.jpgsave_picture_65353.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Frank Walker - Live @  Progressive House Never Died Tour, REBEL Toronto, Canada 
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65354.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65354.jpgsave_picture_65354.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ MotoGP. Этап 11 из 22. Гран-при Германии. Квалифик�
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65355.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65355.jpgsave_picture_65355.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Formless - Eon (2016) [FLAC|Lossless|WEB-DL|tracks] <Technical Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65356.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65356.jpgsave_picture_65356.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Gruesome - Fragments of Psyche (2017) (EP) [FLAC|Lossless|WEB-DL|tracks] <Progre
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65357.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65357.jpgsave_picture_65357.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ magnet:?xt=urn:btih:96B13E02069B4164135304C2342B9144DE0D8812
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65358.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65358.jpgsave_picture_65358.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ magnet:?xt=urn:btih:28C339DDDE4536E4CBFB6F50468B084900275178
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65359.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65359.jpgsave_picture_65359.jpg" />
 </div>
 
 

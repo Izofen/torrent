@@ -6,7 +6,7 @@
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213465.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213465.jpgsave_picture_213465.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Crematory - Klagebilder (2006) Reissue, 2025, Roar [FLAC 24/44.1|Lossless|WEB-DL
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213467.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213467.jpgsave_picture_213467.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:AFCFF893E71D9C257E845C244C23273BFB3B779C
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213468.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213468.jpgsave_picture_213468.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:27D35BA8712F0185DA0FC4C20999FEC1A43741F4
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213469.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213469.jpgsave_picture_213469.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:58942B37335D8438675942A8294C9B552782C901
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213470.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213470.jpgsave_picture_213470.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:CD706B4922BDFEEAFEFFFD038F01C1D93B37C904
 >>Русский Рок (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213471.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213471.jpgsave_picture_213471.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:DC1FFCAFEFD0682BC3E42861097FDC5ED0D5866A
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213472.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213472.jpgsave_picture_213472.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Kurt Edelhagen featuring Ken Wray - Icons of Jazz: Edelhagen meets Ken Wray (202
 >>Jazz (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213473.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213473.jpgsave_picture_213473.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:2619DFF0BFBB615B3E27892E503AE7E75F11773B
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213474.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213474.jpgsave_picture_213474.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ magnet:?xt=urn:btih:8D5BF3DFA7ED97AD83878046D1F0A9A96CD101AA
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213475.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213475.jpgsave_picture_213475.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ Eddie Kirk Quartet - Glass Cities (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Sm
 >>Jazz (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213476.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213476.jpgsave_picture_213476.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ Ui Kits - UI8 - Enefty - NFT Website UI Kit [FIG]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213477.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213477.jpgsave_picture_213477.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ JetBrains Rider 2025.2.4 (x64-arm64) Repack by IDE`a [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213478.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213478.jpgsave_picture_213478.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ magnet:?xt=urn:btih:E471497C4631C0D3229CE472F2CE869FF145DB5A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213479.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213479.jpgsave_picture_213479.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ MyLanViewer 6.6.3 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213480.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213480.jpgsave_picture_213480.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ magnet:?xt=urn:btih:60484BDE2CBBA63E0C1F414ABC9A6B1FC1610E6D
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213481.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213481.jpgsave_picture_213481.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ ReteoX - Favorites Collection Part 2 (2025) [MP3|320 Kbps] <Electronic, Vocal>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213482.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213482.jpgsave_picture_213482.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Chicago Blues Radio - Favorites Collection Part 1 (2025) [MP3|320 Kbps] <Blues, 
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213483.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213483.jpgsave_picture_213483.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ VA - Ibiza Winter Session 2026 (The House Hotties) (2025) [FLAC|Lossless|WEB-DL|
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213484.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213484.jpgsave_picture_213484.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ magnet:?xt=urn:btih:7071191FA515ADFE437A280149DED7B9A3971E24
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213485.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213485.jpgsave_picture_213485.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ magnet:?xt=urn:btih:CBA0CDBC09F26AE32F816AE9006F74C18E3E74E4
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213486.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213486.jpgsave_picture_213486.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ magnet:?xt=urn:btih:F4D897E54A209F6F2AB5292AD9C2177FE543DB72
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213487.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213487.jpgsave_picture_213487.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ magnet:?xt=urn:btih:0390DCB1B0C12B926DD1AEC1FA0371D7BCDF08EE
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213488.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213488.jpgsave_picture_213488.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ magnet:?xt=urn:btih:418E8AC2A3D70481922165F758F84CB4A773B0D7
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213490.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213490.jpgsave_picture_213490.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ magnet:?xt=urn:btih:12B1BDCFF6BBB96145C96DE039A44B1FC3AF94A2
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213493.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213493.jpgsave_picture_213493.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ Udemy, Creativity Unleashed | Complete Blender Megacourse: Beginner to Expert - 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213494.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213494.jpgsave_picture_213494.jpg" />
 </div>
 
 

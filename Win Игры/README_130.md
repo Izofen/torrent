@@ -6,7 +6,7 @@ Gori: Cuddly Carnage (2024) [Multi] (1.0.187/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37162.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37162.jpgsave_picture_37162.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Tetris Forever (2024) [Multi] (1.00) Scene Skidrow
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37236.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37236.jpgsave_picture_37236.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Tavern Talk (2024) [Multi] (20241111/dlc) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37240.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37240.jpgsave_picture_37240.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Black Book / Черная Книга (2021) [Ru/Multi] (build 12000953) Repack d
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37245.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37245.jpgsave_picture_37245.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Sker Ritual (2022) [Ru/Multi] (1.2.0.23982/dlc) Repack Other s [Ultimate Edition
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37247.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37247.jpgsave_picture_37247.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ art of rally (2020) [Ru/Multi] (1.5.7/dlc) License GOG [Deluxe Edition]
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37254.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37254.jpgsave_picture_37254.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Millennia (2024) [Ru/Multi] (1.0.22991.F/dlc) Repack FitGirl [Premium Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37263.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37263.jpgsave_picture_37263.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Until Dawn / Дожить до рассвета (2024) [Ru/Multi] (1.06) Repack 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37326.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37326.jpgsave_picture_37326.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Ultimate Admiral: Dreadnoughts (2023) [Ru/Multi] (1.6.0.9) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37340.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37340.jpgsave_picture_37340.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Destiny Star Girlfriend (2023) [Multi] (1.0.2/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37390.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37390.jpgsave_picture_37390.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Destiny Star Girlfriend 2 (2024) [Multi] (1.0.0/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37416.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37416.jpgsave_picture_37416.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Farming Simulator 25 (2024) [Ru/Multi] (1.2.1.0/dlc) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37428.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37428.jpgsave_picture_37428.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Dawn of the Ashen Queen (2024) [En] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37430.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37430.jpgsave_picture_37430.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Dead Season (2024) [Ru/Multi] (1.0.0.7) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37433.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37433.jpgsave_picture_37433.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Chains of Fury (2024) [Ru/Multi] (1.0.1.6) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37441.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37441.jpgsave_picture_37441.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Warhammer 40,000: Inquisitor - Martyr (2018) [Ru/Multi] (2.9.4/dlc) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37450.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37450.jpgsave_picture_37450.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Flotsam (2019) [Ru/Multi] (0.8.5f1) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37452.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37452.jpgsave_picture_37452.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Forza Horizon 3 (2016) [Ru/Multi] (1.0.125.2/dlc) Repack dixen18
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37453.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37453.jpgsave_picture_37453.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Craftomation 101: Programming & Craft (2024) [Ru/Multi] (0.84.4) License GOG [Ea
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37457.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37457.jpgsave_picture_37457.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Cult of the Lamb (2022) [Ru/Multi] (1.4.5.593/dlc) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37461.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37461.jpgsave_picture_37461.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Valley Peaks (2024) [Multi] (1.0.8.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37467.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37467.jpgsave_picture_37467.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Lunacy: Saint Rhodes (2023) [Ru/Multi] (1.003) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37488.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37488.jpgsave_picture_37488.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Warm Snow (2022) [Ru/Multi] (3.1.0.1/dlc) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37489.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37489.jpgsave_picture_37489.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Farming Simulator 25 (2024) [En] (1.2.1.0) Scene Rune
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37490.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37490.jpgsave_picture_37490.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Wall World (2023) [Ru/Multi] (1.2.4.512/dlc) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37496.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37496.jpgsave_picture_37496.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Hello Neighbor 2 (2022) [Ru/Multi] (4.27.2.0/dlc) License GOG [Deluxe Edtion]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37511.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37511.jpgsave_picture_37511.jpg" />
 </div>
 
 

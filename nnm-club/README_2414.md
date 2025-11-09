@@ -6,7 +6,7 @@ WebForMySelf | Закрытый клуб для веб-мастеров. Под�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63131.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63131.jpgsave_picture_63131.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:2543A818258A478D1F9347DC6E00BAA842CB9490
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63132.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63132.jpgsave_picture_63132.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:81ACC5EC7D451BE4D2D9F4AF78573AF3617AA843
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63133.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63133.jpgsave_picture_63133.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:B8476512383CAD0192EFBA92605F5956FD8179DD
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63134.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63134.jpgsave_picture_63134.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:156E68F0B86F8FFBBDF146FD33F118A27AB948DA
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63135.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63135.jpgsave_picture_63135.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Taxi Life: A City Driving Simulator (2024) [Ru/Multi] (13655355/dlc) Repack Othe
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63136.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63136.jpgsave_picture_63136.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ BBC: Величайшие явления природы / Nature's Great Events 
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63137.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63137.jpgsave_picture_63137.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:E48084B2857045ECB51617B83E286CC2BC3250B4
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63138.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63138.jpgsave_picture_63138.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Microsoft Office 2021 for Mac LTSC v.16.83 VL [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63139.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63139.jpgsave_picture_63139.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:4E93A226A12B31AE75F970A57956E3D1DB891965
 >>Касл / Castle
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63140.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63140.jpgsave_picture_63140.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:09419598FE3766959DB67F5B0778FB816A102E2B
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63141.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63141.jpgsave_picture_63141.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ XCOM 2: Long War of the Chosen (2021) [Ru/Multi] (1.1.0 HF3) Repack/Mod firstlas
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63142.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63142.jpgsave_picture_63142.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ magnet:?xt=urn:btih:78C4AEA3E80F816161182524007D689737BE499F
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63143.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63143.jpgsave_picture_63143.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Northgard v.3.4.8.36964 (2018) [Multi/Ru] [macOS Native game]
 >>Strategy, RPG для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63144.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63144.jpgsave_picture_63144.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Slurm (Слёрм), Павел Калашников | Linux для разраб�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63145.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63145.jpgsave_picture_63145.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Creative Shrimp, Gleb Alexandrov | Cinematic Lighting in Blender (2022) PCRec [E
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63146.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63146.jpgsave_picture_63146.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ magnet:?xt=urn:btih:C86E8B47DAB54A79BF4412A4EB999E3C0196FC92
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63147.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63147.jpgsave_picture_63147.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Windows 10 x64 Rus by OneSmiLe [19045.4170]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63148.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63148.jpgsave_picture_63148.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ magnet:?xt=urn:btih:E19A3F2BEA7E79C63F37F796FDAEAA4E9989D633
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63149.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63149.jpgsave_picture_63149.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ magnet:?xt=urn:btih:820F5608CABE63FBD9EE92626B5650E731B20B17
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63150.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63150.jpgsave_picture_63150.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ magnet:?xt=urn:btih:10C94BA1A8A5753D599165126CBEB8DB13137480
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63151.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63151.jpgsave_picture_63151.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ Windows 11 x64 Rus by OneSmiLe [22631.3296]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63152.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63152.jpgsave_picture_63152.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ magnet:?xt=urn:btih:30FD483B6BD8ABEF580F94AFB30A72A173146ABC
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63153.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63153.jpgsave_picture_63153.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Windows 10 Enterprise LTSC 2021 21H2 19044.4170 (Updated March 2024) by FaTaL [R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63154.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63154.jpgsave_picture_63154.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Zorin OS 17.1 Pro / Core / Edu [x64] 3xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63155.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63155.jpgsave_picture_63155.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ CCleaner 6.22.10977 Free / Professional / Business / Technician Edition RePack (
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63156.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63156.jpgsave_picture_63156.jpg" />
 </div>
 
 

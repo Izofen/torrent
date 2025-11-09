@@ -6,7 +6,7 @@ Udemy, 3D Tudor | Blender Beginner’s Bootcamp (2023) WEB-DL [AD] [EN, RU / EN,
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162690.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162690.jpgsave_picture_162690.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ KiCad 5.1.12 RePack by NikZayatS2018 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162691.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162691.jpgsave_picture_162691.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ KCNcrew Pack 12-15-22 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162692.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162692.jpgsave_picture_162692.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:72DFE86054D32D66A66EE4DCF12BC6F7212E3B11
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162693.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162693.jpgsave_picture_162693.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ VA - Хиты 80-х. Как молоды мы были (в 4-х частях) (2
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162694.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162694.jpgsave_picture_162694.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ magnet:?xt=urn:btih:F7B29F1B3465E01270C4FDD232623E3566E4E6AD
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162695.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162695.jpgsave_picture_162695.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:9C6A05782AE237B1355D1910B5EAA7D42C3EC162
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162696.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162696.jpgsave_picture_162696.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Udemy, А_мир Хамитов | AutoCAD с нуля и до очень даж�
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162697.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162697.jpgsave_picture_162697.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:D94BB7F41CDC44C9F14A2FBB573E901F31E58E30
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162698.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162698.jpgsave_picture_162698.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:7ED6EA02ACCD8B7FD2B1669C6855A71886CBA93E
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162699.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162699.jpgsave_picture_162699.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ magnet:?xt=urn:btih:EA8A8907E5DE57A2E46C8EA9A02570F43842F29E
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162700.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162700.jpgsave_picture_162700.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ magnet:?xt=urn:btih:4577048A121B04E69097A1095DFE7F3B69F97D38
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162701.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162701.jpgsave_picture_162701.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:3DCF3A5CAD3C8D66F61812470A974E1D88C4FC61
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162702.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162702.jpgsave_picture_162702.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ magnet:?xt=urn:btih:B9398EDBD2FA5E42BF0E4B6DC4F98DDEA9AA1D52
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162703.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162703.jpgsave_picture_162703.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ magnet:?xt=urn:btih:F93BA6F5C98623FFC3F221E2622049FCD0368F26
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162704.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162704.jpgsave_picture_162704.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ magnet:?xt=urn:btih:5E01A3A8C7C7EB6AE484D8A00F2DA138A0ED3D24
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162705.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162705.jpgsave_picture_162705.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ magnet:?xt=urn:btih:ED5DCACBD7D0CD08A1D4D12D01128EEE41BE40AB
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162706.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162706.jpgsave_picture_162706.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ VA - Старая танцплощадка. Незабываемые имена 
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162707.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162707.jpgsave_picture_162707.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ VideoDuke 2.10 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162708.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162708.jpgsave_picture_162708.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ magnet:?xt=urn:btih:3776C05CE11A0FAEB8F40EEC81367C5C7B03BC01
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162709.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162709.jpgsave_picture_162709.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ magnet:?xt=urn:btih:4674D4D77930EF0E82F6C39013990C3F7B5295C7
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162710.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162710.jpgsave_picture_162710.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ magnet:?xt=urn:btih:CD1E893457A8E34B83307F7016E8774CACFFCEBE
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162711.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162711.jpgsave_picture_162711.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ magnet:?xt=urn:btih:F4425989F15A23E2778A8C14EDF952BB7EE2E0BD
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162712.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162712.jpgsave_picture_162712.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ magnet:?xt=urn:btih:F0427C6A990578339C783B4AB2A15139EDCA6857
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162713.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162713.jpgsave_picture_162713.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ VA - Кружатся диски. Хиты 70-х (2002) CD № 1-2 [APE|Lossless
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162714.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162714.jpgsave_picture_162714.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ magnet:?xt=urn:btih:D487DFF400A9A84A2991F8F844694E1311C60D3E
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162715.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162715.jpgsave_picture_162715.jpg" />
 </div>
 
 

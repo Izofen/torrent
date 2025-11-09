@@ -6,7 +6,7 @@
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137408.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137408.jpgsave_picture_137408.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:255258C643908EA3B33A89ED1FF0CFA5EA559034
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137409.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137409.jpgsave_picture_137409.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ DVDFab StreamFab 6.1.5.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137410.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137410.jpgsave_picture_137410.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Darling in the Franxx | Любимый во Франксе [2018, TV, 24 эп.] 
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137411.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137411.jpgsave_picture_137411.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:A57E698C8B55F5E730651AE4548F372EC7CEF3E1
 >>2D графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137412.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137412.jpgsave_picture_137412.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ Jixipix Premium Pack 1.2.11 (x64) Portable by Spirit Summer [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137413.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137413.jpgsave_picture_137413.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ Kekkai Sensen & Beyond | Фронт кровавой блокады-2 [2017, TV,
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137414.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137414.jpgsave_picture_137414.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:6886D3B0722112748AF022B940BB2883AAA4C3F0
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137415.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137415.jpgsave_picture_137415.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ Champions of Anteria (2016) [Ru/En] (1.7.499537.X/dlc) Repack R.G. Механи�
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137416.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137416.jpgsave_picture_137416.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:53D586173FBEA11E63342F8F4B06A86C2AD9BE7D
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137417.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137417.jpgsave_picture_137417.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Himote House | Himote House: A Share House of Super Psychic Girls | Дом Хи�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137418.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137418.jpgsave_picture_137418.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ magnet:?xt=urn:btih:03DBFAF011A075809037A7366BC74B8629E5E8F7
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137419.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137419.jpgsave_picture_137419.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ magnet:?xt=urn:btih:5EB5FC47C776C7F4883C7FDC06B9AA287D6BB673
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137420.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137420.jpgsave_picture_137420.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ magnet:?xt=urn:btih:CBD9E8EDC48351603CD6F1791E958A7C40AA89D3
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137421.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137421.jpgsave_picture_137421.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ magnet:?xt=urn:btih:2EBEE27F3BF322845CAC5B0EA650D03014B1C4B5
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137422.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137422.jpgsave_picture_137422.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ magnet:?xt=urn:btih:D8EEA496A98ECA2FA5135DC245F610F1354AA357
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137423.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137423.jpgsave_picture_137423.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Jenn Mishra | 100+ Art Styles for Midjourney (2023) [PDF] [EN]
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137424.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137424.jpgsave_picture_137424.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ magnet:?xt=urn:btih:3294C9FCD05DD4EC651457296D47379E6C2EB42B
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137425.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137425.jpgsave_picture_137425.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ magnet:?xt=urn:btih:6086DF80CFDF2729A85301DB46FF0C1FF6E84492
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137426.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137426.jpgsave_picture_137426.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Topaz Photo AI 2.1.2 (x64) RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137427.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137427.jpgsave_picture_137427.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ magnet:?xt=urn:btih:E3EB0D6BF49CFA9A12FB545061DFA3B03B8A677E
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137428.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137428.jpgsave_picture_137428.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:D8981C67608A552F423CEEF0A5960ACBB5375105
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137429.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137429.jpgsave_picture_137429.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Network Security Toolkit (NST) 30-11210 [x86_64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137430.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137430.jpgsave_picture_137430.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ magnet:?xt=urn:btih:65293F81A700857712493BB845F75DCB02EF3132
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137431.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137431.jpgsave_picture_137431.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ magnet:?xt=urn:btih:9A621132763D517F772AB508BDB56CEC9215FCAD
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137432.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137432.jpgsave_picture_137432.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Fstoppers, Elia Locardi | Photographing the World 5 - Japan (2023) PCRec [EN]
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137433.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137433.jpgsave_picture_137433.jpg" />
 </div>
 
 

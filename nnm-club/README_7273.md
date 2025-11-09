@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_248926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_248926.jpgsave_picture_248926.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ WebBrowserPassView 1.26 [Мульти, Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_248928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_248928.jpgsave_picture_248928.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ WebBrowserPassView – это утилита, позволяющая просм�
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248930.jpgsave_picture_248930.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ magnet:?xt=urn:btih:1111B7AADB02BE335075CDCA5BE9B90DCF0725E2
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248931.jpgsave_picture_248931.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ magnet:?xt=urn:btih:8B70450C3C9141AEACDA55951932AB4BE59A3250
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_248933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_248933.jpgsave_picture_248933.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ Tasogare Otome x Amnesia OP Single - CHOIR JAIL [Suzuki Konomi] (2012, FLAC) <OS
 >>Аниме OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248935.jpgsave_picture_248935.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ magnet:?xt=urn:btih:4CDCAC97F718839C537F0A63BAB0DE045A70D91F
 >>Изобразительное искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248936.jpgsave_picture_248936.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ Angry Birds Space {1.1.0} (L) [En] 2012 | THETA
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248937.jpgsave_picture_248937.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ magnet:?xt=urn:btih:1F4F1AD585A131176C3AF0CF1B838E5A524D9993
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248938.jpgsave_picture_248938.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ magnet:?xt=urn:btih:D7744377DB17E8E832390573F7ABD4F8D400B88F
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248939.jpgsave_picture_248939.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ Garden Defense / Огородные войны. Атака жуков (P) [Ru] 2
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248941.jpgsave_picture_248941.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ VA - 9 Мая: Лучшая 150-ка с праздником Победы! (2012
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248942.jpgsave_picture_248942.jpg" />
 </div>
 
 
@@ -314,7 +314,7 @@ Various Artists - Музыка миров Fallout и BioShock (1920-1960) [MP3|1
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248943.jpgsave_picture_248943.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ magnet:?xt=urn:btih:0EC45185581300CC2E718DAF2D9FB6083087E5D4
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_248945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_248945.jpgsave_picture_248945.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ magnet:?xt=urn:btih:0EC45185581300CC2E718DAF2D9FB6083087E5D4
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248947.jpgsave_picture_248947.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ magnet:?xt=urn:btih:268C68C9D4E8F99EFA7A616CB2F35C7952DA02B7
 >>Изобразительное искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248948.jpgsave_picture_248948.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ magnet:?xt=urn:btih:18A9085B9F42EBB6A3982CC06EC0BAE8A3E9FACA
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248949.jpgsave_picture_248949.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ magnet:?xt=urn:btih:C262FCD53AC18E9DF37274B75C734DE004A3DA26
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_248953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_248953.jpgsave_picture_248953.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ magnet:?xt=urn:btih:C262FCD53AC18E9DF37274B75C734DE004A3DA26
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_248954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_248954.jpgsave_picture_248954.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ magnet:?xt=urn:btih:C262FCD53AC18E9DF37274B75C734DE004A3DA26
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_248960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_248960.jpgsave_picture_248960.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ cFosSpeed v8.00 Build 1946 Final [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_248961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_248961.jpgsave_picture_248961.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ cFosSpeed поддерживает (   Читать дальше...   )Назв
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_248962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_248962.jpgsave_picture_248962.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Der Blutharsch (And The Infinite Church Of The Leading Hand) - 19 albums (1996-2
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_248963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_248963.jpgsave_picture_248963.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ VA - 9 мая День Победы - 65 лет 1945-2010 (2010) [MP3|320 kbps]<
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248964.jpgsave_picture_248964.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ magnet:?xt=urn:btih:FF86674C50E17B57D81FAEBE35BDA661DA7F4042
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248966.jpgsave_picture_248966.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ magnet:?xt=urn:btih:DE905F32364133CD092A7FE5075CE5034E481AA9
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248967.jpgsave_picture_248967.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178244.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178244.jpgsave_picture_178244.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Nutbreaker - 2 EP (2021-2022) [MP3|320 Kbps] <Nu-Metal, Rapcore>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178247.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178247.jpgsave_picture_178247.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Gutlocker - To Be Alive (2022) [MP3|320 Kbps] <Groove Metal, Sludge Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178249.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178249.jpgsave_picture_178249.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Anomaly - Terms of the Saw Doctor (2014) EP [FLAC|Lossless|WEB-DL|tracks] <Death
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178251.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178251.jpgsave_picture_178251.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Euphrosyne - Keres (2022) EP [FLAC|Lossless|WEB-DL|tracks] <Melodic Black, Doom,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178255.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178255.jpgsave_picture_178255.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Tzompantli - 2 Albums (2020-2022) [MP3|320 Kbps] <Death Metal, Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_178258.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_178258.jpgsave_picture_178258.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Anomaly - Planet Storm (2021) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178263.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178263.jpgsave_picture_178263.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ magnet:?xt=urn:btih:2BDF5FBE15CCF5FA61C79F2B6B6CD19AA98A62BF
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178280.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178280.jpgsave_picture_178280.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ grust200 - Традиционные ценности (2023) [MP3|320 Kbps] <Alte
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178300.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178300.jpgsave_picture_178300.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Unheilig - Als Musik Meine Sprache Wurde (2013) Digipack 5CD [FLAC|Lossless|imag
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178330.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178330.jpgsave_picture_178330.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Black Stone Cherry - Screamin' At The Sky (2023) [FLAC|Lossless|tracks + .cue] <
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178346.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178346.jpgsave_picture_178346.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Carnifex - Necromanteum (2023) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <Deathcore>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178365.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178365.jpgsave_picture_178365.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Brant Bjork and The Bros - Saved By Magic Again (2005) Remastered, 2023, Heavy P
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178375.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178375.jpgsave_picture_178375.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Brant Bjork - Saved By Magic Again (2005) Remastered , 2023, Heavy Psych Sounds 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178379.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178379.jpgsave_picture_178379.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Epica - Live At AFAS Live (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178396.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178396.jpgsave_picture_178396.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Unheilig - Danke! Ein Letztes Mal - Live (2016) 2CD [FLAC|Lossless|image + .cue]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178419.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178419.jpgsave_picture_178419.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Lunar Tombfields - An Arrow To The Sun (2023) [FLAC|Lossless|WEB-DL|tracks] <Atm
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178426.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178426.jpgsave_picture_178426.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Iron Altar - Promethean (2023) [FLAC|Lossless|WEB-DL|tracks] <Groove Metal, Mode
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178429.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178429.jpgsave_picture_178429.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Unheilig - Puppenspiel Live - Vorhang Auf! (2008) 2CD [FLAC|Lossless|image + .cu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178433.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178433.jpgsave_picture_178433.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Salacious Gods - Oalevluuk (2023) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178439.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178439.jpgsave_picture_178439.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Porcupine Tree - Closure / Continuation (2022) [FLAC|Lossless|image + .cue] <Pro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178748.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178748.jpgsave_picture_178748.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:1463EFADC94703D21A6608A777615F7ECAF22CC4
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178757.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178757.jpgsave_picture_178757.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Autograph - Beyond (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178760.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178760.jpgsave_picture_178760.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ magnet:?xt=urn:btih:5E944BA57E79066714681F30867027DCC852BA31
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178765.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178765.jpgsave_picture_178765.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Endless Tapes - Third Reel (2022) EP [FLAC 2.0|48/24|tracks|WEB-DL] <Progressive
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178773.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178773.jpgsave_picture_178773.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Elisa C. Martin - Nothing Without Pain (2022) [FLAC|Lossless|WEB-DL|tracks] <Hea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178774.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178774.jpgsave_picture_178774.jpg" />
 </div>
 
 

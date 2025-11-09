@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121236.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121236.jpgsave_picture_121236.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:64703E0A1E965DA257BB51D7767C366DDAC54382
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121237.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121237.jpgsave_picture_121237.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Ventoy 1.0.97 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121238.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121238.jpgsave_picture_121238.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:C701EB40CCCFBAFDE7286642A2786D5028DEFBFD
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121239.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121239.jpgsave_picture_121239.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:B33E3A5DD08FB94D7F8A1AC0177AC03017FE97DF
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121240.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121240.jpgsave_picture_121240.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ OTUS , Алексей Кулиничев, Роман Помазанов, Ива�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121241.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121241.jpgsave_picture_121241.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ magnet:?xt=urn:btih:AEABAB241CB7A3F5965BB7286C81EEB357D61B78
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121242.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121242.jpgsave_picture_121242.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ Corona Renderer 11.1 for 3ds Max 2016-2024 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121243.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121243.jpgsave_picture_121243.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ iTop VPN 5.3.0.5103 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121244.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121244.jpgsave_picture_121244.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ Dark Oath - When Fire Engulfs the Earth (2016) [FLAC|Lossless|image + .cue] <Epi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121245.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121245.jpgsave_picture_121245.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ Misha Tsiganov - Playing With The Wind (2018) Criss Cross Jazz [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121246.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121246.jpgsave_picture_121246.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ Debit & Credit Premium 6.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121247.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121247.jpgsave_picture_121247.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ Cardhop 2.2.15 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121248.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121248.jpgsave_picture_121248.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ magnet:?xt=urn:btih:BF5171816F5823BD9B99FBD528EF41A8C6108337
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121249.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121249.jpgsave_picture_121249.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ External - Dreamscapes (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121250.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121250.jpgsave_picture_121250.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ Iris 1.6.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121251.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121251.jpgsave_picture_121251.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Sound Siphon 3.6.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121252.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121252.jpgsave_picture_121252.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ Text Workflow 1.8.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121253.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121253.jpgsave_picture_121253.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ Abysmal Grief - Funeral Cult of Personality (2021) [FLAC|Lossless|WEB-DL|tracks]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121254.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121254.jpgsave_picture_121254.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ Abysmal Grief - Blasphema Secta (2018) [FLAC|Lossless|image + .cue] <Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121255.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121255.jpgsave_picture_121255.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Abysmal Grief - Feretri (2013) [FLAC|Lossless|image + .cue] <Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121256.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121256.jpgsave_picture_121256.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Romantic Candlelight Dinner Jazz Zone, Romantic Jazz Music Club - Evening Dinner
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121257.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121257.jpgsave_picture_121257.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ AppKiller 3.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121258.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121258.jpgsave_picture_121258.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ iNet Network Scanner 3.0.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121259.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121259.jpgsave_picture_121259.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Jack Russell & Tracii Guns - Medusa (2024) [FLAC|Lossless|image + .cue] <Heavy M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121260.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121260.jpgsave_picture_121260.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ magnet:?xt=urn:btih:C0AA70B974C66570715D56EC50A1EB7B47E39F95
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121261.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121261.jpgsave_picture_121261.jpg" />
 </div>
 
 

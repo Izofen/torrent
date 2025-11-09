@@ -6,7 +6,7 @@ Devilated (2021) [Multi] (1.01) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25340.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25340.jpgsave_picture_25340.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Memory Lost (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25346.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25346.jpgsave_picture_25346.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Warcraft I + II: Remastered (2024) [Ru/Multi] (1.0.0.2198/1.0.1.2242) Repack Dec
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25366.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25366.jpgsave_picture_25366.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Grand Theft Auto V Enhanced (2025) [Ru/Multi] (Build 811.8) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25373.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25373.jpgsave_picture_25373.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Isla de la Muerte (2025) [En] (1.0) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25376.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25376.jpgsave_picture_25376.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ YIIK: A Postmodern RPG (2019) [Multi] (1.5.003) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25398.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25398.jpgsave_picture_25398.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Trailmakers (2019) [Ru/Multi] (2.0.1.65085/dlc) Scene Rune
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25404.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25404.jpgsave_picture_25404.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Trailmakers (2019) [Ru/Multi] (2.0.1.65085/dlc) Repack FitGirl [Ultimate Edition
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25445.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25445.jpgsave_picture_25445.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ ULTRAKILL (2020) [En] (Patch 16c) Repack Other s [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25447.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25447.jpgsave_picture_25447.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Grand Theft Auto V Enhanced (2025) [Ru/Multi] (1.0.811.14) Repack dixen18
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25451.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25451.jpgsave_picture_25451.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Hundred Days - Winemaking Simulator (2021) [Ru/Multi] (1.8.0w1/dlc) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25457.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25457.jpgsave_picture_25457.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Memory Lost (2025) [Ru/Multi] (1.0) Repack Let'sРlay
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25458.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25458.jpgsave_picture_25458.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Warhammer 40,000: Space Marine (2011) [Ru/Multi] (1.0.1) Repack Decepticon [Anni
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25459.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25459.jpgsave_picture_25459.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ PowerWash Simulator (2022) [Ru/Multi] (1.10.0/dlc) Repack FitGirl [Ultimate Sati
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25461.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25461.jpgsave_picture_25461.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ magnet:?xt=urn:btih:FA33108196B0014A17707DC476426194A1EA5D25
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25462.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25462.jpgsave_picture_25462.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Citizen Sleeper 2: Starward Vector (2025) [En] (1.1.31) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25471.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25471.jpgsave_picture_25471.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Liminal Border Part I+II+III (2023-2025) [Multi] (1.0.1/1.0.2/1.0.2/dlc) License
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25473.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25473.jpgsave_picture_25473.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Lies of P (2023) [Ru/Multi] (1.5.0.0/dlc) Repack Decepticon [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25474.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25474.jpgsave_picture_25474.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Lyndaria Lust Adventure (2024) [Ru/Multi] (1.2.b/dlc) Repack Let'sРlay [18+]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25481.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25481.jpgsave_picture_25481.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Book of Hours (2023) [Ru/Multi] (2025.1.a.11/dlc) License GOG [Perpetual Edition
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25489.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25489.jpgsave_picture_25489.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Peaks of Yore (2023) [En] (1.9.7a/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25492.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25492.jpgsave_picture_25492.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Avowed (2025) [Ru/Multi] (1.2.11.0/dlc) Repack Decepticon [Premium Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25493.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25493.jpgsave_picture_25493.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ The Dark Eye: Chains of Satinav (2012) [Ru/Multi] (3.0.351.5517) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25499.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25499.jpgsave_picture_25499.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Age of Mythology: Retold (2024) [Ru/Multi] (100.18.9036.0/dlc) Scene Rune
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25508.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25508.jpgsave_picture_25508.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Phoenix Springs (2024) [En] (1.1.7) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25513.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25513.jpgsave_picture_25513.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Final Fantasy XVI (2024) [Ru/Multi] (1.03/dlc) Repack Wanterlude [Complete Editi
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25530.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25530.jpgsave_picture_25530.jpg" />
 </div>
 
 

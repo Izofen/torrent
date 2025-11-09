@@ -6,7 +6,7 @@ Lumnia - Humanity Despair (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235357.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235357.jpgsave_picture_235357.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Temple Of Riff - Rock Tone (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235358.jpgsave_picture_235358.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Balletto di Bronzo - Lemures (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235370.jpgsave_picture_235370.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Haunt - Beautiful Distraction (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235376.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235376.jpgsave_picture_235376.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Violent Sin - Serpent's Call (2023) [FLAC|Lossless|WEB-DL|tracks] <Speed Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235383.jpgsave_picture_235383.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Rebelstar - The Black Widow Anthems (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard R
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235391.jpgsave_picture_235391.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Feanor - We Are Heavy Metal (2016) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235393.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235393.jpgsave_picture_235393.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Nemesea - Uprise (2016) [FLAC|Lossless|image + .cue] <Symphonic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235394.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235394.jpgsave_picture_235394.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Alkonost - Songs of the Eternal Oak (2000) Anniversary Edition, 2023, Soundage P
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235401.jpgsave_picture_235401.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ This Is Falling - TIFwave (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Metal
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235407.jpgsave_picture_235407.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ HamaSaari - Ineffable (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Po
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235409.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235409.jpgsave_picture_235409.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Il Paradiso Degli Orchi - Samir (2020) [FLAC|Lossless|image + .cue] <Progressive
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235410.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235410.jpgsave_picture_235410.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Knights of Blood - El juicio de Osiris (2023) [FLAC|Lossless|WEB-DL|tracks] <Hea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235413.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235413.jpgsave_picture_235413.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Sir Chloe - I Am The Dog (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternati
 >>Alternative, Punk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235415.jpgsave_picture_235415.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ W.E.B - Jesus Heist (2008) [FLAC|Lossless|image + .cue] <Black Metal, Death Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235421.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235421.jpgsave_picture_235421.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Great Voyager - Great Voyager (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235424.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235424.jpgsave_picture_235424.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Exoto - Final Festering (2023) [FLAC|Lossless|WEB-DL|tracks] <Death, Thrash Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235429.jpgsave_picture_235429.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ LaMarca - LaMarca (1985) Reissue, Remastered, 2022, MelodicRock Classics [FLAC|L
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235435.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235435.jpgsave_picture_235435.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ The Dimitri Keiski Band - II (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235436.jpgsave_picture_235436.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ The Unresolved - Convalescence (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235441.jpgsave_picture_235441.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Preachers Of Distortion - Fight Or Flight (2023) [FLAC|Lossless|WEB-DL|tracks] <
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235444.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235444.jpgsave_picture_235444.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Ray Alder - II (2023) [FLAC|Lossless|image + .cue] <Progressive Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235445.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235445.jpgsave_picture_235445.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ sPoonman - Silent Psalm (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235447.jpgsave_picture_235447.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Primitai - Night Brings Insanity (2016) [FLAC|Lossless|WEB-DL|tracks] <Heavy Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235449.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235449.jpgsave_picture_235449.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ For The Fallen Dreams - For The Fallen Dreams (2023) [FLAC|Lossless|WEB-DL|track
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235455.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235455.jpgsave_picture_235455.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Ozzy Osbourne - Patient Number 9 (2022) [FLAC|Lossless|image + .cue] <Heavy Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235462.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235462.jpgsave_picture_235462.jpg" />
 </div>
 
 

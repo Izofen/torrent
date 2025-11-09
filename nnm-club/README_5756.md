@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178380.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178380.jpgsave_picture_178380.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Iron Savior - Firestar (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Power Metal
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178384.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178384.jpgsave_picture_178384.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:AB28905144B108F7D463395BC5E732D297E45008
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178385.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178385.jpgsave_picture_178385.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:7AB8481109EC142B7B106A663531C8BE51AEAD38
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178387.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178387.jpgsave_picture_178387.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Occams Laser - New Blood III (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <UK Sy
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178389.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178389.jpgsave_picture_178389.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Karfagen, Sunchild & Hoggwash - A Message of Peace Tour Live (2023) [FLAC 24/48|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178391.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178391.jpgsave_picture_178391.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:4AA4F5B0F485E4AEFA79D77036301BA4DE88571B
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178392.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178392.jpgsave_picture_178392.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ Epica - Live At AFAS Live (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178396.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178396.jpgsave_picture_178396.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ magnet:?xt=urn:btih:233D74A263EF4637E255EC61BCB048A6E44F2DE9
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178397.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178397.jpgsave_picture_178397.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ Carly — OBD2 car scanner 90.89_beta Mod by Fxolan [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178398.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178398.jpgsave_picture_178398.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ AIDA64 Extreme | Engineer | Business | Network Audit 6.80.6200 RePack (&Portable
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178403.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178403.jpgsave_picture_178403.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ magnet:?xt=urn:btih:CB5986C3DFA7D526EF0B21714C48C87BAD38F5FB
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178405.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178405.jpgsave_picture_178405.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ Topaz Gigapixel AI 6.2.2 Portable by NNM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178406.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178406.jpgsave_picture_178406.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:386CA9369A03AAE68D4A5B7F6D46E1EA893A787F
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178409.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178409.jpgsave_picture_178409.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Slaughter 1.9 [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178410.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178410.jpgsave_picture_178410.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ magnet:?xt=urn:btih:AC74E8CAE74459B8511AF45DB49ABDFB4387332C
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178412.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178412.jpgsave_picture_178412.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ magnet:?xt=urn:btih:AC1E3D26E746042A70D2FEDAC002BD8C112777F5
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178413.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178413.jpgsave_picture_178413.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Google Chrome 108.0.5359.72 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178414.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178414.jpgsave_picture_178414.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ The Riverboat Minstrels - Stereo Minstrel Show (1971) [FLAC 2.0|24/96|image + .c
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178416.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178416.jpgsave_picture_178416.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ magnet:?xt=urn:btih:CA3514335938754EA527CE7B81CE607123CA7589
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178417.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178417.jpgsave_picture_178417.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Unheilig - Danke! Ein Letztes Mal - Live (2016) 2CD [FLAC|Lossless|image + .cue]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178419.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178419.jpgsave_picture_178419.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Svalbard - The Weight Of The Mask (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Po
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178421.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178421.jpgsave_picture_178421.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ BELOFF [dp] 2022.11.4
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178422.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178422.jpgsave_picture_178422.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Auslogics BoostSpeed 13.0.0.2 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178423.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178423.jpgsave_picture_178423.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Lunar Tombfields - An Arrow To The Sun (2023) [FLAC|Lossless|WEB-DL|tracks] <Atm
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178426.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178426.jpgsave_picture_178426.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ magnet:?xt=urn:btih:030D5F57E8A95ED0DBEBCC99376CC67C20888FAB
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178427.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178427.jpgsave_picture_178427.jpg" />
 </div>
 
 

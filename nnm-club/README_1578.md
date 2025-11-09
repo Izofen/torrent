@@ -6,7 +6,7 @@
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41385.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41385.jpgsave_picture_41385.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:6A2EF1D4E0D6B1FE9C2BE3159779EEB177DF3A1E
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41386.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41386.jpgsave_picture_41386.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ Media Player Classic Home Cinema (MPC-HC) 2.3.6.0 + Portable (unofficial) [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41387.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41387.jpgsave_picture_41387.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:9D1C67005C8AFD63BB763B8F045033D6E300DD56
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41388.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41388.jpgsave_picture_41388.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:2485A7660FCD0727D89C7212201511A2998CB09D
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41389.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41389.jpgsave_picture_41389.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:0E0CD3E86D11E4332CEF451A0F8A1D988B404854
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41390.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41390.jpgsave_picture_41390.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ VA - Суперхиты Дискотеки 90-х Vol.3 (2011) [OGG Vorbis|480 Kb
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41391.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41391.jpgsave_picture_41391.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:F559C3F02796829EF6970DA88B03494C6488008A
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41392.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41392.jpgsave_picture_41392.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ Satellite Odyssey: Prologue (2024) [Ru/En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41393.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41393.jpgsave_picture_41393.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ Atri: My Dear Moments | Атри: Мои бесценные мгновенья [
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41394.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41394.jpgsave_picture_41394.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:8D35B6E46267AAB55EAFD4DFF0C11A78A2103D53
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41395.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41395.jpgsave_picture_41395.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:A02C59B9086D7C12E321093AC9323BD71B61DC5B
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41396.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41396.jpgsave_picture_41396.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Psycho Fear (2024) [Multi] (1.2) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41397.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41397.jpgsave_picture_41397.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ LibreOffice 24.8.2.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41398.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41398.jpgsave_picture_41398.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ magnet:?xt=urn:btih:0D8AD9D6F6DDF116B9B84D8935840C1572DAC205
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41399.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41399.jpgsave_picture_41399.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ magnet:?xt=urn:btih:74F474E00B18F35C1019B5F87B7B8BDE795CAA8B
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41400.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41400.jpgsave_picture_41400.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ magnet:?xt=urn:btih:4D0121733F747E1130709F5693D82812E6DC5F1A
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41401.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41401.jpgsave_picture_41401.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Microsoft PowerToys 0.85.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41402.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41402.jpgsave_picture_41402.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ magnet:?xt=urn:btih:41ECFA86172DC70FFE8480D5818145A948F8FD3E
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41403.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41403.jpgsave_picture_41403.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ magnet:?xt=urn:btih:7AB4F72C4C53D453999CD53A5D812EF579990459
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41404.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41404.jpgsave_picture_41404.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ VA - ЕвроХит Топ 40 Europa Plus 04.10.2024 [MP3|320 Kbps] <Pop, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41405.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41405.jpgsave_picture_41405.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ magnet:?xt=urn:btih:7C6022EF62FAC551F1142D053D9F8F5D1F35E135
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41406.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41406.jpgsave_picture_41406.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ magnet:?xt=urn:btih:F1647856E7D76611FB8BC39282567EFCEADADDE8
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41407.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41407.jpgsave_picture_41407.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ magnet:?xt=urn:btih:3E1C0DDED3B7D2DA8D132A57608DAF570BF28456
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41408.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41408.jpgsave_picture_41408.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ magnet:?xt=urn:btih:AE719DF7452E9F5D3BB1A61981A2E14B35A84896
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41409.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41409.jpgsave_picture_41409.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Logo Maker v43.05 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41410.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41410.jpgsave_picture_41410.jpg" />
 </div>
 
 

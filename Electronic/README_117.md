@@ -6,7 +6,7 @@ Cyberwalker - Future Waves, Vol. 1-2 (2019-2022) 2CD [MP3|320 Kbps] <Synthwave, 
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183732.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183732.jpgsave_picture_183732.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Markus Schulz pres. Dream Sequence 2022 (Uplifting Trance Mix) [MP3|320 Kbp
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183756.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183756.jpgsave_picture_183756.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Fusspils 11 - Halbwegs Verpeilt (2022) [MP3|320 Kbps] <EBM, Dark Electro, Future
 >>Industrial, EBM, Dark Electro
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183776.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183776.jpgsave_picture_183776.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - Deep-House World Vol. 3 (2022) CD, Compilation [MP3|320 Kbps] <Deep-House, 
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183837.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183837.jpgsave_picture_183837.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ We Are Magonia - Triangle Unicode (2022) [FLAC|Lossless|WEB-DL|tracks] <Synthwav
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183863.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183863.jpgsave_picture_183863.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Giuseppe Ottaviani - Horizons (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive 
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183940.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183940.jpgsave_picture_183940.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Frank Chickens - 5 Albums (1984-1994) Collection [MP3|320 Kbps] <Electronic, Syn
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183945.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183945.jpgsave_picture_183945.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ VA - Trance 2021 (2020) [MP3|320 Kbps] <Trance, Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184194.jpgsave_picture_184194.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Purple Disco Machine - Club Exotica (2021) [FLAC|Lossless|WEB-DL|tracks] <EDM, N
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184333.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184333.jpgsave_picture_184333.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Paul Sabin - STALK 2 (ORIGINAL SERIES SOUNDTRACK) (2021) [FLAC|Lossless|tracks] 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184361.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184361.jpgsave_picture_184361.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ David Guetta - 7 (2018) 3CD, Anniversary Edition, 2023, Parlophone UK [FLAC|Loss
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184472.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184472.jpgsave_picture_184472.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ ScAnDroid Experiment's - Mental Solubility (2023) авторская разда�
 >>Experimental Electronic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184632.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184632.jpgsave_picture_184632.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ VA - Club Trance 4 (1997) Exclusive Edition [FLAC|Lossless|tracks] <Trance, Hard
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184652.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184652.jpgsave_picture_184652.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ VA - Trance 2023 Vol. 8 (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184680.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184680.jpgsave_picture_184680.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ VA - Kryder Presents Metaverse Volume 1 (2021) [FLAC|Lossless|WEB-DL|tracks] <Tr
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184814.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184814.jpgsave_picture_184814.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ MORTEN - Live @ Mainstage, Mysteryland, Netherlands (2023-08-26) [MP3|320 Kbps] 
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184853.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184853.jpgsave_picture_184853.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Autograf - Affirmations (2023) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Hou
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185448.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185448.jpgsave_picture_185448.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Matisse & Sadko & Third ≡ Party & DubVision - Tomorrowland Friendship Mix (202
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185705.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185705.jpgsave_picture_185705.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Tycho - Discography 54 Releases (2002-2020) Ghostly International, Ninja Tune [F
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_185734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185734.jpgsave_picture_185734.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Murya | Buspin Jieber - Discography 9 Releases (2011-2020) Touched Music, Rafton
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_185883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185883.jpgsave_picture_185883.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Tineidae - Shadows (2014) Tympanik Audo [FLAC|24/44.1|WEB|Tracks]<IDM, Downtempo
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_185894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185894.jpgsave_picture_185894.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Blondie & Deborah Harry - 19 Albums (1976-2017) Collection [MP3|320 Kbps] <Elect
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_185912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185912.jpgsave_picture_185912.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Helena Hauff - fabric presents Helena Hauff (Mixed) (2023) [FLAC|Lossless|WEB-DL
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185972.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185972.jpgsave_picture_185972.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Blank & Jones feat. Mick Roach - Christian (2023) EP [FLAC|Lossless|WEB-DL|track
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_186239.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_186239.jpgsave_picture_186239.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ VA - Uplifting Only Top 15: September 2023 (Extended Mixes) (2023) [MP3|320 Kbps
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186244.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186244.jpgsave_picture_186244.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ Vintage Culture - Live @ elrow, Ushuaia Ibiza, Spain (2023-09-06) [MP3|320 Kbps]
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186267.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186267.jpgsave_picture_186267.jpg" />
 </div>
 
 

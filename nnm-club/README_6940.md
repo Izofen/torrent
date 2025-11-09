@@ -6,7 +6,7 @@
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238239.jpgsave_picture_238239.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:DECCC86BCBDB289B99DF729A523E0F190797CD27
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238240.jpgsave_picture_238240.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:558F1994CD307CABDB4E59B5E81DC7049DF69E80
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238241.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238241.jpgsave_picture_238241.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Moribund Dawn - Dark Mysteries Of Time & Eternity (2022) [MP3|320 Kbps] <Black M
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238242.jpgsave_picture_238242.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:C5907A2AAF74386096CE58CC215E3021F1B05461
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238243.jpgsave_picture_238243.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ O&O DiskImage Professional 18.3 Build 287 RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238244.jpgsave_picture_238244.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:0A523A58A3FE11AEBE7D9EAE2998A994606C11D8
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238245.jpgsave_picture_238245.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:5A55A08E9D1707042725F80B944A7185870A8ADC
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238246.jpgsave_picture_238246.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ Brian Landrus, Fred Hersch, Drew Gress, Billy Hart - For Now (2020) BlueLand Rec
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238247.jpgsave_picture_238247.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ magnet:?xt=urn:btih:85824358F42D741EC9F91377541B6E9417DBD369
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238248.jpgsave_picture_238248.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ HitPaw Watermark Remover for Mac 2.4.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238249.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238249.jpgsave_picture_238249.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ ON1 HDR 2021 v15.1.0.10035 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238250.jpgsave_picture_238250.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ magnet:?xt=urn:btih:B4036AD30874C0671041138B42DA549248008E47
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238251.jpgsave_picture_238251.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Bandicam 6.0.2.2018 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238252.jpgsave_picture_238252.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Blue Recluse - Rarely Fatal - Rarely Fatal (2023) [FLAC|Lossless|WEB-DL|tracks] 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238253.jpgsave_picture_238253.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Wizzerd - Space? Issue No. 001 (2022) [FLAC|Lossless|WEB-DL|tracks] <Psych Stone
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238254.jpgsave_picture_238254.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ magnet:?xt=urn:btih:EF3D4C72FA89605D59D6F716FF9B0AD2F884FA50
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238255.jpgsave_picture_238255.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ VA - Night Grooves (House Edition), Vol. 2 (2023) [MP3|320 Kbps] <House, Deep Ho
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238256.jpgsave_picture_238256.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ magnet:?xt=urn:btih:2D518C42A42305D2FC6BDD2A598687900A26B45F
 >>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238257.jpgsave_picture_238257.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ magnet:?xt=urn:btih:C8019558B7635F47621BC1C7FB61040CA262F819
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238258.jpgsave_picture_238258.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ MediaHuman YouTube Downloader 3.9.9.82 (1006) RePack (& Portable) by Dodakaedr [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238259.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238259.jpgsave_picture_238259.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Bloodgutter - Death Mountain (2023) [MP3|320 Kbps] <Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238260.jpgsave_picture_238260.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ CyberLink PowerDirector Ultimate 20.8.3211.0 (x64) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238261.jpgsave_picture_238261.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ VA - Fokuz Recordings - 2017 Recap (2017) [FLAC|Lossless|WEB-DL|tracks] <Jungle>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238262.jpgsave_picture_238262.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Toxik - Dis Morta (2022) [FLAC|Lossless|WEB-DL|tracks] <Technical Speed, Thrash 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238263.jpgsave_picture_238263.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ magnet:?xt=urn:btih:FF514EF796B649E771F40410531FF849DAB69216
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238264.jpgsave_picture_238264.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104257.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104257.jpgsave_picture_104257.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:27E66109D97D120A51A68AD2764D51CEC82C663A
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104258.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104258.jpgsave_picture_104258.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Jim Hall - Jazzpar Quartet + 4 (1999) Storyville [FLAC|Lossless|tracks + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104259.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104259.jpgsave_picture_104259.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Francesco Bearzatti and Federico - And Then Winter Came Again (2024) [FLAC 24/96
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104260.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104260.jpgsave_picture_104260.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Science Of Disorder - Apoptose (2022) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104261.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104261.jpgsave_picture_104261.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ magnet:?xt=urn:btih:859C267B9BDD9C38D5BE321F60D958767C382CF9
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104262.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104262.jpgsave_picture_104262.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ magnet:?xt=urn:btih:3390DB373802A4109FFD87EA15630D7E833ACA1A
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104263.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104263.jpgsave_picture_104263.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ VA - Nahawand: Best of Uplifting Trance (2024) [MP3|320 Kbps] <Trance, Uplifting
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104264.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104264.jpgsave_picture_104264.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ magnet:?xt=urn:btih:EACC9E3B463AFD18D1CC33261E9B657FF7CDF478
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104265.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104265.jpgsave_picture_104265.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Fatigue Force - Wandering Blues T (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Bl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104266.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104266.jpgsave_picture_104266.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Jamie Carr Band - KY Chrome (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104267.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104267.jpgsave_picture_104267.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Rich Russman - Second Time (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues R
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104268.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104268.jpgsave_picture_104268.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Blues Bizarre - Blues Bizarre (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Elec
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104269.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104269.jpgsave_picture_104269.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Jhene Aiko - Souled Out (2014) 10th Anniversary Edition, 2024, Def Jam Recording
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104270.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104270.jpgsave_picture_104270.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Mike Stern - Echoes and Other Songs (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104271.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104271.jpgsave_picture_104271.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ Ryan Keberle - Bright Moments (2024) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <Jazz
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104272.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104272.jpgsave_picture_104272.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ magnet:?xt=urn:btih:DD8A05E26B29E06C0E21B1783EB7BF926F005D14
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104273.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104273.jpgsave_picture_104273.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ The Nail - The Nail (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Thrash Menal, Ha
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104274.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104274.jpgsave_picture_104274.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ magnet:?xt=urn:btih:6D2846BB5216D1527BD6DBAE6F0EFD155697CF4D
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104275.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104275.jpgsave_picture_104275.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ magnet:?xt=urn:btih:4D6D31F2F0E3D7494F8BFEF5E8F2DBC1D6E23B82
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104276.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104276.jpgsave_picture_104276.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Flotsam and Jetsam - I Am the Weapon (2024) [FLAC|Lossless|image + .cue] <Thrash
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104277.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104277.jpgsave_picture_104277.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Alicate - Heaven Tonight (2024) Japanese Edition [FLAC|Lossless|image + .cue] <M
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104278.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104278.jpgsave_picture_104278.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Prayer - Wrong Address (2005) Japanese Edition [FLAC|Lossless|image + .cue] <Har
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104279.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104279.jpgsave_picture_104279.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Joey DeFrancesco, Robi Botos, Vito Rezza, Phil Dwyer - One Take, Vol. 4 (2010) A
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104280.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104280.jpgsave_picture_104280.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ VA - DJ Bim - Matchbox (2024) [FLAC|Lossless|WEB-DL|tracks] <Psy Trance, Goa Tra
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104282.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104282.jpgsave_picture_104282.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ PdfFactory Std & Pro 9.05 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104283.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104283.jpgsave_picture_104283.jpg" />
 </div>
 
 

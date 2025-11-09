@@ -6,7 +6,7 @@
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1519.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1519.jpgsave_picture_1519.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Uglymug, Epicfighter | Busamen Gachi Fighter | Всё тот же невзрач
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1520.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1520.jpgsave_picture_1520.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ Arctic Monkeys - AM (2013) [FLAC|tracks + .cue]<Indie Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1521.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1521.jpgsave_picture_1521.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ magnet:?xt=urn:btih:9BD61A03AE18CDF7B5E32F7690AD09EB80710D2A
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1522.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1522.jpgsave_picture_1522.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ magnet:?xt=urn:btih:3DBE2CBC17DE4BCC6B36FA2BCD60D453848D7515
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1523.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1523.jpgsave_picture_1523.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ magnet:?xt=urn:btih:0EB8D1E9A06AAB8B222764E8782322BC0BF49B5B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1524.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1524.jpgsave_picture_1524.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ magnet:?xt=urn:btih:8833A1DE84D603BA1FB18635C8902713CB49EE3E
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1525.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1525.jpgsave_picture_1525.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:0DFEA83DB17DE0BDA1289F2181A6414A2881539A
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1526.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1526.jpgsave_picture_1526.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:50C25EA3A20E090640083B20D6EFF2285BBE769C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1527.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1527.jpgsave_picture_1527.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ Topaz Gigapixel 1.0.1 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1528.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1528.jpgsave_picture_1528.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:6F89727F7D8101B27912607131A7E3171387CBCC
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1529.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1529.jpgsave_picture_1529.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ Dekin no Mogura | The Earthbound Mole | Запрещённый крот [2025, T
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1530.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1530.jpgsave_picture_1530.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ magnet:?xt=urn:btih:F4709E9B18A28E4282249024808B7D5DFB74FDE9
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1531.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1531.jpgsave_picture_1531.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Jigoku Sensei Nube (2025) | Hell Teacher | Адский учитель Нубэ 
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1532.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1532.jpgsave_picture_1532.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Hell is Us (2025) [Ru/Multi] (1.3.36.43556/dlc) Repack Decepticon
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1533.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1533.jpgsave_picture_1533.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ magnet:?xt=urn:btih:75158107F16DB95827147CFD2F097364335F0BA4
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1534.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1534.jpgsave_picture_1534.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ magnet:?xt=urn:btih:B120994B9141DA761030A4551340419AD5FBD9F7
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1535.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1535.jpgsave_picture_1535.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ magnet:?xt=urn:btih:82A353611851DCD138ED54D9C09F74E5F4669AFB
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1536.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1536.jpgsave_picture_1536.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ magnet:?xt=urn:btih:87C032C45C7FA12F58BCA0891B3C9FEEAB6C064C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1537.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1537.jpgsave_picture_1537.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ magnet:?xt=urn:btih:409CAA07453A0CDEC13F577BB231438A3EF028C2
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1538.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1538.jpgsave_picture_1538.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ BeamNG.drive (2015) [Ru/Multi] (0.37.2.0.18718) Repack Other s [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1539.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1539.jpgsave_picture_1539.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ GoodbyeDPI 0.2.3rc3 Launcher 10.1 [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1540.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1540.jpgsave_picture_1540.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ magnet:?xt=urn:btih:52F3005782FC6FB8E7D639BE947472F99246B65C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1541.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1541.jpgsave_picture_1541.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Dan Da Dan (2025) | Дандадан [ТВ-2] [2025, TV, 12 из 12] WEBRip 720p
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1542.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1542.jpgsave_picture_1542.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ magnet:?xt=urn:btih:DC15C3CD06D88A596134D179C789A84C7AEDD60B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1543.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1543.jpgsave_picture_1543.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ magnet:?xt=urn:btih:DDF227DE9D87BC2AD7AE56543B03EB10EA1BBB01
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1544.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1544.jpgsave_picture_1544.jpg" />
 </div>
 
 

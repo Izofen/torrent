@@ -6,7 +6,7 @@ Antaghonist - 4 Relises (2017-2022) [MP3|244-320 kbps/320 Kbps] <Dark Hardcore>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238161.jpgsave_picture_238161.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ EdgeView 4.2.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238162.jpgsave_picture_238162.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:8EFA6B562C8279B092FB4C977D384D07DB2A5E6A
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238163.jpgsave_picture_238163.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ OCCT 7.3.1 Final Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238164.jpgsave_picture_238164.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ GPU Shark 0.29.3.0 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238165.jpgsave_picture_238165.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ USB Image Tool 1.85 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238166.jpgsave_picture_238166.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:FC396BF2501C3CB1E06646BDB1859259D0F688AB
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238167.jpgsave_picture_238167.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Def Leppard - The Early Years 79 - 81 (2020) (5 CD), Reissue, Remastered, 2020, 
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238168.jpgsave_picture_238168.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ PDFCreator 5.1.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238169.jpgsave_picture_238169.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ Athentech Perfectly Clear WorkBench for Mac 4.5.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238170.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238170.jpgsave_picture_238170.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:D2522D524E92C82F1E01E93BD4382C0D6F53135F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238171.jpgsave_picture_238171.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ Mozilla Thunderbird 102.10.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238172.jpgsave_picture_238172.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ magnet:?xt=urn:btih:9850DF2E34B68E69B71E5B2BFC5AD982F9A019CF
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238173.jpgsave_picture_238173.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Duplicate Cleaner Pro 5.16.0 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238174.jpgsave_picture_238174.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ magnet:?xt=urn:btih:26F33DAA794A63EFEA76425BA626C97166653A90
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238175.jpgsave_picture_238175.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ magnet:?xt=urn:btih:7BAC83248C1D81ACA2EC11C18E95F37065A4A740
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238176.jpgsave_picture_238176.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ magnet:?xt=urn:btih:22527149D0A95DBA006089770EC72DA2C4282DE2
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238177.jpgsave_picture_238177.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ FastFlix 5.5.1 + portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238178.jpgsave_picture_238178.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ magnet:?xt=urn:btih:4878B88F078727B4EA48FE3E308F51501BF772A1
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238179.jpgsave_picture_238179.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ KRITE - Мертв По Прибытии (2022) [MP3|320 Kbps] <Melodic Black Me
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238180.jpgsave_picture_238180.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Find Same Images OK 5.25 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238181.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238181.jpgsave_picture_238181.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ magnet:?xt=urn:btih:644C2571C3D6FA65CDB2DCC11AC27F6AF6B8EE62
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238182.jpgsave_picture_238182.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ magnet:?xt=urn:btih:21D7217B96C060A85AA408136FC2274C0ADF94BF
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238183.jpgsave_picture_238183.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ magnet:?xt=urn:btih:3828BAF36D3BB040F19B292C4738A8C703F1ECF9
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238184.jpgsave_picture_238184.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Pixelmator Pro 2.4.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238185.jpgsave_picture_238185.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ Black Bottle Riot - That's Amore (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Roc
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238186.jpgsave_picture_238186.jpg" />
 </div>
 
 

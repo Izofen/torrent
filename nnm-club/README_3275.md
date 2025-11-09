@@ -6,7 +6,7 @@ Lacey Sturm(ex Flyleaf) - Kenotic Metanoia (2024) Deluxe Edition [MP3|320 Kbps] 
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105511.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105511.jpgsave_picture_105511.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:19F495E0A6EF5E436BD3ED32F7EB65D77F83FDAC
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105512.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105512.jpgsave_picture_105512.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Andre Obin (André Obin) - Armored King (2024) [FLAC 24/96|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105513.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105513.jpgsave_picture_105513.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:6BB47C0AD817754566A3008B80F2797E85B4F1B2
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105514.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105514.jpgsave_picture_105514.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ Black Valentine - Heavy Hearts (2024) 2CD [FLAC|Lossless|WEB-DL|tracks] <Hard Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105515.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105515.jpgsave_picture_105515.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Waynestock - Family Friendly (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105516.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105516.jpgsave_picture_105516.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Nicole Marxen - Thorns (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Darkwave, I
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105517.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105517.jpgsave_picture_105517.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Matt Mitchell & the Coldhearts - Matt Mitchell & the Coldhearts (2024) [FLAC|Los
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105518.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105518.jpgsave_picture_105518.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ magnet:?xt=urn:btih:ADBF43AB7727E6AE39DAB2D2CDFE2C3F3BF2B75B
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105519.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105519.jpgsave_picture_105519.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ magnet:?xt=urn:btih:21E43C6DAD75396B509615A58993E64D333F58C5
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105520.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105520.jpgsave_picture_105520.jpg" />
 </div>
 
 
@@ -265,7 +265,7 @@ Jormungand | Ёрмунганд [ТВ-1] [2012, TV, 12] BDRemux 1080p raw+rus
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105521.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105521.jpgsave_picture_105521.jpg" />
 </div>
 
 
@@ -289,7 +289,7 @@ magnet:?xt=urn:btih:7AC489F5DBE76B4D0ACF6F6B4639988BFFE1940C
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105522.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105522.jpgsave_picture_105522.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ Surge XT 1.3.4 Standalone, CLAP, VSTi 3 [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105523.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105523.jpgsave_picture_105523.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ magnet:?xt=urn:btih:6E20C63EE7F125E0BFF7756ECE9123BC0F5A4261
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105524.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105524.jpgsave_picture_105524.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ magnet:?xt=urn:btih:25103562FD664D2582F03DD66A96871ACBE0990E
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105525.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105525.jpgsave_picture_105525.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ MusicBrainz Picard 2.12.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105526.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105526.jpgsave_picture_105526.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ magnet:?xt=urn:btih:6F32D471E39EB032EEE2D4A8AA870CD95A311533
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105527.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105527.jpgsave_picture_105527.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ magnet:?xt=urn:btih:D0A7B13A768C41D2CAF1F0273B05E662C711F22D
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105528.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105528.jpgsave_picture_105528.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ magnet:?xt=urn:btih:5876772BA464DDAF2ACB3253E44A114DBC6B86F6
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105529.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105529.jpgsave_picture_105529.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ magnet:?xt=urn:btih:3A84BF94ECC354C1A11661CD86248366D588DC19
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105530.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105530.jpgsave_picture_105530.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Levantis - Music For Mother & Baby (Музыка для мамы и малыша
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105531.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105531.jpgsave_picture_105531.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ magnet:?xt=urn:btih:DBE284D59F68EA67D2BDC2DFD38C09F8AB3837B6
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105532.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105532.jpgsave_picture_105532.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ JetBrains RubyMine 2024.2 Repack by Sitego [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105533.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105533.jpgsave_picture_105533.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Black Jack - Black Jack (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105534.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105534.jpgsave_picture_105534.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Heavenwood - 5 Albums, 3 Singles (1996-2024) [FLAC|Lossless|WEB-DL|tracks] <Goth
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105535.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105535.jpgsave_picture_105535.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ Alien Ant Farm - Mantras (2024) [FLAC|Lossless|tracks + .cue] <Alt. Rock, Post-G
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105536.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105536.jpgsave_picture_105536.jpg" />
 </div>
 
 

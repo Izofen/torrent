@@ -6,7 +6,7 @@ VA - Halloween Party 2022 (Powered By Xtreme Sound) (2022) [MP3|320 Kbps] <Pop, 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192119.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192119.jpgsave_picture_192119.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:7FB537634CB2A9A0BD24DBEF593CF5989B00C13D
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192120.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192120.jpgsave_picture_192120.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:F4799192CABB7B77B746E23B6519F1B2649C47B9
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192121.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192121.jpgsave_picture_192121.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ Nelson Riddle - Eight Classic Albums (1955 - 1961) 4CD, 2012, Real Gone Jazz [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192122.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192122.jpgsave_picture_192122.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ Shakura S'Aida - Hold on to Love (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues, So
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192123.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192123.jpgsave_picture_192123.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ magnet:?xt=urn:btih:B57C0C09D18AD76FE5471DD8B96E73BF821BCA9B
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192124.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192124.jpgsave_picture_192124.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ VA - Keep It Disco Vol. 05 (2022) CD, Compilation [MP3|320 Kbps] <Nu Disco, Funk
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192125.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192125.jpgsave_picture_192125.jpg" />
 </div>
 
 
@@ -187,7 +187,7 @@ Bad Wolves - Dear Monsters (2022) Deluxe [MP3|320 kbps] <Alternative Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192126.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192126.jpgsave_picture_192126.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ magnet:?xt=urn:btih:A89525A6AB11C870814A739F5F7CAE74FC042F17
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192127.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192127.jpgsave_picture_192127.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ Imagine 1.1.7 + Portable + Plugins  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192128.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192128.jpgsave_picture_192128.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ magnet:?xt=urn:btih:24045C9B17C994FD175BC66910EF7F94DAC6871C
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192129.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192129.jpgsave_picture_192129.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ TweakPower 2.043 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192130.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192130.jpgsave_picture_192130.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ magnet:?xt=urn:btih:F6654017AD60FA8639546BF88BFFEA480ECD6494
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192131.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192131.jpgsave_picture_192131.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ magnet:?xt=urn:btih:4152F1154950016D909568834A7D7AB8C7556955
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192132.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192132.jpgsave_picture_192132.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ Annika Andersson & the Boiling Blues - Playing in a Rock'n Roll Band (2022) [FLA
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192133.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192133.jpgsave_picture_192133.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ Scream in Darkness - Судный день (2023) [FLAC|Lossless|WEB-DL|tracks] 
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192134.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192134.jpgsave_picture_192134.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ magnet:?xt=urn:btih:46B0F422AFAF31E35D71B9A31BD1E4D6DA522E44
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192135.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192135.jpgsave_picture_192135.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ magnet:?xt=urn:btih:F200543DB7E58FF8B45C4637B8D7483C4ED188DB
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192136.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192136.jpgsave_picture_192136.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Hans Zimmer, Lebo M, Elton John - Король Лев / The Lion King (2017-2019
 >>OST (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192137.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192137.jpgsave_picture_192137.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Kunio Kishida - 10 (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192138.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192138.jpgsave_picture_192138.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ SupRemo  4.10.3.2151 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192139.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192139.jpgsave_picture_192139.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Lemuria - Chanson de la Croisade (2010) [FLAC|Lossless|image + .cue] <Symphonic 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192140.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192140.jpgsave_picture_192140.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ FileSeek Pro 6.9.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192141.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192141.jpgsave_picture_192141.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Melon VPN - Secure Proxy VPN 7.9.158 Mod By AzadNet [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192142.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192142.jpgsave_picture_192142.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Jed Potts & the Hillman Hunters - Swashbucklin' (2022) [FLAC|Lossless|WEB-DL|tra
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192143.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192143.jpgsave_picture_192143.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ magnet:?xt=urn:btih:A0F353F929A29B1EF5796AE453016250B790792B
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192144.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192144.jpgsave_picture_192144.jpg" />
 </div>
 
 

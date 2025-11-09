@@ -6,7 +6,7 @@ Heather Pierson - Back To The Light (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103514.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103514.jpgsave_picture_103514.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Burna - Live Forever (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103515.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103515.jpgsave_picture_103515.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:C71D204D727CEAF61DAAD354317956268C7C2C4D
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103516.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103516.jpgsave_picture_103516.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Fate - Reconnect 'N' Ignite (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Hard Roc
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103517.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103517.jpgsave_picture_103517.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Eric Bibb - In The Real World (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103518.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103518.jpgsave_picture_103518.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Stan Silver and the Brave Puppies - All In (2024) [FLAC 24/44.1|Lossless|WEB-DL|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103519.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103519.jpgsave_picture_103519.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ magnet:?xt=urn:btih:F001E3CBE5C64169C21392537FE1B07ABDA61BF3
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103521.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103521.jpgsave_picture_103521.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ MotoGP. Этап 17 из 20. Гран-при Австралии. Спринт (1
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103522.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103522.jpgsave_picture_103522.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Killagodzilla - Синхродавинчи (2024) [FLAC 24/44.1|Lossless|WEB-DL|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103523.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103523.jpgsave_picture_103523.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Riot V - Mean Streets (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Metal,
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103524.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103524.jpgsave_picture_103524.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Rosie's Smokehouse Deluxe - Welcome To The Smokehouse (2024) [FLAC|Lossless|WEB-
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103525.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103525.jpgsave_picture_103525.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ MotoGP. Этап 17 из 20. Гран-при Австралии. Квалифи�
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103526.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103526.jpgsave_picture_103526.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Big Creek Slim - Going to Germany (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103527.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103527.jpgsave_picture_103527.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Cloudscape - Studio Albums (5 releases) (2005-2016) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103528.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103528.jpgsave_picture_103528.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Milt Jackson & Ray Charles - Soul Brothers (1958) 2012, Atlantic [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103529.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103529.jpgsave_picture_103529.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Fantastic Negrito - Son of a Broken Man (2024) [FLAC 24/48|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103530.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103530.jpgsave_picture_103530.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Mojo Man - Love & Revolution (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103531.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103531.jpgsave_picture_103531.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ Doc Payne - Totally Unconventional (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <B
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103532.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103532.jpgsave_picture_103532.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ Aeonblack - Metal Bound (2024) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103533.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103533.jpgsave_picture_103533.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Jef Neve - That Old Feeling (2023) Universal [FLAC|Lossless|tracks + .cue] <Voca
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103534.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103534.jpgsave_picture_103534.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Swallow The Sun - Shining (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Gothic-Doo
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103535.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103535.jpgsave_picture_103535.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Gato Barbieri - Standards Lost And Found 1 (2024) [FLAC 24/48|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103536.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103536.jpgsave_picture_103536.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Biest - Labyrinth (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103537.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103537.jpgsave_picture_103537.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ WaveStudio (WaveEditor Record & Edit Audio) v1.112 Mod by Alex.Strannik [Ru/Mult
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103538.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103538.jpgsave_picture_103538.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ Power Battle Watch Car | Лига WatchCar. Битвы чемпионов [2016,
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103539.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103539.jpgsave_picture_103539.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ Bronski Beat - The Age of Consent (1984) 40 Year Anniversary Edition, 2024, Lond
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103540.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103540.jpgsave_picture_103540.jpg" />
 </div>
 
 

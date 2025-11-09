@@ -6,7 +6,7 @@ VA - National Pop Dance Music Vol.113 (2025) [MP3|320 Kbps] <Pop, Folk, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10870.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10870.jpgsave_picture_10870.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Dova Music - Favorites Collection (2025) [MP3|320 Kbps] <Electronic, Vocal>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10874.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10874.jpgsave_picture_10874.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - Music News For Forum vol.115 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10875.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10875.jpgsave_picture_10875.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - Musical kaleidoscope part 46 Assorted (2025) [MP3|320 Kbps] <Electronic, In
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11172.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11172.jpgsave_picture_11172.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ VA - Music News For Forum vol.114 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11295.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11295.jpgsave_picture_11295.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ VA - Breaking Bad & Better Call Saul (2008-2022) [MP3|320 Kbps] <Soundtrack>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11340.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11340.jpgsave_picture_11340.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Blackmore's Night - Compilation (1997-2025) [MP3|320 Kbps] <Folk rock, Medieval 
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11412.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11412.jpgsave_picture_11412.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ VA - Music News For Forum vol.113 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11519.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11519.jpgsave_picture_11519.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ VA - Compilation Part 173 Electronic (2025) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11594.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11594.jpgsave_picture_11594.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ VA - Лето на Love Radio (2025) [MP3|320 Kbps] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11651.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11651.jpgsave_picture_11651.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ VA - Music News For Forum vol.112 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11694.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11694.jpgsave_picture_11694.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ VA - Music News For Forum vol.111 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11810.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11810.jpgsave_picture_11810.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ VA - Свежий Русский Хит от ALEXnROCK часть 18 (2025) [MP3
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11967.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11967.jpgsave_picture_11967.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ VA - Midnight Whiskey Blues (2025) [MP3|320 Kbps] <Blues>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12032.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12032.jpgsave_picture_12032.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ VA - Music News For Forum vol.110 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12132.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12132.jpgsave_picture_12132.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Ian Gillan - Voice Of Rock - Compilation (1966-2020) [MP3|320 Kbps] <Hard rock, 
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12160.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12160.jpgsave_picture_12160.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ VA - Compilation Part 172 Electronic (2025) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12163.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12163.jpgsave_picture_12163.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Ace Of Base - Compilation (1992-2020) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12191.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12191.jpgsave_picture_12191.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ VA - Дискотека 2025 Dance Club Vol. 229 (2025) от NNNB [MP3|320 Kbps]
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12306.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12306.jpgsave_picture_12306.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ VA - Music News For Forum vol.109 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12322.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12322.jpgsave_picture_12322.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ VA - Music News For Forum vol.105 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12341.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12341.jpgsave_picture_12341.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ VA - Music News For Forum vol.108 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12429.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12429.jpgsave_picture_12429.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ VA - Oriental Deep 6 (2025) [MP3|320 Kbps] <Deep House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12474.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12474.jpgsave_picture_12474.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ VA - Любимые хиты дискотека 80-х (2017) [MP3|320 Kbps] <Pop
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12503.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12503.jpgsave_picture_12503.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ magnet:?xt=urn:btih:6E70AE896D0452C8EBEAACA95B15703B24082B7B
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12533.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12533.jpgsave_picture_12533.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ VA - Assorted Compilation Part 11 (2025) [MP3|320 Kbps] <Electronic, Instrumenta
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12551.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12551.jpgsave_picture_12551.jpg" />
 </div>
 
 

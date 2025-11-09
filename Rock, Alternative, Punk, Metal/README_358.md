@@ -6,7 +6,7 @@
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204516.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204516.jpgsave_picture_204516.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Asking Alexandria - Where Do We Go From Here? (2023) [MP3|320 Kbps] <Alt. Rock, 
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204541.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204541.jpgsave_picture_204541.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Incantation - Unholy Deification (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204612.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204612.jpgsave_picture_204612.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Scatterbrain - Here Comes Trouble (1990) [FLAC|Lossless|image + .cue] <Thrash Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204618.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204618.jpgsave_picture_204618.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Madog - Raven (2018) [FLAC|Lossless|image + .cue] <Heavy, Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204619.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204619.jpgsave_picture_204619.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Cenobite - Torment Your Flesh and Explore the Limits of Experience (2023) [FLAC|
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204623.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204623.jpgsave_picture_204623.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Rideout - Driven To Insanity (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive H
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204625.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204625.jpgsave_picture_204625.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Heimdall - Hephaestus (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204653.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204653.jpgsave_picture_204653.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Sky Cries Mary - Everything Goes Somewhere (2023) [MP3|320 Kbps] <Crossover Prog
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204663.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204663.jpgsave_picture_204663.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ The Darkhorse Collective - Polyanthroponomia (2023) [FLAC|Lossless|WEB-DL|tracks
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204666.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204666.jpgsave_picture_204666.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Asking Alexandria - Where Do We Go From Here? (2023) [FLAC|Lossless|WEB-DL|track
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204698.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204698.jpgsave_picture_204698.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Sky Cries Mary - Everything Goes Somewhere (2023) [FLAC|Lossless|WEB-DL|tracks] 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204714.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204714.jpgsave_picture_204714.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ PLASTИКА - Тетралогия (2011-2012) [MP3|320 kbps]<Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204717.jpgsave_picture_204717.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Urban Project - All Up (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Progre
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204722.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204722.jpgsave_picture_204722.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Massacre - Mythos (2022) EP [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204726.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204726.jpgsave_picture_204726.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Phil Vincent - Divine Intervention (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204757.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204757.jpgsave_picture_204757.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ Edu Falaschi - Eldorado (2023) [FLAC|Lossless|WEB-DL|tracks] <Power Metal, Progr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204760.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204760.jpgsave_picture_204760.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Eisbrecher - Es bleibt kalt°! (2023) 2CD, Compilation, 2003-2023, Sony Music Ca
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204788.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204788.jpgsave_picture_204788.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Persevera - Genesis (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204860.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204860.jpgsave_picture_204860.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Aeon Sable - Aenigma (2023) [FLAC|Lossless|WEB-DL|tracks] <Gothic Rock, Hard Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204862.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204862.jpgsave_picture_204862.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ Samuel Keen - Metamorphosis (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard & Heavy>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204864.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204864.jpgsave_picture_204864.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Necroart - The Highest Law (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204866.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204866.jpgsave_picture_204866.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ Obscure Infinity - Into the Vortex of Obscurity (2019) [FLAC|Lossless|image + .c
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204870.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204870.jpgsave_picture_204870.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ Jag Panzer - Dissident Alliance (1994) [FLAC|Lossless|image + .cue] <Heavy, Powe
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204872.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204872.jpgsave_picture_204872.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ Next - La Coleccion (1991) Compilation [FLAC|Lossless|image + .cue] <Thrash Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204874.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204874.jpgsave_picture_204874.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ Mountain Of Power - Volume Five (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock,
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204881.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204881.jpgsave_picture_204881.jpg" />
 </div>
 
 

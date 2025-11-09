@@ -6,7 +6,7 @@ DJ Tomcraft - Silence (2000) [FLAC|Lossless|tracks + .cue] <Trance>
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65828.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65828.jpgsave_picture_65828.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Chilly Swing Band - Study Jazz with the Feel of a Spring Breeze (2025) [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65829.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65829.jpgsave_picture_65829.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ magnet:?xt=urn:btih:D93713908B6F61E454E5E7AC34EB82EC38BDAE91
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65830.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65830.jpgsave_picture_65830.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ Daniel Martin & The Infamous - Gone Days of Silence (2025) [FLAC|Lossless|WEB-DL
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65831.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65831.jpgsave_picture_65831.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Willie Nelson - Natural Renegade: Opus Collection (2007) CD, Compilation [FLAC|L
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65832.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65832.jpgsave_picture_65832.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ magnet:?xt=urn:btih:C876B0580DEED291F3236C11847AA8D251769BCE
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65833.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65833.jpgsave_picture_65833.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ VA - Ultimate Broadway (1998) 2 x CD, Compilation [FLAC|Lossless|tracks + .cue] 
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65834.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65834.jpgsave_picture_65834.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ magnet:?xt=urn:btih:D8EB27B0237F95F843416A5F4819EC390476868F
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65835.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65835.jpgsave_picture_65835.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ magnet:?xt=urn:btih:07C7A64C36B453D648F63F06F17806299523268C
 >>Авторская и Военная песня (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65836.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65836.jpgsave_picture_65836.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Russell Morris - The Very Best of Russell Morris (2013) CD, Compilation [FLAC|Lo
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65837.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65837.jpgsave_picture_65837.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Mannheim Steamroller - Fresh Aire 7 (2000) CD, Album [FLAC|Lossless|tracks + .cu
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65838.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65838.jpgsave_picture_65838.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Spanish Gold - South Of Nowhere (2014) CD, Album [FLAC|Lossless|tracks + .cue] <
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65839.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65839.jpgsave_picture_65839.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ magnet:?xt=urn:btih:6CB9C8026EE19F4995253C84D42B2826FE9BF223
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65840.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65840.jpgsave_picture_65840.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ SanMinor - Дивный Новый Мир (2024) [FLAC|Lossless|WEB-DL|tracks] <
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65841.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65841.jpgsave_picture_65841.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ VA - Drum Nation (Volume 3) (2006) CD, Album, Enhanced [FLAC|Lossless|tracks + .
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65842.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65842.jpgsave_picture_65842.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Sonny Rollins - Freedom Weaver (1959) 3CD, 2024, Resonance Records [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65843.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65843.jpgsave_picture_65843.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Soliloquium - Famine (2025) [MP3|320 Kbps] <Melodic Doom, Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65844.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65844.jpgsave_picture_65844.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ MotoGP. Этап 09 из 22. Гран-при Италии. Спринт (21.06.2
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65845.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65845.jpgsave_picture_65845.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Speedemon - Fall of Man (2025) [MP3|320 Kbps] <Speed, Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65846.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65846.jpgsave_picture_65846.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ MotoGP. Этап 09 из 22. Гран-при Италии. Квалификац�
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65847.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65847.jpgsave_picture_65847.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ magnet:?xt=urn:btih:8BACAB091942C88BC37086433B92794AC1124D28
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65848.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65848.jpgsave_picture_65848.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ magnet:?xt=urn:btih:0C3B80C08BF0045D04F58334298DB6BEEE6B5988
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65849.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65849.jpgsave_picture_65849.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ magnet:?xt=urn:btih:76E930EAA3E113F534FD397ABFBB9123AD445A13
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65850.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65850.jpgsave_picture_65850.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ magnet:?xt=urn:btih:47BC9B43141A31D8330F6815D3636AA65D17C976
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65851.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65851.jpgsave_picture_65851.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ magnet:?xt=urn:btih:A35F26F57B8DA87EF748982B04405B3CBF9C8B7B
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65852.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65852.jpgsave_picture_65852.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Gimai Seikatsu | Days with My Stepsister | Жизнь со сводной сес
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65853.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65853.jpgsave_picture_65853.jpg" />
 </div>
 
 

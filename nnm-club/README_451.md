@@ -6,7 +6,7 @@ VA - Свежий Русский Хит от ALEXnROCK часть 18 (2025) [MP3
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11967.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11967.jpgsave_picture_11967.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:505225D3124CD8B4E362EB3178C0164A48E34993
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11968.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11968.jpgsave_picture_11968.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:0DF38D0D601BEC54BF9FA7CE8728A8BBF5E70EDB
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11969.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11969.jpgsave_picture_11969.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:7FE8882E40DA894E2951F25F4EA037A7D508B3F2
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11970.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11970.jpgsave_picture_11970.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Dying Light 2: Stay Human (2022) [Ru/En] (1.23.2/dlc) Repack seleZen [Reloaded E
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11971.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11971.jpgsave_picture_11971.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:2ABD72862F8E8437577BADC5E94547283E3649BF
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11972.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11972.jpgsave_picture_11972.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:5FE14A5C6D9266587F9220C055BDDE0A98FFE402
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11973.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11973.jpgsave_picture_11973.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ MAGIX Vegas Pro 22.0 Build 250 (x64) [Multi]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11974.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11974.jpgsave_picture_11974.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ Proton VPN 5.12.32.0 Mod [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11975.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11975.jpgsave_picture_11975.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ Sofia in Exchange for Lies (2025) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11976.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11976.jpgsave_picture_11976.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ Nik Collection by DxO 8.1.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11977.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11977.jpgsave_picture_11977.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ magnet:?xt=urn:btih:4ED48BDCF0111C962C5030565457DCA89A2B9220
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11978.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11978.jpgsave_picture_11978.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Office Tool Plus 10.24.68.0 Portable [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11979.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11979.jpgsave_picture_11979.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ magnet:?xt=urn:btih:731CDDFBAADE7CC2E6476EC40E84842BD5F89131
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11980.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11980.jpgsave_picture_11980.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Rhinoceros 3D 8.21.25188.17001 [Multi/Ru]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11981.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11981.jpgsave_picture_11981.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Karing 1.2.0.810 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11982.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11982.jpgsave_picture_11982.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ AOMEI Partition Assistant Technician Edition 10.8.2 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11983.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11983.jpgsave_picture_11983.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ magnet:?xt=urn:btih:360ED1346F83DCB183B4AC95B3C2F6C8B5AE9833
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11984.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11984.jpgsave_picture_11984.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ magnet:?xt=urn:btih:B82C56E165E85E52F2252B3251D41F91514CA0E7
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11985.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11985.jpgsave_picture_11985.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ magnet:?xt=urn:btih:BA99AC84F674586FF714A97D8E566C08C71A6462
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11986.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11986.jpgsave_picture_11986.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ magnet:?xt=urn:btih:AF7AC9CE2A2339364989946E315441441DC14876
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11987.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11987.jpgsave_picture_11987.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ magnet:?xt=urn:btih:F13ED7F9F1613FF408EB7D239FF36629B72E2269
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11988.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11988.jpgsave_picture_11988.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ magnet:?xt=urn:btih:64CC94894A470638EE70E3CED017F780EBFA90AB
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11989.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11989.jpgsave_picture_11989.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:64CC94894A470638EE70E3CED017F780EBFA90AB
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11990.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11990.jpgsave_picture_11990.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ magnet:?xt=urn:btih:64CC94894A470638EE70E3CED017F780EBFA90AB
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11991.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11991.jpgsave_picture_11991.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ The Last of Us: Part I (2023) [Ru/En] (1.1.5.0/dlc) Repack Other s [Digital Delu
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11992.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11992.jpgsave_picture_11992.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ AllDup 4.5.60 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117277.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117277.jpgsave_picture_117277.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ HandBrake 1.7.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117278.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117278.jpgsave_picture_117278.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Topaz Photo AI 2.3.2 (x64) RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117279.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117279.jpgsave_picture_117279.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Onii-chan Dakedo Ai Sae Areba Kankeinai yo ne! | Мой «комплекс бр�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117280.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117280.jpgsave_picture_117280.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Topaz Gigapixel AI 7.0.2 (x64) RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117281.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117281.jpgsave_picture_117281.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:3275AD16548EC0DCEE15C6F4C31261C6762073F5
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117282.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117282.jpgsave_picture_117282.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:218E21B57648DB4024B1C844F51A28976FD72A42
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117283.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117283.jpgsave_picture_117283.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:62C764662CA164F02E4BE0CAA28277D5AE07E105
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117284.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117284.jpgsave_picture_117284.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ Topaz Photo AI 2.3.2 (x64) RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117285.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117285.jpgsave_picture_117285.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ magnet:?xt=urn:btih:9E31110146EAFF924F77E090E396CB5824EA00FF
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117286.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117286.jpgsave_picture_117286.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Boris Blank (Yello) - Resonance (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Elec
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117287.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117287.jpgsave_picture_117287.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:B54C07245E7F81D30F7408F21EB282526CB7B19F
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117288.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117288.jpgsave_picture_117288.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ WonderFox HD Video Converter Factory Pro 26.9 RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117289.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117289.jpgsave_picture_117289.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Windows Firewall Control 6.9.9.4 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117290.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117290.jpgsave_picture_117290.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ MSI Kombustor 4.1.28.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117291.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117291.jpgsave_picture_117291.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ magnet:?xt=urn:btih:1271541C48D9ACC68200403768764125F4C94FA3
 >>Отечественные Мультфильмы 21-го века (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117292.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117292.jpgsave_picture_117292.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ magnet:?xt=urn:btih:2BA31BB343B445F6467A6820EA7DF88F46668179
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117293.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117293.jpgsave_picture_117293.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ magnet:?xt=urn:btih:CB56254737AB286B8DEDCA16257591725F39B149
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117294.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117294.jpgsave_picture_117294.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ magnet:?xt=urn:btih:B9A25AE97A5D9C831D8DA82BDDDFDABBB4C7E15E
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117295.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117295.jpgsave_picture_117295.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ magnet:?xt=urn:btih:4BB1A8B761F0168763A738C7CE5408A53FB63815
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117296.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117296.jpgsave_picture_117296.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ magnet:?xt=urn:btih:2A8484855ACCECEAA4BEFBDE5379B10802905388
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117297.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117297.jpgsave_picture_117297.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ Stand Up (2024.02.16) SATRip (сезон 11, выпуск 14)
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117298.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117298.jpgsave_picture_117298.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ Parrot Security Lorikeet amd64 [Хакинг, аудит, безопасност
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117299.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117299.jpgsave_picture_117299.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ magnet:?xt=urn:btih:627F91267B3207268074211B77A536329D60CD7B
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117300.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117300.jpgsave_picture_117300.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ magnet:?xt=urn:btih:C7400ED18213085961C81818B88B9C0589216BBD
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117301.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117301.jpgsave_picture_117301.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Microsoft .Net Packages AIO 13.02.24 RePack by xetrin [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117302.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117302.jpgsave_picture_117302.jpg" />
 </div>
 
 

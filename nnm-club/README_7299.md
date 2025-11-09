@@ -6,7 +6,7 @@ Universal USB Installer 2.0.1.4 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249811.jpgsave_picture_249811.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:AD6EA6986E63A932B08B6A4384DAFCDDACFE6B97
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249812.jpgsave_picture_249812.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:A86152C5140E19EDED4B470265A8622536BBDC06
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249813.jpgsave_picture_249813.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Hard Disk Sentinel Pro 6.01 Build 12540 RePack (& Portable) by elchupacabra [Mul
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249814.jpgsave_picture_249814.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Glory Hunters - We Play Muzik (2022) [FLAC|Lossless|WEB-DL|tracks] <Ska, Punk>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249815.jpgsave_picture_249815.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:4EA5E2E3961BAD87E8C1C1A1FF84F89F7C3FB3A6
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249816.jpgsave_picture_249816.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ Lord of the Void - Consvming the Trails ov Light (2023) [FLAC|Lossless|WEB-DL|tr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249817.jpgsave_picture_249817.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ Adobe Animate 2022 22.0.5.191 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249818.jpgsave_picture_249818.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ Malleus - The Fires of Heaven (2023) [FLAC|Lossless|WEB-DL|tracks] <Black, Speed
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249819.jpgsave_picture_249819.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ magnet:?xt=urn:btih:439DBA306018946C2D6A4EAC8EBC6147AB4202D3
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249820.jpgsave_picture_249820.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ Fats Waller - 1941 (1999) Classics [FLAC|Lossless|tracks + .cue] <Swing, Stride,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249821.jpgsave_picture_249821.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ magnet:?xt=urn:btih:E76C58AC0E9CF12E4F67F0CD5CCCFE6C682A50A3
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249822.jpgsave_picture_249822.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ magnet:?xt=urn:btih:42AA539E5ABBB54BFB25E317CCED501CB6B9B256
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249823.jpgsave_picture_249823.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ magnet:?xt=urn:btih:70177DB8EB828B1432FA5427BBB1BAB577FC47BD
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249824.jpgsave_picture_249824.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ magnet:?xt=urn:btih:C28FC3902A15DD1DBD39AF564FB832D2FC173717
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249825.jpgsave_picture_249825.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ magnet:?xt=urn:btih:54969B87598DF0ECC0B3798025D4090CC9E86EA7
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249826.jpgsave_picture_249826.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ AquaSoft Stages 14.2.03 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249827.jpgsave_picture_249827.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ magnet:?xt=urn:btih:257026CE4C9A372CB90D3A20456EB5DB3E6252D1
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249828.jpgsave_picture_249828.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Windows 10 (v21h2) x64 HSL/PRO by KulHunter v8.2 (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249829.jpgsave_picture_249829.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ magnet:?xt=urn:btih:52703914A250010F05B04603274F91568C2E48C0
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249830.jpgsave_picture_249830.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ LibreWolf 102.0.1-1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249831.jpgsave_picture_249831.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Fort Firewall 3.7.9 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249832.jpgsave_picture_249832.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Blue Cat's Connector 1.12 VST, VST 3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249833.jpgsave_picture_249833.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ magnet:?xt=urn:btih:D3E8D122AAFAC5C4245B8FCE6D45F83DCEBBAFCC
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249834.jpgsave_picture_249834.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ magnet:?xt=urn:btih:20270C2F49DBAFE035893DDC377F0FFFB36D7E03
 >>Сериалы DC Comics
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249835.jpgsave_picture_249835.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ Firefox Browser ESR 102.9.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249836.jpgsave_picture_249836.jpg" />
 </div>
 
 

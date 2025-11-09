@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11809.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11809.jpgsave_picture_11809.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ VA - Music News For Forum vol.111 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11810.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11810.jpgsave_picture_11810.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:456B2AB9EC97070E18AF740C5C8DB1395AD66C35
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11811.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11811.jpgsave_picture_11811.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:CA187CBA7061B45197788EE651E9508EE69562A9
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11812.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11812.jpgsave_picture_11812.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:775B23DC838CF47CBC0052C7BEE0A23260EDAF1E
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11813.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11813.jpgsave_picture_11813.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ magnet:?xt=urn:btih:AB062692085C10841CA293E1ED458C68044EDAF8
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11814.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11814.jpgsave_picture_11814.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ James Manning | How to Draw Koalas Step by Step (2020) [EPUB] [EN]
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11815.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11815.jpgsave_picture_11815.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ Audiopunks - SansAmp Rack 1.0.0 VST 3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11816.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11816.jpgsave_picture_11816.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Mariah Carey - The Best (1993) Unofficial Release [FLAC 2.0|48/24|image +.cue|MC
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11817.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11817.jpgsave_picture_11817.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ Gorillaz - Live in London 2001 (2025) [MP3|320 Kbps] <Alternative-Rock, Trip-Hop
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11818.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11818.jpgsave_picture_11818.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ magnet:?xt=urn:btih:60FF2B269544C2FB241B027517AE9DF9A0841067
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11819.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11819.jpgsave_picture_11819.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ magnet:?xt=urn:btih:B5256BB21852A46007170766FBB29D0C84142A04
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11820.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11820.jpgsave_picture_11820.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ magnet:?xt=urn:btih:5F6392E4F33AA1D7E270BC76AF9826E7F6A22A95
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11821.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11821.jpgsave_picture_11821.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ magnet:?xt=urn:btih:514DF134787BB2DF4F2034E1BF6E3F1D165258A0
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11822.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11822.jpgsave_picture_11822.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ VA - Оргазм Нострадамуса: Трибьют Vol.1-2-3 (2020-2025)
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11823.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11823.jpgsave_picture_11823.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ magnet:?xt=urn:btih:55D016D28896741570ADA290F29CCD18A7A3FAAA
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11824.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11824.jpgsave_picture_11824.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Udemy, O- Academy | Furniture Design Using Blender (2025) WEB-DL [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11825.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11825.jpgsave_picture_11825.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ American Truck Simulator (2016) [Ru/Multi] (1.55.2.1s/dlc) Repack FitGirl
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11826.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11826.jpgsave_picture_11826.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ magnet:?xt=urn:btih:34866F0D253B0F52D74D25A23F87C0F74912CFF4
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11827.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11827.jpgsave_picture_11827.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Udemy, Yasar VURDEM | The Ultimate Digital Drawing Class: Portrait Paintings (20
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11828.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11828.jpgsave_picture_11828.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ magnet:?xt=urn:btih:9DA51F48B50D224C788356211FD4ECF6BCBD1EA5
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11829.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11829.jpgsave_picture_11829.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ By Click Downloader Premium 2.4.23 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11830.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11830.jpgsave_picture_11830.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ American Truck Simulator (2016) [Ru/Multi] (1.55.2.1/dlc) Repack seleZen
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11831.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11831.jpgsave_picture_11831.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ AnyDesk 9.5.8 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11832.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11832.jpgsave_picture_11832.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ magnet:?xt=urn:btih:52DD55988166AE8C5F2096F2A13E96ADF5A0FCEE
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11833.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11833.jpgsave_picture_11833.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Udemy, Marco Paoletta | Godot 4 Fast Lane: Game Development for Absolute Beginne
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11834.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11834.jpgsave_picture_11834.jpg" />
 </div>
 
 

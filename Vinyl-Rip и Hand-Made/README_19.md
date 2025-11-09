@@ -6,7 +6,7 @@ Elusive (Norway) - Studio Albums (3 releases) (2001-2007) hand made [restored, d
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67998.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67998.jpgsave_picture_67998.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Fear Factory - Digimortal (2001) Reissue, 2007, Roadrunner Records [FLAC|24/192|
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68068.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68068.jpgsave_picture_68068.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Fear Factory - Obsolete (1998) Reissue, 2018, Roadrunner Records [FLAC|24/192|im
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68071.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68071.jpgsave_picture_68071.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Manowar - Sign of the Hammer (1984)  [FLAC|24/192|tracks|Vinyl-Rip]<Heavy Metal>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68082.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68082.jpgsave_picture_68082.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Nightwish - Endless Forms Most Beautiful (2015) [FLAC|24/192|image + .cue|Vinyl-
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68087.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68087.jpgsave_picture_68087.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Nightwish - The Crow, the Owl and the Dove (2012) (Single) [FLAC|24/192|image + 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68096.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68096.jpgsave_picture_68096.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Daylight Dies - Studio Albums (5 releases) (2000-2012) hand made [restored, decl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68100.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68100.jpgsave_picture_68100.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Akolyth - Akolyth (2020) [FLAC|24/192|image + .cue|Vinyl-Rip] <Black Metal>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68101.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68101.jpgsave_picture_68101.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ Dream Theater - Metropolis Pt. 2: Scenes from a Memory (1999) Reissue, 2025, Rhi
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68120.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68120.jpgsave_picture_68120.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Fear Factory - Demanufacture (1995) Reissue, 2007, Cargo Records [FLAC|24/192|tr
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68144.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68144.jpgsave_picture_68144.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Manowar - Into Glory Ride (1983) [FLAC|24/192|image + .cue|Vinyl-Rip] <Heavy Met
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68166.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68166.jpgsave_picture_68166.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Manowar - Defender (1983) (Single) [FLAC|24/192|image + .cue|Vinyl-Rip] <Heavy M
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68196.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68196.jpgsave_picture_68196.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Nightwish - Bye Bye Beautiful (2008) (Single) [FLAC|24/192|image + .cue|Vinyl-Ri
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68202.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68202.jpgsave_picture_68202.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Fear Factory - Fear Is the Mindkiller (1993) (EP) [FLAC|24/192|tracks|Vinyl-Rip]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68207.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68207.jpgsave_picture_68207.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Manowar - Battle Hymns (1982) Reissue, 1987, Liberty [DSD|tracks|Vinyl-Rip] <Roc
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68209.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68209.jpgsave_picture_68209.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ Fatal Embrace (Germany) - Studio Albums (7 releases) (2000-2025) hand made [rest
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68217.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68217.jpgsave_picture_68217.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ Ne Obliviscaris - Studio Albums (6 releases) (2012-2023) hand made [restored, de
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68231.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68231.jpgsave_picture_68231.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ Nightwish - Dark Passion Play (2007) [FLAC|24/192|image + .cue|Vinyl-Rip] <Symph
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68253.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68253.jpgsave_picture_68253.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ Frantic Amber - Studio Albums (3 releases) (2015-2025) hand made [restored, decl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68261.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68261.jpgsave_picture_68261.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ Nightwish - Elan (2015) (Singles) [FLAC|24/192|image + .cue|Vinyl-Rip] <Sympho P
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68303.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68303.jpgsave_picture_68303.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Fear Factory - Soul of a New Machine (1992) [FLAC|24/192|tracks|Vinyl-Rip] <Deat
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68308.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68308.jpgsave_picture_68308.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Persefone - Studio Albums (7 releases) (2004-2024) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68327.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68327.jpgsave_picture_68327.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Korgull the Exterminator - War of the Voivodes (2010) Reissue, 2014, Doomentia R
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68330.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68330.jpgsave_picture_68330.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ magnet:?xt=urn:btih:4185CDD55253CE71A970D93E2946BEE8C1E07153
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68389.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68389.jpgsave_picture_68389.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ Katatonia - For Funerals to Come... (1995) EP, Reissue, 2011, Peaceville [FLAC|2
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68418.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68418.jpgsave_picture_68418.jpg" />
 </div>
 
 
@@ -676,7 +676,7 @@ Occult - The Enemy Within (1996) Reissue, 2016, Cosmic Key Creations [FLAC|24/19
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68419.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68419.jpgsave_picture_68419.jpg" />
 </div>
 
 

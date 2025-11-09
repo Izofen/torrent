@@ -6,7 +6,7 @@ Reg Organizer 9.30 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186751.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186751.jpgsave_picture_186751.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:16147D0A39E2E1B1DD16A151913576288ED4857A
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186752.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186752.jpgsave_picture_186752.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:E76AA3F98E6A7AD7E443315DF1B5251377A9DF0F
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186753.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186753.jpgsave_picture_186753.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:E7D81DB926927CCFCC7AA6CED48CDC8B1E8BD76A
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186754.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186754.jpgsave_picture_186754.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Wondershare PDFelement 10.0.7.2464 + OCR Plugin (x64) Portable by 7997 [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186755.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186755.jpgsave_picture_186755.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ AMD Radeon Software Adrenalin Edition 23.9.2 WHQL [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186756.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186756.jpgsave_picture_186756.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:16FC126FD7350926C9715FDC979E1D93A1852DD6
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186757.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186757.jpgsave_picture_186757.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:B0D2A1888F1F3677F96F0E44B2FADD599E07F754
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186758.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186758.jpgsave_picture_186758.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:F102C73C5689397A5FA03F59558F9601E02B5AC2
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186759.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186759.jpgsave_picture_186759.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:0404E39BE60480A01BDBE1C141B09F9F12F3A006
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186760.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186760.jpgsave_picture_186760.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Michael Jackson - Thriller 40 (2022) 40th Anniversary [FLAC|Lossless|WEB-DL|trac
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186761.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186761.jpgsave_picture_186761.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ magnet:?xt=urn:btih:F81F0A5DB0FCABABE0D6FAD3F8916917F5847720
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186762.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186762.jpgsave_picture_186762.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:159C824B1337D8EC3A95AB67113E789CB73F2EB1
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186763.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186763.jpgsave_picture_186763.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ magnet:?xt=urn:btih:979A8E966E833F90CB356D02FEFE25E350AF53FF
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186764.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186764.jpgsave_picture_186764.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Liveclasses, Алексей Шадрин | Тайны модернизма: Эг
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186765.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186765.jpgsave_picture_186765.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ magnet:?xt=urn:btih:CA996FA4CC09C407555540A2AAFAE28A58C94886
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186766.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186766.jpgsave_picture_186766.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ DesktopDigitalClock 4.67 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186767.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186767.jpgsave_picture_186767.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Udemy, Eincode by Filip Jerga, Filip Jerga | Svelte and Firebase: The Full Cours
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186768.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186768.jpgsave_picture_186768.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ magnet:?xt=urn:btih:1710377EEE16CCBF62C51CE044EFED19F9172743
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186769.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186769.jpgsave_picture_186769.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ magnet:?xt=urn:btih:2D4A121EB80273AD0B7D47296CC190AC2B1ABC80
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186770.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186770.jpgsave_picture_186770.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ magnet:?xt=urn:btih:D8EC620D57CD8839F8D38E2B967876BFFA7E4091
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186771.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186771.jpgsave_picture_186771.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Mp3tag 3.22b + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186772.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186772.jpgsave_picture_186772.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Dictionary 15.2 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186773.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186773.jpgsave_picture_186773.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ magnet:?xt=urn:btih:4874B2D902C9FE3C79AF0ABE8AFD9DDEFA595F5D
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186774.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186774.jpgsave_picture_186774.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ EZ CD Audio Converter 11.2.0.1 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186775.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186775.jpgsave_picture_186775.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ magnet:?xt=urn:btih:FD2D2602558962B832E8F60BF694107B75E79089
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186776.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186776.jpgsave_picture_186776.jpg" />
 </div>
 
 

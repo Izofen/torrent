@@ -6,7 +6,7 @@
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250071.jpgsave_picture_250071.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Windows 10 Manager 3.6.7 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250072.jpgsave_picture_250072.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:9BE574B43AC04311C257FE4BE6779F7C6FEB241F
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250073.jpgsave_picture_250073.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:45A95C3A25401C24A5092500E654A4B9FE2CE3A9
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250074.jpgsave_picture_250074.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:B886DD7B9A753492D3E8F484925B2E9ECA14D17C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250075.jpgsave_picture_250075.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:35FB01369132C31DCA8D33B0F9389874DC272697
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250076.jpgsave_picture_250076.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ VueScan Pro 9.7.89 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250077.jpgsave_picture_250077.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ R-Studio 9.1 Build 191020 Technician RePack (& portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250078.jpgsave_picture_250078.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:DEE26A30DA002FE38B4662F414570F570F32AEF0
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250079.jpgsave_picture_250079.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Liveclasses, Андрей Козьяков | Adobe Illustrator: Расширен
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250080.jpgsave_picture_250080.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ magnet:?xt=urn:btih:3DA138C16F98C3103CE825C33986CC089B19B8FC
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250081.jpgsave_picture_250081.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Blackmore's Night - Shadow of the Moon (1997) 25th Anniversary Edition, 2023, Mi
 >>Folk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250082.jpgsave_picture_250082.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:0BBD45CA8565D5BC88BA6C8664D89E76115DC330
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250083.jpgsave_picture_250083.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:821FCA07386C0EF45D4B76EBA4D3A99DF907A319
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250084.jpgsave_picture_250084.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ magnet:?xt=urn:btih:EE3407B32D5D4A804059FA2DD9D6889B1F4C87BF
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250085.jpgsave_picture_250085.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ HD Video Converter Movavi 22.1.1 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250086.jpgsave_picture_250086.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ magnet:?xt=urn:btih:71E45161504864D988623E3AEC9B2E9139AEE734
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250087.jpgsave_picture_250087.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ magnet:?xt=urn:btih:D0DD85490DDEC36EBB81A9318E7DB05A2C3E3FA1
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250088.jpgsave_picture_250088.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ Vivaldi 5.7.2921.63 include standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250089.jpgsave_picture_250089.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ magnet:?xt=urn:btih:1B805ACEADF5A9604A67062067E7AABF0B58320C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250090.jpgsave_picture_250090.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ magnet:?xt=urn:btih:9D2FD82D07B462B821865616E436F2DE353AD645
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250091.jpgsave_picture_250091.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:5B7F0CD583396C6486F4D80F94E879967EB9D3B5
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250092.jpgsave_picture_250092.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ BLEASS - Motion EQ 1.1.1 VST 3, AAX (x64) RePack by TCD [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250093.jpgsave_picture_250093.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ uTorrent Pro 6.7.3 Mod by Rajat [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250094.jpgsave_picture_250094.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Camera FV-5 5.3.3 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250095.jpgsave_picture_250095.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ VA - Music News vol.250 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250096.jpgsave_picture_250096.jpg" />
 </div>
 
 

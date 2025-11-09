@@ -6,7 +6,7 @@
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168480.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168480.jpgsave_picture_168480.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:BC1DAA80AC4297B3BC496F0489DD8E19E0235B3E
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168481.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168481.jpgsave_picture_168481.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ VA - Лучшие гармонисты России (2012) [MP3|224 Kbps] <Ру�
 >>Folk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168482.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168482.jpgsave_picture_168482.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Amoriello - Amoriello (2018) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168483.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168483.jpgsave_picture_168483.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ BatchOutput PPT 2.2.23 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168485.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168485.jpgsave_picture_168485.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:2F660CA6612986ECB9F3E562E75B6238CF286E3C
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168487.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168487.jpgsave_picture_168487.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:E6CE2E8A213864E0547CC00FDAD3FF25D8F0F627
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168488.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168488.jpgsave_picture_168488.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:750A4ECE449FFDEE4E4F5E6205DBA9BECE933DF7
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168489.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168489.jpgsave_picture_168489.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ VA - Deepalma Ibiza Winter Moods (2017) [AAC|~323 Kbps] <Disco, House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168490.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168490.jpgsave_picture_168490.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ Oponente - Decreciendo (2022) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168491.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168491.jpgsave_picture_168491.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ Corel Painter 2020 + Corel Premium Brush Packs v20.1.0.285 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168492.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168492.jpgsave_picture_168492.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ magnet:?xt=urn:btih:AEF14BFA8FDE8492B78755398B7E4D2703C4D726
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168493.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168493.jpgsave_picture_168493.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ magnet:?xt=urn:btih:DA151495F4FA75750914D18E38183E90072CFF1A
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168494.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168494.jpgsave_picture_168494.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ magnet:?xt=urn:btih:BB4AA3DD8BCDC2D2160E7219A28069C9F8F4896F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168495.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168495.jpgsave_picture_168495.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ A.R.G. - One World Without the End (1991) Remaster 2012 [FLAC|Lossless|image + .
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168496.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168496.jpgsave_picture_168496.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ magnet:?xt=urn:btih:C6041FD227638772D48997D9AFF5E34FA61161C6
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168497.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168497.jpgsave_picture_168497.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ magnet:?xt=urn:btih:CF335650530F5E041283768BCB0EFDD2B4421B3C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168498.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168498.jpgsave_picture_168498.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ VA - Deepalma Ibiza Winter Moods, Vol. 2 (2020) [AAC|~326 Kbps] <Disco, House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168499.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168499.jpgsave_picture_168499.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ magnet:?xt=urn:btih:86322BB92DFB7A7F169D824B95089ECFC300ABFE
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168500.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168500.jpgsave_picture_168500.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ magnet:?xt=urn:btih:486A1CEDF571FEC15462AB41998A952D56F765D2
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168501.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168501.jpgsave_picture_168501.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ magnet:?xt=urn:btih:1E5232319E4EB2035E94A5AD0FF0579EF09C3FF5
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168502.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168502.jpgsave_picture_168502.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ magnet:?xt=urn:btih:B902DB28496367833E9D97A25CBCE90DCB05A7A2
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168503.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168503.jpgsave_picture_168503.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ magnet:?xt=urn:btih:745B16206E008C25F580263421E031C13F131957
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168504.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168504.jpgsave_picture_168504.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ magnet:?xt=urn:btih:7EF83E6BE56120F8DF8C2F3D6F73E4DD4506918B
 >>Сверхъестественное / Supernatural
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168505.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168505.jpgsave_picture_168505.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ magnet:?xt=urn:btih:3B487AAAF237BA56C4C600F7EE17E2A9AF2B4E9C
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168506.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168506.jpgsave_picture_168506.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ magnet:?xt=urn:btih:40563EBD28991BF2BD1BB0E18F986948E7DCA866
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168507.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168507.jpgsave_picture_168507.jpg" />
 </div>
 
 

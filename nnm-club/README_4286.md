@@ -6,7 +6,7 @@ Background Eraser (InShot Inc.) v2.194.57 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133020.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133020.jpgsave_picture_133020.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:6F015ACAA05194143D7A1B0F4936BC84CCF16D18
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133022.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133022.jpgsave_picture_133022.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:AF4348058130E0AB7AF20E166869F1D2674E2381
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133024.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133024.jpgsave_picture_133024.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:7CEC296BB29652F51B4099181C57A0468812B2CB
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133026.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133026.jpgsave_picture_133026.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:C6AF676D940E746BB2BCC3FD194B0DE52E445434
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133027.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133027.jpgsave_picture_133027.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Korolova - Tomorrowland Friendship Mix (2023-11-30) [MP3|320 Kbps] <Progressive 
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133028.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133028.jpgsave_picture_133028.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ Immortal - Дискография (1992 - 2009) [FLAC|Losless]<Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133033.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133033.jpgsave_picture_133033.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ Immortal - Дискография (1992 - 2009) [FLAC|Losless]<Black Metal>
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133034.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133034.jpgsave_picture_133034.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ VA - Best of ROAD TRIP Rock Hits (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133035.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133035.jpgsave_picture_133035.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ magnet:?xt=urn:btih:C6C65B4FECEDB550F5A2634DEB676CBE38D79050
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133036.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133036.jpgsave_picture_133036.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ magnet:?xt=urn:btih:88B50DFA4B749A5E2C9DB15021CF6A80643CB26E
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133037.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133037.jpgsave_picture_133037.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ magnet:?xt=urn:btih:109FBAD313355BF6AE8FF2015080BA367B6EC8F5
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133038.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133038.jpgsave_picture_133038.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ magnet:?xt=urn:btih:58736DD89FE91BC0734D0C8EF6D23AD34742962F
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133039.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133039.jpgsave_picture_133039.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ magnet:?xt=urn:btih:58736DD89FE91BC0734D0C8EF6D23AD34742962F
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133040.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133040.jpgsave_picture_133040.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ magnet:?xt=urn:btih:D77A60667F27629BC4C431290F7F20036E9B1D6D
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133041.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133041.jpgsave_picture_133041.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ magnet:?xt=urn:btih:01A1A5FE073C39FC6C6EFAEFB05A53207F603A85
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133042.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133042.jpgsave_picture_133042.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ VA- Wien, 1850 Dances - Strauss, Diabelli, Lanner: Michael Dittrich (1993) [FLAC
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133043.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133043.jpgsave_picture_133043.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ The Alan Parsons Project - The Instrumental Works (1988) Reissue, 2023, Arista -
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133044.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133044.jpgsave_picture_133044.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ magnet:?xt=urn:btih:96D876ACD90647D6F79B0C72691E9644C62C4438
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133046.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133046.jpgsave_picture_133046.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ magnet:?xt=urn:btih:0F9B0EE5762328CC2407BB1387B1BBF66425E84D
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133047.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133047.jpgsave_picture_133047.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ Ventusky: Прогноз погоды v30.0 (b3000) Mod by Alex.Strannik [Ru/Mul
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133048.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133048.jpgsave_picture_133048.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ magnet:?xt=urn:btih:84A6452A6E7176987B71C7AB0EE68DC37C78348C
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133049.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133049.jpgsave_picture_133049.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:84A6452A6E7176987B71C7AB0EE68DC37C78348C
 >>История
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133050.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133050.jpgsave_picture_133050.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ VA - Covers the Rock Album (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133052.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133052.jpgsave_picture_133052.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ PhotoScape 3.6.3 [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133053.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133053.jpgsave_picture_133053.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Apeaksoft iPhone Eraser for Mac 1.0.20 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133054.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133054.jpgsave_picture_133054.jpg" />
 </div>
 
 

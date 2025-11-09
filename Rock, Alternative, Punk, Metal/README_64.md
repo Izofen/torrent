@@ -6,7 +6,7 @@ Theocracy - Theocracy (2003) Reissue, Remastered, 2013, Ulterium Records [FLAC|L
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67289.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67289.jpgsave_picture_67289.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ The Weepies - Hideaway (2008) [FLAC|Lossless|tracks + .cue] <Acoustic, Indie Roc
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67309.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67309.jpgsave_picture_67309.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Paul Polotsk - Я иду долиной (2025) Сергей Есенин [MP3|32
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67341.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67341.jpgsave_picture_67341.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ MONOЛИЗА - Кит (2025) [MP3|320 Kbps] <Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67357.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67357.jpgsave_picture_67357.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ AkiaveL - InVictus (2025) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67379.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67379.jpgsave_picture_67379.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Epica - Aspiral (2025) [MP3|320 Kbps] <Symphonic Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67394.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67394.jpgsave_picture_67394.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Deserted Fear - Veins Of Fire (2025) [FLAC|Lossless|image + .cue] <Melodic Death
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67432.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67432.jpgsave_picture_67432.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Aggravated Assault - The Order of Chaos (2025) [FLAC|Lossless|WEB-DL|tracks] <Th
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67442.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67442.jpgsave_picture_67442.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Benediction - Ravage Of Empires (2025) [FLAC|Lossless|image + .cue] <Death Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67444.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67444.jpgsave_picture_67444.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Ancient Bards - Artifex (2025) Deluxe Edition [MP3|320 Kbps] <Symphonic Power Me
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67468.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67468.jpgsave_picture_67468.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Marco Maurizi - A Book of Prog Prayers (2025) [FLAC|Lossless|WEB-DL|tracks] <Pro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67471.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67471.jpgsave_picture_67471.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Cosmic Cathedral - Deep Water (2025) [MP3|320 Kbps] <Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67473.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67473.jpgsave_picture_67473.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Projekt JU - In alle Ewigkeit (2025) [MP3|320kbps] <Gothic Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67475.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67475.jpgsave_picture_67475.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Machine Head - Unatoned (2025) [MP3|320 Kbps] <Groove Metal, Thrash Metal, Alter
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67478.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67478.jpgsave_picture_67478.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Zmarłym (Zmarlym) - Wielkie Zanikanie (2025) [FLAC|Lossless|WEB-DL|tracks] <Bla
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67491.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67491.jpgsave_picture_67491.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Gedanken toten Lebens - Essenz der Urwunde (2025) [FLAC|Lossless|WEB-DL|tracks] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67492.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67492.jpgsave_picture_67492.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Mayhemic - Toba (2024) [FLAC|Lossless|image + .cue] <Black Metal, Thrash>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67495.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67495.jpgsave_picture_67495.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Epic Death - The Seer (2025) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Black, Dea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67513.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67513.jpgsave_picture_67513.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Verheerer - Urgewalt (2025) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67514.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67514.jpgsave_picture_67514.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Battle Beast - Bringer Of Pain (2017) Japanese Edition [FLAC|Lossless|image + .c
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67528.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67528.jpgsave_picture_67528.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Brave Hearts Factory - Love Never Dies (2025) [FLAC|Lossless|WEB-DL|tracks] <Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67551.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67551.jpgsave_picture_67551.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Imperial Triumphant - Vile Luxury(redux 1924) (2018) Remastered, Remixed, 2024, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67554.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67554.jpgsave_picture_67554.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Digital Life Project (DLP) - Digital Life (2025) [FLAC|Lossless|WEB-DL|tracks] <
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67568.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67568.jpgsave_picture_67568.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Quartz - Six (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard-Rock, Heavy-Metal>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67599.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67599.jpgsave_picture_67599.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Ice on Fire - Nine Shades of Evil (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy, P
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67627.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67627.jpgsave_picture_67627.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ T. Rex - Bolan B-Sides (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67635.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67635.jpgsave_picture_67635.jpg" />
 </div>
 
 

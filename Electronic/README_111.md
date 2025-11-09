@@ -6,7 +6,7 @@ VA - Deep Christmas Vibes (2022) [MP3|320 Kbps] <Deep-House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169222.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169222.jpgsave_picture_169222.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Cocooma - The Best Of Cocooma (2019) [FLAC|Lossless|WEB-DL|tracks] <Hard Trance>
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169226.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169226.jpgsave_picture_169226.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - Techno Club Vol. 70 (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169238.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169238.jpgsave_picture_169238.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Yotam Avni - Summer of Love (2023) [FLAC|Lossless|WEB-DL|tracks] <Techno>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169242.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169242.jpgsave_picture_169242.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ AXMO - Live @ Future Heroes of Bigroom Stage, Rave Culture, Q-Factory, ADE (2023
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169337.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169337.jpgsave_picture_169337.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ VA - Amsterdam Dance Essentials 2023 Trance (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169342.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169342.jpgsave_picture_169342.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ VA - Uplifting Only Top 15: October 2023 (Extended Mixes) (2023) [MP3|320 Kbps] 
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169350.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169350.jpgsave_picture_169350.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Markus Schulz - Global DJ Broadcast Afterdark (Euphoric Techno Mix) (2023-10-26)
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169354.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169354.jpgsave_picture_169354.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ VA - Nothing But... Trancetopia, Vol. 09 (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169405.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169405.jpgsave_picture_169405.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ VA - Infrasonic Autumn Selection (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169461.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169461.jpgsave_picture_169461.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Scooter - Music For A Big Night Out (2012) [FLAC|Lossless|image + .cue] <House, 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169467.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169467.jpgsave_picture_169467.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ VA - Super8 & Tab Presents: 20 Years Of Anjunabeats (2020) DJ Mix [FLAC|Lossless
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169612.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169612.jpgsave_picture_169612.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ VA - Andrew Bayer Presents: 20 Years Of Anjunabeats (2020) DJ Mix [FLAC|Lossless
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169694.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169694.jpgsave_picture_169694.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Terekke - Discography 7 Releases (2011-2019) L.I.E.S. [FLAC|Lossless|tracks] <Am
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169711.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169711.jpgsave_picture_169711.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ A.M. Architect - Discography 6 Releases (2009-2019) 79Ancestors, Exponential [FL
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169744.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169744.jpgsave_picture_169744.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ VA - Good Morning Lounge (Chillout Your Mind) (2019) [FLAC|Lossless|WEB-DL|track
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169774.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169774.jpgsave_picture_169774.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ VA - EDM Anthems 2020: Top 40 Club Beats For DJs (2019) [MP3|320 Kbps] <Progress
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169805.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169805.jpgsave_picture_169805.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ VA - Muscular Well-Being (EDM Music For Workout) (2019) [MP3|320 Kbps] <Electro 
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169810.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169810.jpgsave_picture_169810.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ VA - Return of the Ade Edition (2023) CD, Compilation [MP3|320 Kbps] <Techno, Pr
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169818.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169818.jpgsave_picture_169818.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ VA - Ninja Cuts: Funkungfusion (1998) Ninja Tune [FLAC|Lossless|tracks+.cue] <Ab
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169821.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169821.jpgsave_picture_169821.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ VA - Purified Chronicles 2022 (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hous
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169854.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169854.jpgsave_picture_169854.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ OMD (Orchestral Manoeuvres In The Dark) - Bauhaus Staircase (2023) [FLAC 24/44.1
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169933.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169933.jpgsave_picture_169933.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ VA - Songs 4 Sex Sexy Chill Out Night Vibes (2023) [MP3|320 Kbps] <Electronic, L
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170090.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170090.jpgsave_picture_170090.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ VA - Top 100 Best Bass House '19 (Part 1) (2019) [MP3|320 Kbps] <House, Future H
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170146.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170146.jpgsave_picture_170146.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ VA - Trance Dance 2022 (2021) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170310.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170310.jpgsave_picture_170310.jpg" />
 </div>
 
 
@@ -676,7 +676,7 @@ VA - Musical Escape: Chillout Your Mind (2023) [FLAC|Lossless|WEB-DL|tracks] <Ba
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170330.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170330.jpgsave_picture_170330.jpg" />
 </div>
 
 

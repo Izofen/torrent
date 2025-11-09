@@ -6,7 +6,7 @@ VA - Relaxing Carefree Romantic Smooth Jazz Ride (2024) [FLAC|Lossless|WEB-DL|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121288.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121288.jpgsave_picture_121288.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Jazz Guitar Club, Jazz Guitar Music Zone - Sunset Guitar Session Smooth Guitar J
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121289.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121289.jpgsave_picture_121289.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Restaurant Jazz Music Collection, Jazz Ambiental para Hotels - Dining in Jazz Ha
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121290.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121290.jpgsave_picture_121290.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Rhino Bucket - Studio Albums (7 releases) (1990-2017) hand made [restored, decli
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121291.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121291.jpgsave_picture_121291.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ magnet:?xt=urn:btih:12FCD7D81A5651985721345FE607624644F1DCE8
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121292.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121292.jpgsave_picture_121292.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Dawn Of The Rising - Win Lose or Draw (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121293.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121293.jpgsave_picture_121293.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Abysmal Grief - Strange Rites of Evil (2015) [FLAC|Lossless|image + .cue] <Doom 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121294.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121294.jpgsave_picture_121294.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ magnet:?xt=urn:btih:38046D1006827C701618AC7CF4C540982AC19933
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121295.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121295.jpgsave_picture_121295.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ SecuritySpy 5.5.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121296.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121296.jpgsave_picture_121296.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ HiBit Uninstaller 3.1.80 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121297.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121297.jpgsave_picture_121297.jpg" />
 </div>
 
 
@@ -265,7 +265,7 @@ Waterfox Current G6.0.8 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121298.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121298.jpgsave_picture_121298.jpg" />
 </div>
 
 
@@ -289,7 +289,7 @@ magnet:?xt=urn:btih:F2809FE0B1AA8DB77A50F73876206C53191C2797
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121299.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121299.jpgsave_picture_121299.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ magnet:?xt=urn:btih:152DE943E682364830BE69BA1403353102844644
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121300.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121300.jpgsave_picture_121300.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ Ryujin - Ryujin (2024) [FLAC|Lossless|tracks + .cue] <Melodic Death Metal>
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121301.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121301.jpgsave_picture_121301.jpg" />
 </div>
 
 
@@ -364,7 +364,7 @@ magnet:?xt=urn:btih:02289F145027592019CB96FFCCD3EA2B16370AFE
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121302.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121302.jpgsave_picture_121302.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ Ungoogled Chromium 120.0.6099.224-1.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121303.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121303.jpgsave_picture_121303.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ magnet:?xt=urn:btih:FF176E26563A352E4ED10F1C44E35EB5D9DF70BB
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121304.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121304.jpgsave_picture_121304.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ magnet:?xt=urn:btih:4A20356C35AA29B95D56CF916613CEF26D029A54
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121305.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121305.jpgsave_picture_121305.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ Pet Shop Boys - Format (B-Sides And Bonus Tracks 1996–2009) (2012) [OGG Vorbis
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121306.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121306.jpgsave_picture_121306.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ DevUtils 1.17.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121307.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121307.jpgsave_picture_121307.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Broke on Payday - Switching Colors (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121308.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121308.jpgsave_picture_121308.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ WizTree 4.17 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121309.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121309.jpgsave_picture_121309.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Smart Disk Image Utilities 3.1.1 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121310.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121310.jpgsave_picture_121310.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ magnet:?xt=urn:btih:A9FF41407169FAE4F07D452A4A6C296038CE4547
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121311.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121311.jpgsave_picture_121311.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Glary Tracks Eraser 6.0.1.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121312.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121312.jpgsave_picture_121312.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ VA - Talent Blues Condensed Vol 2 (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121313.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121313.jpgsave_picture_121313.jpg" />
 </div>
 
 

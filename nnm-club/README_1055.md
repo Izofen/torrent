@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27780.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27780.jpgsave_picture_27780.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Blood Bar Tycoon (2025) [Ru/Multi] (1.0.10122/dlc) Repack Let'sРlay
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27781.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27781.jpgsave_picture_27781.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:537200FF53AF82CF78BB6E7067DEE66253CC7493
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27782.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27782.jpgsave_picture_27782.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Bulwark Evolution: Falconeer Chronicles (2024) [Ru/Multi] (Build 17334550/dlc) R
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27783.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27783.jpgsave_picture_27783.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Lanpirot | Товарищ "Чума" (Книга 1). (2025) [MP3, Виктор �
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27784.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27784.jpgsave_picture_27784.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ O&O ShutUp10++ 1.9.1444 Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27785.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27785.jpgsave_picture_27785.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:E711A427FECF87964FB2EA94635A2468E74CA2C4
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27786.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27786.jpgsave_picture_27786.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:1C77A8A50B3BFC0F61A83FB3FA7520187944258B
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27787.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27787.jpgsave_picture_27787.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ Suicide Squad: Kill the Justice League (2024) [Ru/Multi] (1.0.6.0/dlc) Repack Wa
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27788.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27788.jpgsave_picture_27788.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ magnet:?xt=urn:btih:E96CB6587B87BAD1174FC9ADFBD9FBD1E5C54DD8
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27789.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27789.jpgsave_picture_27789.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Wreckfest (2018) [Ru/Multi] (1.0o/dlc) Repack Wanterlude [Complete Edition]
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27790.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27790.jpgsave_picture_27790.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ magnet:?xt=urn:btih:335B78DAC093BDDDB5D77831941A43E74E18FBB6
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27791.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27791.jpgsave_picture_27791.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ magnet:?xt=urn:btih:335B78DAC093BDDDB5D77831941A43E74E18FBB6
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27792.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27792.jpgsave_picture_27792.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ magnet:?xt=urn:btih:35166129C7431979412F512C1F9A99050D6FE1BF
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27793.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27793.jpgsave_picture_27793.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Half-Life 2 (2004) [Ru/Multi] (Build 17324696/dlc) Repack Let'sРlay [20th Anniv
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27794.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27794.jpgsave_picture_27794.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ magnet:?xt=urn:btih:511EB76DB666D465625F7C745FCAE7A0B4C6287C
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27795.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27795.jpgsave_picture_27795.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ magnet:?xt=urn:btih:490FB556226381F5E084C6594C3D180076F770BF
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27796.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27796.jpgsave_picture_27796.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ Microarch, Кирилл Ветчинкин | Микросервисная арх
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27797.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27797.jpgsave_picture_27797.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ magnet:?xt=urn:btih:3034471C9693E3245525D78D444ABDEA4E5A648B
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27798.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27798.jpgsave_picture_27798.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ magnet:?xt=urn:btih:3034471C9693E3245525D78D444ABDEA4E5A648B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27799.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27799.jpgsave_picture_27799.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ magnet:?xt=urn:btih:FD8F8413AE5065966C94375669275A5758436CFE
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27800.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27800.jpgsave_picture_27800.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ magnet:?xt=urn:btih:0CDA6704888D410970D94D5B8358E25CB52975BD
 >>Картинки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27801.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27801.jpgsave_picture_27801.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ magnet:?xt=urn:btih:F5E86548E9BB357FEDFE7BC42F6F4A2BF54F9756
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27802.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27802.jpgsave_picture_27802.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Taj Mahal - 39 Albums, 2 Box Set (1968 - 2024) 62 CD [FLAC|Lossless|tracks + .cu
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27803.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27803.jpgsave_picture_27803.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ magnet:?xt=urn:btih:E9B2B39963700BDC03122009654ED142A721D161
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27804.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27804.jpgsave_picture_27804.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ magnet:?xt=urn:btih:AAE610081FC41BB15E583546B61A11000284C56D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27805.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27805.jpgsave_picture_27805.jpg" />
 </div>
 
 

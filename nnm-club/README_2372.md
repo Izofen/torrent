@@ -6,7 +6,7 @@
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62039.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62039.jpgsave_picture_62039.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Hex Gambit: Respawned (2024) [Ru/Multi] (1.0.34+9115b5b) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62040.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62040.jpgsave_picture_62040.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:36BDF43A6D7806ED715F4A07C345DFC5C8CEE66E
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62041.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62041.jpgsave_picture_62041.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:9665D4F54A250AFA20B9F188A8B0924CA428CE53
 >>Сериалы DC Comics
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62042.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62042.jpgsave_picture_62042.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:D8A1BAB8EAEAB3B38310998257B8EB1F7239CBE2
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62043.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62043.jpgsave_picture_62043.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Psiphon 3 build 181 (21.03.2024) Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62044.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62044.jpgsave_picture_62044.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Zom 100: Zombie ni Naru made ni Shitai 100 no Koto | Zom 100: Bucket List of the
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62045.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62045.jpgsave_picture_62045.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Adobe Photoshop Express 13.2.394 (ARM64) Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62046.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62046.jpgsave_picture_62046.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ Out of the Park Baseball 25 (2024) [Multi] (25.1) Repack FitGirl
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62047.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62047.jpgsave_picture_62047.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Uchuusen Sagittarius | Spaceship Sagittarius | Искатели приключе
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62048.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62048.jpgsave_picture_62048.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ magnet:?xt=urn:btih:207BF54615C57D4F1A999FC4C1532D08E043C8FF
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62049.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62049.jpgsave_picture_62049.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Aibi: AI Photo Enhancer-Luminate v1.52.1 Mod by srajawwal09 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62050.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62050.jpgsave_picture_62050.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ magnet:?xt=urn:btih:9F3C7DF8A61E9609D27E033B092D5056552F7CC0
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62051.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62051.jpgsave_picture_62051.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Yubisaki to Renren | A Sign of Affection | Любовь с кончиков па
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62052.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62052.jpgsave_picture_62052.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Deep in the Woods / Глубоко в лесу (2024) [Ru/Multi] (1.0) Scene Ten
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62053.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62053.jpgsave_picture_62053.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ EMPYRE: Earls of the Deep Earth (2024) [En] (Build #16) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62054.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62054.jpgsave_picture_62054.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ magnet:?xt=urn:btih:128BAD6935416DCC021EAE0CDD05F991DAAF3529
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62055.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62055.jpgsave_picture_62055.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ magnet:?xt=urn:btih:D5D1E6AB9213C819F2EDE7B5235EC2361D3993B1
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62056.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62056.jpgsave_picture_62056.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ magnet:?xt=urn:btih:DB8BE574AD579EE12A68EAC05C0195CFEBED2A1B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62057.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62057.jpgsave_picture_62057.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Grand Soul Saga (2024) [En] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62058.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62058.jpgsave_picture_62058.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Luminar Neo 1.18.3 U2B  [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62059.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62059.jpgsave_picture_62059.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ magnet:?xt=urn:btih:DCFC6B9E0FFD28A2A087980C096B363C0761F43D
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62060.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62060.jpgsave_picture_62060.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ magnet:?xt=urn:btih:B6DC097B9AADDFFEC2262BA9E9EA4EB9E9D6B54D
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62061.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62061.jpgsave_picture_62061.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ magnet:?xt=urn:btih:3C063F993B575B58A466A4F41AA86BC30BB20535
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62062.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62062.jpgsave_picture_62062.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Windows 11 Manager 1.4.3 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62063.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62063.jpgsave_picture_62063.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ The Weird Dream (2024) [Multi] (1.0) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62064.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62064.jpgsave_picture_62064.jpg" />
 </div>
 
 

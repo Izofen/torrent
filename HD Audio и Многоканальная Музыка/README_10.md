@@ -6,7 +6,7 @@ Last prophets - Time Moved Again (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Roc
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6586.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6586.jpgsave_picture_6586.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Aisha Khan - Seven Shades of Blue Aisha Khan & the Rajahs (2025) [FLAC 24/48|Los
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6587.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6587.jpgsave_picture_6587.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Junior Vic Band - Let the Good Times Roll (2025) [FLAC 24/48|Lossless|WEB-DL|tra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6588.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6588.jpgsave_picture_6588.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Knox Morgan - Loudspeaker (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6589.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6589.jpgsave_picture_6589.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Jonathan Kasper - Turn Off the Machine (2025) [FLAC 24/44.1|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6590.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6590.jpgsave_picture_6590.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Lava Saint - Grim Avenues (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6597.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6597.jpgsave_picture_6597.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Dave Limina - Old Piano Blues (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6606.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6606.jpgsave_picture_6606.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Kate Vargas - Golden Hour in the House of Lugosi (2025) [FLAC 24/48|Lossless|WEB
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6610.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6610.jpgsave_picture_6610.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Scar The Martyr - Scar The Martyr (2013) [FLAC 24/96|Lossless|WEB-DL|tracks] <He
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6748.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6748.jpgsave_picture_6748.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Guns•N•Roses - Greatest Hits (2024) Compilation, Unofficial Release [FLAC 2.
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6771.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6771.jpgsave_picture_6771.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ AmongRuins - Studio Albums (3 releases) (2013-2023) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6893.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6893.jpgsave_picture_6893.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Rain Of Acid - Studio Albums (2 releases) (2011-2014) hand made [restored, decli
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6895.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6895.jpgsave_picture_6895.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Inbar Fridman feat. Katia Toobool, Lior Ozeri & Yogev Gabay - Mercy (2025) [FLAC
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7018.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7018.jpgsave_picture_7018.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Jade Vandal - You Don’t Understand Love (2025) [FLAC 24/44.1|Lossless|WEB-DL|t
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7019.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7019.jpgsave_picture_7019.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Raz Louk - Knocked Out In Space (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7023.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7023.jpgsave_picture_7023.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Colorado Jazz Repertory Orchestra - Golden Lady (2025) [FLAC 24/96|Lossless|WEB-
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7025.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7025.jpgsave_picture_7025.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Harmonic Tension - Roxy Vaine Yin Yang (2025) [FLAC 24/44.1|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7026.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7026.jpgsave_picture_7026.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Firstborne - Lucky (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock, Metal>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7027.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7027.jpgsave_picture_7027.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Thurisaz - Studio Albums (6 releases) (2004-2020) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7028.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7028.jpgsave_picture_7028.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Motiff - Heading for the Weekend (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <R
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7030.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7030.jpgsave_picture_7030.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Caden Morland - World Stays the Same (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7031.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7031.jpgsave_picture_7031.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Byzantine - Studio Albums (8 releases) (2004-2025) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7032.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7032.jpgsave_picture_7032.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ El Jetta - Monkeys Do What They See (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7033.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7033.jpgsave_picture_7033.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Aaron Searle - In Idle Hours (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7034.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7034.jpgsave_picture_7034.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ Kai Craig - A Time Once Forgotten (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Co
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7035.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7035.jpgsave_picture_7035.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ Architects - Studio Albums (12 releases) (2006-2025) hand made [restored, declip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7037.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7037.jpgsave_picture_7037.jpg" />
 </div>
 
 

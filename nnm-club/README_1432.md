@@ -6,7 +6,7 @@
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37587.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37587.jpgsave_picture_37587.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:95D96DF8B9FF3D3DEC45A0C6A691084BCBF1C0BE
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37588.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37588.jpgsave_picture_37588.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:D9281EFED551DB0E9ABB521C8E786E209ACC862B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37589.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37589.jpgsave_picture_37589.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ VA - Странные скачки (2023) [MP3|320 Kbps] <Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37590.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37590.jpgsave_picture_37590.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:0D9967FDD978B769A2EDB138EEB7F7EB0E83A745
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37591.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37591.jpgsave_picture_37591.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Duolingo: изучай языки 6.7.1 Mod by derrin [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37592.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37592.jpgsave_picture_37592.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:F6C697B83303370C02CD2D746152FCDACEADF9A9
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37593.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37593.jpgsave_picture_37593.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:B594548EB5DB2A6844CF00A7324D3214D3A7AE79
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37594.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37594.jpgsave_picture_37594.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:1C05A4C5F9F1306E37EB3975F13B406316BF78F9
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37595.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37595.jpgsave_picture_37595.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ VA - 80s Summer Chillout (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop/Rock>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37596.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37596.jpgsave_picture_37596.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ magnet:?xt=urn:btih:7D19C3F76B9F61D951C466F9CFC0B34C58C93D7F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37597.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37597.jpgsave_picture_37597.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ Marillion - 4 Albums (1991-2024) [FLAC|Lossless|WEB-DL|tracks] <Prog Rock, Pop R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37598.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37598.jpgsave_picture_37598.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ magnet:?xt=urn:btih:4ED36378B72CD50E7AFAFF7C4237458E0970BB06
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37599.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37599.jpgsave_picture_37599.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ magnet:?xt=urn:btih:3EFE7BB712E411CBAE946C2460FEE9FBC4B0D8FD
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37600.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37600.jpgsave_picture_37600.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ VA - Music News For Forum vol.041 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37601.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37601.jpgsave_picture_37601.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ VA - Neural Dancing (2024) [MP3|320 Kbps] <Synthpop, Pop, Dance, Electronic>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37602.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37602.jpgsave_picture_37602.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ magnet:?xt=urn:btih:BDC8DA0B3152A1119BC630BAA4561F96AB6D2383
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37603.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37603.jpgsave_picture_37603.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ magnet:?xt=urn:btih:316204AD238CD76754157F31656CE5606EF4DA49
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37604.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37604.jpgsave_picture_37604.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ magnet:?xt=urn:btih:8397D8613255F01D7C271BC6FE9816F29E215151
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37605.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37605.jpgsave_picture_37605.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ magnet:?xt=urn:btih:AD21E302784585985516317772B643E0F13CBE77
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37606.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37606.jpgsave_picture_37606.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ magnet:?xt=urn:btih:16BD28EC245A84E3B9BC57E6F09EA19E5AA9F375
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37607.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37607.jpgsave_picture_37607.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ magnet:?xt=urn:btih:16BD28EC245A84E3B9BC57E6F09EA19E5AA9F375
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37608.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37608.jpgsave_picture_37608.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ magnet:?xt=urn:btih:02A5F29CCDF0451855F9F194EBB18AF4725698C6
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37609.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37609.jpgsave_picture_37609.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ magnet:?xt=urn:btih:23195E4B5B84E2B1BB24C8BA18D0E01AF94CCB57
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37610.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37610.jpgsave_picture_37610.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ VA - Sick Disco Moves (2024) [MP3|320 Kbps] <Disco, Nu Disco, Funky House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37611.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37611.jpgsave_picture_37611.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ Double Commander 1.1.20 gamma  + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37612.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37612.jpgsave_picture_37612.jpg" />
 </div>
 
 

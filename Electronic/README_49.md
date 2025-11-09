@@ -6,7 +6,7 @@ Oliver Koletzki - Grossstadtmarchen (2009) [FLAC|Lossless]<Tech House, Disco, Nu
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84536.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84536.jpgsave_picture_84536.jpg" />
 </div>
 
 
@@ -39,7 +39,7 @@ Maxim (Prodigy) - Hell's Kitchen (2000) [APE|Lossless]<Big Beat>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84584.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84584.jpgsave_picture_84584.jpg" />
 </div>
 
 
@@ -72,7 +72,7 @@ magnet:?xt=urn:btih:AF9496AEDA940A172307418F4727DF6EDC3D5060
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84902.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84902.jpgsave_picture_84902.jpg" />
 </div>
 
 
@@ -99,7 +99,7 @@ VA - The Ultimate Chilled Album (2008) [FLAC|Lossless]<Chillout, Lounge, Ambient
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85471.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85471.jpgsave_picture_85471.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ VA - The Ultimate Chilled Album (2008) [FLAC|Lossless]<Chillout, Lounge, Ambient
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85590.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85590.jpgsave_picture_85590.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ The Chemical Brothers - Don't Think (2012) [MP3|320 кб/с]<Electronic, Breakbe
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85763.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85763.jpgsave_picture_85763.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ VA - Erotic Chill Vol. 1 - Sweet And Sexy (2012) [MP3|320 кб/с]<Ambient, Down
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85928.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85928.jpgsave_picture_85928.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ Orbital - Wonky (2012) [FLAC|Lossless]<Electronic/Leftfield/Dubstep/Techno/Elect
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85980.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85980.jpgsave_picture_85980.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ Sweet DJs - Happy New Year Mix (2006-2010) [MP3|128-320 кб/с] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85989.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85989.jpgsave_picture_85989.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ Jam & Spoon - Remixes & Club Classics (2CD) (2006) [APE|Lossless]<Trance, Techno
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86918.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86918.jpgsave_picture_86918.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Androcell - Efflorescence (2006) [FLAC|Lossless]<New Age, Ambient, Electronic, C
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87156.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87156.jpgsave_picture_87156.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Kato - Discolized (2010) [FLAC|Lossless]<Electronic, House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87513.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87513.jpgsave_picture_87513.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ VA - Simply Erotica (2011) [FLAC|tracks+.cue]<Lounge, Chillout, Relax>
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87968.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87968.jpgsave_picture_87968.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Elsiane - Mechanics of Emotion (2012) [MP3|320 кб/с]<Trip-Hop, Dream-Pop, Dow
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87989.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87989.jpgsave_picture_87989.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ LюK - 5 Альбомов (2003-2009) Дискография [FLAC|Lossless]<Roc
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88365.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88365.jpgsave_picture_88365.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Space - The Very Best Of Space (2011) [FLAC|Lossless|image + .cue] <Electronic, 
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88430.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88430.jpgsave_picture_88430.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Abakus - We Share The Same Dreams (2008) [FLAC|Lossless]<Chillhouse / Downtempo>
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88942.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88942.jpgsave_picture_88942.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Spreu & Weizen - 4 albums (2009-2011) [FLAC|Lossless] <Martial Industrial, Neocl
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89431.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89431.jpgsave_picture_89431.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ VA - Galaxy (2011) [MP3|256 кб/с]<Spacesynth>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89837.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89837.jpgsave_picture_89837.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Anosphere - Nation of Love (2009) [MP3|320 кб/с]<Spacesynth>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89844.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89844.jpgsave_picture_89844.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ VA - Drum & Bass Arena (2012) [MP3|320 кб/с]<Drum'n'Bass>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89983.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89983.jpgsave_picture_89983.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ Parzival (+ Stiff Miners) - 8 albums (1995-2011) [mp3|192-320 kbps] <Martial Ind
 >>Experimental Electronic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90021.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90021.jpgsave_picture_90021.jpg" />
 </div>
 
 
@@ -696,7 +696,7 @@ Naked Music Recordings - Коллекция (21 диск, 35 винилов) (19
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90429.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90429.jpgsave_picture_90429.jpg" />
 </div>
 
 
@@ -730,7 +730,7 @@ Harax - Theia (2012) [FLAC|Lossless]<Dub, Downtempo, Ambient, Psychill>
 >>Psybient, Psychill, Psydub (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90628.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90628.jpgsave_picture_90628.jpg" />
 </div>
 
 
@@ -761,7 +761,7 @@ VA - Luxury Session Ibiza 2011 (2011) [FLAC|Lossless]<Lounge, Downtempo, House, 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90862.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90862.jpgsave_picture_90862.jpg" />
 </div>
 
 
@@ -792,7 +792,7 @@ VA - The Sound of Trance, Pt. 2 (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91255.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91255.jpgsave_picture_91255.jpg" />
 </div>
 
 

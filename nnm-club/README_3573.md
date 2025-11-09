@@ -6,7 +6,7 @@ Savage Oath - Divine Battle (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113273.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113273.jpgsave_picture_113273.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Lord Goblin - Lord Goblin (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113274.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113274.jpgsave_picture_113274.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:16312CB7ABA2451CEA82642D02B3758AE8ADD1E2
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113275.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113275.jpgsave_picture_113275.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Atrophy - Asylum (2024) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113276.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113276.jpgsave_picture_113276.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ Crystal Darkness - A Far Cry Paradise (2022) EP, Remastered, 2022, Red Snow [FLA
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113277.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113277.jpgsave_picture_113277.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ magnet:?xt=urn:btih:3634DB2BB1672433E8FA1FFFFE4FF981317F0849
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113278.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113278.jpgsave_picture_113278.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ magnet:?xt=urn:btih:4C1E69EA1023C9FDF5693D19E5A73857C824B068
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113279.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113279.jpgsave_picture_113279.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ AIDA64 2.00 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113280.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113280.jpgsave_picture_113280.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ magnet:?xt=urn:btih:2D926531A2F77EB1B247C68C9CFC6B39BB236B17
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113281.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113281.jpgsave_picture_113281.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ magnet:?xt=urn:btih:4BCC174EF8B39E6F3561B7CA7001BC7399E22C8E
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113282.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113282.jpgsave_picture_113282.jpg" />
 </div>
 
 
@@ -265,7 +265,7 @@ magnet:?xt=urn:btih:809AD754E0E9722418B1294FBE0E09EF862D7CD8
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113283.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113283.jpgsave_picture_113283.jpg" />
 </div>
 
 
@@ -289,7 +289,7 @@ magnet:?xt=urn:btih:DA39B7B28A331D3293D79D36F2899016B31D8ABA
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113284.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113284.jpgsave_picture_113284.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ magnet:?xt=urn:btih:DA39B7B28A331D3293D79D36F2899016B31D8ABA
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113285.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113285.jpgsave_picture_113285.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ magnet:?xt=urn:btih:95EBB6291C5C81FC98FB6B9F6E9752E2C44DDE10
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113286.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113286.jpgsave_picture_113286.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ Thin Lizzy - A Song For While I’m Away (2024) [FLAC|Lossless|WEB-DL|tracks] <H
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113287.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113287.jpgsave_picture_113287.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ magnet:?xt=urn:btih:BDE3EC1EE7C03F3F6B15A7FA242DC91745E1DD56
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113288.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113288.jpgsave_picture_113288.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ magnet:?xt=urn:btih:2A56F4B67AE193F4550A380A8F87B113122DD863
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113289.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113289.jpgsave_picture_113289.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ VA - Calm Piano Study Music (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113290.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113290.jpgsave_picture_113290.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ VA - Dance Chart 2024 (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113291.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113291.jpgsave_picture_113291.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:D65F617019829288CDC7A4D87A60CB9AEC40C913
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113292.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113292.jpgsave_picture_113292.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Zhu - Grace (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive House, Bas
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113293.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113293.jpgsave_picture_113293.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ Johnny Whitehorse - Riders of the Healing Road (2009) [FLAC|Lossless|tracks + .c
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113294.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113294.jpgsave_picture_113294.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Lyre le temps - Compilation (2024) [MP3|320 Kbps] <Electro Swing, Nu Jazz, Rap, 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113295.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113295.jpgsave_picture_113295.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ Navicat for MySQL for Mac 16.3.7 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113296.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113296.jpgsave_picture_113296.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ Photo Studio PRO 2.7.3.2413 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113297.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113297.jpgsave_picture_113297.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ magnet:?xt=urn:btih:5B0452394348270AAF0628CB772591E128A9E863
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113298.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113298.jpgsave_picture_113298.jpg" />
 </div>
 
 

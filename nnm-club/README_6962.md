@@ -6,7 +6,7 @@
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239031.jpgsave_picture_239031.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Pressure Points - The Island (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239033.jpgsave_picture_239033.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Old Man's Bones - Firebird (2022) [FLAC 2.0|44/24|tracks|WEB-DL] <Rock, Blues>
 >>Blues, Soul (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239034.jpgsave_picture_239034.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Glass Kites - Glass Kites II (2021) [MP3|320 Kbps] <Progressive Rock, Crossover 
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239035.jpgsave_picture_239035.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ magnet:?xt=urn:btih:D626D39C7EDDF7BF2C98350D987E15DFB31606AF
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239037.jpgsave_picture_239037.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Take 6 - Feels Good (2005) I-More [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Sou
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239038.jpgsave_picture_239038.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ magnet:?xt=urn:btih:F27269AC28412FAF55DF3B5C6CA1526BF854638B
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239039.jpgsave_picture_239039.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ magnet:?xt=urn:btih:521EF77B024915A2882D26C7470851F0A8F1B71D
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239040.jpgsave_picture_239040.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ magnet:?xt=urn:btih:6F8121F3CF94E6C649F1AA2A53BF916B2650C346
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239042.jpgsave_picture_239042.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ xLine 3.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239044.jpgsave_picture_239044.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ Duplicate File Finder Pro 7.1.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_239045.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_239045.jpgsave_picture_239045.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ magnet:?xt=urn:btih:51E79BDC4E2C1196DBA11502FFDAD8196BC8C275
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239046.jpgsave_picture_239046.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ Mercy Shot - Brace For Impact! (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard 'n' He
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239047.jpgsave_picture_239047.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ Pressure Points - Remorses To Remember (2010) [FLAC|Lossless|image + .cue] <Prog
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239050.jpgsave_picture_239050.jpg" />
 </div>
 
 
@@ -364,7 +364,7 @@ magnet:?xt=urn:btih:90A4B7D16A324C37962AC026C4403CF68C127E45
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239051.jpgsave_picture_239051.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ magnet:?xt=urn:btih:2F278ECBF4798873E635EA5FBB1C59188A78DCDF
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239052.jpgsave_picture_239052.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ The Weight of Atlas - The Art of Letting Go Pt:I (2021) [FLAC|Lossless|WEB-DL|tr
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239053.jpgsave_picture_239053.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ magnet:?xt=urn:btih:B1E4912B64F400791353CD81CB9FF23A8C00771E
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239054.jpgsave_picture_239054.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ magnet:?xt=urn:btih:B1E4912B64F400791353CD81CB9FF23A8C00771E
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_239055.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_239055.jpgsave_picture_239055.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ magnet:?xt=urn:btih:CB6A696AB725D5EF4419ADE9D3F9A3983D84FF48
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239057.jpgsave_picture_239057.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ magnet:?xt=urn:btih:87E5B8B2E0DF77A1B1E056CAA240AB5058CA185A
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239059.jpgsave_picture_239059.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ For Giants - There, There (2021) [MP3|320 Kbps] <Progressive Metal, Djent, Instr
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239061.jpgsave_picture_239061.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ magnet:?xt=urn:btih:C7A165D8AAB33DC46F61A6B57E63297C7FCA44AE
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239062.jpgsave_picture_239062.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ RTG. Природный парк «Оленьи Ручьи» (2013) HDTV [H.264/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239064.jpgsave_picture_239064.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Topaz Video AI 3.2.7 (x64) RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239065.jpgsave_picture_239065.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ TreeSize Professional 8.4.0.1710 (x64) RePack (& Portable) by elchupacabra [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239066.jpgsave_picture_239066.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118114.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118114.jpgsave_picture_118114.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:96EA6628845B6D08AC99D06425EB02F8007AA9A7
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118115.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118115.jpgsave_picture_118115.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Heretic - Filthy Hymns for Sleazy Demons (2024) [FLAC 24/44.1|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118116.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118116.jpgsave_picture_118116.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:123C47D27A5A89E358080A085A0875D003BAD085
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118117.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118117.jpgsave_picture_118117.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:AC1B722C0D45E0CAFEBCEE661286F19CBE645FE3
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118118.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118118.jpgsave_picture_118118.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ Norah Jones - Visionary Jones (Curated by Don Was) (2024) Compilation [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118119.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118119.jpgsave_picture_118119.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ magnet:?xt=urn:btih:66ADE9F3024A7341C3D477700C6628CF3FBA06F6
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118120.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118120.jpgsave_picture_118120.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ magnet:?xt=urn:btih:0E2E28016CE7E5145058CAE6DF71B8DA4501929F
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118121.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118121.jpgsave_picture_118121.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ magnet:?xt=urn:btih:F5BECEB54D93C0FFA477D41280F049968B4C7B61
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118122.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118122.jpgsave_picture_118122.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ magnet:?xt=urn:btih:BAF8FDAD8A572A21530980AD8626D5BDA4FB2045
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118123.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118123.jpgsave_picture_118123.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ Wondershare Recoverit for Mac 12.5.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118124.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118124.jpgsave_picture_118124.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ magnet:?xt=urn:btih:D1DD22EE041DA8CE88BD2E47FEA16E0E9F8C9992
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118125.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118125.jpgsave_picture_118125.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ magnet:?xt=urn:btih:F6E7FEE663B5C0E1F2659A48A2C286D7E6DAF250
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118126.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118126.jpgsave_picture_118126.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ Fifth Note - Here We Are (2024) Japanese Edition [FLAC|Lossless|image + .cue] <M
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118127.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118127.jpgsave_picture_118127.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ magnet:?xt=urn:btih:97C22BE2DDC16815A26A2F95E6EEA9F64359F5F5
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118128.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118128.jpgsave_picture_118128.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ VA - Митьковские песни. На море танки грохота�
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118129.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118129.jpgsave_picture_118129.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ VA - Compilation Electronic part 54 (2024) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118130.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118130.jpgsave_picture_118130.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ magnet:?xt=urn:btih:787C1222FD01A425596F518262B4463E0BA7F779
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118131.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118131.jpgsave_picture_118131.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ magnet:?xt=urn:btih:AD81402C87C62D3BE6B88AC4EF3D7AA81091B39D
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118132.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118132.jpgsave_picture_118132.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ magnet:?xt=urn:btih:281BD559DE8F6E55D746A0C95079BE0BF0C0F467
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118133.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118133.jpgsave_picture_118133.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ magnet:?xt=urn:btih:FBE8FD99798FE7B0E62A21D1E014DB5D4BA0431A
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118134.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118134.jpgsave_picture_118134.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ VA - Music News vol.340 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118135.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118135.jpgsave_picture_118135.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ magnet:?xt=urn:btih:E9D2FD4FEFF3DA618D39055F85C5E0B40BE3FDDF
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118136.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118136.jpgsave_picture_118136.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ magnet:?xt=urn:btih:E9D2FD4FEFF3DA618D39055F85C5E0B40BE3FDDF
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118137.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118137.jpgsave_picture_118137.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ magnet:?xt=urn:btih:406632AFC115ADEEA4A69E0F7888B6991F7ACB97
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118138.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118138.jpgsave_picture_118138.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ K-Lite Codec Pack Update 18.0.8 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118139.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118139.jpgsave_picture_118139.jpg" />
 </div>
 
 

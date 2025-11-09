@@ -6,7 +6,7 @@ King Arthur: Knight's Tale (2022) [Ru/Multi] (2.0.0/dlc) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130654.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130654.jpgsave_picture_130654.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Beyond Divinity / Beyond Divinity: Оковы судьбы [Ru/En] (L/1.5) 2004
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131787.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131787.jpgsave_picture_131787.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Fuga: Melodies of Steel 2 (2023) [Ru/Multi] (1.30/dlc) Scene Tenoke [Deluxe Edit
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132864.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132864.jpgsave_picture_132864.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Anvil Saga (2022) [Ru/Multi] (1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133575.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133575.jpgsave_picture_133575.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Epic Tavern (2017) [En] (1193) License GOG [Early Access]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133662.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133662.jpgsave_picture_133662.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Dungeon Defenders Collection [En/Multi 5] (Repack/7.46c) 2012 l R.G. Games
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133798.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133798.jpgsave_picture_133798.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ Ghoul Castle 3D (2021) [Ru/Multi] (2.5) License GOG [Gold Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134467.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134467.jpgsave_picture_134467.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ Anvil of Dawn (1995) [En] (1.1) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134473.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134473.jpgsave_picture_134473.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ Tales of Arise (2021) [Ru/Multi] (20231108/dlc) Repack DjDI [Ultimate Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135032.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135032.jpgsave_picture_135032.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ Dead Age (2016) [Ru/Multi] (1.12-fix) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136734.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136734.jpgsave_picture_136734.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ Baldur's Gate: Dark Alliance (2021) [Multi] (1.0.4) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137032.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137032.jpgsave_picture_137032.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ Dragon's Dogma: Dark Arisen (2016) [Ru/En] (1.0.10.8756) Repack R.G. Механ�
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137198.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137198.jpgsave_picture_137198.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Darkest Dungeon (2016) [Ru/Multi] (16707) Repack R.G. Механики
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137219.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137219.jpgsave_picture_137219.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Hades (2020) [Ru/Multi] (1.37133) Repack xatab
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137719.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137719.jpgsave_picture_137719.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Kraken Academy!! (2021) [Ru/Multi] (1.0.12.2) License GOG [End of the World Edit
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138775.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138775.jpgsave_picture_138775.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Gothic 2 / Готика 2 (2003-2005) [Ru/En/Ge] (1.30.0/2.6/dlc) Lossless Repac
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142069.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142069.jpgsave_picture_142069.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Mass Effect Dilogy / Mass Effect Дилогия [Ru/En] (RePack) 2008 - 2010 | R
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143866.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143866.jpgsave_picture_143866.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Ashen (2018) [Ru/Multi] (1.0.12.0) Repack xatab
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146157.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146157.jpgsave_picture_146157.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Octopath Traveler (2019) [Ru/Multi] (Update 1) Repack xatab
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146587.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146587.jpgsave_picture_146587.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ Hand of Fate (2014) [Ru/Multi] (1.3.14/dlc) Repack R.G. Механики
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147470.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147470.jpgsave_picture_147470.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Fallout 3 (2009) [En] (1.7.0.3/dlc) License GOG [Game of the Year Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147885.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147885.jpgsave_picture_147885.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Stray Blade (2023) [Ru/Multi] (20231116/dlc) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148234.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148234.jpgsave_picture_148234.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ ATOM RPG: Post-apocalyptic indie game (2018) [Ru/En] (1.0.3) Repack West4it
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148915.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148915.jpgsave_picture_148915.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Disciples: Liberation (2021) [Ru/Multi] (1.0.3.B258.R57446/dlc) License PLAZA
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148959.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148959.jpgsave_picture_148959.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Might And Magic. Heroes 6 [Ru/En] (RePack/1.8.0/2 DLC) 2011 l R.G. Shift
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149718.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149718.jpgsave_picture_149718.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Mass Effect 3 Digital Deluxe Edition [Ru/En] (RePack/1.04.5427.111/7 DLC) 2012 |
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149753.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149753.jpgsave_picture_149753.jpg" />
 </div>
 
 

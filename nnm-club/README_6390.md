@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202799.jpgsave_picture_202799.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:1B6D7F4D581AC47BDA51A00DB8D92A089625D7DE
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202800.jpgsave_picture_202800.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:EC92BB2C93C10A09B89F25104C9E5FA1A5E2890D
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202801.jpgsave_picture_202801.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:BE779CFB08B147190C12358B70FC9F5D473826A5
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202802.jpgsave_picture_202802.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:F77C0514BD7E173F15580BA81A796B649D186075
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202803.jpgsave_picture_202803.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Process Lasso Pro 12.3.2.20 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202804.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202804.jpgsave_picture_202804.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ FxFactory Pro 8.0.9 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202805.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202805.jpgsave_picture_202805.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:968FDB36F62980B2054C4B4309EA3A710C413906
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202807.jpgsave_picture_202807.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ Process Lasso Pro 12.3.1.20 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202808.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202808.jpgsave_picture_202808.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:E753C800CBF005A63DB0DD08430DF762ADE84FAA
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202809.jpgsave_picture_202809.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:F86C65C774D2CA48C304177990B25B78577F8461
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202810.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202810.jpgsave_picture_202810.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ TweakNow WinSecret Plus! 4.9.5 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202811.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202811.jpgsave_picture_202811.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ magnet:?xt=urn:btih:58375CA714FC0C21799BA8CAD3B86386A88C0294
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202812.jpgsave_picture_202812.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ magnet:?xt=urn:btih:D1BD4E4FD306635C4298324E45C3D6602C246C1E
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202813.jpgsave_picture_202813.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ NetLimiter 5.3.1.0 (x64) RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202814.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202814.jpgsave_picture_202814.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ magnet:?xt=urn:btih:BC3989DE5F433965B83E4D9350AD9C5D0DC22CA0
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202815.jpgsave_picture_202815.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ NetLimiter 5.3.1.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202816.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202816.jpgsave_picture_202816.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ magnet:?xt=urn:btih:35FDC75860AE16AC30FD90F43E2F96464DB4D401
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202817.jpgsave_picture_202817.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ magnet:?xt=urn:btih:140AC925FE4766C4E6E1C176FD5777445A294AA6
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202818.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202818.jpgsave_picture_202818.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ magnet:?xt=urn:btih:47ED95F09198BE692235455A6D7C04735A071728
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202819.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202819.jpgsave_picture_202819.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Tahira: Echoes of the Astral Empire (2016) [En] (1.1.00) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202820.jpgsave_picture_202820.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ magnet:?xt=urn:btih:6BDF44D431351D2B5E31309387342C1BD5BA4429
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202821.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202821.jpgsave_picture_202821.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ magnet:?xt=urn:btih:47C068C2C566594A5857AFDAE8A2BCEB2A5D87B1
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202822.jpgsave_picture_202822.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Tommy Flanagan - Something Borrowed, Something Blue (1978) 1990, Original Jazz C
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202823.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202823.jpgsave_picture_202823.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ magnet:?xt=urn:btih:336D5CC1A83FA3E2F4402599B8AEBA007E32A247
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202824.jpgsave_picture_202824.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ VA - Spaceout: Synthspace Electronic Mix (2023) [MP3|320 Kbps] <Electronic, Synt
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202825.jpgsave_picture_202825.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249499.jpgsave_picture_249499.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:E85C04C90884229896DB9D622253E391A10FEF56
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249500.jpgsave_picture_249500.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:E85C04C90884229896DB9D622253E391A10FEF56
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249501.jpgsave_picture_249501.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:7D250B83F97BABF534179230659F93125EA93E14
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249502.jpgsave_picture_249502.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:29A8B8A0AD3771DC71C51CE328326DDECD85E094
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249503.jpgsave_picture_249503.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:FCD5A44A57D1874BD54B95F3586BA57F13CCFFFE
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249504.jpgsave_picture_249504.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:11C49D8B3D58157EE455CBB01DCFC0EBA5F080D9
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249505.jpgsave_picture_249505.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ GreenNet: Hotspot VPN Proxy v1.5.39 b103 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249506.jpgsave_picture_249506.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ M83 - Fantasy (2023) [MP3|320 Kbps] <electronic-pop, synth-pop, Indie>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249507.jpgsave_picture_249507.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ U2 - Songs Of Surrender (2023) 4xCD [FLAC|Lossless|tracks + .cue] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249508.jpgsave_picture_249508.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ magnet:?xt=urn:btih:1B79605FA90F7E12EEDD6E82733D7008D43B6BAC
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249509.jpgsave_picture_249509.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ magnet:?xt=urn:btih:2918A0E9CE57EDF0C8185CBFE62C7DA87AD81EE4
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249510.jpgsave_picture_249510.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ magnet:?xt=urn:btih:A30B157A9EFB748B126649E82FAA615CE5D4B380
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249511.jpgsave_picture_249511.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Konsa, Ира Александрова | Классическая гитара (
 >>Музыка (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249512.jpgsave_picture_249512.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Textra SMS v4.61 Pro [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249513.jpgsave_picture_249513.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ magnet:?xt=urn:btih:B2F5C809FD42453A35DF279AA4572ABD860E97F8
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249514.jpgsave_picture_249514.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ KLS Backup 2021 Professional 11.0.0.7 x64 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249515.jpgsave_picture_249515.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Konsa, Марина Юракова | Лёгкие пьесы для фортеп
 >>Музыка (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249516.jpgsave_picture_249516.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ VA - 10 000... Italo-Euro-Space-Synth-Pop-Hi-NRG-Disco From Ovvod7 & tiv44 (201-
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249517.jpgsave_picture_249517.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Reg Organizer 8.91 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249518.jpgsave_picture_249518.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ VA - Enigma-Forest-Transit 12 (1999) [OGG Vorbis|480 Kbps] <Electronic, Ambient,
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249519.jpgsave_picture_249519.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ MediaHuman YouTube Downloader 3.9.9.81 (1503) RePack (& Portable) by TryRooM [Mu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249520.jpgsave_picture_249520.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ magnet:?xt=urn:btih:7BF2CB04786AFD4D8B8A9EF595C1F4CD094FCAFC
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249521.jpgsave_picture_249521.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ BELOFF [dp] 2022.07.3
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249522.jpgsave_picture_249522.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ The British Bluescasting Corporation - High Horse (2022) [FLAC|Lossless|WEB-DL|t
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249523.jpgsave_picture_249523.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Konsa, Максим Ярушкин | Фингерстайл специи. Кур
 >>Музыка (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249524.jpgsave_picture_249524.jpg" />
 </div>
 
 

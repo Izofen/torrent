@@ -6,7 +6,7 @@
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5005.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5005.jpgsave_picture_5005.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:77F7F67954A2CED718B612FB6971731CCD4A630D
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5006.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5006.jpgsave_picture_5006.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ PhotoFiltre Studio X 11.7.0 [Ru/En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5007.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5007.jpgsave_picture_5007.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:4FEA5A4DB8BCE465CBE0B78320792ADA29E9970E
 >>Картинки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5008.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5008.jpgsave_picture_5008.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ Emurasoft EmEditor Professional 25.3.1 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5009.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5009.jpgsave_picture_5009.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:1630BB9EFEAA70CC4BC6BC0C70D3E0041F98AA0A
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5010.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5010.jpgsave_picture_5010.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Tricky Words / Хитрое слово: слова из букв v10.1.1 Mod by 
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5011.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5011.jpgsave_picture_5011.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Risk of Rain Returns (2023) [Ru/Multi] (1.1.0) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5012.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5012.jpgsave_picture_5012.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:AADCE09068EF141A22BF7969E63D4AF6A5174AC9
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5013.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5013.jpgsave_picture_5013.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ Flyoobe 1.6.246 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5014.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5014.jpgsave_picture_5014.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:CF315DB05789A836D4AE07F61DD9A40302709450
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5015.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5015.jpgsave_picture_5015.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ magnet:?xt=urn:btih:F9805D9DEBB5E1314CC65D27CB5775F585FF43E0
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5016.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5016.jpgsave_picture_5016.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ WiFi Analyzer v6.3 (b101) Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5017.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5017.jpgsave_picture_5017.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ magnet:?xt=urn:btih:A95825FFA1813B3BB80A84AF977F61FA60373A8E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5018.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5018.jpgsave_picture_5018.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Firefox Browser 142.0.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5019.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5019.jpgsave_picture_5019.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ magnet:?xt=urn:btih:AA0EC008958A2462ED21790C7C4B210F03B761EF
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5020.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5020.jpgsave_picture_5020.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ magnet:?xt=urn:btih:E68326D8EF49281438D3457DC56DDC0B00E88674
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5021.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5021.jpgsave_picture_5021.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ magnet:?xt=urn:btih:9A0CF4830CED22E75DAC8179D83924147C48D7C3
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5022.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5022.jpgsave_picture_5022.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ magnet:?xt=urn:btih:DAF7F091DD792BCB9A9291C5B01DC59B5D5C739A
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5023.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5023.jpgsave_picture_5023.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Lords of Magic (1998) [En] (1.0) License Sierra
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5024.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5024.jpgsave_picture_5024.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ GPS Эмулятор v3.07 Mod by vadj [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5025.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5025.jpgsave_picture_5025.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ magnet:?xt=urn:btih:657F8413E587FB3AEA968CD64F5DA393E2E86C20
 >>Картинки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5026.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5026.jpgsave_picture_5026.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ magnet:?xt=urn:btih:F9E01AD4BFDEE9A361C1472B47733C7FA2CF613F
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5027.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5027.jpgsave_picture_5027.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Lost Soul Aside (2025) [Ru/Multi] (build 19738594/dlc) Scene Rune [Digital Delux
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5028.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5028.jpgsave_picture_5028.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ NODE: The Last Favor of the Antarii / NODE: последняя услуга Ан
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5029.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5029.jpgsave_picture_5029.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ No Man's Sky (2016) [Ru/Multi] (6.00/dlc) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5030.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5030.jpgsave_picture_5030.jpg" />
 </div>
 
 

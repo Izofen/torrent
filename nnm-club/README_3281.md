@@ -6,7 +6,7 @@ Category 7 - Category 7 (2024) [FLAC|Lossless|image + .cue] <Heavy Metal, Thrash
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105667.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105667.jpgsave_picture_105667.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:9131E0CB15D563FA40A44BE721C5A40A07DC4552
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105668.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105668.jpgsave_picture_105668.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:77B06D0037065A12B5FE41E101D7C4AF9659F6C8
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105669.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105669.jpgsave_picture_105669.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Cache Creek - A National Dream (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Blues 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105670.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105670.jpgsave_picture_105670.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ magnet:?xt=urn:btih:99709CBE74F1C1D470DFFFDE72FB1E901A868821
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105671.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105671.jpgsave_picture_105671.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Dirt Road Band - Righteous (2024) [FLAC|Lossless|image + .cue] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105672.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105672.jpgsave_picture_105672.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Tony Grey - Infinity Glitch (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105673.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105673.jpgsave_picture_105673.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Jim Jackson - Alsetius Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105674.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105674.jpgsave_picture_105674.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ The Sofia Goodman Group - Receptive (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105675.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105675.jpgsave_picture_105675.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Michael Wolff - Memoir (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105676.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105676.jpgsave_picture_105676.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Thunder Rising - Thunder Rising (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105677.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105677.jpgsave_picture_105677.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Tibor Burai - War horse (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105678.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105678.jpgsave_picture_105678.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Ben Arnold - Simplify (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105679.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105679.jpgsave_picture_105679.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ magnet:?xt=urn:btih:A80C16DF4F5137BAD07CA89B0C6DD70C7BF65095
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105680.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105680.jpgsave_picture_105680.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Helloween - Keeper of the Seven Keys, Pt. 2 (1988) Remaster 2024 [FLAC 24/44.1|L
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105681.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105681.jpgsave_picture_105681.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ VA - EDM Deejay Compilation 2024 (Summer Edition) (2024) [MP3|320 Kbps] <Dance, 
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105682.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105682.jpgsave_picture_105682.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Helloween - Keeper of the Seven Keys, Pt. 1 (1987) Remaster 2024 [FLAC 24/44.1|L
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105683.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105683.jpgsave_picture_105683.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ A-Mase - Summer Holidays (2024) [MP3|320 Kbps] <Deep House, Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105684.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105684.jpgsave_picture_105684.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ VA - Ibiza Tranquil Beats: Chillout Your Mind (2024) [FLAC|Lossless|WEB-DL|track
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105685.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105685.jpgsave_picture_105685.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ The Suspenders - Funkypedia (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Funk>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105686.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105686.jpgsave_picture_105686.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ magnet:?xt=urn:btih:BB34076EE5BCFB50A2757A56EFD594D435D2B79C
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105687.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105687.jpgsave_picture_105687.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ magnet:?xt=urn:btih:20EAF7E0E7A3BA356F3783532F58A889D1DCA5D9
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105688.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105688.jpgsave_picture_105688.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ magnet:?xt=urn:btih:8ED43991F50E782F30E7BD98181F91FC8EBAE45D
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105689.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105689.jpgsave_picture_105689.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ John Haydock - Paradise Drive (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105690.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105690.jpgsave_picture_105690.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ Helloween - Walls of Jericho (1985) Remaster 2024 [FLAC 24/44.1|Lossless|WEB-DL|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105691.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105691.jpgsave_picture_105691.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ magnet:?xt=urn:btih:2CD80BCB50D1B748BE3124AA5E6160174DA1E255
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105692.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105692.jpgsave_picture_105692.jpg" />
 </div>
 
 

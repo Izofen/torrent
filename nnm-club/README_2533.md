@@ -6,7 +6,7 @@ Anoraak - Golden Hour (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <synthpop, sy
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66608.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66608.jpgsave_picture_66608.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Willie Nelson - Oh What A Beautiful World (2025) [FLAC|Lossless|tracks + .cue] <
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66609.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66609.jpgsave_picture_66609.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:EC1FB5FB1D06118D027170D17A2F462D37D2FCEE
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66610.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66610.jpgsave_picture_66610.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Tokyo Blade - Knights Of The Blade (2017) 4 x CD, Compilation, Remastered, Hear 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66611.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66611.jpgsave_picture_66611.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ magnet:?xt=urn:btih:3E25EA0B7B6585441169EAC085349B54ED88AB86
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66612.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66612.jpgsave_picture_66612.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Holler - Next In Line (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66613.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66613.jpgsave_picture_66613.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ VA - EZ Ridin’ (2002) CD, Compilation [FLAC|Lossless|tracks + .cue] <Pop Rock,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66614.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66614.jpgsave_picture_66614.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ magnet:?xt=urn:btih:7614EFD7ED7BCF4F23B5BA964EAEA21FD9621B8E
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66615.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66615.jpgsave_picture_66615.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Grails - Miracle Music (2025) [FLAC|Lossless|tracks + .cue] <Post Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66616.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66616.jpgsave_picture_66616.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Savage Oath - Divine Battle (2024) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66617.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66617.jpgsave_picture_66617.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:D54CF95F88248AFB07B78327619783FB3CA6C963
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66618.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66618.jpgsave_picture_66618.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ magnet:?xt=urn:btih:C198A2B8FADFCDEEDA7613C4D98D52AFF1D8B7DA
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66619.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66619.jpgsave_picture_66619.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Degenerate - Rituals Of Rage (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Thrash 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66620.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66620.jpgsave_picture_66620.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ magnet:?xt=urn:btih:6C361C53339682D8EECB95A7F04445B4137A08F3
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66621.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66621.jpgsave_picture_66621.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Microsoft Visual Studio 2022 Enterprise 17.14.1 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66622.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66622.jpgsave_picture_66622.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ magnet:?xt=urn:btih:70AB5EDF0B051A3E6A232E71A05E332DEC3CF717
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66623.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66623.jpgsave_picture_66623.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ magnet:?xt=urn:btih:E0C1404CF660810443C0AF407B9346C191B129F8
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66624.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66624.jpgsave_picture_66624.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ magnet:?xt=urn:btih:01CC805DF9E4C99246D8C97A22C556D88F72272E
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66625.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66625.jpgsave_picture_66625.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ VA - The Wedding Singer: Music From the Motion Picture (1997) CD, Compilation [F
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66626.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66626.jpgsave_picture_66626.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ magnet:?xt=urn:btih:111B29578A100FE43C253C185513C9D19400B5DB
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66627.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66627.jpgsave_picture_66627.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ VA - Trance In Motion Vol.388 (2025) [MP3|320 Kbps] [MP3|320 Kbps|image + .cue] 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66628.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66628.jpgsave_picture_66628.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ VA - Ultimate Dance Divas (2003) CD, Compilation [FLAC|Lossless|tracks + .cue] <
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66629.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66629.jpgsave_picture_66629.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ magnet:?xt=urn:btih:0034503F4F10CA36674E758E8DFE3F5B4693DC6F
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66630.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66630.jpgsave_picture_66630.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ magnet:?xt=urn:btih:BBC60C3769EEB54348BAE97994A790BAEB033A54
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66631.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66631.jpgsave_picture_66631.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ Smart AudioBook Player Pro v11.4.3 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66632.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66632.jpgsave_picture_66632.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ PowerDirector – Video Editor v15.3.0 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66633.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66633.jpgsave_picture_66633.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Romantic Dreams - Favorites Collection Part 6 (2025) [MP3|320 Kbps] <Italodisco,
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205740.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205740.jpgsave_picture_205740.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:1B25FC1C35ACAFD5448E6D8E9F48A4C820F758DE
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205742.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205742.jpgsave_picture_205742.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Flowx: Weather Map Forecast 3.404 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205744.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205744.jpgsave_picture_205744.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:D029D22FEE074503A4C4570BAA1203E8EA72D59B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205745.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205745.jpgsave_picture_205745.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:390AA3B07C9F7FAC345A94FB194AC126606BC2E1
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205746.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205746.jpgsave_picture_205746.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ EssentialPIM Pro 11.6.6 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205748.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205748.jpgsave_picture_205748.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ Reverso Translation Dictionary / Переводной словарь Reverso 11.
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205750.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205750.jpgsave_picture_205750.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ VA - Ibiza Winter Session 2026 (The Island Chill out Pearls) (2025) [FLAC|Lossle
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205751.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205751.jpgsave_picture_205751.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ magnet:?xt=urn:btih:F9285BDC04EC37C20799631D588922FFD3B66EA2
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205752.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205752.jpgsave_picture_205752.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ VA - Music News vol.291 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205753.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205753.jpgsave_picture_205753.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ magnet:?xt=urn:btih:8251A630534D2895F19092C696BE2FF82511A8B5
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205756.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205756.jpgsave_picture_205756.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ magnet:?xt=urn:btih:FAA3A0B83A3367FA595DEDD24B38942544857E0C
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205758.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205758.jpgsave_picture_205758.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ Quo Vadis (Canada) - Studio Albums (4 releases) (1996-2004) hand made [restored,
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205759.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205759.jpgsave_picture_205759.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ magnet:?xt=urn:btih:C12743AAABEAF35762E2EAC29235D96F9FF08C75
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205761.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205761.jpgsave_picture_205761.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ magnet:?xt=urn:btih:AF445353749244E84F2835405EA399E69FD9FEA0
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205762.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205762.jpgsave_picture_205762.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Adobe Bridge 2026 16.0 [Multi/Ru]
 >>Просмотрщики Графики (вьюверы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205764.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205764.jpgsave_picture_205764.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ magnet:?xt=urn:btih:9E658FE19558CD800BC719B88C04AFC4CCED52CB
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205765.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205765.jpgsave_picture_205765.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ IsMyHdOK 3.91 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205766.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205766.jpgsave_picture_205766.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ magnet:?xt=urn:btih:E1BFDF2A8E9E5ABFCDC22363C103CD8DB88E2286
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205769.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205769.jpgsave_picture_205769.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Green Day - Dookie (30th Anniversary 4-Track Demos) (2023) [FLAC|24/192|tracks|W
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205770.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205770.jpgsave_picture_205770.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ magnet:?xt=urn:btih:D692CFBD6DF5ECF0F0A1DCF5E562BFA7D925E209
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205771.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205771.jpgsave_picture_205771.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ magnet:?xt=urn:btih:E496EE1BC325F57860EC9710AB1E941765857ADF
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205774.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205774.jpgsave_picture_205774.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ magnet:?xt=urn:btih:3461229E5574C7963E41F846C13E337593F03E98
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205776.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205776.jpgsave_picture_205776.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Adobe InDesign 2026 21.0 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205778.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205778.jpgsave_picture_205778.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ SRWare Iron 115.0.5850.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205781.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205781.jpgsave_picture_205781.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Shin Shinka no Mi: Shiranai Uchi ni Kachigumi Jinsei | The Fruit of Evolution 2:
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205782.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205782.jpgsave_picture_205782.jpg" />
 </div>
 
 

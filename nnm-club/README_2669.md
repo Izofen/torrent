@@ -6,7 +6,7 @@
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70144.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70144.jpgsave_picture_70144.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:6C118A7CD9898415285CB6632BC3B4735BE50EFD
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70145.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70145.jpgsave_picture_70145.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:602F08B502419165715F1CB9471CD847214C2F70
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70146.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70146.jpgsave_picture_70146.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:F58D6408BBD7975CC575B07DB44918C39494F738
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70147.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70147.jpgsave_picture_70147.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:A364A8007DC23B615E43DA7D24634373E16B06BA
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70148.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70148.jpgsave_picture_70148.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:6B0BC408ED593AE800DA8E6E4794DCFE36D379D4
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70149.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70149.jpgsave_picture_70149.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Peter White - Light of Day (2025) [FLAC|Lossless|image + .cue] <Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70150.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70150.jpgsave_picture_70150.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:6BDFE517376C2C69B8A5218DEDE47580BC745254
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70151.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70151.jpgsave_picture_70151.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:9A2E79C1D3BC37A076F69AA916229913E4E3946E
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70152.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70152.jpgsave_picture_70152.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ Francesco Marras - Out Of The Fire (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70153.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70153.jpgsave_picture_70153.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ Abdullah Ibrahim - Dollar Brand Plays Sphere Jazz (1960) 2015, Phono [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70154.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70154.jpgsave_picture_70154.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ magnet:?xt=urn:btih:FD32A25B5F3578BF21761A55DF0165999D62C572
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70155.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70155.jpgsave_picture_70155.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ magnet:?xt=urn:btih:19C171E8630529261294850F4534E9E3D70EA1C8
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70156.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70156.jpgsave_picture_70156.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ Ernestronix (Ernesto) - Synths Earth Orbit (Mission Alpha) (2025) [MP3|320 Kbps]
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70157.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70157.jpgsave_picture_70157.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ Dionigi - Space Disco (2021) [MP3|320 Kbps] <Deep-House, Nu-Disco>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70158.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70158.jpgsave_picture_70158.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ VA - Spacesynth.de Contest TraxX (2007) [MP3|320 Kbps] <Spacesynth>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70159.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70159.jpgsave_picture_70159.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ VA - Armin van Buuren - A State Of Trance 1213 (2025) [MP3|128 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70160.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70160.jpgsave_picture_70160.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ Photo Studio PRO v2.7.13.3850 Mod by youarefinished [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70161.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70161.jpgsave_picture_70161.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ magnet:?xt=urn:btih:B92E5615CB97FB2CC4A3CC5145D3A7ABB28A4C68
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70162.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70162.jpgsave_picture_70162.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Dionigi - Hot Oxygen (2021) [MP3|320 Kbps] <Deep-House, Nu-Disco>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70163.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70163.jpgsave_picture_70163.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ magnet:?xt=urn:btih:133A39351A92FC95882A0C9183FDFC6209BAE55A
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70164.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70164.jpgsave_picture_70164.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ magnet:?xt=urn:btih:8B795AFB1E752DE931E4C7A63BEEB19C60BC9784
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70165.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70165.jpgsave_picture_70165.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ magnet:?xt=urn:btih:0E162E682ECB738BBB97550ADA3F0C361A5EC21B
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70166.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70166.jpgsave_picture_70166.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ Abdullah Ibrahim - Water From An Ancient Well (1985) 1992, Enja [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70167.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70167.jpgsave_picture_70167.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ Ulcerate - Cutting The Throat Of God (2024) [FLAC|Lossless|image + .cue] <Death 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70168.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70168.jpgsave_picture_70168.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ magnet:?xt=urn:btih:B0B40709FBB7B4652BCBAD616A06B71A39D86981
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70169.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70169.jpgsave_picture_70169.jpg" />
 </div>
 
 

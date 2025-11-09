@@ -6,7 +6,7 @@ The KMPlayer 4.2.2.79 repack by cuta (build 2) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194306.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194306.jpgsave_picture_194306.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:537F3E986563A13525B9B3D8E64EF225F4C2B773
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_194307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_194307.jpgsave_picture_194307.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:767E24405BD9ABDC1318E5C15CC8EAE802272E03
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194308.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194308.jpgsave_picture_194308.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Mail Time (2023) [Multi] (1.00.19) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_194309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_194309.jpgsave_picture_194309.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:BC4B5BEF68FFAFF3D9464FD598F567BD37C87674
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194310.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194310.jpgsave_picture_194310.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:3261DC298455A09D14387AB71AA3CDDE4EC3DDA8
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194311.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194311.jpgsave_picture_194311.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ SD Maid Pro v5.5.10 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194312.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194312.jpgsave_picture_194312.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Stepik, Илья Фофанов | React - Полное руководство (2
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194313.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194313.jpgsave_picture_194313.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ Nightmare Manor (2023) [Ru/Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194314.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194314.jpgsave_picture_194314.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Yakuza: Like a Dragon (2020) [Ru/Multi] (1.009/dlc) License GOG [Hero Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194315.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194315.jpgsave_picture_194315.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Blackmagic Design Fusion Studio 18.5.1 Build 4 (x64) RePack by AlekseyPopovv [Mu
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194316.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194316.jpgsave_picture_194316.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ magnet:?xt=urn:btih:8CB94948B8E253DC7248513A927334CF823E488D
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194318.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194318.jpgsave_picture_194318.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ magnet:?xt=urn:btih:67B4DD3BA1D201AA652B20A4196FD07D4776586C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194319.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194319.jpgsave_picture_194319.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ WifiInfoView 2.90 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194320.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194320.jpgsave_picture_194320.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Do Not Feed the Monkeys 2099 (2023) [Ru/Multi] (1.0.19) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194321.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194321.jpgsave_picture_194321.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ Astute Graphics Plugins Elite Bundle for Mac 2.3.3 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194322.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194322.jpgsave_picture_194322.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ magnet:?xt=urn:btih:2F8CABC91538CC09E1D50E87235DA8453181ED3D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194323.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194323.jpgsave_picture_194323.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ DirLister v2 beta 4 Portable [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194324.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194324.jpgsave_picture_194324.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ magnet:?xt=urn:btih:15F5260B2C92346CDDBFB9FA64D08458A843A280
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_194325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_194325.jpgsave_picture_194325.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Keyman 16.0.141 [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194326.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194326.jpgsave_picture_194326.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ magnet:?xt=urn:btih:37314FFAF68E2833828E995A1C91416CA034662D
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_194327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_194327.jpgsave_picture_194327.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ ZWCAD Architecture 2024 SP0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194328.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194328.jpgsave_picture_194328.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ magnet:?xt=urn:btih:0BA02D01688BEE938A1D4A87D3B5DEC7FDCB4B39
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194329.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194329.jpgsave_picture_194329.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ magnet:?xt=urn:btih:FAB93A692ED921D1AC8D713D1B75869233CFC0F7
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194330.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194330.jpgsave_picture_194330.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ magnet:?xt=urn:btih:E3D8E807E5C5A28B4D6DAF824F425E67184DDBAD
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_194331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_194331.jpgsave_picture_194331.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Nox App Player 7.0.5.8088 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194332.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194332.jpgsave_picture_194332.jpg" />
 </div>
 
 

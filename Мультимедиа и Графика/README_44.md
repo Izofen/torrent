@@ -6,7 +6,7 @@ CrazyTalk Pipeline RePack by PooShock 8.12.3124.1 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198500.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198500.jpgsave_picture_198500.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Franzis SHARPEN Video #2 professional 2.27.03871 [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198541.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198541.jpgsave_picture_198541.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ XviD4PSP 8.1.54 Pro (x64) Portable by conservator [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198554.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198554.jpgsave_picture_198554.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Adobe Animate 2023 23.0.2.103 RePack by KpoJIuK [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198582.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198582.jpgsave_picture_198582.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Franzis SHARPEN projects 4 professional 4.37.03697 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198598.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198598.jpgsave_picture_198598.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ CyberLink PhotoDirector Ultra 14.5.1627.1 (x64) RePack by PooShock [Ru/En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198605.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198605.jpgsave_picture_198605.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Plugin Alliance & TBTECH Kirchhoff-EQ 1.6.4 VST, VST 3, AAX (x64) RePack by TCD 
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198695.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198695.jpgsave_picture_198695.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ MPV Player - Dolby Vision, HDR to SDR Mode Portable 0.35.1 (x64) RePack by Adven
 >>Видео Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198721.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198721.jpgsave_picture_198721.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:00FBBE1ABAC67F130AE3C9BD933A496C21B99EF8
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198797.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198797.jpgsave_picture_198797.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ PillowView 1.0.0 [En]
 >>Просмотрщики Графики (вьюверы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_199918.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_199918.jpgsave_picture_199918.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ reaConverter Pro 8.0.148 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_199941.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_199941.jpgsave_picture_199941.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ LosslessCut 3.66.1 Standalone [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_201754.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_201754.jpgsave_picture_201754.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ FireAlpaca 2.13.26 + Standalone [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_201822.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_201822.jpgsave_picture_201822.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ MAGIX Photostory Deluxe 2023 22.0.3.149 (x64) [Multi]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202095.jpgsave_picture_202095.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Paint Tool SAI 2 20230711 Technical Preview [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202180.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202180.jpgsave_picture_202180.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Perfectly Clear WorkBench 4.8.0.2871 RePack (& Portable) by elchupacabra [Multi/
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202212.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202212.jpgsave_picture_202212.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ magnet:?xt=urn:btih:8020F75032679BEE9768B6C2E2F6A5618E87D512
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202348.jpgsave_picture_202348.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Arturia - Pigments 6.0.4 STANTALONE, VSTi, VSTi 3 (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202374.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202374.jpgsave_picture_202374.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ MAGIX Sound Forge Pro 18.0.0 Build 21 Portable by conservator [Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202376.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202376.jpgsave_picture_202376.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Modartt - Pianoteq 8.4.3 Pro STANDALONE, VSTi, VSTi 3, AAX RePack (& Portable) b
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202422.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202422.jpgsave_picture_202422.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ AIR Music Technology - Hybrid 3.2.0 STANDALONE, VSTi, VSTi 3 (x64) RePack by TCD
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202423.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202423.jpgsave_picture_202423.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ BABY Audio - Smooth Operator Pro 1.2 VST, VST 3, AAX RePack by TCD [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202424.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202424.jpgsave_picture_202424.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ U-he - Uhbik 2.0.0 VST 3, CLAP, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202425.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202425.jpgsave_picture_202425.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Synapse Audio - DUNE 3 3.6.5 VSTi, VSTi 3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202426.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202426.jpgsave_picture_202426.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Topaz DeNoise AI 3.7.2 RePack by KpoJIuK [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202495.jpgsave_picture_202495.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ NewBlue FX plugins 2.0.0.34 [En]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202497.jpgsave_picture_202497.jpg" />
 </div>
 
 

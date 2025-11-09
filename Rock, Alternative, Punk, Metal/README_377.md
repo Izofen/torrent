@@ -6,7 +6,7 @@
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_226768.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_226768.jpgsave_picture_226768.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Billy Talent - Live At Festhalle Frankfurt (2023) 2 x CD [FLAC|Lossless|image + 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_226777.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_226777.jpgsave_picture_226777.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Anna Fiori - Magna Tonalli (Edición Especial) (2022) EP [MP3|320 Kbps] <Symphon
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_226785.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_226785.jpgsave_picture_226785.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Anna Fiori - In ohtli tonalli (2017) [MP3|320 Kbps] <Symphonic Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_226818.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_226818.jpgsave_picture_226818.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Seal Fur Peeling - Daggers Predacious (2023) [FLAC|Lossless|WEB-DL|tracks] <Deat
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_226850.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_226850.jpgsave_picture_226850.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Gateway - Galgendood (2023) [MP3|320 Kbps] <Death, Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_226872.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_226872.jpgsave_picture_226872.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Occulsed - Parturition of Adulteration (2022) Compilation [FLAC|Lossless|image +
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_226880.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_226880.jpgsave_picture_226880.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Inmundus - Primordia (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal, He
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_226888.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_226888.jpgsave_picture_226888.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Olkoth - At the Eye of Chaos (2023) [FLAC|Lossless|WEB-DL|tracks] <Black, Death 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_226899.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_226899.jpgsave_picture_226899.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Occulsed - Crepitation of Phlegethon (2021) [FLAC|Lossless|image + .cue] <Death 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_226907.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_226907.jpgsave_picture_226907.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Nightmarer - Cacophony of Terror (2018) [FLAC|Lossless|WEB-DL|tracks] <Technical
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_226959.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_226959.jpgsave_picture_226959.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Billy Idol - Billy Idol (1982) 2CD, Expanded Edition, 2023, Capitol Catalog MKT 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227483.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227483.jpgsave_picture_227483.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Sweet - Give Us A Wink (Alternative Mixes & Demos) (2022)  [MP3|320 Kbps] <Rock,
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227523.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227523.jpgsave_picture_227523.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Andrew Gold - The Fraternal Order Of The All Greetings From Planet Love (1997) R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227618.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227618.jpgsave_picture_227618.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ magnet:?xt=urn:btih:E818E4FAE2411AE0C2C8858CC0FF3BB75140FC5A
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227656.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227656.jpgsave_picture_227656.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Richard Wright - Wet Dream Remix (2023) [FLAC|Lossless|WEB-DL|tracks] <Prog Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227661.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227661.jpgsave_picture_227661.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Richard Wright - Wet Dream (1978) Remix by Steven Wilson, 2023, Rhino [MP3|320 K
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227668.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227668.jpgsave_picture_227668.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Art Nation - Inception (2023) Japanese Edition [FLAC|Lossless|image + .cue] <Mel
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227679.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227679.jpgsave_picture_227679.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:7E1AE5F1EE62EBF92145C35DA6A1718E98D8DA87
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227687.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227687.jpgsave_picture_227687.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ The Firebirds - Dance All Night Long (2023) [FLAC|Lossless|WEB-DL|tracks] <Rocka
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227702.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227702.jpgsave_picture_227702.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Red Baron Band - Last Chance (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Prog Roc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227708.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227708.jpgsave_picture_227708.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Arch Blade - Kill The Witch (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227716.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227716.jpgsave_picture_227716.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Ian Moss - Rivers Run Dry (2023) [FLAC|Lossless|image + .cue] <Melodic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227722.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227722.jpgsave_picture_227722.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Flight - Echoes Of Journeys Past (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227729.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227729.jpgsave_picture_227729.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Redhaze - Time 2 Ride (2023) 2 x CD [FLAC|Lossless|image + .cue] <Melodic Rock, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227738.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227738.jpgsave_picture_227738.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Gator, The Alligator - Laminar Flow (2023) [FLAC|Lossless|WEB-DL|tracks] <Altern
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227752.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227752.jpgsave_picture_227752.jpg" />
 </div>
 
 

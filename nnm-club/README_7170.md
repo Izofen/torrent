@@ -6,7 +6,7 @@ VA - Infinite Fade: Chillout Your Mind (2021) [AAC|~313 Kbps] <Lounge, Chill Out
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245373.jpgsave_picture_245373.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:A8A3659015B710C6880BA07E57DE32A56E271A02
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245374.jpgsave_picture_245374.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ magnet:?xt=urn:btih:EDEB95AB3644B9ED8AFF5C85651A753A0B93A3AA
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245375.jpgsave_picture_245375.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ VA - EDC Radio Clubbing Sound (2021) [MP3|320 Kbps] <Club House, Techno, Trance,
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245376.jpgsave_picture_245376.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Dynamic Wallpaper 13.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245377.jpgsave_picture_245377.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ Demonstealer - The Propaganda Machine (2023) [FLAC|Lossless|WEB-DL|tracks] <Tech
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245378.jpgsave_picture_245378.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ magnet:?xt=urn:btih:F6187A758D278A2A8E73140AA9D1A6345D653FA8
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245379.jpgsave_picture_245379.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ magnet:?xt=urn:btih:760BC2735795CF2DBC52198C029DD3917ED8EFE4
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245380.jpgsave_picture_245380.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ magnet:?xt=urn:btih:C948C32B8682E18BB8DC21DB98AD4BAEA276B99D
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245381.jpgsave_picture_245381.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ VA - Musica Elegante (2020) [AAC|~323 Kbps] <Lounge, Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245382.jpgsave_picture_245382.jpg" />
 </div>
 
 
@@ -262,7 +262,7 @@ Deathcode Society - Eschatonizer (2015) [FLAC|Lossless|image + .cue] <Symphonic 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245383.jpgsave_picture_245383.jpg" />
 </div>
 
 
@@ -289,7 +289,7 @@ Sketch n Cartoonize 3.4 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245384.jpgsave_picture_245384.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ magnet:?xt=urn:btih:87C1E065E32C0484869A4B17AA2123C9F4145AFB
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245385.jpgsave_picture_245385.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ Textify 1.10.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245386.jpgsave_picture_245386.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ magnet:?xt=urn:btih:020DFB6AAFD368FA0829D58D854A849F87361B4C
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245387.jpgsave_picture_245387.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ Sekta Core - En la Zona del Terror (En Vivo) (2021) [FLAC|Lossless|WEB-DL|tracks
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245388.jpgsave_picture_245388.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Austere - Corrosion of Hearts (2023) [FLAC|Lossless|WEB-DL|tracks] <Depressive B
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245389.jpgsave_picture_245389.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ High Spirits - Another Night (2011) [FLAC|Lossless|image + .cue] <NWoBHM>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245390.jpgsave_picture_245390.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ magnet:?xt=urn:btih:79278368024CFE7E7520907C6CFAA5C63940A3E5
 >>Элементы (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245391.jpgsave_picture_245391.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Taylor Dayne - Soul Dancing (Deluxe Edition) 2CD,  (2014) [FLAC|Lossless|image +
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245392.jpgsave_picture_245392.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:547212E7A1876C72E00AFF73E6924F50788A1D2D
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245393.jpgsave_picture_245393.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ magnet:?xt=urn:btih:C9AFBE56B70E8C5A181A41E5672640DDA06D114B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245394.jpgsave_picture_245394.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ ImageRanger Pro Edition 1.8.6.1819 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245395.jpgsave_picture_245395.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ magnet:?xt=urn:btih:33FD92F6F08058949EA54FADAE93E1E3CDD750D6
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245396.jpgsave_picture_245396.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ magnet:?xt=urn:btih:86E0137D8720F060D09E6988C6BAC3BC46EC4D40
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245397.jpgsave_picture_245397.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ magnet:?xt=urn:btih:FBC9067DA0A82C100BEF406593F743BCC2A8CCB0
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245398.jpgsave_picture_245398.jpg" />
 </div>
 
 

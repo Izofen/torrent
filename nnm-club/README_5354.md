@@ -6,7 +6,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166059.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166059.jpgsave_picture_166059.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:80F5CA12E16E2B46D1CBE40892465D8AC48A3AAF
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166060.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166060.jpgsave_picture_166060.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:FC74531A87E0FEF086307A9643F68DF641ACF70B
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166061.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166061.jpgsave_picture_166061.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ magnet:?xt=urn:btih:AABE7C98D7138A5F12CD38AB38CB66563AB13F5C
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166062.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166062.jpgsave_picture_166062.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ Microsoft PowerToys 0.75.0 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166063.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166063.jpgsave_picture_166063.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ magnet:?xt=urn:btih:0686041FFAA45F079F2F6B6986DF50A708485482
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166064.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166064.jpgsave_picture_166064.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ magnet:?xt=urn:btih:5E49DE0237E4A5DB3DABBC58CDAA828E04BF68F5
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166065.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166065.jpgsave_picture_166065.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ Adobe Zii 2020 - Universal Patcher 5.1.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166066.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166066.jpgsave_picture_166066.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ Pepakura Designer 5.0.18 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166067.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166067.jpgsave_picture_166067.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ VA - Best Of Toolroom 2020 (Mixed by Mark Knight) (2020) [MP3|320 Kbps] <House, 
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166068.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166068.jpgsave_picture_166068.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ Clairisma - Choose the Blues (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166069.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166069.jpgsave_picture_166069.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ magnet:?xt=urn:btih:65F7FE3EF1AFD7E1EF77C6D22CA488FFA2CEFC76
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166070.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166070.jpgsave_picture_166070.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ magnet:?xt=urn:btih:6BCF5160007C6BAF5588925873C64DA8A882D8C8
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166071.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166071.jpgsave_picture_166071.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ Martinic - AX73 1.0.3 VSTi (x86/x64) RePack by R2R [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166072.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166072.jpgsave_picture_166072.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ magnet:?xt=urn:btih:1DE532A53234F72517692C5B09C215594763C4F8
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166073.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166073.jpgsave_picture_166073.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Hot Roux - In a Groove (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166074.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166074.jpgsave_picture_166074.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ magnet:?xt=urn:btih:7EF7ED1272B482EFADA5AB43BE77AC5040A8330A
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166075.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166075.jpgsave_picture_166075.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Adobe Acrobat Pro DC 2019.021.20058 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166076.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166076.jpgsave_picture_166076.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Smoke Of Isengard - Orc Metal (2022) [FLAC|Lossless|WEB-DL|tracks] <Death Metal,
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166077.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166077.jpgsave_picture_166077.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ magnet:?xt=urn:btih:5A1269F683BDAF2F5C19028C6F439830E180B316
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166078.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166078.jpgsave_picture_166078.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ magnet:?xt=urn:btih:1569DE0A1B0319109A6B81AB402816A7AABD4519
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166079.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166079.jpgsave_picture_166079.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ magnet:?xt=urn:btih:90CEDD3333F6E4BEB6A1976E91907B88E84F908A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166081.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166081.jpgsave_picture_166081.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Media Player Classic Home Cinema (MPC-HC) 2.1.0 RePack (& portable) by elchupaca
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166082.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166082.jpgsave_picture_166082.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Ryan Foret and Foret Tradition - That’s What’s Happening Here (2022) [FLAC|L
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166083.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166083.jpgsave_picture_166083.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Trigg & Gusset - Black Ocean (2021) [FLAC|Lossless|tracks + .cue] <Experemental,
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166084.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166084.jpgsave_picture_166084.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ VA - Music News vol.56 (2020) [MP3|256-320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166085.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166085.jpgsave_picture_166085.jpg" />
 </div>
 
 

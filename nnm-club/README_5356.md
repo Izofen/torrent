@@ -6,7 +6,7 @@ ScreenFlow 10.0.10 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166112.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166112.jpgsave_picture_166112.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Roger Waters - The Wall (2014) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166113.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166113.jpgsave_picture_166113.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ magnet:?xt=urn:btih:0F96C61881D6176211AE62E0C123119EC0885D3E
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166114.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166114.jpgsave_picture_166114.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ magnet:?xt=urn:btih:D96D3427DF48E057604DF5BDD72C451F373620BE
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166115.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166115.jpgsave_picture_166115.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ magnet:?xt=urn:btih:41B87B23F7F1F340011BFD93F2D0A576C63E0C79
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166116.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166116.jpgsave_picture_166116.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ magnet:?xt=urn:btih:A0A093DEFC0B92F9E5502009144F970B7B71046C
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166117.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166117.jpgsave_picture_166117.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:9B0E844131EF8F4C0585891DC2F8DA54A9B77A44
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166118.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166118.jpgsave_picture_166118.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:D4A7DC8C0F54A81ED6B74D1BD57A24C8B77EE1D1
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166119.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166119.jpgsave_picture_166119.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ Markus Grosskopf's Bassinvaders - Hellbassbeaters (2008) [FLAC|Lossless|image + 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166120.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166120.jpgsave_picture_166120.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ magnet:?xt=urn:btih:2425201E21C9EDCB2323F69A63D1D6F932016A65
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166121.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166121.jpgsave_picture_166121.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ magnet:?xt=urn:btih:98A5F264ED54570C5180A1FCB5F900F2A9E738B5
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166122.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166122.jpgsave_picture_166122.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ ABBYY Lingvo European 1.11.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166123.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166123.jpgsave_picture_166123.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ Path Finder 10 v10.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166124.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166124.jpgsave_picture_166124.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ SupaRed - SupaRed (2003) [FLAC|Lossless|image + .cue] <Hard'n'Heavy>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166125.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166125.jpgsave_picture_166125.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ magnet:?xt=urn:btih:2A4FC1C5F03989D596E4D9B3FFD30312F52630FF
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166126.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166126.jpgsave_picture_166126.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ XY VPN - Security Proxy VPN 4.7.303 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166127.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166127.jpgsave_picture_166127.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ magnet:?xt=urn:btih:9A4B5E4531A23626344DA3B9276918F87A56D812
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166128.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166128.jpgsave_picture_166128.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ magnet:?xt=urn:btih:52AAAC4A3E85DBCA9C84F0D87AA7F705743D522F
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166129.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166129.jpgsave_picture_166129.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ Hyzzterezis - Reckoning (2020) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166130.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166130.jpgsave_picture_166130.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ Display Driver Uninstaller 18.0.2.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166131.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166131.jpgsave_picture_166131.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ magnet:?xt=urn:btih:E4325CD3C89E7E68DD6DDAE71C344C4BBDED5BF5
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166132.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166132.jpgsave_picture_166132.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Archaic - Time Has Come to Envy the Dead (2006) Reissue 2009, Vic Records [FLAC|
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166133.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166133.jpgsave_picture_166133.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ magnet:?xt=urn:btih:4D3E3EDDC9B5378D3B310DBAF2F38C498B53344F
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166134.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166134.jpgsave_picture_166134.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Alien Skin Exposure X5 Bundle 5.2.0.166 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166135.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166135.jpgsave_picture_166135.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ magnet:?xt=urn:btih:0C4F91512E313947A2DA765DDA7A23CD6107627A
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166136.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166136.jpgsave_picture_166136.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ magnet:?xt=urn:btih:9010E1F0BFC2D8E6F9AC15A848A1061E8B26A740
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166137.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166137.jpgsave_picture_166137.jpg" />
 </div>
 
 

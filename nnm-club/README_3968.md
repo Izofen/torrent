@@ -6,7 +6,7 @@ Firefox Browser 121.0.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123684.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123684.jpgsave_picture_123684.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:18405D7E81D81D4AF661C001CA75ABB1784CBA52
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123685.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123685.jpgsave_picture_123685.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:FC320F83E101F578F54A989E7DDD9BDB914AFC41
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123686.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123686.jpgsave_picture_123686.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Slade - 12 of Slade (2024) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123687.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123687.jpgsave_picture_123687.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Telegram Desktop 4.14.4 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123688.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123688.jpgsave_picture_123688.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ magnet:?xt=urn:btih:E1BB9ED58B6206592947D3BE3C52E911436C7D2B
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123689.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123689.jpgsave_picture_123689.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ Bessie Smith - BD Jazz (1923 - 1933) 2CD, 2006, Nocturne [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123690.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123690.jpgsave_picture_123690.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ NewFileTime 7.15 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123691.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123691.jpgsave_picture_123691.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ magnet:?xt=urn:btih:0235F84B8CEA4CBB28AF56D9E77C8094DB683D5F
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123692.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123692.jpgsave_picture_123692.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ Symphonic Landscapes - Works By Mozart, Brahms, Schubert & Mendelssohn (2023) [F
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123693.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123693.jpgsave_picture_123693.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ magnet:?xt=urn:btih:EAB27734A62AABE5A4FC3C1D91E715D675FDFD72
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123694.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123694.jpgsave_picture_123694.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ Total Commander 11.02 MAX-Pack 2024.01.08.1 by Mellomann [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123695.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123695.jpgsave_picture_123695.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ magnet:?xt=urn:btih:0AA5451006F0FF972037159D644C80CE5503EC6A
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123696.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123696.jpgsave_picture_123696.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ magnet:?xt=urn:btih:DAD0DAA11A2981E2CAA81470728976C02BBAA2FA
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123697.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123697.jpgsave_picture_123697.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Psiphon 3 build 181 (09.01.2023) Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123698.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123698.jpgsave_picture_123698.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Udemy, Dekker Fraser | SaaS Marketing: SaaS Startup Lead Generation with Dekker 
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123699.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123699.jpgsave_picture_123699.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ ASUS GPU Tweak III 1.7.2.3 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123700.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123700.jpgsave_picture_123700.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Maze of Realities 3: Ride in the Sky / Лабиринт реальностей 3
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123701.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123701.jpgsave_picture_123701.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ magnet:?xt=urn:btih:267F4E6E8B245D4B3C64FF4724898083B5B4EE7D
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123702.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123702.jpgsave_picture_123702.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ magnet:?xt=urn:btih:50BD3AFF3D44547169991CCC0CC445E9B204793F
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123703.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123703.jpgsave_picture_123703.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ magnet:?xt=urn:btih:BE5329233105008173611AD23DE5B76DBB2FC6AC
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123704.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123704.jpgsave_picture_123704.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ magnet:?xt=urn:btih:788CD1E9C0A7559321060FA8B9EAA3C8E5F79B97
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123705.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123705.jpgsave_picture_123705.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ magnet:?xt=urn:btih:7561021F3B714AF3D7E8005C30B2A65333C09C46
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123706.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123706.jpgsave_picture_123706.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ Bazanova Art, Ольга Базанова | Практика художника 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123707.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123707.jpgsave_picture_123707.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ magnet:?xt=urn:btih:9C4191BFD66C2B6202301CA4F99D06D68189BEB7
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123708.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123708.jpgsave_picture_123708.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ RadioMaximus 2.32.2 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123709.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123709.jpgsave_picture_123709.jpg" />
 </div>
 
 

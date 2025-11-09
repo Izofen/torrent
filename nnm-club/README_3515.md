@@ -6,7 +6,7 @@ Samsara - Charon's Lullaby (2024) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Doo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111751.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111751.jpgsave_picture_111751.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:E4ACB481F2E931903C9B07116D48B8765807291E
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111752.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111752.jpgsave_picture_111752.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Arania - Whispering Embers (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Symphon
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111753.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111753.jpgsave_picture_111753.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Astral Magic - Strange Sensation (2024) [FLAC|Lossless|WEB-DL|tracks] <Psychedel
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111754.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111754.jpgsave_picture_111754.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Saracen - Red Sky (2003) [FLAC|Lossless|image + .cue] <AOR, Heavy Metal, Prog Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111755.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111755.jpgsave_picture_111755.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ NeXuS - Primera Impresion - La Coleccion Esencial (2024) [FLAC|Lossless|WEB-DL|t
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111756.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111756.jpgsave_picture_111756.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Ainigma - Diluvium (1973) 2006 Reissue, Garden Of Delights [FLAC|Lossless|image 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111757.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111757.jpgsave_picture_111757.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ David Cross - Crossing the Tracks (2018) [FLAC|Lossless|image + .cue] <Art Rock,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111758.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111758.jpgsave_picture_111758.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Dick Noel - A Time for Love (1978) 2007, SSJ [FLAC|Lossless|tracks + .cue] <Voca
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111759.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111759.jpgsave_picture_111759.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Acid Mammoth - Supersonic Megafuana Collision (2024) [FLAC|Lossless|WEB-DL|track
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111760.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111760.jpgsave_picture_111760.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Makoto Ozone - Spring Is Here (1987) Sony [FLAC|Lossless|tracks + .cue] <Post-Bo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111761.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111761.jpgsave_picture_111761.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ HDCleaner 2.069 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111762.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111762.jpgsave_picture_111762.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ W.A. Production - Instachord 2 2.0.6.240204 VSTi, VSTi 3, AAX (x86/x64) RePack b
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111763.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111763.jpgsave_picture_111763.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ magnet:?xt=urn:btih:64AFA4A1116D319B20EC23D9661BC511B8E143B7
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111764.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111764.jpgsave_picture_111764.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ OfficeSuite Pro + PDF 14.4.51651 Lite-Mod by Balatan [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111765.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111765.jpgsave_picture_111765.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ magnet:?xt=urn:btih:D32535594D646E4C38638676602BA37BAA41CE83
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111766.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111766.jpgsave_picture_111766.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ magnet:?xt=urn:btih:B153360B3AE3E8C79274477917F8A361BDC40DAA
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111767.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111767.jpgsave_picture_111767.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ iZotope - Trash 1.1.0 VST 3, AAX (x64) RePack by R2R [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111768.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111768.jpgsave_picture_111768.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Advanced Renamer 3.95 release 3 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111769.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111769.jpgsave_picture_111769.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ magnet:?xt=urn:btih:6B6C592CC666F1E3F85067409DD4A179D62BD35A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111770.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111770.jpgsave_picture_111770.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ magnet:?xt=urn:btih:4E86CB7E42B48C7F255CB511DA5157955DB4D40D
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111771.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111771.jpgsave_picture_111771.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ RegCool 2.000 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111772.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111772.jpgsave_picture_111772.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Bobby Lee Springfield - All Fired Up (1987) [FLAC 2.0|24/192|image+.cue|Vinyl-Ri
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111773.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111773.jpgsave_picture_111773.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Axel Rudi Pell - Guardian Angel (2024) Single [FLAC 24/48|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111774.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111774.jpgsave_picture_111774.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ Melody Gardot - Sayonara Meu Amor (2024) [FLAC|Lossless|WEB-DL|tracks] <Vocal Ja
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111775.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111775.jpgsave_picture_111775.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ magnet:?xt=urn:btih:C537867C09735C3668F6DD3D8AC25C2C8BE0EC79
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111776.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111776.jpgsave_picture_111776.jpg" />
 </div>
 
 

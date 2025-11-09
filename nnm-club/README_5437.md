@@ -6,7 +6,7 @@
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168268.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168268.jpgsave_picture_168268.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:9EC5ADB29FF560AF42182FBB21E3D5C551F47643
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168269.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168269.jpgsave_picture_168269.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ Kammerflimmer Kollektief - Remixed (2006) [FLAC|Lossless|tracks + .cue] <Future 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168270.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168270.jpgsave_picture_168270.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ Microsoft Office 2013 Pro Plus + Visio Pro + Project Pro + SharePoint Designer S
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168271.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168271.jpgsave_picture_168271.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ Murda Killa - Один Восемь Семь (2022) [MP3|320 Kbps] <Rap, Hip-Hop
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168272.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168272.jpgsave_picture_168272.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ magnet:?xt=urn:btih:BD4D6CBA2765C748C65E8656F331C08B6A1D5CF8
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168273.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168273.jpgsave_picture_168273.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ magnet:?xt=urn:btih:CCAFBCEC7F6A971E3EAC8DC79557CA6F51A4866B
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168274.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168274.jpgsave_picture_168274.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ CodeRunner 4 v.4.2.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168275.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168275.jpgsave_picture_168275.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:8C05FBE3DB836EE8C681F44ABD44573F1C009047
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168276.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168276.jpgsave_picture_168276.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ Weight of Emptiness - Withered Paradogma (2023) [FLAC|Lossless|WEB-DL|tracks] <M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168277.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168277.jpgsave_picture_168277.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ magnet:?xt=urn:btih:ECE0679B85C58874FAB048C84E609B2CAFB937EF
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168278.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168278.jpgsave_picture_168278.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ magnet:?xt=urn:btih:0F7CBD9D62DC4D4AC973D327220DD8278ED83BAE
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168279.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168279.jpgsave_picture_168279.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ Vega - Battlelines (2023) [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168280.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168280.jpgsave_picture_168280.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ magnet:?xt=urn:btih:5A9C809F885F2C925F9BBFD4FBE0E779BB4EE61C
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168281.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168281.jpgsave_picture_168281.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ magnet:?xt=urn:btih:88BC5C715DBBE39CB3A54CCB54D8595250E4014D
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168282.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168282.jpgsave_picture_168282.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ magnet:?xt=urn:btih:2851ADDFBE30E9E50DE61570F65C3FDDF7C4177E
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168283.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168283.jpgsave_picture_168283.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ magnet:?xt=urn:btih:155351E86EB3E5A61E2C384CEE996DB64EA86141
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168284.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168284.jpgsave_picture_168284.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Fields Of The Nephilim - Revelations (1993) [FLAC|Lossless|image + .cue] <Gothic
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168285.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168285.jpgsave_picture_168285.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ magnet:?xt=urn:btih:05FEA62E6882941B9FF510510145417E25A209EF
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168286.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168286.jpgsave_picture_168286.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Worksheet Crafter Premium Edition 2022.3.2 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168287.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168287.jpgsave_picture_168287.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Jettison 1.7.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168288.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168288.jpgsave_picture_168288.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ magnet:?xt=urn:btih:EF6BCA3B98EE4E508CA93AA928B9C95E166646BB
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168289.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168289.jpgsave_picture_168289.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ AnyGo 5.9.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168290.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168290.jpgsave_picture_168290.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ magnet:?xt=urn:btih:4CECAD38434DAE71150D7386F1FC11DBD9B08F91
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168291.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168291.jpgsave_picture_168291.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Starchaser - Starchaser (2022) Deluxe Edition, 2023, Frontiers Records s.r.l. [F
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168292.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168292.jpgsave_picture_168292.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ magnet:?xt=urn:btih:25913F4EF68DC2AE90C28DEBBEF88A5DFE89CB51
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168293.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168293.jpgsave_picture_168293.jpg" />
 </div>
 
 

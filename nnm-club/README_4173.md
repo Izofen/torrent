@@ -6,7 +6,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129149.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129149.jpgsave_picture_129149.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Giant - Shifting Time (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129150.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129150.jpgsave_picture_129150.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Gerry Rafferty - Essential (2011) [FLAC|Lossless|WEB-DL|tracks] <Rock, Soft Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129151.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129151.jpgsave_picture_129151.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:E1EC2D4F02A1666A0C83B1EEAFF9070B3AE89CB2
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129152.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129152.jpgsave_picture_129152.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ VA - Relaxing Chillout (2022) [AAC|~300 Kbps] <Lounge, Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129153.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129153.jpgsave_picture_129153.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ magnet:?xt=urn:btih:75093B23F8F62F5C04F922F600315366A8BB456D
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129154.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129154.jpgsave_picture_129154.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ Rectangle Pro 2.1.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129155.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129155.jpgsave_picture_129155.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ Boris - W (2022) [FLAC|Lossless|WEB-DL|tracks] <Sludge Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129156.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129156.jpgsave_picture_129156.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ magnet:?xt=urn:btih:6337B643FDD2FB9F8432BECF32786C83BB5F232E
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129159.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129159.jpgsave_picture_129159.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ Edge Of Forever - Seminole (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129160.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129160.jpgsave_picture_129160.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ VA - NRW: Techno Cruise Music (2022) [MP3|320 Kbps] <Techno, Electronic, Minimal
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129162.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129162.jpgsave_picture_129162.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ King Gizzard & The Lizard Wizard - Butterfly 3001 (2022) Remix [FLAC|Lossless|WE
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129164.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129164.jpgsave_picture_129164.jpg" />
 </div>
 
 
@@ -315,7 +315,7 @@ magnet:?xt=urn:btih:4AF834F58A9C629F6D1988811957F386A17D8229
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129166.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129166.jpgsave_picture_129166.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ Orville Peck - Show Pony (2020) EP [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Al
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129167.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129167.jpgsave_picture_129167.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Pedro the Lion - Havasu (2022) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Altern
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129169.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129169.jpgsave_picture_129169.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ Paul Oakenfold - Shine On (2022) [AAC|~310 Kbps] <EDM, House, Drum & Bass>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129170.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129170.jpgsave_picture_129170.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ VA - Drive from Mad M!nd (2012) [MP3|320 кб/с]<Dutch House>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129171.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129171.jpgsave_picture_129171.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ VA - The Very Best of Chill Out, Vol. 3 (2017) [AAC|~317 Kbps] <Lounge, Chill Ou
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129172.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129172.jpgsave_picture_129172.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ magnet:?xt=urn:btih:F96282DBE6FD68E9FA16C679521062E46F4E7D28
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129174.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129174.jpgsave_picture_129174.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ VA - The Very Best of Chill Out, Vol. 1 (2015) [AAC|~317 Kbps] <Lounge, Chill Ou
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129175.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129175.jpgsave_picture_129175.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ VA - Street King Presents Winter 2022 (2022) [AAC|~319 Kbps] <Deep House, Soulfu
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129177.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129177.jpgsave_picture_129177.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Kissin' Dynamite - Not The End Of The Road (2022) [FLAC|Lossless|WEB-DL|tracks] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129178.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129178.jpgsave_picture_129178.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ VA - Русские Новинки Vol.45 from AGR (2012) [MP3|320 кб/с]<Pop>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129184.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129184.jpgsave_picture_129184.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ VA - Black Hole Trance Music 01-22 (2022) [MP3|320 Kbps] <Trance, Uplifting Tran
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129186.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129186.jpgsave_picture_129186.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ VA - The Techno Streaming Sound (Vol.02) (2022) [MP3|320 Kbps] <Techno, Electro>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129188.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129188.jpgsave_picture_129188.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ Brian Culbertson - The Trilogy, Pt. 2: Blue (2022) [FLAC|Lossless|WEB-DL|tracks]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129189.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129189.jpgsave_picture_129189.jpg" />
 </div>
 
 

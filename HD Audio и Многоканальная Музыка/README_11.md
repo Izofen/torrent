@@ -6,7 +6,7 @@ VA - Soul and Funky Stars (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Soul, Fu
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7043.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7043.jpgsave_picture_7043.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Filter - The Algorithm (Ultra Edition) (2025) [FLAC 24/96|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7044.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7044.jpgsave_picture_7044.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Zayden Larkell - Endless Problems (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7045.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7045.jpgsave_picture_7045.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Kellan Broadridge - Craves It All (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7047.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7047.jpgsave_picture_7047.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ The Book Of Revelations - Studio Albums (4 releases) (2021-2025) hand made [rest
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7053.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7053.jpgsave_picture_7053.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Leander Thistle - Ending Blues (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blu
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7054.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7054.jpgsave_picture_7054.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Aquarium (AU) - Evidence Of Absence (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7074.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7074.jpgsave_picture_7074.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Madonna - Platinum Hits 2 (2000) MTV History/Pop Extended [FLAC 2.0|48/24|image 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7083.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7083.jpgsave_picture_7083.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Sidney Bos - Overrated (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7084.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7084.jpgsave_picture_7084.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Until Zen - The Grip (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Progressive Roc
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7209.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7209.jpgsave_picture_7209.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Lindsey Stirling - Duality (2025) Deluxe [FLAC 24/96|Lossless|WEB-DL|tracks] <Cl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7265.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7265.jpgsave_picture_7265.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Chevelle - Studio Albums (10 releases) (1999-2025) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7330.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7330.jpgsave_picture_7330.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Bruce Dickinson (Iron Maiden) - Studio Albums (8 releases) (1990-2025) hand made
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7390.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7390.jpgsave_picture_7390.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ aurorawave - Monument (2025) [FLAC 24/44.1; 24/48|Lossless|WEB-DL|tracks] <Regga
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7430.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7430.jpgsave_picture_7430.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Mono Inc. - Darkness (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Gothic Rock, 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7457.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7457.jpgsave_picture_7457.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Deep Purple - Made in Japan (Steven Wilson Remix) (1972) Reissue, Remaster, Rhin
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7495.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7495.jpgsave_picture_7495.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Halestorm - Дискография (19 releases) (1997-2025) hand made [restored
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7562.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7562.jpgsave_picture_7562.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Tomarum - Ash in Realms of Stone Icons (2022) [FLAC|24/192|image + .cue|Vinyl-Ri
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7611.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7611.jpgsave_picture_7611.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Redemption - Studio Albums (8 releases) (2003-2023) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7636.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7636.jpgsave_picture_7636.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ The Bluesmasters - The Bluesmasters featuring Cassie Taylor (2025) [FLAC 24/48|L
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7668.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7668.jpgsave_picture_7668.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ Maroon 5 - Love Is Like (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop, Pop Roc
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7691.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7691.jpgsave_picture_7691.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ The Cranberries - No Need To Argue (1994) 30th Anniversary / Super Deluxe Editio
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7692.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7692.jpgsave_picture_7692.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ Herman Frank - Studio Albums (5 releases) (2009-2021) hand made [restored, decli
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7836.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7836.jpgsave_picture_7836.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ Rudy Rock - Cool Licks (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Smooth Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7845.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7845.jpgsave_picture_7845.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ The Vesterbros - Smooth Soul Jazz Cafe, Vol. 1 (2025) [FLAC 24/44.1|Lossless|WEB
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7864.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7864.jpgsave_picture_7864.jpg" />
 </div>
 
 
@@ -682,7 +682,7 @@ Bad Debts - Under Kalimna Skies (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7974.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7974.jpgsave_picture_7974.jpg" />
 </div>
 
 

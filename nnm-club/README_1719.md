@@ -6,7 +6,7 @@
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45051.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45051.jpgsave_picture_45051.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ WinTools.net Premium 24.9.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45052.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45052.jpgsave_picture_45052.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:0AB8B3D8256E87F7DCBFE8D951A454EDE4EA3F63
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45053.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45053.jpgsave_picture_45053.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ V.A. - Hits from the 70s (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45054.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45054.jpgsave_picture_45054.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ magnet:?xt=urn:btih:783C0E66F92E275D7962A64F5A28D4B02C6F2A5D
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45055.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45055.jpgsave_picture_45055.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ VA - German Top 100 Single Charts 30.08.2024 [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45056.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45056.jpgsave_picture_45056.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ magnet:?xt=urn:btih:5A31EC8910A17122D0BC9F15117E4D5C870F3BEC
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45057.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45057.jpgsave_picture_45057.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ KeepStreams 1.2.3.4 Repack (& Portable) by elchupacabra [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45058.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45058.jpgsave_picture_45058.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ magnet:?xt=urn:btih:A5DE96BE2AF25A76BB2BE01DA3FB2A7CD137CC3D
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45059.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45059.jpgsave_picture_45059.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ magnet:?xt=urn:btih:A28DDB5BC9AFD95BF45E12054E67F7883BA9F87E
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45060.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45060.jpgsave_picture_45060.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ Raiders! Forsaken Earth (2020) [En] (1.4.7) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45061.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45061.jpgsave_picture_45061.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ magnet:?xt=urn:btih:EA831D869BD52EE9FE6C449C3F41951B6391EA71
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45062.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45062.jpgsave_picture_45062.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ magnet:?xt=urn:btih:3CE668F6F60292266FDD8E24FAC4CA9F3A221221
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45063.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45063.jpgsave_picture_45063.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ MediaHuman YouTube Downloader 3.9.9.95 (3008) RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45064.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45064.jpgsave_picture_45064.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ magnet:?xt=urn:btih:30260E8D159A614FB90F5CA4DEB5297DA77C5731
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45065.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45065.jpgsave_picture_45065.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ magnet:?xt=urn:btih:273A0732A26BBF7D5DD26BFA9F36C0767E8E1BDA
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45066.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45066.jpgsave_picture_45066.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ magnet:?xt=urn:btih:BCA3C6A9EFE1EE11CC10B271E5F0B00F8572C6EC
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45067.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45067.jpgsave_picture_45067.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Aiarty Image Enhancer 2.6 Portable by 7997 [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45068.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45068.jpgsave_picture_45068.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ magnet:?xt=urn:btih:51AFA144761519EA2B42B7743C5D6B792555E936
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45069.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45069.jpgsave_picture_45069.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ magnet:?xt=urn:btih:12EADEE17640BE51C859D492066EFCB6F9F8EB57
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45070.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45070.jpgsave_picture_45070.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ magnet:?xt=urn:btih:D69778B028CC4C42A0B5881E1A0F41AF9E426DCC
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45071.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45071.jpgsave_picture_45071.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ Q-Dir 11.75 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45072.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45072.jpgsave_picture_45072.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ magnet:?xt=urn:btih:0C90A551D225978294793EABF2550E2F61B42944
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45073.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45073.jpgsave_picture_45073.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ PasteBar 0.6.0 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45074.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45074.jpgsave_picture_45074.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ magnet:?xt=urn:btih:0FE896321A10ACDF6D78B01AD2C9F77BCB734DA2
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45075.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45075.jpgsave_picture_45075.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ KeepBeats 1.0.2.5 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45076.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45076.jpgsave_picture_45076.jpg" />
 </div>
 
 

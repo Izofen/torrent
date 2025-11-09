@@ -6,7 +6,7 @@ CyberCorp (2024) [Ru/Multi] (1.00) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20234.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20234.jpgsave_picture_20234.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ The Stone of Madness (2025) [Multi] (1.0.3) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20251.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20251.jpgsave_picture_20251.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Clair Obscur: Expedition 33 (2025) [Ru/Multi] (56190/dlc) Repack Other s [Deluxe
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20255.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20255.jpgsave_picture_20255.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ The Last Spell (2023) [Ru/Multi] (1.2.18.3.s.de/dlc) Repack FitGirl [Complete Th
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20293.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20293.jpgsave_picture_20293.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Clair Obscur: Expedition 33 (2025) [Ru/Multi] (56180/dlc) Repack FitGirl [Deluxe
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20349.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20349.jpgsave_picture_20349.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Lords of the Fallen (2023) [Ru/Multi] (2.0.3/dlc) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20416.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20416.jpgsave_picture_20416.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ The Elder Scrolls IV (4): Oblivion Remastered (2025) [Ru/Multi] (0.411.140.0/dlc
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20450.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20450.jpgsave_picture_20450.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ The Elder Scrolls IV (4): Oblivion Remastered (2025) [Multi] (0.411.140.0/dlc) S
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20570.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20570.jpgsave_picture_20570.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Echoes of Yi : Samsara (2025) [Ru/Multi] (16.269) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20630.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20630.jpgsave_picture_20630.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Achilles: Legends Untold (2023) [Ru/Multi] (1.7.0) License GOG [Soundtrack Bundl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20664.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20664.jpgsave_picture_20664.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Flint: Treasure of Oblivion (2024) [Ru/Multi] (Build 17120566) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20666.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20666.jpgsave_picture_20666.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ The Fool's Apprentice (2025) [Ru/Multi] (1.0.7) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20721.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20721.jpgsave_picture_20721.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ The Fool's Apprentice (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20729.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20729.jpgsave_picture_20729.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Baldur's Gate III (3) (2020) [Ru/Multi] (4.1.1.6758295/dlc) Repack FitGirl [Digi
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20858.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20858.jpgsave_picture_20858.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Crashlands 2 (2025) [Ru/Multi] (1.0.5) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20908.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20908.jpgsave_picture_20908.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Echoes of Yi : Samsara (2025) [Ru/Multi] (16,270) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20966.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20966.jpgsave_picture_20966.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Mandragora: Whispers of the Witch Tree (2025) [Ru/Multi] (1.2.4.2147/dlc) Repack
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20990.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20990.jpgsave_picture_20990.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Mandragora: Whispers of the Witch Tree (2025) [Ru/Multi] (1.2.4.2147/dlc) Repack
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21018.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21018.jpgsave_picture_21018.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Mandragora: Whispers of the Witch Tree (2025) [Ru/Multi] (1.2.4.2147/dlc) Repack
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21048.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21048.jpgsave_picture_21048.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Slime Heroes (2025) [Ru/Multi] (1.0.0.5) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21064.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21064.jpgsave_picture_21064.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Coridden (2025) [Ru/Multi] (1.2.3/dlc) Repack FitGirl [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21069.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21069.jpgsave_picture_21069.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ ArkCraft: The Rebirth of the World / ArkCraft: Возрождение мира (
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21074.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21074.jpgsave_picture_21074.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Warhammer 40,000: Space Marine 2 (2024) [Ru/Multi] (7.0.0.1/dlc) Repack dixen18
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21078.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21078.jpgsave_picture_21078.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Achilles: Legends Untold (2023) [Ru/Multi] (1.7.0) Repack Decepticon
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21088.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21088.jpgsave_picture_21088.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Baldur's Gate III (3) (2020) [Ru/Multi] (4.1.1.6758295/dlc) Repack seleZen [Digi
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21152.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21152.jpgsave_picture_21152.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Sweep (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21153.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21153.jpgsave_picture_21153.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172566.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172566.jpgsave_picture_172566.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Adobe Audition 2024 24.0.0.46 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172567.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172567.jpgsave_picture_172567.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Advanced SystemCare Pro 17.0.1.108 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172568.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172568.jpgsave_picture_172568.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Microsoft Windows 11 [10.0.22621.2428], Version 22H2 (Updated October 2023) - О
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172569.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172569.jpgsave_picture_172569.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Adobe Animate 2024 24.0.0.305 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172570.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172570.jpgsave_picture_172570.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Adobe After Effects 2024 24.0.0.55 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172571.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172571.jpgsave_picture_172571.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Sound Normalizer 8.7 Portable by Spirit Summer [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172572.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172572.jpgsave_picture_172572.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:C4746E2E68F7677F2E5C5400276370D71A4E798B
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172573.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172573.jpgsave_picture_172573.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:EC2A28D9E4BBF136770D455F2E2E40A585CBDB1A
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172574.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172574.jpgsave_picture_172574.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ magnet:?xt=urn:btih:5532B61AAD761A2E46CDE969734FB7904D55A32D
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172575.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172575.jpgsave_picture_172575.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ magnet:?xt=urn:btih:C514941D7D2C87C8BFF1522FF8ED7C37FD661B6E
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172576.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172576.jpgsave_picture_172576.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ magnet:?xt=urn:btih:40642C0612C8C38524262837A8F4F5B1CBED2BA8
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172577.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172577.jpgsave_picture_172577.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Notepad++ 8.5.8 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172578.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172578.jpgsave_picture_172578.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ BlueStacks App Player 5.13.200.1026 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172579.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172579.jpgsave_picture_172579.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ Good Night World | Спокойной ночи, мир [2023, Web, 12] WEBRip 10
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172580.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172580.jpgsave_picture_172580.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ magnet:?xt=urn:btih:CC3DEE8C49462ADF4D63AE363F9DA85AD120D3D6
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172581.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172581.jpgsave_picture_172581.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ magnet:?xt=urn:btih:CC3DEE8C49462ADF4D63AE363F9DA85AD120D3D6
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172582.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172582.jpgsave_picture_172582.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ magnet:?xt=urn:btih:BBBAFB232F49089A346155A04D551B8754EFE797
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172583.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172583.jpgsave_picture_172583.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ magnet:?xt=urn:btih:38C0D5B98AAB04B562ADA42442DD16998AD1883F
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172584.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172584.jpgsave_picture_172584.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ magnet:?xt=urn:btih:F501984509B7F6A9AD97AB1BCD5472C268841902
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172585.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172585.jpgsave_picture_172585.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ magnet:?xt=urn:btih:0E14EEA38DD8717E25356725C9A4F47C4AAE2BF5
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172586.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172586.jpgsave_picture_172586.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ Amanda Lear - The Sphinx•1976-1983 ( 2006 ) 3CD [FLAC|Lossless|tracks + .cue] 
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172587.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172587.jpgsave_picture_172587.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ magnet:?xt=urn:btih:38C7D04B6AEFF23F6511866D29237223D1F1E668
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172588.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172588.jpgsave_picture_172588.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Windows 11 Manager 1.3.2 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172589.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172589.jpgsave_picture_172589.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ ZWCAD 2024 SP1 Professional [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172590.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172590.jpgsave_picture_172590.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ magnet:?xt=urn:btih:D05B54AE7B1A02891CD0B36C7FE3837D8EA3D281
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172591.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172591.jpgsave_picture_172591.jpg" />
 </div>
 
 

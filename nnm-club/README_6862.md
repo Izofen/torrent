@@ -6,7 +6,7 @@
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235688.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235688.jpgsave_picture_235688.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Ashampoo Photo Commander 17.0.0 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235689.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235689.jpgsave_picture_235689.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Topaz Photo AI 1.3.3 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235690.jpgsave_picture_235690.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ VA - Chillout Lounge 2021 (2021) [AAC|~318 Kbps] <Progressive House, Electro Hou
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235691.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235691.jpgsave_picture_235691.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ Divinefire - Farewell (2008) Japanese Edition [FLAC|Lossless|image + .cue] <Powe
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235692.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235692.jpgsave_picture_235692.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Roy Buchanan - Roy’s Bluz (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235693.jpgsave_picture_235693.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ BetterDisplay Pro for Mac 1.4.15 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235694.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235694.jpgsave_picture_235694.jpg" />
 </div>
 
 
@@ -187,7 +187,7 @@ magnet:?xt=urn:btih:B3CA545C6117A63858FD81E6C4E7E747E4920246
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235695.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235695.jpgsave_picture_235695.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ magnet:?xt=urn:btih:466E68F136CC910C07C94FBC239CC30A271148C6
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235696.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235696.jpgsave_picture_235696.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ Meri D. - Follow Me (1985) CD [MP3|320 Kbps] <Electronic, Pop Rock, Synth-pop, D
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235697.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235697.jpgsave_picture_235697.jpg" />
 </div>
 
 
@@ -262,7 +262,7 @@ Lungo 2.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235698.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235698.jpgsave_picture_235698.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ magnet:?xt=urn:btih:7CC910ABD7DC03C3A45EFE28E6E2709752CAE113
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235699.jpgsave_picture_235699.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ magnet:?xt=urn:btih:B7C074A2945BC9B5E869BC9DAC1421B5814F9788
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235700.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235700.jpgsave_picture_235700.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ magnet:?xt=urn:btih:7AABF1070399BFCECA2CCB7743B3850C27040D34
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235701.jpgsave_picture_235701.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ magnet:?xt=urn:btih:32BA623DA084A256FAAF6D7E18D6E140441EBB7C
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235702.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235702.jpgsave_picture_235702.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ HTML Academy | TypeScript, часть 1. Теория типов (2022) [unpacke
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235703.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235703.jpgsave_picture_235703.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ GeoGebra 6.0.783.0 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235704.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235704.jpgsave_picture_235704.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ magnet:?xt=urn:btih:0A20557D72456C88222C311B8447CE9703392B4E
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235705.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235705.jpgsave_picture_235705.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ The Rainbird - Queen Takes King (2021) [MP3|320 Kbps] <Hard Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235706.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235706.jpgsave_picture_235706.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ Sidus Mortuorum - Endless Funeral (2010) [FLAC|Lossless|image + .cue] <Death Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235707.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235707.jpgsave_picture_235707.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ magnet:?xt=urn:btih:524375A816D7525CC8E36EECB33660D813773EA9
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235708.jpgsave_picture_235708.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ magnet:?xt=urn:btih:C47AB5B2CDD9E70F8D6FBB03CDA4057C7EC61F99
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235709.jpgsave_picture_235709.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Midnight Noon - Dark Side of Memories (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235710.jpgsave_picture_235710.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ magnet:?xt=urn:btih:A93CC2A4E3FE6E63C951B32826EB526BB2F3D185
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235711.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235711.jpgsave_picture_235711.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ magnet:?xt=urn:btih:2F9E654D342AAC1AE2F7B025413D93DD90BE7493
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235712.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235712.jpgsave_picture_235712.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Glen Winters - When I Feel Like This (2021) [MP3|320 Kbps] <Classic Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235713.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235713.jpgsave_picture_235713.jpg" />
 </div>
 
 

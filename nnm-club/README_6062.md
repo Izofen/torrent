@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_190954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_190954.jpgsave_picture_190954.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ NG: Секреты истории - Эксперименты ЦРУ: Контр�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_190955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_190955.jpgsave_picture_190955.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:8F810C3B463A41410A289BEC2375A99DF44ADB2A
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_190956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_190956.jpgsave_picture_190956.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ VA - Club&Dance Осенние Треки Remix NNM (2022) [MP3|320 Kbps] <Pop, 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_190957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_190957.jpgsave_picture_190957.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ ExperienceIndexOK 4.11 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_190958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_190958.jpgsave_picture_190958.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ QOwnNotes 23.9.1 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190959.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190959.jpgsave_picture_190959.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:9610B56E6C6C66BD13CC9AED0FB0490E90FED7F3
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_190960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_190960.jpgsave_picture_190960.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ BELOFF [dp] 2022.11.1
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_190961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_190961.jpgsave_picture_190961.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:FC133D2E790FC474F77D53748446B14D1DEB2F0E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190962.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190962.jpgsave_picture_190962.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:2501E779D03066C5C3D1AED2FE3CF05E24661486
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_190963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_190963.jpgsave_picture_190963.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:88CB02290D6133AC13E85672A51EA9FCD30BFCB7
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190964.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190964.jpgsave_picture_190964.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:468C085AFDC05C2234CB62C55B324C807605F9EF
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190965.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190965.jpgsave_picture_190965.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ PREQUEL: Редактор фото и видео v1.51.0 Mod by Dymonyxx [Ru/Mul
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_190966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_190966.jpgsave_picture_190966.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Primal Fear - Code Red (2023) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190967.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190967.jpgsave_picture_190967.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Mad Butcher - Metal Meat (1987) Reissue, 2021, Relics From the Crypt [FLAC|24/19
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190968.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190968.jpgsave_picture_190968.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ magnet:?xt=urn:btih:B9D73EF8AD4A278F145A7498DC4E472EC062CCE2
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190969.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190969.jpgsave_picture_190969.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ magnet:?xt=urn:btih:F887E552E0E872B7BC80AD40B6DF937BE084762D
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190970.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190970.jpgsave_picture_190970.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ High-Logic FontCreator Professional Edition 15.0.0.2931 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190971.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190971.jpgsave_picture_190971.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ OOMPH! - Richter und Henker (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Industri
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190972.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190972.jpgsave_picture_190972.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ magnet:?xt=urn:btih:D68F2FEB897CB57B7F3D3E5AA91EB2A8C6FFF96E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_190973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_190973.jpgsave_picture_190973.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ The Starkillers - Пираты Японского Моря (2023) [FLAC|Lossless
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190974.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190974.jpgsave_picture_190974.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ magnet:?xt=urn:btih:600791D5A01D866975604A0B8E3BC5969367F316
 >>КВН
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_190975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_190975.jpgsave_picture_190975.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Radeon Software Slimmer 1.8.0 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_190976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_190976.jpgsave_picture_190976.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ magnet:?xt=urn:btih:6A1573077C84562CE25371F3FDCD5E94EB8E8C60
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190977.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190977.jpgsave_picture_190977.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Sandboxie 5.66.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190978.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190978.jpgsave_picture_190978.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ TrafficMonitor 1.84 Portable [En/Ch]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_190979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_190979.jpgsave_picture_190979.jpg" />
 </div>
 
 

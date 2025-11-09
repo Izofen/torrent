@@ -6,7 +6,7 @@
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71184.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71184.jpgsave_picture_71184.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ David Rose - Romantic Dining Music (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71185.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71185.jpgsave_picture_71185.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ VA - Valentines Day 2025 [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71186.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71186.jpgsave_picture_71186.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ The Night Flight Orchestra - Give Us The Moon (2025) [FLAC|Lossless|WEB-DL|track
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71187.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71187.jpgsave_picture_71187.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ magnet:?xt=urn:btih:70A99E49EFE8CE11CD6F228ACE4EDD6F28BB9B6A
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71188.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71188.jpgsave_picture_71188.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Text Editor Pro 31.3.3 + Portable + Bonus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71189.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71189.jpgsave_picture_71189.jpg" />
 </div>
 
 
@@ -161,7 +161,7 @@ magnet:?xt=urn:btih:A343B63A704665F0576E24262EAAB6C6AEB0753D
 >>Баскетбол, Волейбол, Гандбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71190.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71190.jpgsave_picture_71190.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ magnet:?xt=urn:btih:DB96B6125CBC2B14FB822601A4DF6B5D9A147E2A
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71191.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71191.jpgsave_picture_71191.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ VA - Chill Out Ibiza Vol.1 (The Balearic Edition) (2007) [FLAC|Lossless|WEB-DL|t
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71192.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71192.jpgsave_picture_71192.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ magnet:?xt=urn:btih:9E965C1B237ECFD36F9317905521963E47341427
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71193.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71193.jpgsave_picture_71193.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ magnet:?xt=urn:btih:AF01F4D9356B1B994AFDDB6BBBE93987C921C1BC
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71194.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71194.jpgsave_picture_71194.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ magnet:?xt=urn:btih:C00A4A4FB012749F8C6785E09B7998EBD2E5F94F
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71195.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71195.jpgsave_picture_71195.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ magnet:?xt=urn:btih:A962E4691E697913802C32369C36D5A95F2149F8
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71196.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71196.jpgsave_picture_71196.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ VA - Drinking at Midnight - Noir Doom Dark Jazz Vol. I (2023) Signora Ward Recor
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71197.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71197.jpgsave_picture_71197.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ Robin Verheyen, Billy Hart, Drew Gress - Liftoff (2025) [FLAC 24/96|Lossless|WEB
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71198.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71198.jpgsave_picture_71198.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Thorbjorn Risager & The Black Tornado - House Of Sticks (2025) [FLAC|Lossless|WE
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71199.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71199.jpgsave_picture_71199.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ Omnium Gatherum - Studio Albums (10 releases) (2003-2023) hand made [restored, d
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71200.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71200.jpgsave_picture_71200.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ Simple Minds - Once Upon A Time (1985) Super Deluxe, Remaster, 2015,  UMC [MP3|3
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71201.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71201.jpgsave_picture_71201.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ VA - Italo Strikes Back Vol. 2 (1998) [AAC|320 Kbps] <Electronic, Euro House, Sy
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71202.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71202.jpgsave_picture_71202.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ VA - Drinking at Midnight - Noir Doom Dark Jazz Vol. II (2023) Signora Ward Reco
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71203.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71203.jpgsave_picture_71203.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ O&O DiskImage Professional 20.1 Build 340 RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71204.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71204.jpgsave_picture_71204.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ magnet:?xt=urn:btih:25C767596B5D10579053FC4459B26948E4F20BCF
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71205.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71205.jpgsave_picture_71205.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ magnet:?xt=urn:btih:3BE3014A85C17EB6D50D2D4BACD360A415AEEE51
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71206.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71206.jpgsave_picture_71206.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ VA - Musical kaleidoscope part 25 Easy listening (2025) [MP3|320 Kbps] <Electron
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71207.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71207.jpgsave_picture_71207.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ magnet:?xt=urn:btih:BE409C39DE2592364D44365843AFB75187E5593A
 >>Единоборства, Бои без правил
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71208.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71208.jpgsave_picture_71208.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ magnet:?xt=urn:btih:7126A2EB0007CCC4BD37CAAE3B43046F70FCCD37
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71209.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71209.jpgsave_picture_71209.jpg" />
 </div>
 
 

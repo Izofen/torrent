@@ -6,7 +6,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103488.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103488.jpgsave_picture_103488.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Gillian Welch & David Rawlings - Woodland (2024) [FLAC 24/192|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103489.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103489.jpgsave_picture_103489.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Malabari - Down The Maelstrom (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard R
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103490.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103490.jpgsave_picture_103490.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Casandra's Crossing - Garden Of Earthly Delights (2024) [FLAC 24/96|Lossless|WEB
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103491.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103491.jpgsave_picture_103491.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ The Grammers - Rockfield (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103492.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103492.jpgsave_picture_103492.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ magnet:?xt=urn:btih:4668C87514275B2CDF48545BBDC234A341F7FBD1
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103493.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103493.jpgsave_picture_103493.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Moonrise - Under The Flight Crows (2011) [FLAC|Lossless|image + .cue] <Melodic D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103494.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103494.jpgsave_picture_103494.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ magnet:?xt=urn:btih:D409D29776B70231C84293F5CA6FFB3DDFA198D8
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103495.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103495.jpgsave_picture_103495.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Starcrazy - Starcrazy (2024) [FLAC|Lossless|WEB-DL|tracks] <Glam Rock, Hard Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103496.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103496.jpgsave_picture_103496.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Mother's Cake - Ultrabliss (2024) [FLAC|Lossless|WEB-DL|tracks] <Progresive, Spa
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103497.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103497.jpgsave_picture_103497.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Jaime Narvaez - Joyous Cosmology EP (2019) [FLAC|Lossless|tracks] <Deep House, P
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103498.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103498.jpgsave_picture_103498.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Beorn - Time To Dare (2015) [FLAC|Lossless|image + .cue] <Symphonic Power Metal>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103499.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103499.jpgsave_picture_103499.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Bite The Bullet - Looking For Paradise (2024) [FLAC|Lossless|image + .cue] <Melo
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103500.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103500.jpgsave_picture_103500.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Jim Peterik & World Stage - Roots & Shoots Volume Two (2024) [FLAC|Lossless|imag
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103501.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103501.jpgsave_picture_103501.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ The Art Farmer Quartet - To Sweden With Love (1964) 2013, Atlantic [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103502.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103502.jpgsave_picture_103502.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Freddie Hubbard - Ride Like The Wind (1981) 2014, Warner [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103503.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103503.jpgsave_picture_103503.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Ray Brown - The Best Of The Concord Years (1973 - 1993) 2CD, 2002, Concord Recor
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103504.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103504.jpgsave_picture_103504.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ Eddie Henderson - Witness To History (2023) Smoke Sessions Records [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103505.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103505.jpgsave_picture_103505.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ Beltane - Jera (2007) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103506.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103506.jpgsave_picture_103506.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Gary Burton - New Vibe Man In Town (1960, 1961) 2012, American Jazz Classics [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103507.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103507.jpgsave_picture_103507.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ magnet:?xt=urn:btih:2E6A18FCE792D86B4037391E0575F0ED21F2057A
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103508.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103508.jpgsave_picture_103508.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ NRBQ - Brass Tacks (2014) 10th Anniversary Edition, 2024, Omnivore Recordings [F
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103509.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103509.jpgsave_picture_103509.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Smash Atoms - Smash Atoms (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Roc
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103510.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103510.jpgsave_picture_103510.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Malakye Grind - Dystopian Dream (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103511.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103511.jpgsave_picture_103511.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Flamy Grant - CHURCH (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues, Folk>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103512.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103512.jpgsave_picture_103512.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ Eddie Henderson - Collective Portrait (2015) Smoke Sessions Records [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103513.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103513.jpgsave_picture_103513.jpg" />
 </div>
 
 

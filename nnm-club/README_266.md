@@ -6,7 +6,7 @@
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7000.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7000.jpgsave_picture_7000.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:AB0879E433277B2821AD1D5DF817370199477EA9
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7001.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7001.jpgsave_picture_7001.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ VA - Workout Motivation (Deep Edition) [Mixed by Sergey Sychev] (2018-2025) Deep
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7002.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7002.jpgsave_picture_7002.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:E95890A071B5009A51F8FB58C533AB685860408B
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7003.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7003.jpgsave_picture_7003.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:DA8221A4DEDD9A151A15D5A8A95226695ED996D4
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7004.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7004.jpgsave_picture_7004.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:2303E0FA8B6056AE49A7D28FCE54B549D1509B44
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7005.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7005.jpgsave_picture_7005.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Roller Coaster Tycoon 2 / Мир Аттракционов [Ru] (RePack) 2002 | P
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7006.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7006.jpgsave_picture_7006.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:2D66AD1E9A390DF53097F9AA35C708A145B1E161
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7007.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7007.jpgsave_picture_7007.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:ACCC3A381C590DA081EEA684B93CBF1D0AA9A0F3
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7008.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7008.jpgsave_picture_7008.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Microsoft® Windows® 10 x64 Ru 22H2 4in1 Upd 08.2025 by OVGorskiy
 >>Сборки Windows 10
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7009.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7009.jpgsave_picture_7009.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:9F85C86E66561546CF14D3A06AE7083ED0809A2C
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7010.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7010.jpgsave_picture_7010.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ magnet:?xt=urn:btih:352C4D89F44C2F3AA22DEB158EF3BDED0857277A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7011.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7011.jpgsave_picture_7011.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ magnet:?xt=urn:btih:41915A7B51B09BB88A36B1796059496352540042
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7012.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7012.jpgsave_picture_7012.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ magnet:?xt=urn:btih:887D1AAD4BB23515A7D2E561802E8CE9D5BD651F
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7013.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7013.jpgsave_picture_7013.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ magnet:?xt=urn:btih:D705CEE75D0A344D88C7FB8ABB61F5CB7CBF87ED
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7014.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7014.jpgsave_picture_7014.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:01EA1C071447746500B7468120CB4ECCD7F888AB
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7015.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7015.jpgsave_picture_7015.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Microsoft Activation Scripts (MAS) 3.5 portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7016.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7016.jpgsave_picture_7016.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ MotoGP. Этап 13 из 22. Гран-при Австрии. Гонка (17.08.2
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7017.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7017.jpgsave_picture_7017.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ Inbar Fridman feat. Katia Toobool, Lior Ozeri & Yogev Gabay - Mercy (2025) [FLAC
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7018.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7018.jpgsave_picture_7018.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ Jade Vandal - You Don’t Understand Love (2025) [FLAC 24/44.1|Lossless|WEB-DL|t
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7019.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7019.jpgsave_picture_7019.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ magnet:?xt=urn:btih:41404E716F84457EFB7AF5B1287F627A2C2E83A5
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7020.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7020.jpgsave_picture_7020.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ magnet:?xt=urn:btih:38C7F50AB75D8E4F059D3CCE9315764734222CC3
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7021.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7021.jpgsave_picture_7021.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ magnet:?xt=urn:btih:15962DAE38969D461E237FA269B9ABB2EA301549
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7022.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7022.jpgsave_picture_7022.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Raz Louk - Knocked Out In Space (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7023.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7023.jpgsave_picture_7023.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Al Cohn - Broadway (1954) 1992, Original Jazz Classics [FLAC|Lossless|image + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7024.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7024.jpgsave_picture_7024.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Colorado Jazz Repertory Orchestra - Golden Lady (2025) [FLAC 24/96|Lossless|WEB-
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7025.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7025.jpgsave_picture_7025.jpg" />
 </div>
 
 

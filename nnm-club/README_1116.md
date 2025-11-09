@@ -6,7 +6,7 @@
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29371.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29371.jpgsave_picture_29371.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ VA - Dance Classics Vol. 6 (1988) [AAC|320 Kbps] <Electronic, Hip Hop, Funk, Dis
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29372.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29372.jpgsave_picture_29372.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:C886991AC6A9A3665835EA85907ABB9B935FE5FF
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29373.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29373.jpgsave_picture_29373.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ magnet:?xt=urn:btih:630C6DF0FC11FF6DC28C9EAB499A92AD61E298BE
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29374.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29374.jpgsave_picture_29374.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ VA - Dance Classics Vol. 5 (1988) [AAC|320 Kbps] <Electronic, Hip Hop, Funk, Dis
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29375.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29375.jpgsave_picture_29375.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ VA - Dance Classics Vol. 6 (1988) Reissue, 2000, Roadrunner Arcade Music [OGG Vo
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29376.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29376.jpgsave_picture_29376.jpg" />
 </div>
 
 
@@ -161,7 +161,7 @@ magnet:?xt=urn:btih:42C95E185476D1E4D10C64D9BE76B1430D74FEFE
 >>Баскетбол, Волейбол, Гандбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29377.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29377.jpgsave_picture_29377.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Piah Mater - Under The Shadow Of A Foreign Sun (2024) [FLAC|Lossless|image + .cu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29378.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29378.jpgsave_picture_29378.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Arlee Leonard, Cleave Guyton & Igor Dmitriev Trio - Status Quo (2008) 2024, Apol
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29379.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29379.jpgsave_picture_29379.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Joe Pass & John Pisano - Duets (1991) 1996, Pablo [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29380.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29380.jpgsave_picture_29380.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Sonny Stitt - The Champ (1973) 1991, Muse Records [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29381.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29381.jpgsave_picture_29381.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ magnet:?xt=urn:btih:93DBF0485CDDFC327D6825BE5A7C810D70D713C3
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29382.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29382.jpgsave_picture_29382.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Gift Collector (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29383.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29383.jpgsave_picture_29383.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Google Chrome 132.0.6834.160 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29384.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29384.jpgsave_picture_29384.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ VueScan Pro 9.8.44 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29385.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29385.jpgsave_picture_29385.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ magnet:?xt=urn:btih:8762ABAA30ED0C9323F4297FA39F33FC57BD6A92
 >>Книжная иллюстрация
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29386.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29386.jpgsave_picture_29386.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ magnet:?xt=urn:btih:169CB9E0333A8840D814BB176BE0902854CC1D58
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29387.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29387.jpgsave_picture_29387.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ magnet:?xt=urn:btih:C58C18577A2549CDAAEDF15B67D9EE54FD3F7D41
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29388.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29388.jpgsave_picture_29388.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Bigasoft Audio Converter 5.8.1.9133 RePack (& Portable) by elchupacabra [Multi/R
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29389.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29389.jpgsave_picture_29389.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ VA - Glamourous Beats (2025) [MP3|320 Kbps] <Nu Disco, Funky House, Electro>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29390.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29390.jpgsave_picture_29390.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ magnet:?xt=urn:btih:DE4F4E267AC30BEEBDA7B94E7D5066D4D1AA75A3
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29391.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29391.jpgsave_picture_29391.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ OneCommander Pro 3.95.2.0 + Portable 3.95.3.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29392.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29392.jpgsave_picture_29392.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ magnet:?xt=urn:btih:A3A7337DD05235FF1A7C6000F827B6707279B332
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29393.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29393.jpgsave_picture_29393.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ magnet:?xt=urn:btih:13C0E017FE775FB9EE5CA301379BE3CC7A95264B
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29394.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29394.jpgsave_picture_29394.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ magnet:?xt=urn:btih:F8332199021D18840718A8293BD5B4681B221BD8
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29395.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29395.jpgsave_picture_29395.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ magnet:?xt=urn:btih:5B345A912F52B49439E2BF952C2D3180DB644275
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29396.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29396.jpgsave_picture_29396.jpg" />
 </div>
 
 

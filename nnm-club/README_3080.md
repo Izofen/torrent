@@ -6,7 +6,7 @@
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98435.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98435.jpgsave_picture_98435.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Modern Day Escape - Under The Gun (2012) [MP3|320 кб/с]<Alt. Rock / Post-Hard
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98437.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98437.jpgsave_picture_98437.jpg" />
 </div>
 
 
@@ -67,7 +67,7 @@ magnet:?xt=urn:btih:F0122C9277FADDD11A94FDE751ACD1341FCE6ED9
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98438.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98438.jpgsave_picture_98438.jpg" />
 </div>
 
 
@@ -95,7 +95,7 @@ Mike Reinhardt Trio - Road Song (2012) [MP3|320 кб/с]<Jazz, Fusion>
 >>Jazz
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98442.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98442.jpgsave_picture_98442.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:DC18D94B2A850B576348BA7C89424A1429D94D74
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98443.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98443.jpgsave_picture_98443.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:7FAE65D444D30CBFEFC925B8D2F752FA63508C7A
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98446.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98446.jpgsave_picture_98446.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ The Soul Snatchers - Scratch My Itch (2012) [MP3|320 кб/с]<Soul, Funk>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98452.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98452.jpgsave_picture_98452.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ VA - Союз Хитовый Часть 2 (2012) [MP3|256-320 kbps]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98453.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98453.jpgsave_picture_98453.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ magnet:?xt=urn:btih:7690A806B9F7298E2331651FBB6AC22894DA04F8
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98454.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98454.jpgsave_picture_98454.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ magnet:?xt=urn:btih:E3317DD4BD67F14083CC86082D6E942CE61C697A
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98456.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98456.jpgsave_picture_98456.jpg" />
 </div>
 
 
@@ -290,7 +290,7 @@ VA - MAXI. Новое на MTV (2012) [MP3|256-320 kbps]<Pop | Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98457.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98457.jpgsave_picture_98457.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ VA - Клубный АвтоЗвук Весна (2012) [MP3|256 kbps]<Club | Dan
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98459.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98459.jpgsave_picture_98459.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ magnet:?xt=urn:btih:5309237905F83348979D45ED302955D4B937FEA5
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98462.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98462.jpgsave_picture_98462.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ magnet:?xt=urn:btih:5BF57AFB7E7EC11625279A48ED94D59FA3972C57
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98465.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98465.jpgsave_picture_98465.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Begging For Incest - Orgasmic Selfmutilation (2012) [MP3|320 кб/с]<Brutal Dea
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98466.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98466.jpgsave_picture_98466.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ VA - Русские Новинки 9 (2012) [MP3|256 kbps]<Pop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98468.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98468.jpgsave_picture_98468.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ magnet:?xt=urn:btih:B0715220438BE501A9675DFBBD13BABCF43FA4ED
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98470.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98470.jpgsave_picture_98470.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ VA - Дискотека Бездна Original Шансон vol. 3 (2012) [MP3|12
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98471.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98471.jpgsave_picture_98471.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Che Pazzo Band - Jean-Baptiste (2011) [MP3|320 кб/с]<jazz, swing>
 >>Jazz
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98472.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98472.jpgsave_picture_98472.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ magnet:?xt=urn:btih:C60AD1DCFBC625788F0DC6987BED30A62CF89109
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98474.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98474.jpgsave_picture_98474.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ magnet:?xt=urn:btih:9710AEF87F6AD6C688424506FB65F4DB2190081D
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98475.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98475.jpgsave_picture_98475.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ magnet:?xt=urn:btih:1E2EA1B76122CB61C861BAC6EE793BA94B503E51
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98477.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98477.jpgsave_picture_98477.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ VA - Танцевальный клубный поп хит vol.1 (2012) [MP3|256
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98478.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98478.jpgsave_picture_98478.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ VA - Граммофон Рекордс (2012) [MP3|256 kbps]<Pop | Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98480.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98480.jpgsave_picture_98480.jpg" />
 </div>
 
 
@@ -698,7 +698,7 @@ magnet:?xt=urn:btih:213711A2CF5C6FF3F5B4470AA3906D88B48D3170
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98481.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98481.jpgsave_picture_98481.jpg" />
 </div>
 
 
@@ -722,7 +722,7 @@ New Eden - Solving for X (2012) [MP3|320 кб/с]< Progressive Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98482.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98482.jpgsave_picture_98482.jpg" />
 </div>
 
 

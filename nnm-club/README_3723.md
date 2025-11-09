@@ -6,7 +6,7 @@ Jazz Erotic Lounge Collective, Background Instrumental Music Collective - Sexy O
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117173.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117173.jpgsave_picture_117173.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Topaz Gigapixel AI for Mac 7.0.2 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117174.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117174.jpgsave_picture_117174.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Pet Shop Boys - Bilingual (1996) 1st Holland Press [APE|Lossless|image + .cue] <
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117175.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117175.jpgsave_picture_117175.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ UMC - 80s in Metal (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Metal, Rock, Me
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117176.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117176.jpgsave_picture_117176.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ magnet:?xt=urn:btih:5DE0C8BF824A4159BCC2E70816CFF11EB7A4D4ED
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117177.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117177.jpgsave_picture_117177.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ Illumishade - Another Side of You (2024) [MP3|320 Kbps] <Symphonic Metal, Gothic
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117178.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117178.jpgsave_picture_117178.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Sante DICOM Editor 10.0.6 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117179.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117179.jpgsave_picture_117179.jpg" />
 </div>
 
 
@@ -187,7 +187,7 @@ Monkey's Audio 10.50 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117180.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117180.jpgsave_picture_117180.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ MiniMeters for Mac 0.8.17 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117181.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117181.jpgsave_picture_117181.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Kgb - Motion (1976) Reissue, 2024, Andromeda Black Hole [MP3|320 Kbps] <blues ro
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117182.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117182.jpgsave_picture_117182.jpg" />
 </div>
 
 
@@ -265,7 +265,7 @@ TablePlus 5.9.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117183.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117183.jpgsave_picture_117183.jpg" />
 </div>
 
 
@@ -290,7 +290,7 @@ VA - 10 Years Of Suanda Music - Eximinds (2024) [MP3|320 Kbps] <Trance, Upliftin
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117184.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117184.jpgsave_picture_117184.jpg" />
 </div>
 
 
@@ -317,7 +317,7 @@ Elettra Storm - Powerlords (2024) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117185.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117185.jpgsave_picture_117185.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ magnet:?xt=urn:btih:B5255A2C8C91A5999D70F2F01D80474E0843BD7E
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117186.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117186.jpgsave_picture_117186.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ magnet:?xt=urn:btih:C26964816D31893B5A0BD8BF8B7F58741E7DFA66
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117187.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117187.jpgsave_picture_117187.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ magnet:?xt=urn:btih:0182FA7B7DE27FFBE5F91D5D6A6EBF6E54AC3888
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117188.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117188.jpgsave_picture_117188.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ UMC - 90s in Metal (2018) [FLAC|Lossless|WEB-DL|tracks] <Metal, Rock, Metal Cove
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117189.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117189.jpgsave_picture_117189.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:BFD730D420D5A68FACE037C8B7EF693D93E2E9A5
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117190.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117190.jpgsave_picture_117190.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ magnet:?xt=urn:btih:4CE4C1CBCDF7F21D622DCDF355D9F51CAEFC71DA
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117191.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117191.jpgsave_picture_117191.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ magnet:?xt=urn:btih:D1B79DB73E189C3D049B0C110C227F1A1C884411
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117192.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117192.jpgsave_picture_117192.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Microsoft .NET 6.0.27 Runtime [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117193.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117193.jpgsave_picture_117193.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ VA - The Best of 2023 from Sounemot Labels Group (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117194.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117194.jpgsave_picture_117194.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Privacy Eraser Free 6.3.3 Build 4839 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117195.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117195.jpgsave_picture_117195.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ AC/DC - AC/DC: Live in Maryland, 1979 (2024) (Live) [FLAC 24/44.1|Lossless|WEB-D
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117196.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117196.jpgsave_picture_117196.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ PeaZip 9.7.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117197.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117197.jpgsave_picture_117197.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ magnet:?xt=urn:btih:33C40FE8A1217621559DB939B4FE1CDF2D10E90F
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117198.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117198.jpgsave_picture_117198.jpg" />
 </div>
 
 

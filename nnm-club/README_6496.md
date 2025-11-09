@@ -6,7 +6,7 @@ Skype 8.102.0.211 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205894.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205894.jpgsave_picture_205894.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ V.A. - Buddha Bar XXV (2023) 3CD [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Loung
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205895.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205895.jpgsave_picture_205895.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:EB48212AF94B6F596CBD3CA846ECF75DFDC505CA
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205897.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205897.jpgsave_picture_205897.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Marius Iulian Mihailescu, Stefania Loredana Nita | Pro Cryptography and Cryptana
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205899.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205899.jpgsave_picture_205899.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Wallace Wang | Beginning iPhone Development with SwiftUI: Exploring the iOS SDK,
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205903.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205903.jpgsave_picture_205903.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:76DDAA99501D4A18583EB7023ADCF91301C7205E
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205912.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205912.jpgsave_picture_205912.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:4C7AA263112F1B9AD1F4D04E21FA611037803D75
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205915.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205915.jpgsave_picture_205915.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Rename Expert 5.30.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205916.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205916.jpgsave_picture_205916.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Sam Goku - The Things We See When We Look Closer (2023) [FLAC|Lossless|WEB-DL|tr
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205918.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205918.jpgsave_picture_205918.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ VPN Inf - Security Fast VPN 7.5.713 Mod by ModdingUnited [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205922.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205922.jpgsave_picture_205922.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ VA - Abbey Road Reimagined – A Tribute To The Beatles (2023) [MP3|320 Kbps] <R
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205923.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205923.jpgsave_picture_205923.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ YouTube ReVanced Extended 18.30.37 (RVP v2.187.1) Mod by Vooltmace + Micro G [Ru
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205924.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205924.jpgsave_picture_205924.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ MEmu 9.0.5.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205927.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205927.jpgsave_picture_205927.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Martine Dowden, Michael Gearon | Tiny CSS Projects (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205930.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205930.jpgsave_picture_205930.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ magnet:?xt=urn:btih:3220C0A6883FB5C44B72EFEBA261E66C4E71E4DC
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205931.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205931.jpgsave_picture_205931.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Lacey Free Music & Video Downloader 2.88 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205933.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205933.jpgsave_picture_205933.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ KMPlayer 4.2.3.2 Plus (x86) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205934.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205934.jpgsave_picture_205934.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ magnet:?xt=urn:btih:47C5AE7CC977BEDBDE3296877644D4800A12F87E
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205937.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205937.jpgsave_picture_205937.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ magnet:?xt=urn:btih:55818B001934C7A00DAE1071F654BFEC4737D5FD
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205939.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205939.jpgsave_picture_205939.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Google Chrome 116.0.5845.97 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205940.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205940.jpgsave_picture_205940.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Wondershare PDFelement 10.0.1.2413 + OCR Plugin (x64) Portable by 7997 [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205942.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205942.jpgsave_picture_205942.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Calibre 6.25.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205946.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205946.jpgsave_picture_205946.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ magnet:?xt=urn:btih:DD4C6459838BF366313A9220C1A987AADF167F49
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205947.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205947.jpgsave_picture_205947.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ magnet:?xt=urn:btih:960654C1B9A291E8036856A1352E573593660595
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205948.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205948.jpgsave_picture_205948.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ magnet:?xt=urn:btih:3AA02B24FD62BD565C80C4FB6666E02D513BCC3E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205950.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205950.jpgsave_picture_205950.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ Otonari no Tenshi-sama ni Itsunomanika Dame Ningen ni Sareteita Ken | The Angel 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205952.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205952.jpgsave_picture_205952.jpg" />
 </div>
 
 

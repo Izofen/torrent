@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155437.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155437.jpgsave_picture_155437.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:F97E35FD386B9185585FA4C5F1920666E082925C
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155438.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155438.jpgsave_picture_155438.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:4D4EB65BE7B15BCB029283A95F05092DD87B9F92
 >>Веб-дизайн
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155439.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155439.jpgsave_picture_155439.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Franck Carducci Band - Tearing The Tour Apart (2016) DVD5 [custom]
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155442.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155442.jpgsave_picture_155442.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Red Giant Magic Bullet Suite 12.1.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155443.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155443.jpgsave_picture_155443.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ BiglyBT 3.5.0.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155444.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155444.jpgsave_picture_155444.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ Movavi Screen Recorder 21.1.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155445.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155445.jpgsave_picture_155445.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:122A38C39A2FCC0B1DB8254AFA305408C522FEF1
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155446.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155446.jpgsave_picture_155446.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ Acon Digital - Mastering Suite 1.0.6 VST, VST3, AAX (x86/x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155447.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155447.jpgsave_picture_155447.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ Katie Melua - Live In Concert (2019) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155448.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155448.jpgsave_picture_155448.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ Testadeporcu - Acciaiu (2005) [MP3|320 кб/с]<Jazzcore / Mathcore>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155449.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155449.jpgsave_picture_155449.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ Waterfox Current G4.0.5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155450.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155450.jpgsave_picture_155450.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ magnet:?xt=urn:btih:8A62A53F3FF1DB144526E79E753641E270318785
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155452.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155452.jpgsave_picture_155452.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ Shania Twain - Now (2017) Deluxe Edition [FLAC|Lossless|tracks + .cue] <Pop, Cou
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155453.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155453.jpgsave_picture_155453.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ Domestika, Trini Guzmán | Interior Mural Painting (2023) WEB-DL [AD] [ES / EN, 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155454.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155454.jpgsave_picture_155454.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ magnet:?xt=urn:btih:95257CCAB476285907E39B256A78B4434C0019D6
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155455.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155455.jpgsave_picture_155455.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ magnet:?xt=urn:btih:95257CCAB476285907E39B256A78B4434C0019D6
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155456.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155456.jpgsave_picture_155456.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ magnet:?xt=urn:btih:327BA7BC6E8EC87B0EFDE90665ABF233C34972CB
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155457.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155457.jpgsave_picture_155457.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Haikyuu!! To the Top (2020) | Волейбол [ТВ-4, часть II] [2020, TV
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155458.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155458.jpgsave_picture_155458.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Santana - Best Ballads (1996) Compilation [MP3|320 Kbps] <Classic Rock, Blues Ro
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155459.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155459.jpgsave_picture_155459.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ Telegram Desktop 4.11.7 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155461.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155461.jpgsave_picture_155461.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ magnet:?xt=urn:btih:5182FE276C1E755A63BF21D046693FEE0965C2A9
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155462.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155462.jpgsave_picture_155462.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Hallucination - Memories From A Dream (2012) [MP3|320 кб/с]<Death Metal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155463.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155463.jpgsave_picture_155463.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ magnet:?xt=urn:btih:BA12AFC230D24659677FFE7CB1F30B32F0B0F267
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155464.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155464.jpgsave_picture_155464.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ magnet:?xt=urn:btih:CCADEC7906C571C3321A5B0F15F9FEE507ABAE3F
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155465.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155465.jpgsave_picture_155465.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ magnet:?xt=urn:btih:8976DFF2ED5F6F17DD56F5A4E64119E95EA40831
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155466.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155466.jpgsave_picture_155466.jpg" />
 </div>
 
 

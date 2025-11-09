@@ -6,7 +6,7 @@ AOMEI Backupper Technician Plus 8.0.0 Repack (& Portable) by elchupacabra [Multi
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117653.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117653.jpgsave_picture_117653.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ ReviverSoft PC Reviver 4.0.3.4 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117713.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117713.jpgsave_picture_117713.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ ClassicDesktopClock 5.53 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117840.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117840.jpgsave_picture_117840.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ GPU Caps Viewer 1.63.0 Portable [En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117843.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117843.jpgsave_picture_117843.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ GPU Shark 0.32.0 Portable [En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117847.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117847.jpgsave_picture_117847.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Air Explorer Pro 5.4.3 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117881.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117881.jpgsave_picture_117881.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ GameSave Manager 3.1.535.0 + Portable [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118632.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118632.jpgsave_picture_118632.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ ToDesk 4.7.2.1 [Ru/En/Cn]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118818.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118818.jpgsave_picture_118818.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ ReviverSoft Driver Reviver 5.43.2.2 RePack (& Portable) by elchupacabra [Multi/R
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118846.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118846.jpgsave_picture_118846.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ AutoRuns 14.11 Portable [En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118851.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118851.jpgsave_picture_118851.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Cobian Reflector 2.6.00 [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119195.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119195.jpgsave_picture_119195.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Modern Tweaker 2.0 Final (25.01.2024) Portable [Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120919.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120919.jpgsave_picture_120919.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ YT Downloader 9.17.8 RePack (& Portable) by elchupacabra [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121427.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121427.jpgsave_picture_121427.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Ant Download Manager Pro 2.16.0  Build 91578 RePack (& Portable) by elchupacabra
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121428.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121428.jpgsave_picture_121428.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Telegram Desktop 6.2.2 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121429.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121429.jpgsave_picture_121429.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ O&O Defrag Professional 30.0 Build 1057 RePack (& Portable) by elchupacabra [Mul
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121431.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121431.jpgsave_picture_121431.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ MediaHuman YouTube Downloader 3.9.17 (1010) RePack (& Portable) by elchupacabra 
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121432.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121432.jpgsave_picture_121432.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ PIDKey Lite 1.64.4 b50 Portable by Ratiborus [Ru/En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121433.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121433.jpgsave_picture_121433.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ Ant Download Manager 2.16.0 Build 91579 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121460.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121460.jpgsave_picture_121460.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ DBF Viewer 2000 8.84 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121467.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121467.jpgsave_picture_121467.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ MediaHuman YouTube Downloader 3.9.17 (1010) [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121527.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121527.jpgsave_picture_121527.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Karing 1.2.4.869 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121537.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121537.jpgsave_picture_121537.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ AnyDVD HD 8.1.3.0 [Multi/Ru]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121930.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121930.jpgsave_picture_121930.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Hetman RAID Recovery 2.6 [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121954.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121954.jpgsave_picture_121954.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Wise Duplicate Finder Pro 2.1.1.61 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122036.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122036.jpgsave_picture_122036.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ HiBit System Information 2.1.20 + Portable [En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122041.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122041.jpgsave_picture_122041.jpg" />
 </div>
 
 

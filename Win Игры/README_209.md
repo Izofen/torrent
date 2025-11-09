@@ -6,7 +6,7 @@ Archipelagoes / Ух-ты, бухты! (P) [Ru] 2011
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83470.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83470.jpgsave_picture_83470.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Liong: The Lost Amulets / Liong. Утраченные амулеты (P) [Ru] 20
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83509.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83509.jpgsave_picture_83509.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Yesterday / Yesterday: Печать Люцифера [Ru] (RePack) 2012 | Fenixx
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83561.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83561.jpgsave_picture_83561.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ Living Legends: Ice Rose Collector's Edition (P) [En] 2012
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83617.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83617.jpgsave_picture_83617.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ Solitaire Mystery: Stolen Power (P) [En] 2012
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83620.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83620.jpgsave_picture_83620.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ House of 1000 Doors: The Palm of Zoroaster Collector’s Edition / Дом 1000 �
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83748.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83748.jpgsave_picture_83748.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ magnet:?xt=urn:btih:4B2DE9F5A366FB48138914AAD195DA0949C099E3
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83777.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83777.jpgsave_picture_83777.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ House of 1000 Doors: The Palm of Zoroaster. Collector's Edition / Дом 1000 д
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83779.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83779.jpgsave_picture_83779.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ Yesterday / Yesterday: Печать Люцифера [Ru] (RePack) 2012 | shidow
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83808.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83808.jpgsave_picture_83808.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ Earache Extreme Metal Racing / Адские гонки [Ru/En] (L) 2007
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83979.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83979.jpgsave_picture_83979.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ Battlefield: Bad Company 2 + DLC Vietnam [Ru] (RePack/795745) 2010 | Naitro
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84006.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84006.jpgsave_picture_84006.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ Phenomenon: City of Cyan (P) [En] 2012
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84055.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84055.jpgsave_picture_84055.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Easter Eggztravaganza  / Пасха "eggztravaganza". Поиск яиц (P) [Ru]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84086.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84086.jpgsave_picture_84086.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ The Chronicles of Shakespeare: Romeo & Juliet / Хроники Шекспира.
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84128.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84128.jpgsave_picture_84128.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Big Fish Legend / Легенда о большой рыбе (L) [Ru] 2012
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84146.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84146.jpgsave_picture_84146.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Sid Meier's Railroads! (RePack) [Ru/En] 2006 | R.G. Catalyst
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84190.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84190.jpgsave_picture_84190.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Sid Meier's Railroads! (RePack) [Ru/En] 2006 | R.G. Catalyst
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84193.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84193.jpgsave_picture_84193.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Wing Commander Saga: The Darkest Dawn [En] (P/1.0.2.7795) 2012
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84211.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84211.jpgsave_picture_84211.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Ghost Encounters: Deadwood (P) [En] 2012
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84227.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84227.jpgsave_picture_84227.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Jewel Quest Mysteries 4: The Oracle of Ur Collector's Edition / Тайны др�
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84562.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84562.jpgsave_picture_84562.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ Gatling Gears [Ru] (RePack) 2011 | Naitro
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84596.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84596.jpgsave_picture_84596.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ Coloropus (P) [En] 2012
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84609.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84609.jpgsave_picture_84609.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ Monument Builders: Titanic (P) [En] 2012
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84694.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84694.jpgsave_picture_84694.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Princess Isabella: Return of the Curse. Collector's Edition / Принцесса
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84762.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84762.jpgsave_picture_84762.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Bloodline Champions / Братство Чемпионов (L) {ver. 2.3.0.0} [En
 >>Online (MMO)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84815.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84815.jpgsave_picture_84815.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ Solitaire Mystery: Stolen Power / Магия пасьянса (P) [Ru] 2012
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84973.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84973.jpgsave_picture_84973.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ JixiPix Rainy Daze 1.23 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144704.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144704.jpgsave_picture_144704.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:0423486526CF7BDDF0C46ECEAA23ABD05A70FF4B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144705.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144705.jpgsave_picture_144705.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:C930F8A2C56861F072D6181D03E2F518374B0F15
 >>Звуковые дорожки и субтитры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144706.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144706.jpgsave_picture_144706.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:D25019F908F2FEBB758D8F94F879C933665AB4D3
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144708.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144708.jpgsave_picture_144708.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:E649E893671A31F456494CE6249744E3B5E1B216
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144709.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144709.jpgsave_picture_144709.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ VA - Tangled Audio: Best Of 2018 (Mixed by Duncan Newell) (2018) [MP3|320 Kbps] 
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144710.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144710.jpgsave_picture_144710.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ JixiPix Aquarella 1.38 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144712.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144712.jpgsave_picture_144712.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - The Best Of Suanda True (Mixed By Tycoos & Elite Electronic) (2018) [MP3|32
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144715.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144715.jpgsave_picture_144715.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ VA - German Top 50 Official Dance Charts 23.12. (2016) [MP3|320 Kbps] <Pop, Danc
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144716.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144716.jpgsave_picture_144716.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ magnet:?xt=urn:btih:FD05F51F8C9148541720F38AAE113DA3C95AEC2E
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144717.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144717.jpgsave_picture_144717.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ VA - 100 Greatest Ballads (2019) [MP3|320 Kbps] <Pop, Rock, Ballads>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144718.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144718.jpgsave_picture_144718.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ magnet:?xt=urn:btih:A5E91BFF3D8F2DAEC1B6D61B5A5BEE7D3FA70E6D
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144719.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144719.jpgsave_picture_144719.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ Cookie 6.3.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144720.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144720.jpgsave_picture_144720.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ Marousse - Hara-Kiri (2003) [FLAC|Lossless|tracks + .cue] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144721.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144721.jpgsave_picture_144721.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ magnet:?xt=urn:btih:27EF09B47033A0A3DEFAD223BB1AF99FD30217AA
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144722.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144722.jpgsave_picture_144722.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ magnet:?xt=urn:btih:CF5A66C432E8755BAFE15EA72196B93760983154
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144723.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144723.jpgsave_picture_144723.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ magnet:?xt=urn:btih:07AD1F2AAF3E91ADDA1B3BF23AAC0D0FAE5236BA
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144725.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144725.jpgsave_picture_144725.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ magnet:?xt=urn:btih:D685DA05F52C3B5DEA23D8338F6207B752FA2F72
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144726.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144726.jpgsave_picture_144726.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ VA - Музыкальный плен Часть № 5 (2016) [MP3|256 Kbps] <Pop
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144727.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144727.jpgsave_picture_144727.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Enrico Pieranunzi & Horns - Evans Remembered (2001) Via Veneto Jazz [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144728.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144728.jpgsave_picture_144728.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ VA - The Best of Suanda Progressive (Mixed by LTN) (2018) [MP3|320 Kbps] <Trance
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144729.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144729.jpgsave_picture_144729.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ magnet:?xt=urn:btih:8B2B0872DA296CEA37E5140A3B83E2D39EE22FCE
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144730.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144730.jpgsave_picture_144730.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ magnet:?xt=urn:btih:0137D494B7A0670653F720CBEBC49F2610CB0C8C
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144731.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144731.jpgsave_picture_144731.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ magnet:?xt=urn:btih:8B762F90C686E20FD0D50F4F0332DDC780A6B41C
 >>Классическое искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144732.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144732.jpgsave_picture_144732.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Comfy Partition Recovery 2.4 Home Edition [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144734.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144734.jpgsave_picture_144734.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ magnet:?xt=urn:btih:A826A566FF5D4BC5291D87B59069E0C5A5E6FD5D
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144735.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144735.jpgsave_picture_144735.jpg" />
 </div>
 
 

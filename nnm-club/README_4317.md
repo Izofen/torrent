@@ -6,7 +6,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134097.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134097.jpgsave_picture_134097.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:B5ABB0D44157B9EC5D68A97E7A2BD7D2FA9C847E
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134099.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134099.jpgsave_picture_134099.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ Artweaver Free 3.1.3 [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134100.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134100.jpgsave_picture_134100.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ Artweaver free представляет собой растровый графи
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134101.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134101.jpgsave_picture_134101.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ magnet:?xt=urn:btih:E416AA3F95688E3C1F1C70783B12ACB10BC48C0C
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134102.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134102.jpgsave_picture_134102.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ CyberLink PhotoDirector Ultra 15.0.11.1123 (x64) Portable by 7997 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134103.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134103.jpgsave_picture_134103.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ MAMIYA: A Shared Illusion of the World's End (2021) [Multi] (7.1.2/dlc) Scene Te
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134104.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134104.jpgsave_picture_134104.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:1377DA2E8E2CF94BD3576887B2758C53AA4F4F59
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134105.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134105.jpgsave_picture_134105.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ magnet:?xt=urn:btih:F893F5F98DF83A3F63D91FEA59AFD85058FB94D3
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134106.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134106.jpgsave_picture_134106.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ magnet:?xt=urn:btih:FED413C03EAAB31B7F802DD39EE7D6D6CF1DC799
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134109.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134109.jpgsave_picture_134109.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ Manjaro Linux 0.8.3 [i686] (Arch с несколькими рабочими ст
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134110.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134110.jpgsave_picture_134110.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ Manjaro Linux 0.8.3 [i686] (Arch с несколькими рабочими ст
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134111.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134111.jpgsave_picture_134111.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ C.W. Stoneking - 2 Albums (2006..2008) [FLAC|Lossless]<Blues, Ragtime, Calypso, 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134112.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134112.jpgsave_picture_134112.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ C.W. Stoneking - 2 Albums (2006..2008) [FLAC|Lossless]<Blues, Ragtime, Calypso, 
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134113.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134113.jpgsave_picture_134113.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ magnet:?xt=urn:btih:9853677212911633D15B116CC299B55312FDB2B4
 >>Интернет-творчество
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134114.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134114.jpgsave_picture_134114.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ magnet:?xt=urn:btih:CCAA13FB9C3CFED735B7B0C74B55CED724D3F81A
 >>Релакс / Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134115.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134115.jpgsave_picture_134115.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Win7codecs 3.9.3 + x64 Components [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134116.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134116.jpgsave_picture_134116.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ RAM Saver Professional 23.12 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134117.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134117.jpgsave_picture_134117.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ GIMP 2.10.36 Portable by PortableApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134119.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134119.jpgsave_picture_134119.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ Magnum - On The 13th Day (2012) [FLAC|Lossless]<Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134120.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134120.jpgsave_picture_134120.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Magnum - On The 13th Day (2012) [FLAC|Lossless]<Hard Rock>
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134121.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134121.jpgsave_picture_134121.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ magnet:?xt=urn:btih:E934731EE1218DE508937537AAA67ADF1F0CBE92
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134122.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134122.jpgsave_picture_134122.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ magnet:?xt=urn:btih:E8F96DAE2A99D8E58721B79911A3276A16F7DBDC
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134124.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134124.jpgsave_picture_134124.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Elmedia Player Pro 8.17 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134125.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134125.jpgsave_picture_134125.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ magnet:?xt=urn:btih:F2860492D149DAAF7D26CD507056BF0236A58BF6
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134126.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134126.jpgsave_picture_134126.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ magnet:?xt=urn:btih:475F52CEB475AF6A36BF0F57B64953687C5401B4
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134127.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134127.jpgsave_picture_134127.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111049.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111049.jpgsave_picture_111049.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:EA5D7348C1020CFDBC0F1E02A7C054CD191FD106
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111050.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111050.jpgsave_picture_111050.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Thirsty Moon - Starchaser (1981) LP [MP3|320 Kbps] <Pop-rock, Krautrock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111051.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111051.jpgsave_picture_111051.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ magnet:?xt=urn:btih:4345386A6CEC14DABB840A4BEA4F432653D3DC21
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111052.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111052.jpgsave_picture_111052.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ Mayinbo - Poetry in Blues (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111053.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111053.jpgsave_picture_111053.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Billy Morrison - The Morrison Project (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111054.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111054.jpgsave_picture_111054.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ magnet:?xt=urn:btih:D30452F6634A304E64A93042C2D9D933385A4F3B
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111055.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111055.jpgsave_picture_111055.jpg" />
 </div>
 
 
@@ -187,7 +187,7 @@ Bad Blues Quartet - White Gloves (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111056.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111056.jpgsave_picture_111056.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ The Cinelli Brothers - Almost Exactly...The Cinelli Brother (2024) [FLAC|Lossles
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111057.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111057.jpgsave_picture_111057.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Lyndsy Says - Lindsy Says (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111058.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111058.jpgsave_picture_111058.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ U.D.O. - Holy (1999) [APE|24/192|image + .cue|Vinyl-Rip] <Heavy Metal>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111059.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111059.jpgsave_picture_111059.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Angela Grey - Prisoner of Love (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111060.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111060.jpgsave_picture_111060.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Ends With A Bullet - The Game (2024) [FLAC|Lossless|WEB-DL|tracks] <Modern Metal
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111061.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111061.jpgsave_picture_111061.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Marcus King - Mood Swings (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111062.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111062.jpgsave_picture_111062.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ magnet:?xt=urn:btih:E878F3248D0F378799A85C2E82D03F284FCDAF69
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111063.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111063.jpgsave_picture_111063.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ magnet:?xt=urn:btih:3449203626283A1B81448722E47B25D930E72577
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111064.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111064.jpgsave_picture_111064.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ magnet:?xt=urn:btih:0F2FFC342A5A84029EF2B36CCDEBC5B04D3FE0FC
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111065.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111065.jpgsave_picture_111065.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Dale Thompson and the Boon Dogs - Unfinished Business (2024) [FLAC 24/48|Lossles
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111066.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111066.jpgsave_picture_111066.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ U.D.O. - Solid (1997) Released, 2011, Night Of The Vinyl Dead Records [FLAC|24/1
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111067.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111067.jpgsave_picture_111067.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Savage Wizdom - Who's Laughing Now (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111068.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111068.jpgsave_picture_111068.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Dominic Schoemaker - See Who I Am (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111069.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111069.jpgsave_picture_111069.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ magnet:?xt=urn:btih:1F35F85B393D8F2514C21A1C9A8723D0B5268A05
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111070.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111070.jpgsave_picture_111070.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ magnet:?xt=urn:btih:05C67992C3B68849CDEC3FBEAAF3D2CA53CF7115
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111071.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111071.jpgsave_picture_111071.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Poisonblack - Studio Albums (6 releases) (2003-2013) hand made [restored, declip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111072.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111072.jpgsave_picture_111072.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ magnet:?xt=urn:btih:4C2594363B9035A13F3A27CFCB0A75CF11EE2FD1
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111073.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111073.jpgsave_picture_111073.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Deviated Instinct - Husk (2018) EP [FLAC|Lossless|WEB-DL|tracks] <Crust Punk, De
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111074.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111074.jpgsave_picture_111074.jpg" />
 </div>
 
 

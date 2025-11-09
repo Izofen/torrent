@@ -6,7 +6,7 @@ Plants vs. Zombies / Растения против Зомби (2009) [Ru] (1.2.0
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45415.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45415.jpgsave_picture_45415.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:F6E0522DA9CB3D1EEEE804C98E1D558DF5C6F28E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45416.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45416.jpgsave_picture_45416.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:941D19B371D79D066F97A5317DA82CBD9588E9D5
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45417.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45417.jpgsave_picture_45417.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:E5699B469BAB4B1BF80DC29A3CF276BFD6BAC1C5
 >>Сериалы DC Comics
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45418.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45418.jpgsave_picture_45418.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:613CC65779D2B1DF5B319B5A8A725659D55CD49D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45419.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45419.jpgsave_picture_45419.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:613CC65779D2B1DF5B319B5A8A725659D55CD49D
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45420.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45420.jpgsave_picture_45420.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ ELDEN RING (2022) [Ru/Multi] (1.13.2/dlc) Scene Rune [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45421.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45421.jpgsave_picture_45421.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:DB98EF0BCD14DBDCBB26EFE3AE663C20D2C2BC90
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45422.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45422.jpgsave_picture_45422.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Chromosome Evil 2 (2024) [Ru/En] (1.77) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45423.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45423.jpgsave_picture_45423.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:45C2B2499FE187D1A440A245C7D615DD37C4EC73
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45424.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45424.jpgsave_picture_45424.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ AC/DC - Stiff Upper Lip Live 2001 DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45425.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45425.jpgsave_picture_45425.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:505B846DFE00C86935F344D0BB4B7E36A2CD66B1
 >>Караоке
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45426.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45426.jpgsave_picture_45426.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:5E28E1FABC34F7AA217AA203AB9388A0710FA907
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45427.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45427.jpgsave_picture_45427.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ magnet:?xt=urn:btih:5E28E1FABC34F7AA217AA203AB9388A0710FA907
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45428.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45428.jpgsave_picture_45428.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Punto Switcher 4.5.0 Build 583 RePack (& Portable) by KpoJIuK [Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45429.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45429.jpgsave_picture_45429.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ magnet:?xt=urn:btih:98F354C8586A2AE3963146D6F7FC49C114150CEC
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45430.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45430.jpgsave_picture_45430.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ magnet:?xt=urn:btih:98F354C8586A2AE3963146D6F7FC49C114150CEC
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45431.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45431.jpgsave_picture_45431.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ magnet:?xt=urn:btih:4982C08A8A4D81319B759FBFCF3037ACEC7023BC
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45432.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45432.jpgsave_picture_45432.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ magnet:?xt=urn:btih:B41A353F0A04E8FD65E869516189B8632EC16759
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45433.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45433.jpgsave_picture_45433.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ AIMP 5.30 Build 2563 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45434.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45434.jpgsave_picture_45434.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ VovSoft 3D Box Maker 1.0 + Portable [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45435.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45435.jpgsave_picture_45435.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ MediaHuman YouTube Downloader 3.9.9.95 (2408) RePack (& Portable) by Dodakaedr [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45436.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45436.jpgsave_picture_45436.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ Ashampoo UnInstaller 15.00.10 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45437.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45437.jpgsave_picture_45437.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ HDCleaner 2.079 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45438.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45438.jpgsave_picture_45438.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Enigma Virtual Box 11.00 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45439.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45439.jpgsave_picture_45439.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ magnet:?xt=urn:btih:66C1BE85F6C5B98E3E7487FE3C4856B6F59161AA
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45440.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45440.jpgsave_picture_45440.jpg" />
 </div>
 
 

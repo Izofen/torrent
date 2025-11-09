@@ -6,7 +6,7 @@
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33193.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33193.jpgsave_picture_33193.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Google назвала принуждение к продаже браузера 
 >>Компьютерные новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33194.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33194.jpgsave_picture_33194.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Nine Sols (2024) [Ru/Multi] (202412161711) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33195.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33195.jpgsave_picture_33195.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:89A77DDEBEA373444E81ECE9F2A5ABF5616DB1FA
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33196.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33196.jpgsave_picture_33196.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:3EDD7BA16DE324F22C63E8AB369B61C7AAA58629
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33197.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33197.jpgsave_picture_33197.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:87B3DD1D2A31EAFB7FB380378B8D21F8E9C5670E
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33198.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33198.jpgsave_picture_33198.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:E15D36C18CE5BFF693AA80A55B8FE1619C3DD7F9
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33199.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33199.jpgsave_picture_33199.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ Blackmagic Design DaVinci Resolve Studio 19.1.2 Build 3 (x64) Portable by 7997 [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33200.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33200.jpgsave_picture_33200.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ Marvel’s Spider-Man: Miles Morales (2022) [Ru/Multi] (3.617.1.0/dlc) Repack se
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33201.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33201.jpgsave_picture_33201.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Generation Zero (2019) [Ru/Multi] (2901094/dlc) Repack Pioneer [Ultimate Bundle]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33202.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33202.jpgsave_picture_33202.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ VideoProc Converter AI 7.9 (x64) RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33203.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33203.jpgsave_picture_33203.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ ARK: Ultimate Mobile Edition 1.0 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33204.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33204.jpgsave_picture_33204.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Alexey Soshin | Kotlin Design Patterns and Best Practices (3rd Edition) (2024) [
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33205.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33205.jpgsave_picture_33205.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ magnet:?xt=urn:btih:B3C7B94629C4E2FB809B631FDB6E3DD71834D9B1
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33206.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33206.jpgsave_picture_33206.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ MInstAll v.23.12.2024 By Andreyonohov (Unpacked) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33207.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33207.jpgsave_picture_33207.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Adobe Photoshop 2025 26.2.0.140 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33208.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33208.jpgsave_picture_33208.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ Max Payne: Anthology / Max Payne: Антология (2001-2012) (1.05/1.01/1.0.
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33209.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33209.jpgsave_picture_33209.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ magnet:?xt=urn:btih:A73B58A17F705844DDC84665E45DFF4C0EABA3C8
 >>Экранки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33210.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33210.jpgsave_picture_33210.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ magnet:?xt=urn:btih:962448EB790031304E4825254A13F29F9552433E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33211.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33211.jpgsave_picture_33211.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ magnet:?xt=urn:btih:B0E576494D324ADA64C3A93C492C6AE871266C35
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33212.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33212.jpgsave_picture_33212.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ magnet:?xt=urn:btih:DFFCBE240D9EE0B917724F5144FBBE1534A1968B
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33213.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33213.jpgsave_picture_33213.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ The Iron Oath (2022) [En] (1.0.021) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33214.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33214.jpgsave_picture_33214.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ magnet:?xt=urn:btih:F36D6975AF2D19AAC149233AB692EABE9237F3DF
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33215.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33215.jpgsave_picture_33215.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ HROT (2021) [Multi] (1.3) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33216.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33216.jpgsave_picture_33216.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ magnet:?xt=urn:btih:5315576BD78F7BD0B28914E5F086E01303C797BD
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33217.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33217.jpgsave_picture_33217.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Kong: Survivor Instinct (2024) [Multi] (1.0.4) Scene Rune
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33218.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33218.jpgsave_picture_33218.jpg" />
 </div>
 
 

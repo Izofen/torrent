@@ -6,7 +6,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63885.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63885.jpgsave_picture_63885.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:F76EC2396E3E5849386175770F8CBD57F3BF194B
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63886.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63886.jpgsave_picture_63886.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ NEMOPHILA 4th Anniversary. -Rizing NEMO- at KOBE KOKUSAI HALL (2023) [H.264/1080
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63887.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63887.jpgsave_picture_63887.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:D664A9F564EF3BF110C01CE40A6466B40CA701D9
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63888.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63888.jpgsave_picture_63888.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ Villages & Dungeons (2025) [Ru/Multi] (10033/dlc) Repack Let'sРlay [Crystal Edi
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63889.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63889.jpgsave_picture_63889.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:DF59411652450BC7090CC7E9C89C8A85460587B1
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63890.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63890.jpgsave_picture_63890.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:AC328F1C1280E157AB86979D077603D946464355
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63891.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63891.jpgsave_picture_63891.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:69A7E2B7DE3F04D8781D4DCDEE56CCA5462FAE63
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63892.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63892.jpgsave_picture_63892.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:AD7C0E94532C508926790B231879E0D361770CFB
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63893.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63893.jpgsave_picture_63893.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:38FDF61F5977EFE636F2216A6A4CD8ACE8AD5382
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63894.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63894.jpgsave_picture_63894.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:F54450299AB67767005CEE75AC1F7014C94833B9
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63895.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63895.jpgsave_picture_63895.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:EFC0B00A4D1FF2FA802BF0877786E442197B7B68
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63896.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63896.jpgsave_picture_63896.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ magnet:?xt=urn:btih:261CF75B785D5E2B7785E001379EACFDD6842698
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63897.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63897.jpgsave_picture_63897.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ magnet:?xt=urn:btih:A1EBE6E3960DB92A0B947F2A9A73015D33305ACB
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63898.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63898.jpgsave_picture_63898.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ magnet:?xt=urn:btih:F51F5375EF1B10751407FF502D1EEB0063B15B79
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63899.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63899.jpgsave_picture_63899.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ AnyBurn 6.6 + Portable [Multi/Ru]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63900.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63900.jpgsave_picture_63900.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ magnet:?xt=urn:btih:54A6EBEE9389F955113B5BC554EA10369AD1EB62
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63901.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63901.jpgsave_picture_63901.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ magnet:?xt=urn:btih:E5712E3DD7B906B4845E3B3B27542D020777B376
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63902.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63902.jpgsave_picture_63902.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ magnet:?xt=urn:btih:26782E5F8AEC8B536D12EB62D1A5DAE0FC53C77C
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63903.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63903.jpgsave_picture_63903.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Halloween Stories 9: The Death Card (2025) [En] (1.0) Unofficial [Collector's Ed
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63904.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63904.jpgsave_picture_63904.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ magnet:?xt=urn:btih:B761EBADF6876A1C9898046998782E86F965E115
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63905.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63905.jpgsave_picture_63905.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ magnet:?xt=urn:btih:CD8159889AAC0B6DFF6FD8C5EB19E092F5973DA8
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63906.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63906.jpgsave_picture_63906.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ magnet:?xt=urn:btih:DB25B8403F584DC3B539E80B20170C6F489DBFDF
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63907.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63907.jpgsave_picture_63907.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ magnet:?xt=urn:btih:85BA3166324542AD8F4DDFF71C5A6D0FAF4A383C
 >>Отечественные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63908.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63908.jpgsave_picture_63908.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ magnet:?xt=urn:btih:47E4DCF653334D9E04B74B12E1D8167C87DE4ACE
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63909.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63909.jpgsave_picture_63909.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Arjen Anthony Lucassen - Songs No One Will Hear (2025) 3 x CD, Deluxe Edition, L
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63910.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63910.jpgsave_picture_63910.jpg" />
 </div>
 
 

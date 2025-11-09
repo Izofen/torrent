@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5343.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5343.jpgsave_picture_5343.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ pdfFactory Pro 9.16 [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5344.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5344.jpgsave_picture_5344.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Helloween - Giants & Monsters (2025) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5345.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5345.jpgsave_picture_5345.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Helloween - Giants & Monsters (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heav
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5346.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5346.jpgsave_picture_5346.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:9709D2419C17F911EB5E9087DFA3979813B68A14
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5347.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5347.jpgsave_picture_5347.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:41D6A1280C83B926EA8A406D62084C69BF606C83
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5348.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5348.jpgsave_picture_5348.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:6AD3113FD12B60094262B6AA6A4403DA105127A6
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5349.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5349.jpgsave_picture_5349.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:CD2B6706E6BFF56E698C6F732303A9ECBF4F5840
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5350.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5350.jpgsave_picture_5350.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:D16C6A1AF79FDE7E6B31836C9D105CE5561650E2
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5351.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5351.jpgsave_picture_5351.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ Mystery Trackers 21: The Shrouded Village (2025) [En] (1.0) Unofficial [Collecto
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5352.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5352.jpgsave_picture_5352.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Belinda Carlisle - Once Upon a Time in California (2025) [FLAC 24/96|Lossless|WE
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5353.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5353.jpgsave_picture_5353.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ magnet:?xt=urn:btih:6AC0A7519A35110605A8299D7B88A51E390C6728
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5354.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5354.jpgsave_picture_5354.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:555D813C0831A6F8DB8DE06549522BF8800D1E3D
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5355.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5355.jpgsave_picture_5355.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ magnet:?xt=urn:btih:B3B4CC4EB3E249C5A7001EAC998530F5E1123762
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5356.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5356.jpgsave_picture_5356.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ magnet:?xt=urn:btih:F780848C574E8A83F79D9ABC9EF9CDE943682AFC
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5357.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5357.jpgsave_picture_5357.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Get To Work (2024) [Multi] (1.1.1.6) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5358.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5358.jpgsave_picture_5358.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ magnet:?xt=urn:btih:61F6D87A750BD1DF171FB8F5B8DA6C1FC1A25F81
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5359.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5359.jpgsave_picture_5359.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ magnet:?xt=urn:btih:1960DB6081D7FEC33FDA6D3DA69265935A929722
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5360.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5360.jpgsave_picture_5360.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ magnet:?xt=urn:btih:6FC20F183006143BDBDFF16D7E890BE62920FF4C
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5361.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5361.jpgsave_picture_5361.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ magnet:?xt=urn:btih:B3EBD131CFB00198133D78FFCB563EE69C411875
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5362.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5362.jpgsave_picture_5362.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ magnet:?xt=urn:btih:78CF19203C18275AE839AED78C4CAD663C192BED
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5363.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5363.jpgsave_picture_5363.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ Fly Corp (2021) [Ru/Multi] (1.8.6/dlc) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5364.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5364.jpgsave_picture_5364.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ Get To Work (2024) [Multi] (1.1.1.6) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5365.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5365.jpgsave_picture_5365.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ magnet:?xt=urn:btih:0971983D78BE3556FABAA8873DD97D378A09370F
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5366.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5366.jpgsave_picture_5366.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ magnet:?xt=urn:btih:68245A1FCD5D7EDE0448C102895FF7CD52CBB4B2
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5367.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5367.jpgsave_picture_5367.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ magnet:?xt=urn:btih:1B305EFC825E4CCDA33F1FC77E43073752AF60A0
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5368.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5368.jpgsave_picture_5368.jpg" />
 </div>
 
 

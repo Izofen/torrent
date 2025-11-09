@@ -6,7 +6,7 @@ Cossacks: Back to War / Казаки. Снова война (2002) [Ru/En] (1.35
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116991.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116991.jpgsave_picture_116991.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:64AF894D82575FC015E3061219401B4A0F787C28
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116992.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116992.jpgsave_picture_116992.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Atrophy - Violent by Nature (1990) Reissue, 2007, Metal Mind Productions [APE|Lo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116993.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116993.jpgsave_picture_116993.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Donald Byrd - A New Perspective (1963) 1999, Blue Note [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116994.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116994.jpgsave_picture_116994.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Atrophy - Socialized Hate (1988) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116995.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116995.jpgsave_picture_116995.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ Atrophy - Chemical Dependency (1987) Demo, Reissue, 2019, VIC Records [FLAC|Loss
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116996.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116996.jpgsave_picture_116996.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Sanz - Let Us Die (2022) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Synth-pop, R
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116997.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116997.jpgsave_picture_116997.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Smooze Pro 2.0.72 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116998.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116998.jpgsave_picture_116998.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ Galahad - The Last Great Adventurer (2022) [FLAC|Lossless|WEB-DL|tracks] <Neo-Pr
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116999.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116999.jpgsave_picture_116999.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Throne Of Thorns - Converging Parallel Worlds (2024) [FLAC|Lossless|WEB-DL|track
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117000.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117000.jpgsave_picture_117000.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ magnet:?xt=urn:btih:A78BA2E42E0CA5322DD05377723044D7ADF42DE3
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117001.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117001.jpgsave_picture_117001.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ i-Ten - Taking a Cold Look (1983) [FLAC|Lossless|WEB-DL|tracks] <AOR>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117002.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117002.jpgsave_picture_117002.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ magnet:?xt=urn:btih:633F7EA9F6C15C25EEC468DBCCD0B04E0291D7B5
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117003.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117003.jpgsave_picture_117003.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Svend Asmussen - Evergreens (1998) EMI Svenska AB [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117004.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117004.jpgsave_picture_117004.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Omni - Collection (2019-2024) Sub Pop Records [FLAC 24/44.1, 24/88.2|Lossless|WE
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117005.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117005.jpgsave_picture_117005.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ A Somerset Parade - Carcosa (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alt.Meta
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117006.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117006.jpgsave_picture_117006.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ VA - Holiday Sweet Relaxing Jazz Chilly Tunes (2024) [FLAC|Lossless|WEB-DL|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117007.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117007.jpgsave_picture_117007.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Gardenian - Studio Albums (3 releases) (1997-2000) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117008.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117008.jpgsave_picture_117008.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Stygian Crown - Funeral For A King (2024) [FLAC|Lossless|WEB-DL|tracks] <Epic Do
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117009.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117009.jpgsave_picture_117009.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ magnet:?xt=urn:btih:CCF69DFA5B02134C2A76682F1ADDD45B0AA81901
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117010.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117010.jpgsave_picture_117010.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Unheilig - Phosphor (2001) [FLAC|24/192|image + .cue|Vinyl-Rip] <Gothic Metal, I
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117011.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117011.jpgsave_picture_117011.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Keven Jordan - No Sign of Rain (1991) [FLAC|Lossless|WEB-DL|tracks] <AOR, Pop Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117012.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117012.jpgsave_picture_117012.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ magnet:?xt=urn:btih:919417321E71E5532E2C2BB27256C263737B9878
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117013.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117013.jpgsave_picture_117013.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Atrophy - Socialized Hate (1988) Remastered, 2007, Displeased Records [FLAC|Loss
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117014.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117014.jpgsave_picture_117014.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ Andrew Hill Trio - Invitation (1974) 1992, SteepleChase [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117015.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117015.jpgsave_picture_117015.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ Oscar Dennard - The Legendary Oscar Dennard (1958) 1989, Somethin' Else [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117016.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117016.jpgsave_picture_117016.jpg" />
 </div>
 
 

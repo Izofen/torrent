@@ -6,7 +6,7 @@ PingPlotter Pro 5.23.3.8770 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202641.jpgsave_picture_202641.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Nik Collection by DxO 5.5.0.0 Portable by conservator [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202642.jpgsave_picture_202642.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ VA - Шансон Зима 2023 [MP3|320 Kbps] <Шансон>
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202643.jpgsave_picture_202643.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:FDF55C3D7653D28EECA533A6283D138103D654FA
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202644.jpgsave_picture_202644.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:DE3E8E67C2AA52ABB5869AA9D832CA334CDBABDE
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202645.jpgsave_picture_202645.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:CFA94466C9A85F98139B4BBDA2F8D193AF51E31F
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202646.jpgsave_picture_202646.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:144AC532D4656E201EF2A94771132F9148581BDC
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202647.jpgsave_picture_202647.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:180FEBE2BF522FCC5C67D1F4F06AFD17C9222C26
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202648.jpgsave_picture_202648.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:B6D58DD46019BF15CE6320F10E8F353DDCBCD640
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202649.jpgsave_picture_202649.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:933B0B3010BF7D06764A2D4B0124A7833FE560DF
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202650.jpgsave_picture_202650.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:80A945E3662316E07A2F33A7FF2FF79B81F0F28E
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202651.jpgsave_picture_202651.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ PotPlayer 230208 (1.7.21878) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202652.jpgsave_picture_202652.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Samsung SSD Magician Tool 7.2.1.980 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202653.jpgsave_picture_202653.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ DxO PureRAW 2.5.0 build 13 RePack by KpoJIuK [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202654.jpgsave_picture_202654.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Total Uninstall 7.3.1 Professional Portable by 7997 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202655.jpgsave_picture_202655.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Demis Roussos - Complete 28 Original Albums (2016) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202656.jpgsave_picture_202656.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ magnet:?xt=urn:btih:33F06B69EA9A59EE855AF6589D81E9B094F3C56F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202657.jpgsave_picture_202657.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ magnet:?xt=urn:btih:7A6AFC490D5B73F489E51B3D1956D833C2EE8B6B
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202658.jpgsave_picture_202658.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ magnet:?xt=urn:btih:77DB379827D6C77AC644345B4BE0C6069A8773C2
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202659.jpgsave_picture_202659.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ Joe Louis Walker - Weight of the World (2023) [MP3|320 Kbps] <Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202660.jpgsave_picture_202660.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ magnet:?xt=urn:btih:D524CA2732E88EDDBB916D10F476AC0B463B6D74
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202661.jpgsave_picture_202661.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ Total Commander 10.52 (14.02.2023) Portable by MiG [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202662.jpgsave_picture_202662.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ uTorrent Pack 1.2.3.65 Repack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202663.jpgsave_picture_202663.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:E9F1A3143F70DB92874D61D54459DA86AC899F3E
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202664.jpgsave_picture_202664.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ magnet:?xt=urn:btih:057C23936AD623739C2D22FDE66173CB89F8ADD8
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202665.jpgsave_picture_202665.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ magnet:?xt=urn:btih:55F876E3EFAF68415EDFB5E2731D2651E5FA4896
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202666.jpgsave_picture_202666.jpg" />
 </div>
 
 

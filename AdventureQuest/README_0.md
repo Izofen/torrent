@@ -6,7 +6,7 @@ Shardlight (2016) [En] (3.4) License GOG [Special Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2898.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2898.jpgsave_picture_2898.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Empyrion - Galactic Survival (2020) [Ru/Multi] (1.13.2 4801/dlc) Repack Pioneer
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3056.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3056.jpgsave_picture_3056.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Labyrinthine (2023) [Ru/Multi] (Build 19705579/dlc) Repack FitGirl [Supporter Ed
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3240.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3240.jpgsave_picture_3240.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Revenge of the Savage Planet (2025) [Ru/Multi] (2025-9-9-106947 Net5/dlc) Repack
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3273.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3273.jpgsave_picture_3273.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ The Knightling (2025) [Ru/Multi] (1.1.0/dlc) Repack Let'sРlay [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3398.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3398.jpgsave_picture_3398.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Deathless Tales of Old Rus / Бессмертный. Сказки Старой �
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3412.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3412.jpgsave_picture_3412.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Kaptain Brawe: A Brawe New World (2011) [Ru/Multi] (3.1.4.33) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3655.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3655.jpgsave_picture_3655.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Grand Theft Auto V Enhanced (2025) [Ru/Multi] (1.0.889.22) Repack Wanterlude
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3829.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3829.jpgsave_picture_3829.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ The Last Ski Trip (2025) [Ru/Multi] (3.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3916.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3916.jpgsave_picture_3916.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ The Last Ski Trip (2025) [Ru/Multi] (3.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3925.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3925.jpgsave_picture_3925.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Dead Take (2025) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3954.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3954.jpgsave_picture_3954.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ STAY (2018) [Ru/Multi] (1.0.3.9) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3955.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3955.jpgsave_picture_3955.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Indiana Jones and the Great Circle (2024) [Ru/Multi] (1.0.9.0/dlc) Repack FitGir
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3958.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3958.jpgsave_picture_3958.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Indiana Jones and the Great Circle (2024) [Ru/Multi] (1.0.9.0/dlc) Repack seleZe
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4347.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4347.jpgsave_picture_4347.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Whisker Wanderlust: The Wondrous Journey (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4404.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4404.jpgsave_picture_4404.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Down in Bermuda (2021) [Ru/Multi] (1.6.3) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4455.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4455.jpgsave_picture_4455.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ The Hundred Line: Last Defense Academy (2025) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4480.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4480.jpgsave_picture_4480.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ The Drifter (2025) [Multi] (1.0.9) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4515.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4515.jpgsave_picture_4515.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Summer Pockets: Reflection Blue (2025) [Multi] (1.2.0.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4532.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4532.jpgsave_picture_4532.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ BROK The InvestiGator (2022) [Ru/Multi] (1.5.3/dlc) Repack FitGirl [Deluxe Editi
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4537.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4537.jpgsave_picture_4537.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Deliver At All Costs (2025) [Ru/Multi] (250331-132937) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4602.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4602.jpgsave_picture_4602.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Gems of War - Puzzle RPG (2014) [Ru/Multi] (8.8.0r75951/dlc) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4620.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4620.jpgsave_picture_4620.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Once Upon A Puppet (2025) [Ru/Multi] (2.15.1.0/dlc) Repack Let'sРlay [Backstage
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4624.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4624.jpgsave_picture_4624.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ A Shelter Full of Cats (2024) [Ru/Multi] (1.0.5c) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4685.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4685.jpgsave_picture_4685.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ REPOSE (2025) [Multi] (1.1.0.4) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4689.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4689.jpgsave_picture_4689.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Dave the Diver (2023) [Ru/Multi] (1.0.5.1702/dlc) Repack Let'sРlay [Deluxe Edit
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4708.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4708.jpgsave_picture_4708.jpg" />
 </div>
 
 

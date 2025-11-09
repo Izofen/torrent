@@ -6,7 +6,7 @@
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184297.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184297.jpgsave_picture_184297.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ The Smashing Pumpkins - CYR (2020) [FLAC|Lossless|WEB-DL|tracks] <Alternative Ro
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184312.jpgsave_picture_184312.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Sodom - Genesis XIX (2020) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal, Speed Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184320.jpgsave_picture_184320.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Mono Inc. - The Book Of Fire (2020) [WavPack|Lossless|image + .cue] <Gothic Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184392.jpgsave_picture_184392.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ L.A. Guns - Renegades (2020) [FLAC|Lossless|image + .cue] <Hard Rock, Glam Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184412.jpgsave_picture_184412.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ ANTIKLAN - Under Wetiko (Hymns from Beneath the Veil) (2022) [FLAC|Lossless|WEB-
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184428.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184428.jpgsave_picture_184428.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Skeletoon - They Never Say Die (2019) Japanese Edition [FLAC|Lossless|image + .c
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184461.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184461.jpgsave_picture_184461.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Soen - Atlantis (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184470.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184470.jpgsave_picture_184470.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Steel Prophet - The God Machine (2019) Japanese Edition [FLAC|Lossless|image + .
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184492.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184492.jpgsave_picture_184492.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Dune Sea - 3 Albums (2019-2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Psychedelic
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184497.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184497.jpgsave_picture_184497.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Them - Return To Hemmersmoor (2020) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184514.jpgsave_picture_184514.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Novembers Doom - Nephilim Grove (2019) [FLAC|Lossless|image + .cue] <Melodic Doo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184523.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184523.jpgsave_picture_184523.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Metalite - A Virtual World (2021) Japanese Edition [FLAC|Lossless|image + .cue] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184528.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184528.jpgsave_picture_184528.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Metalite - Biomechanicals (2019) Japanese Edition [FLAC|Lossless|image + .cue] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184531.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184531.jpgsave_picture_184531.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Chez Kane - Powerzone (2022) Japanese Edition [FLAC|Lossless|image + .cue] <Melo
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184538.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184538.jpgsave_picture_184538.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ The Jokers - Rock And Roll Bones (2022) [FLAC|Lossless|WEB-DL|tracks] <Classic H
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184547.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184547.jpgsave_picture_184547.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Toxik - Dis Morta (2022) [FLAC|Lossless|image + .cue] <Technical Speed Metal, Th
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184549.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184549.jpgsave_picture_184549.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Captain Black Beard - Neon Sunrise (2022) Japanese Edition [FLAC|Lossless|image 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184560.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184560.jpgsave_picture_184560.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Alicate - Butterfly (2022) [FLAC|Lossless|image + .cue] <Melodic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184563.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184563.jpgsave_picture_184563.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Mythosphere - Pathological (2022) [MP3|222-229 kbps VBR] <Psychedelic Prog Metal
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184570.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184570.jpgsave_picture_184570.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:7F024963EF3158F08F7F4E747CFF4705FCC434FF
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184582.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184582.jpgsave_picture_184582.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Kosmik Tomb - Origins of the Horror (2022) [FLAC|Lossless|WEB-DL|tracks] <Death 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184585.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184585.jpgsave_picture_184585.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Avatarium - The Fire I Long For (2019) Japan Edition [FLAC|Lossless|image + .cue
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184592.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184592.jpgsave_picture_184592.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Crow's Flight - The Storm (2019) [FLAC|Lossless|image + .cue] <Heavy Metal, Powe
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184597.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184597.jpgsave_picture_184597.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Cruachan - Nine Years of Blood (2018) [FLAC|Lossless|image + .cue] <Irish Folk, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184600.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184600.jpgsave_picture_184600.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Nekomata - ...And Then, The Abusement Park Left Town (2022) [FLAC|Lossless|WEB-D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184608.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184608.jpgsave_picture_184608.jpg" />
 </div>
 
 

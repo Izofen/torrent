@@ -6,7 +6,7 @@ Afterlove EP (2025) [Multi] (1.0.21) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13478.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13478.jpgsave_picture_13478.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:B8963FDBD29C78CA043B0F1325242CA75AE65CD0
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13479.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13479.jpgsave_picture_13479.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Knights in Tight Spaces (2025) [Ru/Multi] (1.2.19225) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13480.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13480.jpgsave_picture_13480.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Twitch лишил пользователей из России трансляц�
 >>Компьютерные новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13481.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13481.jpgsave_picture_13481.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Twitch лишил пользователей из России трансляц�
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13482.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13482.jpgsave_picture_13482.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:8F97F33DD6482290331D209CE2D52F4B9959AB31
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13483.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13483.jpgsave_picture_13483.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:11032FB437E17D5B7E849D66E1657BBAD6E44A2B
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13484.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13484.jpgsave_picture_13484.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ Shiunji-ke no Kodomo-tachi / The Shiunji Family Children / Дети семьи �
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13485.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13485.jpgsave_picture_13485.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ Breach : 83 (2025) [En] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13486.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13486.jpgsave_picture_13486.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Railway Empire 2 (2023) [Ru/Multi] (1.7.0.64099/dlc) Repack seleZen [Digital Del
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13487.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13487.jpgsave_picture_13487.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ magnet:?xt=urn:btih:BBA660C83F18D0E7AB4C14EBA7596377DD41436E
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13488.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13488.jpgsave_picture_13488.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ magnet:?xt=urn:btih:AC84105E42591E59D7515B5A03C60219294CD5CB
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13489.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13489.jpgsave_picture_13489.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ PotPlayer 250625 (1.7.22569) Stable RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13490.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13490.jpgsave_picture_13490.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ magnet:?xt=urn:btih:224D7E1AE5BAABB1741B794D812443FA0F1F2C52
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13491.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13491.jpgsave_picture_13491.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ magnet:?xt=urn:btih:0FE05A86E8FE4FC46B0CB450F8660AC019005DE2
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13492.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13492.jpgsave_picture_13492.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ Forgotten Mines (2024) [Multi] (1.1.2) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13494.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13494.jpgsave_picture_13494.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ MSI Afterburner 4.6.6.16555 Beta 5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13495.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13495.jpgsave_picture_13495.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ Nazotoki wa Dinner no Ato de | The Dinner Table Detective | Разгадыван
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13496.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13496.jpgsave_picture_13496.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ magnet:?xt=urn:btih:5171B7FE142E4069B7AB531E69BC8542343FFCDB
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13497.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13497.jpgsave_picture_13497.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ magnet:?xt=urn:btih:5171B7FE142E4069B7AB531E69BC8542343FFCDB
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13498.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13498.jpgsave_picture_13498.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ magnet:?xt=urn:btih:9132131403F5C378352553670F74D77FC67DB7CE
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13499.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13499.jpgsave_picture_13499.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ magnet:?xt=urn:btih:0AB0FACB61A26C23C797AF2FB5A4B80DB0F9CB45
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13500.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13500.jpgsave_picture_13500.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ magnet:?xt=urn:btih:785B0344EDADD079A5E48AEE32B2ED2A56B4241A
 >>Другие мультимедийные материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13501.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13501.jpgsave_picture_13501.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ magnet:?xt=urn:btih:AE1845209A0EA7146B89C334794B1256075BC905
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13502.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13502.jpgsave_picture_13502.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ magnet:?xt=urn:btih:47ADC9BC47427BAF4C6C6B0DE1A47CF40961AD26
 >>Ходячие мертвецы / The Walking Dead; Бойтесь ходячих мертвецов / Fear the Walking Dead
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13503.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13503.jpgsave_picture_13503.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ magnet:?xt=urn:btih:2C2CCA927ECBF7F1668EC2C5E6BAD73D95990311
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13504.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13504.jpgsave_picture_13504.jpg" />
 </div>
 
 

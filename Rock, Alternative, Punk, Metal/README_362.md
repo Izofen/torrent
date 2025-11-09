@@ -6,7 +6,7 @@ Coroner - Dissonance Theory (2025) Reissue, Remastered, 2025, Century Media [FLA
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205644.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205644.jpgsave_picture_205644.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Swanslaughter - Make A Wish (2025) [MP3|320 Kbps] <Hardcore, Metalcore, Deathcor
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205673.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205673.jpgsave_picture_205673.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:D3854C0298E0ED20A13AAE508FD0088A91A9757D
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205776.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205776.jpgsave_picture_205776.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:99D448D1EA9C60E3170EA4763574F08D22999491
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205790.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205790.jpgsave_picture_205790.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ VA - Biker Songs That Rock (2023) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205803.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205803.jpgsave_picture_205803.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Underoath - Underoath Voyeurist | Digital Ghost (Live From Digital Ghost) (2023)
 >>Alternative, Punk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205809.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205809.jpgsave_picture_205809.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Cruel Force - Dawn Of The Axe (2023) [FLAC|Lossless|WEB-DL|tracks] <Speed Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205823.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205823.jpgsave_picture_205823.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Aerosmith - Greatest Hits (2023) 3CD Deluxe Edition [FLAC|Lossless|WEB-DL|tracks
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205842.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205842.jpgsave_picture_205842.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Within Temptation - Bleed Out (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205858.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205858.jpgsave_picture_205858.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ V.A. - Abbey Road Reimagined - A Tribute To The Beatles (2023) [FLAC|Lossless|WE
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205868.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205868.jpgsave_picture_205868.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ VA - Abbey Road Reimagined – A Tribute To The Beatles (2023) [MP3|320 Kbps] <R
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205923.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205923.jpgsave_picture_205923.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ The Sixting Music - Rendering Pink Floyds (1974) [MP3|320 Kbps] <Progressive Roc
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205962.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205962.jpgsave_picture_205962.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:DB28449C6AEBE6CC9FB38A834368EC352A7DC496
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206121.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206121.jpgsave_picture_206121.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ Asia - Axis XXX Live San Francisco (2015) 2CD [FLAC|Lossless|image + .cue] <Pop 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206256.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206256.jpgsave_picture_206256.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ Elimination - The Blood of Titans (2011) [FLAC|Lossless|image + .cue] <Power, Th
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206307.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206307.jpgsave_picture_206307.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Denis Pauna - Kill 'Em All ZZ Top Style (2023) [MP3|320 Kbps] <Rock, Blues>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206327.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206327.jpgsave_picture_206327.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Eric Clapton - The Definitive 24 Nights (Live) (2023) 3CD [MP3|320 Kbps] <Rock, 
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206402.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206402.jpgsave_picture_206402.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Eric Clapton - Rarities 2001-2010 (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock, Bl
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206420.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206420.jpgsave_picture_206420.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ Elvis Presley - Aloha from Hawaii via Satellite (1973) 3CD, Deluxe Edition, 2023
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206425.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206425.jpgsave_picture_206425.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ Suzi Quatro & KT Tunstall - Face To Face (2023) [FLAC|Lossless|WEB-DL|tracks] <H
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206477.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206477.jpgsave_picture_206477.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ Peter Gabriel - Come Talk to Me (Live) (2023) [MP3|320 Kbps] <Progressive Rock, 
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206521.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206521.jpgsave_picture_206521.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ Suzi Quatro, KT Tunstall - Face To Face (2023) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206551.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206551.jpgsave_picture_206551.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ David Bowie - Ziggy Stardust and the Spiders from Mars: The Motion Picture Sound
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206602.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206602.jpgsave_picture_206602.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ magnet:?xt=urn:btih:4A43A5F06527D3C5B26E6C71B4296B5833436B43
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206632.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206632.jpgsave_picture_206632.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Emerson, Lake & Palmer - The Return of the Manticore (1993) 4 x CD, Compilation,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206752.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206752.jpgsave_picture_206752.jpg" />
 </div>
 
 
@@ -683,7 +683,7 @@ The Animals - Live In The Sixties (1966-1967) Reissue, 2023, London Calling [MP3
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207147.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207147.jpgsave_picture_207147.jpg" />
 </div>
 
 

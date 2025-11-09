@@ -6,7 +6,7 @@ Negima!? Haru Special!? | Negima!? Magister Negi Magi: Spring | Волшебны
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179203.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179203.jpgsave_picture_179203.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:F71BE5CF8DFD4E913A4C1E10BF99E52DDC2AB09B
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179205.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179205.jpgsave_picture_179205.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:49A9BD031C672F11699E58AB4A53566217B850BD
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179207.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179207.jpgsave_picture_179207.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ R-WipeClean  20.0.2380 Portable by AlexYar [Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179208.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179208.jpgsave_picture_179208.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ W10 Digital Activation v1.4.9 Portable by Ratiborus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179210.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179210.jpgsave_picture_179210.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Auslogics BoostSpeed 13.0.0.2 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179212.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179212.jpgsave_picture_179212.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:B950258E6F42BBE8A11C657F9735CC2E4DD0B9E5
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179214.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179214.jpgsave_picture_179214.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:BD21A2F2EDB735F392E6E1FF2766CBF5DFB97125
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179218.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179218.jpgsave_picture_179218.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:DEFD4A35E4C563D7347A008F680418BC60F96D7A
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_179219.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_179219.jpgsave_picture_179219.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Max Twain | Workshop - Создание серии артов в нейросе�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179221.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179221.jpgsave_picture_179221.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Natsuki Crisis | Кризис Нацуки [1994, OVA, 2 из 2] DVDRip 576p raw
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179222.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179222.jpgsave_picture_179222.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Negima!? Natsu Special!? | Negima!? Magister Negi Magi: Summer | Волшебн�
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179226.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179226.jpgsave_picture_179226.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Glary Utilities Pro 5.198.0.227 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179229.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179229.jpgsave_picture_179229.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Snappy Driver Installer Origin R758 | Драйверпаки 23.09.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179230.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179230.jpgsave_picture_179230.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ WinSCP 5.21.6 Build 12913 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179233.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179233.jpgsave_picture_179233.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Microsoft  Visual C++ Runtimes AIO v0.76.0 x86-x64 Repack by abbodi1406 [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179235.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179235.jpgsave_picture_179235.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ WinSnap 5.3.6 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179237.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179237.jpgsave_picture_179237.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ Microsoft Visual C++ 2015-2022 Redistributable 14.38.33126.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179240.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179240.jpgsave_picture_179240.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ Kiss - Creatures Of The Night (1982) 5xCD, 40th Anniversary, Super Deluxe, 2022,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179241.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179241.jpgsave_picture_179241.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ K-Lite Codec Pack Update 17.3.2 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179243.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179243.jpgsave_picture_179243.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ magnet:?xt=urn:btih:E3BB1D0D94B7EFE8F7E98764075CDD914F30B5ED
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179244.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179244.jpgsave_picture_179244.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ David Bowie - Divine Symmetry (2022) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179247.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179247.jpgsave_picture_179247.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:276551456926D472AB488DB238AB2CC3B956D2A7
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179249.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179249.jpgsave_picture_179249.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ WinSnap 5.3.6 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179250.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179250.jpgsave_picture_179250.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ MediaHuman YouTube Downloader 3.9.9.77 (2811) RePack (& Portable) by Dodakaedr [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179253.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179253.jpgsave_picture_179253.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ magnet:?xt=urn:btih:03A514AAFDEF29FF69FBA977DD087493DF6BF8E5
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179254.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179254.jpgsave_picture_179254.jpg" />
 </div>
 
 

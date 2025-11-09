@@ -6,7 +6,7 @@
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229686.jpgsave_picture_229686.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:47F808A1A2F851EFA0D1473D243E14213ACCFC4F
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229688.jpgsave_picture_229688.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:99121234544AA71A7822A623F274EFB0E916E8E5
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229689.jpgsave_picture_229689.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:22401952ABBFA191B2D54274C37344EA773929B7
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229690.jpgsave_picture_229690.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Adguard Premium 7.2.2990.0 RePack (& Portable) by elchupacabra  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229691.jpgsave_picture_229691.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:E6F4E00CF3CB5A07A97B958F87989FA0CA002FE4
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229692.jpgsave_picture_229692.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:991CA702B8186FD0028BCC26893F50C1A8300EF9
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229693.jpgsave_picture_229693.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ XYLIO Future DJ Pro 1.8.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229694.jpgsave_picture_229694.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:DBF2100D02AB3A8557FBE0B0108E0A70F1D6AF64
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229695.jpgsave_picture_229695.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:B8BAB5AD1C0BB93EAAB151A140556B3423878B77
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229696.jpgsave_picture_229696.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Spy x Family | Семья шпиона [ТВ-1] [2022, TV, 25 из 25] BDRip 108
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229697.jpgsave_picture_229697.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ VideoHive - New Year Countdown 2019 - 23027671 [AEP]
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229698.jpgsave_picture_229698.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ magnet:?xt=urn:btih:425EC8CB74812503947C5DF42CBB5968B127B644
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229699.jpgsave_picture_229699.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ magnet:?xt=urn:btih:8B033B09A807A2C675C68B71B03F2D7040A8E4CC
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229701.jpgsave_picture_229701.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ magnet:?xt=urn:btih:DBF3ECF17316F0E1816126F70FE04B3D74BF5B54
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229702.jpgsave_picture_229702.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ VA - New Music Releases Week 48 of 2018 (2018) [MP3|320 Kbps] <Dance, Pop, Rock>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229703.jpgsave_picture_229703.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ VA - Inner Balance: Chillout Your Soul, Vol. 2 (2017) [AAC|~318 Kbps] <Chillout,
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229704.jpgsave_picture_229704.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ magnet:?xt=urn:btih:E2FBC8FF4A6958F1F10D643011F1F079772F5762
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229706.jpgsave_picture_229706.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ magnet:?xt=urn:btih:22374243FC704B371F32F72931BC1098EB8A7728
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229707.jpgsave_picture_229707.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ magnet:?xt=urn:btih:6119626F6B8DCC927861B6F296C2DB45EC057E03
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229709.jpgsave_picture_229709.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ magnet:?xt=urn:btih:4A54F8207489B3283B7CFFC036486A4ECFA9DEFF
 >>Отечественное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229710.jpgsave_picture_229710.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ Marco Mengoni - Atlantico (2018) [FLAC|Lossless|tracks + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229711.jpgsave_picture_229711.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ magnet:?xt=urn:btih:510CE3FDE9E54CBC26A646AA7C5EC2DDE8D7170D
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229712.jpgsave_picture_229712.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ NCH Prism Plus 6.76 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229713.jpgsave_picture_229713.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ magnet:?xt=urn:btih:34039A38C55148767BD72BE203DC5005D02D91C7
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229714.jpgsave_picture_229714.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ magnet:?xt=urn:btih:B8911D252D3C9E57FAAFF9627E16370E42E7BFF8
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229715.jpgsave_picture_229715.jpg" />
 </div>
 
 

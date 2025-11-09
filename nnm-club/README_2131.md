@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55773.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55773.jpgsave_picture_55773.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Microsoft Windows 10 [10.0.19045.4412], Version 22H2 (Updated May 2024) - Ори
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55774.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55774.jpgsave_picture_55774.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:C11FA5B7E46CB0AB202BFB95F860B4CA39A2B936
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55775.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55775.jpgsave_picture_55775.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:42DF2784E6B39CDD052166E28880F0248746169D
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55776.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55776.jpgsave_picture_55776.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:FA64CDD25546FFF66BFAB6AFBDF5570F1C1DF64D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55777.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55777.jpgsave_picture_55777.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:0CEAE5C1059E992F943929E3A7F6E55B3592A3C4
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55778.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55778.jpgsave_picture_55778.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Microsoft Windows 11 [10.0.26100.560], Version 24H2 Preview - Оригиналь
 >>Разное (RC, Beta и Service Packs)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55779.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55779.jpgsave_picture_55779.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:522642C8890667F6F05591C2336E0EACD7D32B1C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55780.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55780.jpgsave_picture_55780.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:522642C8890667F6F05591C2336E0EACD7D32B1C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55781.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55781.jpgsave_picture_55781.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:8BFBA9F57F6E7ED85D21D56E7166A885DF5631D3
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55782.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55782.jpgsave_picture_55782.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:8BFBA9F57F6E7ED85D21D56E7166A885DF5631D3
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55783.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55783.jpgsave_picture_55783.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:C36664F108533B71BCDB98115E9022C9547DBCEC
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55784.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55784.jpgsave_picture_55784.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:C36664F108533B71BCDB98115E9022C9547DBCEC
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55785.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55785.jpgsave_picture_55785.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Windows Server 2025 LTSC [10.0.26100.1], Version 24H2 Preview - Оригинал
 >>Разное (RC, Beta и Service Packs)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55786.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55786.jpgsave_picture_55786.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ magnet:?xt=urn:btih:E85C0F4B34036C985B34F0AB8763B8C8CC407652
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55787.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55787.jpgsave_picture_55787.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ magnet:?xt=urn:btih:027386712640C0DBA9E16B6E58575BA22A8B06CC
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55788.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55788.jpgsave_picture_55788.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ magnet:?xt=urn:btih:21AAAD33E47FFD995D47787F3A70A26B19988EDE
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55789.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55789.jpgsave_picture_55789.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ magnet:?xt=urn:btih:7AE5B8516B2FB92A0D8CAFCD846BA6D0C9614BC3
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55790.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55790.jpgsave_picture_55790.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ magnet:?xt=urn:btih:FD95CA1BA16493C70F033A9C85EFA9FD9612A33E
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55791.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55791.jpgsave_picture_55791.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ magnet:?xt=urn:btih:E46D043A211F725A77F675C5861EDA5BBD6090C4
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55792.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55792.jpgsave_picture_55792.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ magnet:?xt=urn:btih:78D99955C65C375735AE3524C12A3BA02324E7D9
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55793.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55793.jpgsave_picture_55793.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Windows 11 Pro 23H2 22631.3593 x64 by SanLex [Gaming Edition] [Ru/En] (2024.05.2
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55794.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55794.jpgsave_picture_55794.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ magnet:?xt=urn:btih:8C77115796BE932D8E6075E5DE43ABF05873A497
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55795.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55795.jpgsave_picture_55795.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ magnet:?xt=urn:btih:5E95486AE6E0FEB976B82F1FDC1D07A1841F673F
 >>Секретные материалы / X-Files
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55796.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55796.jpgsave_picture_55796.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ magnet:?xt=urn:btih:AEEFB76C77A7DCDDDCA3AFF65522DC24423EDE5C
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55797.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55797.jpgsave_picture_55797.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ magnet:?xt=urn:btih:F62117270541F4F09D5BA1A59A23F6392862FBD3
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55798.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55798.jpgsave_picture_55798.jpg" />
 </div>
 
 

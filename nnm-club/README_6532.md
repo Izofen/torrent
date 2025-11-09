@@ -6,7 +6,7 @@ Oooku | Ooku: The Inner Chambers | Ооку: Внутренние покои [20
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207951.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207951.jpgsave_picture_207951.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Spells of Gold / Заклятие (2002) [Ru/En] (1.042) Repack/Mod Foxx164
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207954.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207954.jpgsave_picture_207954.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:38ADF72C5A393CF4A0BE05C7F4D53A6905F9DC41
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207955.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207955.jpgsave_picture_207955.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ OGWhatsApp 17.51 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207958.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207958.jpgsave_picture_207958.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:EC0F2F32BF43B6CF0789F98EF2F35455BA9A13D9
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207959.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207959.jpgsave_picture_207959.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:26AE505592C4051578E1814839E04ADD2514E206
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207962.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207962.jpgsave_picture_207962.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:0B23E80D0D1CBA61279D72C0FEDDEF2C317DD279
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207964.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207964.jpgsave_picture_207964.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:B250891AB0F17D1E3D49009F7DAEF4582F73192F
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207966.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207966.jpgsave_picture_207966.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:8E9F75217151DF58A4638F1C8AD0063370DFB5F5
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207969.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207969.jpgsave_picture_207969.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Bazanova Art, Ольга Базанова | Роскошь лета. Пакет 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207974.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207974.jpgsave_picture_207974.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Chief Architect Premier X15 Build 25.3.0.77 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207976.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207976.jpgsave_picture_207976.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:C1FA3E581C1322163EE0758C02EC54030AC34AD4
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207978.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207978.jpgsave_picture_207978.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ magnet:?xt=urn:btih:F21FA2533859E0185F8A3CE4CED2138473A0B015
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207980.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207980.jpgsave_picture_207980.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ magnet:?xt=urn:btih:0E9DD8154C9A3DA62B5C2F43622F4E869BCAD26E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207981.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207981.jpgsave_picture_207981.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Inkscape 1.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207984.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207984.jpgsave_picture_207984.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ magnet:?xt=urn:btih:A5BCD23ACEDC7F4E850A4DA75ABA8A3D58AA3275
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207986.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207986.jpgsave_picture_207986.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Udemy, Richard Chesterwood | Docker - Hands On for Java Developers (2021) WEB-DL
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207989.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207989.jpgsave_picture_207989.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ magnet:?xt=urn:btih:8B72605F7BAC552065BD57A8B2322F77E518E751
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207990.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207990.jpgsave_picture_207990.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Modern Tweaker 1.9 Final Portable [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207993.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207993.jpgsave_picture_207993.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ magnet:?xt=urn:btih:095F779D83AAB7ABB24B4A4D354043D96EA83CB9
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207995.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207995.jpgsave_picture_207995.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Liveclasses, Алексей Шадрин | 12 неизвестных шедев�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207996.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207996.jpgsave_picture_207996.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ Ashampoo WinOptimizer 26.00.12 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207997.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207997.jpgsave_picture_207997.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ Garden Group, Ксения Мезенцева | Ландшафтный диза�
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208000.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208000.jpgsave_picture_208000.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ magnet:?xt=urn:btih:C14BAB2069A0357B2C498B417ABEC91282D8F936
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208002.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208002.jpgsave_picture_208002.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ Always on Edge 8.0.1 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208005.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208005.jpgsave_picture_208005.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Total Commander 11.00 RC3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208006.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208006.jpgsave_picture_208006.jpg" />
 </div>
 
 

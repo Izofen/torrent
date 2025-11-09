@@ -6,7 +6,7 @@
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19956.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19956.jpgsave_picture_19956.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:172745A3E0FCB622A669C00E2705F3C4BB44D2AE
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19957.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19957.jpgsave_picture_19957.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Artstation Learning, Enrico Tammekand | Creating a Subsurface Scatter Material i
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19958.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19958.jpgsave_picture_19958.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:56C2D32DA778EA35388B51E7CCE86DB10A4F1DD4
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19959.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19959.jpgsave_picture_19959.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ TweakNow WinSecret Plus! 6.6.3 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19960.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19960.jpgsave_picture_19960.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:B6201120BAB02ECA67CFA8E26A19741B27939774
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19961.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19961.jpgsave_picture_19961.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ RadioMaximus 2.33.00 RePack (& Portable) by elchupacabra (28.04.2025) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19962.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19962.jpgsave_picture_19962.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ ApowerREC 1.7.6.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19963.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19963.jpgsave_picture_19963.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ VA - Music News For Forum vol.079 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19964.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19964.jpgsave_picture_19964.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:38A76FB1F1B7C9808CC32514DE594EEB5376D57E
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19965.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19965.jpgsave_picture_19965.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:DCC2E2C33C814CF5D2A9E14B19C1F122A8CA819B
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19966.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19966.jpgsave_picture_19966.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:782473020B5BAB34F68FE6D2FA6FE8AA3E49FA9E
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19967.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19967.jpgsave_picture_19967.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ One Read / Все Документы Читатель - Офис v1.2.3.46 Mod b
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19968.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19968.jpgsave_picture_19968.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ PDF24 Creator 11.25.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19969.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19969.jpgsave_picture_19969.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ WinTools.net 25.5.1 Classic / Professional / Premium RePack (& Portable) by Doda
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19970.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19970.jpgsave_picture_19970.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ AIMP 5.40 Build 2675 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19971.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19971.jpgsave_picture_19971.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ magnet:?xt=urn:btih:723F5A82F0FDA30BE5610A074D79D825270E94EF
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19972.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19972.jpgsave_picture_19972.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ magnet:?xt=urn:btih:6400FADCD4650B7967D15C19F9C9AC069A435BCE
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19973.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19973.jpgsave_picture_19973.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ FATAL FURY: City of the Wolves (2025) [Ru/Multi] (1.1.2-72904/dlc) Repack Wanter
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19974.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19974.jpgsave_picture_19974.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ eM Client 10.3.1720.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19975.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19975.jpgsave_picture_19975.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ DP Animation Maker 3.5.38 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19976.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19976.jpgsave_picture_19976.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ magnet:?xt=urn:btih:6B4C2B1040C7A8C56F687573C633D15938AB50A7
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19977.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19977.jpgsave_picture_19977.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ magnet:?xt=urn:btih:AB5B6E59591D5C0EFA4E5D0EE3AA425EE7F9B565
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19978.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19978.jpgsave_picture_19978.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ magnet:?xt=urn:btih:ED1FEA48E0084E5DB27A3978F0BF2AF9BB942588
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19979.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19979.jpgsave_picture_19979.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Truecaller: AI Call Blocker / Oпределитель номера v15.9.200 Gol
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19980.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19980.jpgsave_picture_19980.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ magnet:?xt=urn:btih:454B5674E32E521C0C36C15935538E3A5A878EE0
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19981.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19981.jpgsave_picture_19981.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Saint Deamon - League of the Serpent (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147728.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147728.jpgsave_picture_147728.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:B2123614A37A1DB4ACA156505EDC98A0616CDF8D
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147729.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147729.jpgsave_picture_147729.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:C07B884308A5181182FEBDC6E07514A43B0B9245
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147730.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147730.jpgsave_picture_147730.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:C089AA394923FD7AD5975E7606920FB0AF901C5F
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147731.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147731.jpgsave_picture_147731.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:D03EB5CCEDD929C67E7830C0787C5DF5232EDD45
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147732.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147732.jpgsave_picture_147732.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Half-Life 2: The Orange Box (2007) [Ru] (1.0) Repack R.G. ReCoding
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147733.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147733.jpgsave_picture_147733.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ Cowboys & Frenchmen - Bluer Than You Think (2018) Outside in Music [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147734.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147734.jpgsave_picture_147734.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ Johan Kihlberg's Impera - Spirit Of Alchemy (2021) Japanese Edition [FLAC|Lossle
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147735.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147735.jpgsave_picture_147735.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ magnet:?xt=urn:btih:209970410A42D44F2037D0ED22F8C8D002BEEC1F
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147737.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147737.jpgsave_picture_147737.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ magnet:?xt=urn:btih:5C8C82BCEC0B349C50168D3802A1C3389AFEA556
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147739.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147739.jpgsave_picture_147739.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ Ummy Video Downloader 1.7.2.4 portable by DRON [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147740.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147740.jpgsave_picture_147740.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ magnet:?xt=urn:btih:B78C913600C9B08DA61AC58963C1A1FFCE225075
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147741.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147741.jpgsave_picture_147741.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ magnet:?xt=urn:btih:22BEDAD9AF20BB1B8348D74487EB1F1ECB6C7255
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147742.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147742.jpgsave_picture_147742.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ Embryo - Embryo (2015) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147743.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147743.jpgsave_picture_147743.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ Avkeys 1.3 [Русский, английский ]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147744.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147744.jpgsave_picture_147744.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ Avkeys - данное приложение служит для сброса пр
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147745.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147745.jpgsave_picture_147745.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Udemy, Clyde Matthew | Секреты веб-разработки 2020 - CRP, HT
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147746.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147746.jpgsave_picture_147746.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Cannibal Corpse - Chaos Horrific (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Dea
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147747.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147747.jpgsave_picture_147747.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ Woodtekr - Best In Me EP (2015) [MP3|320 кб/с] <Drum & Bass>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147748.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147748.jpgsave_picture_147748.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ VA - Sound Check No. 99 (2009) [FLAC|Lossless|tracks + .cue] <Punk, Pop Rock, He
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147749.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147749.jpgsave_picture_147749.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Selection Project / Отборочный проект [2021, TV, 13] WEBRip 720p
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147750.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147750.jpgsave_picture_147750.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Windows 10 PRO VL 1909 x64 Rus by OneSmiLe [18363.535] (24.12.2019)
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147751.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147751.jpgsave_picture_147751.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Light Alloy 4.9.0 Build 2318 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147752.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147752.jpgsave_picture_147752.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ JixiPix Rip Studio Pro 1.1.18 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147753.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147753.jpgsave_picture_147753.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ magnet:?xt=urn:btih:980B10016E0ED40972636626BA7F2EFB90D02475
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147755.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147755.jpgsave_picture_147755.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ magnet:?xt=urn:btih:6FDCF2ABD3F84E21399069315F8DC28CECF77A57
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147756.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147756.jpgsave_picture_147756.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Sumac - The Healer (2024) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Sludge, Pos
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107435.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107435.jpgsave_picture_107435.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Red Norvo And His Orchestra - 1936 - 1937 (2000) Classics [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107436.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107436.jpgsave_picture_107436.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:B56C868BCDECB0FC525ADF54FBFA204256CEFCA3
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107437.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107437.jpgsave_picture_107437.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:663DA9E90960D6A1FB8BCB9C3BBF6429F550EEE7
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107438.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107438.jpgsave_picture_107438.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:644DC045FFFB7A4E0C3EBA7ACBCB9280CD477323
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107439.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107439.jpgsave_picture_107439.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Zampolit | Рождение империи (Книга 2).  Полудержав
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107440.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107440.jpgsave_picture_107440.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ magnet:?xt=urn:btih:D77B0CE0D923583E4E7EA7982BD0503322AFC8DB
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107441.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107441.jpgsave_picture_107441.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ magnet:?xt=urn:btih:611678DF81C9C4089CB6F7D548DE5CC61B45011D
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107442.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107442.jpgsave_picture_107442.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ magnet:?xt=urn:btih:7DD7FED2B925C17DC97943CD020FFD9EE4EA8341
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107443.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107443.jpgsave_picture_107443.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ magnet:?xt=urn:btih:53000697912134763F5131D98163F5B9C71A91E8
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107444.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107444.jpgsave_picture_107444.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ Firefox Browser 127.0.2 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107445.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107445.jpgsave_picture_107445.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ Glenn Marais & The Mojo Train - Red, Hot And Blue (2024) [MP3|320 Kbps] <Blues, 
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107446.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107446.jpgsave_picture_107446.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ magnet:?xt=urn:btih:F888C9B6AC97AA51F2438B2218F04DE7D3827702
 >>Футбол. Чемпионаты Европы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107447.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107447.jpgsave_picture_107447.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ magnet:?xt=urn:btih:76E898EB5B5D6839ED61C0C05B3A7EB953E691C8
 >>Футбол. Чемпионаты Европы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107448.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107448.jpgsave_picture_107448.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ magnet:?xt=urn:btih:5F0AFC34AB2C15FDBDFCE68070FC0AFCAB6B9A7C
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107449.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107449.jpgsave_picture_107449.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Terence Fixmer - The Paradox In Me (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <i
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107450.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107450.jpgsave_picture_107450.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ VA - DJ Hits Vol. 110 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Euro
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107451.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107451.jpgsave_picture_107451.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Motor Gypsy - Motor Gypsy II (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107452.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107452.jpgsave_picture_107452.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ MaxX & Love - These Blues Might Get You Too (2024) [FLAC 24/44.1|Lossless|WEB-DL
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107453.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107453.jpgsave_picture_107453.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ John Vlasic - After the Sunset (2024) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <Har
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107454.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107454.jpgsave_picture_107454.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Lester Young With Count Basie - Classic Columbia, Okeh And Vocalion (1936 - 1940
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107455.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107455.jpgsave_picture_107455.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Bottenhavet - Ljud i Tysta Rum (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107456.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107456.jpgsave_picture_107456.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Mass Infection - Shadows Became Flesh (2018) [FLAC|Lossless|image + .cue] <Bruta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107457.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107457.jpgsave_picture_107457.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Mordaza - El orden del caos (2020) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107458.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107458.jpgsave_picture_107458.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Leonardo979 - Overdrive Motel (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107459.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107459.jpgsave_picture_107459.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Helen Humes - 1948 - 1950 (2003) Classics [FLAC|Lossless|tracks + .cue] <Vocal J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107460.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107460.jpgsave_picture_107460.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229116.jpgsave_picture_229116.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Zardonic - Superstars (2023) [FLAC|24/48|tracks|WEB-DL] <Industrial Rock, Drum &
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_229117.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_229117.jpgsave_picture_229117.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Active@ File Recovery 18.0.6 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229118.jpgsave_picture_229118.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ SpyHunter 4.20.9.4533 RePack (& Portable) by D!akov (12.12.2015) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229119.jpgsave_picture_229119.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Nevercenter CameraBag Pro 2021.4.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229121.jpgsave_picture_229121.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Pixelmator Pro 3.3.11 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_229122.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_229122.jpgsave_picture_229122.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ Polar Moon - As Above, So Below (2020) Past Inside The Present [FLAC 2.0|48/24|t
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229123.jpgsave_picture_229123.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ Torian - God Of Storms (2018) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229124.jpgsave_picture_229124.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ magnet:?xt=urn:btih:368071EB30A3A934A12F8AABDA4C7E7F066CFAF1
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229125.jpgsave_picture_229125.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ magnet:?xt=urn:btih:890976D19DBC21EACD071459624AB4CCEFE89AA4
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229126.jpgsave_picture_229126.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ Acronis Universal Restore 2016 11.5 Build 40010 [Ru/En]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229127.jpgsave_picture_229127.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ magnet:?xt=urn:btih:1EFBBA1D5869EFD3BFF09250DDB807F7E5EFDFEC
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229129.jpgsave_picture_229129.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ VA - Armin van Buuren - A State Of Trance 1131 (2023) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_229130.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_229130.jpgsave_picture_229130.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ magnet:?xt=urn:btih:5D65529CD48572141CCB33E53B7027A6E1CD7466
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229131.jpgsave_picture_229131.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Devouror - Diabolos Brigade (2022) [FLAC|Lossless|WEB-DL|tracks] <Death, Black M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229132.jpgsave_picture_229132.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ magnet:?xt=urn:btih:9BAAC5DBE804D34536A26C481E870FB103100A2C
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229133.jpgsave_picture_229133.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ magnet:?xt=urn:btih:DD8A05B2EEB04FAFA4F8CD994E00F85CDDE62A3A
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229135.jpgsave_picture_229135.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ magnet:?xt=urn:btih:F4BAFB4020D5D1E6632739DC2B64C629144EAD05
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229136.jpgsave_picture_229136.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Battle of the Gods - Последняя Песнь Аспида (2023) [FLAC|24/
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_229138.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_229138.jpgsave_picture_229138.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Opera GX 81.0.4196.61 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229139.jpgsave_picture_229139.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Decharot - Vemana (2022) [FLAC|Lossless|WEB-DL|tracks] <Death, Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229140.jpgsave_picture_229140.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ BurnAware Professional 13.9 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229141.jpgsave_picture_229141.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Qulonium - Hexia (2023) [FLAC|Lossless|WEB-DL|tracks] <Dark Electro, EBM, Indust
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_229146.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_229146.jpgsave_picture_229146.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Desires Dawn - Один (2022) [MP3|320 Kbps] <Metalcore, Post Hardcore>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229147.jpgsave_picture_229147.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ magnet:?xt=urn:btih:8FB4D10603925E7C36F86AA35320D696EA49C604
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229148.jpgsave_picture_229148.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ VA - Grand Disco Mixer (2020) [MP3|320 Kbps] <Disco, Dance, Remix, Nu Disco>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229149.jpgsave_picture_229149.jpg" />
 </div>
 
 

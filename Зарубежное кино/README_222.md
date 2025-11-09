@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83580.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83580.jpgsave_picture_83580.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83587.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83587.jpgsave_picture_83587.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83666.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83666.jpgsave_picture_83666.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:3D83F658DB73ADF17854FE76AAF4AAF92EC55927
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83720.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83720.jpgsave_picture_83720.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Q: Загадка женщины / Q (2011) DVDRip
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83727.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83727.jpgsave_picture_83727.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:EE49D8AEC80C59DCBDAB3EAAD37B190FAA6B34AA
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83731.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83731.jpgsave_picture_83731.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:37494C5EFD908AA4A6EBECAE645B257B37F2A312
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83739.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83739.jpgsave_picture_83739.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:BFF2AD2C9973A8AC60BF053A23F17B1EADED326F
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83743.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83743.jpgsave_picture_83743.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:BFF2AD2C9973A8AC60BF053A23F17B1EADED326F
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83751.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83751.jpgsave_picture_83751.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Q: Загадка женщины / Q (2011) DVD9
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83755.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83755.jpgsave_picture_83755.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Q: Загадка женщины / Q (2011) [H.264] DVDRip
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83762.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83762.jpgsave_picture_83762.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ magnet:?xt=urn:btih:6519B90658DF440D12E39035BFFDB9BB35330E68
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83765.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83765.jpgsave_picture_83765.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ magnet:?xt=urn:btih:6519B90658DF440D12E39035BFFDB9BB35330E68
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83767.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83767.jpgsave_picture_83767.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ magnet:?xt=urn:btih:6519B90658DF440D12E39035BFFDB9BB35330E68
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83769.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83769.jpgsave_picture_83769.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ magnet:?xt=urn:btih:CE806D44E5203EA05E009652BC7EEE44A9C2EF35
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83770.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83770.jpgsave_picture_83770.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ magnet:?xt=urn:btih:E2FEE06A0FF31C780F4F31261449A6E3187F93BF
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83778.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83778.jpgsave_picture_83778.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ magnet:?xt=urn:btih:E2FEE06A0FF31C780F4F31261449A6E3187F93BF
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83780.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83780.jpgsave_picture_83780.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ magnet:?xt=urn:btih:1848BD702C0A75D34E7E21F45EE15BC17DCC135A
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83864.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83864.jpgsave_picture_83864.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ magnet:?xt=urn:btih:E6C002862B90A3D165D5BDB88ABCB20D12DF17DC
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83908.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83908.jpgsave_picture_83908.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ magnet:?xt=urn:btih:281FC1C6841BE383A9E4100FA5DFA1E641FD665A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83926.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83926.jpgsave_picture_83926.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ magnet:?xt=urn:btih:281FC1C6841BE383A9E4100FA5DFA1E641FD665A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83936.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83936.jpgsave_picture_83936.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ magnet:?xt=urn:btih:281FC1C6841BE383A9E4100FA5DFA1E641FD665A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83945.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83945.jpgsave_picture_83945.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ magnet:?xt=urn:btih:281FC1C6841BE383A9E4100FA5DFA1E641FD665A
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83946.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83946.jpgsave_picture_83946.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ magnet:?xt=urn:btih:7E7A6AB1FF51DC88436C6957AE0BA2677478C257
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83955.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83955.jpgsave_picture_83955.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ magnet:?xt=urn:btih:E295555D0D127D72DD9AC77AE3FB004462D918A9
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83962.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83962.jpgsave_picture_83962.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ magnet:?xt=urn:btih:FC4B6D24B3237FD0D89B3E06A5BE8C3C11772CD3
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83971.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83971.jpgsave_picture_83971.jpg" />
 </div>
 
 

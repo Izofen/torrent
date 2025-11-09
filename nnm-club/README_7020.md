@@ -6,7 +6,7 @@ iCollections 6 v6.8.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240683.jpgsave_picture_240683.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Marcus Malone and the Motor City Hustlers - Interstate 75 (2023) [FLAC|Lossless|
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240684.jpgsave_picture_240684.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:D29B45E3A673DC96E4F69FBC8383EE12E92922F6
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240685.jpgsave_picture_240685.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Microsoft Windows 10.0.19042.1645, Version 20H2 (Updated April 2022) - Ориг�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240686.jpgsave_picture_240686.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Damn Fine Coffee - For Richmond or Poorer (2020) [MP3|320 Kbps] <Progressive Roc
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240687.jpgsave_picture_240687.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ Black Mask - Queen of the Beasts (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240688.jpgsave_picture_240688.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Joe Bonamassa - Tales Of Time (2023) Live [FLAC|Lossless|WEB-DL|tracks] <Blues R
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240689.jpgsave_picture_240689.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Chris Kramer feat Jens Filser - Roots Music (2023) [FLAC|Lossless|WEB-DL|tracks]
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240690.jpgsave_picture_240690.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ PDF24 Creator 11.11.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240691.jpgsave_picture_240691.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Outline 3.2103.4 [En/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240692.jpgsave_picture_240692.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Microsoft Windows 11 [10.0.22000.613], Version 21H2 (Updated April 2022) - Ор�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240693.jpgsave_picture_240693.jpg" />
 </div>
 
 
@@ -290,7 +290,7 @@ magnet:?xt=urn:btih:05CEFBFA8F664BA69BB89690A730DE711BF4B7B5
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240694.jpgsave_picture_240694.jpg" />
 </div>
 
 
@@ -314,7 +314,7 @@ Nuevo Orden - Rehenes del Tiempo (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240695.jpgsave_picture_240695.jpg" />
 </div>
 
 
@@ -341,7 +341,7 @@ Nest of Plagues - To Kill A God (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternativ
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240696.jpgsave_picture_240696.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ magnet:?xt=urn:btih:D5E5AD50AE7C22FF4B7E7DA9AAC52527845514E8
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240697.jpgsave_picture_240697.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ Big Matt Wallace - Stereo Stereo Stereo (2023) [FLAC|Lossless|WEB-DL|tracks] <Bl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240698.jpgsave_picture_240698.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ Kansas City 5, 6 & 7 - 1938 - 1944 (1996) Classics [FLAC|Lossless|image + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240699.jpgsave_picture_240699.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ VA - 00's Super Hits (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240700.jpgsave_picture_240700.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Tony Coe & Roger Kellaway - British-American Blue (1978) 2000, Between the Lines
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240701.jpgsave_picture_240701.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ magnet:?xt=urn:btih:0F3716AD1216B0269789ED8B93267E01B95DADF6
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240702.jpgsave_picture_240702.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ magnet:?xt=urn:btih:7ABEFB39F2931E2D2466F12A913CCD03C2282681
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240703.jpgsave_picture_240703.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ Saviour - Shine & Fade (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Progre
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240704.jpgsave_picture_240704.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ RapidWeaver 8 v8.8.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240705.jpgsave_picture_240705.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ magnet:?xt=urn:btih:0D60A38D2A432C0E5500AD5AE232987BE2BF35D3
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240706.jpgsave_picture_240706.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ magnet:?xt=urn:btih:A8487943FED3A3DEA42FE4F11286C44767125164
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240707.jpgsave_picture_240707.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ Overkill - Scorched (2023) [MP3|320 Kbps] <Thrash-metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240708.jpgsave_picture_240708.jpg" />
 </div>
 
 

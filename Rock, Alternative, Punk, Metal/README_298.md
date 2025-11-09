@@ -6,7 +6,7 @@ Markus Venehsalo & Mavon Safia - Introlation (2023) [FLAC|Lossless|WEB-DL|tracks
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176173.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176173.jpgsave_picture_176173.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Helvegen - Следуй за мной (2022) [FLAC|Lossless|WEB-DL|tracks] <Folk
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176175.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176175.jpgsave_picture_176175.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Eradikated - Descendants (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176177.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176177.jpgsave_picture_176177.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Delight - Breaking Ground (2007) [FLAC|Lossless|image + .cue] <Alternative Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176179.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176179.jpgsave_picture_176179.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ About Us - About Us (2022) Japanese Edition [FLAC|Lossless|image + .cue] <Melodi
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176180.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176180.jpgsave_picture_176180.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Delight - Eternity (2002) [FLAC|Lossless|image + .cue] <Gothic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176183.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176183.jpgsave_picture_176183.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Delight - The Fading Tale (2001) [FLAC|Lossless|image + .cue] <Gothic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176186.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176186.jpgsave_picture_176186.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Bad As - Fight the Demons (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard 'n' Heavy, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176189.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176189.jpgsave_picture_176189.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Korella - Начало (2022) [FLAC|Lossless|WEB-DL|tracks] <Modern Metal, Melod
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176190.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176190.jpgsave_picture_176190.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Mercy Shot - Brace for Impact! (2022) [FLAC 2.0|48/24|tracks|WEB-DL] <Heavy Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176194.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176194.jpgsave_picture_176194.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Nitrate - Real World (2018) Reissue, 2021, MR Records Production [FLAC|Lossless|
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176198.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176198.jpgsave_picture_176198.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Behemoth - Opvs Contra Natvram (2022) 2xCD, Japanese Edition [FLAC|Lossless|imag
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176206.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176206.jpgsave_picture_176206.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:8C5938EF5CC7B0A511611D62D4B53AAFE6D6E61E
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176209.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176209.jpgsave_picture_176209.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Diablo - When All The Rivers Are Silent (2022) [FLAC|Lossless|image + .cue] <Mel
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176227.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176227.jpgsave_picture_176227.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Richard Marx - Rush Street (1991) [OGG Vorbis|480 Kbps] <Rock, Soft Rock, Pop>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176231.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176231.jpgsave_picture_176231.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Thundermother - Black And Gold (2022) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176236.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176236.jpgsave_picture_176236.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Simulation: On! - 2 Albums (2022) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176245.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176245.jpgsave_picture_176245.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ magnet:?xt=urn:btih:15378211AF3CA241D16CF814038BEF972926DD62
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176247.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176247.jpgsave_picture_176247.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:24D5C3CD875FD3E442E77B60094B6A2480D48873
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176251.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176251.jpgsave_picture_176251.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:3C7629CAAE6D16393F75A3AE011F24F9A202D492
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176256.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176256.jpgsave_picture_176256.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Devils Paradise - Post Mortem (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176264.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176264.jpgsave_picture_176264.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ That Joe Payne - Ding Dong (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176267.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176267.jpgsave_picture_176267.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Kevin DePetrillo - Magic Storm (2022) [FLAC|Lossless|WEB-DL|tracks] <Modern Hard
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176270.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176270.jpgsave_picture_176270.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Meteora - …of Shades and Colours (2022) [FLAC|Lossless|WEB-DL|tracks] <Symphon
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176273.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176273.jpgsave_picture_176273.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Threshold - Dividing Lines (2022) [FLAC|Lossless|image + .cue] <Progressive Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176276.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176276.jpgsave_picture_176276.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Softline - Маяки (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal, M
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176280.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176280.jpgsave_picture_176280.jpg" />
 </div>
 
 

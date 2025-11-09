@@ -6,7 +6,7 @@ VA - Fokuz Recap 2018 (2018) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238297.jpgsave_picture_238297.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Cathode Ray Tube - Anabasis (2021) M-Tronic [FLAC|Lossless|WEB-DL|tracks] <IDM>
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238313.jpgsave_picture_238313.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - Deep Ibiza Opening Party (2023) [MP3|320 Kbps] <House, Deep House, Dance, C
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238363.jpgsave_picture_238363.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - Best Vocal Tracks Hype SFR (2023) [MP3|320 Kbps] <Trance, Progressive, Elec
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238388.jpgsave_picture_238388.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ VA - Armin van Buuren - A State Of Trance 1123 (2023) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238404.jpgsave_picture_238404.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Biodub - Discography 21 Releases (2008-2021) Ki Records, Tiefenrausch [FLAC|Loss
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238747.jpgsave_picture_238747.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ VA - Beach Vibes (2023) [MP3|320 Kbps] <House, Deep House, Dance, Club>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238766.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238766.jpgsave_picture_238766.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Rafael Osmo - Allure (2021) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238791.jpgsave_picture_238791.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ IzangoMa - Ngo Ma (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electronic>
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238907.jpgsave_picture_238907.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Menschdefekt - Empty World (2020) [FLAC|Lossless|image + .cue] <EBM, Industrial>
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238987.jpgsave_picture_238987.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ VA - Armin van Buuren - A State Of Trance 1124 (2023) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239017.jpgsave_picture_239017.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:707D0012EEAF28CF4C03A9664BE251385EF04208
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239057.jpgsave_picture_239057.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Fridge - Happiness (Anniversary Edition) (2023) [FLAC 24/44.1|Lossless|WEB-DL|tr
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239313.jpgsave_picture_239313.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Lostly - Fav Tracks Mix (Mixed And Comliped By Jerbi) (2023) WebDLRip [MP3|320kb
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239358.jpgsave_picture_239358.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ VA - Top 8 May 2023 Emotional And Uplifting Trance (2023) [MP3|320 Kbps] <Trance
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239373.jpgsave_picture_239373.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Speakers Corner Quartet - Further Out Than The Edge (2023) [FLAC 24/44.1|Lossles
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_239410.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_239410.jpgsave_picture_239410.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Public Domain Resource - AntiGravity (2018) [FLAC|Lossless|image + .cue] <Synth-
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239569.jpgsave_picture_239569.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ William Control - Sex Cult (2023) [MP3|320 Kbps] <Synthpop>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239628.jpgsave_picture_239628.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ VA - Hypnotised: A Journey Through British Trance Music [1993 - 2002] (2023) [MP
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239642.jpgsave_picture_239642.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ VA - Levitated - Trance Essentials Vol. 2 (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239693.jpgsave_picture_239693.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ VA - Silent Shore Trance - Essential Classics Vol. 2 (2023) [MP3|320 Kbps] <Tran
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239709.jpgsave_picture_239709.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Cybermode Beats - 3 Albums (2023) [MP3|320 Kbps] <Cyberpunk, Dark Electro, Dark 
 >>Industrial, EBM, Dark Electro
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239759.jpgsave_picture_239759.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Biodub - Minutenschlaf EP (2012) Tiefenrausch [FLAC|Lossless|WEB-DL|tracks] <Dub
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239821.jpgsave_picture_239821.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ Röyksopp (Royksopp) - Profound Mysteries II (2022) [FLAC|Lossless|tracks + .cue
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239849.jpgsave_picture_239849.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ Blush Response - Neuroscape (2023) [MP3|320 Kbps] <Industrial, Techno>
 >>Industrial, EBM, Dark Electro
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239882.jpgsave_picture_239882.jpg" />
 </div>
 
 
@@ -677,7 +677,7 @@ Space - Deeper Zone (1980) 1996, PolyGram [FLAC|Lossless|image + .cue] <Electro,
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239967.jpgsave_picture_239967.jpg" />
 </div>
 
 

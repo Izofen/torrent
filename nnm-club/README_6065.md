@@ -6,7 +6,7 @@
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191033.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191033.jpgsave_picture_191033.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ VA - Music News vol.226 (2022) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_191034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191034.jpgsave_picture_191034.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:877D58B35CEC6DCDD8DF3340B069FA9D0498453A
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_191035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191035.jpgsave_picture_191035.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Optimage 3.5.1 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_191036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191036.jpgsave_picture_191036.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:0BB858AA9EE4A581035F648756C9703185322C00
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191037.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191037.jpgsave_picture_191037.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Telegram Desktop 4.3.0 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_191038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191038.jpgsave_picture_191038.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ magnet:?xt=urn:btih:4F8C39DBEA79FA3A3B215D5A7F008D39BEE9DFE4
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191039.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191039.jpgsave_picture_191039.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ AnyDesk 7.1.16 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191040.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191040.jpgsave_picture_191040.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:5A0AD9BE64A828C4198C0BADFF5A714AD56E172F
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_191041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191041.jpgsave_picture_191041.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:CFF876D168FEF7F20FEB4F10C4E5A0C233D60299
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_191042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191042.jpgsave_picture_191042.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Isonzo (2022) [Ru/Multi] (1.0) Scene Tenoke
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191043.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191043.jpgsave_picture_191043.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ magnet:?xt=urn:btih:824D0CD61C8C906B168A51CA1F77F377ED05E04E
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191044.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191044.jpgsave_picture_191044.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ magnet:?xt=urn:btih:3ECED3C048A76125FA40A9B76D73C099882F5BFA
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_191045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191045.jpgsave_picture_191045.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ VA - В машине с музыкой Vol.316 (2022) MP3 [320 Kbps] <Pop, Dance
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_191046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191046.jpgsave_picture_191046.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ magnet:?xt=urn:btih:94B623423179FD0EAC43F1F793D0476B5A083112
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191047.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191047.jpgsave_picture_191047.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ James Last - Ocean Drive (Easy Living) (2001) [FLAC|Lossless|image + .cue] <Inst
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_191048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191048.jpgsave_picture_191048.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Revenge of ILCOIN (2023) [En] (1.0) Scene Tenoke
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191049.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191049.jpgsave_picture_191049.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ magnet:?xt=urn:btih:A67B904AA64D79AC5C8B85D003B299E6BC3D1AFE
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_191050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191050.jpgsave_picture_191050.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Terminal 81 (2023) [Ru/Multi] (1.2.7) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191051.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191051.jpgsave_picture_191051.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ magnet:?xt=urn:btih:542E7652388D43C16C4892AED9A29DFFA5D8E9F4
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191052.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191052.jpgsave_picture_191052.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ magnet:?xt=urn:btih:1013ACEAAB1E484F042A0187E14A1561FAEF43A3
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191053.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191053.jpgsave_picture_191053.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ magnet:?xt=urn:btih:BEBE16896413BD6AD145393D208286B155EDE4BE
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191054.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191054.jpgsave_picture_191054.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ magnet:?xt=urn:btih:7F1CCB58DFA29D487142FE1E0D6B906B188C8052
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191055.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191055.jpgsave_picture_191055.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Rare Ltd | Артбук по игре Battletoads / The Art of Battletoads (2022
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_191056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191056.jpgsave_picture_191056.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ magnet:?xt=urn:btih:4495CC5D1F35B2D07C7FE011CCF68748BE616146
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_191057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191057.jpgsave_picture_191057.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ magnet:?xt=urn:btih:B098AE0C355433792CD7EA673C25892DE277F90F
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_191058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191058.jpgsave_picture_191058.jpg" />
 </div>
 
 

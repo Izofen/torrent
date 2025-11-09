@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124841.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124841.jpgsave_picture_124841.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:88B40F8D9CA289940DFC778EAC3E3B2C03E2C01B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124842.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124842.jpgsave_picture_124842.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:A25CE4799E9699FA1F6011DEB1BF584B9007E6BB
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124843.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124843.jpgsave_picture_124843.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:5C0B5971C425C207158CA04C589DD5FD78CFBED6
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124844.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124844.jpgsave_picture_124844.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:E3E0DA8B4B57AC8AA65B285E2249B205BE35381C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124845.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124845.jpgsave_picture_124845.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:482C599185202508222A87EAD100FE6FDF91AAB3
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124846.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124846.jpgsave_picture_124846.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:AB75240BF06004886CB971A282DAE4D93B701C26
 >>Картинки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124847.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124847.jpgsave_picture_124847.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:70DC6FF444781B84AE368F2E18BB9E488396E3F8
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124848.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124848.jpgsave_picture_124848.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:9B35BC3324C5C7C81DDAC41C03DE23A8AD48092D
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124849.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124849.jpgsave_picture_124849.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ magnet:?xt=urn:btih:36A5A37994C00F6ABAD15B5BA589BB7618AD526B
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124850.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124850.jpgsave_picture_124850.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ magnet:?xt=urn:btih:52E199CAEE56232BF783BA8591396AABCB77A135
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124851.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124851.jpgsave_picture_124851.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ SkyEye - Digital God (2018) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124852.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124852.jpgsave_picture_124852.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ magnet:?xt=urn:btih:9667DC99491248FAE3FB9BEBA036AB6B4F842351
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124853.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124853.jpgsave_picture_124853.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ magnet:?xt=urn:btih:5F470F47D8BE7C6F42196C566126679FF80A31F2
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124854.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124854.jpgsave_picture_124854.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ magnet:?xt=urn:btih:C71AA86B04E09E6A6912BBBA68F52462E696F49C
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124855.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124855.jpgsave_picture_124855.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ magnet:?xt=urn:btih:7665CE0109CBD9A43F38850B96179C271616D22E
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124856.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124856.jpgsave_picture_124856.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Head East - Full Circle (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard-Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124857.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124857.jpgsave_picture_124857.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ Youth Pastor - Songs To Fuck and Kill Yourself To (2023) [FLAC 24/48|Lossless|WE
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124858.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124858.jpgsave_picture_124858.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ Dark Lunacy - Studio Albums (7 releases) (1998-2016) hand made [restored, declip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124859.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124859.jpgsave_picture_124859.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ The Fusion Syndicate - Beautiful Horizon (2023) [FLAC|Lossless|WEB-DL|tracks] <F
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124860.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124860.jpgsave_picture_124860.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ magnet:?xt=urn:btih:7B2B695F04614B64BD86ACABAB09CEECABEAA444
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124861.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124861.jpgsave_picture_124861.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ magnet:?xt=urn:btih:972B5AB76D0202EC139C8C784BAEDF87825E0492
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124862.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124862.jpgsave_picture_124862.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ magnet:?xt=urn:btih:193EA6E9AFAB329B6D71F50804457656EFE7E224
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124863.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124863.jpgsave_picture_124863.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ magnet:?xt=urn:btih:E463F10A62EE41896FD4331FC331A435EB3676F3
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124864.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124864.jpgsave_picture_124864.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ magnet:?xt=urn:btih:4160A44E75AD2E1B511D78EAF35509F4EAB5682D
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124865.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124865.jpgsave_picture_124865.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Nuclear Power Trio - Wet Ass Plutonium (2023) [FLAC 24/48|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124866.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124866.jpgsave_picture_124866.jpg" />
 </div>
 
 

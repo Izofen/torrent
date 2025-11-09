@@ -6,7 +6,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208351.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208351.jpgsave_picture_208351.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:17691531D61B81A34C5C3A1781CA365451605D2C
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208353.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208353.jpgsave_picture_208353.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Google Chrome 115.0.5790.102 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208355.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208355.jpgsave_picture_208355.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Tool - Lollapalooza In Texas (2020) [MP3|320 Kbps] <Alternative & Indie>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208359.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208359.jpgsave_picture_208359.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ EditPlus 5.7.0 build 4352 + EditPlus 5.7.0 patch 4514 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208361.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208361.jpgsave_picture_208361.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:A38489AD48FE28853EAE5AB3AF38051AF730624A
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208363.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208363.jpgsave_picture_208363.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ magnet:?xt=urn:btih:B92D59EE13B5D86D4932A67752C965126CB5F6EE
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208365.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208365.jpgsave_picture_208365.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ WiFi Explorer 3 Pro 3.5.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208366.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208366.jpgsave_picture_208366.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Icecream Video Editor Pro 3.04 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208368.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208368.jpgsave_picture_208368.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ StartAllBack 3.6.9 StartIsBack++ 2.9.19 (2.9.1) StartIsBack + 1.7.6 RePack by Kp
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208373.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208373.jpgsave_picture_208373.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ DrawingBotV3 Free 1.6.1 beta + Portable [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208376.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208376.jpgsave_picture_208376.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ StartAllBack 3.6.9 StartIsBack++ 2.9.19 (2.9.1 for 1607) StartIsBack+ 1.7.6 Star
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208379.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208379.jpgsave_picture_208379.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:1446271CE38E2DC78522CD1633ABACD3E51BB977
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208380.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208380.jpgsave_picture_208380.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:CA2F7C48692BBAEE8DE5C596F74D000706AF7DF8
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208382.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208382.jpgsave_picture_208382.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ magnet:?xt=urn:btih:08EECAF56FC71F15FEC1B34D0C768E5A6465BFD3
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208383.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208383.jpgsave_picture_208383.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Final Cut Pro X 10.6.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208385.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208385.jpgsave_picture_208385.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ WinRAR 6.23 Beta 1 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208386.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208386.jpgsave_picture_208386.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ Compressor 4.6.5 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208389.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208389.jpgsave_picture_208389.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ magnet:?xt=urn:btih:92EB89C9DA6325E10A14453E18B2593950E3A148
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208391.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208391.jpgsave_picture_208391.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Quick CPU 4.7.0.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208394.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208394.jpgsave_picture_208394.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ magnet:?xt=urn:btih:A05584B25DD4075E88E345CE942026EBBD09CB90
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208395.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208395.jpgsave_picture_208395.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Hudozhnik Online, Полина Абдулаева | Основы керамик�
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208397.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208397.jpgsave_picture_208397.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ Domestika, Juan Perednik | Pencil Portraits: Light, Shadow, and Proportion (2022
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208398.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208398.jpgsave_picture_208398.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ magnet:?xt=urn:btih:90A5F843095E1063D949A47F53F2DD07FD265C05
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208402.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208402.jpgsave_picture_208402.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ MediaHuman YouTube Downloader 3.9.9.84 (2007) RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208408.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208408.jpgsave_picture_208408.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ magnet:?xt=urn:btih:BC575A14798BC6B2C524F04FA204A5FA372992C4
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208409.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208409.jpgsave_picture_208409.jpg" />
 </div>
 
 

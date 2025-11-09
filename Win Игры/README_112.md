@@ -6,7 +6,7 @@ Go Home Annie (2024) [Ru/Multi] (1.0.23) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31942.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31942.jpgsave_picture_31942.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Tekken 8 (2024) [Ru/Multi] (1.10.01/dlc) Repack seleZen [Ultimate Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31945.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31945.jpgsave_picture_31945.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Sam & Max: The Devil's Playhouse (2024) [Ru/Multi] (1.6.0/dlc) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31947.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31947.jpgsave_picture_31947.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Guardians of the Sanctree (2024) [Ru/Multi] (1.1.2f6/dlc) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32012.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32012.jpgsave_picture_32012.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Doomsday Hunters (2023) [Ru/En] (1.1.0/dlc) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32015.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32015.jpgsave_picture_32015.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ The Dark Eye: Chains of Satinav (2012) [Ru/Mullti] (3.0.351.5498) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32016.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32016.jpgsave_picture_32016.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ The Universim (2018) [Ru/Multi] (1.2.0.48225) Repack seleZen
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32021.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32021.jpgsave_picture_32021.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Pizza Tower (2023) [Ru/Multi] (1.1.271) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32023.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32023.jpgsave_picture_32023.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Flashing Lights - Police, Firefighting, Emergency Services Simulator (2023) [Ru/
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32025.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32025.jpgsave_picture_32025.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Locked In Mind (2023) [En] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32035.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32035.jpgsave_picture_32035.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Joyville 2 (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32040.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32040.jpgsave_picture_32040.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Limoria (2025) [Ru/Multi] (build 16883517) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32043.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32043.jpgsave_picture_32043.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Spectacular Sparky (2021) [Ru/Multi] (1.0.1) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32079.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32079.jpgsave_picture_32079.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Nelly Cootalot: Spoonbeaks Ahoy! HD (2019) [Multi] (1.01) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32082.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32082.jpgsave_picture_32082.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Slay the Princess - The Pristine Cut (2023) [Ru/Multi] (Build 16887603) Repack L
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32087.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32087.jpgsave_picture_32087.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Nelly Cootalot: The Fowl Fleet (2016) [Multi] (1.07) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32092.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32092.jpgsave_picture_32092.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ SUPER BOMBERMAN R2 (2023) [Ru/Multi] (1.3.1) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32103.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32103.jpgsave_picture_32103.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Slay the Princess (2023) [Ru/Multi] (build 16887603) Repack seleZen [The Pristin
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32107.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32107.jpgsave_picture_32107.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ magnet:?xt=urn:btih:13BADD3A17E1ED57F351FC537C086636E2AF8C92
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32116.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32116.jpgsave_picture_32116.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Limoria (2025) [Ru/Multi] (build 16883517) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32124.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32124.jpgsave_picture_32124.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Starcom: Unknown Space (2022) [Ru/Multi] (17344) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32139.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32139.jpgsave_picture_32139.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Snufkin: Melody of Moominvalley / Снусмумрик: Мелодия Муми-
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32141.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32141.jpgsave_picture_32141.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Goalgetter / Torschutzenkonig (2023) [Multi] (2.1.1) License GOG
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32142.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32142.jpgsave_picture_32142.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Slave Zero X (2024) [Ru/Multi] (1.06/dlc) Repack Let'sРlay [Digital Deluxe Edit
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32143.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32143.jpgsave_picture_32143.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Sengoku Dynasty (2023) [Ru/Multi] (1.0.1.1) Repack Wanterlude
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32145.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32145.jpgsave_picture_32145.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Janosik 2 (2024) [Ru/Multi] (1.0.018) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32155.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32155.jpgsave_picture_32155.jpg" />
 </div>
 
 

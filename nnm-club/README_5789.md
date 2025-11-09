@@ -6,7 +6,7 @@ Sotiria - Hallo Leben (2018) Box Set 2CD [FLAC|Lossless|image + .cue] <Rock, Got
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180273.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180273.jpgsave_picture_180273.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Brave New Worlds - Aisongs (2023) [MP3|320 Kbps] <Progressive Rock, Neo-Prog>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180276.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180276.jpgsave_picture_180276.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ R-Studio Network 9.1 Build 191061 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180277.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180277.jpgsave_picture_180277.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:BCF525DF40862F5C6CD7B425EA121C8D54824DB4
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180279.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180279.jpgsave_picture_180279.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Mae Muller - Sorry I’m Late... Again (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180281.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180281.jpgsave_picture_180281.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ Baby Paint | Детская рисовалка 3.50 Portable [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180284.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180284.jpgsave_picture_180284.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ YqpY - Near (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock, Electronic>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180285.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180285.jpgsave_picture_180285.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ CrystalDiskInfo 8.17.12 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180287.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180287.jpgsave_picture_180287.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ Opera GX 102.0.4880.85 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180289.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180289.jpgsave_picture_180289.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ NetLimiter 5.1.5.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180291.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180291.jpgsave_picture_180291.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ magnet:?xt=urn:btih:493DCF6EDAA42513D57BF98D55A3393A9D346190
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180292.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180292.jpgsave_picture_180292.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ Skype 8.105.0.211 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180296.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180296.jpgsave_picture_180296.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ Thinknetica Pro, Антон Давыдов | Dry-rb: что, зачем и ка�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180297.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180297.jpgsave_picture_180297.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ magnet:?xt=urn:btih:03E09F6E8BADB7C0DDF6CB70CAFEE53530F37B25
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180299.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180299.jpgsave_picture_180299.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ Dead Man's Whiskey - In The Storm (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Roc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180301.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180301.jpgsave_picture_180301.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ NetLimiter 5.1.5.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180303.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180303.jpgsave_picture_180303.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ ByClick Downloader Premium 2.3.34 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180305.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180305.jpgsave_picture_180305.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Avril Lavigne - Love Sux (2022) Deluxe [FLAC|Lossless|WEB-DL|tracks] <Alternativ
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180307.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180307.jpgsave_picture_180307.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ magnet:?xt=urn:btih:B17EC775DC075A6A2CF20E942CBBA6D86BC750C8
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180311.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180311.jpgsave_picture_180311.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Dario Mollo / Tony Martin - The Third Cage (2011) Japanese Edition [FLAC|Lossles
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180314.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180314.jpgsave_picture_180314.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ Schneckenkonich (Schneckenkönich) - Slow Gems (2023) [FLAC|Lossless|WEB-DL|trac
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180318.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180318.jpgsave_picture_180318.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ magnet:?xt=urn:btih:0A228315188DC7A25B304A68B854E177ECA74245
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180319.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180319.jpgsave_picture_180319.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Max B. Greene - Boxes Full of Blues (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180321.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180321.jpgsave_picture_180321.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ magnet:?xt=urn:btih:4439DCE027C5AC6F785CFBE3F7B98DB266DF32D0
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180323.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180323.jpgsave_picture_180323.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Wreckless Strangers - Orange Sky Dream (2023) [FLAC|Lossless|WEB-DL|tracks] <Blu
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180324.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180324.jpgsave_picture_180324.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ magnet:?xt=urn:btih:F956093C44380478E7B9D46FF21AA72F97F5FADA
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180326.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180326.jpgsave_picture_180326.jpg" />
 </div>
 
 

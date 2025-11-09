@@ -6,7 +6,7 @@ VA - HGM: Move With The Beat (2020) [MP3|320 Kbps] <Vocal House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153586.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153586.jpgsave_picture_153586.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ The Trombones, Inc. - The Trombones, Inc. (1958) Remaster, 2013, Warner[FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153587.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153587.jpgsave_picture_153587.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - Blues Harmonica (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153588.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153588.jpgsave_picture_153588.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Voodoo Room - Tension City Blues (2020) [FLAC|Lossless|image + .cue] <Blues Rock
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153589.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153589.jpgsave_picture_153589.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Murphy Road - No Business (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153590.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153590.jpgsave_picture_153590.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Dizzy Reece - Blues In Trinity (1958) 2005, Toshiba-EMI [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153591.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153591.jpgsave_picture_153591.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ NCH WavePad Masters Edition 11.49 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153592.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153592.jpgsave_picture_153592.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ magnet:?xt=urn:btih:DB5A2A56C1C0306944CE7BDDE9BC2D9F601B47A8
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153593.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153593.jpgsave_picture_153593.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Opeth - Orchid (1995) Reissue, 2016, Candlelight Records [FLAC|24/192|image + .c
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153594.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153594.jpgsave_picture_153594.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Movist 2.5.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153595.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153595.jpgsave_picture_153595.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ DGM - Life (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153596.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153596.jpgsave_picture_153596.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ DE3RA - Old Scratch (2020) [MP3|320 Kbps] <Psychedelic Rock, Blues Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153597.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153597.jpgsave_picture_153597.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Plaguemace - Reptilian Warlords (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153598.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153598.jpgsave_picture_153598.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Self Assistance - Sky Dog Floating in a Land of Impossible Color Combinations (2
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153599.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153599.jpgsave_picture_153599.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Grid 1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153600.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153600.jpgsave_picture_153600.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Adobe Master Collection CC 2017 RUS/ENG
 >>16
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153601.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153601.jpgsave_picture_153601.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Trijntje Oosterhuis & Jazz Orchestra Of The Concertgebouw - Wonderful Christmast
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153602.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153602.jpgsave_picture_153602.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ magnet:?xt=urn:btih:BE948C56962DB896883A13F6FE78D724B12C6651
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153603.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153603.jpgsave_picture_153603.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ magnet:?xt=urn:btih:2BDD053E0FE0D5E34BB2AEE745F6371ABC61A5A1
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153604.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153604.jpgsave_picture_153604.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Mur-Len Road - I Gotta Get Outta Here (2020) [MP3|320 Kbps] <Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153605.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153605.jpgsave_picture_153605.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Nesrallah Artuso Project - Wearing the Blues (2020) [FLAC|Lossless|WEB-DL|tracks
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153606.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153606.jpgsave_picture_153606.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Microsoft Office 2016 Pro Plus + Visio Pro + Project Pro 16.0.4456.1003 VL (x86)
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153607.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153607.jpgsave_picture_153607.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ magnet:?xt=urn:btih:5905D72A9E020A41A0905A7B1C425073CA79B0D5
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153608.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153608.jpgsave_picture_153608.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ magnet:?xt=urn:btih:6395C4CBB682EE71E67F4B24B826244E6CBDAEFB
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153609.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153609.jpgsave_picture_153609.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ Kriegsopfer - Redención (2020) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153610.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153610.jpgsave_picture_153610.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ Adobe Photoshop CC 2017.0.1 (20161130.r.29) Portable by XpucT [Multi/Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153611.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153611.jpgsave_picture_153611.jpg" />
 </div>
 
 

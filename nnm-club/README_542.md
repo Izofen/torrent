@@ -6,7 +6,7 @@ VA - Dancefloor Sessions, Vol. 01 (2025) [MP3|320 Kbps] <Dance, Club, House, Ele
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14401.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14401.jpgsave_picture_14401.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Kontrast - Imperium Tyrannis (2025) [MP3|320 Kbps] <Darkwave, EBM, Electro-Indus
 >>Industrial, EBM, Dark Electro
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14402.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14402.jpgsave_picture_14402.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:D8C13484AE392D2290DAB44148F5EB24B5E49D3C
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14403.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14403.jpgsave_picture_14403.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Dexter Gordon - Three Classic Albums Plus (1955, 1960) 2CD, 2014, Avid Jazz [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14404.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14404.jpgsave_picture_14404.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ magnet:?xt=urn:btih:9052FFC0868796DF36351F59347FA9B7057459C8
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14405.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14405.jpgsave_picture_14405.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Brandee Younger - Gadabout Season (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Co
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14406.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14406.jpgsave_picture_14406.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Girls Aloud - The Girls Aloud Show (Live) (2025) [FLAC 24/48|Lossless|WEB-DL|tra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14407.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14407.jpgsave_picture_14407.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ magnet:?xt=urn:btih:96BC74E61E471745CFB5D10093C02AAF36E3FB33
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14408.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14408.jpgsave_picture_14408.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ magnet:?xt=urn:btih:06DBA259FEF7FC645B3DB6C8586B7FC901CEF4B4
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14409.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14409.jpgsave_picture_14409.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Club Crimson Room - Dark Desire (2025) [MP3|320 Kbps] <Electro, EBM, Industrial>
 >>Industrial, EBM, Dark Electro
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14410.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14410.jpgsave_picture_14410.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Neil Young + Promise of the Real - The Visitor (2017) [FLAC 24/192|Lossless|WEB-
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14411.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14411.jpgsave_picture_14411.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Smoulder - Times of Obscene Evil and Wild Daring (2019) [FLAC|24/192|image + .cu
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14412.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14412.jpgsave_picture_14412.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Dante - Studio Albums (5 releases) (2007-2022) hand made [restored, declipped] [
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14413.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14413.jpgsave_picture_14413.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Neil Young + Promise of the Real - The Visitor (2017) [MP3|320 Kbps] <Country Ro
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14414.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14414.jpgsave_picture_14414.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Byzantine - Harbingers (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Groove Metal,
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14415.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14415.jpgsave_picture_14415.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ letlive. - The Blackest Beautiful (2013) Revisited, 2025, Epitaph [FLAC|Lossless
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14416.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14416.jpgsave_picture_14416.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ magnet:?xt=urn:btih:FE18DF38F557DFBC0A65C6FA40A1191BDDCD72BD
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14417.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14417.jpgsave_picture_14417.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ magnet:?xt=urn:btih:4F558343651BE73A07D585C56FFABF9CFBD2566E
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14418.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14418.jpgsave_picture_14418.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ magnet:?xt=urn:btih:0A0CFEC58B6F42ADB4A3B913C9D26E822158C023
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14419.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14419.jpgsave_picture_14419.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ magnet:?xt=urn:btih:E19CA62382E03AABB14E8A58998FBA6B9775BDA4
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14420.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14420.jpgsave_picture_14420.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Sonia Elisheva - Compilation (2025) [MP3|320 Kbps] <Other, Electroswing>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14421.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14421.jpgsave_picture_14421.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ magnet:?xt=urn:btih:A0E7C81CB0E00390295CD3A97610C5A628861F29
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14422.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14422.jpgsave_picture_14422.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Microsoft Visual Studio 2022 Professional 17.14.5 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14423.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14423.jpgsave_picture_14423.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ magnet:?xt=urn:btih:65C6E9AC63BAE45049805286F189B6A1E8E3FD39
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14424.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14424.jpgsave_picture_14424.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ magnet:?xt=urn:btih:AB57FC53187BEDB4518911EA06E412E279A27351
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14425.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14425.jpgsave_picture_14425.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ magnet:?xt=urn:btih:4F743BD27A2EDAF9ADED381972CD63F793D1442B
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14426.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14426.jpgsave_picture_14426.jpg" />
 </div>
 
 

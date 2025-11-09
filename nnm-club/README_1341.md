@@ -6,7 +6,7 @@ VA - Bach vs Mozart (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35221.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35221.jpgsave_picture_35221.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:912E62F67D4BA31CC57E19E02BC2A01204EB2646
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35222.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35222.jpgsave_picture_35222.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Ocean Match / Рыбки: Три в ряд v2.9.8 Mod by vadj [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35223.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35223.jpgsave_picture_35223.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:4EE30DEF2761CDCA0157E26D2C4972D4AA221472
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35224.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35224.jpgsave_picture_35224.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:3090E95050823CE746D2E1E33EBD08EC272D6C51
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35225.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35225.jpgsave_picture_35225.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ Roboquest (2020) [Ru/Multi] (1.5.0-280) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35226.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35226.jpgsave_picture_35226.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:4E27A02FBDD0015E90CD6B60C9D8D1BD0417E601
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35227.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35227.jpgsave_picture_35227.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ Andre Rieu & Johann Strauss Orchestra - The Sound of Heaven (2024) [FLAC|Lossles
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35228.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35228.jpgsave_picture_35228.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ Ocenaudio 3.14.8 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35229.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35229.jpgsave_picture_35229.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:37D2CE2E1B19960ADCB899F42201EF340A5361F4
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35230.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35230.jpgsave_picture_35230.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ VA - Compilation  Part 131 Electronic (2024) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35231.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35231.jpgsave_picture_35231.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ magnet:?xt=urn:btih:1B6FA54F3B8A420EFF5D5E1A67B311B6CDAE7EF5
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35232.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35232.jpgsave_picture_35232.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ magnet:?xt=urn:btih:798C1FE788AD4D9E6CFEE9903DAE3A5675551311
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35233.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35233.jpgsave_picture_35233.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ magnet:?xt=urn:btih:BC8CC0E72A6ADC7B872DFFF2165792602781785F
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35234.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35234.jpgsave_picture_35234.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ magnet:?xt=urn:btih:20AEF0E2D1548A98770087EE561296193AE547F9
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35235.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35235.jpgsave_picture_35235.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Vivaldi 7.0.3495.23 include standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35236.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35236.jpgsave_picture_35236.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ magnet:?xt=urn:btih:75E9EA95A1947974D25BCF196D369D6728D15C20
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35237.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35237.jpgsave_picture_35237.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ O&O Defrag Professional 29.1 Build 11203 RePack (& Portable) by elchupacabra [Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35238.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35238.jpgsave_picture_35238.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Lords of the Fallen (2023) [Ru/Multi] (1.6.49/dlc) Repack FitGirl [Deluxe Editio
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35239.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35239.jpgsave_picture_35239.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ Aiarty Image Enhancer 2.6 RePack (& Portable) by elchupacabra (DC 23.10.2024) [M
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35240.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35240.jpgsave_picture_35240.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ Free Hex Editor Neo 7.50.03.8800 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35241.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35241.jpgsave_picture_35241.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ Telegram Desktop 5.9.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35242.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35242.jpgsave_picture_35242.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ VA - US Top 100 – The 00s (2024) [MP3|320 Kbps] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35243.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35243.jpgsave_picture_35243.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ magnet:?xt=urn:btih:6AC5022AF7417E4190EC7D95045B48B0CC02A428
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35244.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35244.jpgsave_picture_35244.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Sleep as Android: отличный сон v20241122 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35245.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35245.jpgsave_picture_35245.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ magnet:?xt=urn:btih:7E33C3063FAC00E1A64C6CDC5FC1113F502D37E0
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35246.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35246.jpgsave_picture_35246.jpg" />
 </div>
 
 

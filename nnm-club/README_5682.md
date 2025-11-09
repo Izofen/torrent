@@ -6,7 +6,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175012.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175012.jpgsave_picture_175012.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:6E1CC420B40454D412F9A53B8EBC79FCF63C9BE2
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175013.jpgsave_picture_175013.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Bill Perry - 9 Albums (1996 - 2011) 13 CD [FLAC|Lossless|tracks + .cue|image + .
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175015.jpgsave_picture_175015.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:CD67B02F73C709B96D0C096AFCFD1D9AA366C1F6
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175016.jpgsave_picture_175016.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:940AC2A1B2DD8AEA724ADEDF3F2A1421F7889E06
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175017.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175017.jpgsave_picture_175017.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ Rodrigo Y Gabriela - 11:11 (2010) [FLAC|Lossless|tracks + .cue] <Latin, Folk>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175018.jpgsave_picture_175018.jpg" />
 </div>
 
 
@@ -161,7 +161,7 @@ magnet:?xt=urn:btih:D6D063AB5ADC9A5033DDB39C210273F82759648E
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175019.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175019.jpgsave_picture_175019.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ magnet:?xt=urn:btih:B8CFC25FEF90018FB3FDD17E3FA324F9E4C5EE0E
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175021.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175021.jpgsave_picture_175021.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ HiBit Uninstaller 3.0.15 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175022.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175022.jpgsave_picture_175022.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ magnet:?xt=urn:btih:0C455D86D9CDF8B7F5167ECEF43401E4608264AB
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175023.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175023.jpgsave_picture_175023.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ magnet:?xt=urn:btih:21D5833ED3BC06607F6A883973721AFDCB334B0D
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175024.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175024.jpgsave_picture_175024.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ magnet:?xt=urn:btih:C455647111F8031B43682766734716F38B19AD26
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175026.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175026.jpgsave_picture_175026.jpg" />
 </div>
 
 
@@ -314,7 +314,7 @@ magnet:?xt=urn:btih:6F07C2FD90F72A80F9517C0F1A680AC1C093FC15
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175028.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175028.jpgsave_picture_175028.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ Gemini 2: The Duplicate Finder 2.9.11 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175029.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175029.jpgsave_picture_175029.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ magnet:?xt=urn:btih:C3138A4365624DF6D8985C58C8FE471CFDB1BADD
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175031.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175031.jpgsave_picture_175031.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ FontViewOK 8.12 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175032.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175032.jpgsave_picture_175032.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Xandria - The Wonders Still Awaiting (2022) [FLAC|Lossless|WEB-DL|tracks] <Symph
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175034.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175034.jpgsave_picture_175034.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ VA - 900 Days (2020) [MP3|320 Kbps] <Alternative, Indie, Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175035.jpgsave_picture_175035.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ VA - Осень на Love Radio (2023) [MP3|320 Kbps] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175036.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175036.jpgsave_picture_175036.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Skype 8.67.0.87 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175037.jpgsave_picture_175037.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ magnet:?xt=urn:btih:B3E43041F6D278DD75E453B188504B466B0A0562
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175039.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175039.jpgsave_picture_175039.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ magnet:?xt=urn:btih:B3B949972F9F28C88D848FA259F6316966EFD091
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175040.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175040.jpgsave_picture_175040.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ magnet:?xt=urn:btih:75205B0FF9B1BEDB151B3BF46436945B5FDAC032
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175041.jpgsave_picture_175041.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ GoldWave 6.70 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175043.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175043.jpgsave_picture_175043.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Revo Uninstaller Pro 5.2.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175044.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175044.jpgsave_picture_175044.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ VA - Slow Rock (2020) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175045.jpgsave_picture_175045.jpg" />
 </div>
 
 

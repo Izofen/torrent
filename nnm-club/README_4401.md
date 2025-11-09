@@ -6,7 +6,7 @@
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137489.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137489.jpgsave_picture_137489.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:10FB2A657FCB0AB049A8DE33A1D8275DD4CF97FD
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137490.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137490.jpgsave_picture_137490.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:47703E6073C82EFB98100DF4A8D52179F2EA103D
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137491.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137491.jpgsave_picture_137491.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:F4395C39CC8FFAEEEDB86C1A89CDC166DDD582AB
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137493.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137493.jpgsave_picture_137493.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:DB610FE4C28D2C28A5BD8C88E5152081D84EA0DC
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137494.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137494.jpgsave_picture_137494.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Army Of Lovers - Sexodus (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, Eurodance>
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137495.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137495.jpgsave_picture_137495.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ Native Instruments - Kontakt 6.0.3 STANDALONE, VSTi (x86/x64) Portable by vkDani
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137496.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137496.jpgsave_picture_137496.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ PTE AV Studio Pro 11.0 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137497.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137497.jpgsave_picture_137497.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ Sitni Sati FumeFX 5.0 for Cinema 4D [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137498.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137498.jpgsave_picture_137498.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ magnet:?xt=urn:btih:C145944B6B28235F8F7BC58710765F600A98987D
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137499.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137499.jpgsave_picture_137499.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ magnet:?xt=urn:btih:7A07D3062B552517ECDD7BA7EA7C0F3156D2B5E2
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137500.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137500.jpgsave_picture_137500.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ magnet:?xt=urn:btih:D08078FB5EDCD74375A117A62187707B3EFE29A1
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137501.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137501.jpgsave_picture_137501.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ Advanced Renamer 3.92.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137502.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137502.jpgsave_picture_137502.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Solar System Explorer HD v2.7.5 [Ru/Multi] - 3D путешествие по со
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137503.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137503.jpgsave_picture_137503.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ magnet:?xt=urn:btih:5E63A016C5C05CEB06E1EEF7C5573E5E220A9D87
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137504.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137504.jpgsave_picture_137504.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ magnet:?xt=urn:btih:77982D1F7BC36E00F90EC503E4E9398B978C3BB5
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137505.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137505.jpgsave_picture_137505.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ magnet:?xt=urn:btih:FA9272D3197616B3C707172EDD550B66D5EE4BBC
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137506.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137506.jpgsave_picture_137506.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ magnet:?xt=urn:btih:CC2B86430E0F9BDC5938A92A82997C3B48BCBC77
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137507.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137507.jpgsave_picture_137507.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ magnet:?xt=urn:btih:564B81F64161DFB72F61B51EF46DED2FF15ED579
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137508.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137508.jpgsave_picture_137508.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Boom 3D 2.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137509.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137509.jpgsave_picture_137509.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Keishichou Tokumu Bu Tokushu Kyouakuhan Taisaku Shitsu Dai Nana Ka: Tokunana | S
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137510.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137510.jpgsave_picture_137510.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Profileschool | Портретная ретушь: интенсив (2014) PCRec
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137511.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137511.jpgsave_picture_137511.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ magnet:?xt=urn:btih:B2FCA58FF6A6D7EAB4D1A632F7B94B25E998147C
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137512.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137512.jpgsave_picture_137512.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ magnet:?xt=urn:btih:40491CFCB23C984BF85AF864D7B5941D92F10E6E
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137513.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137513.jpgsave_picture_137513.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ Yuletide Legends 2: Frozen Hearts / Святочные истории 2: Хол�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137514.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137514.jpgsave_picture_137514.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ magnet:?xt=urn:btih:7A663110EE133D117B0EEED5F6AC520F6B689007
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137515.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137515.jpgsave_picture_137515.jpg" />
 </div>
 
 

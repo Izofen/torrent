@@ -6,7 +6,7 @@ Dav Dralleon - 2 Albums (2021-2022) [MP3|320 Kbps] <Darksynth, Industrial Metal,
 >>Industrial, EBM, Dark Electro
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179279.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179279.jpgsave_picture_179279.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - House Radio 2022 - The Ultimate Collection #7 (2022) CD, Compilation [MP3|3
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179311.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179311.jpgsave_picture_179311.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - House Radio 2022 - The Ultimate Collection #5 (2022) CD, Compilation [MP3|3
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179367.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179367.jpgsave_picture_179367.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - House Radio 2022 - The Ultimate Collection #4 (2022) CD, Compilation [MP3|3
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179371.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179371.jpgsave_picture_179371.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ VA - House Radio 2022 - The Ultimate Collection (2022) CD, Compilation [MP3|320 
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179379.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179379.jpgsave_picture_179379.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Dav Dralleon - 2 Albums (2021-2022) [FLAC|Lossless|WEB-DL|tracks] <Darksynth, In
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179394.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179394.jpgsave_picture_179394.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ VA - House Radio 2022 - The Ultimate Collection #3 (2022) CD, Compilation [MP3|3
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179398.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179398.jpgsave_picture_179398.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ VA - Lost Language Exhibition (Mixed By Solar Stone And Ben Lost) (2003) [FLAC|L
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179566.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179566.jpgsave_picture_179566.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ New Arcades - Leave Something Behind (2023) [FLAC|Lossless|WEB-DL|tracks] <Synth
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179584.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179584.jpgsave_picture_179584.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Dimi Kaye - The Neon Shredder (2023) [FLAC|Lossless|WEB-DL|tracks] <Retrowave, S
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179615.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179615.jpgsave_picture_179615.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Above & Beyond - Group Therapy 500 Live From Los Angeles - Deep Set (2022) DJ Mi
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179620.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179620.jpgsave_picture_179620.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Makeup and Vanity Set - FM (2023) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Dark
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179621.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179621.jpgsave_picture_179621.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Lone Runner - Memories of 2082 (2022) [FLAC|Lossless|WEB-DL|tracks] <Retrowave, 
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179865.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179865.jpgsave_picture_179865.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Robert Miles - Dreamland (1996) [OGG Vorbis|650 Kbps] <Electronic, Dream, Trance
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179878.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179878.jpgsave_picture_179878.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ VA - 2022 MMA Workout Music [MP3|320 Kbps] <House, Dance, Other>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179896.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179896.jpgsave_picture_179896.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ VA - Sexy Funky House Annual 2023 (2022) [MP3|320 Kbps] <Funky, Club House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179901.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179901.jpgsave_picture_179901.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Neon Nox - Payback (2022) [FLAC|Lossless|WEB-DL|tracks] <Retrowave, Synthwave>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179903.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179903.jpgsave_picture_179903.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Neuroklast - 2 Albums (2021-2022) [MP3|320 Kbps] <Electro-Industrial, Cyberpunk>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179908.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179908.jpgsave_picture_179908.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Artenovum - A Breeze of Melodies (2023) [FLAC|Lossless|WEB-DL|tracks] <Lounge, C
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180193.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180193.jpgsave_picture_180193.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ L'ame Immortelle (L'Âme Immortelle) - Collection (1997-2022) [FLAC|Lossless|ima
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180711.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180711.jpgsave_picture_180711.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ VA - M.I.K.E. Presents Club Elite Vol 1 (2007) [FLAC|Lossless|WEB-DL|tracks] <Tr
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180775.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180775.jpgsave_picture_180775.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Rammstein - Adieu (Remixes) (2022) [FLAC|Lossless|WEB-DL|tracks] <Industrial>
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181545.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181545.jpgsave_picture_181545.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Jean-Michel Jarre - The Concerts In China (1982) 2xCD, 40th Anniversary - Remast
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181651.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181651.jpgsave_picture_181651.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ Jean Michel Jarre - The Concerts In China (1982) 2CD, 40th Aniversary – Remast
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181675.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181675.jpgsave_picture_181675.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ VA - Beautiful Vocal Trance - Chapter 10 (2022) [MP3|320 Kbps] <Uplifting Trance
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181713.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181713.jpgsave_picture_181713.jpg" />
 </div>
 
 
@@ -676,7 +676,7 @@ VA - Ministry of Sound - The Annual 2023 (2022) [MP3|320 Kbps] <Dance>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181763.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181763.jpgsave_picture_181763.jpg" />
 </div>
 
 

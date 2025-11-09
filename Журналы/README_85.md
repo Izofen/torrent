@@ -6,7 +6,7 @@
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124887.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124887.jpgsave_picture_124887.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:0D4FE248C51ED6DB5FBFD30B56371441B194F932
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124890.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124890.jpgsave_picture_124890.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:338610C3BA3C1C504DE80FC9F3AA8D0F54E60A76
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124904.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124904.jpgsave_picture_124904.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:E5F4A52AFCC29FAF3C84E77971F30F7D28CD235F
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124905.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124905.jpgsave_picture_124905.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:FCD1B3A0D4AC06A3BFDD9DB17DC11814E155181E
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125031.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125031.jpgsave_picture_125031.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:616727F3429EFEFDF3E493EE5A3883851FC4DE25
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125035.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125035.jpgsave_picture_125035.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:4B2ACC0692CF223252C2AA2A53401651826B0990
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125036.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125036.jpgsave_picture_125036.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:4DD2D8D25736241275AB64373B9088DE0A8CE24A
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125037.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125037.jpgsave_picture_125037.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:074D3FB93CB2D5BFF0946CB7058AEE261754B7C6
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125043.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125043.jpgsave_picture_125043.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:EB52BA1F1E7CD7487AA76D362AE3BD475F6B4E1D
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125063.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125063.jpgsave_picture_125063.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ magnet:?xt=urn:btih:00A47DBEF7E2A1E0A208CF380DB7961887C0BE31
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125065.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125065.jpgsave_picture_125065.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ magnet:?xt=urn:btih:D08F68067B22778A8FFEE005EF544D0038A49100
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125081.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125081.jpgsave_picture_125081.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ magnet:?xt=urn:btih:390C004911E1327F98DF65F32C375DD8C4D823ED
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125179.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125179.jpgsave_picture_125179.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ magnet:?xt=urn:btih:FBC7A4E57AF76269716BF9A8B279925A4842E920
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125192.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125192.jpgsave_picture_125192.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ magnet:?xt=urn:btih:7BFDEE8CF0F5D5EF963C8C747423D22AAEB657B6
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125193.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125193.jpgsave_picture_125193.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ magnet:?xt=urn:btih:D914C8D4B42DC0B48A1AFA5B08857F50B767674D
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125202.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125202.jpgsave_picture_125202.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ magnet:?xt=urn:btih:E66B77FD1F3610802D9595F80FCFD69AAE2416EB
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125217.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125217.jpgsave_picture_125217.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ magnet:?xt=urn:btih:E802D5D5D77A17891C1B3AF45F0F204F3BBE3697
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125579.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125579.jpgsave_picture_125579.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ magnet:?xt=urn:btih:CE118B73176F6E564A1715E4E97DAE51ECF41331
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125585.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125585.jpgsave_picture_125585.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ magnet:?xt=urn:btih:779CE92DE8563C23E318FC38C3788846301A9E3F
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125587.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125587.jpgsave_picture_125587.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ magnet:?xt=urn:btih:EE16C91651427BCDE536A54836E0644162F45019
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125614.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125614.jpgsave_picture_125614.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ magnet:?xt=urn:btih:A2036AFB0E1C6258941874A9C6FB0CAC76C373E7
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125654.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125654.jpgsave_picture_125654.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ magnet:?xt=urn:btih:CEBF7DD9DEB933365D430A25CAB7B3F6FCA3FA48
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125701.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125701.jpgsave_picture_125701.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ magnet:?xt=urn:btih:A272F6ABC3A3705071D7ECC76091D4B56A65C60E
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125704.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125704.jpgsave_picture_125704.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ magnet:?xt=urn:btih:1D2E0BE95C86025069BBDC3E20399097F830648C
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125705.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125705.jpgsave_picture_125705.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ magnet:?xt=urn:btih:C0E9A9CE6DB789E46E49D6B0D1F1A4BA3B631F20
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125711.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125711.jpgsave_picture_125711.jpg" />
 </div>
 
 

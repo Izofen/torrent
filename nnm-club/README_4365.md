@@ -6,7 +6,7 @@
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136463.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136463.jpgsave_picture_136463.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:B44681F23D92553D4A89BE75A880A561FFE63791
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136464.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136464.jpgsave_picture_136464.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:5685AE5AA15D01FB961FB5C6A03130281E4346D3
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136469.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136469.jpgsave_picture_136469.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:AA28A2EE7F0C457685F21BAC9D0607D8253BC4DF
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136472.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136472.jpgsave_picture_136472.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:BCB462A86B106F280FD33CEC0A4F81DC6D050062
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136480.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136480.jpgsave_picture_136480.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Roberto & Bobby Schnitzer - Lifescapes: Spanish Escape (2012) [MP3|320 кб/с]<
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136486.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136486.jpgsave_picture_136486.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ magnet:?xt=urn:btih:F437E7EC0540DB15FDF8E7CFFC6FD7313B145F10
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136487.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136487.jpgsave_picture_136487.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ magnet:?xt=urn:btih:59E817CB28DCDC4FA9BAD31D605D65FC6D8AE5C5
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136489.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136489.jpgsave_picture_136489.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ magnet:?xt=urn:btih:D67E8EE337D792ADF2419901B44D8B7F4480A97E
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136490.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136490.jpgsave_picture_136490.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ Billy McLaughlin - Lifescapes: Relaxing Guitar (2009) [MP3|320 кб/с]<Instrume
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136496.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136496.jpgsave_picture_136496.jpg" />
 </div>
 
 
@@ -265,7 +265,7 @@ Abyssphere - Снова и снова (2012) 3 EP [MP3|320 кб/с]<Dark Metal, 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136497.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136497.jpgsave_picture_136497.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:BB495259D588DBE84DEBFC0A4328465B3BF304BC
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136502.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136502.jpgsave_picture_136502.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:81BDCD81AA34F7C5D4D7243AB56AE902A5EE94B3
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136511.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136511.jpgsave_picture_136511.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ magnet:?xt=urn:btih:38B5427AFAA71BBFDCA10D2FC0F76F17B2C63056
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136513.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136513.jpgsave_picture_136513.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:665EC4635683F023171E2ED7D280F4CF4EDDFBEB
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136516.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136516.jpgsave_picture_136516.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Heat - Heat (2012) [MP3|320 кб/с]<Old School Stoner Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136517.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136517.jpgsave_picture_136517.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ magnet:?xt=urn:btih:028D5D64CAB606F37E050E7A17C39BB071C81399
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136518.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136518.jpgsave_picture_136518.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ magnet:?xt=urn:btih:D03A45F1203174A9091BB025595E29128B3828DA
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136519.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136519.jpgsave_picture_136519.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ magnet:?xt=urn:btih:82BBCE8F30E18271F9AB90940A6461A1CA02B717
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136523.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136523.jpgsave_picture_136523.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ magnet:?xt=urn:btih:CDEE3A29E2B8594C1780450AC371D78F14243655
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136525.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136525.jpgsave_picture_136525.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ magnet:?xt=urn:btih:7B1AA6DA6B59352B8332D6AFA6D5E4BED18A6DE9
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136526.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136526.jpgsave_picture_136526.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ magnet:?xt=urn:btih:BE0CBF9F3D421BB07BFBAD9A7BD38D5F3CACE93B
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136529.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136529.jpgsave_picture_136529.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ magnet:?xt=urn:btih:00885642423259B0C3BD267F25CF93ADE697256E
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136531.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136531.jpgsave_picture_136531.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Shokran - Sixth Sense (EP) (2012) [MP3|320 кб/с]<Instrumental Progressive Mat
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136536.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136536.jpgsave_picture_136536.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ magnet:?xt=urn:btih:255C218EB5D4DC247828214E9C5DB6712D21B770
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136539.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136539.jpgsave_picture_136539.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ magnet:?xt=urn:btih:A5A2901DD190E939166FA718947AFB752F9365AF
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136541.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136541.jpgsave_picture_136541.jpg" />
 </div>
 
 

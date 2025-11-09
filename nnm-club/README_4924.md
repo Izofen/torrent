@@ -6,7 +6,7 @@
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154030.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154030.jpgsave_picture_154030.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:3E6914EA6F063DD438BD3F875F2B2C096D11ED55
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154031.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154031.jpgsave_picture_154031.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Udemy, Reuben Ward | Создание игры в жанре "Королевск
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154032.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154032.jpgsave_picture_154032.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ Athentech Perfectly Clear + WorkBench 3.5.6.1140 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154033.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154033.jpgsave_picture_154033.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ Firefox Browser 95.0.2 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154034.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154034.jpgsave_picture_154034.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ Finder Windows 1.5.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154035.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154035.jpgsave_picture_154035.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:BF3209A860DECFAE70CBE8A23D4D5077A7AE2AC5
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154036.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154036.jpgsave_picture_154036.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:800E1319EE0A8D798765E6182D548E1E8451F3A3
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154037.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154037.jpgsave_picture_154037.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:C23466859510D429E9F9125C1B6C9DEACBF31ED0
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154038.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154038.jpgsave_picture_154038.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ Windows 11 Manager 1.3.3 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154039.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154039.jpgsave_picture_154039.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:72A23F0F2CCC3A6653E4C782AF32602B39A80D5F
 >>Картинки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154040.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154040.jpgsave_picture_154040.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:D6AB2189BDAD4CE23A033B4469D8AD66F147E1E4
 >>Картинки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154041.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154041.jpgsave_picture_154041.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:CBD7F7D8807AFE5C6C6D3AD35A62EB8F19C4FBE3
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154042.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154042.jpgsave_picture_154042.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:F241E95BD52F7A37188DA940CB9552FCCA6E53E7
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154043.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154043.jpgsave_picture_154043.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Christmas Wonderland 11 / Рождество. Страна Чудес 11 (2020) 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154044.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154044.jpgsave_picture_154044.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ magnet:?xt=urn:btih:74BA1FCCEEE8EF1C5C1B87B23858FC03989208F3
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154045.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154045.jpgsave_picture_154045.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ magnet:?xt=urn:btih:0C7508F72A697AC626CDC3D3E1FC89A0CCD74200
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154046.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154046.jpgsave_picture_154046.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ magnet:?xt=urn:btih:ED522823AAD8E36FDD3C35526FD2917E836EAE96
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154047.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154047.jpgsave_picture_154047.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ Aiseesoft Mac PDF Converter Ultimate 3.2.80 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154048.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154048.jpgsave_picture_154048.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ magnet:?xt=urn:btih:405B35469A06D5CBBCFCF2B063BC76D3A77AA03B
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154049.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154049.jpgsave_picture_154049.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Wondershare PDFelement 9.3.2.2044  Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154050.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154050.jpgsave_picture_154050.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:B3FE5666818E09024E66B77FBB6069AEB90D9054
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154051.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154051.jpgsave_picture_154051.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ magnet:?xt=urn:btih:80FBCC36D1325BDB9F911E7186214E7AFC6C1DF3
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154052.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154052.jpgsave_picture_154052.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ magnet:?xt=urn:btih:E689B22549A28E9013EB786253D6DB495C670E42
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154053.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154053.jpgsave_picture_154053.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ foobar2000 1.3.14 Stable + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154054.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154054.jpgsave_picture_154054.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ magnet:?xt=urn:btih:01BBDF2820F52F23653E1D1533BB4520849EF9D4
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154055.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154055.jpgsave_picture_154055.jpg" />
 </div>
 
 

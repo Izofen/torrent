@@ -6,7 +6,7 @@
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58269.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58269.jpgsave_picture_58269.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:0884EB1A58AE6E7EACB3CFD898F5CE44E026796B
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58270.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58270.jpgsave_picture_58270.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Chihiro Himukai Always Walks Away (2021) [Multi] (1.0.1/dlc) License GOG [18+]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58271.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58271.jpgsave_picture_58271.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Sand Land (2024) [Multi] (1.0.3/dlc) Scene FAiRLIGHT [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58272.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58272.jpgsave_picture_58272.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ C.C. Catch - Collection (2024) [MP3|320 Kbps] <Disco>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58273.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58273.jpgsave_picture_58273.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:AF200B305907236A04000DD16ABD6DAE167DD56C
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58274.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58274.jpgsave_picture_58274.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:CC2D2C7CDEC6EDBB9D8B42E572E6898F6C2CC7D6
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58275.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58275.jpgsave_picture_58275.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ XCOM: Area 51 (2016) [Ru/En] (0.971) Repack/Mod AndyFox
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58276.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58276.jpgsave_picture_58276.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ BBC: Юлий Цезарь без прикрас / Julius Caesar Revealed (2017)
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58277.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58277.jpgsave_picture_58277.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:872A0BC425AC16E09575F0F763AE79FEEC264F18
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58278.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58278.jpgsave_picture_58278.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:CBEAD05207888DC61D40F01D200F700C786FB8D1
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58279.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58279.jpgsave_picture_58279.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ Truck Driver (2021) [Ru/Multi] (1.35.2.32/dlc) Scene DOGE
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58280.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58280.jpgsave_picture_58280.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Zakk Wylde & Black Label Society - 21 albums, 1 single, 37 CD (1994-2024) [FLAC|
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58281.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58281.jpgsave_picture_58281.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ magnet:?xt=urn:btih:3997D167DD48B1BEC28F5800D85BB71A57A077E4
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58282.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58282.jpgsave_picture_58282.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Michael Dunbar | Заточка режущего инструмента с по�
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58283.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58283.jpgsave_picture_58283.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ magnet:?xt=urn:btih:7B8E108843A7D7DA5971D402EEB2C82DF8136C7B
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58284.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58284.jpgsave_picture_58284.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ magnet:?xt=urn:btih:C96FFC57E0BB45849D217B720E4656B7604E8AC4
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58285.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58285.jpgsave_picture_58285.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ magnet:?xt=urn:btih:3BB6ED914B720D1947EAFDC9FF6C619C0D646911
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58286.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58286.jpgsave_picture_58286.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ magnet:?xt=urn:btih:A0AFE126BEF265A347BFEFD4AC8ED08E926E0DEA
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58287.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58287.jpgsave_picture_58287.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ Trailmakers (2019) [Ru/Multi] (1.8/dlc) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58288.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58288.jpgsave_picture_58288.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ magnet:?xt=urn:btih:F0624861B5332EEFAE612B50FA994D94B938F9F4
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58289.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58289.jpgsave_picture_58289.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ magnet:?xt=urn:btih:C326F64D688BE1F0926FEFCF2942EBFCF40E60D9
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58290.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58290.jpgsave_picture_58290.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ magnet:?xt=urn:btih:B463ACBF7C11C92B24569F94474D2BB2BF9A5314
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58291.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58291.jpgsave_picture_58291.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ magnet:?xt=urn:btih:86125E46879625CC8729769AD2AA012136A826EA
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58292.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58292.jpgsave_picture_58292.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ magnet:?xt=urn:btih:86125E46879625CC8729769AD2AA012136A826EA
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58293.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58293.jpgsave_picture_58293.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ magnet:?xt=urn:btih:AAAE1FBE90EE3B2D12E7DB61703C29605A336783
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58294.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58294.jpgsave_picture_58294.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171729.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171729.jpgsave_picture_171729.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:47F5A45A0BBACD84703263B59B8F0A04AB02F4D7
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171730.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171730.jpgsave_picture_171730.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:08C6310CA5ED2DEAA95DF0514236959FD6BB3C10
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171731.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171731.jpgsave_picture_171731.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:C41DB85F1698E1FFE4F9A9D52B214A1AF97AE84D
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171732.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171732.jpgsave_picture_171732.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ The Vazeline - Ты не КиШ, чтобы я тебя слушал (2023) [MP3
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171733.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171733.jpgsave_picture_171733.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ Opera GX 102.0.4880.104 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171734.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171734.jpgsave_picture_171734.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ VA - Roger Shah - Magic Island Vol. 12 (2023) [MP3|320 Kbps] <Trance, Progressiv
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171735.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171735.jpgsave_picture_171735.jpg" />
 </div>
 
 
@@ -187,7 +187,7 @@ Silver Trail - Late arrival (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171736.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171736.jpgsave_picture_171736.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Andres Ibanez Kautsch | Modern Concurrency on Apple Platforms (2022) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171737.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171737.jpgsave_picture_171737.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Mick Foster & Tony Allen - The Worlds Of Mick Foster & Tony Allen (1988) [FLAC 2
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171738.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171738.jpgsave_picture_171738.jpg" />
 </div>
 
 
@@ -265,7 +265,7 @@ magnet:?xt=urn:btih:51C7AD077D030FDB0A110D824B28F733C4F2FACD
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171739.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171739.jpgsave_picture_171739.jpg" />
 </div>
 
 
@@ -291,7 +291,7 @@ GeoGebra 6.0.807.0 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171740.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171740.jpgsave_picture_171740.jpg" />
 </div>
 
 
@@ -315,7 +315,7 @@ Virgin Steele - The House Of Atreus Act I & Act II (A Barbaric-Romantic Opera) (
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171741.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171741.jpgsave_picture_171741.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ magnet:?xt=urn:btih:AE593F6405ED18BC43042D9E0ADD8B8C588F5B4E
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171742.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171742.jpgsave_picture_171742.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Rival Sons - Studio Albums (9 releases) (2009-2023) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171743.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171743.jpgsave_picture_171743.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ Music Tag Editor Pro 7.5.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171744.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171744.jpgsave_picture_171744.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ Sublime Text 4.0 Build 4160 Dev for Mac [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171745.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171745.jpgsave_picture_171745.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:1DC05EBE7F8FFB078E258B5F1FEE5EDCD5A2FC62
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171746.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171746.jpgsave_picture_171746.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ magnet:?xt=urn:btih:D294A1433DFE14BD6A6E33C6A22502E687D1BFE1
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171747.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171747.jpgsave_picture_171747.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ magnet:?xt=urn:btih:4FAC5AA0C5FA7E5B9C397D9B44ADFF62BA2DC6DB
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171748.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171748.jpgsave_picture_171748.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ magnet:?xt=urn:btih:B87D658F116550BDC32B3E50A0F23C843F2CF680
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171749.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171749.jpgsave_picture_171749.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ iNet Network Scanner 3.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171750.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171750.jpgsave_picture_171750.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Lana Lane - Garden Of The Moon (2002) Special Edition, 2CD [FLAC|Lossless|image 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171751.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171751.jpgsave_picture_171751.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Sparkle Division - Foxy (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Electronic, 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171752.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171752.jpgsave_picture_171752.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ Existance - Wolf Attack (2021) Japanese Edition [FLAC|Lossless|image + .cue] <He
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171753.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171753.jpgsave_picture_171753.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ Lost Girls - Selvutsletter (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Art Pop, 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171754.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171754.jpgsave_picture_171754.jpg" />
 </div>
 
 

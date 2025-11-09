@@ -6,7 +6,7 @@ William Foley - Seven Spaces (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107539.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107539.jpgsave_picture_107539.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Emiliano Lasansky - The Optimist (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Con
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107540.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107540.jpgsave_picture_107540.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:3D61E806CFE6A19AA02941679D62FF350AF10490
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107541.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107541.jpgsave_picture_107541.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ VA - Global Trance - Summer 2024 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107542.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107542.jpgsave_picture_107542.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Avril Lavigne - Greatest Hits (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop Ro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107543.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107543.jpgsave_picture_107543.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Jethro Tull - Bursting Out (1978) Live, Steven Wilson Remix, 2024, Parlophone Re
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107544.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107544.jpgsave_picture_107544.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Babbba - Cabaret Conversation (Vol 1) (2024) [FLAC 24/48|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107545.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107545.jpgsave_picture_107545.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ magnet:?xt=urn:btih:87AB634026F1C6E90BACA2ADE0978D893627CF3B
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107546.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107546.jpgsave_picture_107546.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Jay Gordon and Blues Venom - Live at Woodystock Blues Festival (2024) [MP3|320 K
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107547.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107547.jpgsave_picture_107547.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ JetBrains RubyMine 2024.1.4 Repack by Sitego [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107548.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107548.jpgsave_picture_107548.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Christian Loffler - A Life (2024) [FLAC|Lossless|WEB-DL|tracks] <Organic House, 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107549.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107549.jpgsave_picture_107549.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ magnet:?xt=urn:btih:94B798B0CD45BAA8C6C6375133182859BC31068B
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107550.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107550.jpgsave_picture_107550.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ magnet:?xt=urn:btih:9E0FD9D23B40982ADC9C4A2014953459F8BED310
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107551.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107551.jpgsave_picture_107551.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ VA - DJ Hits Vol. 91 (1996) [OGG Vorbis|480 Kbps] <Electronic, Dance-pop, Euro-D
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107552.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107552.jpgsave_picture_107552.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Kygo - Kygo (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Deep House, Midtempo>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107553.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107553.jpgsave_picture_107553.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ magnet:?xt=urn:btih:BF81CC09B15F012D5DE635DB0A0ABD0B4AF6BE75
 >>Футбол. Чемпионаты Европы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107554.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107554.jpgsave_picture_107554.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ magnet:?xt=urn:btih:7600C08ECAE8328AB29904AACE9CEB028F6494F8
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107555.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107555.jpgsave_picture_107555.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Alanis Morissette - Supposed Former Infatuation Junkie (1998) Thank U Edition, 2
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107556.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107556.jpgsave_picture_107556.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ magnet:?xt=urn:btih:B96513700A464CAC5BF7911CC29EBB965F20D528
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107557.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107557.jpgsave_picture_107557.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ magnet:?xt=urn:btih:715A789E785C3BE277D97BF585965E9BFE1ABE93
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107558.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107558.jpgsave_picture_107558.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ magnet:?xt=urn:btih:CC5039687699F8DA138427CDE3B3A93A9248062F
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107559.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107559.jpgsave_picture_107559.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Eli & Fur - My Reflection (2024) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107560.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107560.jpgsave_picture_107560.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ magnet:?xt=urn:btih:3BF1FB4774C2075EB85B8A033FB534768203B9F7
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107561.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107561.jpgsave_picture_107561.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ Anita Ganeri | Amazing Earth (2021) [PDF] [EN]
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107562.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107562.jpgsave_picture_107562.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ magnet:?xt=urn:btih:3A423C3B507DDBA37BE34CF92D379A937877DA4F
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107563.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107563.jpgsave_picture_107563.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ magnet:?xt=urn:btih:0BCAD47DA061F66ED2D4B4E87B16BA5AA22B0427
 >>Единоборства, Бои без правил
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107564.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107564.jpgsave_picture_107564.jpg" />
 </div>
 
 

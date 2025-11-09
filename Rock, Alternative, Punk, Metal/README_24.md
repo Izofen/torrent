@@ -6,7 +6,7 @@ Linkin Park - Hybrid Theory (2000) Brazil, 936247755-2 [FLAC|Lossless|image + .c
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35404.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35404.jpgsave_picture_35404.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:0136941AEE43816A7391D2BE53445FE634ADA791
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35407.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35407.jpgsave_picture_35407.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Linkin Park - Live In Texas (2003) Japan, WPZR-30036~7 [FLAC|Lossless|image + .c
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35409.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35409.jpgsave_picture_35409.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Beck - Mutations (1998) CD, HDCD, Album [FLAC|Lossless|tracks + .cue] <Rock, Alt
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35420.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35420.jpgsave_picture_35420.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ magnet:?xt=urn:btih:E34BE71C7A67F83D6BAB7B2E0DDDA160FA744F8C
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35421.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35421.jpgsave_picture_35421.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ VA - Modern Power Ballads (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop-Rock, Ballad
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35426.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35426.jpgsave_picture_35426.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Linkin Park - Meteora (20th Anniversary Edition) (2003) Brazil, 0093624880974, A
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35435.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35435.jpgsave_picture_35435.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Linkin Park - Road To Revolution: Live At Milton Keynes (2008) Japan, WPZR-30320
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35436.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35436.jpgsave_picture_35436.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:1021B13B9931B5C9F04E4E04CBD9F43B0E61020C
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35480.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35480.jpgsave_picture_35480.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:B1ADC855CBE05C4D476D257E1507A3AF1185C736
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35526.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35526.jpgsave_picture_35526.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Quireboys - HalfPenny Dancer (2009) [FLAC|Lossless]<rock, glam>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35529.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35529.jpgsave_picture_35529.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:7EFEA90E8E411519D9F9DD1F08A4C10A594C17F5
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35543.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35543.jpgsave_picture_35543.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Black Stone Cherry - Hits, Rareties And Live (2014) [FLAC|Lossless]<Rock, Acoust
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35547.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35547.jpgsave_picture_35547.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ No To Co - So What (1970) [FLAC|Lossless]<Folk-Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35550.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35550.jpgsave_picture_35550.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Brian Johnson - Brian Johnson & Geordie & AC/DC (2007) [FLAC|Lossless]<Hard Rock
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35568.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35568.jpgsave_picture_35568.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ The Beatles - Hot As Sun (2010) Bootleg [FLAC|Lossless]<Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35573.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35573.jpgsave_picture_35573.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Cinderella - Live At The Mohegan Sun (2010) [FLAC|Lossless]<Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35575.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35575.jpgsave_picture_35575.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Electric Light Orchestra - Definitive Collection (1992) [FLAC|Lossless]<Art-Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35582.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35582.jpgsave_picture_35582.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Status Quo - Driving to Glory (2024) [FLAC|Lossless|WEB-DL|tracks] <Classic Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35642.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35642.jpgsave_picture_35642.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:51429DAA39CA1ED042A16D83E99C249C2BEDDD69
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35730.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35730.jpgsave_picture_35730.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:9DCC2F585935455AD88E6D4789FD6B88C8F4E59B
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35731.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35731.jpgsave_picture_35731.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:AE6F142F11814B2249C3282F0B64D1B0470D1444
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35732.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35732.jpgsave_picture_35732.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ magnet:?xt=urn:btih:FF33E8A1E7EE464D1D50F6539D40C20F651AC6C3
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35770.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35770.jpgsave_picture_35770.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ magnet:?xt=urn:btih:1F3DFEAC36F7AC448AC87E785CDB963EE9CC9E73
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35788.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35788.jpgsave_picture_35788.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Rev Theory - Salvation Nowhere (2024) [FLAC|Lossless|WEB-DL|tracks] <Alt. Metal,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35822.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35822.jpgsave_picture_35822.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ magnet:?xt=urn:btih:9D1579F8EBA534750E79463D0D75E097AB146737
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35828.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35828.jpgsave_picture_35828.jpg" />
 </div>
 
 

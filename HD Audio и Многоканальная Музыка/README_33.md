@@ -6,7 +6,7 @@ Trapeze - Lost Tapes, Vol. 2 (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Ro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37271.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37271.jpgsave_picture_37271.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Nickelback - Live From Nashville (Live From Nashville) (2024) [FLAC 24/96|Lossle
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37278.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37278.jpgsave_picture_37278.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ George Harrison - Living in the Material World (50th Anniversary) (1973) Reissue
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37284.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37284.jpgsave_picture_37284.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Abc - 2 Albums (2022, 2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Synthpop>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37289.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37289.jpgsave_picture_37289.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Starchaser - Into The Great Unknown (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37290.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37290.jpgsave_picture_37290.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ As I Lay Dying - Through Storms Ahead (2024) [FLAC 24/48|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37291.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37291.jpgsave_picture_37291.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Lionville - Supernatural (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic R
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37293.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37293.jpgsave_picture_37293.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Linkin Park - From Zero (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternative 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37302.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37302.jpgsave_picture_37302.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ di liberta - Dictum (2020) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Indi Folk, Dar
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37312.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37312.jpgsave_picture_37312.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ The Black Keys - Ohio Players (Trophy Edition) (2024) [FLAC 24/96|Lossless|WEB-D
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37313.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37313.jpgsave_picture_37313.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Citizen Soldier - Icarus (2024) [FLAC 24/44.1,48|Lossless|WEB-DL|tracks] <Alt.Me
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37370.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37370.jpgsave_picture_37370.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Kreator - Studio Albums (9 releases) (1995-2022) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37507.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37507.jpgsave_picture_37507.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Blind Guardian - Studio Albums (13 releases) (1988-2024) hand made [restored, de
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37545.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37545.jpgsave_picture_37545.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ Shaka Ponk - Shaka Ponk (2023) Deluxe Edition, 2024, Tot Ou Tard [FLAC 24/44.1|L
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37570.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37570.jpgsave_picture_37570.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ Crippled Black Phoenix - The Wolf Changes Its Fur But Not Its Nature (2024) [FLA
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37577.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37577.jpgsave_picture_37577.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Annalisa - E Poi Siamo Finiti Nel Vortice (2023)  [DSD64 2.0|1bit/2822,4kHz |SAC
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37656.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37656.jpgsave_picture_37656.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Primal Scream - Come Ahead (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alterna
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37670.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37670.jpgsave_picture_37670.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Jean Michel Jarre - Zoolook (1984) 40th Anniversary - new mastering, 2024, Sony 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37757.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37757.jpgsave_picture_37757.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Paragon - Studio Albums (13 releases) (1995-2024) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37759.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37759.jpgsave_picture_37759.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Depressive Witches - Studio Albums (3 releases) (2021-2024) hand made [restored,
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37774.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37774.jpgsave_picture_37774.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Delain - Studio Albums (11 releases) (2006-2024) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37797.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37797.jpgsave_picture_37797.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Neal Morse - No Hill For A Climber (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <P
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37877.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37877.jpgsave_picture_37877.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Eldest 11 - Studio Albums (10 releases) (2009-2024) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37910.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37910.jpgsave_picture_37910.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Astral Doors - Studio Albums (10 releases) (2003-2024) hand made [restored, decl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37977.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37977.jpgsave_picture_37977.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Sonata Arctica - Studio Albums (16 releases) (1999-2024) hand made [restored, de
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38123.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38123.jpgsave_picture_38123.jpg" />
 </div>
 
 
@@ -682,7 +682,7 @@ Chris Dover - Last Prairie Dance (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <B
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38172.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38172.jpgsave_picture_38172.jpg" />
 </div>
 
 

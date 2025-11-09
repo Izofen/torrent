@@ -6,7 +6,7 @@
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146281.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146281.jpgsave_picture_146281.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:8C11D75D373AC732489CC7071155B5A0A98FA954
 >>Игровые журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146282.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146282.jpgsave_picture_146282.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ AnyMP4 DVD Converter 8.2.12 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146283.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146283.jpgsave_picture_146283.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:98A70EC1FFD95265D3FCFE6777A3890BB87485CF
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146285.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146285.jpgsave_picture_146285.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:98A70EC1FFD95265D3FCFE6777A3890BB87485CF
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146286.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146286.jpgsave_picture_146286.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Ore ga Suki na no wa Imouto Dakedo Imouto ja Nai / My Sister, My Writer / Я л�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146288.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146288.jpgsave_picture_146288.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ Terromania - Nyctophobic (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Doom Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146289.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146289.jpgsave_picture_146289.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:31F9207D5CD0EC51E872E4C9B29F177DE95C1D49
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146290.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146290.jpgsave_picture_146290.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ ManyCam Virtual Webcam Free 5.1.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146291.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146291.jpgsave_picture_146291.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ magnet:?xt=urn:btih:40AF4337DB025DD1C5F6A591E38F5B8456EC04DA
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146292.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146292.jpgsave_picture_146292.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ Tinderbox 8 v8.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146293.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146293.jpgsave_picture_146293.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ ZD Soft Screen Recorder 10.2.6 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146295.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146295.jpgsave_picture_146295.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ Best HD Wallpapers Pack (15.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146296.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146296.jpgsave_picture_146296.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ Cubs of big cats wallpaper (14.12.12) [Wallpapers]
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146297.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146297.jpgsave_picture_146297.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ magnet:?xt=urn:btih:254132C5F041438011B9128B6A23D493A60D2735
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146298.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146298.jpgsave_picture_146298.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Sarah Brightman - Gala: The Collection (2016) Limited Edition [MP3|320 Kbps] <Po
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146299.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146299.jpgsave_picture_146299.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ magnet:?xt=urn:btih:301D24E282EA219EB09E55FBB587EF8F401802C2
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146300.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146300.jpgsave_picture_146300.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Integrity Plus 12.8.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146301.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146301.jpgsave_picture_146301.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ Librefox 2.1 Firefox 64.0.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146302.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146302.jpgsave_picture_146302.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ magnet:?xt=urn:btih:41F911C2B2A73F47A44FBBB7807A8F0964A61B0B
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146304.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146304.jpgsave_picture_146304.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ magnet:?xt=urn:btih:030845CE3FEA4D6F86E178A6331577EA69211616
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146305.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146305.jpgsave_picture_146305.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ magnet:?xt=urn:btih:0098F94DD17FC7FD45E316B66412B49FFC0A9ADB
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146306.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146306.jpgsave_picture_146306.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ The Bat! Professional 7.1.6.0 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146307.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146307.jpgsave_picture_146307.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ Ken En Ken: Aoki Kagayaki | Xuan Yuan Sword Luminary | Меч Жёлтого и�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146308.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146308.jpgsave_picture_146308.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ magnet:?xt=urn:btih:45E3968BEF205A22EAEA1EF22988A1425805FDE6
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146311.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146311.jpgsave_picture_146311.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ Tiesto - Club Life 298 (15.12.2012) [MP3|192 кб/с]<House / Electro House>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146312.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146312.jpgsave_picture_146312.jpg" />
 </div>
 
 

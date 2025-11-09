@@ -6,7 +6,7 @@ Mount and Blade: Warband (2010) [Multi] (2.069/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43541.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43541.jpgsave_picture_43541.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Borderlands: Trilogy (2013-2019) [Ru/Multi] (1.5.0/1.8.5/1.0.9/dlc) Repack dixen
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43542.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43542.jpgsave_picture_43542.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Leo: The Firefighter Cat (2024) [Multi] (1.0) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43548.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43548.jpgsave_picture_43548.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Go Mecha Ball (2024) [Ru/Multi] (20240531) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43553.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43553.jpgsave_picture_43553.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ MULLET MADJACK (2024) [Ru/Multi] (1.1) Repack Wagner
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43564.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43564.jpgsave_picture_43564.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Yarimono (2024) [Multi] (1.16) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43579.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43579.jpgsave_picture_43579.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Everlasting Flowers - Where there is a will, there is a way (2024) [Multi] (1.0)
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43582.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43582.jpgsave_picture_43582.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ LUNARiA -Virtualized Moonchild- (2024) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43586.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43586.jpgsave_picture_43586.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ MARVEL vs. CAPCOM Fighting Collection: Arcade Classics (2024) [Ru/Multi] (1.0) R
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43595.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43595.jpgsave_picture_43595.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Forts (2017) [Ru/Multi] (2.34/dlc) Scene Rune
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43600.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43600.jpgsave_picture_43600.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Kingdom Rush Vengeance (2020) [Ru/Multi] (1.16.0.56/dlc) Scene Tenoke
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43609.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43609.jpgsave_picture_43609.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ MULLET MADJACK (2024) [Ru/Multi] (1.1) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43615.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43615.jpgsave_picture_43615.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Stardiver (2024) [Ru/Multi] (1.0) Scene Rune
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43618.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43618.jpgsave_picture_43618.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Crysis 2 (2011) [Ru/En] (1.9) Repack dixen18 [Limited Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43622.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43622.jpgsave_picture_43622.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Selfloss (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43629.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43629.jpgsave_picture_43629.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Caravan SandWitch (2024) [Multi] (1.12.71.00/dlc) Repack FitGirl [Digital Collec
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43638.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43638.jpgsave_picture_43638.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Caravan SandWitch (2024) [Multi] (1.12.71.00/dlc) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43697.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43697.jpgsave_picture_43697.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Sunrise GP (2024) [Multi] (1.0) Scene Tenoke
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43698.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43698.jpgsave_picture_43698.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Kanji Legends (2024) [En] (1.0) Scene Tenoke
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43701.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43701.jpgsave_picture_43701.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ USC: Counterforce (2023) [Multi] (1.01.0a1/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43702.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43702.jpgsave_picture_43702.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Dreamlike Love with Seira (2024) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43709.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43709.jpgsave_picture_43709.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ We Heist Too (2024) [En] (5.3.1) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43710.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43710.jpgsave_picture_43710.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Grocery Simulator (2024) [En] (1.0) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43801.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43801.jpgsave_picture_43801.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Nickelodeon All-Star Brawl 2 (2023) [Multi] (1.12.0/dlc) Scene Rune
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43802.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43802.jpgsave_picture_43802.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Plank Builders (2024) [Ru/Multi] (1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43816.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43816.jpgsave_picture_43816.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Spiritfall (2024) [Ru/Multi] (1.5.11) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43823.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43823.jpgsave_picture_43823.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192808.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192808.jpgsave_picture_192808.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:784A9F475A8FDAE9DBEE00E34AB41B6CC57BD6E0
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192809.jpgsave_picture_192809.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:1CD90A392E7CE75E5548518F6666A6D388C4567A
 >>Библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192810.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192810.jpgsave_picture_192810.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ VA - Wonderful Days - Best of 90s Vol. 2 (2022) CD, Compilation [MP3|320 Kbps] <
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192811.jpgsave_picture_192811.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:315666731FF37C18737BFD8E1E54E4345370F4FC
 >>Отечественное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192812.jpgsave_picture_192812.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Armored Core VI: Fires of Rubicon (2023) [Ru/Multi] (11893351/dlc) Repack DjDI [
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192813.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192813.jpgsave_picture_192813.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:8EC0D34EE2F86C9181CE2B06BC35BFEDD01074C5
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192814.jpgsave_picture_192814.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:8BBF81262A9F121471DE0E968D107EDA580DDFA9
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192815.jpgsave_picture_192815.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ Greg L. Turnquist | Learning Spring Boot 3.0, 3rd Edition (2022) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192816.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192816.jpgsave_picture_192816.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:789F9948E0C0B5CBAA63B80B0E942465E5BA8A24
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192817.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192817.jpgsave_picture_192817.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:FDA37DACCDA433A8FD68F9E1DF3F47EC439B82BE
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192818.jpgsave_picture_192818.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ Microsoft Edge 107.0.1418.26 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192819.jpgsave_picture_192819.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ magnet:?xt=urn:btih:8A1757CBC5E8667B034480D8133C797F33E242DF
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192820.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192820.jpgsave_picture_192820.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ AIMP 5.10 Build 2410 RC + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192821.jpgsave_picture_192821.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ magnet:?xt=urn:btih:3064707FAA96E1863AB7C0802EE1CBB989C44B3C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192822.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192822.jpgsave_picture_192822.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ magnet:?xt=urn:btih:ACC05F12B141AFFC3D051955035EF62082A2AAAC
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192823.jpgsave_picture_192823.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ magnet:?xt=urn:btih:A69052105B4D6FC4C631B52F1E2627A65D7E2994
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192824.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192824.jpgsave_picture_192824.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ magnet:?xt=urn:btih:009A1BCD1B9E25D25D2F51935A995A6F360627FC
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192825.jpgsave_picture_192825.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ KMSAuto++ Portable 1.8.0 by Ratiborus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192826.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192826.jpgsave_picture_192826.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ magnet:?xt=urn:btih:863072EB151903D197E557A7FAC3FFC39DFFB962
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192827.jpgsave_picture_192827.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Twinkstar 8.4.2000.2209 Portable by Cento8 [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192830.jpgsave_picture_192830.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ GoodbyeDPI 0.2.2. Launcher 6.1.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192831.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192831.jpgsave_picture_192831.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ IsMyHdOK 3.77 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192832.jpgsave_picture_192832.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ magnet:?xt=urn:btih:94CB01E60F4F1ABC93C0CFC8B578D3CF3723F90D
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192833.jpgsave_picture_192833.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ magnet:?xt=urn:btih:52A996609C68D3AA0942F1976E67A35BF7272FE2
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192834.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192834.jpgsave_picture_192834.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ magnet:?xt=urn:btih:D4151B0B6DF6BB87086B665F004970A88BAD12C0
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192835.jpgsave_picture_192835.jpg" />
 </div>
 
 

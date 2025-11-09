@@ -6,7 +6,7 @@ Paleo Pines (2023) [Ru/Multi] (1.1.26) Scene Rune
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173321.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173321.jpgsave_picture_173321.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:18EB708DBC60A42C7932E4808EB0D6A09A333DBE
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173322.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173322.jpgsave_picture_173322.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Aiseesoft FoneLab for Android 5.0.22 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173323.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173323.jpgsave_picture_173323.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Microsoft бесплатно продлит лицензии на конфере
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173324.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173324.jpgsave_picture_173324.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Microsoft продолжает предоставлять бесплатные �
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173325.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173325.jpgsave_picture_173325.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:9961745C1BF0FFABE372644C1549C5427EFDE8F7
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173326.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173326.jpgsave_picture_173326.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ VA - Sexy Bath 4 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173327.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173327.jpgsave_picture_173327.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ AIDA64 Extreme Edition 6.92.6614 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173328.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173328.jpgsave_picture_173328.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ KeePass Password Safe 2.55 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173329.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173329.jpgsave_picture_173329.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:64D49DFAD812840473FF2A2F75BBB7D3F2E3FE31
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173330.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173330.jpgsave_picture_173330.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:DA1806746423CA17326D6492C50A90516802736A
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173331.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173331.jpgsave_picture_173331.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:AF82F5EA264E84EB1423D0837ED99705FD57DCF3
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173332.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173332.jpgsave_picture_173332.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ SD Maid v5.6.2 Extra Mod + Dark-Venom Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173333.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173333.jpgsave_picture_173333.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Gloomy Tales 2: One-Way Ticket (2023) [En] (1.0) Unofficial [Collector's Edition
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173334.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173334.jpgsave_picture_173334.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ magnet:?xt=urn:btih:8D91D58115A0F4213BAD942BE28E08E59444550D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173335.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173335.jpgsave_picture_173335.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:131CF26A3C1F1BA648D0F5DD1318361243FA8F70
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173336.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173336.jpgsave_picture_173336.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Calibre 6.28.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173337.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173337.jpgsave_picture_173337.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Photo Retouch v2.3.4 Mod by Alex.Strannik [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173338.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173338.jpgsave_picture_173338.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ ImgDrive 2.0.8 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173339.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173339.jpgsave_picture_173339.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ magnet:?xt=urn:btih:739E44823C3B2BB0D0BFD360F04C674CE10CA720
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173340.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173340.jpgsave_picture_173340.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ VA - Love & Passion: The Sexiest Tantric Sensual Music for Sex (2023) [FLAC|Loss
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173341.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173341.jpgsave_picture_173341.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ magnet:?xt=urn:btih:AB45D998F78F0223C2DD5EDDF34989013969BC7D
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173342.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173342.jpgsave_picture_173342.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ DNS Changer 2.1.10 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173343.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173343.jpgsave_picture_173343.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ FanControl V172 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173344.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173344.jpgsave_picture_173344.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Stand Up (2023.10.13) SATRip (сезон 11, выпуск 4)
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173345.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173345.jpgsave_picture_173345.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ Kiss - Destroyer (1976) 4CD (45th Anniversary Deluxe Ed.) (Remastered-2021) [FLA
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173346.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173346.jpgsave_picture_173346.jpg" />
 </div>
 
 

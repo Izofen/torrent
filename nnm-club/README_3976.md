@@ -6,7 +6,7 @@ Angr - II (2023) [MP3|320 Kbps] <Black Metal, Death Metal, Doom Metal>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123899.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123899.jpgsave_picture_123899.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Giant Crossman - Time Bending Mass (2024) [FLAC|Lossless|WEB-DL|tracks] <Stoner,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123900.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123900.jpgsave_picture_123900.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Omicron - Entropic Entity (2023) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric symp
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123901.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123901.jpgsave_picture_123901.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Without Face - Astronomicon (2002) [FLAC|Lossless|image + .cue] <Progressive Got
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123902.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123902.jpgsave_picture_123902.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Even Vast - Teach Me How to Bleed (2007) [FLAC|Lossless|image + .cue] <Gothic Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123903.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123903.jpgsave_picture_123903.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Cancer Christ - God is Violence (2024) [FLAC|Lossless|WEB-DL|tracks] <Thrash Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123904.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123904.jpgsave_picture_123904.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ After Apocalypse - After Apocalypse (2015) [FLAC|Lossless|image + .cue] <Symphon
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123905.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123905.jpgsave_picture_123905.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Stefan Gunnarsson - Stefan Gunnarsson (2010) [FLAC|Lossless|image + .cue] <Westc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123906.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123906.jpgsave_picture_123906.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ Luzbel - Anthología Perdida I (1998) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123907.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123907.jpgsave_picture_123907.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ VA - Winter Dance Covers 2024 (2024) [MP3|320 Kbps] <Dance, Club, House, Electro
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123908.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123908.jpgsave_picture_123908.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ magnet:?xt=urn:btih:3AE3266E4F7A0683588AF2D7F3CC94B023A24D80
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123909.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123909.jpgsave_picture_123909.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ The Jazz Kings - Blue Jazz (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Blues>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123910.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123910.jpgsave_picture_123910.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ magnet:?xt=urn:btih:237165C1E5F8C45A991D323505BFB4843FD35116
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123911.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123911.jpgsave_picture_123911.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Antania - The God Complex (2024) [FLAC|Lossless|WEB-DL|tracks] <Industrial Metal
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123912.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123912.jpgsave_picture_123912.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ VA - Ronny's Pop Show 25 (1994) 2 CD [OGG Vorbis|480 Kbps] <Electronic, Hip Hop,
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123913.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123913.jpgsave_picture_123913.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ magnet:?xt=urn:btih:1FD217088D258F5767ED23D0B49FF951B4BD86BB
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123914.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123914.jpgsave_picture_123914.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Pages - Pages (1981) Japanese Edition, Reissue, Remastered, 2001, Capitol Record
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123915.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123915.jpgsave_picture_123915.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ magnet:?xt=urn:btih:A027DC475AAC583AC5F2F226D75450604DB618AE
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123916.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123916.jpgsave_picture_123916.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ magnet:?xt=urn:btih:BC499A8077A0902841AD188FBA01570DAE3D7151
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123917.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123917.jpgsave_picture_123917.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ magnet:?xt=urn:btih:3F91D864525DF78322E5F6B7658156511798B53F
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123918.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123918.jpgsave_picture_123918.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Ethel Waters - Cocktail Hour (1920-e - 1940-e) 2CD, 2001, Allegro [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123919.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123919.jpgsave_picture_123919.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ yungatita - Shoelace & A Knot (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative,
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123920.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123920.jpgsave_picture_123920.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ magnet:?xt=urn:btih:D1DB98018F23107A1F92685D41B955AF599C758D
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123921.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123921.jpgsave_picture_123921.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ magnet:?xt=urn:btih:EB76D2691A0B3518AFF6AF1E44A29583B23BA7F8
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123922.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123922.jpgsave_picture_123922.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ Orphaned Land - A Heaven You May Create (30th Anniversary / Live In Tel-Aviv) (2
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123923.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123923.jpgsave_picture_123923.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ Numenor - Sword and Sorcery (2015) Ressued-2016 [FLAC|Lossless|image + .cue] <Sy
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123924.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123924.jpgsave_picture_123924.jpg" />
 </div>
 
 

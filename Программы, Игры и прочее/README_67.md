@@ -6,7 +6,7 @@ Plus Messenger (Telegram+) v10.2.3.0 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162292.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162292.jpgsave_picture_162292.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ BlockSudoku / Кудоку-Вуди Блок v2.6.1 Mod by vadj [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162381.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162381.jpgsave_picture_162381.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:240523AC43B2CE9B9B99525546A332CD252DD81E
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162389.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162389.jpgsave_picture_162389.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:E222E9633DBE36E93AB40E405A7B584AB694990E
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162395.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162395.jpgsave_picture_162395.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:2425CE09A9776DF8B9C6D77B3C90091C1585C488
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162398.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162398.jpgsave_picture_162398.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Blaze v1.6.4 [Ru/Multi] - Виртуальный Камин с разрешен�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162601.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162601.jpgsave_picture_162601.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ YouTube Downloader v7.1 [Ru/En] (обновляемая)
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162654.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162654.jpgsave_picture_162654.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ HD VideoBox Plus v2.31 FIX-20221215 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162784.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162784.jpgsave_picture_162784.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ JetAudio 12.0.1 Mod by derrin [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163093.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163093.jpgsave_picture_163093.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ CoinSnap - Value Guide v1.2.9 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163121.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163121.jpgsave_picture_163121.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Guitar Tuna v6.16.0 Pro [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163416.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163416.jpgsave_picture_163416.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Dendy Games (645 in 1) v3.11 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163482.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163482.jpgsave_picture_163482.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ ARK: Survival Evolved v2.0.21 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163597.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163597.jpgsave_picture_163597.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Zona v2.0.152 Mod by Timozhai [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163673.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163673.jpgsave_picture_163673.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ VoltLab v5.1.4 Pro [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163744.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163744.jpgsave_picture_163744.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Happy Color v2.8.14 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163793.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163793.jpgsave_picture_163793.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Picsart Photo & Video Editor v21.3.2 Mod by CXVUSER [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163828.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163828.jpgsave_picture_163828.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ magnet:?xt=urn:btih:1631E6E38327B75A369684BCDCED65C5754650AA
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163943.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163943.jpgsave_picture_163943.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ Root Explorer / Root Проводник 4.12.3 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164067.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164067.jpgsave_picture_164067.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Revo Uninstaller Mobile 3.2.380G Mod by Timozhai [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164088.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164088.jpgsave_picture_164088.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Psiphon Pro 386 Mod by DEXUNPACKER [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164157.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164157.jpgsave_picture_164157.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Jotr: Quickly Draw & Sketch 4.4.4 Pro [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164186.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164186.jpgsave_picture_164186.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ CPU-Z (Mobile) v1.41 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164269.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164269.jpgsave_picture_164269.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Enpass Password Manager Pro v6.7.1.572 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164282.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164282.jpgsave_picture_164282.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ KeePassDX Pro v3.0.4 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164297.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164297.jpgsave_picture_164297.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ magnet:?xt=urn:btih:39D286EA986006F0514C14018BA164F436445024
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164639.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164639.jpgsave_picture_164639.jpg" />
 </div>
 
 

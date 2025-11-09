@@ -6,7 +6,7 @@ Red Zone Planet - Asteria (2023) [MP3|320 Kbps] <Synthwave, Space Rock>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116393.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116393.jpgsave_picture_116393.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:F2153F3D599FF08DD9AD01FA09D0F6F0A4007FA0
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116394.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116394.jpgsave_picture_116394.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ magnet:?xt=urn:btih:1BB96E335BD30173518B6E276F7EF4F4AE7AB375
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116395.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116395.jpgsave_picture_116395.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ DefenderKiller 11.2.2 Portable by Vlado [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116396.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116396.jpgsave_picture_116396.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ magnet:?xt=urn:btih:F53AD686C4AEC1E5F18118FB97AD5AB53C872AC2
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116397.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116397.jpgsave_picture_116397.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ magnet:?xt=urn:btih:C336CF896BC98076FD0CC3A160B6C0220AE7B0D1
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116398.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116398.jpgsave_picture_116398.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ Hiren’s BootCD PE x64 v1.0.5 (20 February 2024) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116399.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116399.jpgsave_picture_116399.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:7E820BE1D23669766A960CA8FA5B26927705E66D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116400.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116400.jpgsave_picture_116400.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:13BBF4F1679761E0E2B8BE5AB2A34E489CC80C6F
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116401.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116401.jpgsave_picture_116401.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ Capture One 23 Enterprise 16.3.6.1949 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116402.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116402.jpgsave_picture_116402.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ ASCOMP Cleaning Suite Pro 4.010 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116403.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116403.jpgsave_picture_116403.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ CPUID HWMonitor Pro 1.53 (x64) Portable by Padre Pedro [En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116404.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116404.jpgsave_picture_116404.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:1D332918BE0DE7EAC8696767AE03444AD3A58B6C
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116405.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116405.jpgsave_picture_116405.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:E00E27591BFF7621689B5152ABE7CC52A152687F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116406.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116406.jpgsave_picture_116406.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ magnet:?xt=urn:btih:E00E27591BFF7621689B5152ABE7CC52A152687F
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116407.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116407.jpgsave_picture_116407.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ magnet:?xt=urn:btih:FCE1D114F136B2CEA25CCDA23F545F9802325168
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116408.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116408.jpgsave_picture_116408.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ magnet:?xt=urn:btih:FCE1D114F136B2CEA25CCDA23F545F9802325168
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116409.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116409.jpgsave_picture_116409.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ CPUID HWMonitor 1.53 + Portable [En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116410.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116410.jpgsave_picture_116410.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ magnet:?xt=urn:btih:427AD4622B8468009266F9DF50BFDE906338123C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116411.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116411.jpgsave_picture_116411.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ magnet:?xt=urn:btih:EF1EC6B9C4D37E5DB5FFEF9841AB9FC373146F49
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116412.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116412.jpgsave_picture_116412.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Structure Studios - VIP3D Suite v3 2023.1.4 by Zmco [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116413.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116413.jpgsave_picture_116413.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ OneLoupe 5.77 Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116414.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116414.jpgsave_picture_116414.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Gentoo Linux 2024-02-18 [i386/amd64] 1xCD, 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116415.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116415.jpgsave_picture_116415.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ magnet:?xt=urn:btih:1424E846034A9020573444D1E8B64C4866DBBE3D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116416.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116416.jpgsave_picture_116416.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ magnet:?xt=urn:btih:4837E0547F1151C576DA34E1C558E3EE235801FB
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116417.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116417.jpgsave_picture_116417.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ NVIDIA NVFlash 5.821.0 (x64) Portable [Ru/En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116418.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116418.jpgsave_picture_116418.jpg" />
 </div>
 
 

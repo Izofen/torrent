@@ -6,7 +6,7 @@ Udemy, Ardit Sulce | Python Mega Course: Learn Python in 60 Days, Build 20 Apps 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247409.jpgsave_picture_247409.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Udemy, Jonas Schmedtmann | The Ultimate React Course 2023: React, Redux & More  
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247431.jpgsave_picture_247431.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:14189FC9E9270A0A96EEE2A00BF783A948C34EBF
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247525.jpgsave_picture_247525.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ Udemy, Sean Bradley | Zabbix 6 Application and Network Monitoring (2022) WEB-DL 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247532.jpgsave_picture_247532.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Udemy, Антон Ларичев | NestJS - с нуля, современный 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247542.jpgsave_picture_247542.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Slurm (Слёрм), Всеволод Севостьянов, Павел Сели
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247543.jpgsave_picture_247543.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ Udemy, Neville Adams | The Unreal Arsenal: Learn C++ and Unreal Engine (2023) PC
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247679.jpgsave_picture_247679.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ Pluralsight | Учебные курсы компании Pluralsight [2012] [PCR
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_248103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_248103.jpgsave_picture_248103.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Pluralsight | Учебные курсы компании Pluralsight [2012] [PCR
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248377.jpgsave_picture_248377.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ magnet:?xt=urn:btih:1C2C43071D9A28B57EC2C788FFBE307B896A04AF
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248378.jpgsave_picture_248378.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ magnet:?xt=urn:btih:80924EF4580A1F5A9598959C9C857745A41B7126
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248670.jpgsave_picture_248670.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ magnet:?xt=urn:btih:0B2683C6BDC3519F0E24D3EDECCCCBC055EF5EE5
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248671.jpgsave_picture_248671.jpg" />
 </div>
 
 
@@ -314,7 +314,7 @@ magnet:?xt=urn:btih:B2DBC6834C7279597A3AF890F42E3A8857841B98
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248672.jpgsave_picture_248672.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ magnet:?xt=urn:btih:8CA41591B1AFE5A73FA89CEDB88648B66D659F4A
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248675.jpgsave_picture_248675.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ magnet:?xt=urn:btih:1B330D58A748C4786E26642CF8595385DD6C4C24
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248677.jpgsave_picture_248677.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ Thinknetica Pro, Алексей Наумов | Внутреннее устрой
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250041.jpgsave_picture_250041.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ TutorPlace, Наталья Терновская | "1С:Управление на
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250441.jpgsave_picture_250441.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ magnet:?xt=urn:btih:BCD53ED7AF2DB38C20B7C08C649A7881C0DFF0D6
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250454.jpgsave_picture_250454.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Max Gor | Работа в системе «1С:Медицина. Больниц�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250617.jpgsave_picture_250617.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:236D85297322108CAFAF5813E6FA63E256CC3761
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251050.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251050.jpgsave_picture_251050.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ magnet:?xt=urn:btih:828617947D43D99961DEAC8D399A04E55EE4567C
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251339.jpgsave_picture_251339.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Skillbox, Е. Брызгалина, А. Кузнецов, Н. Клюева | Ф�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_251811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251811.jpgsave_picture_251811.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Udemy, Andrey Sobolev | Микросервисы на Python (asyncio, starlette
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251960.jpgsave_picture_251960.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ Ulbi TV, Тимур Ульби | Продвинутый Frontend. В Production 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251963.jpgsave_picture_251963.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Javascript.ninja, Илья Климов | Зимняя школа по Typescrip
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251978.jpgsave_picture_251978.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ itProger |  Профессия Python разработчик (2020) WEB-DL [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252041.jpgsave_picture_252041.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77152.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77152.jpgsave_picture_77152.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Cephei MC - Beat and Piano (Сборник красивой и чувствен�
 >>RnB, Reggae
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77161.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77161.jpgsave_picture_77161.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ magnet:?xt=urn:btih:80A06F3B5F2BC74B2BA3278D9A0B08FD334FFAB8
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77162.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77162.jpgsave_picture_77162.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:5D4BEAC4712CAC0775622DAAC6474AFD04A082AB
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77172.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77172.jpgsave_picture_77172.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ magnet:?xt=urn:btih:5D4BEAC4712CAC0775622DAAC6474AFD04A082AB
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77173.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77173.jpgsave_picture_77173.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Foreigner: Greatest Hits/Soundstage (2008)[720p] BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77184.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77184.jpgsave_picture_77184.jpg" />
 </div>
 
 
@@ -161,7 +161,7 @@ Foreigner: Greatest Hits/Soundstage (2008)[720p] BDRip
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77185.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77185.jpgsave_picture_77185.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ Foreigner: Greatest Hits/Soundstage (2008)[720p] BDRip
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77188.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77188.jpgsave_picture_77188.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ magnet:?xt=urn:btih:72B6DB71758F05FE55B04417C52944724C49A827
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77192.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77192.jpgsave_picture_77192.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ magnet:?xt=urn:btih:EC51108B6959A6B5226E6D1251AB479EC1799BDD
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77196.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77196.jpgsave_picture_77196.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ magnet:?xt=urn:btih:C6C9495B4FEC258A3698CCA664CD976EAB658CE1
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77197.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77197.jpgsave_picture_77197.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ SkyMonk 1.63 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77209.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77209.jpgsave_picture_77209.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ SkyMonk 1.63 [Русский]
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77210.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77210.jpgsave_picture_77210.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Adele: Live at the Royal Albert Hall (2011) [1080i] Blu-Ray
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77221.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77221.jpgsave_picture_77221.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ Jon Schmidt & Steven Sharp Nelson (The Piano Guys) - Hits Volume I: Limited Foun
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77225.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77225.jpgsave_picture_77225.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Jon Schmidt & Steven Sharp Nelson (The Piano Guys) - Hits Volume I: Limited Foun
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77228.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77228.jpgsave_picture_77228.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ WiFi File Transfer — позволяет закачивать и скачива
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77229.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77229.jpgsave_picture_77229.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ magnet:?xt=urn:btih:6BE202E49368A4937CE42007DA1CB394FE7D0032
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77231.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77231.jpgsave_picture_77231.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Queen - 14 Студийных альбомов (1973-1991) 1-st Press Japan /198
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77233.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77233.jpgsave_picture_77233.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Mafia II: Digital Deluxe / Mafia 2: Город грехов + 8 DLC [Ru] (RePack
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77236.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77236.jpgsave_picture_77236.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Reallusion iClone v5.0.PRO + ResourcePack 5.0 [English]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77237.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77237.jpgsave_picture_77237.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ iClone - программа для создания великолепных 3D-
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77238.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77238.jpgsave_picture_77238.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ magnet:?xt=urn:btih:B7F6268138CF811DA90269F445ABDF045AAFF560
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77239.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77239.jpgsave_picture_77239.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ magnet:?xt=urn:btih:1031682E1B9D99BA395710CE645FBD18AFACA4A0
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77245.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77245.jpgsave_picture_77245.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Mortal Kombat 4 [Wineskin] [Eng]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77250.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77250.jpgsave_picture_77250.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ magnet:?xt=urn:btih:B596960181835F3576CD43119599AB28C96C11AF
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77251.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77251.jpgsave_picture_77251.jpg" />
 </div>
 
 

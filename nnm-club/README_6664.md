@@ -6,7 +6,7 @@ Sven Van Hees - Airflow (2023) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Lounge,
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228529.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228529.jpgsave_picture_228529.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Coffin Comics | Артбук по комиксу Lady Death / Lady Death: Linger
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228530.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228530.jpgsave_picture_228530.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:63D510ABB97933405B846996C931CB1DBA23E324
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228533.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228533.jpgsave_picture_228533.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ U.D.O. - The Legacy (Best Of) (2022) Compilation [FLAC|Lossless|WEB-DL|tracks] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228534.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228534.jpgsave_picture_228534.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:17C859692F859E157F6531D4F474F7C7251EE509
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228535.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228535.jpgsave_picture_228535.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ This War of Mine: Final Cut (2014) [Multi/Ru] [macOS Native game]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228536.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228536.jpgsave_picture_228536.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:21E163950AFFE24A7EB710DCE0659184CA412949
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228537.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228537.jpgsave_picture_228537.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ magnet:?xt=urn:btih:432ACDD0EF44DA3FF09EAA5D6F85BA1539100ADE
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228538.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228538.jpgsave_picture_228538.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Brian Hamilton - Metro Man (1984) LP [MP3|320 Kbps] <Rock, New Wave, Lo-Fi, Elec
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228540.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228540.jpgsave_picture_228540.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ magnet:?xt=urn:btih:ED239190475CB134DC124439FBA534BD937657B5
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228541.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228541.jpgsave_picture_228541.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ magnet:?xt=urn:btih:305E454DF8F038C4D794E66100836E3FCEF39A09
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228542.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228542.jpgsave_picture_228542.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ magnet:?xt=urn:btih:A9F67C4FC2A5087181900CF7C7D341F090513A6A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228543.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228543.jpgsave_picture_228543.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ Various Artists - NOW #1s - 70 Years Of The Official Singles Chart (5 CD Box Set
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228544.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228544.jpgsave_picture_228544.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ magnet:?xt=urn:btih:BE20A13E479FBDBBBC5B079B37155A197FAF2CA3
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228547.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228547.jpgsave_picture_228547.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ magnet:?xt=urn:btih:00EE0D3A0E5A9FB56250D26CDD3BA9A3F16796B0
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228548.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228548.jpgsave_picture_228548.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ magnet:?xt=urn:btih:016F6F29DB3AB473A77348292E8816F9C44B60DF
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228550.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228550.jpgsave_picture_228550.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Nolan Potter's Nightmare Band - Honey - Tales From the Library of the Occult (20
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228551.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228551.jpgsave_picture_228551.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ magnet:?xt=urn:btih:E97FAA27EADE39F27CC76C01A9DB07B04F329478
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228552.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228552.jpgsave_picture_228552.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ magnet:?xt=urn:btih:4F6004EB497682EF5CCC133DA71DBD49F32184FD
 >>История
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228554.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228554.jpgsave_picture_228554.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ magnet:?xt=urn:btih:039DF439CC4FEDA43450C6BD5D9C38FC2F920F96
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228555.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228555.jpgsave_picture_228555.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Further Ahead Of Warp - 5 альбомов (2012-2014) Touhou Vocal /Doujin/ [MP
 >>Doujin Music
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228556.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228556.jpgsave_picture_228556.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ magnet:?xt=urn:btih:BB49F4D480A55396F18A203F28101077AFD0F355
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228558.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228558.jpgsave_picture_228558.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ magnet:?xt=urn:btih:3CB7B340DFEEE158875405017F80A0125B339C62
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228559.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228559.jpgsave_picture_228559.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ magnet:?xt=urn:btih:8B5B9EA6499492893B7A3C0CFF2CD2942977F0B1
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228560.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228560.jpgsave_picture_228560.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ VA - Dantcho "Rap" Georgiev Presents: Dance Hits Vol. 4 (1992) [FLAC|96/24|image
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228561.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228561.jpgsave_picture_228561.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ magnet:?xt=urn:btih:7A45A5EB61B0B363CE7034430751BCE9E7F1167A
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228562.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228562.jpgsave_picture_228562.jpg" />
 </div>
 
 

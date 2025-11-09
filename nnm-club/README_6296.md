@@ -6,7 +6,7 @@
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197298.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197298.jpgsave_picture_197298.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:4FC76740FB6C7AB6BA167621E6E68EB1B089B65A
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197299.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197299.jpgsave_picture_197299.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ Vivaldi 6.1.3035.75 include standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197300.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197300.jpgsave_picture_197300.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:001D6835EA65182D1A7126467D07EB277E4F8698
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197301.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197301.jpgsave_picture_197301.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ AIMP 5.11 Build 2432 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197302.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197302.jpgsave_picture_197302.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:8F5EA6E881B2C9E9CC01FCD40A2825487CD69C4D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197303.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197303.jpgsave_picture_197303.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:B844458360AA6FCF904E1D1DC7F032822BFF83F9
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197304.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197304.jpgsave_picture_197304.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ Reg Organizer 9.21 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197305.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197305.jpgsave_picture_197305.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:5040590AADC43AA9DEC5394BB87B8048FAD2C98A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197306.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197306.jpgsave_picture_197306.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ magnet:?xt=urn:btih:1220C48109FCA7609D34F843340436FC3D072363
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197307.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197307.jpgsave_picture_197307.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:CE22DACA9D1EDF8DC26D29E8F364DCEED78B5746
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197308.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197308.jpgsave_picture_197308.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Voodoo Detective (2022) [En] (0.0.31) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197309.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197309.jpgsave_picture_197309.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ NG: Владычицы морей / Shark Queens (2022) WEB-DL [H.264/1080p]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197310.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197310.jpgsave_picture_197310.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Bandicam 6.2.2.2072 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197311.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197311.jpgsave_picture_197311.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ magnet:?xt=urn:btih:9FB8323D5D3851E07CB02F928F7096FDA5DD84E5
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197312.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197312.jpgsave_picture_197312.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ AOMEI Backupper Technician Plus 7.2.3 Repack (& Portable) by elchupacabra [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197313.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197313.jpgsave_picture_197313.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ magnet:?xt=urn:btih:0B863138BF899B69DA61788FBC2788272CFD1258
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197314.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197314.jpgsave_picture_197314.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Solomon Eseme | Architecting Vue.js 3 Enterprise-Ready Web Applications (2023) [
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197315.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197315.jpgsave_picture_197315.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ magnet:?xt=urn:btih:D03D36DE6C986CD60D8797A011ED1A02F74A1588
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_197316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197316.jpgsave_picture_197316.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ magnet:?xt=urn:btih:63BAB9F128B25B4669652AE6C2CCE6E31E64969E
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197317.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197317.jpgsave_picture_197317.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ BlueStacks App Player 5.11.100.1063 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197318.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197318.jpgsave_picture_197318.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ Grids for Instagram 8.5.9 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197319.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197319.jpgsave_picture_197319.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ magnet:?xt=urn:btih:727D57D603FC9EC24EE951B804D88A44425FA305
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197320.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197320.jpgsave_picture_197320.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ magnet:?xt=urn:btih:0D209554F28E389C30994AE69FF75194C24B75B6
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197321.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197321.jpgsave_picture_197321.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ magnet:?xt=urn:btih:B109AC947B84AC0DA93A913749B73BAD1F6C4820
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_197322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197322.jpgsave_picture_197322.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ NG: Расследования Авиакатастроф / Mayday / Air Crash I
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197323.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197323.jpgsave_picture_197323.jpg" />
 </div>
 
 

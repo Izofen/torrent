@@ -6,7 +6,7 @@ World of Goo Remastered 1.0.23082408 Mod by DroidHaven [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39876.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39876.jpgsave_picture_39876.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:3F8E689EE1288F63235E88B01250FDD291E03500
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39877.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39877.jpgsave_picture_39877.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ Arsene Lupin - Once a Thief (2024) [Ru/Multi] (1.02) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39878.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39878.jpgsave_picture_39878.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ A Quiet Place: The Road Ahead (2024) (1.0.0/dlc) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39879.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39879.jpgsave_picture_39879.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:E962C21495D3985C63857E7F52682068BBD617F0
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39880.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39880.jpgsave_picture_39880.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ The Holy Gosh Darn (2024) [Ru/Multi] (1.1.1) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39881.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39881.jpgsave_picture_39881.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Valiant Hearts: Coming Home 1.0.5 Mod by apkvision [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39882.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39882.jpgsave_picture_39882.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ Monument Valley NETFLIX 3.7.235 Mod by apkvision [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39883.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39883.jpgsave_picture_39883.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:A17975A1EFFD91404B2DD3EA14BF560A9AFAD788
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39884.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39884.jpgsave_picture_39884.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:7912169484956E34B71C7F09C0D29A877C4081BA
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39885.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39885.jpgsave_picture_39885.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:965EA97D4378DD8990EA7ED6201927725CEE089B
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39886.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39886.jpgsave_picture_39886.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:965EA97D4378DD8990EA7ED6201927725CEE089B
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39887.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39887.jpgsave_picture_39887.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:136CA2D20E76396EF2B32CB115B44D0CE7E78C97
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39888.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39888.jpgsave_picture_39888.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:59189C6154628CB545506185A88A15E4329EDA9A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39889.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39889.jpgsave_picture_39889.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ magnet:?xt=urn:btih:849938136F812697681CA0D90B72E069F4330B9D
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39890.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39890.jpgsave_picture_39890.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ magnet:?xt=urn:btih:3528A9CE93ACCC9678CB2421A5EDCD97C72479D5
 >>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39891.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39891.jpgsave_picture_39891.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ NetLimiter 5.3.18.0 (x64) RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39892.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39892.jpgsave_picture_39892.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ magnet:?xt=urn:btih:45513F53BFE434E518025C5BD00DB6DA65DC8CBB
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39893.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39893.jpgsave_picture_39893.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ FTC  приняли   важный закон об «отмене в один к
 >>Компьютерные новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39894.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39894.jpgsave_picture_39894.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ FTC  приняли   важный закон об «отмене в один к
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39895.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39895.jpgsave_picture_39895.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Unknown 9: Awakening (2024) [Ru/Multi] (build 16069251) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39896.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39896.jpgsave_picture_39896.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:8CEF14C3D22C308A66F017FDB4F70931BE2F0B74
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39897.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39897.jpgsave_picture_39897.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Background Video Recorder Pro v10.9.9 Mod by srajawwal09 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39898.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39898.jpgsave_picture_39898.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ magnet:?xt=urn:btih:044011AFFB1117D2E768508FD608D309E99E6574
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39899.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39899.jpgsave_picture_39899.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ magnet:?xt=urn:btih:53264E74101069CF74B580E86BF8F318A381AD18
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39900.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39900.jpgsave_picture_39900.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ magnet:?xt=urn:btih:8CDE49962C5B2C80A0B713EF034EFB08D73B0876
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39901.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39901.jpgsave_picture_39901.jpg" />
 </div>
 
 

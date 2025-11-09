@@ -6,7 +6,7 @@ VA - Armin van Buuren - A State Of Trance 1242 (2025) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3110.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3110.jpgsave_picture_3110.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:9C8B8F6B8D8505E81AD0FA5D2CC88A9299C09190
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3111.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3111.jpgsave_picture_3111.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:3F70F71975080945A14DF6F75AF9E3DE776DF528
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3112.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3112.jpgsave_picture_3112.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Crematory - Act Seven (1999) Reissue, 2025, Roar [FLAC 24/44.1|Lossless|WEB-DL|t
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3113.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3113.jpgsave_picture_3113.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:C1FEAE3961FA1D19E6ACD08129A7984472D36E89
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3114.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3114.jpgsave_picture_3114.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ The Judas Kiss - The Mirror Crack'd (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3115.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3115.jpgsave_picture_3115.jpg" />
 </div>
 
 
@@ -161,7 +161,7 @@ magnet:?xt=urn:btih:E0A3167804E8FF136C2CC51EAB1B4415F7942718
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3116.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3116.jpgsave_picture_3116.jpg" />
 </div>
 
 
@@ -187,7 +187,7 @@ magnet:?xt=urn:btih:94C450923947DFBA130759279E8FC289EC0DF5CC
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3117.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3117.jpgsave_picture_3117.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ magnet:?xt=urn:btih:A4043DB7AB9134CCA6F17B238D957027EB4389E3
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3118.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3118.jpgsave_picture_3118.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ magnet:?xt=urn:btih:6A1D0640661A106DD621955F5235B1C87DE3D979
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3119.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3119.jpgsave_picture_3119.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Maruja - Pain to Power (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Post-Punk, 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3120.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3120.jpgsave_picture_3120.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Crematory - Awake (1997) Reissue, 2025, Roar [FLAC 24/44.1|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3121.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3121.jpgsave_picture_3121.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ magnet:?xt=urn:btih:4AED09563B54B7784999394038F742423EDAE6A5
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3122.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3122.jpgsave_picture_3122.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ magnet:?xt=urn:btih:5E932C3D3AEDD9392781FE9B4EFF849B0CBB87EC
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3123.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3123.jpgsave_picture_3123.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ VA - Ori Uplift - Uplifting Only Episode 657 (2025) [MP3|320 Kbps] <Trance, Upli
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3124.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3124.jpgsave_picture_3124.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Hypermass - Studio Albums (3 releases) (2015-2025) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3125.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3125.jpgsave_picture_3125.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Verses GT - Verses GT (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Trip Hop, Danc
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3126.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3126.jpgsave_picture_3126.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ magnet:?xt=urn:btih:1F4B80B2ED6283F2B6B63EA687ED32D1FB6268A6
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3127.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3127.jpgsave_picture_3127.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Myth Finders (2025) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3128.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3128.jpgsave_picture_3128.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ magnet:?xt=urn:btih:1A596333322169B2D4746F3F7994CE43076AAC85
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3129.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3129.jpgsave_picture_3129.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Ui Kits - UI8 - NutriMart - Grocery Shopping App UI Kit [FIG, XD, SKETCH]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3130.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3130.jpgsave_picture_3130.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ magnet:?xt=urn:btih:B2413F11943F0F0E71FEAA09F941A06884163CA7
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3131.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3131.jpgsave_picture_3131.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ HiPER Calc Pro v11.2.4 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3132.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3132.jpgsave_picture_3132.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ magnet:?xt=urn:btih:A4E19196F2517D8436AC3676D3ED7F0990CCAA3D
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3133.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3133.jpgsave_picture_3133.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ David Guetta - Live @ Galactic Circus, [UNVRS] Ibiza, Spain (2025-08-15) [MP3|32
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3134.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3134.jpgsave_picture_3134.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ magnet:?xt=urn:btih:FC2C0AF1EA7DB817621749B5BFF59DB168A7BDDB
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3135.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3135.jpgsave_picture_3135.jpg" />
 </div>
 
 

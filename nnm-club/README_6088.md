@@ -6,7 +6,7 @@
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191637.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191637.jpgsave_picture_191637.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:FA0226F0F816D0E4702887D5C714186B9E6B8EC1
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_191638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191638.jpgsave_picture_191638.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Cultus Sanguine - Dust Once Alive (2023) [FLAC|Lossless|WEB-DL|tracks] <Dark, Do
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191639.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191639.jpgsave_picture_191639.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ magnet:?xt=urn:btih:9F9885BB3344D6CFE42A28EA0C9F79D0369BB9F3
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191640.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191640.jpgsave_picture_191640.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Dissonance - Look to Forget (1994) [FLAC|Lossless|image + .cue] <Technical Death
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191641.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191641.jpgsave_picture_191641.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ The Cult - Under The Midnight Sun (2022) [FLAC|Lossless|tracks + .cue] <Hard Roc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_191642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191642.jpgsave_picture_191642.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Blue System - Forever Blue (1995) [OGG Vorbis|480 Kbps] <Electronic, Euro House,
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191643.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191643.jpgsave_picture_191643.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Blue System - X - Ten (1994) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Euro
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191644.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191644.jpgsave_picture_191644.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ magnet:?xt=urn:btih:0504CB6AABC0C3E6DDC292053F8FEC38CA974190
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_191645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191645.jpgsave_picture_191645.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ magnet:?xt=urn:btih:30B3CF56E77D7E79F218B9DEE52915B025E623F5
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191646.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191646.jpgsave_picture_191646.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ magnet:?xt=urn:btih:A4EDA97A9891EE4E3FB87395F106E1DAB60354D2
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191647.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191647.jpgsave_picture_191647.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ WarCry - Daimon (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191648.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191648.jpgsave_picture_191648.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ magnet:?xt=urn:btih:C57E2FC2A67891901EBEA5042826AD01A24D4450
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191649.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191649.jpgsave_picture_191649.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Jimmie Lunceford - The Complete Jimmie Lunceford Decca Sessions (1934 - 1945) 7C
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191650.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191650.jpgsave_picture_191650.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Under The Waves (2023) [Ru/Multi] (Build 11920395) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191651.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191651.jpgsave_picture_191651.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ magnet:?xt=urn:btih:DC35B8CC0E033B58D432B729072AE4C9768875B8
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191652.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191652.jpgsave_picture_191652.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ Fort Solis (2023) [Ru/Multi] (Build 11938463) Repack DjDI
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191653.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191653.jpgsave_picture_191653.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ magnet:?xt=urn:btih:8256B51C502069F6C1BC3769C85CE7F315A67B89
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191654.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191654.jpgsave_picture_191654.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ magnet:?xt=urn:btih:5EF2DF92275354837A982C6A40AF6F5ED6A0DDEA
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191655.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191655.jpgsave_picture_191655.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ magnet:?xt=urn:btih:3797B690A875A197BE690E7A17E1929442CD0106
 >>Футажи
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191656.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191656.jpgsave_picture_191656.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:E9390948D6104C6A53C4AA881065D7DF96543387
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191657.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191657.jpgsave_picture_191657.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ magnet:?xt=urn:btih:DE86D2BE808FD14C7480FDEA25D9C3889D649D90
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191658.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191658.jpgsave_picture_191658.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ magnet:?xt=urn:btih:DC78AF8D95A82D61265CB71C542B32BC007E4788
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191659.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191659.jpgsave_picture_191659.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ CineBench 2024.0.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191660.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191660.jpgsave_picture_191660.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ magnet:?xt=urn:btih:A9372BBEE245B23AD939088C7DFEBFF5603C97C0
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191661.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191661.jpgsave_picture_191661.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ Fearwell - Well of Fear (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death, Pow
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191662.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191662.jpgsave_picture_191662.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Richard Lindgren - Grand Jubilee (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues, Ro
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120432.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120432.jpgsave_picture_120432.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Brad "Guitar" Wilson - Buckle Up (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues, Bl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120433.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120433.jpgsave_picture_120433.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Caro Emerald - The Shocking Miss Emerald (The Remixes) (2013) [FLAC|Lossless|WEB
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120434.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120434.jpgsave_picture_120434.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Total Video Converter Pro for Mac 5.1.0 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120435.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120435.jpgsave_picture_120435.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ magnet:?xt=urn:btih:4C6802EC24139D4C8817B5B5C20B82B96B322B90
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120436.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120436.jpgsave_picture_120436.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ magnet:?xt=urn:btih:36E14B9B6230B33439961B810B852FDD574FF75C
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120437.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120437.jpgsave_picture_120437.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ magnet:?xt=urn:btih:037E1D84890278443BA964C73E000F37D0C45A48
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120438.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120438.jpgsave_picture_120438.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ magnet:?xt=urn:btih:0FD48B7543D71C5BBF0DEB9243748FF39F0227D7
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120439.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120439.jpgsave_picture_120439.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ magnet:?xt=urn:btih:40B80B8EA2102D7E38AA0110CD0E3FFBDD5F8160
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120440.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120440.jpgsave_picture_120440.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ magnet:?xt=urn:btih:9B59A1E22F5B6E0860E481C3722C711DF3D028F3
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120441.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120441.jpgsave_picture_120441.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ Caro Emerald & The Grandmono Orchestra - Live In Concert (At The Heineken Music 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120442.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120442.jpgsave_picture_120442.jpg" />
 </div>
 
 
@@ -290,7 +290,7 @@ magnet:?xt=urn:btih:A1191274533FA9C40357D756DC3E33EBA2D76CE5
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120443.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120443.jpgsave_picture_120443.jpg" />
 </div>
 
 
@@ -317,7 +317,7 @@ magnet:?xt=urn:btih:8E4BE32C2B5D2C741E127782BA90006CB4C9A9E3
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120444.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120444.jpgsave_picture_120444.jpg" />
 </div>
 
 
@@ -341,7 +341,7 @@ magnet:?xt=urn:btih:6AE4D54A446605D6E052693987F025B71DE35349
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120445.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120445.jpgsave_picture_120445.jpg" />
 </div>
 
 
@@ -365,7 +365,7 @@ Streetwize - Lift Me Up (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120446.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120446.jpgsave_picture_120446.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ magnet:?xt=urn:btih:C3EAE9F023DB22BFF75FA70804173303174B080A
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120447.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120447.jpgsave_picture_120447.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ magnet:?xt=urn:btih:D337C9FD8FBD4B4173AD83F9807761045B8F7FEB
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120448.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120448.jpgsave_picture_120448.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Mitch Ryder - The Roof Is On Fire (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120449.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120449.jpgsave_picture_120449.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ AirMail Pro 5 v.5.6.16 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120450.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120450.jpgsave_picture_120450.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Kalle Reger - Smooth Groove 1 (Smooth Groove 1) (2024) [FLAC|Lossless|WEB-DL|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120451.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120451.jpgsave_picture_120451.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Savaged - Night Stealer (2024) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120452.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120452.jpgsave_picture_120452.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Colin Newman & Malka Spigel - Bastard (1997) Deluxe Edition, 2024, swim [FLAC|Lo
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120453.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120453.jpgsave_picture_120453.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ VA - Spektra's History - 16th Anniversary (2024) [MP3|320 Kbps] <Breaks, Breakbe
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120454.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120454.jpgsave_picture_120454.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Opera GX 106.0.4998.61 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120455.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120455.jpgsave_picture_120455.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ magnet:?xt=urn:btih:BAD71ED6A45B76C9F66E3A15E9052F2B2942672D
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120456.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120456.jpgsave_picture_120456.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ magnet:?xt=urn:btih:1942EFE01D737497B6DBA3C6663C5C19F4FB08D2
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120457.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120457.jpgsave_picture_120457.jpg" />
 </div>
 
 

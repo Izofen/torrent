@@ -6,7 +6,7 @@
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143062.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143062.jpgsave_picture_143062.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143063.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143063.jpgsave_picture_143063.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ SoftMaker Office Professional 2024 rev. S1206.1118 RePack (& portable) by KpoJIu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143065.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143065.jpgsave_picture_143065.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:DF10D0EF211E5E3B72DDB8F4F21553347243160A
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143067.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143067.jpgsave_picture_143067.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ InstaBro | Browser for Instagram 4.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143068.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143068.jpgsave_picture_143068.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:1A3A4628D672D9DD69A5B2B7B76AD25CAA496386
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143069.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143069.jpgsave_picture_143069.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ Speak The Truth...Even If Your Voice Shakes - Everyone You Love Will Slip Away F
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143070.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143070.jpgsave_picture_143070.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:EB52FA387949D57D1C0327E7675B7E57F3235088
 >>Обсуждение КПК и Мобильные устройства
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143071.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143071.jpgsave_picture_143071.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ Brigador: Up-Armored Edition v.1.5v2 (2016) [Multi/Ru] [macOS Native game]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143074.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143074.jpgsave_picture_143074.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ VA - Sexy Funky House Annual 2019 (2018) [MP3|320 Kbps] <Funky, Club House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143075.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143075.jpgsave_picture_143075.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ Punto Switcher 4.1.9 Build 903 Final [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143076.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143076.jpgsave_picture_143076.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ magnet:?xt=urn:btih:7B130E0A4AFCD6B442C36D2887761C85BEECD581
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143077.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143077.jpgsave_picture_143077.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ magnet:?xt=urn:btih:8734742DFE9F9212FFE763FC510CC02D696E2BCD
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143078.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143078.jpgsave_picture_143078.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Mass Of The Heretic - Flames Of Hatred (2016) [MP3|320 Kbps] <Black Metal>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143079.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143079.jpgsave_picture_143079.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Root Explorer Pro 4.10.3 Mod by Valikovrepikov [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143080.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143080.jpgsave_picture_143080.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ magnet:?xt=urn:btih:A606478E56FC329758060C0417455E296D03C2CD
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143081.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143081.jpgsave_picture_143081.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ magnet:?xt=urn:btih:D71E6F52E801A971924241C96F542EDE5E015D49
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143083.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143083.jpgsave_picture_143083.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ magnet:?xt=urn:btih:23E250DE64E65F275F25E56B6E168B6496B517F9
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143084.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143084.jpgsave_picture_143084.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ magnet:?xt=urn:btih:4EBE8B4244E6FB97B1FC458EE16C4DFE5F9714A0
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143085.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143085.jpgsave_picture_143085.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ VA - Degenerate 2018 Yearmix (Mixed by Sean Tyas) (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143087.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143087.jpgsave_picture_143087.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ magnet:?xt=urn:btih:D3A58902D44CEBC65B1B65594F26D7165D0388EE
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143088.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143088.jpgsave_picture_143088.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ magnet:?xt=urn:btih:B82C04F011F64FD3BC1A7A4485FF4ADAB714B938
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143089.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143089.jpgsave_picture_143089.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ magnet:?xt=urn:btih:7F3AE5D736D798A5E4707EDDE1223486479AB69A
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143090.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143090.jpgsave_picture_143090.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ magnet:?xt=urn:btih:60654B218D4225EC7CF0AF78CB08B7ACE21F2D49
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143092.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143092.jpgsave_picture_143092.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ magnet:?xt=urn:btih:944A9814AEE97D73D0206296C416C4CD3255E3A3
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143093.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143093.jpgsave_picture_143093.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ Ubisoft | Артбук по игре Assassin’s Creed Вальгалла / The
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143094.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143094.jpgsave_picture_143094.jpg" />
 </div>
 
 

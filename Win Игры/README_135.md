@@ -6,7 +6,7 @@ Max Payne 3 (2012) [Ru/Multi] (1.0.0.272) Scene Razor 1911
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38655.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38655.jpgsave_picture_38655.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Resident Evil: Operation Raccoon City (2012) [Ru/Multi] (Build 10887/dlc) Repack
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38658.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38658.jpgsave_picture_38658.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Dragon Age: The Veilguard (2024) [Ru/Multi] (1.0.0.0/dlc) Repack FitGirl [Deluxe
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38669.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38669.jpgsave_picture_38669.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Kingdom Come: Deliverance (2018) [Ru/Multi] (1.9.6-404-504czj3/dlc) Repack Wante
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38671.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38671.jpgsave_picture_38671.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Crime Boss Rockay City (2023) [Ru/Multi] (1.0.12.0/dlc) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38675.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38675.jpgsave_picture_38675.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Unity of Command II (2019) [Ru/Multi] (Update 29/dlc) Repack FitGirl
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38724.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38724.jpgsave_picture_38724.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Don't Be Afraid 2 (2024) [Ru/Multi] (1.0.1) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38725.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38725.jpgsave_picture_38725.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Shop Simulator: Supermarket (2024) [Ru/Multi] (1.0.3.1) Repack Pioneer
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38728.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38728.jpgsave_picture_38728.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Frontier Hunter: Erza's Wheel of Fortune / Пограничный охотник
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38731.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38731.jpgsave_picture_38731.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Sofie: The Echoes (2024) [Ru/Multi] (1.0) Scene Tenoke
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38745.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38745.jpgsave_picture_38745.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Subnautica (2018) [Ru/Multi] (Build 71288) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38748.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38748.jpgsave_picture_38748.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Blockbuster Inc. (2024) [Ru/Multi] (1.9.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38751.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38751.jpgsave_picture_38751.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Riot Operator (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38761.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38761.jpgsave_picture_38761.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Jujutsu Kaisen: Cursed Clash (2024) [Multi] (20240925/dlc) Scene Tenoke [Ultimat
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38776.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38776.jpgsave_picture_38776.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ magnet:?xt=urn:btih:ED1BD19BA6075D7E378518938E5999C78D5E44C1
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38780.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38780.jpgsave_picture_38780.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Deadly Days (2019) [Ru/Multi] (1.7.0f2) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38807.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38807.jpgsave_picture_38807.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Brotato (2022) [Ru/Multi] (1.1.3.0/dlc) Repack seleZen
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38832.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38832.jpgsave_picture_38832.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Don't Be Afraid 2 (2024) [Ru/Multi] (1.0.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38833.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38833.jpgsave_picture_38833.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ magnet:?xt=urn:btih:56EB4B0F835CCCEDA1F2B6982C2C2FAAF0D6088B
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38849.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38849.jpgsave_picture_38849.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Red Dead Redemption (2024) [Ru/Multi] (1.0.40.57107) Repack seleZen
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38851.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38851.jpgsave_picture_38851.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Connection: The Nightmare Within (2024) [Ru/Multi] (Build 16187772) Repack FitGi
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38854.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38854.jpgsave_picture_38854.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Crime Boss: Rockay City (2023) [Ru/Multi] (1.0.12.0/dlc) Scene Rune
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38856.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38856.jpgsave_picture_38856.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Moon Mystery (2024) [Ru/Multi] (1.0) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38857.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38857.jpgsave_picture_38857.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Red Dead Redemption (2024) [Ru/Multi] (1.0.0.82) Repack West4it
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38858.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38858.jpgsave_picture_38858.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Call of the Wild: The Angler (2022) [Ru/Multi] (2.0/dlc) Scene Rune
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38875.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38875.jpgsave_picture_38875.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Knock on the Coffin Lid (2020) [Ru/Multi] (1.0973) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38879.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38879.jpgsave_picture_38879.jpg" />
 </div>
 
 

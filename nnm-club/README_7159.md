@@ -6,7 +6,7 @@ PullTube 1.7.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245084.jpgsave_picture_245084.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:CE5C6F72DA87CAB89AB9726DAE43A9655A950C48
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245085.jpgsave_picture_245085.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:F89B3C6B11AD6EFAA8D389C0598F21974063CA15
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245086.jpgsave_picture_245086.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ David Cross - Crossing The Tracks (2018) [FLAC|Lossless|WEB-DL|tracks] <Progress
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245087.jpgsave_picture_245087.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:0445C9F8C6E11FEB45EA50A9072A3007B6FDA61E
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245088.jpgsave_picture_245088.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ WICCA - Bloodrush (2010) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245089.jpgsave_picture_245089.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ magnet:?xt=urn:btih:34BCC706092F1C22AFAC5F71D1EB81F6964B82BF
 >>Космос
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245090.jpgsave_picture_245090.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ magnet:?xt=urn:btih:3FC766294A33722186ED813BCDF2CE27825FDEB3
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245091.jpgsave_picture_245091.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ VA - Reggaeton Nocturno, Vol. 4 (2022) [AAC|~312 Kbps] <Reggae, Dancehall>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245092.jpgsave_picture_245092.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ Hank Jones - Ain't Misbehavin' (1978) 1999, Original Jazz Classics [WavPack|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245093.jpgsave_picture_245093.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ Katie Melua - Love & Money (2023) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz, Pop
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245094.jpgsave_picture_245094.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ PrivaZer Pro 4.0.63 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245095.jpgsave_picture_245095.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ Elmedia Video Player Pro 8.15 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245096.jpgsave_picture_245096.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ magnet:?xt=urn:btih:0795CC5F7FAC9D6F20815856D995210B5DB5AB5D
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245097.jpgsave_picture_245097.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ Hej Stylus! v3 3.7.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245098.jpgsave_picture_245098.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ Record It - Screen Recorder 1.5.4 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245099.jpgsave_picture_245099.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ magnet:?xt=urn:btih:68BA3331827A64B1BB08C5DDC4BCD66FE5CAAC7E
 >>Аниме OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245100.jpgsave_picture_245100.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ magnet:?xt=urn:btih:E7236CD8E9DE91617964B64652DCEB25EA3D88F8
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245101.jpgsave_picture_245101.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ Aiseesoft Mac Screen Recorder 2.1.32 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245102.jpgsave_picture_245102.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ magnet:?xt=urn:btih:376465104D58F3D2282DAC263B4925BA2C0BCC38
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245103.jpgsave_picture_245103.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ magnet:?xt=urn:btih:C17D875BCF0E8E5AD65DBD3890CDB4FB0072CAEE
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245104.jpgsave_picture_245104.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Vass/Katsionis - Cynical Silence (2023) [MP3|320 Kbps] <Progressive Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245105.jpgsave_picture_245105.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ VA - Nightflight Mallorca – 22 Premium Downbeat & Lounge Trax (2013) [AAC|~345
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245106.jpgsave_picture_245106.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ magnet:?xt=urn:btih:E249CB017A2D6A8357702BC478616DBD08DB5204
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245107.jpgsave_picture_245107.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ magnet:?xt=urn:btih:E791F2C14BAF58D9F3A47D35440714A84784E590
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245108.jpgsave_picture_245108.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ Satellite Young - Satellite Young (2017) [MP3|320 Kbps] <Synthpop, Synthwave>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245109.jpgsave_picture_245109.jpg" />
 </div>
 
 

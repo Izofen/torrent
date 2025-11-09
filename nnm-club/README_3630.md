@@ -6,7 +6,7 @@ VSDC Video Editor Pro 9.1.5.532 [Multi/Ru] (акция Winning PC)
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114755.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114755.jpgsave_picture_114755.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:57C93CF002FC856BA4105E94AB1D166D6687807C
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114756.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114756.jpgsave_picture_114756.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ History Channel. Как создавались империи / Engineering an E
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114757.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114757.jpgsave_picture_114757.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ The Bard's Tale ARPG: Remastered and Resnarkled (2004) [Ru/Multi] (2.2.b) Licens
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114758.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114758.jpgsave_picture_114758.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:4001A0B457780D5FACC62B659E374FCE5A4EB8AC
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114759.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114759.jpgsave_picture_114759.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:D38D2361C725411E3BF07B1F1B74A81FD2C29329
 >>КВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114760.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114760.jpgsave_picture_114760.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:B90F35F40C49E00FB4C75FAB4E65EDA5C797D340
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114761.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114761.jpgsave_picture_114761.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ VA - Best Rock Ballads 60-90s (2024) [MP3|320 Kbps] <Rock, Hard Rock, Ballad>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114762.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114762.jpgsave_picture_114762.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:F9B180F3E1487D6C33DDE3D9AEA15C39E90090EF
 >>Компьютерные новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114763.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114763.jpgsave_picture_114763.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ Blizzard Entertainment | Артбук по игре Diablo 4 / The Art of Diablo
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114764.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114764.jpgsave_picture_114764.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ magnet:?xt=urn:btih:587DDEE932BF8FE002E18FDDBD0659CA718DB37F
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114765.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114765.jpgsave_picture_114765.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ magnet:?xt=urn:btih:3DA2D7E43AAAB668D915F585319772E1BBD47154
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114766.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114766.jpgsave_picture_114766.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ magnet:?xt=urn:btih:97FF714086A1A923EE0F6C1931856E969AFDE516
 >>Игра престолов / Game of Thrones
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114767.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114767.jpgsave_picture_114767.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ magnet:?xt=urn:btih:262BC242F895AB859AAFBF3E0184D939949D0306
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114768.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114768.jpgsave_picture_114768.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ magnet:?xt=urn:btih:A0D745FB39A2DDD26DD393E9EFF1C21F61604674
 >>Сериалы Marvel Comics
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114769.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114769.jpgsave_picture_114769.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ magnet:?xt=urn:btih:2549D9C5C77303D99F9BE9ED8B548935A1F5A393
 >>Игра престолов / Game of Thrones
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114770.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114770.jpgsave_picture_114770.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ magnet:?xt=urn:btih:150B4747328EDAFC6D322F6241470F593E9FDE61
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114771.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114771.jpgsave_picture_114771.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ magnet:?xt=urn:btih:AC0FFC1A7B74F67F205DAC12D540DAF635BAAA84
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114772.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114772.jpgsave_picture_114772.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ Homeseek (2023) [Ru/Multi] (1.0.9) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114773.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114773.jpgsave_picture_114773.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ magnet:?xt=urn:btih:83E7563ACCBE06F2D9CC3BF61EDFBBDE63A21CA2
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114774.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114774.jpgsave_picture_114774.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ magnet:?xt=urn:btih:274ABC80818F4C71F298DF43D0B979B4E606373D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114775.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114775.jpgsave_picture_114775.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:BDFA3A7B578008AE4BDF03CE282A8A8E65BEB3EB
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114776.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114776.jpgsave_picture_114776.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ magnet:?xt=urn:btih:BDFA3A7B578008AE4BDF03CE282A8A8E65BEB3EB
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114777.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114777.jpgsave_picture_114777.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ magnet:?xt=urn:btih:902B205FEE51BBBFEDFE5EB187B080B420E2EF78
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114778.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114778.jpgsave_picture_114778.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ magnet:?xt=urn:btih:668C7001709C4732702D457A2FDBD21AA4039E36
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114779.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114779.jpgsave_picture_114779.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ KMS Tools Portable by Ratiborus 01.03.2024 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114780.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114780.jpgsave_picture_114780.jpg" />
 </div>
 
 

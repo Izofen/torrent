@@ -6,7 +6,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88146.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88146.jpgsave_picture_88146.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ The Prince of Tennis / Tennis no Ouji-sama / Принц тенниса OVA-5 [20
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88153.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88153.jpgsave_picture_88153.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ VA - 100 Most Beautiful Love Songs (2006) [MP3|320 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88154.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88154.jpgsave_picture_88154.jpg" />
 </div>
 
 
@@ -89,7 +89,7 @@ magnet:?xt=urn:btih:2A795B8226E1D3B074305FC8F3E3BC3678DD902F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88157.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88157.jpgsave_picture_88157.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - MAXI. Вибрация тела на Радио Record (2012) [MP3|320 kbps
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88158.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88158.jpgsave_picture_88158.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ magnet:?xt=urn:btih:0027FAD2E0BED55CCB65C50F8C1006359DDFE17E
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88159.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88159.jpgsave_picture_88159.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ Secrets of the Titanic - 1912 - 2012 (P) [En] 2012
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88160.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88160.jpgsave_picture_88160.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ VA - Sexy Lounge Classic: Ibiza Edition (2012) [MP3|320 кб/с]<Downtempo, Chil
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88161.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88161.jpgsave_picture_88161.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ magnet:?xt=urn:btih:BB781DFE8AC98C44A9C8D72D9CF382E0616AB366
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88162.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88162.jpgsave_picture_88162.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ VA - Disco Hits 90's Русский (2012) [MP3|256 kbps]<Pop | Disco>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88163.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88163.jpgsave_picture_88163.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Klaypex - Ready to Go (2012) [MP3|320 кб/с]<Dubstep,  Complextro, Electro>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88164.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88164.jpgsave_picture_88164.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ VA - Disco Hits 90's Зарубежный (2012) [MP3|256 kbps]<Pop | Disco>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88166.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88166.jpgsave_picture_88166.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ magnet:?xt=urn:btih:EAB1A4C1E32C17D29BA1107262BBE2CA5BCA724B
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88168.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88168.jpgsave_picture_88168.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ Gallo / (vocal - Alessandra Domingues) - Intimae Evening (Интимный ве�
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88170.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88170.jpgsave_picture_88170.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Gallo / (vocal - Alessandra Domingues) - Intimae Evening (Интимный ве�
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88176.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88176.jpgsave_picture_88176.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ Gallo / (vocal - Alessandra Domingues) - Intimae Evening (Интимный ве�
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88179.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88179.jpgsave_picture_88179.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ magnet:?xt=urn:btih:47C64E9727A48D9505E66285B9F6267EF87604F1
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88180.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88180.jpgsave_picture_88180.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ magnet:?xt=urn:btih:A666428A5241AD4EDD422BE6C21177E4C19F4FA9
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88181.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88181.jpgsave_picture_88181.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ magnet:?xt=urn:btih:D262491179CDFEDB1B7CC3544F762F7545F5413C
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88182.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88182.jpgsave_picture_88182.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ OpenSUSE 12.2 Milestone 3 (KDE, GNOME) [i686 + x86-64] (4xCD)
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88184.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88184.jpgsave_picture_88184.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ magnet:?xt=urn:btih:8499BB01D31C9629A419533DD87CA517CB52A94F
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88187.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88187.jpgsave_picture_88187.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ VA - Реальный Блатняк (2012) [MP3|192-320 кб/с]<Шансон>
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88189.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88189.jpgsave_picture_88189.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ magnet:?xt=urn:btih:D58E9A7ED032A0E4FA43005563FCB86EEE925362
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88190.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88190.jpgsave_picture_88190.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ magnet:?xt=urn:btih:6C65ADE6800F587138AF2621D65B3265CF718021
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88195.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88195.jpgsave_picture_88195.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ Chip — первый компьютерный журнал в Европе, с�
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88197.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88197.jpgsave_picture_88197.jpg" />
 </div>
 
 
@@ -697,7 +697,7 @@ OpenSUSE 12.2 Milestone 3 [i686 + x86-64] (2xDVD)
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88204.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88204.jpgsave_picture_88204.jpg" />
 </div>
 
 

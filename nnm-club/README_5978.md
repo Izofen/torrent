@@ -6,7 +6,7 @@
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188163.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188163.jpgsave_picture_188163.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:6A1EF2E44BB67DA3AE3C4F4DB8B74743E46C55F8
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188164.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188164.jpgsave_picture_188164.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Ayaka | Ayaka: A Story of Bonds and Wounds | Аяка [2023, TV, 12 эп.] WEBRi
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188165.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188165.jpgsave_picture_188165.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:E1422573D8A4F1809DB13EFC79551FDD61DAEA81
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188166.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188166.jpgsave_picture_188166.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:8543A0586F8F6C7307250B932FD151C5FF4668E0
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188167.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188167.jpgsave_picture_188167.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:4DE325F0C0C817F19226561F5F9062F02E83847F
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188168.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188168.jpgsave_picture_188168.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Sufyan bin Uzayr | Conquering JavaScript: Node.js (2024) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188169.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188169.jpgsave_picture_188169.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ Adobe Bridge 2024 14.0.0.102 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188171.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188171.jpgsave_picture_188171.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ Pilot Down: Behind Enemy Lines / Падение ястреба: В тылу вр
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188172.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188172.jpgsave_picture_188172.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:7425F0061B64FD9F71C3163B9ECEDAEBE4B37AD2
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188174.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188174.jpgsave_picture_188174.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Stellar Monarch (2016) [En] (1.48/dlc) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188175.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188175.jpgsave_picture_188175.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ magnet:?xt=urn:btih:586BF505F4F81694D41C278642EECC92E374F2CA
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188176.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188176.jpgsave_picture_188176.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ magnet:?xt=urn:btih:27F39D8143340F12051BC9B4F2EE586513533716
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188179.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188179.jpgsave_picture_188179.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ magnet:?xt=urn:btih:DD2F181BDAAE93796A4087A2A3C35EB135E34521
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188180.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188180.jpgsave_picture_188180.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ magnet:?xt=urn:btih:D270AC125B2B717F2C0667652335B499FC22EF3A
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188181.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188181.jpgsave_picture_188181.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ magnet:?xt=urn:btih:4DC320C8006FEED3039CB39420598773C86C6131
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188182.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188182.jpgsave_picture_188182.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ magnet:?xt=urn:btih:D7A05B625FBFC13E1808C4F23807F329FF0FFA5A
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188183.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188183.jpgsave_picture_188183.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ R-Drive Image System Recovery Media Creator 7.1 Build 7109 RePack (& Portable) b
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188185.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188185.jpgsave_picture_188185.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ CarBit ELM327 OBD2 v3.5.2 Mod by vedserega [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188186.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188186.jpgsave_picture_188186.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ HP Service Pack for ProLiant Gen 10 2023.03 [En]
 >>Серверное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188187.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188187.jpgsave_picture_188187.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:0C53E591E09CF22EC0B55D9EECA4B3D0521D9AE2
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188188.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188188.jpgsave_picture_188188.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:F38456635AEC989B9FC56B81E82D3BFF15E9DF9B
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188189.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188189.jpgsave_picture_188189.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ magnet:?xt=urn:btih:576B6F573400E6E8EEF283C37164CBB3C6C922DB
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188190.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188190.jpgsave_picture_188190.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ magnet:?xt=urn:btih:2CBB1997070A4112839463217F49738ED29271AA
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188191.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188191.jpgsave_picture_188191.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ The Unarchiver - Unzip RAR ZIP 3.3.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188192.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188192.jpgsave_picture_188192.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ HP Service Pack for ProLiant Gen 10 2023.09 [En]
 >>Серверное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188194.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188194.jpgsave_picture_188194.jpg" />
 </div>
 
 

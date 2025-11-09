@@ -6,7 +6,7 @@
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27988.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27988.jpgsave_picture_27988.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ BROK the InvestiGator - Natal Tail, A New Christmas (2024) [Ru/Multi] (1.0.7.1) 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27989.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27989.jpgsave_picture_27989.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Instruments of Destruction (2024) [Ru/Multi] (1.11c) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27990.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27990.jpgsave_picture_27990.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:87F7BA01DBE6F62BB23DA7B4DE8AC005A2EA6A7B
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27991.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27991.jpgsave_picture_27991.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ TechSmith Snagit 2024.3.2 build 5719 (x64) RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27992.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27992.jpgsave_picture_27992.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ MULLET MADJACK (2024) [Ru/Multi] (1.12b/dlc) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27993.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27993.jpgsave_picture_27993.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:711071139A7624153BAE1F325A7143AFABFA0567
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27994.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27994.jpgsave_picture_27994.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Security Task Manager 3.0 Portable by zeka.k [Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27995.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27995.jpgsave_picture_27995.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:3DE2DF984E43588E887CBA9852589E0AD6B4C821
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27996.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27996.jpgsave_picture_27996.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:2886339BE472A7E6F0A6CC635FDAD5C6ED37CF0F
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27997.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27997.jpgsave_picture_27997.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Annie Leibovitz | Annie Leibovitz Teaches Photography (2017) WEB-DL [RU]
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27998.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27998.jpgsave_picture_27998.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Bandizip Pro-Ent 7.37 Build 69087 + Portable [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27999.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27999.jpgsave_picture_27999.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:285DF45C1E70D07453E99A143DBD578DD97D5986
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28000.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28000.jpgsave_picture_28000.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ magnet:?xt=urn:btih:7F14875FE4331294ECFEC84369B124BA8E6F1E76
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28001.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28001.jpgsave_picture_28001.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ S.T.A.L.K.E.R. Антология (2007-2009) [Ru] (1.0006/1.5.10/1.6.02) Licens
 >>35
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28002.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28002.jpgsave_picture_28002.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Upscale видео с использованием AI (обсуждение, п�
 >>49
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28003.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28003.jpgsave_picture_28003.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Upscale видео с использованием AI (обсуждение, п�
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28004.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28004.jpgsave_picture_28004.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ magnet:?xt=urn:btih:06FF82619A28201DFD9963ADD135731FB62AA681
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28005.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28005.jpgsave_picture_28005.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ System software for Windows v.3.6.6 by CUTA [Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28006.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28006.jpgsave_picture_28006.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ magnet:?xt=urn:btih:4A1409A1E7F576549BBBDAB2AACFB6D39C022067
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28007.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28007.jpgsave_picture_28007.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Alone in the Dark (2024) [Ru/Multi] (1.05b/dlc) Repack Decepticon
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28008.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28008.jpgsave_picture_28008.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ magnet:?xt=urn:btih:A01A2F1C223830FDFDA9CBA39AA19A19B12A4E22
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28009.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28009.jpgsave_picture_28009.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ magnet:?xt=urn:btih:A3FA1FADE2318B591BE362D71402BD2CEA12ABB1
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28010.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28010.jpgsave_picture_28010.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ magnet:?xt=urn:btih:1AEBEF4F86B3B05B46EB715D9CC321602CBA8836
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28011.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28011.jpgsave_picture_28011.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ magnet:?xt=urn:btih:1AEBEF4F86B3B05B46EB715D9CC321602CBA8836
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28012.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28012.jpgsave_picture_28012.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Navitel / Официальные карты релиза Q1 2025 v9 [Ru/Multi]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28013.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28013.jpgsave_picture_28013.jpg" />
 </div>
 
 

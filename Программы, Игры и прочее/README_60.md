@@ -6,7 +6,7 @@ Jillian Michaels | Fitness App v4.4.2 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129651.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129651.jpgsave_picture_129651.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Bluetooth Printer, USB, Receipt v4.3 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129654.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129654.jpgsave_picture_129654.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Wheel Size v2.10.1 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129711.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129711.jpgsave_picture_129711.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Tap To Translate Screen v1.41 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129723.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129723.jpgsave_picture_129723.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ eWeather HDF погода и барометр v8.5.5 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129745.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129745.jpgsave_picture_129745.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ Numia: Астрология и Гороскопы v2.0.5 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130115.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130115.jpgsave_picture_130115.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ UPlayer Pro v2.0.6 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130442.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130442.jpgsave_picture_130442.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ UPlayer Pro v2.0.4 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130458.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130458.jpgsave_picture_130458.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ Powerful RAM Monitor Pro v10.1.0 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131014.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131014.jpgsave_picture_131014.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ Speedtest от Ookla 5.2.4 Mod by LEEAPK [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131104.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131104.jpgsave_picture_131104.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:440B5B6CF9173973995F70EB127EC5CF19F932EA
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131253.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131253.jpgsave_picture_131253.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ XY VPN - Security Proxy VPN 4.7.329 Mod by ModdingUnited [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131315.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131315.jpgsave_picture_131315.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ VPN Inf - Security Fast VPN 7.6.301 Mod by ModdingUnited [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131333.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131333.jpgsave_picture_131333.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Melon VPN - Secure Proxy VPN 7.9.633 Mod By ModdingUnited [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131336.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131336.jpgsave_picture_131336.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Bazaart: Photo Editor & Graphic Design v2.4.0 Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131479.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131479.jpgsave_picture_131479.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ magnet:?xt=urn:btih:7D03A7F1DC6BBDD258F6AFA4FA33E69DF67C4CFD
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131616.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131616.jpgsave_picture_131616.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Melon VPN - Secure Proxy VPN 7.9.633 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131780.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131780.jpgsave_picture_131780.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Planner 5D - дизайн интерьера v2.8.8 Mod by App_modz [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132505.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132505.jpgsave_picture_132505.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ OBDeleven VAG car diagnostics v0.76 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132545.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132545.jpgsave_picture_132545.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ AR Ruler App: Линейка Рулетка v2.7.4 Mod by Timozai [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132588.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132588.jpgsave_picture_132588.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ AR Plan 3D: Линейка, Рулетка v4.8.1 Mod by Timozhai [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132590.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132590.jpgsave_picture_132590.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ VPN Inf - Security Fast VPN 7.6.301 Mod by AzadNet [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132604.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132604.jpgsave_picture_132604.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ magnet:?xt=urn:btih:F562DCEEEA3A989FCA255A6E236A9BED821F3E8D
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132624.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132624.jpgsave_picture_132624.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ Psiphon Pro 390 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132637.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132637.jpgsave_picture_132637.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ Photo Lab PRO v3.12.80 Mod by Mixroot, maxi123444 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132671.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132671.jpgsave_picture_132671.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ Moon+ Reader Pro v8.6 (build 806004) Mod by Balatan, Mixroot,  Lucky Las [Ru/Mul
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132972.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132972.jpgsave_picture_132972.jpg" />
 </div>
 
 

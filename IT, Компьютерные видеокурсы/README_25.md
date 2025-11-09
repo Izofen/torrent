@@ -6,7 +6,7 @@ Udemy, Георгий Черняк | Инженер тендерного отд�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170939.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170939.jpgsave_picture_170939.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:6CDDE280C61A0B4E1405678C0D136D5C06DF3CFA
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170945.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170945.jpgsave_picture_170945.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Skill.Im, Екатерина Нечипоренко | Visual Basic for Applicati
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170962.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170962.jpgsave_picture_170962.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ Rebrain | Онлайн-тренажер Prometheus by Rebrain  (2023) WEB-DL [AD
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171108.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171108.jpgsave_picture_171108.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ Udemy, Steve Avon | Trending Stocks with Python, Reddit, Twitter, and ChatGPT (2
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171475.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171475.jpgsave_picture_171475.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ magnet:?xt=urn:btih:EF56C3393AC0BEE2D7E4E754D2C07A7967813C9E
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172536.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172536.jpgsave_picture_172536.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ magnet:?xt=urn:btih:61C61A878270ECF33D6059BAB5912EE849CA1AD8
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172911.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172911.jpgsave_picture_172911.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ magnet:?xt=urn:btih:103E0297CC3330D76345F59BEEEE27BCBAE3AFA2
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172912.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172912.jpgsave_picture_172912.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ magnet:?xt=urn:btih:8C98849F9E44F1C2950C0D5400266C9F269F2459
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172926.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172926.jpgsave_picture_172926.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ magnet:?xt=urn:btih:C064310E483EE35454618C4778E343E6E8BF3191
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172929.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172929.jpgsave_picture_172929.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ magnet:?xt=urn:btih:375B8A1630E5B1731CCFE0F193CA58FD29F34C93
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172930.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172930.jpgsave_picture_172930.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ magnet:?xt=urn:btih:3309228D34292BCEC675B5E5EA213B7251CDE5C5
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172942.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172942.jpgsave_picture_172942.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ magnet:?xt=urn:btih:D34013BDDAF2DF3BB9838B4C0A61234D6A8A9E36
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173076.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173076.jpgsave_picture_173076.jpg" />
 </div>
 
 
@@ -340,7 +340,7 @@ magnet:?xt=urn:btih:92E479EA6EA1295980FB6BC0B82E1D498FD16131
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173104.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173104.jpgsave_picture_173104.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ magnet:?xt=urn:btih:4C24175AD5B2B9B5953A0434243E881ADAC2BE00
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173112.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173112.jpgsave_picture_173112.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ magnet:?xt=urn:btih:D4D48015F6FCBF192BB4B579972CBA1F3ABCD213
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173134.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173134.jpgsave_picture_173134.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ Udemy, Meta Brains | ChatGPT Coding Express: Fast-Track Coding with ChatGPT (202
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173136.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173136.jpgsave_picture_173136.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:5B9EEECD62FEEEF7EA50F17C58DA8BA1EE1D5988
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173477.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173477.jpgsave_picture_173477.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Udemy, Mahadi | Create and Publish a Mobile RPG Game with Unreal Engine (2025) P
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173511.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173511.jpgsave_picture_173511.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Slurm (Слёрм), Дмитрий Горчаков | Микросервисы �
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173512.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173512.jpgsave_picture_173512.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ magnet:?xt=urn:btih:33C005F74055B0F5ADFFD17F4E002FDBBBC6DF4E
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173521.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173521.jpgsave_picture_173521.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ magnet:?xt=urn:btih:C66E791C176A30063548DA1946F21ED9B02A23B9
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174658.jpgsave_picture_174658.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ magnet:?xt=urn:btih:F589657ACDF4B228A0F7731ADD00E02723866FD7
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174674.jpgsave_picture_174674.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ Udemy, MrBriit | End-To-End Machine Learning Projects&Deployment Mastery 2021 (2
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174893.jpgsave_picture_174893.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ OTUS, Павел Пархомец и др. | Безопасность веб-п�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175447.jpgsave_picture_175447.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Udemy, Vinoth Selvaraj | Selenium WebDriver и Паттерны Проектир
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175627.jpgsave_picture_175627.jpg" />
 </div>
 
 

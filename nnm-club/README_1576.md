@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41333.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41333.jpgsave_picture_41333.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Steamworld Heist (2016) [Ru/Multi]  (2.1/dlc) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41334.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41334.jpgsave_picture_41334.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Thunder - 26 Albums (1990 - 2024) 49 CD [FLAC|Lossless|image + .cue, tracks + .c
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41335.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41335.jpgsave_picture_41335.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:A94A7416412CB8F5C49AC964D4378A8937390CA5
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41336.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41336.jpgsave_picture_41336.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Starfield (2023) [Ru/Multi] (1.14.70.0/dlc) Repack Other s [Premium Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41337.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41337.jpgsave_picture_41337.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:783E04DB9496F4AD81DC74FB1E374B43321BEA21
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41338.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41338.jpgsave_picture_41338.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:30EA080498CF36681B330337165C9CBFFF541269
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41339.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41339.jpgsave_picture_41339.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Call of Duty - Антология (2003-2012) [Ru] Repack dixen18
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41340.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41340.jpgsave_picture_41340.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Archicad 28.0.0 build 3001 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41341.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41341.jpgsave_picture_41341.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:512541C1BC4D41A17B39279B380115EAFFC459B6
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41342.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41342.jpgsave_picture_41342.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ LazyMedia Deluxe v3.334 Mod by Alex.Strannik [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41343.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41343.jpgsave_picture_41343.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:F249C3728E29EE54F66AADAE4EAE99CBA066CB2E
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41344.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41344.jpgsave_picture_41344.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:E766B7157915EB85178CD79C0C45296A41C40645
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41345.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41345.jpgsave_picture_41345.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Topaz Video AI 5.3.4 (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41346.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41346.jpgsave_picture_41346.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Electrical Calculations Pro / Электрические расчеты v10.0.9 
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41347.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41347.jpgsave_picture_41347.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ K-Lite Codec Pack Update 18.6.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41348.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41348.jpgsave_picture_41348.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ magnet:?xt=urn:btih:72A658DB93EC062AF43C9F40DDC279C070DE4764
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41349.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41349.jpgsave_picture_41349.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ Kimi no Koto ga Dai Dai Dai Dai Daisuki na 100 Nin no Kanojo | Hyakkano | Сто
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41350.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41350.jpgsave_picture_41350.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ magnet:?xt=urn:btih:0EE5803CF5B480FAD9207B83510A7841D9CF1ABE
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41351.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41351.jpgsave_picture_41351.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ CherryTree 1.2.0.0 (x64) + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41352.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41352.jpgsave_picture_41352.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ magnet:?xt=urn:btih:25AF2B87835ECC13FF3A3C89B693D6685F1EF375
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41353.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41353.jpgsave_picture_41353.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ VA - Союз 21 (1997) [MP3|320 Kbps] <Pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41354.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41354.jpgsave_picture_41354.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ ToonApp: AI Cartoon Photo Editor, Cartoon Yourself v2.6.91 Mod by Mixroot [Ru/Mu
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41355.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41355.jpgsave_picture_41355.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ VA - Memorable Blues Instrumental (2024) [MP3|320 Kbps] <Blues, Blues Rock>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41356.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41356.jpgsave_picture_41356.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ magnet:?xt=urn:btih:9203A5E98690B467EA1B8ACDF24F3EC836F25ED3
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41357.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41357.jpgsave_picture_41357.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ magnet:?xt=urn:btih:04AA573AA113604353E7B25B2C15827D5E45E40D
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41358.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41358.jpgsave_picture_41358.jpg" />
 </div>
 
 

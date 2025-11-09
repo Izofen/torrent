@@ -6,7 +6,7 @@ Craft The World (2014) [Ru/Multi] (1.10.005 1/dlc) License GOG (обновляе
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30073.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30073.jpgsave_picture_30073.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Udemy, Bogdan Stashchuk | Docker - Полный курс Docker (2022) WEB-DL [R
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30074.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30074.jpgsave_picture_30074.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:F347A2286EB9E81E941BDC9E0EFB36DEB247D3C8
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30075.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30075.jpgsave_picture_30075.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:9449E94F13B72751C9F4FAED5F1ED976AAD42924
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30076.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30076.jpgsave_picture_30076.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Microsoft® Windows® 11 Enterprise LTSC x64 24H2 by OVGorskiy 01.2025  [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30077.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30077.jpgsave_picture_30077.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:FFD4F2281F23F296C838572082D95893DF492DE2
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30078.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30078.jpgsave_picture_30078.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Microsoft Windows 11 [10.0.26100.2894], Version 24H2 (Updated January 2025) - О
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30079.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30079.jpgsave_picture_30079.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:214ABA43DA6837D16367B4086B11364F4B254612
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30080.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30080.jpgsave_picture_30080.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Kaspersky Free 21.20.8.505 Repack by LcHNextGen (23.01.2025) [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30081.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30081.jpgsave_picture_30081.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:77FF349D8BDC2DDCD26EB2F5CCB24D9486F1703B
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30082.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30082.jpgsave_picture_30082.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Ventoy 1.1.00 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30083.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30083.jpgsave_picture_30083.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ Blackmagic Design DaVinci Resolve Studio 19.1.3 Build 7 RePack by KpoJIuK [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30084.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30084.jpgsave_picture_30084.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ magnet:?xt=urn:btih:8D87DFBDFF16259F58B013B0F0E693D017CA0CA3
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30085.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30085.jpgsave_picture_30085.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ magnet:?xt=urn:btih:FD405A88B542E1437A120D5E0EB37EB8771FA96E
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30086.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30086.jpgsave_picture_30086.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Auslogics SSD Optimizer Pro 2.0.0.2 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30087.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30087.jpgsave_picture_30087.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ magnet:?xt=urn:btih:14A6C9C7808BA720F4E7403006FC1D7BAA40B842
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30088.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30088.jpgsave_picture_30088.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ The Bat! Professional 11.4.1.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30089.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30089.jpgsave_picture_30089.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ BBC: Нацизм - Предостережение истории / The Nazis: A
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30090.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30090.jpgsave_picture_30090.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ The Redundant (2025) [Ru/Multi] (Build 17094745) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30091.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30091.jpgsave_picture_30091.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Psiphon 3 build 185 Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30092.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30092.jpgsave_picture_30092.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Kylie Minogue - Body Language (2003) [FLAC|Lossless|tracks + .cue] <Electronic, 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30093.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30093.jpgsave_picture_30093.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ XYplorer 26.80.0200 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30094.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30094.jpgsave_picture_30094.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ QOwnNotes 25.1.5 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30095.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30095.jpgsave_picture_30095.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ VA - Winter Dance Covers 2025 (2025) [MP3|320 Kbps] <Dance, Club, House, Electro
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30096.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30096.jpgsave_picture_30096.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ Riot V - Mean Streets (2024) 2xCD, Japanese Edition, Limited Edition [FLAC|Lossl
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30097.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30097.jpgsave_picture_30097.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ Visions Of Atlantis - Armada LIVE Over Europe - Pt. 2 (2025) [FLAC 24/48|Lossles
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30098.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30098.jpgsave_picture_30098.jpg" />
 </div>
 
 

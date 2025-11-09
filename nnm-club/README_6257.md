@@ -6,7 +6,7 @@ Kidou Senshi Gundam: Suisei no Majo (2023) | Mobile Suit Gundam: The Witch from 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_196231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196231.jpgsave_picture_196231.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:988AA734EA872F36431686FDD21245DBBF8D6FAA
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196234.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196234.jpgsave_picture_196234.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:A485C2B6BD185BCAD0DD8E17D0AA9A5B47E5EA76
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_196235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196235.jpgsave_picture_196235.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Image Uploader 1.3.3 Build 4964 + Portable [Multi/Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_196236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196236.jpgsave_picture_196236.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:69CE2AE222BA72B126A4A1D7B17FF7B3C6C64BD6
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196237.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196237.jpgsave_picture_196237.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:44D68C47CB6CC55B994D53A083B6B516FC4B188C
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196238.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196238.jpgsave_picture_196238.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:46947B4318BD4E22FD8DF4B604BC4046E310431C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196239.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196239.jpgsave_picture_196239.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:0098D9ADC9D20B7EB1F7CBCB816ED094463F21E5
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_196240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196240.jpgsave_picture_196240.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Imagine : AI Art Generator v2.8.4 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_196242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196242.jpgsave_picture_196242.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:8D679A7098602EF2A05EAEF2D80114921EDCFDA4
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196243.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196243.jpgsave_picture_196243.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ magnet:?xt=urn:btih:21338B958E3AB7085610B4B2A47E63F4294AA74D
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_196244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196244.jpgsave_picture_196244.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Jigokuraku | Hell's Paradise: Jigokuraku | Адский рай [2023, TV, 13 э�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_196245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196245.jpgsave_picture_196245.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Udemy, David Makowski | Modern Unity UI with UI Toolkit (2023) WEB-DL [EN / EN S
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196246.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196246.jpgsave_picture_196246.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ magnet:?xt=urn:btih:43DDD296CD1D47747A3CFA37D6566B1527986DD2
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196247.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196247.jpgsave_picture_196247.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ magnet:?xt=urn:btih:611185780F665922FEB37BAC324141B1682A4849
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196248.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196248.jpgsave_picture_196248.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ magnet:?xt=urn:btih:A71C8DD673E732A3CE810E19260D6AB218347D44
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_196249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196249.jpgsave_picture_196249.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ magnet:?xt=urn:btih:CE85E2840ADF0F82362018ED7536D59DA286771D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196250.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196250.jpgsave_picture_196250.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ magnet:?xt=urn:btih:4C073567FB3A072C7F1DAD9D64702CD3F3450CF7
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196251.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196251.jpgsave_picture_196251.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ magnet:?xt=urn:btih:F811296EDF0E4138B71C18B5E7E910A635420C7E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196252.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196252.jpgsave_picture_196252.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ VA - Return Of The Future (2023) [MP3|320 Kbps] <Future, Progressive House, Elec
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196253.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196253.jpgsave_picture_196253.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ magnet:?xt=urn:btih:961247D8C5EDD29C2BCDE0AE6402A33478426E12
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196254.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196254.jpgsave_picture_196254.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ magnet:?xt=urn:btih:8D90A97F26BA0CABF1C9BA2500FE6F6F368B9248
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196255.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196255.jpgsave_picture_196255.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Mashle | Mashle: Magic and Muscles | Магия и мускулы [2023, TV, 12 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_196256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196256.jpgsave_picture_196256.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ magnet:?xt=urn:btih:68F116826AABC6B50C4810696A46AAE46B92FCCC
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196257.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196257.jpgsave_picture_196257.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Voodolls (2023) [Multi] (1.0.4) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_196258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196258.jpgsave_picture_196258.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ magnet:?xt=urn:btih:4E7407253CCC89E8BBC7D12A1F6BE212600C664F
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196259.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196259.jpgsave_picture_196259.jpg" />
 </div>
 
 

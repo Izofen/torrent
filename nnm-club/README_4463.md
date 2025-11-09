@@ -6,7 +6,7 @@
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139543.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139543.jpgsave_picture_139543.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Artie Shaw - 1950 (2005) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big Band
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139544.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139544.jpgsave_picture_139544.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Doctor Lonnie Smith - Too Damn Hot! (2004) Palmetto Records[FLAC|tracks+.cue] <J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139546.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139546.jpgsave_picture_139546.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:C048341BE21A3E5AA725366BDA5ACA8472103A69
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139548.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139548.jpgsave_picture_139548.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Digital-Tutors | Introduction to Houdini 15 (2015) PCRec [H.264/720p-LQ]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139549.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139549.jpgsave_picture_139549.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ David Arkenstone, Kathleen Fisher - Celtic Sanctuary (2006) [FLAC|Lossless]<New 
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139550.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139550.jpgsave_picture_139550.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ magnet:?xt=urn:btih:23C0B89ACD1A57932B9EF230A829E30717F0E7C7
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139552.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139552.jpgsave_picture_139552.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ Claptone - Fantast (2018) [FLAC|Lossless|tracks + .cue] <Deep House, Indie Dance
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139554.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139554.jpgsave_picture_139554.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ RAW Converter 2 v2.6 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139555.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139555.jpgsave_picture_139555.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ magnet:?xt=urn:btih:C9A184AA237B4C224CF57D99172A2B4DACD497AA
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139558.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139558.jpgsave_picture_139558.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ PDF to Word&Document Converter 6.1.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139559.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139559.jpgsave_picture_139559.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ magnet:?xt=urn:btih:838FF8C0E2F70CCEE929E0DD27036A74E15439C9
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139560.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139560.jpgsave_picture_139560.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ magnet:?xt=urn:btih:7A8447EF0AFE4D8ECFFB1C663D2C8B1109703FFB
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139561.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139561.jpgsave_picture_139561.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ magnet:?xt=urn:btih:FAE858CBDEAB12A137732AAD3A790B6C92E4A224
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139562.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139562.jpgsave_picture_139562.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ magnet:?xt=urn:btih:E5DCF14461C8ABCFDD02D54B76F1ACD6A5C7F3DF
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139563.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139563.jpgsave_picture_139563.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ magnet:?xt=urn:btih:828BF15650C43147182091B8F7B9374CA845853D
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139564.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139564.jpgsave_picture_139564.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ magnet:?xt=urn:btih:28EE4AC51E9F1F17B34CB03E6E1B967E3F20BF16
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139565.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139565.jpgsave_picture_139565.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ magnet:?xt=urn:btih:9E702F130694D40510016FEF285ADF98FAED2452
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139566.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139566.jpgsave_picture_139566.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ magnet:?xt=urn:btih:C39BB749CE42594CE4730B291CD0BB63D6BF703D
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139568.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139568.jpgsave_picture_139568.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ LibreOffice 7.6.3.2 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139569.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139569.jpgsave_picture_139569.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ magnet:?xt=urn:btih:50723F8F9B9AEDB31724CB61DB47E908390FB934
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139570.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139570.jpgsave_picture_139570.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ VA - Best Config Top 2018 (2018) [MP3|320 Kbps] <Melodic, Caribbean, Tropical>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139571.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139571.jpgsave_picture_139571.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ magnet:?xt=urn:btih:7BA2093D199FF38FC9581781DBA02EDED62FF50B
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139572.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139572.jpgsave_picture_139572.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Destruction - Born To Thrash: Live In Germany (2020) [FLAC|Lossless|image + .cue
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139573.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139573.jpgsave_picture_139573.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ magnet:?xt=urn:btih:C29B8CF308AC3EE5AAF2D2D286D41DED08814D22
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139574.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139574.jpgsave_picture_139574.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ magnet:?xt=urn:btih:869291B5A8E0C59072D14B9373704392536B7538
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139575.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139575.jpgsave_picture_139575.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Laudanum - As blue as my veins (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Ele
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122920.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122920.jpgsave_picture_122920.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Metallica - Unload (Bootleg) (1999) [FLAC 16/44.1|Lossless|tracks|MC-Rip] <Acous
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122926.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122926.jpgsave_picture_122926.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Alluvial - Death Is But A Door (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Progr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123050.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123050.jpgsave_picture_123050.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Triple Kill - Studio Albums (3 releases) (2017-2023) hand made [restored, declip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123056.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123056.jpgsave_picture_123056.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Ryujin - RYUJIN (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Metal, Melodic Death
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123064.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123064.jpgsave_picture_123064.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ The Grandmaster - Black Sun (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodi
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123070.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123070.jpgsave_picture_123070.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Neal Morse - The Restoration - Joseph: Part Two (2024) [FLAC 24/48|Lossless|WEB-
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123086.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123086.jpgsave_picture_123086.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Russell - Guns (Jack Russell, Tracii Guns) - Medusa (2024) [FLAC 24/44.1|Lossles
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123091.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123091.jpgsave_picture_123091.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ Exit Eden - Femmes Fatales (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Symphon
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123111.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123111.jpgsave_picture_123111.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ magnet:?xt=urn:btih:9C912347AE4CE8BB094AF80A25561D18E5714B06
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123116.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123116.jpgsave_picture_123116.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ magnet:?xt=urn:btih:E74F8F0520A8681935D11A5BB56057346E0A1B79
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123125.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123125.jpgsave_picture_123125.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Green Labyrinth - Studio Albums (2 releases) (2014-2023) hand made [restored, de
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123237.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123237.jpgsave_picture_123237.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Infernal Poetry - Studio Albums (4 releases) (2002-2013) hand made [restored, de
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123238.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123238.jpgsave_picture_123238.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Teramaze - Are We Soldiers (2019) [FLAC|24/192|tracks|Vinyl-Rip] <Progressive Me
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123241.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123241.jpgsave_picture_123241.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Athemon - Athemon (2022) Reissue, 2024, Athemon [FLAC 24/44.1|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123242.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123242.jpgsave_picture_123242.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Al-Namrood - 10 Years of Resistance (2018) [FLAC|24/192|tracks|Vinyl-Rip] <Black
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123243.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123243.jpgsave_picture_123243.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Above & Beyond, ABGT, Anjunabeats - Group Therapy Best Of 2023 pt.2 (2023) [FLAC
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123246.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123246.jpgsave_picture_123246.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ Above & Beyond, ABGT, Anjunabeats - Group Therapy Best Of 2023 pt.1 (2023) [FLAC
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123248.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123248.jpgsave_picture_123248.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ Batushka - Litourgiya (2015) Reissue, 2018, Witching Hour Productions [FLAC|24/1
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123249.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123249.jpgsave_picture_123249.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ Ryan Adams - 1985 (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123254.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123254.jpgsave_picture_123254.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Sodom - 1982 (2023) EP [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Thrash Metal, Expe
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123255.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123255.jpgsave_picture_123255.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Ryan Adams - Star Sign (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123256.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123256.jpgsave_picture_123256.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Liva - Ecce Mundus (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Symphonic Power
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123262.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123262.jpgsave_picture_123262.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ Magnum - Here Comes The Rain (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melod
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123265.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123265.jpgsave_picture_123265.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ Graveworm - Studio Albums (10 releases) (1997-2023) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123278.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123278.jpgsave_picture_123278.jpg" />
 </div>
 
 
@@ -676,7 +676,7 @@ Above & Beyond, ABGT, Anjunabeats - Group Therapy 560 (2024) [FLAC 24/44.1|Lossl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123279.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123279.jpgsave_picture_123279.jpg" />
 </div>
 
 

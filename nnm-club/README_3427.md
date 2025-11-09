@@ -6,7 +6,7 @@
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109463.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109463.jpgsave_picture_109463.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Soft Relaxing Piano Music - Famous Piano Songs 2024: Piano Jazz Relax [FLAC|Loss
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109464.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109464.jpgsave_picture_109464.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ VA - EDC Las Vegas 2024 (2024) [MP3|320 Kbps] <Trance, House, Melodic House & Te
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109465.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109465.jpgsave_picture_109465.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ VA - Epifania Part I-II (2023) [FLAC|Lossless|WEB-DL|tracks] <Trance, Dance>
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109466.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109466.jpgsave_picture_109466.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Waterfox Current G6.0.14 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109467.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109467.jpgsave_picture_109467.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ RJ TextEd 16.21 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109468.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109468.jpgsave_picture_109468.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ Moon+ Reader Pro v9.4 (b904000) Mod by Lucky Las [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109469.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109469.jpgsave_picture_109469.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:8A93DEC880011A4BDCEE1F94681BD036502E5819
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109470.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109470.jpgsave_picture_109470.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ QuickEdit Text Editor Pro 1.11.0 Mod by Maximoff [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109471.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109471.jpgsave_picture_109471.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ PowerDirector – Video Editor v14.0.0 b2405101 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109472.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109472.jpgsave_picture_109472.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ magnet:?xt=urn:btih:16EE3FEE85FBDDF44C8A1FDAB8DC553FF78FC67F
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109473.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109473.jpgsave_picture_109473.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ Castle Rat - Into The Realm (2024) [MP3|320 Kbps] <Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109474.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109474.jpgsave_picture_109474.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ Planeta Vina - Космический Mусорг (2024) [MP3|320kbps] <Post-Gru
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109475.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109475.jpgsave_picture_109475.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ magnet:?xt=urn:btih:41A3346F5062A7264B0BDB6749F6991FD4FDC16F
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109476.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109476.jpgsave_picture_109476.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ magnet:?xt=urn:btih:F977A93B6844F00F48A8CCF27FF85E00DAFA11E9
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109477.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109477.jpgsave_picture_109477.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ DesktopOK 11.22 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109478.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109478.jpgsave_picture_109478.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ magnet:?xt=urn:btih:4F97FAF172619E1DC59B7D0FBCE41932758043CC
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109479.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109479.jpgsave_picture_109479.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ HomeBank 5.8 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109480.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109480.jpgsave_picture_109480.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ Knif Audio & Plugin Alliance - Soma 1.3.1 VST, VST 3, AAX (x64) RePack by TCD [E
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109481.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109481.jpgsave_picture_109481.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Vivaldi 6.7.3329.31 include standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109482.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109482.jpgsave_picture_109482.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Retouch - Technocracy (2024) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Dreamwave
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109483.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109483.jpgsave_picture_109483.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Google Chrome 125.0.6422.61 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109484.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109484.jpgsave_picture_109484.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Smokie - Rock Away Your Teardrops (1996) [MP3|320 Kbps] <Pop Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109485.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109485.jpgsave_picture_109485.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ magnet:?xt=urn:btih:0ECFE6340CE224C9EB1B10CB52F933708CAF06F9
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109486.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109486.jpgsave_picture_109486.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ VA - Dance: Made in Italy (2023) [FLAC|Lossless|WEB-DL|tracks] <Dance, Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109487.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109487.jpgsave_picture_109487.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ Wave Arts - FinalPlug 7 7.01 VST, VST 3, AAX (x64) RePack by TCD [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109488.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109488.jpgsave_picture_109488.jpg" />
 </div>
 
 

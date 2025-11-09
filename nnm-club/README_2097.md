@@ -6,7 +6,7 @@
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54889.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54889.jpgsave_picture_54889.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:BC9FE895C08D8AAA5FCF3152B0E880BF2AA3CCEB
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54890.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54890.jpgsave_picture_54890.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Rachel Smith | American English Pronunciation. Audio (2015) [MP3, Rachel Smith] 
 >>Иностранные языки (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54891.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54891.jpgsave_picture_54891.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:C2BEF3B3230FE7950BAE8D795345E35BF41ECE6C
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54892.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54892.jpgsave_picture_54892.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:BD49AF74E291C6041034035C37A81D511103B770
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54893.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54893.jpgsave_picture_54893.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Chaos Vantage 2.4.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54894.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54894.jpgsave_picture_54894.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Topaz Video AI 5.1.0 (x64) RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54895.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54895.jpgsave_picture_54895.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Rachel Smith | American English Pronunciation (2015) [PDF] [EN]
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54896.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54896.jpgsave_picture_54896.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:E4F42F92C41F824B89407FAB99A4974AD478DDC9
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54897.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54897.jpgsave_picture_54897.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Wondershare UniConverter Ultimate 15.5.10.97 (х64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54898.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54898.jpgsave_picture_54898.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ magnet:?xt=urn:btih:10A5C6C62C3E28BEF3FA11F3696EE194E19EA249
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54899.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54899.jpgsave_picture_54899.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ SuperПерцы / Superbad (2007) BDRip [Расширенная версия / E
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54900.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54900.jpgsave_picture_54900.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:F7228A666BE30450396D1F5C2D5EA339B0626827
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54901.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54901.jpgsave_picture_54901.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ magnet:?xt=urn:btih:960F998A2031827167DA3557932E9DD10DE099C0
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54902.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54902.jpgsave_picture_54902.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Zed A. Shaw | Learn More Python 3 the Hard Way: The Next Step for New Python Pro
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54903.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54903.jpgsave_picture_54903.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ magnet:?xt=urn:btih:030A5A827153BB56969C51D3A6347B8C42D4E4DD
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54904.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54904.jpgsave_picture_54904.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ magnet:?xt=urn:btih:54D145FC81868EF9E7A4E0D2F1E53E91E6961D81
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54905.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54905.jpgsave_picture_54905.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ magnet:?xt=urn:btih:7BCD9979B1ACEBD38A0C4FC2C9DD7BAF9D29CBD1
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54906.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54906.jpgsave_picture_54906.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Adrian Wallwork | English for Writing Research Papers (2017) [PDF] [EN]
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54907.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54907.jpgsave_picture_54907.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ magnet:?xt=urn:btih:38D7B86910C6CCE2396F920DBAACE94422A0EB86
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54908.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54908.jpgsave_picture_54908.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ magnet:?xt=urn:btih:BBBC77EADAA6C47EFAD9166AE0D5B2FFFAECAA13
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54909.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54909.jpgsave_picture_54909.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ magnet:?xt=urn:btih:BBBC77EADAA6C47EFAD9166AE0D5B2FFFAECAA13
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54910.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54910.jpgsave_picture_54910.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ magnet:?xt=urn:btih:F29957B9955F1F86E412DD0857E948F01438D0BD
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54911.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54911.jpgsave_picture_54911.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ magnet:?xt=urn:btih:15A9AD045D92CD14716ECE5563708A3197CFE67C
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54912.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54912.jpgsave_picture_54912.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ magnet:?xt=urn:btih:91766071DB087AF281EBF7920D2C560D1F6B2CE5
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54913.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54913.jpgsave_picture_54913.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ magnet:?xt=urn:btih:B6D56C04AC55E38573AA011DB231510D7D2C6C9C
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54914.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54914.jpgsave_picture_54914.jpg" />
 </div>
 
 

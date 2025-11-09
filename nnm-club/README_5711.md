@@ -6,7 +6,7 @@ Photo Supreme 2023.2.0.5038 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176045.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176045.jpgsave_picture_176045.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Stvore - One (2020) [AAC|~344 Kbps] <Metal>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_176046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176046.jpgsave_picture_176046.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:0D71379A135753FFE87CD0D680C4567F23B41BDF
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_176047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176047.jpgsave_picture_176047.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:B287EF56568CC5B14895308B47F780C4EDB17F17
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176049.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176049.jpgsave_picture_176049.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ PrivaZer (Donors) 4.0.59 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176050.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176050.jpgsave_picture_176050.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Uniform - Shame (2020) [AAC|~334 Kbps] <Metal>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_176052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176052.jpgsave_picture_176052.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ Christmas Stories 11: Taxi of Miracles (2022) [En] (1.0) Unofficial [Collector's
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176053.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176053.jpgsave_picture_176053.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - Solo Divas Volumen 3 (2023) [MP3|320 Kbps] <Pop, Soul>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176054.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176054.jpgsave_picture_176054.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:C2CC980E43F0F25EF994A19277444D7523305189
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176056.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176056.jpgsave_picture_176056.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ Path Finder 10.0b11 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_176057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176057.jpgsave_picture_176057.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ magnet:?xt=urn:btih:05FEC3E17645C1C7521FCD106DF0826B64A51F86
 >>Космос
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176058.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176058.jpgsave_picture_176058.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ VA - Solo Divas Volumen 2 (2023) [MP3|320 Kbps] <Pop, Soul>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176060.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176060.jpgsave_picture_176060.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ magnet:?xt=urn:btih:B865009FBA542E78462F4573DB67248096309558
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176062.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176062.jpgsave_picture_176062.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ magnet:?xt=urn:btih:A86DC9415E8E806D3A6E88692015E42DBE6F2029
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176064.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176064.jpgsave_picture_176064.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ magnet:?xt=urn:btih:B3157F65C7983074214B303FC84DFC1BF206A0DD
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176066.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176066.jpgsave_picture_176066.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Vanishing Twin - Afternoon X (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Indie
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176068.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176068.jpgsave_picture_176068.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ magnet:?xt=urn:btih:926E72602D3692B7D225344840EEEE72F9843ADF
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176070.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176070.jpgsave_picture_176070.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ BlueHarvest 8 v8.0.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_176071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176071.jpgsave_picture_176071.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ magnet:?xt=urn:btih:9CF7EE341D66580F6D67D65C61E56C067CCD1654
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176072.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176072.jpgsave_picture_176072.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Balabolka 2.15.0.831 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176073.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176073.jpgsave_picture_176073.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Trminal 1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_176074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176074.jpgsave_picture_176074.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Infernal Majesty - No God (2017) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_176075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176075.jpgsave_picture_176075.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ magnet:?xt=urn:btih:C830C973A19AA278BB5D03AD4E003FC4A1FDBDD9
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176076.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176076.jpgsave_picture_176076.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ PullTube 1.6.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_176077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176077.jpgsave_picture_176077.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ magnet:?xt=urn:btih:1140F35B03DFF766356ACE47F9FA616CCEC63597
 >>Зарубежные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_176078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176078.jpgsave_picture_176078.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ ProFind 1.8.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_176079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176079.jpgsave_picture_176079.jpg" />
 </div>
 
 

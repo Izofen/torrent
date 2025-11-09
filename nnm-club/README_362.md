@@ -6,7 +6,7 @@ NINJA GAIDEN: Ragebound (2025) [Ru/Multi] (CS36158) Repack FitGirl [Soundtrack E
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9556.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9556.jpgsave_picture_9556.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:081AB5CC852A9F8CC70F38D80CD866A05F546AA2
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9557.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9557.jpgsave_picture_9557.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ TeraBox: 1TB Облако & AI v4.3.4 Mod by MustHave [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9558.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9558.jpgsave_picture_9558.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:1F376589317433D2EDA42E8A0B3F41E121C86CFF
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9559.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9559.jpgsave_picture_9559.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Achilles: Survivor (2025) [Ru/Multi] (1.0.9290) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9560.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9560.jpgsave_picture_9560.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:850F4E161BB83648307C82E3BF6837F3FED2BD5E
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9561.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9561.jpgsave_picture_9561.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:0458CCA4EEA649357F5C49A39281A8FE7028162E
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9562.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9562.jpgsave_picture_9562.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ FastStone Image Viewer 8.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Просмотрщики Графики (вьюверы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9563.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9563.jpgsave_picture_9563.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:902CB9AD2BB01CF3D7548F661C761D97091FF75E
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9564.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9564.jpgsave_picture_9564.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:902CB9AD2BB01CF3D7548F661C761D97091FF75E
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9565.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9565.jpgsave_picture_9565.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ magnet:?xt=urn:btih:D2EE82AC909024D96409B7649AD4B98DA6E3D052
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9566.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9566.jpgsave_picture_9566.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ DriverMax 16.19.0.23 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9567.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9567.jpgsave_picture_9567.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Adobe Photoshop 2025 26.9.0.15 Full (x64) Portable by 7997 (31.07.2025) [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9568.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9568.jpgsave_picture_9568.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ VA - ЕвроХит Топ 40 Europa Plus 01.08.2025 [MP3|320 Kbps] <Pop, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9569.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9569.jpgsave_picture_9569.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Adobe Photoshop 2025 26.9.0.15 Light (x64) Portable by 7997 (31.07.2025) [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9570.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9570.jpgsave_picture_9570.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ One-Eyed Likho / Лихо одноглазое (2025) [Ru/Multi] (Build 19413365
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9571.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9571.jpgsave_picture_9571.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ magnet:?xt=urn:btih:3346DE88E8595B098D5EE0FA2CA06E68C4197CE6
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9572.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9572.jpgsave_picture_9572.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ magnet:?xt=urn:btih:7AB7C3409B307C63360C83AA69354502D8292E50
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9573.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9573.jpgsave_picture_9573.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ Against the Storm (2022) [Ru/Multi] (1.8.4R/dlc) Repack FitGirl [Complete]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9574.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9574.jpgsave_picture_9574.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ magnet:?xt=urn:btih:25B5CF1417287F150DF98F4F0A14B430FA789589
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9575.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9575.jpgsave_picture_9575.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ R-Studio Network 9.5 Build 191580 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9576.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9576.jpgsave_picture_9576.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Auslogics BoostSpeed 14.0.1.3 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9577.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9577.jpgsave_picture_9577.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ magnet:?xt=urn:btih:8FF3F566B86AFA5655A5FB3C8F5A29D7D2AFAC5C
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9579.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9579.jpgsave_picture_9579.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Styx - 19 Studio Albums, 6 Live, 12 Compilations, 1 Box Set (1972 - 2025) 66 CD 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9580.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9580.jpgsave_picture_9580.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Myst III: Exile (2001) [Multi] (2.0.5) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9581.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9581.jpgsave_picture_9581.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Digital Juice - Canvases Banners & Ribbons [JPG]
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9583.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9583.jpgsave_picture_9583.jpg" />
 </div>
 
 

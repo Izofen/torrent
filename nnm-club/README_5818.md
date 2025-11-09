@@ -6,7 +6,7 @@ Martin Lang & Rusty Zinn - Mr. Blues, Mr. Blues (2022) [FLAC|Lossless|WEB-DL|tra
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181969.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181969.jpgsave_picture_181969.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:D4242B8BD55F5EC615AB91E9B905119123854505
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181971.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181971.jpgsave_picture_181971.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Her Anxiety - No Land in Sight (2022) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181972.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181972.jpgsave_picture_181972.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:DDC60AD66209385AC88118B4D3EFE430E5A1CFB8
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181974.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181974.jpgsave_picture_181974.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Ernie Santella - The Whole Shabang (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues R
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181975.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181975.jpgsave_picture_181975.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ The Rusty Wright Band - Hangin' At The DeVille Lounge (2022) [FLAC|Lossless|WEB-
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181976.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181976.jpgsave_picture_181976.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ magnet:?xt=urn:btih:88582D2AB25371791CB7046DEC142DCB4AF6DCB9
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181978.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181978.jpgsave_picture_181978.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ magnet:?xt=urn:btih:31275C7D1B43549385FEB5996790FB824D4962E9
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181983.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181983.jpgsave_picture_181983.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ Charlie Christian & Benny Goodman - 1939 - 1941 (1992) Jazz Roots [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181984.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181984.jpgsave_picture_181984.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ Vain Louie - Time Devours Everything (2022) [FLAC|Lossless|WEB-DL|tracks] <Metal
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181988.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181988.jpgsave_picture_181988.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ magnet:?xt=urn:btih:7426820E307876D6615E587BD86E16323BD4AC66
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181989.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181989.jpgsave_picture_181989.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ Gospelheim - Ritual & Repetition (2022) [FLAC|Lossless|WEB-DL|tracks] <Gothic Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181991.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181991.jpgsave_picture_181991.jpg" />
 </div>
 
 
@@ -315,7 +315,7 @@ magnet:?xt=urn:btih:2575B9BF30C1DB027EA42F702389973005E6575A
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181994.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181994.jpgsave_picture_181994.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ Lunar Mercia - Leaving the Fragile Space (2022) [FLAC|Lossless|WEB-DL|tracks] <P
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181996.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181996.jpgsave_picture_181996.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ magnet:?xt=urn:btih:794A6631C3E53FBD7B0892F3CF0DEC7A4315E2D0
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181998.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181998.jpgsave_picture_181998.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ magnet:?xt=urn:btih:8C356E388EB2BDDF8180734E23FC7308BBA96805
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182001.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182001.jpgsave_picture_182001.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ magnet:?xt=urn:btih:800475EC6156F74E43ED50EE624B51B4CC3C324E
 >>Футбол. Чемпионаты мира
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182003.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182003.jpgsave_picture_182003.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Bulk Crap Uninstaller 5.7 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_182005.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_182005.jpgsave_picture_182005.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Lifeforce - Apokalipsis (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182006.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182006.jpgsave_picture_182006.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Voidwards - Amidst the Ocean of Fog (2022) [FLAC|Lossless|WEB-DL|tracks] <Doom M
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182009.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182009.jpgsave_picture_182009.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Two Steps From Hell - Europe Tour 2022 (2023) CamRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182012.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182012.jpgsave_picture_182012.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ Luminous Vault - Animate the Emptiness (2022) [FLAC|Lossless|tracks + .cue] <Dea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182016.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182016.jpgsave_picture_182016.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ magnet:?xt=urn:btih:CEC1D93A05C0E72BA6C40F583C87B462350B6B46
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182017.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182017.jpgsave_picture_182017.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ magnet:?xt=urn:btih:AE9AF4A7D2442287CD8EC267B8B577C2B93A11CD
 >>Футбол. Чемпионаты мира
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182018.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182018.jpgsave_picture_182018.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ magnet:?xt=urn:btih:1D852689AEB4DB0CFFB744CF3BD72B17762D140D
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_182028.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_182028.jpgsave_picture_182028.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ WPS Office + PDF 18.3 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182032.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182032.jpgsave_picture_182032.jpg" />
 </div>
 
 

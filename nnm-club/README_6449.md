@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204371.jpgsave_picture_204371.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:0E0E2CA932718442C30171847DA654D1DC6A8826
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204372.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204372.jpgsave_picture_204372.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Ventoy 1.0.87 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204373.jpgsave_picture_204373.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ Exmortus - Necrophony (2023) [FLAC|Lossless|WEB-DL|tracks] <Neoclassical, Techni
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204374.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204374.jpgsave_picture_204374.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ Folder Tidy 2.9.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204375.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204375.jpgsave_picture_204375.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ NVIDIA GeForce Desktop Game Ready 528.02 WHQL + DCH [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204376.jpgsave_picture_204376.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ magnet:?xt=urn:btih:7A6653AC0966E1A7F0D28FE947B4E9E396B3A5E5
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204377.jpgsave_picture_204377.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ NetWorker Pro 8.6.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204378.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204378.jpgsave_picture_204378.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ PhotoRoom 4.6.6 Mod by 0x7d [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204379.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204379.jpgsave_picture_204379.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ magnet:?xt=urn:btih:676611214D4C0F0D091A5904304E6D446786B507
 >>КВН
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204380.jpgsave_picture_204380.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ Augurium - Unearthly Will (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Melodi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204381.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204381.jpgsave_picture_204381.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ Broken Pieces (2022) [Ru/Multi] (1.21) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204382.jpgsave_picture_204382.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ Data Guardian 7 v.7.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204383.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204383.jpgsave_picture_204383.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:D78C51BE239BE7D4621ED8E553D92DEDB5706706
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204384.jpgsave_picture_204384.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Dropzone 4 Pro 4.6.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204385.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204385.jpgsave_picture_204385.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ WPS Office-PDF, Word, Excel, PPT v16.8.6 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204386.jpgsave_picture_204386.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ magnet:?xt=urn:btih:6FE41EE8E2029265F0CC375A2A2E9C56CF571F46
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204387.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204387.jpgsave_picture_204387.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ magnet:?xt=urn:btih:A64AA5950653B9FF4D467C3EFFF144178D3C35D9
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204388.jpgsave_picture_204388.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ magnet:?xt=urn:btih:58CACF6E479C5D70F955EBDA501155D4CE67F288
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204389.jpgsave_picture_204389.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ iThoughtsX 9.4 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204390.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204390.jpgsave_picture_204390.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ magnet:?xt=urn:btih:4A4204954D7E2B67DB720254F0B85921D9FA862E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204391.jpgsave_picture_204391.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ magnet:?xt=urn:btih:78284C838A44A0D30ED4C2D884CBDA85F3C08686
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204392.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204392.jpgsave_picture_204392.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ VA - Лучшие песни Наше радио за 2022 год (2023) [MP3|32
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204393.jpgsave_picture_204393.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ Sandboxie 5.66.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204394.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204394.jpgsave_picture_204394.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Topaz Video AI 3.0.11 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204395.jpgsave_picture_204395.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ Master of Typing 3 - Practice 15.13.23 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204396.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204396.jpgsave_picture_204396.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Sammal - Aika laulaa (2022) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Rock, Ret
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187258.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187258.jpgsave_picture_187258.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Medusa Touch - Insaniteyes (2022) [FLAC|Lossless|WEB-DL|tracks] <NWOBHM, Heavy M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187259.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187259.jpgsave_picture_187259.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Microsoft Windows 11 [10.0.22000.2416], Version 21H2 (Updated September 2023) - 
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187260.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187260.jpgsave_picture_187260.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Night Lord - Death Doesn't Wait (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Spee
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187262.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187262.jpgsave_picture_187262.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ magnet:?xt=urn:btih:6F0DAEAE2BCEC5CC7313ED29C9C3CC3922102CDA
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_187263.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_187263.jpgsave_picture_187263.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ Vuara - 3 Releases (2020-2022) [FLAC|Lossless|WEB-DL|tracks] <Blackened Metalcor
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187264.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187264.jpgsave_picture_187264.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Adobe Photoshop 2023 24.7.1.741 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187265.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187265.jpgsave_picture_187265.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ I. Cosmina, R. Harrop, Ch. Schaefer, C. Ho | Pro Spring 6: An In-Depth Guide to 
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187268.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187268.jpgsave_picture_187268.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ Alder Forge (2023) [En] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187269.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187269.jpgsave_picture_187269.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ The Interbeing - Icon of the Hopeless (2022) [FLAC|Lossless|WEB-DL|tracks] <Prog
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187270.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187270.jpgsave_picture_187270.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ magnet:?xt=urn:btih:908EC42342FE07657E066F32A70C126174E31263
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187271.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187271.jpgsave_picture_187271.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ magnet:?xt=urn:btih:363EE40891DDC667C1903DE799AEC5FD098C5063
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187272.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187272.jpgsave_picture_187272.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ magnet:?xt=urn:btih:E2D7720334134B6F1C435B0D5DF1DEC2ADE9A66F
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187273.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187273.jpgsave_picture_187273.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ magnet:?xt=urn:btih:500568EA863BB0EA3D8FDE2B4A4A0D0866F1C2BE
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187274.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187274.jpgsave_picture_187274.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ Sahg - Born Demon (2022) [FLAC|Lossless|image + .cue] <Modern Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187275.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187275.jpgsave_picture_187275.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ Holz - Holz (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Stoner Punk>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187276.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187276.jpgsave_picture_187276.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ magnet:?xt=urn:btih:591527842D334B9CBE56D502FCD600B418C50120
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187277.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187277.jpgsave_picture_187277.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Eternal Candle - 2 Albums (2018-2022) [FLAC|Lossless|WEB-DL|tracks] <Death Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187278.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187278.jpgsave_picture_187278.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ magnet:?xt=urn:btih:3D91F36F58CCE478B7E3B50671AA21F939E74B3B
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187279.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187279.jpgsave_picture_187279.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Warlung - Vulture's Paradise (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, S
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187281.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187281.jpgsave_picture_187281.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:826A70524010D5F83FC252128B92EDA893542FE3
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_187282.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_187282.jpgsave_picture_187282.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Depresszio - Vissza a Foldre (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187283.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187283.jpgsave_picture_187283.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Wheel - Preserved In Time (2021) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187284.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187284.jpgsave_picture_187284.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ KRAIDOL - Время настало (2022) [FLAC|Lossless|WEB-DL|tracks] <Altern
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187286.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187286.jpgsave_picture_187286.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ Microsoft Windows 11 [10.0.22621.2283], Version 22H2 (Updated September 2023) - 
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187287.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187287.jpgsave_picture_187287.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ Empire Drowns - Nothing (2022) [FLAC|Lossless|WEB-DL|tracks] <Doom, Gothic Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187288.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187288.jpgsave_picture_187288.jpg" />
 </div>
 
 

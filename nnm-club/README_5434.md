@@ -6,7 +6,7 @@ Skid Row - The Gang's All Here (2022) Japanese Edition [FLAC|Lossless|image + .c
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168189.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168189.jpgsave_picture_168189.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Fields Of The Nephilim - Dawnrazor (1987) [FLAC|Lossless|image + .cue] <Gothic R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168190.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168190.jpgsave_picture_168190.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:6E39A76A13E4903CA2377CF71FE8BCD9DCF817B2
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168191.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168191.jpgsave_picture_168191.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:4281B37D657A8400CC74B21A27147675905657C9
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168192.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168192.jpgsave_picture_168192.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Ultra Mood - Sunrise (2019) [FLAC|Lossless|WEB-DL|tracks] <Hardstyle>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168193.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168193.jpgsave_picture_168193.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ magnet:?xt=urn:btih:AE35F889B81BF39207074BB1BF2A46DAE9EB6792
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168194.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168194.jpgsave_picture_168194.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ magnet:?xt=urn:btih:D7766078AF4793172669C2D315579CB73F91410D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168195.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168195.jpgsave_picture_168195.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ Generation Steel - Lionheart (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168196.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168196.jpgsave_picture_168196.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ magnet:?xt=urn:btih:1DF9E2BA96A2A614BE30C0B15DA486D47B163C89
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168197.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168197.jpgsave_picture_168197.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ magnet:?xt=urn:btih:940E4B7740FF806E925B0906CBEA17D4B622199E
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168198.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168198.jpgsave_picture_168198.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ magnet:?xt=urn:btih:D4736A5F5AAE15A0B4FA2CD9997C73A7F8CA1B2C
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168199.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168199.jpgsave_picture_168199.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ John Debney - Один дома / Home Sweet Home Alone (2021) [MP3|320 Kbps] <S
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168200.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168200.jpgsave_picture_168200.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ VA - Electro House: Clubber's Dream (2019) [MP3|320 Kbps] <Club, Dance, House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168201.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168201.jpgsave_picture_168201.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ magnet:?xt=urn:btih:5C377A0A0CBB2A1B667465D7F94735448EC8724B
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168202.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168202.jpgsave_picture_168202.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ magnet:?xt=urn:btih:E62D8B1957665226A3383C1EF37642A1A0BD646B
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168203.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168203.jpgsave_picture_168203.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ PhotoRoom 4.7.3 Mod by Maximoff [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168204.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168204.jpgsave_picture_168204.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ magnet:?xt=urn:btih:8763B0ABD87CE62B0D76B918D71F589780CC4853
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168205.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168205.jpgsave_picture_168205.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ magnet:?xt=urn:btih:DC29CB415BE0338E9F0E65FAF010C02AAE59456A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168206.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168206.jpgsave_picture_168206.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ magnet:?xt=urn:btih:9C3BC50C97417233D1CF8B7EF9EBE5CA453AE782
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168207.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168207.jpgsave_picture_168207.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ Fields Of The Nephilim - Fallen (2002) [FLAC|Lossless|image + .cue] <Gothic Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168208.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168208.jpgsave_picture_168208.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ VA - Mastiff: Hard Rock Music (2019) [MP3|320 Kbps] <Hard Rock, Metal>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168209.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168209.jpgsave_picture_168209.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Eisbrecher - Schock Tour Edition 2016 (2016) Box 4CD [FLAC|Lossless|image + .cue
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168210.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168210.jpgsave_picture_168210.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Magnolia Park - Halloween Mixtape II (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop P
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168212.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168212.jpgsave_picture_168212.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Malik Djoudi - UN (2017) Wagram Music & Cinq 7 [FLAC|Lossless|WEB-DL|tracks] <Fr
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168213.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168213.jpgsave_picture_168213.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ magnet:?xt=urn:btih:22AF456AAFA3B0BA1C092EDBF8905D0BE2D753C1
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168214.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168214.jpgsave_picture_168214.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ System Dashboard Pro 1.9.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168215.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168215.jpgsave_picture_168215.jpg" />
 </div>
 
 

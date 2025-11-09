@@ -6,7 +6,7 @@ EtreCheckPro 6.4.3 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235246.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235246.jpgsave_picture_235246.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Carmen Lundy - This Is Carmen Lundy (2001) Justin Time [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235247.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235247.jpgsave_picture_235247.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ FastCopy 4.2.0 Portable by AlexYar [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235248.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235248.jpgsave_picture_235248.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ Android пользователи водят авто лучше владельц
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_235249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_235249.jpgsave_picture_235249.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ Various Artists - Fighting Myself New Rock Bangers (2023) [FLAC|Lossless|WEB-DL|
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235250.jpgsave_picture_235250.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ Ray Gelato And The Giants Of Jive - A Taste Of Gelato (1992) High Five Records [
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235251.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235251.jpgsave_picture_235251.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ Topaz Photo AI 1.3.3 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235252.jpgsave_picture_235252.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ magnet:?xt=urn:btih:24685961654454C556A40B35CCBA809C2A857228
 >>Футбол
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235253.jpgsave_picture_235253.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ Jessica Williams - Gratitude (1996) Candid [FLAC|Lossless|tracks + .cue] <Post-B
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235254.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235254.jpgsave_picture_235254.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ magnet:?xt=urn:btih:A22079461A5165437366ED4C44417FE4D993D319
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235255.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235255.jpgsave_picture_235255.jpg" />
 </div>
 
 
@@ -262,7 +262,7 @@ magnet:?xt=urn:btih:1A7253B702B80367598848C9A7DACAE9894628A3
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235256.jpgsave_picture_235256.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ Smultron 12 v12.4.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235257.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235257.jpgsave_picture_235257.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ LEGO Star Wars: The Skywalker Saga (2022) [Ru/Multi] (1.0.0.27327/dlc) Repack De
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235258.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235258.jpgsave_picture_235258.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ DxO FilmPack 6.11.0 Build 33 Elite (x64) Portable by 7997 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235259.jpgsave_picture_235259.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ magnet:?xt=urn:btih:D631753E78AA960444BFD43D17FA69C62A5D8439
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235260.jpgsave_picture_235260.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ Disk PLUS 1.73 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235261.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235261.jpgsave_picture_235261.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Viber 18.4.0.6 RePack (Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235262.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235262.jpgsave_picture_235262.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ PhotoSweeper X 4.8.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235263.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235263.jpgsave_picture_235263.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Necrotesque - The Perpetuated Festering (2023) [FLAC|Lossless|WEB-DL|tracks] <De
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235264.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235264.jpgsave_picture_235264.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ magnet:?xt=urn:btih:9DA95DD075AC463E9C7674DF4DDDDA40707ED7B8
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235265.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235265.jpgsave_picture_235265.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ magnet:?xt=urn:btih:75942462F972D6FB77A57BB00927F9DFBBE5F6E8
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235266.jpgsave_picture_235266.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ magnet:?xt=urn:btih:2A8F13C803E70CFA8A4405E6AA457CD18B5D5465
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235267.jpgsave_picture_235267.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ magnet:?xt=urn:btih:BA22D924B943D29A08247CD40635D0503DDD18E5
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235268.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235268.jpgsave_picture_235268.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ magnet:?xt=urn:btih:358A15C03F30B28A755F44D332FC827D2A29F878
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235269.jpgsave_picture_235269.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ One Switch 1.24.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235270.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235270.jpgsave_picture_235270.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ PotPlayer 220905 (1.7.21800) (x64) Stable RePack (& portable) by 7sh3 (13.09.202
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235271.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235271.jpgsave_picture_235271.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Song of Nunu: A League of Legends Story (2023) [Ru/Multi] (0.0.31/dlc) License G
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160937.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160937.jpgsave_picture_160937.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Overcooked! 2 (2018) [Ru/Multi] (6.231.1/dlc) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161805.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161805.jpgsave_picture_161805.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ The Smurfs 2 - The Prisoner of the Green Stone (2023) [Ru/Multi] (1.02.06/dlc) S
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162904.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162904.jpgsave_picture_162904.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Wildfire (2020) [Ru/Multi] (1.04.06) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163117.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163117.jpgsave_picture_163117.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Dead or Alive 6 (2019) [Ru/Multi] (1.18/dlc) Repack =nemos= [Digital Deluxe Edit
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163955.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163955.jpgsave_picture_163955.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Hamster on Rails (2023) [Ru/Multi] (1.0.44.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164025.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164025.jpgsave_picture_164025.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Elasto Mania Remastered (2000) [En] (1.19) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164059.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164059.jpgsave_picture_164059.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Arkanoid - Eternal Battle (2022) [Ru/Multi] (1.1.24/dlc) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164703.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164703.jpgsave_picture_164703.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Vladimir Putin Style (2019) [Ru/Multi] (1.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165354.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165354.jpgsave_picture_165354.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Faraday Protocol (2021) [Ru/Multi] (1.0.2) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165823.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165823.jpgsave_picture_165823.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Wavetale (2022) [Ru/Multi] (1.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166170.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166170.jpgsave_picture_166170.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Wavetale (2022) [Ru/Multi] (1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166310.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166310.jpgsave_picture_166310.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Vengeance of Mr. Peppermint (2023) [En] (226) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167584.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167584.jpgsave_picture_167584.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Thunder Tier One (2021) [Ru/Multi] (1.0) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168024.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168024.jpgsave_picture_168024.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Asterix & Obelix: Slap them All! (2021) [Multi] (1.0.0) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168061.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168061.jpgsave_picture_168061.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Harry Potter and the Chamber of Secrets / Гарри Поттер и Тайна�
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168843.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168843.jpgsave_picture_168843.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Trailmakers The Centrifuge (2019) [Ru/Multi] (1.0.4.30476) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169278.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169278.jpgsave_picture_169278.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ NecroBouncer (2022) [Multi] (1.0.1) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169460.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169460.jpgsave_picture_169460.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ X-Force Under Attack (2023) [Multi] (1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169633.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169633.jpgsave_picture_169633.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Oddworld: Soulstorm (2021) [En] (1.162/dlc) License CODEX [Enhanced Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169912.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169912.jpgsave_picture_169912.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Fury Unleashed (2020) [Ru/Multi] (1.9.1.0) License GOG (обновляемая)
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170035.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170035.jpgsave_picture_170035.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ In Nightmare (2022) [Ru/Multi] (9999022) License FLT
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170083.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170083.jpgsave_picture_170083.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Grand Theft Auto: The Trilogy (2021) [Ru/Multi] (1.0.0.14718) License CODEX [The
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170694.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170694.jpgsave_picture_170694.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Skeletal Avenger (2021) [Ru/Multi] (1.0.6.4) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170870.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170870.jpgsave_picture_170870.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Hero Survival (2023) [Ru/En] (1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171466.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171466.jpgsave_picture_171466.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Freaky Trip (2023) [En] (1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171479.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171479.jpgsave_picture_171479.jpg" />
 </div>
 
 

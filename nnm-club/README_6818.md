@@ -6,7 +6,7 @@
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234435.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234435.jpgsave_picture_234435.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:D47C0E7F1681029AD42BE321EE0230A40E33AA55
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234436.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234436.jpgsave_picture_234436.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ VA - Forty Below Records Sampler, Vol. 2 (2023) [FLAC|Lossless|WEB-DL|tracks] <B
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234437.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234437.jpgsave_picture_234437.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Kerion - Tales of the Past (Best of Kerion) (2023) [FLAC|Lossless|WEB-DL|tracks]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234438.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234438.jpgsave_picture_234438.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:0C3849AA556E65344905D6856D5E62D3F84B23DB
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234439.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234439.jpgsave_picture_234439.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:BEBB1933C8F9C2C6966551397818B8AC92A2BBFE
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234440.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234440.jpgsave_picture_234440.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ magnet:?xt=urn:btih:F4057CB2E0B26F9FEAE8005608D8C7930F86B6D8
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234441.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234441.jpgsave_picture_234441.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:B5D209F59B8D0FCEC02D60C3E34F4A865BE7A458
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234442.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234442.jpgsave_picture_234442.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ BurnAware Professional 16.6 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234443.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234443.jpgsave_picture_234443.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ magnet:?xt=urn:btih:D645DD92BAB74F5A1F3A218F8B6FC1BB77375A30
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234444.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234444.jpgsave_picture_234444.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ Rival Sons - Darkfighter (2023) [FLAC|Lossless|tracks + .cue] <Hard Rock, Blues-
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234445.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234445.jpgsave_picture_234445.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ VA - Шоферской 6 (2001) [MP3|320 Kbps] <Шансон>
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234446.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234446.jpgsave_picture_234446.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ magnet:?xt=urn:btih:5F689351CF97B97585D1D680886FB76FDA01B371
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234447.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234447.jpgsave_picture_234447.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ magnet:?xt=urn:btih:9356C2AC5459B578E0B8B524D2676E5869ABB0A2
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234448.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234448.jpgsave_picture_234448.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ magnet:?xt=urn:btih:FB9525CD0147EBB49E09800CB5817E27C9A154B7
 >>Кинолетопись Страны Советской
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234449.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234449.jpgsave_picture_234449.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Amandus - Her Love (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234450.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234450.jpgsave_picture_234450.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Avidemux 2.8.1 Release + Portable (x64) [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234451.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234451.jpgsave_picture_234451.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Topaz Video AI 3.2.5 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234452.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234452.jpgsave_picture_234452.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ Egor Lappo - Naturealism (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234453.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234453.jpgsave_picture_234453.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ magnet:?xt=urn:btih:DFA07B11FB848266AB0C6A3B597B92535D6C8064
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234454.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234454.jpgsave_picture_234454.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Briar v1.4.11 [Ru/Multi] (обновляемая)
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234455.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234455.jpgsave_picture_234455.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ magnet:?xt=urn:btih:DB2A32464076BF3ABDFBA0A9F9F20C855885D8E1
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234456.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234456.jpgsave_picture_234456.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ magnet:?xt=urn:btih:9DAE446D066DC1DF308DF387E14DED4BF14EFB9C
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234457.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234457.jpgsave_picture_234457.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ AOMEI Backupper Technician Plus 6.9.2 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234458.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234458.jpgsave_picture_234458.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ magnet:?xt=urn:btih:6BD911138E25FEFF4202C3DB1D8BE87C271DE645
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234459.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234459.jpgsave_picture_234459.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Carttada - Recharged (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234460.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234460.jpgsave_picture_234460.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Frozen Shelter (2023) [Ru/Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196905.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196905.jpgsave_picture_196905.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ System of Souls (2023) [Ru/Multi] (1.0) Scene Tenoke
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196917.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196917.jpgsave_picture_196917.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Mask of the Rose (2023) [En] (1.2.664) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196935.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196935.jpgsave_picture_196935.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Dordogne (2023) [Ru/Multi] (1.12.15) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196974.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196974.jpgsave_picture_196974.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Contra Anniversary Collection (2019) [En] (1.1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197001.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197001.jpgsave_picture_197001.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Project Lazarus (2023) [Ru/Multi] (7.0) Scene DARKSIDERS
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197007.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197007.jpgsave_picture_197007.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Deadly Delivery (2023) [En] (Build 11444090) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197127.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197127.jpgsave_picture_197127.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Amnesia: The Bunker (2023) [Ru/Multi] (11394767) Repack DjDI
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197187.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197187.jpgsave_picture_197187.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Harmony: The Fall of Reverie (2023) [Multi] (1.01.1279966) Scene Tenoke [Soundtr
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197205.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197205.jpgsave_picture_197205.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ MotoGP 23 (2023) [Multi] (1.0/dlc) Scene Rune
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197238.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197238.jpgsave_picture_197238.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Loop8: Summer of Gods (2023) [Multi] (1.0.2/dlc) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197258.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197258.jpgsave_picture_197258.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Scorn (2022) [Ru/Multi] (1.2.2.0) Repack dixen18
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197262.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197262.jpgsave_picture_197262.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Basements n' Basilisks: Storms of Sorcery (2023) [Multi] (1.2.1(9)) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197280.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197280.jpgsave_picture_197280.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Tank Mechanic Simulator (2020) [Ru/Multi] (1.4.0/dlc) Scene Rune
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197289.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197289.jpgsave_picture_197289.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Voodoo Detective (2022) [En] (0.0.31) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197309.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197309.jpgsave_picture_197309.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ We Love Katamari REROLL+ Royal Reverie (2023) [Multi] (1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197330.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197330.jpgsave_picture_197330.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Bastard Bonds (2016) [En] (1.2.9) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197334.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197334.jpgsave_picture_197334.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Legend of Radiance (2023) [En] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197342.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197342.jpgsave_picture_197342.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Amnesia: The Bunker (2023) [Ru/Multi] (1.2) Repack dixen18
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197357.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197357.jpgsave_picture_197357.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Tennis Manager 2023 (2023) [Multi] (3.0.659) Scene Skidrow
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197362.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197362.jpgsave_picture_197362.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Summer Trip Cruise (2023) [Ru/Multi] (05.29.23.1/dlc) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197401.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197401.jpgsave_picture_197401.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Batora: Lost Haven (2022) [Ru/Multi] (rc14 shipping 3) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197459.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197459.jpgsave_picture_197459.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Killer Frequency (2023) [Ru/Multi] (1.0) Scene Rune [VR]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197467.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197467.jpgsave_picture_197467.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Fuga: Melodies of Steel 2 (2023) [Multi] (1.02/dlc) Scene Rune [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197479.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197479.jpgsave_picture_197479.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Return (2023) [En] (1.0.0) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197524.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197524.jpgsave_picture_197524.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Kao the Kangaroo / Кенгуренок Као (2022) [Ru/Multi] (1.6.0/dlc) Lic
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_197555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197555.jpgsave_picture_197555.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ The Mighty Bard - Beyond The Gate (2023) [FLAC|Lossless|WEB-DL|tracks] <Progress
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232000.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232000.jpgsave_picture_232000.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Degreed - Public Address (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard-Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232004.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232004.jpgsave_picture_232004.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Abstractian - Sharpened Hearts (2023) [MP3|320 Kbps] <Progressive Metal, Rock>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232008.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232008.jpgsave_picture_232008.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Ring van Mobius - Commissioned Works Pt II - Six Drops Of Poison (2023) [FLAC|Lo
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232014.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232014.jpgsave_picture_232014.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ MelloW - Полураспад (2023) [MP3|320 Kbps] <Nu-Metalcore>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232015.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232015.jpgsave_picture_232015.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Todd La Torre - Rejoice in the Suffering (2021) [FLAC|Lossless|image + .cue] <He
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232020.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232020.jpgsave_picture_232020.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Noed - No One Escapes Death (2023) [MP3|320 Kbps] <Strong Metal>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232025.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232025.jpgsave_picture_232025.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Ulfud - Of Existential Distortion (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232031.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232031.jpgsave_picture_232031.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:27702179EAA985FFECBFBAD88D85E8CC1A0768AC
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232032.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232032.jpgsave_picture_232032.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Unborn Prophecy - Waking Our Ancient Memories (2023) [FLAC|Lossless|WEB-DL|track
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232038.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232038.jpgsave_picture_232038.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Unchosen Ones - Sorrow Turns to Dust (2023) [FLAC|Lossless|WEB-DL|tracks] <Melod
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232043.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232043.jpgsave_picture_232043.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Sorcier des Glaces - Sous la lune noire (2023) Compilation [FLAC|Lossless|WEB-DL
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232044.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232044.jpgsave_picture_232044.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Unborn Prophecy - Waking Our Ancient Memories (2023) [MP3|320 Kbps] <Progressive
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232049.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232049.jpgsave_picture_232049.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Blackscape - Suffocated By The Sun (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232052.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232052.jpgsave_picture_232052.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Riffobia - Riffobia (2023) [MP3|320 Kbps] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232054.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232054.jpgsave_picture_232054.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Razor - Open Hostility (1991) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232055.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232055.jpgsave_picture_232055.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Shining of Kliffoth - Twilight of Sehemeah (2000) [FLAC|Lossless|image + .cue] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232058.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232058.jpgsave_picture_232058.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ All Consumed - Hallowed Violence (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232061.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232061.jpgsave_picture_232061.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Coffin Mulch - Spectral Intercession (2023) [FLAC|Lossless|WEB-DL|tracks] <Death
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232068.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232068.jpgsave_picture_232068.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Viper - Timeless (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Power, Speed Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232077.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232077.jpgsave_picture_232077.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Heathen Hoof - Rock Crusader (2011) [WavPack|Lossless|image + .cue] <Heavy Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232085.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232085.jpgsave_picture_232085.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Tropical Fuck Storm - Goody Goody Gumdrops (2023) [FLAC|Lossless|WEB-DL|tracks] 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232090.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232090.jpgsave_picture_232090.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Mitch Malloy - The Last Song (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232098.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232098.jpgsave_picture_232098.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Mecca - Everlasting (2023) Japanese Edition [FLAC|Lossless|image + .cue] <Melodi
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232108.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232108.jpgsave_picture_232108.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Nighthawk - Prowler (2023) Japanese Edition [FLAC|Lossless|image + .cue] <Hard R
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232116.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232116.jpgsave_picture_232116.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ magnet:?xt=urn:btih:B06EB2F50DC4DE4EE481111C652A65A5D3EA0D43
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232126.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232126.jpgsave_picture_232126.jpg" />
 </div>
 
 

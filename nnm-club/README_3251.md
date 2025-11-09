@@ -6,7 +6,7 @@ Ousiodes - The Forest (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104887.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104887.jpgsave_picture_104887.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:24C5DB7C02391B37F6D52416FBDF8DB9804DC71D
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104888.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104888.jpgsave_picture_104888.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ F.O.R. - Love (2024) [FLAC|Lossless|WEB-DL|tracks] <Gothic Metal, Alternative Ro
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104889.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104889.jpgsave_picture_104889.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:3518DCE99D021A4C973A9AF81235CF3113F49F1D
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104890.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104890.jpgsave_picture_104890.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Attaxe - Braving The Tempest (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104891.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104891.jpgsave_picture_104891.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ Conte Candoli & Lee Morgan - Double or Nothin' (1957) 1992, Fresh Sound [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104892.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104892.jpgsave_picture_104892.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ magnet:?xt=urn:btih:2910E49BC5D50C52AD34EFE6F82304B45D751AE7
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104893.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104893.jpgsave_picture_104893.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Void of Vision - What I'll Leave Behind (2024) [MP3|320 Kbps] <Electronic Rock, 
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104894.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104894.jpgsave_picture_104894.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Alkonost - Дар саламандры (2024) [FLAC|Lossless|WEB-DL|tracks] <Pag
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104895.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104895.jpgsave_picture_104895.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ YT Downloader 9.10.11 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104896.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104896.jpgsave_picture_104896.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ RJ TextEd 16.30 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104897.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104897.jpgsave_picture_104897.jpg" />
 </div>
 
 
@@ -291,7 +291,7 @@ Bachman-Turner Overdrive - Gold (2005) 2CD [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104898.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104898.jpgsave_picture_104898.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ VA - DJ Hits Vol. 18 New (1997) [OGG Vorbis|480 Kbps] <Electronic, Pop, Euro Hou
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104899.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104899.jpgsave_picture_104899.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ magnet:?xt=urn:btih:28FB7A11562A900032AA79A04BBEC465DFC1B636
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104900.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104900.jpgsave_picture_104900.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ Violent Homicidal Slasher (VHS) - For a Few Riffs More (2024) [FLAC 24/44.1|Loss
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104901.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104901.jpgsave_picture_104901.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Dust Bolt - Studio Albums (6 releases) (2010-2024) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104902.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104902.jpgsave_picture_104902.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ magnet:?xt=urn:btih:63126E6DA01FF2C85A9EC030C270FAFE94841AA8
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104903.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104903.jpgsave_picture_104903.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ magnet:?xt=urn:btih:F3D58CEE0C4EA91ECB4F0D19F01705C988EF91C8
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104904.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104904.jpgsave_picture_104904.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ VA - DJ Hits 170 (1996) [OGG Vorbis|480 Kbps] <Electronic, Pop, Euro House>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104905.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104905.jpgsave_picture_104905.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ MotoGP. Этап 12 из 20. Гран-при Арагона. Спринт (31.08
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104906.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104906.jpgsave_picture_104906.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ Constancia - IV Evermore (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104907.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104907.jpgsave_picture_104907.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ Gotham City - The Early Years (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104908.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104908.jpgsave_picture_104908.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ magnet:?xt=urn:btih:AF10A7FE74EEA717E92994B86B912148953F0B35
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104909.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104909.jpgsave_picture_104909.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ Sonny Gullage - Go Be Free (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104910.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104910.jpgsave_picture_104910.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ The Gerry Hundt Trio - GET HIP! (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104911.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104911.jpgsave_picture_104911.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Joji - Nectar (2020) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <R'n'B, Hip-Hop, Neo-
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104912.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104912.jpgsave_picture_104912.jpg" />
 </div>
 
 

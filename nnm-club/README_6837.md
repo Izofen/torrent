@@ -6,7 +6,7 @@ Nemezida - Война. Голод (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic 
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234964.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234964.jpgsave_picture_234964.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:8C064203E8C6CE5814072BB40B45FAC544329C0A
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234965.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234965.jpgsave_picture_234965.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:D0C5955EC9BDFEA5162EA43FD9AE3D773FEAD17B
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234967.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234967.jpgsave_picture_234967.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ X-plore File Manager 4.31.21 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234968.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234968.jpgsave_picture_234968.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Artstudio Pro 5.1.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234969.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234969.jpgsave_picture_234969.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:400C9BDEF4A0A097012BF4CF631595461DB8C608
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234970.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234970.jpgsave_picture_234970.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Eddie Heywood - Eddie Heywood (1955) 1990, EmArcy [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234972.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234972.jpgsave_picture_234972.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:37E1FCE943251C7426BDF28930CB07FD72F4A84E
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234973.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234973.jpgsave_picture_234973.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:95194FA5EB6794B5241D7832585DBB6716F7E66B
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234974.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234974.jpgsave_picture_234974.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ Typora for Mac 1.5.10 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234975.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234975.jpgsave_picture_234975.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ magnet:?xt=urn:btih:DECE7BD28716EA264F1790F02DF575A18B0FE6A0
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234977.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234977.jpgsave_picture_234977.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ magnet:?xt=urn:btih:0FEA64CC7E8B01C0F5B0E3C6A532A1A783D0BCDD
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234978.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234978.jpgsave_picture_234978.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ magnet:?xt=urn:btih:2AC31BCAB7EFAC24AC9B9BFD20C83634635668FE
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234979.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234979.jpgsave_picture_234979.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ GraphicConverter for Mac 12.0.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234980.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234980.jpgsave_picture_234980.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Advanced SystemCare Pro 15.4.0.247 Portable by zeka.k [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234981.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234981.jpgsave_picture_234981.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ TechSmith Snagit 2023.1.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234982.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234982.jpgsave_picture_234982.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Integrity Plus 12.7.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234983.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234983.jpgsave_picture_234983.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Hari Narayn | Just React!: Learn React the React Way (2022) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234984.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234984.jpgsave_picture_234984.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ JUG Ru Group | C++ Russia 2022. Конференция для C++ разрабо
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234985.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234985.jpgsave_picture_234985.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ magnet:?xt=urn:btih:C716E02C8C10F815E75DDE23366D93C3FF4AD164
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234986.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234986.jpgsave_picture_234986.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ VA - My Free Hour: Chillout Your Mind (2022) [AAC|~294 Kbps] <Lounge, Chill Out,
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234987.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234987.jpgsave_picture_234987.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ magnet:?xt=urn:btih:0D892EF1EDE14AA65C9B849142224BF2BFD32202
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234988.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234988.jpgsave_picture_234988.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ VA - Relaxica: Spring Chill (2022) [AAC|~319 Kbps] <Lounge, Chill Out, Downtempo
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234989.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234989.jpgsave_picture_234989.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ NetLimiter 5.2.8.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234991.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234991.jpgsave_picture_234991.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ magnet:?xt=urn:btih:DBB9B2E78705E00322693F436E0C5E88875C9C57
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234992.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234992.jpgsave_picture_234992.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ Downie 4 v.4.6.12 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234993.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234993.jpgsave_picture_234993.jpg" />
 </div>
 
 

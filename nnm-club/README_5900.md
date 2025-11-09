@@ -6,7 +6,7 @@
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_185772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185772.jpgsave_picture_185772.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:6286CE38D385DD5AE6CC78D348EF8F17E763AEF6
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185773.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185773.jpgsave_picture_185773.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Discovery. Взрывая историю / Blowing up History (2022) HDTV [H.264
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185776.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185776.jpgsave_picture_185776.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:80EAE21B946A61BB2729DAB05028232D596C931D
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185778.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185778.jpgsave_picture_185778.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:3FFB182B74C937A2B42B86CA3D42D0083175CB73
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_185779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185779.jpgsave_picture_185779.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:EDE15751546C2498346C80B93C62787A963D54EA
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_185780.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_185780.jpgsave_picture_185780.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:0A35892FFB7CF4265CE1BB005EABCAF0BA5AC7FB
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_185781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185781.jpgsave_picture_185781.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:0D5215BE17AA0F3CD26D5F6D54697925D0B1C4BD
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_185783.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_185783.jpgsave_picture_185783.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:F0A87A8A79C6987D483EDD23B250C4CC70B01A22
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_185784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185784.jpgsave_picture_185784.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:853EEA81B7B83BD4815BA7F78D8D8DC624BA788D
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_185786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185786.jpgsave_picture_185786.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Udemy, Stefan Mitrovic | Ai Youtube Masterclass: Unleash the Passive Income (202
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185787.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185787.jpgsave_picture_185787.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:E622CB936A4E3612157403A9EF78CBED76EDCEE7
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_185789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185789.jpgsave_picture_185789.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:15727E7232AE94B7F01B4A636901BAF2C5BA606B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185790.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185790.jpgsave_picture_185790.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:BCBB92129E787D7EBDA4FDBD0780B885696707BF
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_185791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185791.jpgsave_picture_185791.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ magnet:?xt=urn:btih:D6DBB9F9C8B78474EE07F1229719691F4B39898B
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_185793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185793.jpgsave_picture_185793.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ magnet:?xt=urn:btih:88A0FC6A04452146A861753AB49371AA528B4BDA
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185795.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185795.jpgsave_picture_185795.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ magnet:?xt=urn:btih:9942EE67744CDBF5778FA17186C1A17F2A59CB6B
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_185796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185796.jpgsave_picture_185796.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ magnet:?xt=urn:btih:B409E2D2250AED13730CD0061A23B4C6C999E1A7
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_185797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185797.jpgsave_picture_185797.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ Contrse, Дарья Калугина | Интенсив по фуд-фотогр
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_185799.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_185799.jpgsave_picture_185799.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ PortScan & Stuff 1.94 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185801.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185801.jpgsave_picture_185801.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ magnet:?xt=urn:btih:37276A7798041E5F02DE7C5B643D4E31D29ED185
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185802.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185802.jpgsave_picture_185802.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ magnet:?xt=urn:btih:EBA81E72C5278D1EA45DA8123DBB6B1834C1D7FA
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185804.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185804.jpgsave_picture_185804.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ WonderFox DVD Ripper Pro 24.0 RePack (& Portable) by elchupacabra [En/Jp]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_185805.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_185805.jpgsave_picture_185805.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ magnet:?xt=urn:btih:F86878D9080A7FF46177C485AE18D311AB4C9B95
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185806.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185806.jpgsave_picture_185806.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ WonderFox DVD Video Converter 31.0 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_185807.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_185807.jpgsave_picture_185807.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Udemy, Maamir Houssam Eddine | 3d visualization , 3ds max, V-ray, Ps: 3D render 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_185808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185808.jpgsave_picture_185808.jpg" />
 </div>
 
 

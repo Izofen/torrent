@@ -6,7 +6,7 @@ VA - Музыкальный телетайп 4 (1988) [FLAC 24/192|Lossless|trac
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114155.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114155.jpgsave_picture_114155.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ AC/DC - For Those About To Rock (We Salute You) (1981) [FLAC|24/192|image + .cue
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114158.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114158.jpgsave_picture_114158.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ magnet:?xt=urn:btih:D4BB87989B200E364DA2B4AC3BAD71652DCE1772
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114200.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114200.jpgsave_picture_114200.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ AC/DC - Fly On The Wall (1985)[FLAC|24/192|image + .cue|Vinyl-Rip]  <Hard Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114232.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114232.jpgsave_picture_114232.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ AC/DC - Flick of the Switch (1983) [FLAC|24/192|image + .cue|Vinyl-Rip] <Hard Ro
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114235.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114235.jpgsave_picture_114235.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Mortifer - Euthanasia (1993) [FLAC|24/96|image + .cue|Vinyl-Rip] <Thrash Metal>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114295.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114295.jpgsave_picture_114295.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ magnet:?xt=urn:btih:4E5D1A82E8F3555CAD98E54477CD7F95461A6B1C
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114297.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114297.jpgsave_picture_114297.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ AC/DC - Powerage (1978) [FLAC|24/192|image + .cue|Vinyl-Rip] <Hard Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114299.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114299.jpgsave_picture_114299.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Black Sabbath - Sabbath Bloody Sabbath (1973) 1990 [FLAC 24/192|Lossless|tracks]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114316.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114316.jpgsave_picture_114316.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Diana Ross (Дайана Росс) - Поет Дайана Росс (1979) [FLAC
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114335.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114335.jpgsave_picture_114335.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Dire Straits - Communique (1979) 1992 [FLAC 24/192|Lossless|tracks] <Classic Roc
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114345.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114345.jpgsave_picture_114345.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Creedence Clearwater Revival - Бродячий оркестр. Архив по�
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114347.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114347.jpgsave_picture_114347.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Black Sabbath - Sabotage (1975) 1990 [FLAC 24/192|Lossless|tracks] <Heavy Metal>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114350.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114350.jpgsave_picture_114350.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Deep Purple - Дым над водой. Архив популярной музы
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114361.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114361.jpgsave_picture_114361.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ magnet:?xt=urn:btih:1D0B97578B507A2B7FA2C3FDAE59E9C857FB1EF5
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114368.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114368.jpgsave_picture_114368.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Dire Straits (Даэр Стрэйтс) - Love Over Gold (Любовь дорож
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114372.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114372.jpgsave_picture_114372.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ R.E.M. - Studio Albums (9 releases) (1991-2011) hand made [restored, declipped] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114406.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114406.jpgsave_picture_114406.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ magnet:?xt=urn:btih:0BA66652C14E55A7E318BA0D609D708D561D7AEE
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114610.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114610.jpgsave_picture_114610.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ magnet:?xt=urn:btih:7BF7A3A60A00F78AAFC079B7E8E90FA26C126491
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114632.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114632.jpgsave_picture_114632.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:C2C4F37F605D7F87275569B1B3A0E190BDD6F72D
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114657.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114657.jpgsave_picture_114657.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ VA - Андрей Петров - Музыка из к/ф "Жестокий ро�
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114663.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114663.jpgsave_picture_114663.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ magnet:?xt=urn:btih:8CE9793F36D1E7AD68ED27AB1BC3A21A29DE0531
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114665.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114665.jpgsave_picture_114665.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ AC/DC - If You Want Blood You've Got It (1978) Live [FLAC|24/192|image + .cue|Vi
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114681.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114681.jpgsave_picture_114681.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ Nirvana - Studio Albums (5 releases) (1989-1994) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114698.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114698.jpgsave_picture_114698.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ Baltimoore - There’s No Danger On The Roof (1991 (1988)) [FLAC 24/192|Lossless
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114791.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114791.jpgsave_picture_114791.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ Bananarama - Pop Life (1992 (1991)) [FLAC 24/192|Lossless|tracks] <Pop>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114808.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114808.jpgsave_picture_114808.jpg" />
 </div>
 
 

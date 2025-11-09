@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15521.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15521.jpgsave_picture_15521.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15522.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15522.jpgsave_picture_15522.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ NOBUNAGA'S AMBITION: Awakening (2022) [Multi] (1.1.6/dlc) Scene Tenoke
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15523.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15523.jpgsave_picture_15523.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:1946453A6C6695ECFDDC9D92FF2CA9DDEF6C379A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15524.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15524.jpgsave_picture_15524.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:1946453A6C6695ECFDDC9D92FF2CA9DDEF6C379A
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15525.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15525.jpgsave_picture_15525.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:1811E545C903FFB73B2D3A273F9DADEE4DB4CD15
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15526.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15526.jpgsave_picture_15526.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:1811E545C903FFB73B2D3A273F9DADEE4DB4CD15
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15527.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15527.jpgsave_picture_15527.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:3CC3CECE25EC85E4A3ABAB2BCC891EBDEF470D9C
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15528.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15528.jpgsave_picture_15528.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:3CC3CECE25EC85E4A3ABAB2BCC891EBDEF470D9C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15529.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15529.jpgsave_picture_15529.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:ADD70C41A1BF55D9A1E98BD2F0CD397D235C3F96
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15530.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15530.jpgsave_picture_15530.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ magnet:?xt=urn:btih:673E557D8145D8B372D1B0A8E9A40BD1230D4417
 >>Дискуссионный клуб
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15531.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15531.jpgsave_picture_15531.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Meta в первом квартале 2025 года заблокировала �
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15532.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15532.jpgsave_picture_15532.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ AOMEI Backupper Technician Plus 7.5.0 (DC 05.06.2025) RePack by KpoJIuK [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15533.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15533.jpgsave_picture_15533.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ WellBad - Oyster & Pearl (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15534.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15534.jpgsave_picture_15534.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Cardinal Black - Midnight at The Valencia (2025) [FLAC 24/48|Lossless|WEB-DL|tra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15535.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15535.jpgsave_picture_15535.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:CDDC928CE3FC00D5785BB71E0C4F84476A51C4EF
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15536.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15536.jpgsave_picture_15536.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Mark Murphy - Mark Murphy Sings (1975) 1995, Muse Records [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15537.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15537.jpgsave_picture_15537.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Dogtag Remains - Forgotten Battlefields (2024) [FLAC|Lossless|image + .cue] <Dea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15538.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15538.jpgsave_picture_15538.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Umpfel - Studio Albums (2 releases) (2015-2019) hand made [restored, declipped] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15539.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15539.jpgsave_picture_15539.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Kardashev - Alunea (2025) [FLAC|Lossless|tracks + .cue] <Deathcore, Progressive 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15540.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15540.jpgsave_picture_15540.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Honeyboy Slim & The Bad Habits - Honeyboy Slim & The Bad Habits (2025) [FLAC 24/
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15541.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15541.jpgsave_picture_15541.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Foreigner - Extended Versions (2011) Compilation [FLAC|Lossless|image + .cue] <S
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15542.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15542.jpgsave_picture_15542.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ VA - Vocal House Hits 2025 (2025) [MP3|320 Kbps] <House, Deep House, Dance, Club
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15543.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15543.jpgsave_picture_15543.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Berserk: Ougon Jidai Hen II - Doldrey Kouryaku | Berserk Golden Age Arc II: The 
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15544.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15544.jpgsave_picture_15544.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ magnet:?xt=urn:btih:9AA07A1318D58144B153CDAE0A38B1BE03CA9829
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15545.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15545.jpgsave_picture_15545.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ magnet:?xt=urn:btih:A139529F4726846B3DA4CF05517F68518DD6A63C
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15546.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15546.jpgsave_picture_15546.jpg" />
 </div>
 
 

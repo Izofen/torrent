@@ -6,7 +6,7 @@
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140711.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140711.jpgsave_picture_140711.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:63A1A65D340FAB644FC41990171C302DC97ECA23
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140713.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140713.jpgsave_picture_140713.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:AC23E3CBC920E4267F6DC97D61781BEAE3B75F39
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140714.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140714.jpgsave_picture_140714.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ A Sound Of Thunder - Who Do You Think We Are (2016) [MP3|320 Kbps] <Heavy Metal,
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140715.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140715.jpgsave_picture_140715.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:66955B18832367A44E7D4C32F5527D59CA813ED0
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140716.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140716.jpgsave_picture_140716.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:725060659B88D3E187580B689115A5D25F6728C8
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140717.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140717.jpgsave_picture_140717.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:C2CC2D164E4CAA314922B8CF488B194192A5B21E
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140718.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140718.jpgsave_picture_140718.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:6F1CD2802E567FA018E5F53545FD649D68D8C09F
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140719.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140719.jpgsave_picture_140719.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Alcohol 120% 2.0.3 Build 8426 Retail [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140720.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140720.jpgsave_picture_140720.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ FontExplorer X Pro 6.0.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140722.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140722.jpgsave_picture_140722.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Zомбилэнд: Контрольный выстрел / Zombieland: Double Ta
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140723.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140723.jpgsave_picture_140723.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Wondershare UniConverter 12.5.3.11 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140724.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140724.jpgsave_picture_140724.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:845A7E8DE59BE889854C08AFE77CEC217674F9F5
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140726.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140726.jpgsave_picture_140726.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:3CD378DE7735861BD80403D46461045DED481045
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140727.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140727.jpgsave_picture_140727.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Don Ray - The Garden Of Love (1978) LP (Sound from Cerrone) [MP3|320 Kbps] <Elec
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140728.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140728.jpgsave_picture_140728.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ magnet:?xt=urn:btih:B7B6DB84A887736E8FB08A864901B49CB09E685C
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140729.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140729.jpgsave_picture_140729.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ James Gale | The Complete Linux Manual / Полное руководство п�
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140730.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140730.jpgsave_picture_140730.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ magnet:?xt=urn:btih:5265231B648E87EBB4FEA1FE0163EFA1A18BF0D7
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140731.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140731.jpgsave_picture_140731.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ magnet:?xt=urn:btih:072B86713685A21EDCB9202A4E123E8231F53812
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140732.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140732.jpgsave_picture_140732.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ magnet:?xt=urn:btih:60A4049AFC6DA9B01CF2B996A3E715E3B6A39B51
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140734.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140734.jpgsave_picture_140734.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ magnet:?xt=urn:btih:CA3E37B7BBB5B2D70516AF390AB3921EF01D6088
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140735.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140735.jpgsave_picture_140735.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ Microsoft Windows 11 [10.0.22621.2715], Version 22H2 (Updated November 2023) - �
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140736.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140736.jpgsave_picture_140736.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ VA - Не Зима, Просто Горячие Треки (2018) [MP3|320 Kbps]
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140738.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140738.jpgsave_picture_140738.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ magnet:?xt=urn:btih:DB048368A1880570BD8641407380123D0617C9CC
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140740.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140740.jpgsave_picture_140740.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Roland - ZENOLOGY Pro 1.5.2 VSTi, AAX (x64) RePack by VR [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140741.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140741.jpgsave_picture_140741.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ magnet:?xt=urn:btih:E9AD8953989F8001D275D702BDE9436201F845BD
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140742.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140742.jpgsave_picture_140742.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103070.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103070.jpgsave_picture_103070.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:CBFCE5A9E00359F49DDE11A8B506DFC6160DC459
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103071.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103071.jpgsave_picture_103071.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ Skol Bandit - Resurrection (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heav
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103072.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103072.jpgsave_picture_103072.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ magnet:?xt=urn:btih:BE00D68222B07DCF3986E42FD8B84AAF61436C26
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103073.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103073.jpgsave_picture_103073.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ Mark Farner - Closer To My Home (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Clas
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103074.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103074.jpgsave_picture_103074.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ Divisive Echoes - Twilight Of The Round Table (2024) [FLAC 24/48|Lossless|WEB-DL
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103075.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103075.jpgsave_picture_103075.jpg" />
 </div>
 
 
@@ -161,7 +161,7 @@ Singing River - Talkin' Destination Blues (2024) [FLAC 24/48|Lossless|WEB-DL|tra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103076.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103076.jpgsave_picture_103076.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Enforced - A Leap Into the Dark (2024) EP [FLAC 24/48|Lossless|WEB-DL|tracks] <T
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103077.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103077.jpgsave_picture_103077.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Wabi King - Turn over the Game (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Har
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103078.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103078.jpgsave_picture_103078.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Lonerider - Down in the Dust (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melod
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103079.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103079.jpgsave_picture_103079.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Distant Past - Solaris (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Metal
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103080.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103080.jpgsave_picture_103080.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Desert Song - Desert Song (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Me
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103081.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103081.jpgsave_picture_103081.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ magnet:?xt=urn:btih:EF27B746683BF78AE5852FB376C75F07DCA559F9
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103082.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103082.jpgsave_picture_103082.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Auburn Sounds - Panagement 2 2.6.0 (FULL) VST, VST 3, AAX (x86/x64) Retail [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103083.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103083.jpgsave_picture_103083.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Newfangled Audio - Recirculate 1.1.9 VST, VST 3, AAX (x64) RePack by R2R [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103084.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103084.jpgsave_picture_103084.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ magnet:?xt=urn:btih:786927821CE35E015A23A25ED34AC2B92C09378B
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103085.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103085.jpgsave_picture_103085.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ Eventide - Blackhole Immersive 1.3.0 VST 3, AAX (x64) RePack by R2R [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103086.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103086.jpgsave_picture_103086.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ magnet:?xt=urn:btih:E2280F9FAE4C516A121E8D413D03EA26C0E3ACCE
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103087.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103087.jpgsave_picture_103087.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ magnet:?xt=urn:btih:2AFDAEFEB9A66CD5ADCC1F64950238C65E5FCB94
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103088.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103088.jpgsave_picture_103088.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Newfangled Audio - Generate 1.6.9 VSTi, VSTi 3, AAX (x64) RePack by R2R [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103089.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103089.jpgsave_picture_103089.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:6FFE7C228DEC4D7B321D380098663980177639E6
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103090.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103090.jpgsave_picture_103090.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ magnet:?xt=urn:btih:8F672EE1FA953937089462839793355AA87FADB1
 >>Авторская и Военная песня (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103091.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103091.jpgsave_picture_103091.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Major Lazer - Guns Don't Kill People... Lazers Do (2009) 15th Anniversary Editio
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103092.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103092.jpgsave_picture_103092.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ magnet:?xt=urn:btih:DB5BF128270ACF1EFB88BA5646DD913098C841F0
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103093.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103093.jpgsave_picture_103093.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ magnet:?xt=urn:btih:CBA27CD5329AE916D53663AB2DEC70BAC80A5D07
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103094.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103094.jpgsave_picture_103094.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ magnet:?xt=urn:btih:614BC59821402ADE41769A1A3FDE83446CAFBD18
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103095.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103095.jpgsave_picture_103095.jpg" />
 </div>
 
 

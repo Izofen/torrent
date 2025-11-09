@@ -6,7 +6,7 @@ MediaHuman YouTube Downloader 3.9.9.81 (1305) RePack (& Portable) by Dodakaedr [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234487.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234487.jpgsave_picture_234487.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:2D84A129BDDF893FABA13AD59C07F2CE91E819A5
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234488.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234488.jpgsave_picture_234488.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:995DE31B751914DBDA9D03729D31683457A8E8B6
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234489.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234489.jpgsave_picture_234489.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:474AE15D99133E8B6A02871FA1C9BD5A83FABCE5
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234490.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234490.jpgsave_picture_234490.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:08EA26F6B9EBD7748C2D94C6B0CBAE46C7A55720
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234491.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234491.jpgsave_picture_234491.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:FA0CBDB65B9DA344EF0FE71D478F24E61C05E324
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234492.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234492.jpgsave_picture_234492.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Varjo-Orkesteri - Prima Volta (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234493.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234493.jpgsave_picture_234493.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ George Kawaguchi & The Super Band - Super Drums 1 + 2 (1985) King Record [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234494.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234494.jpgsave_picture_234494.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ Firefox Browser 113.0.1 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234495.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234495.jpgsave_picture_234495.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ magnet:?xt=urn:btih:B6457B0A80DFAA6E119C70B7BB0177936AC23241
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234496.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234496.jpgsave_picture_234496.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ magnet:?xt=urn:btih:B04184B75538C1B64E7A99A2439B1DEE83F49469
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234497.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234497.jpgsave_picture_234497.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ magnet:?xt=urn:btih:234B2C3D5F51138E189275D6B4F0AA5A9434A7E6
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234498.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234498.jpgsave_picture_234498.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:1020079C2DB6B3C0552832E37231AAB3D8036BD4
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234499.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234499.jpgsave_picture_234499.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Fear Factory - Re-Industrialized (2023) 2 x CD, Reissue, Remastered, Nuclear Bla
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234500.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234500.jpgsave_picture_234500.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ magnet:?xt=urn:btih:9F26928FA8B14EB9C23C29713AC57F6E38F298B7
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234501.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234501.jpgsave_picture_234501.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Aberdeen - Held Together (2023) [FLAC|Lossless|WEB-DL|tracks] <Brass Band, Jazz 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234502.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234502.jpgsave_picture_234502.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ magnet:?xt=urn:btih:EACDC4FA058CBBB9839B67B1A0E6C8C1B707909C
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234503.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234503.jpgsave_picture_234503.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ magnet:?xt=urn:btih:A08253DDE525D7F028715AFB7E7FC65E990F80AF
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234504.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234504.jpgsave_picture_234504.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ BetterSnapTool 1.9.9 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234505.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234505.jpgsave_picture_234505.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ magnet:?xt=urn:btih:1AC02E7A21A6F1AAC771283AE5EB141E07A36420
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234506.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234506.jpgsave_picture_234506.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ magnet:?xt=urn:btih:BDDD6278D0C0B4AEA5C6F2AF694C3F6E70FADDCE
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234507.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234507.jpgsave_picture_234507.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ magnet:?xt=urn:btih:90142DC42DD6FD02A7F5FECF9709B1A10F312DE7
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234508.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234508.jpgsave_picture_234508.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ ALLPlayer 8.9.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234509.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234509.jpgsave_picture_234509.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:A08C873B883E3EEB34BC5FD189C7D6AC132C1F89
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234510.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234510.jpgsave_picture_234510.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Barnabas Sky - What Comes To Light (2023) [FLAC|Lossless|image + .cue] <Melodic 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234511.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234511.jpgsave_picture_234511.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Project MSK - Time of Despair (2022) [FLAC|Lossless|WEB-DL|tracks] <Power Metal,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234512.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234512.jpgsave_picture_234512.jpg" />
 </div>
 
 

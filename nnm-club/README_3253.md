@@ -6,7 +6,7 @@ Smoke 'N' Flame - Speed Of Light (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104939.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104939.jpgsave_picture_104939.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Palaye Royale - Death or Glory (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104940.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104940.jpgsave_picture_104940.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Tanzwut - Achtung Mensch! (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Folk Met
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104941.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104941.jpgsave_picture_104941.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Lord Of The Lost - Weapons Of Mass Seduction (2023) Deluxe Version [FLAC 24/44.1
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104942.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104942.jpgsave_picture_104942.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Kehlani - While We Wait 2 (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Soul, Funk
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104943.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104943.jpgsave_picture_104943.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Iamx - Fault Lines² (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <dark electronic
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104944.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104944.jpgsave_picture_104944.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Iamx - Fault Lines¹ (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <dark electronic
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104945.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104945.jpgsave_picture_104945.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Overwound - Attitudes (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104946.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104946.jpgsave_picture_104946.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Shemekia Copeland - Blame It On Eve (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104947.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104947.jpgsave_picture_104947.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Antonio Vergara - The Fury (2024) [APE|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104948.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104948.jpgsave_picture_104948.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Fiona Cosgrove - Fiona Cosgrove Introspective (2024) [FLAC 24/44.1|Lossless|WEB-
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104949.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104949.jpgsave_picture_104949.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Haken - Studio Albums (9 releases) (2008-2023) hand made [restored, declipped] [
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104950.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104950.jpgsave_picture_104950.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:C72B77356158E8A1E5CB16ED7FF8C553841AB3A7
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104951.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104951.jpgsave_picture_104951.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ magnet:?xt=urn:btih:37F0928E1FA75A7390FB4F3055D42859108F3BE9
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104952.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104952.jpgsave_picture_104952.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ magnet:?xt=urn:btih:737F91CA5310652FDB0D9A23E2C0E7B9C322CEC4
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104953.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104953.jpgsave_picture_104953.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ magnet:?xt=urn:btih:BAA6C67A0DEE99F5248685E8647B2BBAAF665451
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104954.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104954.jpgsave_picture_104954.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ Duke Robillard - Roll With Me (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104955.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104955.jpgsave_picture_104955.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ magnet:?xt=urn:btih:1E9E66FBC598933974051B01867988CF2AE54C1A
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104956.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104956.jpgsave_picture_104956.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ magnet:?xt=urn:btih:BBAD8FF1CC2DF6D6295E353D6E888EC0D34CF640
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104957.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104957.jpgsave_picture_104957.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ FireAlpaca 2.12.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104958.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104958.jpgsave_picture_104958.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ The Deadbeat Cousins - Get By (With Me) (2024) [FLAC|Lossless|WEB-DL|tracks] <Bl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104959.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104959.jpgsave_picture_104959.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ magnet:?xt=urn:btih:9CE51D5DD962554CF17FC81A8200482E6CDFD3C2
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104960.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104960.jpgsave_picture_104960.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ magnet:?xt=urn:btih:9AA3A2EAF341537134293FC6320452540B50DF0A
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104961.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104961.jpgsave_picture_104961.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ magnet:?xt=urn:btih:E372984057A06F675C36629D593E57D3BA7F7579
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104962.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104962.jpgsave_picture_104962.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ magnet:?xt=urn:btih:083197F67476D51FC602622F819A08CE221214AE
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104963.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104963.jpgsave_picture_104963.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ V.A. - Italian Jazz Lounge (2024) [FLAC|Lossless|WEB-DL|tracks] <Nu Jazz, Pop Ja
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104964.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104964.jpgsave_picture_104964.jpg" />
 </div>
 
 

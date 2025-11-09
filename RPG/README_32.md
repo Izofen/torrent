@@ -6,7 +6,7 @@ Little-Known Galaxy (2024) [En] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54454.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54454.jpgsave_picture_54454.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Esports Godfather (2024) [Multi] (1.0.10) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54460.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54460.jpgsave_picture_54460.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Dark Souls 2: Scholar of the First Sin (2015) [Ru/En] (1.0.2/dlc) Repack xatab
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54473.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54473.jpgsave_picture_54473.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Kingdom of Fallen: The Last Stand / Королевство Павших: Пос�
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54478.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54478.jpgsave_picture_54478.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ CONSORTIUM Remastered (2024) [Multi] (1.0.1) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54482.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54482.jpgsave_picture_54482.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Crown Wars: The Black Prince (2024) [Ru/Multi] (1.0/dlc) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54489.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54489.jpgsave_picture_54489.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Kingdom of Fallen: The Last Stand / Королевство Павших: Пос�
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54495.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54495.jpgsave_picture_54495.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Kingdom of Arcana (2024) [En] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54527.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54527.jpgsave_picture_54527.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Trinity Fusion (2023) [Multi] (20240412/dlc) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54557.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54557.jpgsave_picture_54557.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ C.A.R.D.S. RPG: The Misty Battlefield (2024) [Multi] (1.0/dlc) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54596.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54596.jpgsave_picture_54596.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Vendir: Plague of Lies (2024) [Ru/Multi] (1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54626.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54626.jpgsave_picture_54626.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Taboo Trial (2023) [Multi] (5.0/dlc) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54627.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54627.jpgsave_picture_54627.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Granblue Fantasy: Relink (2024) [Multi] (1.3.1/dlc) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54640.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54640.jpgsave_picture_54640.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ The Elder Scrolls V: Skyrim (2016-2021) [Ru/Multi] (1.6.318.0.8/dlc) Repack FitG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54650.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54650.jpgsave_picture_54650.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Astor: Blade of the Monolith (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54688.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54688.jpgsave_picture_54688.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Astor: Blade of the Monolith (2024) [Ru/Multi] (1.0) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54726.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54726.jpgsave_picture_54726.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ The Mageseeker: A League of Legends Story (2023) [Ru/Multi] (1.0.0/dlc) Repack F
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54814.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54814.jpgsave_picture_54814.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ SpellForce 3: Fallen God (2020) [Ru/Multi] (163238.365571) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54951.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54951.jpgsave_picture_54951.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ SpellForce 3: Soul Harvest (2019) [Ru/Multi] (163238.365571) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54952.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54952.jpgsave_picture_54952.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Ikonei Island: An Earthlock Adventure (2023) [Multi] (20240425/dlc) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55034.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55034.jpgsave_picture_55034.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Withering Rooms (2024) [Multi] (1.25) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55036.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55036.jpgsave_picture_55036.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ SpellForce 3 Reforced (2017-2021) [Ru/Multi] (163238.365571) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55054.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55054.jpgsave_picture_55054.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ CONSORTIUM Remastered (2024) [Multi] (1.0.1) Scene Skidrow
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55072.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55072.jpgsave_picture_55072.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ CyberHoney (2024) [Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55121.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55121.jpgsave_picture_55121.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Little-Known Galaxy (2024) [En] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55136.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55136.jpgsave_picture_55136.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ C.A.R.D.S. RPG: The Misty Battlefield (2024) [Multi] (1.0/dlc) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55149.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55149.jpgsave_picture_55149.jpg" />
 </div>
 
 

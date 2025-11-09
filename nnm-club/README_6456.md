@@ -6,7 +6,7 @@ Keka 1.3.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204556.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204556.jpgsave_picture_204556.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:3AE9283824218744A5BC34B37D40879615A22333
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204557.jpgsave_picture_204557.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:22F4CFBF677747D23B3C66594B29F3D607B277AF
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204558.jpgsave_picture_204558.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ VA - Калина красная 21-Песни, спетые сердцем (201
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204559.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204559.jpgsave_picture_204559.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ VA - Music News vol.292 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204560.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204560.jpgsave_picture_204560.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ magnet:?xt=urn:btih:0E771281F4B2564BB4A156DD326B62E26D5A8D67
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204561.jpgsave_picture_204561.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ VA - Music News vol.235 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204562.jpgsave_picture_204562.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ magnet:?xt=urn:btih:DBF5162AA9A2F5530FF031AA4042B5ED7F41A8A0
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204563.jpgsave_picture_204563.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ Renai Flops / Love Flops / Любовные неудачи [2022, TV, 12] WEBRip
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204564.jpgsave_picture_204564.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ magnet:?xt=urn:btih:7C1C45509375E6A7092DEAFFE00B437AA4EF2942
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204565.jpgsave_picture_204565.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ magnet:?xt=urn:btih:02BE212F54EB4DAF2A331445BFF720E9E6338B06
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204566.jpgsave_picture_204566.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ Udemy, Piotr Jura | Master NestJS - The JavaScript Node.js Framework (2022) WEB-
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204567.jpgsave_picture_204567.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ magnet:?xt=urn:btih:50B3994C30B4A7DF88766AB3876BD8A1C334BB1C
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204568.jpgsave_picture_204568.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:6191E3836EBD2CCD2DAF30096B4739A6EFB8766F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204569.jpgsave_picture_204569.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ magnet:?xt=urn:btih:6C5CED0E4964808BC01A8D958188132C9C199715
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204570.jpgsave_picture_204570.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ magnet:?xt=urn:btih:48A75A4FA749C3ABF0E160AA03B375B8AC4158C1
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204571.jpgsave_picture_204571.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ magnet:?xt=urn:btih:F26B210E676B9380C879AC1222106D3F77EA4A18
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204572.jpgsave_picture_204572.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ magnet:?xt=urn:btih:B5458C4CAACBA34AF26A94B4CB36AB4A69537329
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204573.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204573.jpgsave_picture_204573.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ magnet:?xt=urn:btih:7144B98647984C6DDF52AD417720FE3E9142D4D8
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204574.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204574.jpgsave_picture_204574.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ magnet:?xt=urn:btih:9C321CD26AB1D4208112A1294DA3423065AD7187
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204575.jpgsave_picture_204575.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ magnet:?xt=urn:btih:58C4C24165EF05013B4D73C648D0762B62F8C12E
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204576.jpgsave_picture_204576.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ magnet:?xt=urn:btih:7CB2E7F289A0704FE23065319FE82BDCC2E1B5A1
 >>Старые Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204577.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204577.jpgsave_picture_204577.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ magnet:?xt=urn:btih:23388E6B56FEA1476AC3F9E3735F29C36961858B
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204578.jpgsave_picture_204578.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ Epic Pen Pro 3.12.33 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204579.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204579.jpgsave_picture_204579.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Wolfram Mathematica 13.3.1 [Multi]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204580.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204580.jpgsave_picture_204580.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ magnet:?xt=urn:btih:EA21F81E27D4BFF0BEEE66E8B7FF392D305AA2C2
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204581.jpgsave_picture_204581.jpg" />
 </div>
 
 

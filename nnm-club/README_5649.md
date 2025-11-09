@@ -6,7 +6,7 @@ Opera TOR Web Browser 57.0.3098.102 Stable Portable by PortableAppZ [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173898.jpgsave_picture_173898.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ VA - The Forest Chill Lounge, Vol. 12 (2018) [AAC|~308 Kbps] <Chillout, Lounge, 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173899.jpgsave_picture_173899.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ VA - Markus Schulz - Global DJ Broadcast: Top 20 November (2020) [MP3|320 Kbps] 
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173900.jpgsave_picture_173900.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:93B648E90E656863D7CA45034465D27F2DF44D4F
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173901.jpgsave_picture_173901.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Audio Playr 2.3  [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173902.jpgsave_picture_173902.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ magnet:?xt=urn:btih:9AD873EEFBAD02C2A4E50C8847B4F7CA7D4EBF72
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173903.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173903.jpgsave_picture_173903.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ Omni Recover 2.9.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173904.jpgsave_picture_173904.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ magnet:?xt=urn:btih:083FADFF4DAB26645F0F1E173ED96FE6D355A9EE
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173905.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173905.jpgsave_picture_173905.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ Get Backup Pro 3 v3.6.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173906.jpgsave_picture_173906.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ magnet:?xt=urn:btih:7127C7DB52406D1C5527D75A30322839DFC843EC
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173907.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173907.jpgsave_picture_173907.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ AnyTrans for iOS 8.8.0.20201208 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173909.jpgsave_picture_173909.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ R-Wipe & Clean 20.0.2426 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173910.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173910.jpgsave_picture_173910.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ DevilDriver - Dealing With Demons Vol. I (2020) [FLAC|Lossless|image + .cue] <Gr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173911.jpgsave_picture_173911.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ magnet:?xt=urn:btih:0615AA1318A24D8AF5BF05D90641AB1FEFB9B9F3
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173913.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173913.jpgsave_picture_173913.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ Swift Publisher 5 v5.5.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173914.jpgsave_picture_173914.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Don't Sleep 9.17 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_173915.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_173915.jpgsave_picture_173915.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ VA - Anything and everything assorted part 3 (2025) [MP3|320 Kbps] <Electronic, 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173917.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173917.jpgsave_picture_173917.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ magnet:?xt=urn:btih:45DBE26BCED4C66D13D6557C15CB9B5C3604DB2B
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_173918.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_173918.jpgsave_picture_173918.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ magnet:?xt=urn:btih:FB87375615121D2D6CD6B2FA4BF1EE3E97B9CDB1
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173919.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173919.jpgsave_picture_173919.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ VA - Halloween Blues (2023) [MP3|320 Kbps] <Blues, Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173920.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173920.jpgsave_picture_173920.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ magnet:?xt=urn:btih:8D5109914D0B888F0587E954ABA100C51753E0E2
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173921.jpgsave_picture_173921.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ magnet:?xt=urn:btih:6FF8A0FC1925CC6F08B287E8C266BD55E52570DA
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173922.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173922.jpgsave_picture_173922.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Storyist 4 v4.2.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173923.jpgsave_picture_173923.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ VA - Paradigm House Sound (2022) [MP3|320 Kbps] <Electronica, Progressive, Tech 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_173924.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_173924.jpgsave_picture_173924.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ magnet:?xt=urn:btih:872BB9553A017F49CBF49FD99FABD86FEE6AEADE
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173926.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173926.jpgsave_picture_173926.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Text Edit Plus 13.4 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173927.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173927.jpgsave_picture_173927.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ VA - Nahawand: Best of 2024 (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71865.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71865.jpgsave_picture_71865.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - SpaceSynth.Ru presents: Special New Year's Voyage 2025 (2025) [MP3|320 Kbps
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71876.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71876.jpgsave_picture_71876.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - A-Mase - Best of 2024 (2025) [MP3|320 Kbps] <Progressive House, Melodic Hou
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71927.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71927.jpgsave_picture_71927.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - Trance - Charted Only (Winter Edition), Vol. 1 (2025) [MP3|320 Kbps] <Tranc
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71941.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71941.jpgsave_picture_71941.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ VA - Armin van Buuren - A State Of Trance 1206 (2025) [MP3|320 Kbps] <Trance, Pr
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71944.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71944.jpgsave_picture_71944.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ VA - Raw Deep Hypnotic Trance, Vol. 1 (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71945.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71945.jpgsave_picture_71945.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ VA - Ultima Audio: Essentials 2024 (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71956.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71956.jpgsave_picture_71956.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ VA - Spektra's History - 17th Anniversary (2025) [MP3|320 Kbps] <Breaks, Breakbe
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71968.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71968.jpgsave_picture_71968.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ VA - Redux Selection, Vol. 1 / 2025 (2025) [MP3|320 Kbps] <Trance, Uplifting Tra
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71974.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71974.jpgsave_picture_71974.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ VA - Ablazing Winter Sessions 2025 (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71975.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71975.jpgsave_picture_71975.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Didier Marouani & Space - JUST BLUE (2002) [MP3|320 kbps]<Electronic>
 >>Experimental Electronic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_72785.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_72785.jpgsave_picture_72785.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ VA - More Than Miles: Dream House '96 (1996) [MP3|320 kbps]<Dream House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77284.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77284.jpgsave_picture_77284.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ VA - Anjunadeep 04 (Mixed by Jaytech & James Grant) (2012) [MP3|320 кб/с]<Hou
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79141.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79141.jpgsave_picture_79141.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Miike Snow - Miike Snow (2009) [MP3|320 кб/с]<Electro-pop>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79326.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79326.jpgsave_picture_79326.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ VA - Markus Schulz - Global DJ Broadcast Top 15 (2008-2011) [MP3|320 кб/с]<Tr
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79547.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79547.jpgsave_picture_79547.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ VA - Progressive Goa Trance 1-9 (2002-2009) [MP3|~238 кб/с (V0)]<Psychedelic 
 >>Psychedelic, psytrance, fullon
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79660.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79660.jpgsave_picture_79660.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ Gesaffelstein - Original (2010 -2011) [MP3|320 кб/с]<Techno>
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80453.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80453.jpgsave_picture_80453.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ VA - Paul Oakenfold - Never Mind The Bollocks (2011) [FLAC|Lossless]<Trance>
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80998.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80998.jpgsave_picture_80998.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ Disc one:
 >>Experimental Electronic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81213.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81213.jpgsave_picture_81213.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ DJ JIM - Spring Colors (2012) [MP3|320 кб/с] <Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82054.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82054.jpgsave_picture_82054.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ The Internet - Purple Naked Ladies (2012) [FLAC|Lossless]<Electronic, Funk, Trip
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82224.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82224.jpgsave_picture_82224.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Triangle Sun - 3Albums (2007-2008-2009) [MP3|320 kbps]<Chillout / Downtempo>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82526.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82526.jpgsave_picture_82526.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ Bertine Zetlitz - Electric Feet (2012) [MP3|320 кб/с]<Synth-Pop, Acid Jazz, E
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83246.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83246.jpgsave_picture_83246.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ VA - 50 Miami Tunes 2012 WEB [FLAC|Lossless]<Trance, House, Progressive House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83485.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83485.jpgsave_picture_83485.jpg" />
 </div>
 
 
@@ -703,7 +703,7 @@ VA - Best Of Chillout Ibiza - Sunset Lounge (2012) [FLAC|Lossless]<Lounge, Chill
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83704.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83704.jpgsave_picture_83704.jpg" />
 </div>
 
 
@@ -736,7 +736,7 @@ Markus Schulz - Global DJ Broadcast Top 20 March (2012) [MP3|320 кб/с]<Trance
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84445.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84445.jpgsave_picture_84445.jpg" />
 </div>
 
 

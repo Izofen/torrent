@@ -6,7 +6,7 @@ Pat Harrigan, Brian Wood | Артбук Мифы о Ктулху Говарда 
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198810.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198810.jpgsave_picture_198810.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:710BB9A5F411A89F9FC44E881318B69B266271B8
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198812.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198812.jpgsave_picture_198812.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:65358A61B7AAF4918DDA4DE5BDFC80B4F3F07F5F
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198814.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198814.jpgsave_picture_198814.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:D92B1D7586A04ED60614A9D250608F83047449C3
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198816.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198816.jpgsave_picture_198816.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:941033C4D113BE8362B099EE8430FAB392442D2A
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198820.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198820.jpgsave_picture_198820.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:98A4CBBF00DCA6F572904BEA89373E4B4462A853
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198822.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198822.jpgsave_picture_198822.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:9CE45426DE07D7429168089B575710F4635627CA
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198824.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198824.jpgsave_picture_198824.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:084BB439C62BEB15C643BD305CD89663AA07348D
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198826.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198826.jpgsave_picture_198826.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:C9BA6AFED0BAAAF90BDDD23C78F5F28262D5ACA4
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198828.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198828.jpgsave_picture_198828.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:BE66FDEEBDF5A30F662A648FA704F27297E3EEA9
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198830.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198830.jpgsave_picture_198830.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:1D41193860D57888EE2F75F27A00F25BB5B4AE6E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198833.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198833.jpgsave_picture_198833.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:4BF4CA06F9373F2500C8829B4FA889193AD42968
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198836.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198836.jpgsave_picture_198836.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Solomon Snow: First Contact (2023) [Multi] (1.1.413) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198838.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198838.jpgsave_picture_198838.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ magnet:?xt=urn:btih:36514BD3CB0792D7D60330C21F84B6F4C6E2FFDF
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198840.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198840.jpgsave_picture_198840.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ magnet:?xt=urn:btih:B8CD98B9BB53AF7E5CE14C56C28FD44A63CFE97A
 >>Сериалы DC Comics
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198850.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198850.jpgsave_picture_198850.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ magnet:?xt=urn:btih:AB01D9051E6C0A6E1CB7E2BD01D061AEC9B4A9DE
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198856.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198856.jpgsave_picture_198856.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ magnet:?xt=urn:btih:88C7E6B9FCD3683D553325C1018FEDDA9772F2FE
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198857.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198857.jpgsave_picture_198857.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ magnet:?xt=urn:btih:CAB7125F5BB17D3B011520E49E62D0CED493A8BC
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198861.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198861.jpgsave_picture_198861.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ magnet:?xt=urn:btih:C0F65D55B564D159CB4B0A26C68F331A0E93E222
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198864.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198864.jpgsave_picture_198864.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ magnet:?xt=urn:btih:F0D43493E68AD736C7A1D433D575D5671209C9A1
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198869.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198869.jpgsave_picture_198869.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Before I Forget (2020) [Multi] (1.0.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198871.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198871.jpgsave_picture_198871.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ magnet:?xt=urn:btih:0DA4DFA39163AA291234950E32ED15EDA2A54FAD
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198877.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198877.jpgsave_picture_198877.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ magnet:?xt=urn:btih:A81EB288FC46F7473F2F693AF8853303E66C84D6
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198879.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198879.jpgsave_picture_198879.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Duplicate Files Search & Link (Duplicate Searcher) 10.2.3  + Portable  [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198883.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198883.jpgsave_picture_198883.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ magnet:?xt=urn:btih:C637B6930BED3629896482C104BB9C8D0666C3E7
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_199740.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_199740.jpgsave_picture_199740.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Blasphemous (2019) [Ru/Multi] (4.0.67/dlc) Repack Necros [Digital Deluxe Edition
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_199744.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_199744.jpgsave_picture_199744.jpg" />
 </div>
 
 

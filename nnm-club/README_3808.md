@@ -6,7 +6,7 @@
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119388.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119388.jpgsave_picture_119388.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Java SE Runtime Environment 8.0.4010.10 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119389.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119389.jpgsave_picture_119389.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Boxes: Lost Fragments (2024) [Ru/Multi] (13337283) Scene Skidrow
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119390.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119390.jpgsave_picture_119390.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:27FA119B4B8018A81995D132B32BCF5FCA84CC84
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119391.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119391.jpgsave_picture_119391.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:F7418CCA96BBCAB05E988BD46DAACA8A548036DC
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119392.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119392.jpgsave_picture_119392.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:E27D7DF63A8FD7CD051E0A85E7F54EFBD06F7700
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119393.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119393.jpgsave_picture_119393.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Shards of Chaos (2024) [Ru/En] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119394.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119394.jpgsave_picture_119394.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ VA - Зима на Love Radio (2024) [MP3|320 Kbps] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119395.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119395.jpgsave_picture_119395.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:9D0FA4B6FA6C2C1A6F47E0F160E884D64FB86C6B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119396.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119396.jpgsave_picture_119396.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ The House of Da Vinci (2017) [Ru/Multi] (1.0.3) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119397.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119397.jpgsave_picture_119397.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:1D19EF549CAB8EA0054B2B0F2B2C3DED981F146A
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119398.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119398.jpgsave_picture_119398.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:1D19EF549CAB8EA0054B2B0F2B2C3DED981F146A
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119399.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119399.jpgsave_picture_119399.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ magnet:?xt=urn:btih:F112CDC79701396FB230C0D12636A1FFA2F0C4D0
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119400.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119400.jpgsave_picture_119400.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ magnet:?xt=urn:btih:DC9346AB6675AD3A327533B301FC8213BE705415
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119401.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119401.jpgsave_picture_119401.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ magnet:?xt=urn:btih:DC9346AB6675AD3A327533B301FC8213BE705415
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119402.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119402.jpgsave_picture_119402.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ magnet:?xt=urn:btih:5BC72C1EE5665028B4A758B28B2CE5B981B1BCDB
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119403.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119403.jpgsave_picture_119403.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ magnet:?xt=urn:btih:C74CB26F40AA43554750AF7FCDB28B67E128E201
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119404.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119404.jpgsave_picture_119404.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ magnet:?xt=urn:btih:08FC1B7F0AE2B2178F4C0822E2F3D70C115C8DF3
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119405.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119405.jpgsave_picture_119405.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ magnet:?xt=urn:btih:F291B2D620882961B18D5283E5827A86E44C6282
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119406.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119406.jpgsave_picture_119406.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ KMS Tools Portable Lite by Ratiborus 01.02.2024 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119407.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119407.jpgsave_picture_119407.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ magnet:?xt=urn:btih:D0BB7876E4BE0858A1F35237F8C07CE086AD5960
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119408.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119408.jpgsave_picture_119408.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ magnet:?xt=urn:btih:E80D381B1E3183E9F979F284D2272050667A37C6
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119409.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119409.jpgsave_picture_119409.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ magnet:?xt=urn:btih:136C9B1729912F9A7FCD2346BCF11146C590FD56
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119410.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119410.jpgsave_picture_119410.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Microsoft сломала старые ПК простым обновлением
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119411.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119411.jpgsave_picture_119411.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Microsoft сломала старые ПК простым обновлением
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119412.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119412.jpgsave_picture_119412.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Microsoft сломала старые ПК простым обновлением
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119413.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119413.jpgsave_picture_119413.jpg" />
 </div>
 
 

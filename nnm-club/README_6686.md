@@ -6,7 +6,7 @@
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229410.jpgsave_picture_229410.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:2767A4A5A6FA5E29DD8C68D33C034B9E8CB6FEF2
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229411.jpgsave_picture_229411.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Claude Williamson - 'Round Midnight (1956) 2000, Bethlehem [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_229412.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_229412.jpgsave_picture_229412.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:557590197B6F676A675A632F17C94F4034CE929D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229413.jpgsave_picture_229413.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ X-Men: Destiny (2011) [Xbox360] [RegionFree] FreeBoot [Unofficial] [Ru]
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229414.jpgsave_picture_229414.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Pal/Secam (2008) SATRip
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229418.jpgsave_picture_229418.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Zoc Terminal 8.01.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229419.jpgsave_picture_229419.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Music Tag Editor 5.10.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229420.jpgsave_picture_229420.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:C70AC4BDD76D8B1612AE9E031BD1806A9D1D59AD
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229421.jpgsave_picture_229421.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:9BC6557003F4AA79132C5EB1A8BFD0B07D1229AE
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229422.jpgsave_picture_229422.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Cascada - It's Christmas Time (iTunes Version) (2012) [MP3|320 кб/с]<Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229423.jpgsave_picture_229423.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ Comic Life 3 v3.5.18 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229426.jpgsave_picture_229426.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ magnet:?xt=urn:btih:A152A05920E21FF7A93D56A4A57DC757C5F8B1CA
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229427.jpgsave_picture_229427.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ Tony Mitchell - Hot Endless Summer Nights (2021) [FLAC|Lossless|WEB-DL|tracks] <
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229428.jpgsave_picture_229428.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ OPNSense 15.7.18-OpenSSL [i386, amd64] 2xCD, 6xIMG
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229429.jpgsave_picture_229429.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ magnet:?xt=urn:btih:2523F9D56B6A9FC4B9B7480B3E7DA83BC59F9740
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229430.jpgsave_picture_229430.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ magnet:?xt=urn:btih:1210B6CDD6C20B05A0F4F629BF4456CA4186D9D7
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229432.jpgsave_picture_229432.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ magnet:?xt=urn:btih:A82C4D3D7147B1185414EBD0DAB8D255F00CCC2D
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229433.jpgsave_picture_229433.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ Fortress - Don't Spare The Wicked (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229434.jpgsave_picture_229434.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ magnet:?xt=urn:btih:23E4307C8F1CD0ADE7BF50A2A23A38005408F4CA
 >>Подвижные Игры
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229435.jpgsave_picture_229435.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ magnet:?xt=urn:btih:8542462ED88F0A55C3010915F7EAEF917838B89F
 >>Футбол
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229436.jpgsave_picture_229436.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ magnet:?xt=urn:btih:2DF814101A73FBBC7E598B12773AC296F5DFD12C
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229437.jpgsave_picture_229437.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ magnet:?xt=urn:btih:E7EC9BB99DD8CCE28CFFFD617E09BB35CE79800F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229440.jpgsave_picture_229440.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ magnet:?xt=urn:btih:D7AB02D87B79EF48D23799268CF5491C1A9C4598
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229441.jpgsave_picture_229441.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Hitten - Triumph & Tragedy (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229443.jpgsave_picture_229443.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ magnet:?xt=urn:btih:59A2807193AE73E2990DACF2BB9613E6E1CC0C26
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229444.jpgsave_picture_229444.jpg" />
 </div>
 
 

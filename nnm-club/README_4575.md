@@ -6,7 +6,7 @@
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143197.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143197.jpgsave_picture_143197.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:C6082E32F43EAA212FD3A0579C1313D8612E2B63
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143198.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143198.jpgsave_picture_143198.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:2B16021E43FB43B056C3084FA0B5220B3BFA3206
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143199.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143199.jpgsave_picture_143199.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Notorious - Sexy Funky Monkey (1997) Single [FLAC|Lossless|tracks + .cue] <Rock,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143201.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143201.jpgsave_picture_143201.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ T-Square - Human (1993) Sony Music[FLAC|Lossless|image + .cue] <Jazz Fusion>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143202.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143202.jpgsave_picture_143202.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ magnet:?xt=urn:btih:B527B9438398B96012D0AB9F8D8F41AF6A307399
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143204.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143204.jpgsave_picture_143204.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ FileMenu Tools 7.0.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143205.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143205.jpgsave_picture_143205.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ Octodad: Dadliest Catch (2014) [PSVita] [USA] 3.60 [NoNpDrm] [License] [Ru/En]
 >>PS Vita
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143206.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143206.jpgsave_picture_143206.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ magnet:?xt=urn:btih:79DECC5FE31EAE3FA385D23F6AD8F28B8C93E0E0
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143207.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143207.jpgsave_picture_143207.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ magnet:?xt=urn:btih:8159440DF19811D5155F358BB495DE5CB98DF204
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143208.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143208.jpgsave_picture_143208.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ ON1 Photo RAW 2024 v.18.0.4.14762  [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143209.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143209.jpgsave_picture_143209.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:C5295154C8FE37FAF0360AA54883F79556A7C7F0
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143210.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143210.jpgsave_picture_143210.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ magnet:?xt=urn:btih:1118726F658A83B4CF9E8D88A9DC5EA5AC171A10
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143212.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143212.jpgsave_picture_143212.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ magnet:?xt=urn:btih:55DDD49BFD8260F1326C0822449F72E28956173E
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143213.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143213.jpgsave_picture_143213.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ magnet:?xt=urn:btih:5370F6DE28549F6E468C39B3556107E45999DC8A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143214.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143214.jpgsave_picture_143214.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ VA - Christmas Chill Album (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143215.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143215.jpgsave_picture_143215.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ magnet:?xt=urn:btih:94516084F59D0874E42864ECC0F7E43FA1DB7C0C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143217.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143217.jpgsave_picture_143217.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ magnet:?xt=urn:btih:5F7932CB22878C579A55D57F307F977DB26EAD48
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143218.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143218.jpgsave_picture_143218.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ magnet:?xt=urn:btih:8A00D44DB401A2A5A399BD299C1582AA943211BB
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143219.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143219.jpgsave_picture_143219.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Big Bad Family (1994) Finalmix Records[FLAC|Lossless|tracks + .cue] <Jazz Fusion
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143221.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143221.jpgsave_picture_143221.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Polarr Photo Editor Pro 5.10.8 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143222.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143222.jpgsave_picture_143222.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Ridel High - Emotional Rollercoaster (1998) [FLAC|Lossless|tracks + .cue] <Pop R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143223.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143223.jpgsave_picture_143223.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ magnet:?xt=urn:btih:822FE0FF47DEE5600DB61FBCF1223CF82770D145
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143224.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143224.jpgsave_picture_143224.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ magnet:?xt=urn:btih:89408AF6F517E965164C8A068231107AB7BDFADE
 >>Мобильное Видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143225.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143225.jpgsave_picture_143225.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Le Maximum Kouette - Moi j'aime ça! (2002) Maxi-Single [FLAC|Lossless|tracks + 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143227.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143227.jpgsave_picture_143227.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ magnet:?xt=urn:btih:0747DF51538F7155D96623FFBED91880EA6CC4C3
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143228.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143228.jpgsave_picture_143228.jpg" />
 </div>
 
 

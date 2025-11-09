@@ -6,7 +6,7 @@
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236459.jpgsave_picture_236459.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:996CC69ED1DDE822A7D0BBB21E46FCE50E51930B
 >>Авиация
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236462.jpgsave_picture_236462.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:A97EF5AC9B9C749B02A7215FAA8C47395610582C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236466.jpgsave_picture_236466.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ SQLPro Studio 2021.90 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236467.jpgsave_picture_236467.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:454483DE0B682BD091CF8F2A29F63FC6EF328C9B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236469.jpgsave_picture_236469.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Data Creator 1.8.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236471.jpgsave_picture_236471.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:2EA24D0FB21FB0E34A6EC5D87A752A5896829B22
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236472.jpgsave_picture_236472.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ PCDJ LYRX 1.10.1.0 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236473.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236473.jpgsave_picture_236473.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ VA - Mystic Chill, vol. 1 (2014) [AAC|~331 Kbps] <Psychill, Downtempo, Ambient>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236475.jpgsave_picture_236475.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:6C6A08C321F6EB9BC59B789DC872E31E3BF63CDD
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236478.jpgsave_picture_236478.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:11A9A4C245BC5C1B426DA72AEB05F6498B4C7AFF
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236480.jpgsave_picture_236480.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ Dracula Origin (2008) [Ru/Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236481.jpgsave_picture_236481.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Mike Guldin and Rollin' & Tumblin - The Franklin Sessions (2023) [FLAC|Lossless|
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236482.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236482.jpgsave_picture_236482.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Compass Level & GPS 2.4.13 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236484.jpgsave_picture_236484.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Scrutiny 10 v10.3.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236485.jpgsave_picture_236485.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ VA - Sun Shiners by Smooth Deluxe, Vol. 4 (2021) [AAC|~330 Kbps] <Lounge, Chill 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236488.jpgsave_picture_236488.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ John Di Martino's Romantic Jazz Trio - So In Love (2015) [DSD64 2.0|1bit/2822,4k
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236491.jpgsave_picture_236491.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ magnet:?xt=urn:btih:F1CE7CEED1D139182288E974135F470CBA93685D
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236492.jpgsave_picture_236492.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ Rainover - NOX (2023) [MP3|320 Kbps] <Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236494.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236494.jpgsave_picture_236494.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ VA - Sun Shiners by Smooth Deluxe, Vol. 1 (2020) [AAC|~326 Kbps] <Lounge, Chill 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236496.jpgsave_picture_236496.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ magnet:?xt=urn:btih:57494F3FF0D9C4E21635F9D3ED9A66FB24AD85D4
 >>Звездные войны / Star Wars (сериалы по франшизе)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236498.jpgsave_picture_236498.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Mizz Lowe - Classy Woman (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236499.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236499.jpgsave_picture_236499.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Blender 3.3.0 LTS Portable для Windows 7 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236501.jpgsave_picture_236501.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ WastedSky - Стая (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal, Nu
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236504.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236504.jpgsave_picture_236504.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ VA - Sun Shiners by Smooth Deluxe, Vol. 3 (2021) [AAC|~321 Kbps] <Lounge, Chill 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236509.jpgsave_picture_236509.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ magnet:?xt=urn:btih:28C19CB7F406231CB2DBECC5EA453B477DB32E7D
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236510.jpgsave_picture_236510.jpg" />
 </div>
 
 

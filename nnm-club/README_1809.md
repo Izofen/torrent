@@ -6,7 +6,7 @@
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47391.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47391.jpgsave_picture_47391.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:7C1C300D5BA555EE84B4EF9C45F0842040CA29FB
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47392.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47392.jpgsave_picture_47392.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:7C1C300D5BA555EE84B4EF9C45F0842040CA29FB
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47393.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47393.jpgsave_picture_47393.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:DED5F1915A882AEE0CF20A4F42DB734F97CAC5B9
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47394.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47394.jpgsave_picture_47394.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ Arranger: A Role-Puzzling Adventure (2024) [Multi] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47395.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47395.jpgsave_picture_47395.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ AOMEI Backupper Technician Plus 7.4.0 Repack (& Portable) by elchupacabra [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47396.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47396.jpgsave_picture_47396.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:1C53A7FF567DC80D0F13BBC2A656422694007312
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47397.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47397.jpgsave_picture_47397.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:CF2006CC0E4C2DF9E3C8A814BED3478ACF47AB06
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47398.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47398.jpgsave_picture_47398.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:C28039D52CCEE0D3CFB1C33643DAB5CCEE3E0011
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47399.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47399.jpgsave_picture_47399.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ magnet:?xt=urn:btih:133D42DDF494E8D3171907AF318343E87F120B02
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47400.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47400.jpgsave_picture_47400.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Genius.Courses, Александр Сокирка | Клуб Genius.Courses. 13 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47401.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47401.jpgsave_picture_47401.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Planet VPN 2.8.37.47 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47402.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47402.jpgsave_picture_47402.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ magnet:?xt=urn:btih:75EBA6BD5CD440A48710291B0D9529573E585660
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47403.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47403.jpgsave_picture_47403.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ magnet:?xt=urn:btih:38732C279F1541E1924D1E7EA6947E0FD184BB5C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47404.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47404.jpgsave_picture_47404.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ magnet:?xt=urn:btih:97147A775888DC0A44CD0F9A555F442E5760E723
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47405.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47405.jpgsave_picture_47405.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Black Sabbath - The Last Supper '99  (2015) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47406.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47406.jpgsave_picture_47406.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ magnet:?xt=urn:btih:0C4A072C24AFD2BEC9AE0535A50B52D70D6752AB
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47407.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47407.jpgsave_picture_47407.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ AC/DC (ACDC) - Family Jewels (2005) 2xDVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47408.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47408.jpgsave_picture_47408.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ AC/DC - No Bull (Live Plaza De Toros De Las Ventas, Madrid) 1996/2008 DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47409.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47409.jpgsave_picture_47409.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ magnet:?xt=urn:btih:6A36966B4A3BE9062C42EE7B0C7DF2057F039FBE
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47410.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47410.jpgsave_picture_47410.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Wondershare Filmora 13.6.4.8450 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47411.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47411.jpgsave_picture_47411.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Black Sabbath - Live... Gathered In Their Masses (2013) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47412.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47412.jpgsave_picture_47412.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ magnet:?xt=urn:btih:F0ED68B301AF0C41BC23F063FE51514E210E6BB7
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47413.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47413.jpgsave_picture_47413.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ STAR WARS: Bounty Hunter (2024) [Ru/Multi] (Build 15125379) Repack FitGirl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47414.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47414.jpgsave_picture_47414.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ magnet:?xt=urn:btih:BAAB70DA78184578B988BB5704F1D4F437BA2FE9
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47415.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47415.jpgsave_picture_47415.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ Black Sabbath and Blue Oyster Cult - Black and Blue (2004) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47416.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47416.jpgsave_picture_47416.jpg" />
 </div>
 
 

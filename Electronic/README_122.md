@@ -6,7 +6,7 @@ VA - Car Music 2023: Best Road Trip Songs [FLAC|Lossless|WEB-DL|tracks] <House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198705.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198705.jpgsave_picture_198705.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Chill Beach (Deep Strips Records) (2025) [FLAC|Lossless|WEB-DL|tracks] <Hou
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_199899.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_199899.jpgsave_picture_199899.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - Armin van Buuren - A State Of Trance 1248 (ADE Special) (2025) [MP3|320 Kbp
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_199915.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_199915.jpgsave_picture_199915.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - Home Office Chill: Chillout Your Mind (2025) [FLAC|Lossless|WEB-DL|tracks] 
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_199932.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_199932.jpgsave_picture_199932.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ VA - A State of Trance - Classics Top 10, Vol. 10 (2025) [MP3|320 Kbps] <Trance,
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_200000.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_200000.jpgsave_picture_200000.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Bassnectar (Lorin Ashton) - 5 Albums (2020-2025) [MP3|320 Kbps] <Electronic, Bre
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_201889.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_201889.jpgsave_picture_201889.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ VA - Ibiza Closing 2025 (Deep Strips Records) [FLAC|Lossless|WEB-DL|tracks] <Hou
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_201952.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_201952.jpgsave_picture_201952.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ VA - Lounge Music (Deep Strips Records) (2025) [FLAC|Lossless|WEB-DL|tracks] <Ho
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202108.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202108.jpgsave_picture_202108.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ VA - Deep Relax - Yoga & Chillout Grooves (2025) [FLAC|Lossless|WEB-DL|tracks] <
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202437.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202437.jpgsave_picture_202437.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Skrillex - Don’t Get Too Close (2023) [FLAC|Lossless|WEB-DL|tracks] <Dubstep, 
 >>Dubstep, Future Garage, Bass Music, UK Garage (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202562.jpgsave_picture_202562.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Depeche Mode - Ghosts Again (2023) Single [FLAC|Lossless|WEB-DL|tracks] <Synthpo
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202870.jpgsave_picture_202870.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ VA - Nothing But... Trancetopia, Vol. 07 (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203026.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203026.jpgsave_picture_203026.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Devo - Live In New York 1980 (2023) [MP3|320kbps] <Post Punk, New Wave>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203064.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203064.jpgsave_picture_203064.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ VA - Augmented 010  Dowden x Mango (2023) [FLAC|Lossless|WEB-DL|tracks] <Minimal
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203083.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203083.jpgsave_picture_203083.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Devil Doll - Sacrilegium (1992) Reissue, Remastered, 2019, Hurdy Gurdy Records [
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203128.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203128.jpgsave_picture_203128.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ VA - Nothing But...Ibiza Closing Party 2023 Trance (2023) [MP3|320 Kbps] <Trance
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203522.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203522.jpgsave_picture_203522.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ VA - Trance Travel Hits 2023 [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203580.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203580.jpgsave_picture_203580.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Faro - Mosaic Of Thoughts (2023) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Loun
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203592.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203592.jpgsave_picture_203592.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ VA - Milk & Sugar Beach Sessions 2023 [MP3|320 Kbps] <House, Deep House, Organic
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203609.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203609.jpgsave_picture_203609.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ VA - From Bonzai With Love 97 (1997) [FLAC|Lossless|tracks] <Trance, Hard Trance
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203620.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203620.jpgsave_picture_203620.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Magnavolt - Stellar Gun (2023) [FLAC|Lossless|WEB-DL|tracks] <Darksynth, Synthwa
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203740.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203740.jpgsave_picture_203740.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Enigma - Best Of 3CD (2009) 3 x CD, Compilation, Reissue, 2012, Virgin Music [FL
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204281.jpgsave_picture_204281.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ VA - Dance Top 100 - Summer 2023 [MP3|320 Kbps] <House, Dance>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204284.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204284.jpgsave_picture_204284.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ VA - Calming Experience: Chillout Your Mind (2023) [FLAC|Lossless|WEB-DL|tracks]
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204312.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204312.jpgsave_picture_204312.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ Didier Marouani & Space - 12 albums, 21 CD (1977-2002) [FLAC|Lossless|image + .c
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204405.jpgsave_picture_204405.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ VA - Vocal Anthems Ibiza (2023) [MP3|320 Kbps] <Trance, Vocal Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204481.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204481.jpgsave_picture_204481.jpg" />
 </div>
 
 

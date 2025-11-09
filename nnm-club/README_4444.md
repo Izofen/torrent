@@ -6,7 +6,7 @@ Anvir Task Manager 9.1.12 Final + Portable [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138898.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138898.jpgsave_picture_138898.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:7A5391A8F7B654E99940174EF5549D4BAC8C71D8
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138899.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138899.jpgsave_picture_138899.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:F1AD931ADB476027E185DEE69F897682D31C255B
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138900.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138900.jpgsave_picture_138900.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:EF35AC6F1880B8E66766A8CA672411D6497BA229
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138901.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138901.jpgsave_picture_138901.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:D2A4EC764497E8BC3625BB598B514FC16E921EDE
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138902.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138902.jpgsave_picture_138902.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:20ED39411329FED053829ABE51E4BE4290EAE4BE
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138903.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138903.jpgsave_picture_138903.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ Michael Pavlovich | Intro To ZBrush 4R7 Part 2 (2015) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138906.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138906.jpgsave_picture_138906.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ MediaHuman YouTube to MP3 Converter 3.9.8.18 (2812) RePack by вовава [Ru/E
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138907.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138907.jpgsave_picture_138907.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Sumatra PDF 3.2.11105 Pre-release + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138908.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138908.jpgsave_picture_138908.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:4E73FBAF9E1000746F6B6209C11ED757F5CBA1E8
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138909.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138909.jpgsave_picture_138909.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:E461637AB2F8D590576F9B6E0CD9C4BFBE935810
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138910.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138910.jpgsave_picture_138910.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:63AB220F8FB9DA16BCBC7B343ED31508E4814BAD
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138911.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138911.jpgsave_picture_138911.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Hard Disk Sentinel Pro 4.10.9 Build 5816 Beta [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138912.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138912.jpgsave_picture_138912.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Hard Disk Sentinel Pro - утилита для мониторинга и кон�
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138913.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138913.jpgsave_picture_138913.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Oren Lavie - Bedroom Crimes (2017) [FLAC|Lossless|tracks + .cue] <Folk, Indie, S
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138915.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138915.jpgsave_picture_138915.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ magnet:?xt=urn:btih:660A6956C63CD053C9201B25A578436B8C843CB4
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138917.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138917.jpgsave_picture_138917.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ magnet:?xt=urn:btih:4232B6C05E7BB57D585BCFF7724310017BB3EFD4
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138918.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138918.jpgsave_picture_138918.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ magnet:?xt=urn:btih:B73C07295B1FDA9190F6D2B51AE401E97BA6B8D2
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138919.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138919.jpgsave_picture_138919.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ magnet:?xt=urn:btih:A92D03B5DD76605349C61CEC033AE7630A950F92
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138922.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138922.jpgsave_picture_138922.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ iMazing 1.4.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138923.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138923.jpgsave_picture_138923.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ magnet:?xt=urn:btih:78032267F6A6DEE54994229EE2BF55C75940191B
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138924.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138924.jpgsave_picture_138924.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Kreator - Violence Unleashed (2016) EP [MP3|320 Kbps] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138926.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138926.jpgsave_picture_138926.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ magnet:?xt=urn:btih:206F7419B5D2A70D81929840BD3DECCA22EEEF1F
 >>А знаете ли вы..
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138928.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138928.jpgsave_picture_138928.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ magnet:?xt=urn:btih:206F7419B5D2A70D81929840BD3DECCA22EEEF1F
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138929.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138929.jpgsave_picture_138929.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ magnet:?xt=urn:btih:2492CEDB664DC161C137CEB716EF5BBB89092A30
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138930.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138930.jpgsave_picture_138930.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ magnet:?xt=urn:btih:BF89D84141A78616C4247DF5CDB12FE6F746452F
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138931.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138931.jpgsave_picture_138931.jpg" />
 </div>
 
 

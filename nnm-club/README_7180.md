@@ -6,7 +6,7 @@ RJ TextEd 15.84.0.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245633.jpgsave_picture_245633.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Korpiklaani - Jylha (2021) [FLAC|Lossless|image + .cue] <Folk Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245634.jpgsave_picture_245634.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Hostbuddy 2.2.5 fix [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245635.jpgsave_picture_245635.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ John Lewis & Mirjana Lewis - The Chess Game Part I (1987) 2000,  Philips[APE|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245636.jpgsave_picture_245636.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Topaz Photo AI 1.2.7 (x64) RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245637.jpgsave_picture_245637.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:DC5A4A54616E24976660D60007FFE9E6A399159D
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245638.jpgsave_picture_245638.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ DiskCatalogMaker 8.3.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245639.jpgsave_picture_245639.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:FF790E4480BD0FADB46FFAA04E0C5801013C9939
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245640.jpgsave_picture_245640.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ Harry Manx - Wise And Otherwise (2001) [WavPack|Lossless|image + .cue] <Blues, F
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245641.jpgsave_picture_245641.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ Robert Palmer - Riptide (1985) Remaster, 2020, UMG Recordings [FLAC 2.0|192/24|W
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245642.jpgsave_picture_245642.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ Carbon Copy Cloner 6 v6.1.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245643.jpgsave_picture_245643.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ Finer Focus 1.4 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245644.jpgsave_picture_245644.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ magnet:?xt=urn:btih:B82B8A4C00C22785AA1C37D42CCF8042E14B94CE
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245645.jpgsave_picture_245645.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ magnet:?xt=urn:btih:822314FA00175197FE49CEA549D904E3DD95F1DE
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245646.jpgsave_picture_245646.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ magnet:?xt=urn:btih:B6381443241CF891BDCB032B4351598DA9FDDB7D
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245647.jpgsave_picture_245647.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ magnet:?xt=urn:btih:733DC8CFB3C5D655A4099FD3E478880C8E6D7EB5
 >>Флот
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245648.jpgsave_picture_245648.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Free Hex Editor Neo 7.30.00.8482 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245649.jpgsave_picture_245649.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ Firefox Browser ESR 102.1.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245650.jpgsave_picture_245650.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ Phantom Elite - Blue Blood (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245651.jpgsave_picture_245651.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ PullTube 1.7.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245652.jpgsave_picture_245652.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ Faithful Annie - Sideways (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245653.jpgsave_picture_245653.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Absent - Beaufort (2020) Airvent [FLAC|Lossless|WEB-DL|tracks] <IDM, Ambient, Do
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245654.jpgsave_picture_245654.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ GeoGebra 6.0.770.0 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245655.jpgsave_picture_245655.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ MotoGP. Этап 04. Гран-при Испании. Гонка (30.04.2023) WEB
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245656.jpgsave_picture_245656.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ magnet:?xt=urn:btih:B2795B68DB9B25F1A6A4198DE1F29E527413F7B1
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245657.jpgsave_picture_245657.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ VA - A Chillout Affair (2016) [MP3|320 Kbps] <Balearic, Downtempo>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245658.jpgsave_picture_245658.jpg" />
 </div>
 
 

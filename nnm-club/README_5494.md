@@ -6,7 +6,7 @@
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169795.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169795.jpgsave_picture_169795.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:CAA8113062F25E42B0AFC3CD5D7D32C211EDB74A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169796.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169796.jpgsave_picture_169796.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:070065CD228673401F4AA28396AC1E272DAAF4CF
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169797.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169797.jpgsave_picture_169797.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ VA - не Громкие новинки недели 91 (2020) [MP3|320 Kbps] <P
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169798.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169798.jpgsave_picture_169798.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:C909237179285B97E70A71E07B1EFCAAE574D4FD
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169799.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169799.jpgsave_picture_169799.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:0CFA5CE1745D3C3EC1C9575078E585BAC1DD53E7
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169800.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169800.jpgsave_picture_169800.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:EA5752EB0A95B3A735E7584D21C6F58860ACB343
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169801.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169801.jpgsave_picture_169801.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:4847C494DA2892B6459F67E87310F62418534AA2
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169802.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169802.jpgsave_picture_169802.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ magnet:?xt=urn:btih:C7A0249DF58A1E620E2CFFC4C68D590983F73C7B
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169803.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169803.jpgsave_picture_169803.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ magnet:?xt=urn:btih:BA5DC6F80D437EE6CDC1C75C8CC8B12C3BA3D510
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169804.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169804.jpgsave_picture_169804.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ VA - EDM Anthems 2020: Top 40 Club Beats For DJs (2019) [MP3|320 Kbps] <Progress
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169805.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169805.jpgsave_picture_169805.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ magnet:?xt=urn:btih:2B5BCDA1783E7B12AA9279C4D9B03FEC7A56164F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169806.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169806.jpgsave_picture_169806.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ magnet:?xt=urn:btih:1E349E1EBB6BBC3F0C5B627553E0599DBA454C22
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169807.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169807.jpgsave_picture_169807.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ Taylor Swift - evermore (2020) [AAC|~284 Kbps] <Pop, Alternative>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169808.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169808.jpgsave_picture_169808.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ magnet:?xt=urn:btih:2E3A6F65C672E91B09E7C263E157940B5B590D1C
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169809.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169809.jpgsave_picture_169809.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ VA - Muscular Well-Being (EDM Music For Workout) (2019) [MP3|320 Kbps] <Electro 
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169810.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169810.jpgsave_picture_169810.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ cDock 4 v4.5.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169811.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169811.jpgsave_picture_169811.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ magnet:?xt=urn:btih:2072E84C518C8DA0C0F8686A2656342AE55DCB10
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169812.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169812.jpgsave_picture_169812.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ Advanced SystemCare Pro 15.0.1.155 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169813.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169813.jpgsave_picture_169813.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ eM Client Pro 9.2.2157.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169814.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169814.jpgsave_picture_169814.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ Turisas - The Varangian Way (2007) [FLAC|Lossless|image + .cue] <Epic Viking Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169815.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169815.jpgsave_picture_169815.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ magnet:?xt=urn:btih:4C977618EC622ED8CC9EA4467B34C2189C2DCBE8
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169816.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169816.jpgsave_picture_169816.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ magnet:?xt=urn:btih:1A58803936ADA17AC5135B1DEDEB083ED8BF66A3
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169817.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169817.jpgsave_picture_169817.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ VA - Return of the Ade Edition (2023) CD, Compilation [MP3|320 Kbps] <Techno, Pr
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169818.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169818.jpgsave_picture_169818.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ magnet:?xt=urn:btih:4590B0BA6520841EEB1637E57C6992B8ACC2C826
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169819.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169819.jpgsave_picture_169819.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ magnet:?xt=urn:btih:C448322ECD413568599493153056ED5A2F191E95
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169820.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169820.jpgsave_picture_169820.jpg" />
 </div>
 
 

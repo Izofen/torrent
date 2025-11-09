@@ -6,7 +6,7 @@ VA - Best Of Deep House (2012) [MP3|320 кб/с]<Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248443.jpgsave_picture_248443.jpg" />
 </div>
 
 
@@ -39,7 +39,7 @@ VA - Sunset Del Mar Vol.8 Finest In ibiza Chill (2011) [MP3|320 кб/с]<Downtem
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248450.jpgsave_picture_248450.jpg" />
 </div>
 
 
@@ -72,7 +72,7 @@ Laurent Garnier - Unreasonable Behaviour & The Cloud Making Machine (2000,2004) 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248486.jpgsave_picture_248486.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ VA - Ibiza Winter Island 2026 (The Chill Out Edition) (2025) [FLAC|Lossless|WEB-
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248594.jpgsave_picture_248594.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Der Blutharsch (And The Infinite Church Of The Leading Hand) - 19 albums (1996-2
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_248963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_248963.jpgsave_picture_248963.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ In The Nursery - 35 albums (1986-2011) [mp3|320 kbps] <Neoclassical, Darkwave, I
 >>Experimental Electronic
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_248971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_248971.jpgsave_picture_248971.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Forthcoming Fire - 10 albums (1991-2010) [mp3|160-320 kbps] <Darkwave, Industria
 >>Industrial, EBM, Dark Electro
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249156.jpgsave_picture_249156.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ VA - Balance 021: Nic Fanciulli (2012) [MP3|~245 кб/с (V0)]<Deep House Tech H
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249170.jpgsave_picture_249170.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ VA - Space Odyssey - Trip Three: New Year’s Voyage 2018 (2017) 2 CD [OGG Vorbi
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249381.jpgsave_picture_249381.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ Schiller - Tag Und Nacht (2005) [FLAC|Lossless|tracks + .cue]<Trance, Downtempo,
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249398.jpgsave_picture_249398.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ Eguana - Night Ambient (2023) [MP3|320 Kbps] <Electronic, Downtempo>
 >>Ambient, Experimental, Modern Classical
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249468.jpgsave_picture_249468.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ M83 - Fantasy (2023) [MP3|320 Kbps] <electronic-pop, synth-pop, Indie>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249507.jpgsave_picture_249507.jpg" />
 </div>
 
 
@@ -365,7 +365,7 @@ VA - Vocal Trance Collection (2023) [MP3|320 Kbps] <Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249546.jpgsave_picture_249546.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ M83 - Fantasy (2023) [FLAC|Lossless|WEB-DL|tracks] <electronic pop, synth-pop>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249593.jpgsave_picture_249593.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ VA - Space Odyssey - Trip One: New Year's Voyage (2016) [OGG Vorbis|480 Kbps] <E
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249628.jpgsave_picture_249628.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ VA - Uplifting Only Top 15 March 2023 (Extended Mixes) (2023) [MP3|320 Kbps] <Tr
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249665.jpgsave_picture_249665.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ VA - UV 250 (Mixed by Paul Thomas) (2023) [MP3|320 Kbps] <House, Progressive Hou
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249678.jpgsave_picture_249678.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ VA - Discoid Clubbing Vol. 3 (2023) [MP3|320 Kbps] <Funky House, Club House, Ind
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249782.jpgsave_picture_249782.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ VA - Miami (2023) [MP3|320 Kbps] <Tech House, Club House, Techno, Electronica>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249784.jpgsave_picture_249784.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Fever Ray - Radical Romantics (2023) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Ex
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249879.jpgsave_picture_249879.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Hania Rani - On Giacometti (2023) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Amb
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249903.jpgsave_picture_249903.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ VA - Piano Beach Lounge (2023) [FLAC|Lossless|WEB-DL|tracks] <Easy Listening, Lo
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249918.jpgsave_picture_249918.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ magnet:?xt=urn:btih:505A4730526332A8A4D1CC6370F12EDF2373AF47
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249935.jpgsave_picture_249935.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ VA - Beautiful Afternoon: Chillout Your Mind (2023) [FLAC|Lossless|tracks] <Bale
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250171.jpgsave_picture_250171.jpg" />
 </div>
 
 
@@ -689,7 +689,7 @@ Intent:Outtake - Der Stille Tod (2023) [FLAC|Lossless|WEB-DL|tracks] <Dark Elect
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250272.jpgsave_picture_250272.jpg" />
 </div>
 
 
@@ -716,7 +716,7 @@ Cosmic Gate - MOSAIIK Chapter Two (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250279.jpgsave_picture_250279.jpg" />
 </div>
 
 

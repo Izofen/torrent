@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124975.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124975.jpgsave_picture_124975.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:777BB944F2E25AE9C147D1A70AB6E1600CC8AC70
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124976.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124976.jpgsave_picture_124976.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:9AA2A3EB9C52D2A620897FBD1AB53C11B737F304
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124977.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124977.jpgsave_picture_124977.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:3C8608BF70162EF85B64044BB7D4B7A66E6BD845
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124978.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124978.jpgsave_picture_124978.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Balun.Courses, Владимир Балун | System Design - 3-х недельн
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124979.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124979.jpgsave_picture_124979.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:C20C52537F3A85AA5149BA88B39D255A11BC17FA
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124980.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124980.jpgsave_picture_124980.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:AC141DDC8640B022092BAA66BDCD6179B70ABAC2
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124981.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124981.jpgsave_picture_124981.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:3F6E3F5CC7E5FB58C3BD86ED862676A4D5F51BE0
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124982.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124982.jpgsave_picture_124982.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:BA4A7FF25326FDCDAB55B36EF10106BC982D823C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124983.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124983.jpgsave_picture_124983.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ VA - Лучшие песни Европа Плюс за 2022 год [MP3|320 Kbp
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124984.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124984.jpgsave_picture_124984.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:F3ABBB7B0CACC74457905F2D42584CBE2D9EF490
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124985.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124985.jpgsave_picture_124985.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ magnet:?xt=urn:btih:5409C627040B7E8F4C36335BF1BC87321044DBE8
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124986.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124986.jpgsave_picture_124986.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ magnet:?xt=urn:btih:382DABACC2AEBFDBD5E93075D89839F7FB7933A1
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124987.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124987.jpgsave_picture_124987.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ magnet:?xt=urn:btih:F25D363BDB5F8F5B58BF53F4B7C0BACA4C977DFB
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124988.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124988.jpgsave_picture_124988.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ magnet:?xt=urn:btih:402227F34E323A64F2B0FD105B19C028913EAD39
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124989.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124989.jpgsave_picture_124989.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ magnet:?xt=urn:btih:56B3193CD5842A5058A2CDABA8E651C9AB1E67C2
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124990.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124990.jpgsave_picture_124990.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ The Lord of the Rings: The Battle for Middle-earth (2004) [Ru/En] (1.03) Repack 
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124991.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124991.jpgsave_picture_124991.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ magnet:?xt=urn:btih:7C62A68528E95BC189702F5D8DDA36EAE05C0902
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124992.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124992.jpgsave_picture_124992.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ magnet:?xt=urn:btih:6514141C8BF7F86DCA8BB88C096CB7AD26E56994
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124993.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124993.jpgsave_picture_124993.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ magnet:?xt=urn:btih:CA342C242991358CE1CCA9C472979AE4233B7A43
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124994.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124994.jpgsave_picture_124994.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ magnet:?xt=urn:btih:1CD8D53866104E8E5E0B87DD3F98DAD7598D28DA
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124995.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124995.jpgsave_picture_124995.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ VA - A Concord Jazz Christmas (1994) Concord Jazz [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124996.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124996.jpgsave_picture_124996.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ Toccata - Ultima Ratio (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124997.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124997.jpgsave_picture_124997.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ magnet:?xt=urn:btih:BFA076DEDE9E18844EF5584EE6F2DCEFEB5E9D52
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124998.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124998.jpgsave_picture_124998.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ magnet:?xt=urn:btih:E14E09A392DE4B36D6FE435818E631E757AA0491
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124999.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124999.jpgsave_picture_124999.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ Jackie McLean & Mal Waldron - Original Quartet Complete Recordings (1956 - 1960)
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125000.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125000.jpgsave_picture_125000.jpg" />
 </div>
 
 

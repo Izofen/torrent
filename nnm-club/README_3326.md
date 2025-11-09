@@ -6,7 +6,7 @@ VA - DJ Hits 141 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, House>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106837.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106837.jpgsave_picture_106837.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:6EC22FACA932CF4F7C8BBE43A51D8A07A40834C6
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106838.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106838.jpgsave_picture_106838.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:4A2A3BFC671A3ED4D5ADBBD43532037EDA28A565
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106839.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106839.jpgsave_picture_106839.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:AD414FFBFB88980FBDE907915FECE96B3D96610B
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106840.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106840.jpgsave_picture_106840.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Anna Prior - Almost Love (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Synthpop>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106841.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106841.jpgsave_picture_106841.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Bart&Baker - Electro Swing Classics - The Swing Phenomenon (2024) [FLAC 24/48|Lo
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106842.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106842.jpgsave_picture_106842.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:F6E9E297B43592CF0D2DE5709EAD2A5422824F05
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106843.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106843.jpgsave_picture_106843.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ Rawa Blues Band - Night and Day (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Bl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106844.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106844.jpgsave_picture_106844.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ DS Caw - Nothing To Fight For (2024) [FLAC|Lossless|WEB-DL|tracks] <Classic Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106845.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106845.jpgsave_picture_106845.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ George Shearing Quintet And Orchestra - White Satin & Black Satin (1957, 1960) 1
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106846.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106846.jpgsave_picture_106846.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ magnet:?xt=urn:btih:A123BBE400E28E17CD099F09F921F5F930B994B9
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106847.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106847.jpgsave_picture_106847.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ Mike Cahen - Bottle Neck Blues (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106848.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106848.jpgsave_picture_106848.jpg" />
 </div>
 
 
@@ -315,7 +315,7 @@ Paul Benjaman Band - My Bad Side Wants a Good Time (2024) [FLAC 24/96|Lossless|W
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106849.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106849.jpgsave_picture_106849.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ magnet:?xt=urn:btih:EA2EBB03F2C714B27E70A25DDCDD377A8307F0FF
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106850.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106850.jpgsave_picture_106850.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Glary Disk Cleaner 6.0.1.13 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106851.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106851.jpgsave_picture_106851.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ magnet:?xt=urn:btih:0A1A2091D1930E156A7DD4E7796B6EFFAA8D011B
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106852.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106852.jpgsave_picture_106852.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ TapinRadio 2.15.97.3 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106853.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106853.jpgsave_picture_106853.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ magnet:?xt=urn:btih:663BC6E1F394AA3DBE611A031144C6B4367D0B8D
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106854.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106854.jpgsave_picture_106854.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Subtitle Edit 4.0.7 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106855.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106855.jpgsave_picture_106855.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Balabolka 2.15.0.873 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106856.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106856.jpgsave_picture_106856.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ PDF Shaper Premium / Ultimate 14.3 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106857.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106857.jpgsave_picture_106857.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Kdenlive 24.05.2 + Standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106858.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106858.jpgsave_picture_106858.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Drupi - The Best of Drupi (2007) [WavPack|Lossless|image + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106859.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106859.jpgsave_picture_106859.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ magnet:?xt=urn:btih:A6C560B6D08204BF60F9DAEE2FA9720E06BB8F71
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106860.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106860.jpgsave_picture_106860.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ VA - Chillout & Lounge Music Summer Vibes (2024) [FLAC|Lossless|WEB-DL|tracks] <
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106861.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106861.jpgsave_picture_106861.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ magnet:?xt=urn:btih:86A0B314F8969E5CA061FB27DFBF60F5FB59250B
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106862.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106862.jpgsave_picture_106862.jpg" />
 </div>
 
 

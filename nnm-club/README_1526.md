@@ -6,7 +6,7 @@
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40032.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40032.jpgsave_picture_40032.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:1E4B431664F92702F96D37FBD0A036EDDFBAF58C
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40033.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40033.jpgsave_picture_40033.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Microsoft Windows 11 24H2 (26100.2033) Pro-Home Optim Lite by OVGorskiy 10.2024 
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40034.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40034.jpgsave_picture_40034.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:68520D2880E4A1BAC45DF6A3358C3E8E15E39C56
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40035.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40035.jpgsave_picture_40035.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ KMSAuto++ Portable 1.9.9 b06 by Ratiborus [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40036.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40036.jpgsave_picture_40036.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Michael Schenker (Проекты) - 42 Albums, 2 Box Set (1980 - 2024) 68 CD [FL
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40037.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40037.jpgsave_picture_40037.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:1BD3170ACE8DCEF87D0140319003505ACFE31B24
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40038.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40038.jpgsave_picture_40038.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:CD8958462998B05635B04729C8EBC6321B6E5D47
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40039.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40039.jpgsave_picture_40039.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:3CFB3D53E1CC5DFD3D11782BF555DFD2FBFA248B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40040.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40040.jpgsave_picture_40040.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:DBD351D0790CF6030B366EE0815722876D3036F1
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40041.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40041.jpgsave_picture_40041.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:DBD351D0790CF6030B366EE0815722876D3036F1
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40042.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40042.jpgsave_picture_40042.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ FastStone Image Viewer 7.9 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40043.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40043.jpgsave_picture_40043.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:9F12BF7716B397C947F5C1405698B864CE950704
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40044.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40044.jpgsave_picture_40044.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:975CF5016357AB32429D02EFE4FA6F7BC3699B1A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40045.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40045.jpgsave_picture_40045.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ magnet:?xt=urn:btih:975CF5016357AB32429D02EFE4FA6F7BC3699B1A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40046.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40046.jpgsave_picture_40046.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:F79AD51BCE97EF5D6687CEA7D7A3EC37A70E86FA
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40047.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40047.jpgsave_picture_40047.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ magnet:?xt=urn:btih:1A06A22D3B87D07B476F98536CC21055CAFAC588
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40048.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40048.jpgsave_picture_40048.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ magnet:?xt=urn:btih:DAD560C04A68A9A28DB234835A4DF418A3DF4220
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40049.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40049.jpgsave_picture_40049.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ CCleaner 6.29.11342 Free / Pro / Business / Technician Edition RePack (& Portabl
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40050.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40050.jpgsave_picture_40050.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ magnet:?xt=urn:btih:3CE7BD17F5E17688A924709D446E6B2927B0E8A6
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40051.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40051.jpgsave_picture_40051.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ VA - The Orient Collective - Forest Spirits (2024) [FLAC|Lossless|WEB-DL|tracks]
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40052.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40052.jpgsave_picture_40052.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ magnet:?xt=urn:btih:E056184B006DACCEEE27EAC51EEAB6638C7F3724
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40053.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40053.jpgsave_picture_40053.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ magnet:?xt=urn:btih:33687C5AD00DC522738FE9E9311D773014BB56F6
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40054.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40054.jpgsave_picture_40054.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Lusa - The Colour Of Space (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Electroni
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40055.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40055.jpgsave_picture_40055.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Rufus Du Sol - Inhale / Exhale (2024) [MP3|320 Kbps] <Electronic, Breaks, House,
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40056.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40056.jpgsave_picture_40056.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ Rufus Du Sol - Inhale / Exhale (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Ele
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40057.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40057.jpgsave_picture_40057.jpg" />
 </div>
 
 

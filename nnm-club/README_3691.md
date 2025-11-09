@@ -6,7 +6,7 @@
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116341.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116341.jpgsave_picture_116341.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Blackberry Smoke - Be Right Here (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blu
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116342.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116342.jpgsave_picture_116342.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:CE86C703631F3CF7400E8E995F09DA3F9D0E27CA
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116343.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116343.jpgsave_picture_116343.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ magnet:?xt=urn:btih:7C7A72FACAE522B95DD7B5C363E1B9B88C53C34E
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116344.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116344.jpgsave_picture_116344.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Eight Seconds - Almacantar (1986) [FLAC|Lossless|WEB-DL|tracks] <New Wave, Synth
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116345.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116345.jpgsave_picture_116345.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ magnet:?xt=urn:btih:9EAE7214EB0144F88A439CC7A306FCDC7CEC4C55
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116346.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116346.jpgsave_picture_116346.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ VA - Jazz Bass - Virtuosity - Electric & Upright (2024) [FLAC|Lossless|WEB-DL|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116347.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116347.jpgsave_picture_116347.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ magnet:?xt=urn:btih:283F34019D2014F967D4C4A9E180038193D83D45
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116348.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116348.jpgsave_picture_116348.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ magnet:?xt=urn:btih:7A88ED5FB015E8CB4CA039EF432A4332661A9A0C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116349.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116349.jpgsave_picture_116349.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ magnet:?xt=urn:btih:246EE7D0E4D78FFFE22887658DBF4E3BEAAC949A
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116350.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116350.jpgsave_picture_116350.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ VA - Tranceparent Vol. 1 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116351.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116351.jpgsave_picture_116351.jpg" />
 </div>
 
 
@@ -291,7 +291,7 @@ Eight Seconds - Big Houses (1990) [FLAC|Lossless|WEB-DL|tracks] <New Wave, Progr
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116352.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116352.jpgsave_picture_116352.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ PhotoSweeper X 4.8.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116353.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116353.jpgsave_picture_116353.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ doPDF 11.9.440 Free [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116354.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116354.jpgsave_picture_116354.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ magnet:?xt=urn:btih:9A9A81CA1D826F40B41E6133395456AFC6BE0CD9
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116355.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116355.jpgsave_picture_116355.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ Lucky Patcher 11.2.0 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116356.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116356.jpgsave_picture_116356.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ YT Downloader 9.6.6 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116357.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116357.jpgsave_picture_116357.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Remote Desktop Manager Enterprise Edition 2023.3.13.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116358.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116358.jpgsave_picture_116358.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ magnet:?xt=urn:btih:AD467290D6EFA8673FED2A5081BDF37303468D96
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116359.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116359.jpgsave_picture_116359.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ Firefox Browser ESR 115.8.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116360.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116360.jpgsave_picture_116360.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ magnet:?xt=urn:btih:15B6B1070C1D0DA5E2DD3CE9C76684EA3DAFEBE3
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116361.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116361.jpgsave_picture_116361.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ magnet:?xt=urn:btih:679F31F6F9007A9190E0097A4F45E627EC81D2C8
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116362.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116362.jpgsave_picture_116362.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ magnet:?xt=urn:btih:10D59312B4483A5CA19CBCD467399B396C02B9E2
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116363.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116363.jpgsave_picture_116363.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Murdock - X-Ray (2024) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116364.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116364.jpgsave_picture_116364.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ magnet:?xt=urn:btih:04E2E2E4108BFADC5D7BDE559AE3D83161C34544
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116365.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116365.jpgsave_picture_116365.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ magnet:?xt=urn:btih:1DE7C19DD226390F4AD704E3E6DF9D58CEA750C7
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116366.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116366.jpgsave_picture_116366.jpg" />
 </div>
 
 

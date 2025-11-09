@@ -6,7 +6,7 @@ VA - 100 Русских рок хитов - Ностальгия (2012) [MP3|~24
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86968.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86968.jpgsave_picture_86968.jpg" />
 </div>
 
 
@@ -39,7 +39,7 @@ Pr-Mex - 2012 (2012) [MP3|320 кб/с]<Rock, пародия>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86969.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86969.jpgsave_picture_86969.jpg" />
 </div>
 
 
@@ -72,7 +72,7 @@ Rocko's Quest / Grouch [Ru] (RePack) 2001 | Pilotus
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86971.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86971.jpgsave_picture_86971.jpg" />
 </div>
 
 
@@ -96,7 +96,7 @@ KURO FOR WINDOWS 7 BY AARON A ARTS dcd [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86974.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86974.jpgsave_picture_86974.jpg" />
 </div>
 
 
@@ -120,7 +120,7 @@ KURO FOR WINDOWS 7 BY AARON A ARTS dcd [Русский]
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86975.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86975.jpgsave_picture_86975.jpg" />
 </div>
 
 
@@ -144,7 +144,7 @@ COMODO Programs Manager 2.0.0.3 Beta [Мульти, Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86976.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86976.jpgsave_picture_86976.jpg" />
 </div>
 
 
@@ -172,7 +172,7 @@ Comodo Programs Manager работает под управлением всех 
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86977.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86977.jpgsave_picture_86977.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:FFB7FFE75B746211ABA01E71A37C75EF80CDED3D
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86979.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86979.jpgsave_picture_86979.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ magnet:?xt=urn:btih:DDD0745D685FAFC130CA439CB1DFB3854370B17E
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86982.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86982.jpgsave_picture_86982.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ ROSA Desktop 2012 Beta [i586 + x86_64] (2xDVD)
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86983.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86983.jpgsave_picture_86983.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ magnet:?xt=urn:btih:A6BB1F1EDF31635F4911ABE2175D4A125D62286F
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86984.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86984.jpgsave_picture_86984.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Morpheus [Ru] (P) 1998
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86985.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86985.jpgsave_picture_86985.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ magnet:?xt=urn:btih:9F6CDCBA1F130F2931263C867D5C6DDFEA6043CD
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86986.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86986.jpgsave_picture_86986.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ magnet:?xt=urn:btih:9C075EB0CE03139CA777CF847CE071FE6EAFDDB7
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86987.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86987.jpgsave_picture_86987.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ magnet:?xt=urn:btih:760FFFEDB4C193C2E52A09DA3969F5FB3F0590C0
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86989.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86989.jpgsave_picture_86989.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ magnet:?xt=urn:btih:5B3A0D0A80AD225CF9D643999645C3135A185076
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86990.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86990.jpgsave_picture_86990.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ BBC: Век эгоизма. Часть 4 – Вся власть Хомячка�
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86992.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86992.jpgsave_picture_86992.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ magnet:?xt=urn:btih:356092D8AF308F04D3F31E970C78BA97E4E1EFF3
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86995.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86995.jpgsave_picture_86995.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ magnet:?xt=urn:btih:799D97C2420995469F29F1C711E2A1124DA7AF1E
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86996.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86996.jpgsave_picture_86996.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Enable decoding of indexed textures (using (   Читать дальше...   )
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87000.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87000.jpgsave_picture_87000.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Happy Chef / Веселый повар (L) [Ru] 2012
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87004.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87004.jpgsave_picture_87004.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Adriana Balboa - Hommages (2004) [MP3|320 kbps]<Classical, Guitar>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87005.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87005.jpgsave_picture_87005.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ magnet:?xt=urn:btih:82EECB47E149EF5A8FE1F47D2FA0576B13F49861
 >>Старые Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87006.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87006.jpgsave_picture_87006.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ magnet:?xt=urn:btih:82EECB47E149EF5A8FE1F47D2FA0576B13F49861
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87007.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87007.jpgsave_picture_87007.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ VA - Beautiful and Relaxing music (2012) [MP3|320 kbps]<Chillout | Lounge | Rela
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87008.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87008.jpgsave_picture_87008.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ Witchaven [En] (RePack) 1995 | Pilotus
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87009.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87009.jpgsave_picture_87009.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Skype 8.104.0.207 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186829.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186829.jpgsave_picture_186829.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ The Virtuosi Of England, Conducted by Arthur Davison - Henry Purcell - Purcell C
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186830.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186830.jpgsave_picture_186830.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:FD5EF0CEEB204F592051B102CB6D3AD0D2122B11
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_186831.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_186831.jpgsave_picture_186831.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Cannibal Corpse - Chaos Horrific (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186832.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186832.jpgsave_picture_186832.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:456DAFB4F90359E37C55C88ACCA8FE3CF7FC136E
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186833.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186833.jpgsave_picture_186833.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ Dj W!ld - W!Ldbeats 4 (2023) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep Hou
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186834.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186834.jpgsave_picture_186834.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ magnet:?xt=urn:btih:44FF626E0A0611733DB095EC5F904F47E688C99F
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186835.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186835.jpgsave_picture_186835.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ Henry Hall - I Feel Amazing (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop Ro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186836.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186836.jpgsave_picture_186836.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ magnet:?xt=urn:btih:90B7B260C7059EB151A9928AB07E66996FCC4CE2
 >>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186837.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186837.jpgsave_picture_186837.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ magnet:?xt=urn:btih:266A5421DADCF3785DFC755684217CF8564B0295
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186838.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186838.jpgsave_picture_186838.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ magnet:?xt=urn:btih:4EFC92BB0438F039AE323AE9E0748B245FC142D8
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186839.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186839.jpgsave_picture_186839.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ magnet:?xt=urn:btih:FD0F5469312E2522C04817788BFA09B585D78901
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186840.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186840.jpgsave_picture_186840.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ magnet:?xt=urn:btih:AF54082B6197657BDD946F5D77DC184B58080A5F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186841.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186841.jpgsave_picture_186841.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ Auslogics Disk Defrag Pro 11.0.0.0 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186842.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186842.jpgsave_picture_186842.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ VA - Best Of Think Trance Vol. 1 (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186843.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186843.jpgsave_picture_186843.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ magnet:?xt=urn:btih:698712B24E3B224CCECAF69184C2675F25C4216E
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186844.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186844.jpgsave_picture_186844.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ magnet:?xt=urn:btih:4E7F920DE06094ECAC20F38ED5D3670765B13ADC
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186845.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186845.jpgsave_picture_186845.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ magnet:?xt=urn:btih:FADCB63D167FAA5CF5FC9D454B9878A634029A06
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186846.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186846.jpgsave_picture_186846.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ magnet:?xt=urn:btih:67C665610E821527BA603A81C155E3824477E0ED
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186847.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186847.jpgsave_picture_186847.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ magnet:?xt=urn:btih:0CAD0C3DB1449D6A5889E5226826CC437793223B
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186848.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186848.jpgsave_picture_186848.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Subsignal - A Poetry of Rain (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186849.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186849.jpgsave_picture_186849.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ magnet:?xt=urn:btih:EE91F6C31020F037E78EDED8BB66FF3CDE7563BF
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186850.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186850.jpgsave_picture_186850.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Automat - 3 Albums (2016-2017) [FLAC|Lossless|WEB-DL|tracks] <Trip-hop, Industri
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186851.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186851.jpgsave_picture_186851.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ File & Image Uploader 8.2.6 + Skins [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186852.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186852.jpgsave_picture_186852.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ magnet:?xt=urn:btih:173D9456B6CF717BC682AFC1D8FBDF94053B4FF1
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186853.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186853.jpgsave_picture_186853.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Automat - Modul (2020) 3CD, Compost Records [FLAC|Lossless|WEB-DL|tracks] <Trip-
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186854.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186854.jpgsave_picture_186854.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Plugin Alliance & Kiive Audio - Tape Face 1.1.1 VST 3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24571.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24571.jpgsave_picture_24571.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:38E17ACF7AC255275B6E03EE7722FEE8C4A3FE95
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24572.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24572.jpgsave_picture_24572.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ AC/DC - Star Colletion (2000) Compilation, Unofficial Release [FLAC 2.0|48/24|im
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24573.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24573.jpgsave_picture_24573.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ EF Commander 25.05 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24574.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24574.jpgsave_picture_24574.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:A1859045E36E911B3D04A49A6FBF5E8A7897F92F
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24575.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24575.jpgsave_picture_24575.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Textra SMS v4.80 Pro Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24576.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24576.jpgsave_picture_24576.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ TikTok Private Plus v39.1.5 Mod by TikTok + Plugin Update 1.73 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24577.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24577.jpgsave_picture_24577.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ VA - Compilation Part 148 Electronic (2025) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24578.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24578.jpgsave_picture_24578.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ Electrical Calculations Pro / Электрические расчеты v10.3.0 
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24579.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24579.jpgsave_picture_24579.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ magnet:?xt=urn:btih:D82D3089B1790ACB5C5F28CE1F01F57153577DE9
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24580.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24580.jpgsave_picture_24580.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:6AFDFC2DD5ACBED356B24E254452CD45C695280B
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24581.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24581.jpgsave_picture_24581.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ Udemy, Eric Giessmannl | Quill to Unreal Engine pipeline – VR animation for 3D
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24582.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24582.jpgsave_picture_24582.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ magnet:?xt=urn:btih:35D38B22F5D568ED2A4373344B4AA636854E98C3
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24583.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24583.jpgsave_picture_24583.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ magnet:?xt=urn:btih:04D28477434B22DF0FE56C076A1ED23F7FD8A214
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24584.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24584.jpgsave_picture_24584.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ magnet:?xt=urn:btih:C0624F253E18204A75D5246F809916C252F7F674
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24585.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24585.jpgsave_picture_24585.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ magnet:?xt=urn:btih:CD5B6AAE44ACFC0591C4C0AEF7066B560457750B
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24586.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24586.jpgsave_picture_24586.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Instant Translate On Screen / Перевод с экрана v6.9.31008 Mod by v
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24587.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24587.jpgsave_picture_24587.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Emurasoft EmEditor Professional 25.0.1 RePack (& Portable) by elchupacabra [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24588.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24588.jpgsave_picture_24588.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ magnet:?xt=urn:btih:68240C0F671702FEC5CFF4F70210E4233E417F08
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24589.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24589.jpgsave_picture_24589.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ magnet:?xt=urn:btih:49012352D4A9039601052BA0F378EDF7643C7C83
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24590.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24590.jpgsave_picture_24590.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ magnet:?xt=urn:btih:905350E8FD79FDCD91A64205F187F735AB8DDE7C
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24591.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24591.jpgsave_picture_24591.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ magnet:?xt=urn:btih:8498CF8F7CB823EB692697EFBA2120B1162062BB
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24592.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24592.jpgsave_picture_24592.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ Udemy, Billy McDaniel | Procedural City Generation in Unity C#: Grid-Based & Mod
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24593.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24593.jpgsave_picture_24593.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ Pupo - Compilation (2025) [MP3|320 Kbps] <Pop, ItaloDisco>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24594.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24594.jpgsave_picture_24594.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ Septicflesh (Septic Flesh) - Studio Albums (12 releases) (1994-2025) hand made [
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24595.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24595.jpgsave_picture_24595.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ DigiKam 8.6.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24596.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24596.jpgsave_picture_24596.jpg" />
 </div>
 
 

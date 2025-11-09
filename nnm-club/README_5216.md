@@ -6,7 +6,7 @@ Base64 Coder 2.1.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162371.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162371.jpgsave_picture_162371.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:19A23A3591C469164F15CEE2D5E8B829192309CE
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162372.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162372.jpgsave_picture_162372.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:861B5D863510ADB2FFA587A493FF19001A3F9270
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162373.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162373.jpgsave_picture_162373.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:3BB4D6402E8DFBEC41CB0E2283FFB62707A9C1C8
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162374.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162374.jpgsave_picture_162374.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ MacPilot 12 v12.0.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162375.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162375.jpgsave_picture_162375.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Hyperkey 0.11 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162376.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162376.jpgsave_picture_162376.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ HighTop 1.2.11 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162377.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162377.jpgsave_picture_162377.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Cadaver - Edder & Bile (2020) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162378.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162378.jpgsave_picture_162378.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:D6A6F6BDCD626B6782A1D283816671A86875F510
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162379.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162379.jpgsave_picture_162379.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ Al Stewart - Songs on the Radio: The Complete U.S. Singles 1974-1981 (2023) Comp
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162380.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162380.jpgsave_picture_162380.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ BlockSudoku / Кудоку-Вуди Блок v2.6.1 Mod by vadj [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162381.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162381.jpgsave_picture_162381.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ Radiant Photo 1.1.2.327 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162382.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162382.jpgsave_picture_162382.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Application Wizard 4.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162383.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162383.jpgsave_picture_162383.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Johnny Hodges - Storyville Masters Of Jazz (1943 - 1964) 2006, Storyville Record
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162384.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162384.jpgsave_picture_162384.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ BBC. История Вселенной (Наша Вселенная) / Our Unive
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162385.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162385.jpgsave_picture_162385.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Erroll Garner - 1949 (2000) Classics [FLAC|Lossless|tracks + .cue] <Swing, Bop, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162386.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162386.jpgsave_picture_162386.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ Advanced Renamer 3.88.1 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162387.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162387.jpgsave_picture_162387.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ Secret Folder Pro 10.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162388.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162388.jpgsave_picture_162388.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ magnet:?xt=urn:btih:53A89A9875973692D5F46D5A47D95B61C63AAD19
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162389.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162389.jpgsave_picture_162389.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Topaz Photo AI 2.1.0 (x64) Portable by conservator [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162390.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162390.jpgsave_picture_162390.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ magnet:?xt=urn:btih:4CD07B271679AC84004AB9A44AFA7CCD0D88D34B
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162391.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162391.jpgsave_picture_162391.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ TunesKit AceMovi Video Editor 2.0.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162392.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162392.jpgsave_picture_162392.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ magnet:?xt=urn:btih:4C4A37EF42152A9ED38B494A1243F2E3DFCCCE9A
 >>Футбол. Чемпионаты мира
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162393.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162393.jpgsave_picture_162393.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Duplicate Finder and Cleaner for Mac 1.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162394.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162394.jpgsave_picture_162394.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ magnet:?xt=urn:btih:FEF88B79557081CD34A484108B6A510321B164DC
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162395.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162395.jpgsave_picture_162395.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ George Loukissas - Apocalypse (2020) [FLAC|Lossless|tracks + .cue] <Hard & Heavy
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162396.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162396.jpgsave_picture_162396.jpg" />
 </div>
 
 

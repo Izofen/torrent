@@ -6,7 +6,7 @@ BCee - These Are The Days (2024) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103541.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103541.jpgsave_picture_103541.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ KineMaster - Video Editor & Maker v7.5.2.33832.GP Mod by Shadow_Patcher [Ru/Mult
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103542.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103542.jpgsave_picture_103542.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ PhotoRoom v5.4.9 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103543.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103543.jpgsave_picture_103543.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ DJ Nelly - Lose Control (2022) [FLAC|Lossless|tracks] <Pop Trance, Scouse House>
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103544.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103544.jpgsave_picture_103544.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ Bounce Enforcerz vs. DJ Oskar - Mr. Vain (2020) [FLAC|Lossless|tracks] <Scouse H
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103545.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103545.jpgsave_picture_103545.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ magnet:?xt=urn:btih:E773DCAC70761D22274BA86F0A311A0ECE1B56B7
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103546.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103546.jpgsave_picture_103546.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ magnet:?xt=urn:btih:7E5CB4356DA038E2494DF8A181996CBD0EC87161
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103547.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103547.jpgsave_picture_103547.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ VivaVideo Video Editor v9.21.5 Mod by maxi123444 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103548.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103548.jpgsave_picture_103548.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ magnet:?xt=urn:btih:046F5D456F3A3859C0371E37AF15BEB4CB2CA828
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103549.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103549.jpgsave_picture_103549.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ magnet:?xt=urn:btih:FA9CCEAD7A75B39E4506949EBA585212D9A1A961
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103550.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103550.jpgsave_picture_103550.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:71E35B13ED0D29CADD3349148A2CEF8583748F91
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103551.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103551.jpgsave_picture_103551.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ Black D.O.G - It's A Long Way For Rock'N'Roll (2024) [FLAC 24/44.1|Lossless|WEB-
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103552.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103552.jpgsave_picture_103552.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ magnet:?xt=urn:btih:99AD71D6FE9CFC0999E89DF49B72CEFFEE9F1FF0
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103553.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103553.jpgsave_picture_103553.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Sarah Vaughan - Great Women of Song (2023) Verve Records [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103554.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103554.jpgsave_picture_103554.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ VA - Free To Dance, Vol. 3 (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103555.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103555.jpgsave_picture_103555.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ magnet:?xt=urn:btih:800B3A2CFE1F8E1BC43A11DDB2B564206BFA80BC
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103556.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103556.jpgsave_picture_103556.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ VA - Roaring Halloween (Electro Swing 3) (2024) [FLAC|Lossless|WEB-DL|tracks] <E
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103557.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103557.jpgsave_picture_103557.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ Kekkon Yubiwa Monogatari | Сказание об обручальных коль
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103558.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103558.jpgsave_picture_103558.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ Ember Knights (2023) [Ru/Multi] (2.0.0.b4510/dlc) Repack Pioneer
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103559.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103559.jpgsave_picture_103559.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ magnet:?xt=urn:btih:E7DFA29EA8B7A0B087E23C3B54173B33F484C575
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103560.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103560.jpgsave_picture_103560.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ Red Giant - Red Giant (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103561.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103561.jpgsave_picture_103561.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ magnet:?xt=urn:btih:F982555891AA289BD207701F36D553CD056ABF84
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103562.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103562.jpgsave_picture_103562.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ magnet:?xt=urn:btih:CA69C0114F4F810476943045F75E2F3A19E14E25
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103563.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103563.jpgsave_picture_103563.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ VA - The 90s Mixtape (2023) [OGG Vorbis|480 Kbps] <Pop, Rock, RnB, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103564.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103564.jpgsave_picture_103564.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ VA - John Digweed - Live in (Stereo) (2024) [FLAC|Lossless|WEB-DL|tracks] <Tech 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103565.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103565.jpgsave_picture_103565.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ magnet:?xt=urn:btih:A294F28D70324A8FF06BD3908F10C02BC58B66A1
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103566.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103566.jpgsave_picture_103566.jpg" />
 </div>
 
 

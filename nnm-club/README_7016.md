@@ -6,7 +6,7 @@
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240578.jpgsave_picture_240578.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:F02C201B7A916F4B4531511043A2EE1CD54D67EB
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240579.jpgsave_picture_240579.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Eibon - Visages of God's Acre (2023) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240580.jpgsave_picture_240580.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ RÜFÜS DU SOL (RUFUS DU SOL) - Collection 7 Releases (2014-2022) [FLAC|Lossless
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240581.jpgsave_picture_240581.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Feeder 4 v4.1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240582.jpgsave_picture_240582.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ magnet:?xt=urn:btih:83CBC0B1A5A49BC0CBACF18D19B725F173D3EBEB
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240583.jpgsave_picture_240583.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ Windows Server 2022 LTSC, Version 21H2 Build 20348.643 (Updated April 2022) - О
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240584.jpgsave_picture_240584.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ No Point In Living - Beautiful Tragedy (2023) [FLAC|Lossless|WEB-DL|tracks] <Dep
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240585.jpgsave_picture_240585.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ Pure Reason Revolution - Above Cirrus (2022) [FLAC 2.0|44.1/24|WEB-DL|tracks] <P
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240586.jpgsave_picture_240586.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ magnet:?xt=urn:btih:7B5457384FDF576065DB01371C6EDE53E8CD60E6
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240587.jpgsave_picture_240587.jpg" />
 </div>
 
 
@@ -262,7 +262,7 @@ Joe Bonamassa - Tales Of Time (Live) (2023) [FLAC 2.0|44/24|WEB-DL|tracks] <Blue
 >>Blues, Soul (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240588.jpgsave_picture_240588.jpg" />
 </div>
 
 
@@ -289,7 +289,7 @@ magnet:?xt=urn:btih:155AC39A8404AD9BE9BC7BE90D84CD96518FE09F
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240589.jpgsave_picture_240589.jpg" />
 </div>
 
 
@@ -314,7 +314,7 @@ MediaHuman YouTube Downloader 3.9.9.82 (3005) RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240590.jpgsave_picture_240590.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ A Better Finder Attributes 7 v7.11 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240591.jpgsave_picture_240591.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ Ubuntu*Pack 22.04 Xfce / Xubuntu (март 2023) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240592.jpgsave_picture_240592.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ Anguish Force - The W8 Of The Future (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240593.jpgsave_picture_240593.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Gable - Brown Paper Bag (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240594.jpgsave_picture_240594.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Metal Factory - Defeat All (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Ha
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240595.jpgsave_picture_240595.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ magnet:?xt=urn:btih:66B2D03DF65E70A3736AF170F4D8AE0561283213
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240596.jpgsave_picture_240596.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ NIUBI Partition Editor 9.5.0 Pro - Unlimited - Technician Edition RePack (& Port
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240597.jpgsave_picture_240597.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ magnet:?xt=urn:btih:27A3D35CF543071BB6431F4485F958AAE6513587
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240598.jpgsave_picture_240598.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Masamune-kun no Revenge | Masamune-kun's Revenge | Месть Масамунэ [
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240599.jpgsave_picture_240599.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ XYplorer 24.40.0200 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240600.jpgsave_picture_240600.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ magnet:?xt=urn:btih:161F9EA88AF9FCBB0A506D8EFE4A54E96D9174C3
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240601.jpgsave_picture_240601.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Impiety - Versus all gods (2020) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240602.jpgsave_picture_240602.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ magnet:?xt=urn:btih:9A4B0343621795CDC35BD7C556C5FE812CEABD41
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240603.jpgsave_picture_240603.jpg" />
 </div>
 
 

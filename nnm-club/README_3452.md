@@ -6,7 +6,7 @@ VA - Monday Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110113.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110113.jpgsave_picture_110113.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Marvel83' - 5th Element (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Retrowave,
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110114.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110114.jpgsave_picture_110114.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Paul Jabara - The Third Album (1979) LP [MP3|320 Kbps] <Disco, Funk Soul>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110115.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110115.jpgsave_picture_110115.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ The Head Hunters Blues Band - Back from the Delta (2024) [FLAC|Lossless|WEB-DL|t
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110116.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110116.jpgsave_picture_110116.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Spacebirds - Singles Team (Singles Collection 2008-2023) (2024) [FLAC|Lossless|W
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110117.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110117.jpgsave_picture_110117.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ VA - Futurenow (2020) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave, Chill
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110118.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110118.jpgsave_picture_110118.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Dug Masters - Digital Variety (2022) [FLAC|Lossless|WEB-DL|tracks] <Spacewave, S
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110119.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110119.jpgsave_picture_110119.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Judith Hill - Letters from a Black Widow (2024) [FLAC|Lossless|WEB-DL|tracks] <B
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110120.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110120.jpgsave_picture_110120.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ Warhorse - The Recordings: 1970-1972 (2024) [FLAC|Lossless|WEB-DL|tracks] <Progr
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110121.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110121.jpgsave_picture_110121.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ VA - Eighties Extreme 3 (The Best Disco Pop Mixes) (2022) [FLAC|Lossless|WEB-DL|
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110122.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110122.jpgsave_picture_110122.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ magnet:?xt=urn:btih:6CD57A3FB90BDDE563E2DA9206CE800D22BC51D5
 >>Старые Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110123.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110123.jpgsave_picture_110123.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ magnet:?xt=urn:btih:8254BB56001584E77B144FE220ABFA8EC3A8666D
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110124.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110124.jpgsave_picture_110124.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ magnet:?xt=urn:btih:C6CB8EF83C758A9265E116D882850BDE42B520CD
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110125.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110125.jpgsave_picture_110125.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ magnet:?xt=urn:btih:C6CB8EF83C758A9265E116D882850BDE42B520CD
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110126.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110126.jpgsave_picture_110126.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Kono Healer, Mendokusai | Don't Hurt Me, My Healer! | Этот хилер мен
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110127.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110127.jpgsave_picture_110127.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ magnet:?xt=urn:btih:26679E4E0159A2B019E040B2A5FC15E46BC38BDC
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110128.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110128.jpgsave_picture_110128.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ Rotting Christ - Pro Xristou (2024) Limited Edition [MP3|320 Kbps] <Melodic Blac
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110129.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110129.jpgsave_picture_110129.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ RegCool 2.005 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110130.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110130.jpgsave_picture_110130.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ magnet:?xt=urn:btih:0C4C5239E9BDDDECE375C2113B441BB862E2A718
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110131.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110131.jpgsave_picture_110131.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ magnet:?xt=urn:btih:3D417E87B29B8A2DFB3A0F8EFF8CAE47AB97FD37
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110132.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110132.jpgsave_picture_110132.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Noumin Kanren no Skill Bakka Agetetara Naze ka Tsuyoku Natta. | Каким-то 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110133.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110133.jpgsave_picture_110133.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Deep Six Blues - The Devil's Hand (2024) [MP3|320 Kbps] <Delta Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110134.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110134.jpgsave_picture_110134.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Zoner Photo Studio X 19.2403.2.539 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110135.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110135.jpgsave_picture_110135.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ magnet:?xt=urn:btih:6D55102ED0B32803770C2D45CBC071A5E1043312
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110136.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110136.jpgsave_picture_110136.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Submariner - Resurgence (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110137.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110137.jpgsave_picture_110137.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Lares - Et in Arcadia Ego (2024) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Blac
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110138.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110138.jpgsave_picture_110138.jpg" />
 </div>
 
 

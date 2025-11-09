@@ -6,7 +6,7 @@ Stratovarius - Visions Of Europe (1998) 2 CD [OGG Vorbis|480 Kbps] <Rock, Heavy 
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190043.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190043.jpgsave_picture_190043.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Akraia - Mistress (2022) EP [MP3|320 Kbps] <Sludge Doom, Occult>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190044.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190044.jpgsave_picture_190044.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ AntiPlagiarism.NET 4.128.0.0 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190045.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190045.jpgsave_picture_190045.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Scott Hamilton - Live At Brecon Jazz Festival (1995) Concord Jazz [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190046.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190046.jpgsave_picture_190046.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ magnet:?xt=urn:btih:5FF0DADCC207EE9C62992C53D439F895C24BDD11
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190047.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190047.jpgsave_picture_190047.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ Sweet Home 3D 7.1.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190048.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190048.jpgsave_picture_190048.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ Melody Gardot - This is Melody Gardot (2023) [MP3|320 Kbps] <Jazz, Chillout, Fem
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190049.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190049.jpgsave_picture_190049.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ magnet:?xt=urn:btih:D62EA0AAE9EAC54AF7DAD5266A1B65B81FF2CDCE
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190050.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190050.jpgsave_picture_190050.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ AirReceiver AirPlay Cast DLNA v5.0.3 Mod by Alex.Strannik [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190051.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190051.jpgsave_picture_190051.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ FxFactory Pro 8.0.10 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190052.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190052.jpgsave_picture_190052.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ EssentialPIM Pro 11.7.0 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190053.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190053.jpgsave_picture_190053.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ Stratovarius - Under Flaming Winter Skies (2012) 2 CD [OGG Vorbis|480 Kbps] <Roc
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190054.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190054.jpgsave_picture_190054.jpg" />
 </div>
 
 
@@ -315,7 +315,7 @@ magnet:?xt=urn:btih:BF051FA4B53DCC794D15BE64B3D7710BA292F5BE
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190055.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190055.jpgsave_picture_190055.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ Stratovarius - The Chosen Ones (1999) [OGG Vorbis|480 Kbps] <Rock, Heavy Metal, 
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190056.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190056.jpgsave_picture_190056.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ magnet:?xt=urn:btih:FA6B0FE60AA820E74E24E4E208CB95EEE768BB37
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190057.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190057.jpgsave_picture_190057.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ magnet:?xt=urn:btih:2E986FB30C78F162BB6D76F7D330C6BDCA8D25FB
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190058.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190058.jpgsave_picture_190058.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ magnet:?xt=urn:btih:956BFE7161DD12B4ADAF4A1412C219D422B98406
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190059.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190059.jpgsave_picture_190059.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ magnet:?xt=urn:btih:55F1C1A06E82A998F5F3E7A30BDD02B596920551
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190060.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190060.jpgsave_picture_190060.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ magnet:?xt=urn:btih:700C74D93645B4438CC4C8BEFAF0DE146B547210
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190061.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190061.jpgsave_picture_190061.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Saint Seiya | Рыцари Зодиака [1986, TV, 114 эп.] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190062.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190062.jpgsave_picture_190062.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ Kotipelto - Reasons (2004) Single [OGG Vorbis|480 Kbps] <Rock, Heavy Metal, Powe
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190063.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190063.jpgsave_picture_190063.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ magnet:?xt=urn:btih:5BFAD7D7BA6E210B7E824DE89808BC4BE81E134B
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190064.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190064.jpgsave_picture_190064.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ magnet:?xt=urn:btih:66AA4A57E7E373BC0B4271548091B991A7C1D240
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190065.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190065.jpgsave_picture_190065.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ magnet:?xt=urn:btih:13E7956210D5B35DA6295987BEB4F6298EB4EC9A
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190066.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190066.jpgsave_picture_190066.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ magnet:?xt=urn:btih:6B9E81FAAB0209092DA48913F202BB4555C5E2FF
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190067.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190067.jpgsave_picture_190067.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ HiBit Uninstaller 3.1.60 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190068.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190068.jpgsave_picture_190068.jpg" />
 </div>
 
 

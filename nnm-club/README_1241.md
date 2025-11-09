@@ -6,7 +6,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32621.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32621.jpgsave_picture_32621.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:9A2165685218BA8F7E2B938C55CEB7AC1A2164C4
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32622.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32622.jpgsave_picture_32622.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:6D0BA907DD6BD76914E257D98AC8E4DB0ADED07D
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32623.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32623.jpgsave_picture_32623.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ WinContig 5.0.3.0 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32624.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32624.jpgsave_picture_32624.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ MKVToolNix 89.0 Stable + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32625.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32625.jpgsave_picture_32625.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:82F415A51976F150D757DCC793FB16669881AB59
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32626.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32626.jpgsave_picture_32626.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:7E30DEB8E5F2A3415472566EA6ACAB96D2479DE1
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32627.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32627.jpgsave_picture_32627.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:3769FBCF454998987BF2DCB5C4147209C58D9FB9
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32628.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32628.jpgsave_picture_32628.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:23B6393ECA83D0A52566101B26D5C35483C5A1F3
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32629.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32629.jpgsave_picture_32629.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ magnet:?xt=urn:btih:FDD99CFC794CAE22009B06C3D4B969FACE678A99
 >>Автомобильная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32630.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32630.jpgsave_picture_32630.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:F7DFC3F4FD75CD97DAA0E7F13C67202FFFA25F6F
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32631.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32631.jpgsave_picture_32631.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Jusant (2023) [Ru/Multi] (1.07.1498596) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32632.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32632.jpgsave_picture_32632.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Fire: Ungh’s Quest (2015) (1.1.8329S) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32633.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32633.jpgsave_picture_32633.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ AIMP 5.40 Build 2653 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32634.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32634.jpgsave_picture_32634.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ magnet:?xt=urn:btih:80DD4323C74E057E72725E0F9E461324D13FE42F
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32635.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32635.jpgsave_picture_32635.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ Doll Impostor (2024) [Ru/Multi] (Update 10 HotFix 3) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32636.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32636.jpgsave_picture_32636.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ Dungeon Defenders (2011) [Multi] (10.0.0/dlc) Scene TinyIso
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32637.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32637.jpgsave_picture_32637.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ magnet:?xt=urn:btih:ACA50E3247A48603A462C530D719EF2330D87BA0
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32638.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32638.jpgsave_picture_32638.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ VA - Новогодний Шансон (2024) [MP3|320 Kbps] <Chanson, Pop>
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32639.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32639.jpgsave_picture_32639.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ magnet:?xt=urn:btih:DC67DF90F2D72A95E9C47B8C0AC2D894EB0187F2
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32640.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32640.jpgsave_picture_32640.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ magnet:?xt=urn:btih:368CCBB87D416B4CDEFA4A0D918F558601ADCCC9
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32641.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32641.jpgsave_picture_32641.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:C1FF5754F6AAB245E55ED939BCA2B21A17118893
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32642.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32642.jpgsave_picture_32642.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ magnet:?xt=urn:btih:FFE7D671848680FC52DBD6B54292EE710C3E39AA
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32643.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32643.jpgsave_picture_32643.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Open Wheel Manager 2 (2023) [Ru/Multi] (1.0) Repack FitGirl
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32644.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32644.jpgsave_picture_32644.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ chemelova.design, Кристина Чемелова | Курс по стройк
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32645.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32645.jpgsave_picture_32645.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ Blue Lock vs. U-20 Japan | Синяя тюрьма: Блю Лок [ТВ-2] [2024
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32646.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32646.jpgsave_picture_32646.jpg" />
 </div>
 
 

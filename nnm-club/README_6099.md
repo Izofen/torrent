@@ -6,7 +6,7 @@ Breeze - A Dream Within A Dream (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressiv
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191934.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191934.jpgsave_picture_191934.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:450CB3868D7DC6FA84A0A6C59741BB00DDA322A8
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191935.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191935.jpgsave_picture_191935.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:2386C5F2BD679FF08123EAFB74097A7799B81A37
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191936.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191936.jpgsave_picture_191936.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Tears to Embers - Masquerade (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative M
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191938.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191938.jpgsave_picture_191938.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Wytches Moon - 3 Releases (2023) [FLAC|Lossless|WEB-DL|tracks] <Occult Rock, Psy
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191939.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191939.jpgsave_picture_191939.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ magnet:?xt=urn:btih:32A4E1BA1E94ABF426C0EC5445C8D58F7E50A5FC
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191940.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191940.jpgsave_picture_191940.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:90F220395FFEC7BC078A31AA52927C824A19EF42
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191941.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191941.jpgsave_picture_191941.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:22FA8325627FD27D2C715C1B0E78F37B550E6451
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191942.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191942.jpgsave_picture_191942.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ Hunter - Rebel Angels Rise (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191943.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191943.jpgsave_picture_191943.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ magnet:?xt=urn:btih:13AD929354D4087866B0846C337A99079C19C657
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_191944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191944.jpgsave_picture_191944.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ Wondershare PDFelement 9.1.5.1975 RePack by elchupacabra + OCR Plugin [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191945.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191945.jpgsave_picture_191945.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ Johnny Griffin - The Little Giant (1959) 1995, Original Jazz Classics [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191946.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191946.jpgsave_picture_191946.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ Heartbound - Pace (2023) EP [FLAC|Lossless|WEB-DL|tracks] <Progressive Metalcore
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191947.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191947.jpgsave_picture_191947.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ Aiseesoft PDF Converter Ultimate 3.3.52 RePack (& Portable) by elchupacabra [Mul
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191948.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191948.jpgsave_picture_191948.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ magnet:?xt=urn:btih:B9D18D1714767D0F32AB698616F87861436FE786
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191949.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191949.jpgsave_picture_191949.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ Little Falls Trophy - Dutch Motel (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternat
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191950.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191950.jpgsave_picture_191950.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ Airstrike - Red Born Reborn (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Hea
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191951.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191951.jpgsave_picture_191951.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Course of Fate - Somnium (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191952.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191952.jpgsave_picture_191952.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Bottomless - The Banishing (2023) [FLAC|Lossless|WEB-DL|tracks] <Doom, Stoner Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191953.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191953.jpgsave_picture_191953.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ magnet:?xt=urn:btih:D4C89170ED774D6DCBA565640F3D4686A3D1C26C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191954.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191954.jpgsave_picture_191954.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ VA - 100 Greatest Guitar Solos (2004) (Первая раздача Клуба)
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191955.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191955.jpgsave_picture_191955.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ magnet:?xt=urn:btih:7AA13448771B235441F13E6DB4E667F0B9079556
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191956.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191956.jpgsave_picture_191956.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Suzi Quatro - 33 albums, 2 Box-set, 66 CD (1973-2023) [FLAC|Lossless|image + .cu
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191957.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191957.jpgsave_picture_191957.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ VueScan Pro 9.7.95 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191958.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191958.jpgsave_picture_191958.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ Windows 10 Pro 22H2 Build 19045.3324 x64 ReviOS (23.08.2023) [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191959.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191959.jpgsave_picture_191959.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ magnet:?xt=urn:btih:9FD3016313559F370ECD5C3B807B876D055EB986
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191960.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191960.jpgsave_picture_191960.jpg" />
 </div>
 
 

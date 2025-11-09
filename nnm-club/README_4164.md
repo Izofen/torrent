@@ -6,7 +6,7 @@ Lil'Magic Sam - Tired Out (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128861.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128861.jpgsave_picture_128861.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Kristina Train - County Line (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues, Rock, 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128862.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128862.jpgsave_picture_128862.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:C04A036DE49CE6338F1F6BB38BA9E96D05FC0C14
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128863.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128863.jpgsave_picture_128863.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ magnet:?xt=urn:btih:300D74845987C5EDCE283B57A5DABF53EFF6222C
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128864.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128864.jpgsave_picture_128864.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ magnet:?xt=urn:btih:44211F133A0A5BB2E94D2B5C9AFC0B11CCFB3D7D
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128865.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128865.jpgsave_picture_128865.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ Linux Mint Debian Edition 7 Gigi (LMDE 7) [64-bit] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128866.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128866.jpgsave_picture_128866.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ magnet:?xt=urn:btih:864ACB15B81C720A3ABAA93224E21534A524A4DF
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128867.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128867.jpgsave_picture_128867.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ magnet:?xt=urn:btih:A209DA1B33F1FC2E3A5DD361F770B23F566744B1
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128868.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128868.jpgsave_picture_128868.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ magnet:?xt=urn:btih:30E873AC545092D4F58992E2DDACED3D19E81B6F
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128869.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128869.jpgsave_picture_128869.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ Bloodywood - Studio Albums (2 releases) (2022-2025) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128870.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128870.jpgsave_picture_128870.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ Ihsahn - Studio Albums (11 releases) (2006-2024) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128871.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128871.jpgsave_picture_128871.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ VA - Балкантон – Танцова Музика (1965) [FLAC|Lossless|im
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128872.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128872.jpgsave_picture_128872.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ Bakemono no Ko | The Boy and the Beast | Ученик Чудовища [2015, Mo
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128873.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128873.jpgsave_picture_128873.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ magnet:?xt=urn:btih:F72580CFDC842AF6E3C086A01E6890600ADD2534
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128874.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128874.jpgsave_picture_128874.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ magnet:?xt=urn:btih:4A6153FABE4A1DA887CECA05E3050E2B0364F0E7
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128875.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128875.jpgsave_picture_128875.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ Baldur's Gate: BiG World Project (2017) [Ru] (X1) Repack/Mod SubZero400
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128876.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128876.jpgsave_picture_128876.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ magnet:?xt=urn:btih:F46E08A14B16617C2BD7C97BEC56C99FCC17246B
 >>Отечественные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128877.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128877.jpgsave_picture_128877.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Kuptsov GameDev Academy, Данил Купцов | Industry Entry for 3D Artist 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128878.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128878.jpgsave_picture_128878.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ magnet:?xt=urn:btih:0524233D86D5C90AFA7660ADA654EAE3723E020B
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128879.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128879.jpgsave_picture_128879.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ magnet:?xt=urn:btih:36D6BFA58C2C3AC16395BA65CFA021CB35289C28
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128880.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128880.jpgsave_picture_128880.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ magnet:?xt=urn:btih:0E46A2023F9E9BEB9A934A79E22AA21CED92AC61
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128881.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128881.jpgsave_picture_128881.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Isekai Quartet 3 | Четвёрка попаданцев [ТВ-3] [2025, TV, 1 �
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128882.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128882.jpgsave_picture_128882.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ magnet:?xt=urn:btih:604B6892FA574E4C02077794618AAFEF7DA3DBD9
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128883.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128883.jpgsave_picture_128883.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Purvpn 10.0 [En/Farsi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128884.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128884.jpgsave_picture_128884.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ magnet:?xt=urn:btih:966DA72173AAFB22386EB4B327A4311E8DCC026C
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128885.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128885.jpgsave_picture_128885.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ magnet:?xt=urn:btih:AA1ACC566F07B2A0FD3527EB44D21D805DDCBDB4
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128886.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128886.jpgsave_picture_128886.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131201.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131201.jpgsave_picture_131201.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:B3D9D7278E1FCA296DB4DFB98B63CA6F51A897A5
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131202.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131202.jpgsave_picture_131202.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Lunatii - Deprosorryum (2018) [FLAC|Lossless|image + .cue] <Depressive Black Met
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131203.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131203.jpgsave_picture_131203.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Suol - Suol (2023) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131205.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131205.jpgsave_picture_131205.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Lunatii - Diskonformism: Anhedonia in Utopia (2020) [FLAC|Lossless|image + .cue]
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131207.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131207.jpgsave_picture_131207.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Cirith Ungol - Dark Parade (2023) [FLAC|Lossless|image + .cue] <Heavy, Doom Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131209.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131209.jpgsave_picture_131209.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Elfen Lied / Эльфийская песнь [2004, 13 +1 эп.] BDRip Hi10p 108
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131210.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131210.jpgsave_picture_131210.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Strike Master - Up for the Massacre (2006) [FLAC|Lossless|image + .cue] <Thrash 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131211.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131211.jpgsave_picture_131211.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ magnet:?xt=urn:btih:C0E1A6F0CC6CA72B65C6C5BD2DE472BD2C04EEB4
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131212.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131212.jpgsave_picture_131212.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Recovery Partition for Samsung NP-N102 S / Windows 7 Home Basic (х86) SP1
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131213.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131213.jpgsave_picture_131213.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Recovery Partition for Samsung NP-N102 S / Windows 7 Home Basic (х86) SP1
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131216.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131216.jpgsave_picture_131216.jpg" />
 </div>
 
 
@@ -291,7 +291,7 @@ TeraCopy Pro 2.3 beta 2 [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131217.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131217.jpgsave_picture_131217.jpg" />
 </div>
 
 
@@ -317,7 +317,7 @@ TeraCopy Pro – утилита улучшает процесс копирова
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131218.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131218.jpgsave_picture_131218.jpg" />
 </div>
 
 
@@ -341,7 +341,7 @@ magnet:?xt=urn:btih:BB8C6AC2374C2A9DE99FCB74E866C1668729C77D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131219.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131219.jpgsave_picture_131219.jpg" />
 </div>
 
 
@@ -365,7 +365,7 @@ Elisabeth Schwarzkopf - Opera Arias (1990) [FLAC|Lossless]<Classical, Opera>
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131220.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131220.jpgsave_picture_131220.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Armed Forces: Corp / Наемники: Бизнес под прицелом [Ru]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131221.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131221.jpgsave_picture_131221.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ magnet:?xt=urn:btih:66A31F38E8F5216FC55CD34CC96FDD389632D4D4
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131222.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131222.jpgsave_picture_131222.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ onOne Perfect Portrait 2.0 Premium Edition [Английский]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131223.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131223.jpgsave_picture_131223.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ OnOne Perfect Portrait 2 программа и плагин к Adobe Photoshop �
 >>Единоборства, Бои без правил
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131224.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131224.jpgsave_picture_131224.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ magnet:?xt=urn:btih:C793457F0A346DB0910D49403D2D42035C8C63D0
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131225.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131225.jpgsave_picture_131225.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ magnet:?xt=urn:btih:370A5B7DE756C1C639BC46309FE89E18EA1A4A4C
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131226.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131226.jpgsave_picture_131226.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ magnet:?xt=urn:btih:50D01ACBAC0C824E1B853E1019BE23768DA1EB83
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131227.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131227.jpgsave_picture_131227.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ magnet:?xt=urn:btih:35139229EC18B239694BF38AEA7C3BB23E9A6800
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131228.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131228.jpgsave_picture_131228.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ magnet:?xt=urn:btih:D4F6CD4A037DED84695922FBC03CBFC876D2A10D
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131229.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131229.jpgsave_picture_131229.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Cinderella (Tom Keifer) - 14 Albums, 1 Box Set  (1986 - 2019) 25 CD [FLAC|Lossle
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131230.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131230.jpgsave_picture_131230.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ CG Boost, Martin Klekner |  Substance Painter Launch Pad (2020) PCRec [EN, RU / 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131231.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131231.jpgsave_picture_131231.jpg" />
 </div>
 
 

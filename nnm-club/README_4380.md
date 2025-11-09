@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136922.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136922.jpgsave_picture_136922.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:B2EEDAB7DD3973C4B0A57711484FDD059F0E8B76
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136923.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136923.jpgsave_picture_136923.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:553029CFB76F11CFCF6AA80942805098963D8DC5
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136924.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136924.jpgsave_picture_136924.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Baby Steps (2025) [Ru/Multi] (HotFix 2) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136925.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136925.jpgsave_picture_136925.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:714DCE0C1839B44A0276F2F5670B5317F44DE3D3
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136926.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136926.jpgsave_picture_136926.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:F3CDFC8A97DC2D7FA2D12079D05E4234C821F322
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136927.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136927.jpgsave_picture_136927.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Resident Evil 3 (2020) [Ru/Multi] (11960962/dlc) Repack Wanterlude
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136928.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136928.jpgsave_picture_136928.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:945781889B5FBA859D6D57765E1A1E04C29DFA9A
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136929.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136929.jpgsave_picture_136929.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:ED46E5181AF12B6E73BF63F62894A9AE63ED5379
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136930.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136930.jpgsave_picture_136930.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:B1DD9EB4B6E2A31078C080A7B0940E9EB9A0420A
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136931.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136931.jpgsave_picture_136931.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ magnet:?xt=urn:btih:5DAC58FD093B6A57D9B8210D5028796BEC68015F
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136932.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136932.jpgsave_picture_136932.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Kdenlive 25.08.2 [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136933.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136933.jpgsave_picture_136933.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ magnet:?xt=urn:btih:76AED72370BC82C817FC8CD5582D4F660F287111
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136934.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136934.jpgsave_picture_136934.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ magnet:?xt=urn:btih:47076E779936DCAFC667F49B5346EC2C015B2F32
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136935.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136935.jpgsave_picture_136935.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ magnet:?xt=urn:btih:1CED866A22C3DA95C07F8D86CBE8ED7A81B2432E
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136936.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136936.jpgsave_picture_136936.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ magnet:?xt=urn:btih:76D0B70028B7795017D5C3B1326216707825210A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136937.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136937.jpgsave_picture_136937.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ Corel Painter X3 13.0.1.920 [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136938.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136938.jpgsave_picture_136938.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ Corel Painter 12 12.2.1.1212 [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136939.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136939.jpgsave_picture_136939.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Corel Painter 11 11.0.1.42 [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136940.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136940.jpgsave_picture_136940.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ magnet:?xt=urn:btih:663F78430B30A668AA585B5C046CBA2C1DF3A3A5
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136941.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136941.jpgsave_picture_136941.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Corel Painter X 10.1.0.53 [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136942.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136942.jpgsave_picture_136942.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ magnet:?xt=urn:btih:1DED848A5CF7A40C2959E8E7EBCBF8E325AE265D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136943.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136943.jpgsave_picture_136943.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Corel Painter IX.5 9.5 [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136944.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136944.jpgsave_picture_136944.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Tim Peters | Practical Python Backend Programming [Build Flask and FastAPI appli
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136945.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136945.jpgsave_picture_136945.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Corel Painter 8 8.1 [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136946.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136946.jpgsave_picture_136946.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Windows 7 SP1 7601.27974 x64 3in1 by OneSmiLe [15.10.2025] [Ru]
 >>Сборки Windows 7
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136947.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136947.jpgsave_picture_136947.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Shadow of the Tomb Raider (2018) [Ru/Multi] (1.0.1.0/dlc) License GOG [Definitiv
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_658.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_658.jpgsave_picture_658.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:D1E6EACFE5FA829E2D5906BD1C7D856F1AAE4B21
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_659.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_659.jpgsave_picture_659.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:DCCE98B4EE88C6667EAD6AA2693D0DDF3A479B41
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_660.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_660.jpgsave_picture_660.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:15E3FF896EE154E8B65B7BC45F72E4189C79CDB1
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_661.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_661.jpgsave_picture_661.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:4E58741E94EB11DF5EE889A612BEF489C4E21753
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_662.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_662.jpgsave_picture_662.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:23F0971D69693B006396840823EA65A202696619
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_663.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_663.jpgsave_picture_663.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Watari-kun no xx ga Houkaisunzen / Watari-kun's ***** is About to Collapse / XX 
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_664.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_664.jpgsave_picture_664.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:536190050D94D0F15DE02215F5697349CFF83BE5
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_665.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_665.jpgsave_picture_665.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:012228F3B4B13A1BCFFA6CEC3359F38A35835FA9
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_666.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_666.jpgsave_picture_666.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:AB9F99483DE5B8C2E864F1A75ED5364935E9BE9A
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_667.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_667.jpgsave_picture_667.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Knock on the Coffin Lid (2020) [Ru/Multi] (1.3.5.3/dlc) License GOG [Complete Ed
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_668.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_668.jpgsave_picture_668.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Yofukashi no Uta Season 2 | Песнь ночных сов [ТВ-2] [2025, TV, 1
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_669.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_669.jpgsave_picture_669.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ magnet:?xt=urn:btih:C17F4597F756B3FB0347EC21B35592FCFF2D2F9B
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_670.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_670.jpgsave_picture_670.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ magnet:?xt=urn:btih:B649FE97A79CD87C604E6CEFD90EF7705E29E909
 >>Сериалы DC Comics
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_671.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_671.jpgsave_picture_671.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Achilles: Legends Untold (2023) [Ru/Multi] (1.8.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_672.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_672.jpgsave_picture_672.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Police Simulator: Patrol Officers (2022) [Ru/Multi] (19.1.1/dlc) Repack Pioneer
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_673.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_673.jpgsave_picture_673.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ magnet:?xt=urn:btih:616549AFDEC7D66D6E8AD99A6721873441B990F5
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_674.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_674.jpgsave_picture_674.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ NoBorderVPN — анонимный и стабильный VPN. 3 дня бес�
 >>Платные VPN сервисы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_675.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_675.jpgsave_picture_675.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Car Dealer Simulator (2025) [Ru/Multi] (Hotfix #80) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_676.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_676.jpgsave_picture_676.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ magnet:?xt=urn:btih:A97A204B3A6E4BA0A0DD5CBFB392340580A079F3
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_677.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_677.jpgsave_picture_677.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ magnet:?xt=urn:btih:E1F591156300E03FC1B4681C3CDC09289B95D869
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_678.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_678.jpgsave_picture_678.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ magnet:?xt=urn:btih:E1F591156300E03FC1B4681C3CDC09289B95D869
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_679.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_679.jpgsave_picture_679.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Hellcard (2024) [Ru/Multi] (1.1.250807/dlc) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_680.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_680.jpgsave_picture_680.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ magnet:?xt=urn:btih:B67CAAF7EBA082845F99B91DCB0E94015154C7C8
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_681.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_681.jpgsave_picture_681.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Ranch Simulator - Build, Farm, Hunt (2023) [Ru/Multi] (1.173s) Repack Pioneer
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_682.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_682.jpgsave_picture_682.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Reus 2 (2024) [Ru/Multi] (1.9.0/dlc) License GOG [Complete Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_683.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_683.jpgsave_picture_683.jpg" />
 </div>
 
 

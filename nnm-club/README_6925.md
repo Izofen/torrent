@@ -6,7 +6,7 @@ VA - Beatport Electro House: Sound Pack #238 (2021) [MP3|320 Kbps] <House, Deep 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237848.jpgsave_picture_237848.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ SiteSucker 5.1.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237849.jpgsave_picture_237849.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ magnet:?xt=urn:btih:55E0EC7703E0AED0DBA4A5FFC474D05DF313748F
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237850.jpgsave_picture_237850.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:090E1A909FC72BB0C4DC870CACB6D0C687371A51
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237851.jpgsave_picture_237851.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:C65EE5748643D0ED9F1D8F4863ED78AF75453628
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237852.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237852.jpgsave_picture_237852.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ WiFi Explorer 3.4.3 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237853.jpgsave_picture_237853.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ WinMerge 2.16.30 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237854.jpgsave_picture_237854.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Line 6 - The Metallurgy Collection 1.0.2 Standalone, VST 3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237855.jpgsave_picture_237855.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Athentech Perfectly Clear WorkBench for Mac 4 v.4.2.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237856.jpgsave_picture_237856.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ magnet:?xt=urn:btih:7CF90050257003CD286052C526BF75FBBFC7FCC0
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237857.jpgsave_picture_237857.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ Blast Brigade vs. The Evil Legion of Dr. Cread (2022) [Ru/Multi] (1.0.23) Licens
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237858.jpgsave_picture_237858.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ magnet:?xt=urn:btih:85A23ABE3E77C1195388788A2D0CF2CB82641F2C
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237859.jpgsave_picture_237859.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:55A0BD24D89F5F7C9DA8302B2ED68511D467F3CF
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237860.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237860.jpgsave_picture_237860.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ PotPlayer 220901 (1.7.21795) (x64) Stable RePack (& portable) by 7sh3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237861.jpgsave_picture_237861.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ magnet:?xt=urn:btih:AFD617547F9D85D1E3D371F4E8B7425F5ED0C0B8
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237862.jpgsave_picture_237862.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ magnet:?xt=urn:btih:32851BB87993E7B24B29CA9E336C57A5205DC84D
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237863.jpgsave_picture_237863.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ magnet:?xt=urn:btih:27C05BD5C401995A898FF3F8D8F4B8E0B1B17FDD
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237864.jpgsave_picture_237864.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Ben Harper - Wide Open Light (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alter
 >>Alternative, Punk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237865.jpgsave_picture_237865.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ magnet:?xt=urn:btih:AE32585072DF5A8CC3FA33514FF10F35434B5159
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237866.jpgsave_picture_237866.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ magnet:?xt=urn:btih:575C905D822402049616E31B731C293EA68F48ED
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237867.jpgsave_picture_237867.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Karin Krog & Bengt Hallberg - Two Of A Kind (1982) 1987, Meantime Records [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237868.jpgsave_picture_237868.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ magnet:?xt=urn:btih:561489DBA1341C6C5C72E15699BD65636B42C3D3
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237869.jpgsave_picture_237869.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ PDF Shaper Professional 13.2 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237870.jpgsave_picture_237870.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ magnet:?xt=urn:btih:2B5AC3EFED8DD2FC9FDE82EFB0F09CB45FCAC5A3
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237871.jpgsave_picture_237871.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Text Edit Plus 12.7 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237872.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237872.jpgsave_picture_237872.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ magnet:?xt=urn:btih:2C4B96A3992D26CC8BE904768A10F420F4ECC25B
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237873.jpgsave_picture_237873.jpg" />
 </div>
 
 

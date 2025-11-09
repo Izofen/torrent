@@ -6,7 +6,7 @@ K-Lite Codec Pack Update 17.6.8 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233654.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233654.jpgsave_picture_233654.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:D025128D923EDC69752EF1B27649867B30C09024
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233656.jpgsave_picture_233656.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ Text Editor Pro 27.3.0 + Portable + Bonus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233657.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233657.jpgsave_picture_233657.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ Kesha (Ke$ha) - Gag Order (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233658.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233658.jpgsave_picture_233658.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ Gekijouban Jujutsu Kaisen 0 | Магическая битва (фильм) [2021
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233659.jpgsave_picture_233659.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ RightFont 8.0.2 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233660.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233660.jpgsave_picture_233660.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ ToothFairy 2.7.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233661.jpgsave_picture_233661.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ Brian Culbertson - Brian Culbertson Presents: Sleep (2023) [FLAC|Lossless|WEB-DL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233662.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233662.jpgsave_picture_233662.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ magnet:?xt=urn:btih:A0ACDF165A36CDD989A5EB5F394874AA43801F82
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233664.jpgsave_picture_233664.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ magnet:?xt=urn:btih:B0EC544CAF6CD13C939A7F3043A3673653352490
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233665.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233665.jpgsave_picture_233665.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ Opera GX 98.0.4759.74 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233666.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233666.jpgsave_picture_233666.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ Slidepad 1.4.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233667.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233667.jpgsave_picture_233667.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ magnet:?xt=urn:btih:E93DCFCD57ADC2E9288F8E56C15C6DDF1985E7E3
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233668.jpgsave_picture_233668.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ magnet:?xt=urn:btih:8027102C3E84807DA31B52BE77C71CC79937AA60
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233669.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233669.jpgsave_picture_233669.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ ProFind 1.9.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233670.jpgsave_picture_233670.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ magnet:?xt=urn:btih:BB8E12AB1B13BC13945329769D74B7D9A573C08E
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233672.jpgsave_picture_233672.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ magnet:?xt=urn:btih:028AFF9A0768512EA946048646994BD1EAD891B0
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233673.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233673.jpgsave_picture_233673.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Opera 99.0.4788.13 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233674.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233674.jpgsave_picture_233674.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Invisor - Media File Inspector 3.22 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233675.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233675.jpgsave_picture_233675.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Kumichou Musume to Sewagakari | The Yakuza's Guide to Babysitting | Дочка �
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233676.jpgsave_picture_233676.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ magnet:?xt=urn:btih:3A5859A9C6EDF46FFE0AEE08C72B659E819F39B1
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233677.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233677.jpgsave_picture_233677.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ magnet:?xt=urn:btih:67E8070DFC6F0CF7106B84681425B488283F2ED8
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233679.jpgsave_picture_233679.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ Mirillis Action! 4.34.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233680.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233680.jpgsave_picture_233680.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ Opera GX 100.0.4815.44 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233681.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233681.jpgsave_picture_233681.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ File List Export 2.6.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233682.jpgsave_picture_233682.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ magnet:?xt=urn:btih:7F9A7F6F67D0695AB2DE43BBA72E135308B68622
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233683.jpgsave_picture_233683.jpg" />
 </div>
 
 

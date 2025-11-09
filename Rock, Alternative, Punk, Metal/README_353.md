@@ -6,7 +6,7 @@ Silent Skies - Dormant (2023) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202747.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202747.jpgsave_picture_202747.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ September Mourning - Volume IV (2023) [FLAC|Lossless|WEB-DL|tracks] <Alt.Metal, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202750.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202750.jpgsave_picture_202750.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Unearth - Concentrated Misery (2023) Compilation, Doomed to Obscurity Records [F
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202754.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202754.jpgsave_picture_202754.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ The Last Oblation - AESIR (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Melodi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202757.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202757.jpgsave_picture_202757.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Karmamoi - Strings from the Edge of Sound (2023) [FLAC|Lossless|WEB-DL|tracks] <
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202767.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202767.jpgsave_picture_202767.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Primal Fear - Code Red (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Speed,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202769.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202769.jpgsave_picture_202769.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Royal Blood - Back To The Water Below (2023) [FLAC|Lossless|WEB-DL|tracks] <Indi
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202782.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202782.jpgsave_picture_202782.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Stitched Up Heart - To The Wolves (2023) [FLAC|Lossless|WEB-DL|tracks] <Alt.Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202789.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202789.jpgsave_picture_202789.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ BreakPoint - Dreambreaker (2023) [FLAC 24/44.1|WEB-DL|tracks] <Modern Metal, Met
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202790.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202790.jpgsave_picture_202790.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Soen - Memorial (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal, Hard Ro
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202792.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202792.jpgsave_picture_202792.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Aviations - Luminari (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202794.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202794.jpgsave_picture_202794.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:51DDC7D0076CB76B8BD45AA7F633DF9C393E61D9
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202876.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202876.jpgsave_picture_202876.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ V.A. - Meddle Reimagined - A Tribute To Pink Floyd (2023) [FLAC|Lossless|WEB-DL|
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202912.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202912.jpgsave_picture_202912.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ magnet:?xt=urn:btih:4B16DD5C18A656EB04C3B40C11CF2CF289B975B3
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202932.jpgsave_picture_202932.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Jethro Tull - The Broadsword And The Beast (Monster Edition) (2023) Box Set, 5xC
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202948.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202948.jpgsave_picture_202948.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ In Flames - Foregone (2023) Limited Edition [MP3|320 Kbps] <Modern Metal, Altern
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202963.jpgsave_picture_202963.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Lord of Shadows - Echoes of Yore (2023) [FLAC|Lossless|WEB-DL|tracks] <Gothic Do
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202980.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202980.jpgsave_picture_202980.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Empire State Bastard - Rivers Of Heresy (2023) [FLAC|Lossless|WEB-DL|tracks] <Ch
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202984.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202984.jpgsave_picture_202984.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Trancemission - Back in Trance (1989) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202986.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202986.jpgsave_picture_202986.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ magnet:?xt=urn:btih:1EBDDB077FF51EC9E19CF7661FD14DF9A32FB4C9
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202989.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202989.jpgsave_picture_202989.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Threnody - As the Heavens Fall (1993) [FLAC|Lossless|image + .cue] <Progressive,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202993.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202993.jpgsave_picture_202993.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Jag Panzer - The Age of Mastery (1998) [FLAC|Lossless|image + .cue] <Heavy, Powe
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202998.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202998.jpgsave_picture_202998.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Threnody - Threnody (1997) [WavPack|Lossless|image + .cue] <Progressive, Melodic
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203000.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203000.jpgsave_picture_203000.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ The Spirit - Sounds from the Vortex (2017) [FLAC|Lossless|image + .cue] <Black, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203001.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203001.jpgsave_picture_203001.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ Sarazen - Alchemy (2023) [MP3|320 Kbps] <Alt.Rock, Female Vocals>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203003.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203003.jpgsave_picture_203003.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ Stackridge - 3 Albums (1972-1974) Remastered, Expanded Edition, 2023, Esoteric [
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203013.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203013.jpgsave_picture_203013.jpg" />
 </div>
 
 

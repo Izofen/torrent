@@ -6,7 +6,7 @@
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29267.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29267.jpgsave_picture_29267.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:CA6A64A3729D12B5B97FD1B56B0806693EB507BF
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29268.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29268.jpgsave_picture_29268.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:1306846B186D9F81ED6E5A102211EAE8624F9334
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29269.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29269.jpgsave_picture_29269.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:FF193ACE9AE6CF299F337F268E93ADE650607284
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29270.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29270.jpgsave_picture_29270.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Macrorit Data Wiper 8.2.0 Unlimited Edition RePack (& Portable) by elchupacabra 
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29271.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29271.jpgsave_picture_29271.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:6323964A4D448900D039EF2BF3F77A36E47F639E
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29272.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29272.jpgsave_picture_29272.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ DeTechtive 2112 (2025) [Ru/Multi] (Build 17159957) Repack seleZen
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29273.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29273.jpgsave_picture_29273.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ mp3DirectCut 2.38 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29274.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29274.jpgsave_picture_29274.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ SupRemo 4.11.4.2825 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29275.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29275.jpgsave_picture_29275.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ magnet:?xt=urn:btih:C53A802F08B63026962DE2DC6BD3B12D20F30869
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29276.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29276.jpgsave_picture_29276.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ XRecode 3 1.162 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29277.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29277.jpgsave_picture_29277.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Ronnie James Dio - Compilation (2025) [MP3|320 Kbps] <Metal, Hard Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29278.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29278.jpgsave_picture_29278.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:5DBEBDF8B993F8529B106BB0D30AB87495EC6D80
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29279.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29279.jpgsave_picture_29279.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ magnet:?xt=urn:btih:5DBEBDF8B993F8529B106BB0D30AB87495EC6D80
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29280.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29280.jpgsave_picture_29280.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ magnet:?xt=urn:btih:B3E5C06338AEE58419F513AE910740C8B0647DD8
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29281.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29281.jpgsave_picture_29281.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ LibreOffice 25.2.0.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29282.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29282.jpgsave_picture_29282.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ Red Button 6.1 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29283.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29283.jpgsave_picture_29283.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ magnet:?xt=urn:btih:3F4BAE4BEAF01A206C650F048DB215F2A8123A9D
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29284.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29284.jpgsave_picture_29284.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ magnet:?xt=urn:btih:107A3D64292B3FDE1F9587CB3D71FC68C933B7B5
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29285.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29285.jpgsave_picture_29285.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ magnet:?xt=urn:btih:9CC84518DF6B4D7D3016114D576E79CE28E7AFF6
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29286.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29286.jpgsave_picture_29286.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ magnet:?xt=urn:btih:9CC84518DF6B4D7D3016114D576E79CE28E7AFF6
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29287.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29287.jpgsave_picture_29287.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ DeTechtive 2112 (2025) [Ru/Multi] (Build 17159957) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29288.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29288.jpgsave_picture_29288.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Clip Studio Paint EX 3.2.2 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29289.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29289.jpgsave_picture_29289.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Macrorit Partition Extender 2.6.0 Unlimited Edition RePack (& Portable) by elchu
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29290.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29290.jpgsave_picture_29290.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Google Chrome 132.0.6834.160 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29291.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29291.jpgsave_picture_29291.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ magnet:?xt=urn:btih:102B3CF412AC5A49C57967284C5643B8655B02FA
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29292.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29292.jpgsave_picture_29292.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155024.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155024.jpgsave_picture_155024.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Imagenomic Portraiture 2.3.4 build 2342 | Noiseware 5.0.3 build 5032 | RealGrain
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155025.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155025.jpgsave_picture_155025.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ ProduKey 1.91 Portabe [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155026.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155026.jpgsave_picture_155026.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:8256CA33D7986F0E9D416E98F772E1594BCA3D25
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155027.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155027.jpgsave_picture_155027.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:0FBF67018FE75578C28B7CCB3299D273BC58F088
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155028.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155028.jpgsave_picture_155028.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Marco Ragni - If (2020) [MP3|320 Kbps] <Psychedelic, Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155029.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155029.jpgsave_picture_155029.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ NG: Загадка Кероса / Keros: The mystery of the broken figurines (20
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155030.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155030.jpgsave_picture_155030.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:3778FDA93C9654104DED9D046094D035753DF9FA
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155031.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155031.jpgsave_picture_155031.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:6ABB370A893E560156B0DE78A46CE0E292C0C826
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155032.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155032.jpgsave_picture_155032.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ ESET NOD32 Antivirus / Smart Security 10.0.386.2 RePack by KpoJIuK [Ru/En]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155033.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155033.jpgsave_picture_155033.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:9EFAB087974129F8C2134B2D74FC6948E72BB6B6
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155034.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155034.jpgsave_picture_155034.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:B2B1BE8432A933F5580C26DCB3DDDCE19C22C409
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155035.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155035.jpgsave_picture_155035.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ magnet:?xt=urn:btih:BBCE1BED155F951E5D8451F49CF9209119CA5BE7
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155036.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155036.jpgsave_picture_155036.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Shaman - Сделано в России (2023) 2CD [MP3|320 Kbps] <Pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155037.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155037.jpgsave_picture_155037.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ magnet:?xt=urn:btih:EFED9A7A2FADE54C76201D77DAAE1BD86DA22A6E
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155038.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155038.jpgsave_picture_155038.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ magnet:?xt=urn:btih:BA08480FEF4256956D170C21D26081740AA62E8B
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155039.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155039.jpgsave_picture_155039.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Thomas Quasthoff & NDR Bigband - Nice 'N' Easy (2018) Okeh [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155040.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155040.jpgsave_picture_155040.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ magnet:?xt=urn:btih:B764CBCB7E600C216999069EE0285AC6AA5F93D6
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155041.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155041.jpgsave_picture_155041.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ magnet:?xt=urn:btih:13D75F1E473323114503E258BED6C3900EBAD8A9
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155042.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155042.jpgsave_picture_155042.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ magnet:?xt=urn:btih:8384C8A62016BFEF87ED066BC37B8A1CB580C030
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155043.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155043.jpgsave_picture_155043.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ VA - Hits of My Soul Vol. 52 (2019) [MP3|320 кб/с]<Trance, Vocal Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155044.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155044.jpgsave_picture_155044.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ magnet:?xt=urn:btih:36D1054A6E89193E90017A79D867F6905C1C0A26
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155045.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155045.jpgsave_picture_155045.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ magnet:?xt=urn:btih:7F80EEC442B407E274B7D6BCA566CB859CDD1260
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155046.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155046.jpgsave_picture_155046.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Chaotica 2.0.35 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155047.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155047.jpgsave_picture_155047.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ magnet:?xt=urn:btih:58BEA0A8168129FD51602C502BE862F9C0A1699A
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155048.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155048.jpgsave_picture_155048.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ Templates for Photoshop by GN 1.5 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155049.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155049.jpgsave_picture_155049.jpg" />
 </div>
 
 

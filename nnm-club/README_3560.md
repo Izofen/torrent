@@ -6,7 +6,7 @@ Firefox Browser 124.0.1 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112935.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112935.jpgsave_picture_112935.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Steve Emm - Framework (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Rock
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112936.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112936.jpgsave_picture_112936.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ VA - Gym Beast Mode Workout 2024 [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112937.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112937.jpgsave_picture_112937.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Gossip - Real Power (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Indie Pop, Indie
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112938.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112938.jpgsave_picture_112938.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ magnet:?xt=urn:btih:BD90E37DCEE003E899660282B06BB8780036B2D2
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112939.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112939.jpgsave_picture_112939.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Romantic Love Songs Academy - Rendezvous at Dawn: Sultry Jazz and Romantic Mood 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112940.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112940.jpgsave_picture_112940.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ RAW Power 3.4.20 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112941.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112941.jpgsave_picture_112941.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ QOwnNotes 24.3.4 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112942.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112942.jpgsave_picture_112942.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ magnet:?xt=urn:btih:AC2B24C0ABC322E197A371C59D134D72331019E6
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112943.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112943.jpgsave_picture_112943.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ VA - Любимые песенки малышей (1971) [FLAC 24/192|Lossless|t
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112944.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112944.jpgsave_picture_112944.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ Elbow - Audio Vertigo (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Alternative & 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112945.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112945.jpgsave_picture_112945.jpg" />
 </div>
 
 
@@ -291,7 +291,7 @@ magnet:?xt=urn:btih:7E05456E16320CC12192FAC2558EBFADF6BB15BC
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112946.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112946.jpgsave_picture_112946.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ magnet:?xt=urn:btih:7E57CB6FC80691120FE4221A90CA02B957F17DAB
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112947.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112947.jpgsave_picture_112947.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Screen Wonders 2.2.1 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112948.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112948.jpgsave_picture_112948.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ VA - Top 8 February 2024 Emotional and Uplifting Trance (2024) [MP3|320 Kbps] <T
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112949.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112949.jpgsave_picture_112949.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ Nevercenter CameraBag Photo 2024.1.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112950.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112950.jpgsave_picture_112950.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ VA - Miami Festival Anthems 2024 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112951.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112951.jpgsave_picture_112951.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ VA - Armin van Buuren - A State Of Trance 1165 (2024) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112952.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112952.jpgsave_picture_112952.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ Text Workflow 1.9.6 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112953.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112953.jpgsave_picture_112953.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ WiFi Signal Strength: Wifiry 2.6 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112954.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112954.jpgsave_picture_112954.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ magnet:?xt=urn:btih:8D003AED9732EB8E62061D704A28EA2EAA4FBFF7
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112955.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112955.jpgsave_picture_112955.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ VueScan Pro 9.8.30 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112956.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112956.jpgsave_picture_112956.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Principle 6.34 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112957.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112957.jpgsave_picture_112957.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ magnet:?xt=urn:btih:65BC99E7AD84396FCC1ED08559B921417CEC30D1
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112958.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112958.jpgsave_picture_112958.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ AirFoil+Airfoil Satellite 5.11.8 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112959.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112959.jpgsave_picture_112959.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ StopTheMadness 40.10 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112960.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112960.jpgsave_picture_112960.jpg" />
 </div>
 
 

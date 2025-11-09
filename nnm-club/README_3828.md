@@ -6,7 +6,7 @@ One Military Camp (2023) [Ru/Multi] (1.1.0.26/dlc) Scene Rune
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119915.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119915.jpgsave_picture_119915.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ CopyQueue Evaluation for Mac 3.1E [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119916.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119916.jpgsave_picture_119916.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ JvlKvlt - Worshipping Darkness (2023) [FLAC|Lossless|WEB-DL|tracks] <Black Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119917.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119917.jpgsave_picture_119917.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Sergio Rowles & The Cinnamon Souls - Sergio Rowles & The Cinnamon Souls (2024) [
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119918.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119918.jpgsave_picture_119918.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Dato 5.2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119919.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119919.jpgsave_picture_119919.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ Sound Siphon 3.6.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119920.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119920.jpgsave_picture_119920.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ EdgeView 4.4.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119921.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119921.jpgsave_picture_119921.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:20A85324F27ED37BF1DB445822C1A2F50F0DFCE5
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119922.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119922.jpgsave_picture_119922.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ VA - Fusion Jazz Funk Vol. 2 (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz Fusion &
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119923.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119923.jpgsave_picture_119923.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ Break the Curse - Trial and Error (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Roc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119924.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119924.jpgsave_picture_119924.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ magnet:?xt=urn:btih:FA26C148EACA986AC1E03338DF545EA48C4F1CE8
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119925.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119925.jpgsave_picture_119925.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ magnet:?xt=urn:btih:D892C9F747D3FF0465BA3EB5CE31E36D7D02C192
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119926.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119926.jpgsave_picture_119926.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ magnet:?xt=urn:btih:F50C26BDF4064BD1AA706DA35C60666B6FA3F991
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119927.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119927.jpgsave_picture_119927.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ Wondershare UniConverter for Mac 15.5.0 Intel/ARM [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119928.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119928.jpgsave_picture_119928.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ VA - Jazz Lounge Relaxation Intimate Moments Instrumentals (2024) [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119929.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119929.jpgsave_picture_119929.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ VA - Easy Listening Soothing Jazz After Dark (2024) [FLAC|Lossless|WEB-DL|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119930.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119930.jpgsave_picture_119930.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ magnet:?xt=urn:btih:E4A0E41FEB0210BCD79D402A3EBF9DC39757153E
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119931.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119931.jpgsave_picture_119931.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ Edge - Latency, Vol. I (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119932.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119932.jpgsave_picture_119932.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ magnet:?xt=urn:btih:4CA9500EC0601270D5184D6E8E3BA656924E5536
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119933.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119933.jpgsave_picture_119933.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Toshiyuki Miyama & New Herd - 90th Anniversary Concert (2012) 2CD, Little Beat [
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119934.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119934.jpgsave_picture_119934.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Aron Scharfegger - Metal Face (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119935.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119935.jpgsave_picture_119935.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ VA - Jazz Tunes Winter 2024 (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119936.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119936.jpgsave_picture_119936.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ The Christopher Dean Band - Need a Friend (2023) [FLAC|Lossless|WEB-DL|tracks] <
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119937.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119937.jpgsave_picture_119937.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Andy Lindquist - Balderdash Rose (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Roc
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119938.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119938.jpgsave_picture_119938.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ Michel Petrucciani - Estate (1982) 2005, TDM [FLAC|Lossless|tracks + .cue] <Post
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119939.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119939.jpgsave_picture_119939.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ SponsorBlock for YouTube 5.5.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119940.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119940.jpgsave_picture_119940.jpg" />
 </div>
 
 

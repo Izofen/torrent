@@ -6,7 +6,7 @@ Anette Olzon - Rapture (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Power Metal>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109879.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109879.jpgsave_picture_109879.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Vhaldemar - Sanctuary of Death (2024) [FLAC|Lossless|WEB-DL|tracks] <Power Metal
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109880.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109880.jpgsave_picture_109880.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Winterborn - Break Another Day (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109881.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109881.jpgsave_picture_109881.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Brodequin - Instruments of Torture (2000) [FLAC|Lossless|image + .cue] <Brutal D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109882.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109882.jpgsave_picture_109882.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Sebastian Bach - Child Within The Man (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109883.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109883.jpgsave_picture_109883.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Opera One 109.0.5097.80 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109884.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109884.jpgsave_picture_109884.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ FolderSizes 9.6.483 Enterprise [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109885.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109885.jpgsave_picture_109885.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Google Chrome 124.0.6367.156 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109886.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109886.jpgsave_picture_109886.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ VA - Шансон премьера 2023 май (Новые песни. Новы�
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109887.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109887.jpgsave_picture_109887.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ magnet:?xt=urn:btih:6EE101329FC8E75E865EA9F2A1BEB9D313339066
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109888.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109888.jpgsave_picture_109888.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ El Mental - Стакан наполовину дичь, Часть 1-2 (2024) [F
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109889.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109889.jpgsave_picture_109889.jpg" />
 </div>
 
 
@@ -291,7 +291,7 @@ magnet:?xt=urn:btih:08B0C900CF92DC58C92668DC371AFE5652EE9D22
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109890.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109890.jpgsave_picture_109890.jpg" />
 </div>
 
 
@@ -315,7 +315,7 @@ Lucky Patcher 11.3.4 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109891.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109891.jpgsave_picture_109891.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ Opera GX 109.0.5097.79 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109892.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109892.jpgsave_picture_109892.jpg" />
 </div>
 
 
@@ -365,7 +365,7 @@ IObit Uninstaller Free 13.5.0.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109893.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109893.jpgsave_picture_109893.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ Bobina - Catchy! (20th Anniversary Edition) (2024) [MP3|320 Kbps] <Trance, Progr
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109894.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109894.jpgsave_picture_109894.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ VA - Шансон премьера 2023 июль (Новые песни. Нов�
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109895.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109895.jpgsave_picture_109895.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ George Harrison - Brainwashed (2002) [FLAC|Lossless|image + .cue] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109896.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109896.jpgsave_picture_109896.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ magnet:?xt=urn:btih:0FB3BF9FD8601DD638A11326BB99D6981301A84D
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109897.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109897.jpgsave_picture_109897.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ Anette Olzon - Rapture (2024) [MP3|320 Kbps] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109898.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109898.jpgsave_picture_109898.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ magnet:?xt=urn:btih:5DB9D6A96604164A800EE9BEA1E0DF31AC58962C
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109899.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109899.jpgsave_picture_109899.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ VA - Праздник русской авиации (2001) [FLAC|Lossless|tracks
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109900.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109900.jpgsave_picture_109900.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ magnet:?xt=urn:btih:65D7FEE9F6C1309E9B1926B55E2594B91D5336CC
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109901.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109901.jpgsave_picture_109901.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ Nancy Martinez - Not Just The Girl Next Door (1987) [FLAC 2.0|192/24|image +.cue
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109902.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109902.jpgsave_picture_109902.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ magnet:?xt=urn:btih:F36E5BD2807137261A82BC4E177394887ED4A85D
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109903.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109903.jpgsave_picture_109903.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ magnet:?xt=urn:btih:5EAA218FC62B7454ACF7996E2654BEED2AFCCD67
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109904.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109904.jpgsave_picture_109904.jpg" />
 </div>
 
 

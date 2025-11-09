@@ -6,7 +6,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124523.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124523.jpgsave_picture_124523.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ PhotoDirector 18.9.0 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124524.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124524.jpgsave_picture_124524.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:64FD26B1F18BFDF67F7DECF5D044AD12C12A4C90
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124525.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124525.jpgsave_picture_124525.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:1B204F1BE1D7A776823FE85C2CB9D27528F14FCF
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124526.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124526.jpgsave_picture_124526.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ VA - Interplay Highlights 2023 - Extended Versions (2024) [MP3|320 Kbps] <Trance
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124527.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124527.jpgsave_picture_124527.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Veil Of Maya - [m]other (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metalc
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124528.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124528.jpgsave_picture_124528.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ Otilia Donaire - Bluesin' It Up (2024) [FLAC|Lossless|WEB-DL|tracks] <Electric B
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124529.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124529.jpgsave_picture_124529.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ magnet:?xt=urn:btih:7B11AAB09253D5299465C60FF629414E33E7CDBA
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124530.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124530.jpgsave_picture_124530.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ magnet:?xt=urn:btih:013E7D277CB05BBE89BF05909EAF587696C7AA04
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124531.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124531.jpgsave_picture_124531.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ magnet:?xt=urn:btih:8AA0FC11C718569A8C6900FB05E1BD8E1B63EA2F
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124532.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124532.jpgsave_picture_124532.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ magnet:?xt=urn:btih:1222DF821A1F06DDCC5A53EA13CBA4E6D7855609
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124533.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124533.jpgsave_picture_124533.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ magnet:?xt=urn:btih:5EA1CA1EB7D5CD022484829C4585745E98EFF0AB
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124534.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124534.jpgsave_picture_124534.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ magnet:?xt=urn:btih:9ECB1687C38F16EE5FB814E1131F1DBF577E86F4
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124535.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124535.jpgsave_picture_124535.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ VA - Keep It Trance Vol. 18 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124536.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124536.jpgsave_picture_124536.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ VA - Ablazing Winter Sessions 2024 [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124537.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124537.jpgsave_picture_124537.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ magnet:?xt=urn:btih:BD030616E704915B04185F8FAD94830E6C420AB8
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124538.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124538.jpgsave_picture_124538.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ magnet:?xt=urn:btih:BCAA48815B5AC04D5C34CB53157BB3F2B9C55988
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124539.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124539.jpgsave_picture_124539.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ magnet:?xt=urn:btih:B38584001BF73C0CD38B52A70B5926E78E9D826C
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124540.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124540.jpgsave_picture_124540.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Black Rainbows - 4 Albums (2007-2023) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124541.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124541.jpgsave_picture_124541.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ VA - House M.D. - Original Television Soundtrack (2007) [FLAC|Lossless|tracks + 
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124542.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124542.jpgsave_picture_124542.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ magnet:?xt=urn:btih:B37482F4440E88EE379BA08769242DDC748137A0
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124543.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124543.jpgsave_picture_124543.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Rainshow - Compilation (2024) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124544.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124544.jpgsave_picture_124544.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ magnet:?xt=urn:btih:E77350C2C7AA3163C224BFFF0A1C87F9737A7C63
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124545.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124545.jpgsave_picture_124545.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ magnet:?xt=urn:btih:9164B49CD1EA650D833FCD50E9D7CA37159A7465
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124546.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124546.jpgsave_picture_124546.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ John Haydock - Compilation (2024) [MP3|320 Kbps] <Rock, Blues rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124547.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124547.jpgsave_picture_124547.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ magnet:?xt=urn:btih:B7E7AC6488E0D2A0A573DFDA7827419C0D980F41
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124548.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124548.jpgsave_picture_124548.jpg" />
 </div>
 
 

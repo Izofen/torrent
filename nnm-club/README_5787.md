@@ -6,7 +6,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_180167.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_180167.jpgsave_picture_180167.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ VA - The Orient Collective: Melodic Ethnic Beats (2023) [FLAC|Lossless|WEB-DL|tr
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180169.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180169.jpgsave_picture_180169.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:638D67D18CE40A7F2589E0DDCE17300908839C31
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180170.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180170.jpgsave_picture_180170.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:2540B478ADB28C4FBBA945DD46B2D53901AB05AD
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180172.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180172.jpgsave_picture_180172.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:F21B6ABD9E6B363C583D0E9E8306DB1BA4D29EC8
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_180173.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_180173.jpgsave_picture_180173.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ magnet:?xt=urn:btih:2C6B5D7EA7757786754ABA570795BE3D1AB5B88A
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180175.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180175.jpgsave_picture_180175.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:6CD309273E44A9B27A248777378ABD9B19598E0E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180176.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180176.jpgsave_picture_180176.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Kylie Minogue - Tension (2023) Deluxe [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Dan
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180178.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180178.jpgsave_picture_180178.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:4B7CF7824EC10993AE0235718685190B66E1BDE6
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180179.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180179.jpgsave_picture_180179.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ Tensai Ouji no Akaji Kokka Saiseijutsu | The Genius Prince's Guide to Raising a 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180180.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180180.jpgsave_picture_180180.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ magnet:?xt=urn:btih:E5B96052E0029A998D0913C9E152ED0B1914E7E9
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180182.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180182.jpgsave_picture_180182.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ Draw.io 22.0.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_180184.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_180184.jpgsave_picture_180184.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:D85F095B7537238399AFE38FC7B8170CB22616BD
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180185.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180185.jpgsave_picture_180185.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ NetLimiter 5.3.4.0 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180189.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180189.jpgsave_picture_180189.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Windows 11 (v22h2) x64 PRO by KulHunter v2 (esd) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180192.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180192.jpgsave_picture_180192.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Artenovum - A Breeze of Melodies (2023) [FLAC|Lossless|WEB-DL|tracks] <Lounge, C
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180193.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180193.jpgsave_picture_180193.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ magnet:?xt=urn:btih:2FFDD573B0011021A83387F2CA518E6EEB4C4855
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180197.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180197.jpgsave_picture_180197.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ magnet:?xt=urn:btih:BF22C1C4B29DB05210DE68C7A318604E7F166548
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_180198.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_180198.jpgsave_picture_180198.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ magnet:?xt=urn:btih:7A205828B5D8C7B1D361FEFB12D67888615944BD
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180200.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180200.jpgsave_picture_180200.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ magnet:?xt=urn:btih:976177BCDC4592BC995BA4C41B378FA9DFA35412
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180201.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180201.jpgsave_picture_180201.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ magnet:?xt=urn:btih:60E5EC82D40980247B25D1345AD841C729AF608A
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180204.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180204.jpgsave_picture_180204.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ magnet:?xt=urn:btih:A070A0E1C08CC9C552F27157110244C15D0C9163
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180206.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180206.jpgsave_picture_180206.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ magnet:?xt=urn:btih:40AF168BBB47A747C7F867F0B61EB98547D31B89
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180207.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180207.jpgsave_picture_180207.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ Kylie Minogue - Tension (2023) Deluxe [FLAC|Lossless|image + .cue] <Pop, Dance>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_180210.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_180210.jpgsave_picture_180210.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ magnet:?xt=urn:btih:8340832DDF2C290DEE2D12B69027F8B92C5DED04
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180211.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180211.jpgsave_picture_180211.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Zoner Photo Studio X 19.2309.2.497 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180213.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180213.jpgsave_picture_180213.jpg" />
 </div>
 
 

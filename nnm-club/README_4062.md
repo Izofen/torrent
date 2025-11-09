@@ -6,7 +6,7 @@ Nebula Drag - Western Death (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Stoner R
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126187.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126187.jpgsave_picture_126187.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Satis - Despair (2023) [FLAC 24/192|Lossless|WEB-DL|tracks] <Progressive Metal>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126188.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126188.jpgsave_picture_126188.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Smerdead - Зловещие истории (2022) [FLAC|Lossless|image + .cue] <
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126189.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126189.jpgsave_picture_126189.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ magnet:?xt=urn:btih:103EBEFF565737AC8A1E32394A4FB80C5E968594
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126190.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126190.jpgsave_picture_126190.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ Nova Arminius - Perish for the earth (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126191.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126191.jpgsave_picture_126191.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ Inverno - Stasis (2023) [FLAC|Lossless|WEB-DL|tracks] <Groove-Metal, Metalcore>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126192.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126192.jpgsave_picture_126192.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ Relayer - Live (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126193.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126193.jpgsave_picture_126193.jpg" />
 </div>
 
 
@@ -196,7 +196,7 @@ Disperser CA - Critical Moment of Agony (2023) [FLAC|Lossless|WEB-DL|tracks] <Me
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126194.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126194.jpgsave_picture_126194.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Sefirot - The Mystical Lybrary (2023) [FLAC 24/44.1, 48|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126195.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126195.jpgsave_picture_126195.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Elisa - Intimate - Recordings at Abbey Road Studios (2023) [FLAC 24/44.1|Lossles
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126196.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126196.jpgsave_picture_126196.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:81F85A5CB7A455FE31EB641D459FF04CEC499B50
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126197.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126197.jpgsave_picture_126197.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Neon Fields - Neon Fields (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Progressiv
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126198.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126198.jpgsave_picture_126198.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ TV Girl - Death of a Party Girl (2018) Digital Album [MP3|320 Kbps] <Hypnotic Po
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126199.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126199.jpgsave_picture_126199.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Storyum - Freedom (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126200.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126200.jpgsave_picture_126200.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Assemblage - Album (1970) Remastered, 2023, Janus Records [FLAC 24/96|Lossless|W
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126201.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126201.jpgsave_picture_126201.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ art against agony - Sound of Inevitability (2023) [FLAC|Lossless|WEB-DL|tracks] 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126202.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126202.jpgsave_picture_126202.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Phil Seymour - Live On The Sunset Strip (Live) (2023) [FLAC 24/88.2|Lossless|WEB
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126203.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126203.jpgsave_picture_126203.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ magnet:?xt=urn:btih:237661A17388EF135CE2FABDA6E8195C9E194CD5
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126204.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126204.jpgsave_picture_126204.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ Mike Williams - Live @ Storylines, Hotel Arena, Amsterdam Dance Event (2023-10-2
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126205.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126205.jpgsave_picture_126205.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ magnet:?xt=urn:btih:6C8A7D5BDE91FA6A914A8795733961DAE8125A34
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126206.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126206.jpgsave_picture_126206.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ magnet:?xt=urn:btih:17928A034E890562B8212F0ECDD5AC61DF7FE717
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126207.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126207.jpgsave_picture_126207.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Goat - Levitation Sessions (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126208.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126208.jpgsave_picture_126208.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Golden Earring - The Hole (1986) Remastered & Expanded Edition, 2023, Red Bullet
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126209.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126209.jpgsave_picture_126209.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ Desespere - Furor Ab Intus, Caeleste Stragem Desuper (2023) [FLAC|Lossless|WEB-D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126210.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126210.jpgsave_picture_126210.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ Jack and the Axes - Proof Is In The Poison (2023) [FLAC 24/44.1|Lossless|WEB-DL|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126211.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126211.jpgsave_picture_126211.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Frank Morgan & Rodney Kendrick Trio - Bop! (1997) Telarc [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126212.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126212.jpgsave_picture_126212.jpg" />
 </div>
 
 

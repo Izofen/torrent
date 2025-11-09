@@ -6,7 +6,7 @@ Tour de France 2023 (2023) [Multi] (1.00.04.703) Scene Rune
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247695.jpgsave_picture_247695.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Car Dealership Simulator (2023) [Multi] (1.2) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247709.jpgsave_picture_247709.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Farthest Frontier (2022) [Ru/Multi] (1.0.0) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247721.jpgsave_picture_247721.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Bread & Fred (2023) [Multi] (1.011) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247726.jpgsave_picture_247726.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Tin Hearts (2023) [Ru/Multi] (1.0.0.6) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247735.jpgsave_picture_247735.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Dreams of Another (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247739.jpgsave_picture_247739.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Crime Detective: Red Flags (2025) [Ru/Multi] (Build 20464442) Repack Other s
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247745.jpgsave_picture_247745.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Ninja Gaiden 4 (2025) [Ru/Multi] (1.0.1.0/dlc) Repack FitGirl [Deluxe Edition]
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247749.jpgsave_picture_247749.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ SpongeBob SquarePants: The Cosmic Shake (2023) [Ru/Multi] (1.4b/dlc) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247750.jpgsave_picture_247750.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Ninja Gaiden 4 (2025) [Ru/Multi] (1.0.2.0/dlc) Repack seleZen [Deluxe Edition]
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247756.jpgsave_picture_247756.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ A Light in the Dark / Yeguang (2018) [Ru/Multi] (1.2.5) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247761.jpgsave_picture_247761.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Morrok (2023) [Ru/Multi] (Build 11369620) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247798.jpgsave_picture_247798.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Resident Evil 7: Biohazard (2017) [Ru/Multi] (1.0/dlc) Repack Decepticon [Gold E
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247811.jpgsave_picture_247811.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Tormented Souls 2 (2025) [Ru/Multi] (1.2.0/dlc) Repack seleZen [Digital Deluxe E
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247877.jpgsave_picture_247877.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Reflections of Life 14: Gone But Not Forgotten / Отражения жизни 1
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247905.jpgsave_picture_247905.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ The Lonesome Guild (2025) [Ru/Multi] (Build 20570031) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247909.jpgsave_picture_247909.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Malice: Two Sisters (P) [En] 2012
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247938.jpgsave_picture_247938.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Atlantic Journey: The Lost Brother / Атлантическое путешест
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247989.jpgsave_picture_247989.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ magnet:?xt=urn:btih:85BB1423935D2BE0B1167DCE244AE093D599740F
 >>NoCD/NoDVD/Crack для Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248084.jpgsave_picture_248084.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Undertale (2015) [Ru/En] (1.08) Repack Necros
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248520.jpgsave_picture_248520.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ GRID (2019) [Ru/Multi] (1.0.122.743/dlc) Repack Let'sРlay [Ultimate Edition]
 >>Racing
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248543.jpgsave_picture_248543.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Citizen Sleeper 2 Starward Vector (2025) [Ru/Multi] (1.2.21/dlc) Repack Let'sРl
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248545.jpgsave_picture_248545.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Fear for Sale 2: Sunnyvale Story Collectors Edition / Страх на прода
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248587.jpgsave_picture_248587.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Beyond the Kingdom 2 / За пределами королевства 2 (2025) [
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248619.jpgsave_picture_248619.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Insanely Twisted Shadow Planet [Ru] (RePack/1.0r9) 2012 l Fenixx
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248649.jpgsave_picture_248649.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Street Fighter x Tekken [Ru/En] (RePack) 2012 | R.G. Origami
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248676.jpgsave_picture_248676.jpg" />
 </div>
 
 

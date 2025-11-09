@@ -6,7 +6,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36365.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36365.jpgsave_picture_36365.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Joe Berluck - The Erotic Voice of Joe Berluck (1970) [FLAC|Lossless|WEB-DL|track
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36366.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36366.jpgsave_picture_36366.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:88B7AD14048F8F8A98A3EDD2C45E02550D351DC4
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36367.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36367.jpgsave_picture_36367.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ Awaken - Astral Blade (2024) [Ru/Multi] (202411181541/dlc) Scene SKIDROW
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36368.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36368.jpgsave_picture_36368.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:32B4DC6246071731FEB7C442B0EE3BFC55A580BC
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36369.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36369.jpgsave_picture_36369.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ Murai no Koi | Murai in Love | Любовь Мураи [2024, TV, 12 эп.] WebR
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36370.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36370.jpgsave_picture_36370.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:901A5D9A5ABC6260F70C7EAB62446E8796FB31CF
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36371.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36371.jpgsave_picture_36371.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:501F5502557E9645C344815CCDCD3EA0ADAFBE34
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36372.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36372.jpgsave_picture_36372.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:E89CA86B948883919199F7025AE108E8EA63D95B
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36373.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36373.jpgsave_picture_36373.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ A Quiet Place: The Road Ahead (2024) [Ru/Multi] (1.1.0/dlc) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36374.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36374.jpgsave_picture_36374.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Alaloth: Champions of The Four Kingdoms (2022) [En] (1.0) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36375.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36375.jpgsave_picture_36375.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ magnet:?xt=urn:btih:938536BF3D8896A839BD03F29E6CFE0EE5ED2337
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36376.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36376.jpgsave_picture_36376.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ magnet:?xt=urn:btih:520AD0114E8E4062BC596B7D24895B3142289AEF
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36377.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36377.jpgsave_picture_36377.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ magnet:?xt=urn:btih:E4F2321DC1B28C4D07E1189BA7B2486F74129843
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36378.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36378.jpgsave_picture_36378.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ magnet:?xt=urn:btih:8FE11B23DD0781E90231950F8C8A829B0DEDE2C7
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36379.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36379.jpgsave_picture_36379.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ magnet:?xt=urn:btih:91B50E44CAE9D414B2A1C03EC0BE4DC85981D869
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36380.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36380.jpgsave_picture_36380.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ Inside the Backrooms (2022) [Ru/Multi] (0.5.3) Repack Pioneer [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36381.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36381.jpgsave_picture_36381.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ magnet:?xt=urn:btih:AFCEEE4C193F8943FE12A950A9F2B77BFCBA55F3
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36382.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36382.jpgsave_picture_36382.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ magnet:?xt=urn:btih:84145A19D22948CABB3578E33DCBB4BDFACD5599
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36383.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36383.jpgsave_picture_36383.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ JetBrains RustRover 2024.3 (x64-arm64) Repack by Sitego [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36384.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36384.jpgsave_picture_36384.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:A250BB985F4DB14DCE3977E8A944992D4F5071B9
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36385.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36385.jpgsave_picture_36385.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ magnet:?xt=urn:btih:5E2D8EFBE5DF449987A351475AD4FB7AC0630D6D
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36386.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36386.jpgsave_picture_36386.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ AAF Family DCH Audio Realtek 10.11.9757.1 Mod by AlanFinotty [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36387.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36387.jpgsave_picture_36387.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Topaz Video AI 5.5.0 (x64) RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36388.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36388.jpgsave_picture_36388.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ magnet:?xt=urn:btih:595F817B5F30E122BD71DD0853C2E261D1AFEDED
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36389.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36389.jpgsave_picture_36389.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ magnet:?xt=urn:btih:567AB537B2020596E15A3738C4C0196CF7D44484
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36390.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36390.jpgsave_picture_36390.jpg" />
 </div>
 
 

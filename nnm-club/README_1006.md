@@ -6,7 +6,7 @@
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26506.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26506.jpgsave_picture_26506.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ AVS Media Player 6.0.2.21 [Multi/Ru]
 >>Видео Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26507.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26507.jpgsave_picture_26507.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:40BAC57E966EA8D6F72633021A2F35F18536ECE4
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26508.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26508.jpgsave_picture_26508.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:65ABC0A4CB1B05063F5C87938CEADDA885EB967A
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26509.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26509.jpgsave_picture_26509.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:54AAA4AB71D81356C30185653E3CD70FD9F1A9E0
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26510.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26510.jpgsave_picture_26510.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Lanpirot | Товарищ "Чума" (Книга 3). (2025) [MP3, Виктор �
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26511.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26511.jpgsave_picture_26511.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:3DB8427BA12225D586ECE7229EF278B77E606E64
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26512.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26512.jpgsave_picture_26512.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ Generation Zero (2019) [Ru/Multi] (2925040/dlc) Repack Let'sРlay [Ultimate Bund
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26513.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26513.jpgsave_picture_26513.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ Hands of Necromancy II (2) (2024) [Ru/Multi] (18.2.25) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26514.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26514.jpgsave_picture_26514.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Stellar Settlers: Space Base Builder (2025) [Ru/Multi] (1.0.1) Repack Let'sРlay
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26515.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26515.jpgsave_picture_26515.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ magnet:?xt=urn:btih:EBC5B5646C3B3408187F8F9C32DBA2B6EEA2FD78
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26516.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26516.jpgsave_picture_26516.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ magnet:?xt=urn:btih:B2968EB4DC44E41587B60A693376EBE68E86BA2B
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26517.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26517.jpgsave_picture_26517.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:B2968EB4DC44E41587B60A693376EBE68E86BA2B
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26518.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26518.jpgsave_picture_26518.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ magnet:?xt=urn:btih:D375E0EF9DDFBBA9777784DFCA213EB98EA3B5E9
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26519.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26519.jpgsave_picture_26519.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ magnet:?xt=urn:btih:180E2650DB7CD78456DC99DDBD1D893CD48F060D
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26520.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26520.jpgsave_picture_26520.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ magnet:?xt=urn:btih:54AFBD33C805AFBFABF6D8C11C0C5323D204A82D
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26521.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26521.jpgsave_picture_26521.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ magnet:?xt=urn:btih:019A7A7CB1026983758D8B7C3CA9DAF200D248D3
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26522.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26522.jpgsave_picture_26522.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ magnet:?xt=urn:btih:803E05F89E9712F3058D12FC1DA2006A4B69F4CC
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26523.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26523.jpgsave_picture_26523.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ magnet:?xt=urn:btih:D8EE55834652AB1AF611BCB6B3723B4C55CA12F3
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26524.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26524.jpgsave_picture_26524.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ magnet:?xt=urn:btih:272C12854F057A516BC2AA19478D4C99FAC5B388
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26525.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26525.jpgsave_picture_26525.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ magnet:?xt=urn:btih:869960ADE5AA42DC04ADD0B28FEB69B4F5DDE3A4
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26526.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26526.jpgsave_picture_26526.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ Hands of Necromancy (2022) [Ru/Multi] (18.2.25) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26527.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26527.jpgsave_picture_26527.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ magnet:?xt=urn:btih:F8F6FEB59E7C7E80C0F969706ED9EED52BB65CF5
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26528.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26528.jpgsave_picture_26528.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ magnet:?xt=urn:btih:7F24CC902581FEFF9AC073F43374D3FD49567CF6
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26529.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26529.jpgsave_picture_26529.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ IconTo Pro 7.5 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26530.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26530.jpgsave_picture_26530.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ R-Drive Image Technician 7.3 Build 7300 RePack (& Portable) by KpoJIuK [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26531.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26531.jpgsave_picture_26531.jpg" />
 </div>
 
 

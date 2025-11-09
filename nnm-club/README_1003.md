@@ -6,7 +6,7 @@
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26428.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26428.jpgsave_picture_26428.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:A0B891DF4B4E85C001620942F4F5ACA2598886C4
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26429.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26429.jpgsave_picture_26429.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:C3FC90FA6ADA046B6CA477CE528BC2D8E68342F3
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26430.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26430.jpgsave_picture_26430.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ SKALD: Against the Black Priory (2024) [En] (Skald Modding Tool/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26431.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26431.jpgsave_picture_26431.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:335ADF841CD93B4CF7C514C36477A6616A36E0B0
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26432.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26432.jpgsave_picture_26432.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:E6D45F2D31CA3E6E4FE9E571ACC0BF307787C4A0
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26433.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26433.jpgsave_picture_26433.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:38900D62E7FA449CC44F47082062301FFF76A6E4
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26434.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26434.jpgsave_picture_26434.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:D1E8086C96D6BC625C89E1F4B4103F53697D9A6D
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26435.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26435.jpgsave_picture_26435.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Homeworld 3 (2024) [Ru/Multi] (1.31-CL364745/dlc) Repack Wanterlude
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26436.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26436.jpgsave_picture_26436.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:A560E7B909DEEA5D6332C8791D07A8B62352AB63
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26437.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26437.jpgsave_picture_26437.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:D3AD3C5873A4E024EC31F0552114FFF985955C1E
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26438.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26438.jpgsave_picture_26438.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Ozzy Osbourne - Studio Albums (14 releases) (1980-2022) hand made [restored, dec
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26439.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26439.jpgsave_picture_26439.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:4E3479F1C0AA90019C6C2C0EAA0F7D384EDD9A3B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26440.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26440.jpgsave_picture_26440.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:3F324EFEB47FEF7DE5D6F6BB8F645EE715641394
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26441.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26441.jpgsave_picture_26441.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ magnet:?xt=urn:btih:135AFA868070A2E7527AD113468719DF898C5EA9
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26442.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26442.jpgsave_picture_26442.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:37CDBFBBEB324F0EEF301E5C7A09275B3D6F63E7
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26443.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26443.jpgsave_picture_26443.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ magnet:?xt=urn:btih:6F9E6C47C2ACF04448C51142947099C5D140F250
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26444.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26444.jpgsave_picture_26444.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ Brutal Orchestra (2021) [Multi] (1.4.1f1) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26445.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26445.jpgsave_picture_26445.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:DBB76C7364AE6E6254918697C5ECEBA6BDC4149D
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26446.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26446.jpgsave_picture_26446.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ VidCoder 11.10 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26447.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26447.jpgsave_picture_26447.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:6C16CFAC5241DFDC0D97F9C728545A20AECC4D07
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26448.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26448.jpgsave_picture_26448.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ magnet:?xt=urn:btih:9E2DD77C89A76E590FBB48FB95E35D117CF99517
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26449.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26449.jpgsave_picture_26449.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ TagScanner 6.1.19 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26450.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26450.jpgsave_picture_26450.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ magnet:?xt=urn:btih:2DCCF3B53E68D0DC23E8D224CCFCE268EEA44F25
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26451.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26451.jpgsave_picture_26451.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Ghostbusters: The Video Game (2009) [PS3] [USA] 2.60 [License] [En]
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26452.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26452.jpgsave_picture_26452.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Qalculate! 5.5.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26453.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26453.jpgsave_picture_26453.jpg" />
 </div>
 
 

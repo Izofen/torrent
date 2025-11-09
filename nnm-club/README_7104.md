@@ -6,7 +6,7 @@
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243618.jpgsave_picture_243618.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ V.A. - Lounge & Coffee, Vol. 3 (2023) [FLAC|Lossless|WEB-DL|tracks] <Easy Listen
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243619.jpgsave_picture_243619.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Lindemann (Rammstein, Pain) - Studio Albums (2015-2019) hand made [restored, dec
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243620.jpgsave_picture_243620.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ Oscar Brown, Jr. - Between Heaven and Hell 1962 (2010) SuperBird [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243621.jpgsave_picture_243621.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ Francesca Lee - Moonhattan (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Synthpop,
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243623.jpgsave_picture_243623.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ VA - Sonic Flash Vol. 3 (2023) [MP3|320 Kbps] <Dance, Dancecore, Hard Beat, Hand
 >>Eurodance, Euro-House, Technopop
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243624.jpgsave_picture_243624.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Chip Z’Nuff - Perfectly Imperfect (2022) [FLAC|Lossless|WEB-DL|tracks] <Glam H
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243625.jpgsave_picture_243625.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ VideoDuke 1.16 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243626.jpgsave_picture_243626.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ magnet:?xt=urn:btih:8F0F962F14848B476516394A5970C22450C957B3
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243627.jpgsave_picture_243627.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ magnet:?xt=urn:btih:8340412E906834BD99EE38A0ED9F2AC904A7EFF3
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243628.jpgsave_picture_243628.jpg" />
 </div>
 
 
@@ -265,7 +265,7 @@ Grover Washington, Jr. - Next Exit (1992) [FLAC|Lossless|image + .cue] <Smooth J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243629.jpgsave_picture_243629.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Dimension Zero - Silent Night Fever (2002) [FLAC|Lossless|image + .cue] <Melodic
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243630.jpgsave_picture_243630.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ magnet:?xt=urn:btih:6596130B0EC9E656D3ACCE725A568650CC926305
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243631.jpgsave_picture_243631.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ WinPaletter 1.0.7.6 Standalone [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243632.jpgsave_picture_243632.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ Soft Organizer Pro 9.27 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243633.jpgsave_picture_243633.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ Dusk - Spectrums (2023) [MP3|320 Kbps] <Progressive Metal, Metalcore>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243634.jpgsave_picture_243634.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ Gary Moore - Victims of the Future (1983) Reissue, 2023, Universal, Japanese Edi
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243635.jpgsave_picture_243635.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ magnet:?xt=urn:btih:8064BBE9A55679918AF5826F45804305CE478D30
 >>Детские (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243636.jpgsave_picture_243636.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Airbag - All Rights Removed (2011) [FLAC|Lossless|tracks + .cue]<Progressive Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243637.jpgsave_picture_243637.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ DoYourData AppUninser Pro 5.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243638.jpgsave_picture_243638.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ magnet:?xt=urn:btih:98AE0733525D100BD8BF65735E56E51BEB26DE97
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243639.jpgsave_picture_243639.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ magnet:?xt=urn:btih:9128D12D8DBF04EC8A10DB09700477CF569FF715
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243640.jpgsave_picture_243640.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ magnet:?xt=urn:btih:FE438B8DE4E49F402C6F591B352C947EE3C27F62
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243641.jpgsave_picture_243641.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ magnet:?xt=urn:btih:BA32F5C2391E1B328E73A79B4C1EA4E656BD7F2A
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243642.jpgsave_picture_243642.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ magnet:?xt=urn:btih:D83848CF502E417A2C0FA6B5055C7AE602966E41
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243643.jpgsave_picture_243643.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ Brutai - Born (2016) [MP3|256 Kbps] <Progressive Metal, Melodic Metalcore>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243644.jpgsave_picture_243644.jpg" />
 </div>
 
 

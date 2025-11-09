@@ -6,7 +6,7 @@ Talksy: Навык общения v0.1.8 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247855.jpgsave_picture_247855.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Lumpur - Skema Pembalasan Sempurna [ep] (2012) [MP3|320 кб/с]<Brutal Death>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247856.jpgsave_picture_247856.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Putrified - Neurotic Necrotic (2012) [MP3|320 кб/с]<Death Metal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247858.jpgsave_picture_247858.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ magnet:?xt=urn:btih:DE8AB9BE84C82152A77CC242996272729E3DF25F
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247862.jpgsave_picture_247862.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ PBS. American Experience: Осуждение Роберта Оппенгейме
 >>PBS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247864.jpgsave_picture_247864.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ VA - Клубный Танцпол Лето Vol.1 (2012) [MP3|320 кб/с]<Club,
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247866.jpgsave_picture_247866.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:E2AC36B3F9C54D8B31B0D296D4C259570EA9CD4F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247867.jpgsave_picture_247867.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:0B4277F3827FD4E026D137A493CDD634C76AC226
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247868.jpgsave_picture_247868.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:BD80BF714B42D096E62EB1AAF6694AE06A982E73
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247869.jpgsave_picture_247869.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ magnet:?xt=urn:btih:A9E47BBC20BF1BE5308F229090F0C5929816768E
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247870.jpgsave_picture_247870.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ magnet:?xt=urn:btih:983F36B6E1A66D04E576135C35E2C22473B356ED
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247871.jpgsave_picture_247871.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ magnet:?xt=urn:btih:EEE16CB0913064A83ECE6A8BA26F5E6192A112A2
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247872.jpgsave_picture_247872.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ magnet:?xt=urn:btih:884E23A892A3F2601159150717D31C5A65C96D86
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247873.jpgsave_picture_247873.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ magnet:?xt=urn:btih:BB63D31146D5901F966BF1B517D7FDF9D4AE04FC
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247875.jpgsave_picture_247875.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Tormented Souls 2 (2025) [Ru/Multi] (1.2.0/dlc) Repack seleZen [Digital Deluxe E
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247877.jpgsave_picture_247877.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ VA - Seashore Desire #26 (2012) [MP3|320 кб/с]<Uplifting Trance, Dream Trance
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247880.jpgsave_picture_247880.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ magnet:?xt=urn:btih:C06AFEE905140CD8E92B68B22762222DA1E88DDD
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247881.jpgsave_picture_247881.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ VA - Seashore Desire #25 (2012) [MP3|320 кб/с]<Uplifting Trance, Dream Trance
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247882.jpgsave_picture_247882.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ magnet:?xt=urn:btih:F65BFD04E4A5ABEDBCCF25995CAB9FA79F998BE8
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247883.jpgsave_picture_247883.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ magnet:?xt=urn:btih:1AB225F72E0BC096FF4B6688996B8BCFABF420EC
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247884.jpgsave_picture_247884.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ Mitch Leeuwe | Mitch Leeuwe Tutorials / Учебные пособия Митча
 >>2D графика
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247886.jpgsave_picture_247886.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ magnet:?xt=urn:btih:68AEEF30BA71DDB4FAA7C9816E59FEC0C08E8725
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247888.jpgsave_picture_247888.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ magnet:?xt=urn:btih:05D2AD3E927800662688DD3767D1C09E7C183291
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247892.jpgsave_picture_247892.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ magnet:?xt=urn:btih:C42E3B3F059262B5B83717D4A04335E9626FC087
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247893.jpgsave_picture_247893.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ magnet:?xt=urn:btih:9B12CB864CD0AD386A4EAF55B57DCEB47140FE53
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247894.jpgsave_picture_247894.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ magnet:?xt=urn:btih:9450B25973D54D94B9ECFB29F8C69E5492693A13
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247896.jpgsave_picture_247896.jpg" />
 </div>
 
 

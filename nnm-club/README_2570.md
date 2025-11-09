@@ -6,7 +6,7 @@ Dhune - Agony Tool (2025) [FLAC 24/44,1|Lossless|WEB-DL|tracks] <Progressive Met
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67570.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67570.jpgsave_picture_67570.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Brainstorm - Metus Mortis (2001) Reissue, 2023, Metal Blade Records [FLAC|24/192
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67571.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67571.jpgsave_picture_67571.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Clifford Brown - Memorial Album (1953) 2003, Toshiba-EMI [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67572.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67572.jpgsave_picture_67572.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:AD257084A8C20793CAF5BE58BB4B503E16F3F4F7
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67573.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67573.jpgsave_picture_67573.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Dogshark - Earth Is Not Room Enough (2024) [FLAC|Lossless|image + .cue] <Blues-R
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67574.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67574.jpgsave_picture_67574.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ magnet:?xt=urn:btih:4F00D16625DDDB252361A18D9C6D08D34D0C24A1
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67575.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67575.jpgsave_picture_67575.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ George Grigoriu - Odata Cu Cintecul (1977) Melodii De George Grigoriu [FLAC 2.0|
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67576.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67576.jpgsave_picture_67576.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Black Stone Cherry - This is Black Stone Cherry's RSD album. The band really lik
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67577.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67577.jpgsave_picture_67577.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Niviane - Queen Of Phantoms (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Power Me
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67578.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67578.jpgsave_picture_67578.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ magnet:?xt=urn:btih:96D03FF0ADFF642220D9E0681F88A27EA64E311D
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67579.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67579.jpgsave_picture_67579.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ magnet:?xt=urn:btih:6B5FCD7FF3E5BA8E1211277C70D606EA6708B9C6
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67580.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67580.jpgsave_picture_67580.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Johnny Raducanu - Confessions (1979) Seria Jazz – Nr. 16 [FLAC 2.0|96/24|image
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67581.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67581.jpgsave_picture_67581.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ magnet:?xt=urn:btih:9A82F42508E6A224E452B99625171292E306C95F
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67582.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67582.jpgsave_picture_67582.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ Davido - 5ive (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <R&B>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67583.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67583.jpgsave_picture_67583.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Dark Flood - Studio Albums (4 releases) (2004-2023) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67584.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67584.jpgsave_picture_67584.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Dies Irae (Mexico) - Studio Albums (3 releases) (1998-2011) hand made [restored,
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67585.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67585.jpgsave_picture_67585.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Melvins - Thunderball (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Grunge, Rock, 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67586.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67586.jpgsave_picture_67586.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ magnet:?xt=urn:btih:1E130273F7ED25A552B43B68596F7E5764A5AD53
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67587.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67587.jpgsave_picture_67587.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Tunde Adebimpe - Thee Black Boltz (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Ro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67588.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67588.jpgsave_picture_67588.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Soulfly - Soulfly (1998) [FLAC|24/192|image + .cue|Vinyl-Rip] <Thrash Metal, Nu 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67589.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67589.jpgsave_picture_67589.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Rwake - The Return Of Magik (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Doom Met
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67590.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67590.jpgsave_picture_67590.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Samael - Worship Him (1991) Reissue, 2016, Osmose Productions [FLAC|24/192|image
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67591.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67591.jpgsave_picture_67591.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Fear Factory - The Industrialist (2012) [FLAC|24/192|image + .cue|Vinyl-Rip] <De
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67592.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67592.jpgsave_picture_67592.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ magnet:?xt=urn:btih:E899E575915247F93E38BDBEB725253CF4F971EB
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67593.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67593.jpgsave_picture_67593.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ magnet:?xt=urn:btih:52D3DCAFD306C70B23B018DCFF5B162F3025A5BB
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67594.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67594.jpgsave_picture_67594.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ Saori Yano - Best (2007) Jroom Jazz [FLAC|Lossless|tracks + .cue] <Post-Bop, Mai
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67595.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67595.jpgsave_picture_67595.jpg" />
 </div>
 
 

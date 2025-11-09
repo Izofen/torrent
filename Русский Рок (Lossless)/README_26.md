@@ -6,7 +6,7 @@
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173046.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173046.jpgsave_picture_173046.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:A0A54A3FB42FA71FC4A34F5D7D8C149F133C3C31
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173047.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173047.jpgsave_picture_173047.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:57CDD2C3DFB5830A2CB3D6DA0E528BE1356AA62C
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173048.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173048.jpgsave_picture_173048.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Entrenchment - Silence After Us (2023) [FLAC|Lossless|image + .cue] <Death Metal
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173229.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173229.jpgsave_picture_173229.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ magnet:?xt=urn:btih:CA8AF98F7909153D81BC42D48C59B71E38C1FA50
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173371.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173371.jpgsave_picture_173371.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ magnet:?xt=urn:btih:62DBA6E825BFA60F321E7A0366FC9CB9958B9B26
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173617.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173617.jpgsave_picture_173617.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ magnet:?xt=urn:btih:98283144C98077D0435F69CC1FB6A7BF52DCD423
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174054.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174054.jpgsave_picture_174054.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Assbuka - Ипортозамещение (2023) [FLAC|Lossless|WEB-DL|tracks] <M
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174075.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174075.jpgsave_picture_174075.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Gothic Sky - Последние Слова Покаяния (2023) [FLAC|Lossles
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174080.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174080.jpgsave_picture_174080.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Wendigo - Темный ритуал (2022) [FLAC|Lossless|WEB-DL|tracks] <Punk R
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174103.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174103.jpgsave_picture_174103.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:08AB93B9A082A3C2374FFAC5913B4434B7651F80
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174406.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174406.jpgsave_picture_174406.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:2966AF7E9F3909DACC10BCB22BD88B7D830BB506
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174446.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174446.jpgsave_picture_174446.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:0A757763356FD2CF5243B579680A9E956566DE93
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174526.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174526.jpgsave_picture_174526.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ The Thanatonauts - Зов (2022) [FLAC|Lossless|WEB-DL|tracks] <Post Metal, Alte
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175182.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175182.jpgsave_picture_175182.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ magnet:?xt=urn:btih:45221A878D397C8C192B4F2089F8756B4D60B3A5
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175623.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175623.jpgsave_picture_175623.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ magnet:?xt=urn:btih:A063F10B589EBD76DC5A1621BF157661FB83DDFD
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175626.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175626.jpgsave_picture_175626.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ magnet:?xt=urn:btih:9D9DBFC6F9C1577C02972B0DD836FAE87C63F688
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175647.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175647.jpgsave_picture_175647.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ magnet:?xt=urn:btih:DF7889ABD11D801A5E1EBAF089C5271CC6B9BDF7
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175715.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175715.jpgsave_picture_175715.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Symbol Of Obscurity - n.N.i.M.m. (2007) [WavPack|Lossless|image + .cue] <Melodic
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175723.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175723.jpgsave_picture_175723.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:CD298E9ACC49581A05C5694CC623B066AFFFD204
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176026.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176026.jpgsave_picture_176026.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Helvegen - Следуй за мной (2022) [FLAC|Lossless|WEB-DL|tracks] <Folk
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176175.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176175.jpgsave_picture_176175.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Korella - Начало (2022) [FLAC|Lossless|WEB-DL|tracks] <Modern Metal, Melod
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176190.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176190.jpgsave_picture_176190.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Simulation: On! - 2 Albums (2022) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176245.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176245.jpgsave_picture_176245.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Softline - Маяки (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal, M
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176280.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176280.jpgsave_picture_176280.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Burning by Desire - Insight (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Me
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176309.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176309.jpgsave_picture_176309.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Seducer's Embrace - Sinnocence (2002) [WavPack|Lossless|image + .cue] <Melodic D
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176319.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176319.jpgsave_picture_176319.jpg" />
 </div>
 
 

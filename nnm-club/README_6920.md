@@ -6,7 +6,7 @@
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237718.jpgsave_picture_237718.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:3C8BF7A2D8F2A911B93DFAF3B0AAA3B53A477C6B
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237719.jpgsave_picture_237719.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Kaleidoscope 4.0.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237720.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237720.jpgsave_picture_237720.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ VA - Fifty Shades of Jazz (2017) [AAC|~330 Kbps] <Downtempo, Lounge, Balearic>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237721.jpgsave_picture_237721.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ VA - Nothing But... Trancetopia, Vol. 01 (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237722.jpgsave_picture_237722.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ Pounder - Breaking The World (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237723.jpgsave_picture_237723.jpg" />
 </div>
 
 
@@ -161,7 +161,7 @@ magnet:?xt=urn:btih:B4944104C8EB17363D631DE2ADBF7200EFA0DF67
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237724.jpgsave_picture_237724.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ magnet:?xt=urn:btih:04D41733D6F3D82F483A959EB7796B2A39DACC4A
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237725.jpgsave_picture_237725.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ AOMEI Partition Assistant Pro 9.9 (акция Comss) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237726.jpgsave_picture_237726.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ Leper Colony - Leper Colony (2023) [FLAC|Lossless|WEB-DL|tracks] <Death, Thrash 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237727.jpgsave_picture_237727.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ Autumn Rain Melancholy - Одиночество (2023) [FLAC|Lossless|WEB-DL|tra
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237728.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237728.jpgsave_picture_237728.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ magnet:?xt=urn:btih:857241ABCF9DB0FBE5D0C4A50317D1B0A1DBBEAC
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237729.jpgsave_picture_237729.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ VA - Los Angeles Beach Lounge, Vol. 4 (2021) [AAC|~326 Kbps] <Lounge, Chill Out,
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237730.jpgsave_picture_237730.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ Gods of Gaia - As Daylight Dies (2023) [MP3|320 Kbps] <Symphonic Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237731.jpgsave_picture_237731.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ VA - MEGA HITS 2022 [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237732.jpgsave_picture_237732.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ magnet:?xt=urn:btih:D4593662B03C155459A4B18F90278690132E8CC4
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237733.jpgsave_picture_237733.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ magnet:?xt=urn:btih:DDAC71F1B746F04ACFF8B4147F8275CB651B5CA6
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237734.jpgsave_picture_237734.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Magic Battery 7.8.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237735.jpgsave_picture_237735.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ magnet:?xt=urn:btih:01BDC1F6F1E494985917D5B4CC16F17E5EC31B62
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237736.jpgsave_picture_237736.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Imaginature - Imaginature (2021) [AAC|~346 Kbps] <Metal>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237737.jpgsave_picture_237737.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ magnet:?xt=urn:btih:2A3A7E6E55E6FE335951CDB96B3216AF9CE634FF
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237738.jpgsave_picture_237738.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Speed Limit - Cut A Long Story Short (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237739.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237739.jpgsave_picture_237739.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ magnet:?xt=urn:btih:FCE8BF6F4E4ED01E094A4F338300E0C76724A738
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237740.jpgsave_picture_237740.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ magnet:?xt=urn:btih:3CF200070FCE181B43527EA651DA420C29C2196C
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237741.jpgsave_picture_237741.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ Spotify 1.2.10.751 (Repack & Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237742.jpgsave_picture_237742.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Hides 5.4.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237743.jpgsave_picture_237743.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191427.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191427.jpgsave_picture_191427.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:410FE2451DFBB6B94668D9AA8A278E6A2A863D49
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191428.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191428.jpgsave_picture_191428.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ STEAMER - Phoenix Lepidoptera (2022) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191429.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191429.jpgsave_picture_191429.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:6B4029A4206FC5874D1EC2D0A4F0308DAE5732BB
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191430.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191430.jpgsave_picture_191430.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Whimsical - Emissary (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Neo
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191431.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191431.jpgsave_picture_191431.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ VA - Atomic Heart, Vol. 3 (Original Game Soundtrack) (2023) [FLAC 24/48|Lossless
 >>OST (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191432.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191432.jpgsave_picture_191432.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:116DDB3353491E7E849328DCDBDF8E39DACCAAEA
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191433.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191433.jpgsave_picture_191433.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:3E368F71672A6FF1C79287B933F5B2D2D075433A
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_191434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191434.jpgsave_picture_191434.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ Stonegazer - The End of Our World (2020) [FLAC|Lossless|WEB-DL|tracks] <Stoner R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191435.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191435.jpgsave_picture_191435.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ Total Commander 11.01 (07.09.2023) Portable by MiG [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191436.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191436.jpgsave_picture_191436.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ Matthew Cornes - The Devil's Retro Raceway (2022) [FLAC|Lossless|WEB-DL|tracks] 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191437.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191437.jpgsave_picture_191437.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ magnet:?xt=urn:btih:93CE20FBCDB11CA5B63274D4C9AE529471C80855
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191438.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191438.jpgsave_picture_191438.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ Varia - Awakened by the Setting Sun (2022) [FLAC|Lossless|WEB-DL|tracks] <Metalc
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191439.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191439.jpgsave_picture_191439.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ magnet:?xt=urn:btih:F56D7AC7DB94CD9D8C2E8DF9EE7B83723DC7200B
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191440.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191440.jpgsave_picture_191440.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ magnet:?xt=urn:btih:FEDF216163C80650BA9A0D854ABAC236BC28C094
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191441.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191441.jpgsave_picture_191441.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ magnet:?xt=urn:btih:FEDF216163C80650BA9A0D854ABAC236BC28C094
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_191442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191442.jpgsave_picture_191442.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ magnet:?xt=urn:btih:C256210AFC98F8E9F023E7BE983243198EC5702E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191443.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191443.jpgsave_picture_191443.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ magnet:?xt=urn:btih:E63A35AB9D26C1B6EFD92ED4DCB225CB7F9905D0
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191444.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191444.jpgsave_picture_191444.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ magnet:?xt=urn:btih:C49A8B5D263497E1D7BE340945B8A405E3A4FB1C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191445.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191445.jpgsave_picture_191445.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ magnet:?xt=urn:btih:7E9BA5311EB6B19B6F9724414C6CE4895AC9F9E4
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191446.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191446.jpgsave_picture_191446.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ magnet:?xt=urn:btih:AE37B6B62A58505D0DCC05F3DF59D0950CADDE11
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191447.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191447.jpgsave_picture_191447.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Forkill - Sick Society (2022) [FLAC|Lossless|WEB-DL|tracks] <Thrash, Heavy Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191448.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191448.jpgsave_picture_191448.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ magnet:?xt=urn:btih:C4DE56628B7028ADF0558BD0DAE3018FCA2604A6
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191449.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191449.jpgsave_picture_191449.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ magnet:?xt=urn:btih:0F7AFABB8206E474406A761C17961721E0FAC033
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191450.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191450.jpgsave_picture_191450.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ magnet:?xt=urn:btih:A35ABF104AB8A142C9C56E79879799B209C8C823
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191451.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191451.jpgsave_picture_191451.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ magnet:?xt=urn:btih:1EBCEEAD06D4E372A778D24B685F40F9FA0D5517
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191452.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191452.jpgsave_picture_191452.jpg" />
 </div>
 
 

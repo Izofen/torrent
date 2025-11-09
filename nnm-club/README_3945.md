@@ -6,7 +6,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123058.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123058.jpgsave_picture_123058.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Proxyman for Mac 4.16.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123059.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123059.jpgsave_picture_123059.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ iON: Internet Status 5.7 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123060.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123060.jpgsave_picture_123060.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ Ravenstine - 2024 (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard & Heavy>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123061.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123061.jpgsave_picture_123061.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ Artificial Heaven - Digital Dreams (2024) [FLAC|Lossless|WEB-DL|tracks] <Gothic 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123062.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123062.jpgsave_picture_123062.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ magnet:?xt=urn:btih:3DF533C39EB721E03886960C9C59961D38017DE1
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123063.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123063.jpgsave_picture_123063.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ Ryujin - RYUJIN (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Metal, Melodic Death
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123064.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123064.jpgsave_picture_123064.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ magnet:?xt=urn:btih:6B8FFEA8CDAE06FB41A9ED96411D1E2FD557BC52
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123065.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123065.jpgsave_picture_123065.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ TransData: Internet Data Speed 3.2 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123066.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123066.jpgsave_picture_123066.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ Temperance - The Earth Embraces Us All (2016) Japanese Edition, Rubicon Music [F
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123067.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123067.jpgsave_picture_123067.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ magnet:?xt=urn:btih:723016A925DF8C525FEBDE1C22D82EAFA6B69BF5
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123068.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123068.jpgsave_picture_123068.jpg" />
 </div>
 
 
@@ -289,7 +289,7 @@ Temperance - Limitless (2015) [FLAC|Lossless|WEB-DL|tracks] <Melodic Heavy, Powe
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123069.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123069.jpgsave_picture_123069.jpg" />
 </div>
 
 
@@ -316,7 +316,7 @@ The Grandmaster - Black Sun (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodi
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123070.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123070.jpgsave_picture_123070.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ Butler 4.4.8 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123071.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123071.jpgsave_picture_123071.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ magnet:?xt=urn:btih:A2D00A298C99590B84DD35BB0AD84303105BF0C7
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123072.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123072.jpgsave_picture_123072.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ EzyCal: Time & Date 2.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123073.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123073.jpgsave_picture_123073.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ Clipsy: Clipboard Manager 2.1 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123074.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123074.jpgsave_picture_123074.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ Cover Desk 1.7 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123075.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123075.jpgsave_picture_123075.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Translator App : Linguist 3.2 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123076.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123076.jpgsave_picture_123076.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ magnet:?xt=urn:btih:EDF59C9BD20257A4DC6AC66AE7C83E006F31C090
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123077.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123077.jpgsave_picture_123077.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Aiseesoft Mac Video Converter Ultimate for Mac 10.5.18 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123078.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123078.jpgsave_picture_123078.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ VA - Best Vocal Songs of 2023 (2023) [MP3|320 Kbps] <Dance, Club, House, Electro
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123079.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123079.jpgsave_picture_123079.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ VA - Winter Dance Hits 2024 (2024) [MP3|320 Kbps] <Dance, Club, House, Electroni
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123080.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123080.jpgsave_picture_123080.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ magnet:?xt=urn:btih:032376EF784A6904BB032EE2C9604E145684531E
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123081.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123081.jpgsave_picture_123081.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ magnet:?xt=urn:btih:79E57F4ACDCF8A06F8BC7EBCC6ED4B174EB1ACD1
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123082.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123082.jpgsave_picture_123082.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Pixelmator Pro 3.5.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123083.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123083.jpgsave_picture_123083.jpg" />
 </div>
 
 

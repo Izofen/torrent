@@ -6,7 +6,7 @@ Crossover - Pythagorized (2011) [MP3|320 кб/с]<Industrial/Sympho Black Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97423.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97423.jpgsave_picture_97423.jpg" />
 </div>
 
 
@@ -39,7 +39,7 @@ Sleipnir - Bloodbrothers (2010) [MP3|320 кб/с]<Epic Viking Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97425.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97425.jpgsave_picture_97425.jpg" />
 </div>
 
 
@@ -71,7 +71,7 @@ OverMaster - Madness Of War (2010) [MP3|320 кб/с]<Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97435.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97435.jpgsave_picture_97435.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ At The Ruins - Death Earth Empire (2012) [MP3|320 кб/с]<Post-Hardcore / Elect
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97711.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97711.jpgsave_picture_97711.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ Vespera - Desert Of The Real (2011) [MP3|320 кб/с]<Gothic / Industrial Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97724.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97724.jpgsave_picture_97724.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Obsidian Gate - Colossal Christhunt (2001) [MP3|320 кб/с]<Symphonic Black Met
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97727.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97727.jpgsave_picture_97727.jpg" />
 </div>
 
 
@@ -196,7 +196,7 @@ The Real McKenzies - Westwinds (2012) [MP3|320 кб/с]<Folk-Punk-Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97893.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97893.jpgsave_picture_97893.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ VA - Songs Of Protest (1987) [MP3|320 кб/с]<Psychedelic Pop/Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98222.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98222.jpgsave_picture_98222.jpg" />
 </div>
 
 
@@ -262,7 +262,7 @@ The Aether Tree - Esperanza (2011) [MP3|320 кб/с]<Avant-Garde Metal / World J
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98288.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98288.jpgsave_picture_98288.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Bejelit - Emerge (2012) [MP3|320 кб/с]<Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98382.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98382.jpgsave_picture_98382.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Begging For Incest - Orgasmic Selfmutilation (2012) [MP3|320 кб/с]<Brutal Dea
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98466.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98466.jpgsave_picture_98466.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ New Eden - Solving for X (2012) [MP3|320 кб/с]< Progressive Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98482.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98482.jpgsave_picture_98482.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ Warhorse - Live At Woods (2025) 2xCD, Japanese Edition [FLAC|Lossless|image + .c
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98563.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98563.jpgsave_picture_98563.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Hopelezz - Black Souls Arrive (2012) [MP3|320 кб/с]<Melodic Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98584.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98584.jpgsave_picture_98584.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Solitude - Tied To The Anchor (2012) [MP3|256 кб/с]<Melodic Metalcore>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98596.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98596.jpgsave_picture_98596.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ Dimension Act - Manifestation Of Progress (2012) [MP3|320 кб/с]<Progressive M
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98600.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98600.jpgsave_picture_98600.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Antropofagus - Architecture Of Lust (2012) [MP3|320 кб/с]<Brutal Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98700.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98700.jpgsave_picture_98700.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Black Sheep Wall - No Matter Where It Ends (2012) [MP3|320 кб/с]<Sludge Post-
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98771.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98771.jpgsave_picture_98771.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Dark Moor - Best Ballads (2012) [MP3|320 кб/с]<Symphonic Power Metal>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98961.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98961.jpgsave_picture_98961.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Job For A Cowboy - Demonocracy (2012) [MP3|320 кб/с]<Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99029.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99029.jpgsave_picture_99029.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ Tyrant Of Death - Re Connect (2012) [MP3|320 кб/с]<Math Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99031.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99031.jpgsave_picture_99031.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ Blotted Science - 2 Albums (2007 - 2011) [MP3|320 кб/с]<Instrumental/Progress
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99078.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99078.jpgsave_picture_99078.jpg" />
 </div>
 
 
@@ -699,7 +699,7 @@ Canvas Solaris - Irradiance (2010) [MP3|320 кб/с]<Instrumental Progressive Te
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99173.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99173.jpgsave_picture_99173.jpg" />
 </div>
 
 
@@ -724,7 +724,7 @@ Rise To Fall - Defying The Gods (2012) [MP3|320 кб/с]<Modern Melodic Death Me
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99199.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99199.jpgsave_picture_99199.jpg" />
 </div>
 
 
@@ -757,7 +757,7 @@ Gaia Epicus - Dark Secrets (2012) [MP3|320 кб/с]<Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99203.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99203.jpgsave_picture_99203.jpg" />
 </div>
 
 
@@ -790,7 +790,7 @@ Volkerball - Weichen Und Zunder (2012) [MP3|224 кб/с]<Industrial Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99256.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99256.jpgsave_picture_99256.jpg" />
 </div>
 
 

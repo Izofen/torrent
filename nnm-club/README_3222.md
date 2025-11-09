@@ -6,7 +6,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104124.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104124.jpgsave_picture_104124.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ MotoGP. Этап 14 из 20. Гран-при Эмилии-Романьи. Спр
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104125.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104125.jpgsave_picture_104125.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Joan As Police Woman - Lemons, Limes and Orchids (2024) [FLAC 24/96|Lossless|WEB
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104126.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104126.jpgsave_picture_104126.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Asia Monet Ray - Asia Monet (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <R&B, S
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104127.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104127.jpgsave_picture_104127.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Atlas Genius - End Of The Tunnel (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Ind
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104128.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104128.jpgsave_picture_104128.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ Nicky Elisabeth - The Way Of Love (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104129.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104129.jpgsave_picture_104129.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Big Mel - Blue Rose (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues, Soul>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104130.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104130.jpgsave_picture_104130.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ magnet:?xt=urn:btih:D848556B02718361C4EB44CA694FAB8214B59C17
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104132.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104132.jpgsave_picture_104132.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ VA - Trance Fusion Vol. 06 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104133.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104133.jpgsave_picture_104133.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Nicky Elisabeth - The Way Of Love (2024) [MP3|320 Kbps] <Downtempo, House, Dance
 >>Downtempo, Trip-Hop, Lounge
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104134.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104134.jpgsave_picture_104134.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ magnet:?xt=urn:btih:510035E8993F8137AC426CE6599CF8B829CF037E
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104135.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104135.jpgsave_picture_104135.jpg" />
 </div>
 
 
@@ -291,7 +291,7 @@ Who's That Flying?! (2011) [En] (1.0) Scene PROPHET
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104136.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104136.jpgsave_picture_104136.jpg" />
 </div>
 
 
@@ -315,7 +315,7 @@ VA - Hola Hola Compilation (1995) [OGG Vorbis|480 Kbps] <Electronic, Eurodance, 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104137.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104137.jpgsave_picture_104137.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ magnet:?xt=urn:btih:A99C5E8A5323E2161E27E9379411D992C37F17ED
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104138.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104138.jpgsave_picture_104138.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ magnet:?xt=urn:btih:00BC863288DD5F7F08181008909E4D143B031447
 >>Религия (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104139.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104139.jpgsave_picture_104139.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ magnet:?xt=urn:btih:7D1B8C303BFD49EFDC551D1F69BD70111483FC24
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104140.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104140.jpgsave_picture_104140.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ VA - DJ Dance 96 Volume 9 (1996) [OGG Vorbis|480 Kbps] <Electronic, Pop, Eurodan
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104141.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104141.jpgsave_picture_104141.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:62630C88046E8D593AB7587207A3C642A463FA60
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104142.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104142.jpgsave_picture_104142.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ MotoGP. Этап 14 из 20. Гран-при Эмилии-Романьи. Гон
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104143.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104143.jpgsave_picture_104143.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ magnet:?xt=urn:btih:615FC6088AC6E64F0CBA14568FFCADA692A86B0E
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104144.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104144.jpgsave_picture_104144.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ magnet:?xt=urn:btih:30220816AD5E1AFC3000146668C3211CFA29BED3
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104145.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104145.jpgsave_picture_104145.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ magnet:?xt=urn:btih:007B7C9341C23565BFE648D7BDE30733E93CA05E
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104146.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104146.jpgsave_picture_104146.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Alastair Greene, Eric Johanson & Katarina Pejak - Blues Caravan 2024 (Blues Cara
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104147.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104147.jpgsave_picture_104147.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Jessica Ackerley - All Of the Colours Are Singing (2024) [FLAC 24/96|Lossless|WE
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104148.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104148.jpgsave_picture_104148.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Lucinda Williams - Lucinda Williams (1988) Unofficial Release [FLAC 2.0|48/24|im
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104149.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104149.jpgsave_picture_104149.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ magnet:?xt=urn:btih:8B480B570961275EA1EFA46DD7CCD1469CC2A55D
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104150.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104150.jpgsave_picture_104150.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82797.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82797.jpgsave_picture_82797.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Revolver - Let Go (2012) [MP3|320 кб/с]<Indie Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82798.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82798.jpgsave_picture_82798.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ magnet:?xt=urn:btih:A7722A880658689E686CBF9B0DB36DC054167230
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82800.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82800.jpgsave_picture_82800.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:90975A04AB90A3C43E49E29797BE53981419E2F6
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82801.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82801.jpgsave_picture_82801.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ magnet:?xt=urn:btih:C5C24E1D870E7B16D124B01955A20F1A1CEF8B89
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82805.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82805.jpgsave_picture_82805.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ magnet:?xt=urn:btih:9FB0E1BF5CE4D7377C97C698D3A0C6E29DDF0C44
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82806.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82806.jpgsave_picture_82806.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Contino - Back Porch Dogma (2012) [WavPack|Lossless]<Modern Electric Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82808.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82808.jpgsave_picture_82808.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ VA - RCA Victor: 80th Anniversary (1997)[9CD Box Set] [FLAC|Lossless]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82810.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82810.jpgsave_picture_82810.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ VA - RCA Victor: 80th Anniversary (1997)[9CD Box Set] [FLAC|Lossless]<Jazz>
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82811.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82811.jpgsave_picture_82811.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:C4EB6E012A90100D99A160B2D054B012442C214C
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82812.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82812.jpgsave_picture_82812.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ Soen - Cognitive (2012) [FLAC|Lossless]<Progressive Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82813.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82813.jpgsave_picture_82813.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ Soen - Cognitive (2012) [FLAC|Lossless]<Progressive Metal>
 >>Зарубежная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82822.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82822.jpgsave_picture_82822.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ Marilyn Manson - No Reflection (Single) (2012) [MP3|320 кб/с]<Alternative, In
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82824.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82824.jpgsave_picture_82824.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ VA - Hot Break Dance 2CD (2012) [MP3|320 кб/с]<Break Dance, Hip-Hop>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82825.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82825.jpgsave_picture_82825.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ Soulfly - Enslaved (2012) [FLAC|Lossless]<Groove Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82826.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82826.jpgsave_picture_82826.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Kaspersky Virus Removal Tool 2011 11.0.0.1245 от 16.03.2012 года [русс
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82829.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82829.jpgsave_picture_82829.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ VA - TOP 100 самые скачиваемые клубные треки by Dj N
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82832.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82832.jpgsave_picture_82832.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ magnet:?xt=urn:btih:F8EB69B6CE5C522E7C945758745374800FE7B2EB
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82838.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82838.jpgsave_picture_82838.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ magnet:?xt=urn:btih:F8EB69B6CE5C522E7C945758745374800FE7B2EB
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82841.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82841.jpgsave_picture_82841.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Olga Kouklaki - I U Need (2012) [MP3|320 Kbps]<Downtempo, Electropop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82842.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82842.jpgsave_picture_82842.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ magnet:?xt=urn:btih:BAEB230B0390BF235F4F889FCD71BD88EAE8B442
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82844.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82844.jpgsave_picture_82844.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ magnet:?xt=urn:btih:BAEB230B0390BF235F4F889FCD71BD88EAE8B442
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82845.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82845.jpgsave_picture_82845.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ magnet:?xt=urn:btih:A2CD6DA6FBB59AB73B3698F4C658306C826C6EC9
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82847.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82847.jpgsave_picture_82847.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ magnet:?xt=urn:btih:4F4BF703A03C4769009071FF1561053B894F73AD
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82848.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82848.jpgsave_picture_82848.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ magnet:?xt=urn:btih:8981F09A21A6FB10E61094F0FD80FB2D68B5697E
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82849.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82849.jpgsave_picture_82849.jpg" />
 </div>
 
 
@@ -697,7 +697,7 @@ VA - Асса! Танцуют Все! (2012) [MP3|192-320 kbps]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82850.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82850.jpgsave_picture_82850.jpg" />
 </div>
 
 

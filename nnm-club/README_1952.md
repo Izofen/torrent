@@ -6,7 +6,7 @@
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51109.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51109.jpgsave_picture_51109.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:934FC63A13FD7FEABDC3AD254BAA7035A1395ECB
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51110.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51110.jpgsave_picture_51110.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ Megacubo 17.5.0 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51111.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51111.jpgsave_picture_51111.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Mountains of Madness (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51112.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51112.jpgsave_picture_51112.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Topaz Gigapixel AI 7.2.2 (x64) RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51113.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51113.jpgsave_picture_51113.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ ONLYOFFICE 8.1.0.169 Portable by 7997 [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51114.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51114.jpgsave_picture_51114.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ Advanced SystemCare Pro 17.5.0.255 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51115.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51115.jpgsave_picture_51115.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:C460D6999A2AD8352DF3CF328C51D82920062A3E
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51116.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51116.jpgsave_picture_51116.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ COMSOL Multiphysics 6.2 Build 339 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51117.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51117.jpgsave_picture_51117.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:4D237F49C7CBA84512EA15A8DE59BA2D13864705
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51118.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51118.jpgsave_picture_51118.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:A6C0A2E1A803E39ECF08B31CFC4F8A5F539EFEBE
 >>Экранки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51119.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51119.jpgsave_picture_51119.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:71265DE8E3E008763A5D9CBDC310E2F5CC340983
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51120.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51120.jpgsave_picture_51120.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:E5DDA834F0E79C5F78FAFF7E98329ADAA03E6586
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51121.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51121.jpgsave_picture_51121.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Proteus Professional 8.17 SP2 Build 37159 by nekto78 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51122.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51122.jpgsave_picture_51122.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ magnet:?xt=urn:btih:9F0437BA8EDE4F34EF57025E00E1DDFCF41D05B8
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51123.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51123.jpgsave_picture_51123.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ magnet:?xt=urn:btih:486AF12D22DBBC7DB23A599077D5DE820E0EB8A5
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51124.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51124.jpgsave_picture_51124.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ magnet:?xt=urn:btih:34F7EA90F423DE1CEAA8D49BB504322AB54B657B
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51125.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51125.jpgsave_picture_51125.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ magnet:?xt=urn:btih:34F7EA90F423DE1CEAA8D49BB504322AB54B657B
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51126.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51126.jpgsave_picture_51126.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ magnet:?xt=urn:btih:F981EC25DCA23C23F363E3EE26A348E437966E56
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51127.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51127.jpgsave_picture_51127.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ magnet:?xt=urn:btih:6B4A1441DFBE8C59FCBC3CD812A4F8B2D16077F9
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51128.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51128.jpgsave_picture_51128.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ magnet:?xt=urn:btih:C1C88DC46944DE75324B1483A8024FA4CB473298
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51129.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51129.jpgsave_picture_51129.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:AF45BB9287C78DC959E04A243039902FFFCF5F2E
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51130.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51130.jpgsave_picture_51130.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ magnet:?xt=urn:btih:76FAF0086D8C051286F59B997D0D60235ECA3283
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51131.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51131.jpgsave_picture_51131.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ magnet:?xt=urn:btih:07BB9151D023741068EDF4A0D2AAB02948F634A3
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51132.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51132.jpgsave_picture_51132.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ magnet:?xt=urn:btih:07BB9151D023741068EDF4A0D2AAB02948F634A3
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51133.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51133.jpgsave_picture_51133.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ magnet:?xt=urn:btih:07BB9151D023741068EDF4A0D2AAB02948F634A3
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51134.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51134.jpgsave_picture_51134.jpg" />
 </div>
 
 

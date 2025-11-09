@@ -6,7 +6,7 @@
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140102.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140102.jpgsave_picture_140102.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Daum PotPlayer 1.7.16291 Stable RePack (& portable) by 7sh3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140103.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140103.jpgsave_picture_140103.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:B29969539CE2D5457EA308AAD3959A2B4A68E800
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140104.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140104.jpgsave_picture_140104.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:E66AB457ED69B7AFD264861D61719116773F759C
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140105.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140105.jpgsave_picture_140105.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Grand Magus - Sword Songs (2016) Japan [WavPack|Lossless|image + .cue] <Heavy Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140106.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140106.jpgsave_picture_140106.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:0EAD917E7C5739616794D6480A419E7D19B1ABA8
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140109.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140109.jpgsave_picture_140109.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ VA - Instrumental Vibes (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140111.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140111.jpgsave_picture_140111.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:02D6BB6C58D8A0B725CF5283F12C8B5BB11638C1
 >>Титры (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140112.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140112.jpgsave_picture_140112.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ magnet:?xt=urn:btih:702452EA3D6EE61869356B083306F70D40725616
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140113.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140113.jpgsave_picture_140113.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ Yate 5 v5.0.3.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140115.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140115.jpgsave_picture_140115.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ magnet:?xt=urn:btih:686E5C3CF65D13B657ED17DEEA566E471A310FD9
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140116.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140116.jpgsave_picture_140116.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ magnet:?xt=urn:btih:D27149052957FFD3E9B3FA9DEA0F1AF3587C7CB8
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140117.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140117.jpgsave_picture_140117.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ magnet:?xt=urn:btih:E8E950A60383FA2388E07B422D6263556357A5B9
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140119.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140119.jpgsave_picture_140119.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ magnet:?xt=urn:btih:A5B246E031A3389CBFA02359734EE0D8BA753490
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140120.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140120.jpgsave_picture_140120.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ magnet:?xt=urn:btih:FEF18D11608260E99E620DB19E7BF3CBB214A3A3
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140121.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140121.jpgsave_picture_140121.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ magnet:?xt=urn:btih:90699C801CE055B1F45FD81C5140125F08B81D7F
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140122.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140122.jpgsave_picture_140122.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Wise Care 365 Pro 4.7.7.460 Final RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140123.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140123.jpgsave_picture_140123.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Adguard 1.4.0 (372) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140124.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140124.jpgsave_picture_140124.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Laurence Jones - Thunder In The Sky (2012) [FLAC|Lossless]<Blues/Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140125.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140125.jpgsave_picture_140125.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ Michael Feinstein & Maynard Ferguson - Big City Rhythms (1999) Concord Records [
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140126.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140126.jpgsave_picture_140126.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ magnet:?xt=urn:btih:B363C2F0908D58B389F33092A1FB0AC979528C1F
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140127.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140127.jpgsave_picture_140127.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ magnet:?xt=urn:btih:9CD3025043F7FCC85204D5C2B46399A87A905FB6
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140128.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140128.jpgsave_picture_140128.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ magnet:?xt=urn:btih:2C29F021D0E6DAEFFE7087E931AA338EC8E83E82
 >>История
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140129.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140129.jpgsave_picture_140129.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ magnet:?xt=urn:btih:3E8CAB3E1D078DD7708A9674C47E44704B2FB533
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140130.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140130.jpgsave_picture_140130.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ magnet:?xt=urn:btih:6BF7C20CBD627338FF86E856C9D4404A12319582
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140131.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140131.jpgsave_picture_140131.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ magnet:?xt=urn:btih:451E2D89229504A6C07A643CD070F662185701A3
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140132.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140132.jpgsave_picture_140132.jpg" />
 </div>
 
 

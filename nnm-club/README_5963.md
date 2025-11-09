@@ -6,7 +6,7 @@ MediaHuman YouTube Downloader 3.9.9.85 (1309) RePack (& Portable) by TryRooM [Mu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187727.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187727.jpgsave_picture_187727.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:BE83406DCCFC6645A0E6DF7240A00A4274671808
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187728.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187728.jpgsave_picture_187728.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:EE4149266E66C0BC8A500DDC29F18E203A781C38
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_187730.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_187730.jpgsave_picture_187730.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Reflections of Life 11: Spindle of Fate / Отражения жизни 11: Ве
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187731.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187731.jpgsave_picture_187731.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ VA - Happy New Year 1995! (1994) Compilation, Unofficial [FLAC|Lossless|tracks +
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187732.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187732.jpgsave_picture_187732.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Reg Organizer 9.30 Beta 1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187733.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187733.jpgsave_picture_187733.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Sante DICOM Viewer Pro 12.2.7 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_187734.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_187734.jpgsave_picture_187734.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:564B1D77FA13E21264F2E28272F40F15862B69A4
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187735.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187735.jpgsave_picture_187735.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ IINA 1.3.1 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187736.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187736.jpgsave_picture_187736.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:203F47AEAF0CAF8ED9F8FA53B8612536C1E8E737
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187737.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187737.jpgsave_picture_187737.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ magnet:?xt=urn:btih:E9AF2AD05CF59839214499E53263B7D4A1D2ADEA
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187738.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187738.jpgsave_picture_187738.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ magnet:?xt=urn:btih:F68A25CE36FD1CEDD602EBB8538F1EE0098293B8
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187739.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187739.jpgsave_picture_187739.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ VA - Black Hole Trance Music 07-23 (2023) [FLAC|Lossless|WEB-DL|tracks] <Progres
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187740.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187740.jpgsave_picture_187740.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Microsoft Windows 11 [10.0.22000.1219], Version 21H2 (Updated November 2022) - �
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187741.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187741.jpgsave_picture_187741.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Sante DICOM Editor 8.2.7 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_187742.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_187742.jpgsave_picture_187742.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ magnet:?xt=urn:btih:FCD47822AE149E980665DC2A3B0361B606A23A2D
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187743.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187743.jpgsave_picture_187743.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ magnet:?xt=urn:btih:1B4BF0A89F3EDBC6AAE4652BA7FCAC7E2CF0528F
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187744.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187744.jpgsave_picture_187744.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ magnet:?xt=urn:btih:BD48CE6255CD8BEF9786278231DE743CBE6D0EDF
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187745.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187745.jpgsave_picture_187745.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Aiseesoft Video Converter Ultimate 10.5.52 RePack (& Portable) by TryRooM [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187746.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187746.jpgsave_picture_187746.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Unsolved Case: Fatal Clue (2022) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187747.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187747.jpgsave_picture_187747.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ IObit Uninstaller Free 12.1.0.6 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187748.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187748.jpgsave_picture_187748.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ magnet:?xt=urn:btih:2BC03603BF63D7DB7D4BB0BAE01BE7B8D5D39E39
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187749.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187749.jpgsave_picture_187749.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ magnet:?xt=urn:btih:0BA1F49FF3C433725CE284317BA96F19E2951E1D
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187750.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187750.jpgsave_picture_187750.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ magnet:?xt=urn:btih:73BED813EF5460F9B9625203B98C2F331C1CC0C6
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187751.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187751.jpgsave_picture_187751.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ HWiNFO 7.63 Build 5205 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187752.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187752.jpgsave_picture_187752.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ magnet:?xt=urn:btih:5D70CF4FEA7B439CE516D579EEEBD047A2F03E0C
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187753.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187753.jpgsave_picture_187753.jpg" />
 </div>
 
 

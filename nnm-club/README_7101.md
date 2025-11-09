@@ -6,7 +6,7 @@ Disturbed - Down With The Sickness (2001) Single, Promo [FLAC|Lossless|tracks + 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243531.jpgsave_picture_243531.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Topaz Photo AI 1.2.9 (x64) RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243532.jpgsave_picture_243532.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ VA - Europa Plus №7 (2016) [MP3|256 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243533.jpgsave_picture_243533.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ magnet:?xt=urn:btih:8866D18875D1B7FB556EA349E361A2966412EE85
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243534.jpgsave_picture_243534.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ Draw.io 21.1.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243535.jpgsave_picture_243535.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ Ronnie Atkins - Make It Count (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243536.jpgsave_picture_243536.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ magnet:?xt=urn:btih:88385C7A479303D2640663648DD4D2F3E1E90694
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243537.jpgsave_picture_243537.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ magnet:?xt=urn:btih:F800420BC1F70D760022A511C21A8F5F37FD57D4
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243538.jpgsave_picture_243538.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ Rosicrucian - No Cause for Celebration (1994) [FLAC|Lossless|image + .cue] <Thra
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243539.jpgsave_picture_243539.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ magnet:?xt=urn:btih:93DEF2FA3CE3FF61BAC27963352735230C11A66B
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243540.jpgsave_picture_243540.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ magnet:?xt=urn:btih:090BE34C366D33F8FF6A7811E1376197D804F15F
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243541.jpgsave_picture_243541.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ magnet:?xt=urn:btih:C2BA11FF867256F6752A719689408AE04B72643C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243542.jpgsave_picture_243542.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ VA - Top 100 DJs Chart (24-March-2023) (2023) [MP3|320 Kbps] <Pop, Dance, Electr
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243545.jpgsave_picture_243545.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ magnet:?xt=urn:btih:E9C2D0EDE89227924E262E762FFCC7A1C746099A
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243546.jpgsave_picture_243546.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ First Signal - Face Your Fears (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243547.jpgsave_picture_243547.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ Duplicate File Finder Pro 6.13  [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243548.jpgsave_picture_243548.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ magnet:?xt=urn:btih:C6EB005789C202CA04B48DC31063A7AC8E9B2E57
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243549.jpgsave_picture_243549.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ magnet:?xt=urn:btih:BB292064E3E0672CCBAB045DC7C4F6CFDC413CAC
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243550.jpgsave_picture_243550.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ magnet:?xt=urn:btih:65D53D3C2D8D316A8014C13466E27D5FE33ED87C
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243551.jpgsave_picture_243551.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Subheim - Trails (2016) Denovali Records [FLAC|Lossless|WEB-DL|tracks] <Experime
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243552.jpgsave_picture_243552.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ Deimos' Dawn - Anthem Of The Lost (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243553.jpgsave_picture_243553.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Merciless Law - Troops Of Steel (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243554.jpgsave_picture_243554.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ VA - Global Trance Masters Vol. 5 (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243556.jpgsave_picture_243556.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ magnet:?xt=urn:btih:8AFAE7817A7157FA779A6AD9C71C361B205669E1
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243557.jpgsave_picture_243557.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ FxFactory Pro 8.0.5 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243558.jpgsave_picture_243558.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ IP Scanner Pro 3.51.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243560.jpgsave_picture_243560.jpg" />
 </div>
 
 

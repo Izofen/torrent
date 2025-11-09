@@ -6,7 +6,7 @@ Pink Mountaintops - Peacock Pools (2022) [FLAC|Lossless|WEB-DL|tracks] <Indie Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233851.jpgsave_picture_233851.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Degrees of Truth - Time Travel Artifact (2019) [MP3|320 Kbps] <Symphonic Progres
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233853.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233853.jpgsave_picture_233853.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Mats Karlsson - Mood Elevator (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, C
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233862.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233862.jpgsave_picture_233862.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:CC971319218B50EAC6AABC030F1618BD4B1E4738
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233863.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233863.jpgsave_picture_233863.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Hex A.D. - Astro Tongue in the Electric Garden (2020) [FLAC|Lossless|WEB-DL|trac
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233871.jpgsave_picture_233871.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Kadavermarch - Into Oblivion (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Psyched
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233876.jpgsave_picture_233876.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Gorky Park - Moscow Calling (1992) Reissue, Remastered, 2023, Moroz Records [FLA
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233882.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233882.jpgsave_picture_233882.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Strange Horizon - Beyond the Strange Horizon (2022) [MP3|320 Kbps] <Doom Metal, 
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233884.jpgsave_picture_233884.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Necronomicon - Constant to Death (2023) [FLAC|Lossless|image + .cue] <Thrash Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233887.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233887.jpgsave_picture_233887.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Shatter - 2 Albums (2021) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Death Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233889.jpgsave_picture_233889.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ August Burns Red - Leveler Live (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternativ
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233893.jpgsave_picture_233893.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Altaria - Invitation (2003) Remaster, 2022, Reaper [FLAC|Lossless|WEB-DL|tracks]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233907.jpgsave_picture_233907.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Degrees of Truth - The Reins of Life (2016) [MP3|320 Kbps] <Symphonic Progressiv
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233908.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233908.jpgsave_picture_233908.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Norium - A Journey Through the Soul (2022) [FLAC|Lossless|WEB-DL|tracks] <Power 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233915.jpgsave_picture_233915.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Kytowrath - Past to Become (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Gr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233923.jpgsave_picture_233923.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Birdstone - Loss (2022) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Rock, Stoner 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233930.jpgsave_picture_233930.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Hollow Rogues - Hollow Rogues (2022) [FLAC|Lossless|WEB-DL|tracks] <Modern South
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233939.jpgsave_picture_233939.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ Anthem - Gypsy Ways (20th Anniversary) (1988) Remaster, 2005, King Rec. [WavPack
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233948.jpgsave_picture_233948.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Scars - Trust No One! (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233955.jpgsave_picture_233955.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Abiotic - Symbiosis (2012) [FLAC|Lossless|image + .cue] <Progressive Deathcore, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233964.jpgsave_picture_233964.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Lightbreaker - The Annihilation of the Annealids (2023) [FLAC|Lossless|WEB-DL|tr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233968.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233968.jpgsave_picture_233968.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Avsky - Mass Destruction (2007) [FLAC|Lossless|tracks + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233971.jpgsave_picture_233971.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Abiotic - Casuistry (2015) [FLAC|Lossless|image + .cue] <Progressive Deathcore, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233977.jpgsave_picture_233977.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ Crazy Hammer - Roll the Dice (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_234002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_234002.jpgsave_picture_234002.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ Creedence Clearwater Revival - Travelin' Band: Creedence Clearwater Revival At T
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234007.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234007.jpgsave_picture_234007.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ Gladenfold - Nemesis (2022) [MP3|320 Kbps] <Melodic Death Metal, Symphonic Power
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_234009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_234009.jpgsave_picture_234009.jpg" />
 </div>
 
 

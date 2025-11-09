@@ -6,7 +6,7 @@ Pelican - Flickering Resonance (2025) Japan Edition [FLAC|Lossless|tracks + .cue
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65414.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65414.jpgsave_picture_65414.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Hellfox - The Spectrum Of Human Gravity (2025) [FLAC|Lossless|WEB-DL|tracks] <Go
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65419.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65419.jpgsave_picture_65419.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Apotheus - Ergo Atlas (2023) [FLAC|Lossless|image + .cue] <Art Rock, Progressive
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65431.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65431.jpgsave_picture_65431.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Rusty Sharks - Long Way to Freedom (2025) [FLAC|Lossless|WEB-DL|tracks] <Rockabi
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65434.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65434.jpgsave_picture_65434.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Angra - Cycles Of Pain (2023) [FLAC|Lossless|image + .cue] <Power Metal, Progres
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65438.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65438.jpgsave_picture_65438.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Wytch Hazel - V Lamentations (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65439.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65439.jpgsave_picture_65439.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Dimoria - Mass Of Messiah (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65440.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65440.jpgsave_picture_65440.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Enforced - Kill Grid (2021) [FLAC|Lossless|image + .cue] <Death Metal, Thrash>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65442.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65442.jpgsave_picture_65442.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ The Brains - Crazy Monster (2025) [FLAC|Lossless|WEB-DL|tracks] <punk rock, psyc
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65444.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65444.jpgsave_picture_65444.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Presto Ballet - Dreamentia (2025) [FLAC|Lossless|WEB-DL|tracks] <Progressive Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65445.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65445.jpgsave_picture_65445.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Gotteshorn - Augen Zu (2025) [FLAC|Lossless|WEB-DL|tracks] <Folk Metal, Rock pro
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65447.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65447.jpgsave_picture_65447.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Bosphorus Night - Heart Of Your World (2025) [FLAC|Lossless|WEB-DL|tracks] <Melo
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65453.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65453.jpgsave_picture_65453.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Neezi - Replica (2025) [FLAC|Lossless|WEB-DL|tracks] <Electronicore, Alternative
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65454.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65454.jpgsave_picture_65454.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Grimorio - On The Path Of The Morning Star (2025) [FLAC|Lossless|WEB-DL|tracks] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65458.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65458.jpgsave_picture_65458.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Ceremony - Solitary Bleed (2025) [FLAC|Lossless|WEB-DL|tracks] <Modern Death Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65463.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65463.jpgsave_picture_65463.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Ashes Of Reason - Crisis Catalyst (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65464.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65464.jpgsave_picture_65464.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Nosłeep - Trauma (2025) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal, Blackened Do
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65472.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65472.jpgsave_picture_65472.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Metal Detektor - Violence and Pride (2025) [FLAC|Lossless|WEB-DL|tracks] <Old Sc
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65489.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65489.jpgsave_picture_65489.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Amorphia - Lethal Dose (2022) [MP3|320 Kbps] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65492.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65492.jpgsave_picture_65492.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ The Atomic Bats - Bat Attack !!! (2025) [MP3|320 Kbps] <Psychobilly, punk, rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65494.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65494.jpgsave_picture_65494.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Signs of Algorithm - Sunchaser (2025) [MP3|320 Kbps] <Metalcore>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65498.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65498.jpgsave_picture_65498.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Amorphia - Lethal Dose (2022) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65501.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65501.jpgsave_picture_65501.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ magnet:?xt=urn:btih:E2F495DE29E62BD2E991A6655899A849A059EED8
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65502.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65502.jpgsave_picture_65502.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ magnet:?xt=urn:btih:1372C26CF3D424DCF00B907423F2CD53EC8910B7
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65503.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65503.jpgsave_picture_65503.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ magnet:?xt=urn:btih:1C1981B49AF0D670DEFF790F14A467867C0B265B
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65504.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65504.jpgsave_picture_65504.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ magnet:?xt=urn:btih:0FE46F6E006503706E84453F7A9696372AE304D2
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65505.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65505.jpgsave_picture_65505.jpg" />
 </div>
 
 

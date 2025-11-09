@@ -6,7 +6,7 @@ Photo Lab PRO v3.13.25 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47235.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47235.jpgsave_picture_47235.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:FC59B4EB5D23CB934FFBC3AF76419DD00CBD25BC
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47236.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47236.jpgsave_picture_47236.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Internet Download Manager 6.42 Build 19 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47237.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47237.jpgsave_picture_47237.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:7F328004638F73AA881E694C1B931415DAF3DD78
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47238.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47238.jpgsave_picture_47238.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:FC6F8A13DF415A9F85070D4E138C806983987314
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47239.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47239.jpgsave_picture_47239.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:D21650ED5338D7A4C58E101692FDDBB7A8517FE4
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47240.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47240.jpgsave_picture_47240.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ That Time I Got Reincarnated as a Slime ISEKAI Chronicles (2024) [Multi] (1.01) 
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47241.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47241.jpgsave_picture_47241.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:198A87EB17BFD522D9888E392F832D3378EEF93C
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47242.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47242.jpgsave_picture_47242.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:C3BFD5F903476D821EA6041D13E458772F319B02
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47243.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47243.jpgsave_picture_47243.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:A914838F4999B9F3F3909FEA52FFC857D50B6754
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47244.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47244.jpgsave_picture_47244.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:0DD3D717AFCBB7DDA4B9859AA67010571760A33A
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47245.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47245.jpgsave_picture_47245.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:6C59325EFB75CA1B1B32528EBA68A6AEF27F34FE
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47246.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47246.jpgsave_picture_47246.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Listonic / Список покупок v8.10.1 Mod by NURIK kz [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47247.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47247.jpgsave_picture_47247.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:B0125F672DB001A112DBFF8C1E0D455149D739B3
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47248.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47248.jpgsave_picture_47248.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Rainmeter 4.5.19 Build 3753 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47249.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47249.jpgsave_picture_47249.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:69BEAF2F04FB972817618C582FFD08A7CE27450C
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47250.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47250.jpgsave_picture_47250.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ magnet:?xt=urn:btih:76FB2618E54349AC6390C973DAD8769107E0C88E
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47251.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47251.jpgsave_picture_47251.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ magnet:?xt=urn:btih:DF2349D9C43A10B04361AD885D9EAB0607928335
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47252.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47252.jpgsave_picture_47252.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ Mullvad Browser 13.5.2 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47253.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47253.jpgsave_picture_47253.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ magnet:?xt=urn:btih:257C35DAF68866A2B629EC98A63A6348894B1305
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47254.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47254.jpgsave_picture_47254.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Moonless Moon (2024) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47255.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47255.jpgsave_picture_47255.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ magnet:?xt=urn:btih:3FAD495A0FE47B2EC898D88EFD06F1E43C5627C8
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47256.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47256.jpgsave_picture_47256.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ magnet:?xt=urn:btih:6F9630CF1345A7CD9509D28EC9DF9769A9B5EBE1
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47257.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47257.jpgsave_picture_47257.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Deathbound (2024) [Ru/Multi] (1.1.3) Scene FairLight
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47258.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47258.jpgsave_picture_47258.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Bandicam 7.1.3.2456 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47259.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47259.jpgsave_picture_47259.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ SteamWorld Heist II (2) (2024) [Ru/Multi] (1.3) Scene Tenoke [Deluxe Edition]
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47260.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47260.jpgsave_picture_47260.jpg" />
 </div>
 
 

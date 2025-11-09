@@ -6,7 +6,7 @@ Midnite City - In At The Deep End (2023) Japanese Edition [FLAC|Lossless|image +
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231391.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231391.jpgsave_picture_231391.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Bosparans Fall - Gotterspiel - Dunkle Zeiten (2023) [FLAC|Lossless|WEB-DL|tracks
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231392.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231392.jpgsave_picture_231392.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Ursular - Preta (2023) [FLAC|Lossless|WEB-DL|tracks] <Psych Doom, Saxodoom, Ston
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231393.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231393.jpgsave_picture_231393.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Yskelgroth - Bleeding of the Hideous (2023) [FLAC|Lossless|WEB-DL|tracks] <Black
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231396.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231396.jpgsave_picture_231396.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Tony Mitchell - Radio Heartbeat (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Ha
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231398.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231398.jpgsave_picture_231398.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Supernova Plasmajets - Supernova Plasmajets (2017) Reissue, 2023, Bug Valley Rec
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231399.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231399.jpgsave_picture_231399.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Critical Defiance - Misconception (2019) [MP3|320 Kbps] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231404.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231404.jpgsave_picture_231404.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ MotorTrinken - Cyborgmotorcycle (2017) [MP3|320 Kbps] <Heavy Metal, Hard Rock>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231411.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231411.jpgsave_picture_231411.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Antioch - Antioch VI: Molten Rainbow (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231413.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231413.jpgsave_picture_231413.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Crimson Fire - Another Dimension (2021) [FLAC|Lossless|image + .cue] <Power Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231415.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231415.jpgsave_picture_231415.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Thunder Horse - After The Fall (2023) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231420.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231420.jpgsave_picture_231420.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Spiritual Void - Wayfare (2023) [MP3|320 Kbps] <Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231421.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231421.jpgsave_picture_231421.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Parity Boot - Fast Forward (2023) [FLAC|Lossless|WEB-DL|tracks] <Industrial Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231427.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231427.jpgsave_picture_231427.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Der Dobermann - Don't Be Afraid, You Already Dead (2023) [FLAC|Lossless|WEB-DL|t
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231428.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231428.jpgsave_picture_231428.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Feuerschwanz - Fegefeuer (2023) 3 x CD, Deluxe Album [FLAC|Lossless|WEB-DL|track
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231429.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231429.jpgsave_picture_231429.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Somnuri - Desiderium (2023) [FLAC|Lossless|WEB-DL|tracks] <Sludge Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231434.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231434.jpgsave_picture_231434.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Green Inferno - Trace the Veins (2023) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231435.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231435.jpgsave_picture_231435.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Crimson Fire - Fireborn (2016) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231442.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231442.jpgsave_picture_231442.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ King Crimson - The Condensed 21st Century Guide To King Crimson 1969 - 2003 (200
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231448.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231448.jpgsave_picture_231448.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ Sorcia - Lost Season (2023) [FLAC|Lossless|WEB-DL|tracks] <Stoner, Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231449.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231449.jpgsave_picture_231449.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ Critical Defiance - No Life Forms (2022) [MP3|320 Kbps] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231450.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231450.jpgsave_picture_231450.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ Booze Control - Forgotten Lands (2019) [FLAC|Lossless|image + .cue] <Heavy Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231465.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231465.jpgsave_picture_231465.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ magnet:?xt=urn:btih:80620F2FFD5831E0172EF71449C4AB5DE756D4DC
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231469.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231469.jpgsave_picture_231469.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ Megattack - 2 Albums (1987-2023) [FLAC|Lossless|WEB-DL|tracks] <hard rock, heavy
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231475.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231475.jpgsave_picture_231475.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Voidceremony - Threads of Unknowing (2023) [FLAC|Lossless|WEB-DL|tracks] <Progre
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231479.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231479.jpgsave_picture_231479.jpg" />
 </div>
 
 
@@ -683,7 +683,7 @@ Black Nazareth - Black Nazareth (2022) [FLAC|Lossless|image + .cue] <Heavy Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231483.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231483.jpgsave_picture_231483.jpg" />
 </div>
 
 

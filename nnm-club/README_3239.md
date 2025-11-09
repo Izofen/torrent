@@ -6,7 +6,7 @@ VA - Urban Nightlife Sounds (Downtempo Funk Soul Jazz) (2024) [FLAC|Lossless|WEB
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104574.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104574.jpgsave_picture_104574.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ MotoGP. Этап 13 из 20. Гран-при Сан-Марино. Гонка (08
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104575.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104575.jpgsave_picture_104575.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ VA - Seductive Divine Easy Listening Relaxation Chilly Playlist (2024) [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104576.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104576.jpgsave_picture_104576.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ VA - Magical Chilly Relaxing Tunes for Calm and Quiet Vacation Time (2024) [FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104577.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104577.jpgsave_picture_104577.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ VA - Aperitivo Acid Jazz (2024) [FLAC|Lossless|WEB-DL|tracks] <Acid Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104578.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104578.jpgsave_picture_104578.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ VA - Divine Seductive Easy Listening Relaxation Chill Jazz Playlist (2024) [FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104579.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104579.jpgsave_picture_104579.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Scherer, Batten - BattleZone (2017) 2xCD, Reissue, Remastered, 2024, MelodicRock
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104580.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104580.jpgsave_picture_104580.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ magnet:?xt=urn:btih:3390D716B2FD0292682BE82D3DAAEBE5B243ADFB
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104581.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104581.jpgsave_picture_104581.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Tantrum - Sorrow-II (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104582.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104582.jpgsave_picture_104582.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Deadringer - Electrocution Of The Heart (1989) Reissue, Remastered, 2024, Bad Re
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104583.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104583.jpgsave_picture_104583.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Mike Tramp - Everything Is Alright (2021) [FLAC|Lossless|image + .cue] <Melodic 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104584.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104584.jpgsave_picture_104584.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Earthside - Studio Albums (2 releases) (2015-2023) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104585.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104585.jpgsave_picture_104585.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ VA - Magical Breathtaking Relaxing Tunes for Calmness and Quiet Beauty of a Vaca
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104586.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104586.jpgsave_picture_104586.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Lowell Hopper - Impulse (2024) [FLAC|Lossless|WEB-DL|tracks] <Smoonth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104587.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104587.jpgsave_picture_104587.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ VA - Enriching Peaceful Supreme Happiness Smooth Experience Playlist During Vaca
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104588.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104588.jpgsave_picture_104588.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ magnet:?xt=urn:btih:62FE879B7E5C9171C5FF7D1990E01C0F0F2D4C64
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104589.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104589.jpgsave_picture_104589.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Scott Hamilton - Jazz Signatures (2001) Concord [FLAC|Lossless|image + .cue] <Ma
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104590.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104590.jpgsave_picture_104590.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ magnet:?xt=urn:btih:685309AD4892408AB50163ACA3AA1F9743DC3A52
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104591.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104591.jpgsave_picture_104591.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ VA - Smoky Blues: Smooth Lounge Mix (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104592.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104592.jpgsave_picture_104592.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ VA - Wild About You (Sexy Feel-Good Blues, Rock, Funk Mix) (2024) [FLAC|Lossless
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104593.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104593.jpgsave_picture_104593.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ magnet:?xt=urn:btih:3220B89CC2974D2E64A70AC98BBB8127767C5F99
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104594.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104594.jpgsave_picture_104594.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ PdfFactory Std & Pro 9.04 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104595.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104595.jpgsave_picture_104595.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ VA - The Sound Of Summer 2024 [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104596.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104596.jpgsave_picture_104596.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Moggs Motel - Moggs Motel (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104597.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104597.jpgsave_picture_104597.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ magnet:?xt=urn:btih:F017E9B3AFCE68DACA6352C93ADD52AF97D6EF8A
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104598.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104598.jpgsave_picture_104598.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ Tears Run Rings - Everything In The End (2024) [FLAC|Lossless|WEB-DL|tracks] <Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104599.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104599.jpgsave_picture_104599.jpg" />
 </div>
 
 

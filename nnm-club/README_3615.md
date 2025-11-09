@@ -6,7 +6,7 @@
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114365.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114365.jpgsave_picture_114365.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ LibreOffice 7.6.5.2 Stable Portable by PortableApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114366.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114366.jpgsave_picture_114366.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:5226E2D440434B66ADC1A3828FF70C27846BC996
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114367.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114367.jpgsave_picture_114367.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:3E3F1864F94816289255FF5BEF0046B440CAD5A3
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114368.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114368.jpgsave_picture_114368.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ magnet:?xt=urn:btih:9202D179DFE1B0A29B53B2E56224393935B38D54
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114369.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114369.jpgsave_picture_114369.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ OneCommander Pro 3.70.1.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114370.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114370.jpgsave_picture_114370.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:B198F1D16EDED0A633415FB977D4F43EBEFB1901
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114371.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114371.jpgsave_picture_114371.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Dire Straits (Даэр Стрэйтс) - Love Over Gold (Любовь дорож
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114372.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114372.jpgsave_picture_114372.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ FinePrint Software (FinePrint 11.42 / pdfFactory Pro 8.42) RePack by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114373.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114373.jpgsave_picture_114373.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ Murenase! Seton Gakuen | Seton Academy: Join the Pack! | Добро пожало
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114374.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114374.jpgsave_picture_114374.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ Madis - 4 Альбома, 1 Сингл (2022-2023) [FLAC 24/48|Lossless|WEB-DL|t
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114375.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114375.jpgsave_picture_114375.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ magnet:?xt=urn:btih:621F058D576ABB38C045EFE6EC2A692346E3961A
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114376.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114376.jpgsave_picture_114376.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ Topaz Gigapixel AI 7.0.3 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114377.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114377.jpgsave_picture_114377.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ NirLauncher Package 1.30.10 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114378.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114378.jpgsave_picture_114378.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Topaz Photo AI 2.4.0 (x64) RePack (& portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114379.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114379.jpgsave_picture_114379.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ magnet:?xt=urn:btih:96C239479AE892869678A1D30D3D418488E7F117
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114380.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114380.jpgsave_picture_114380.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Windows 10 Manager 3.9.2 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114381.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114381.jpgsave_picture_114381.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ magnet:?xt=urn:btih:373C544884CA9C22CFE6846D6F673B025E807555
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114382.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114382.jpgsave_picture_114382.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ magnet:?xt=urn:btih:373C544884CA9C22CFE6846D6F673B025E807555
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114383.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114383.jpgsave_picture_114383.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Grab Photos From Videos / Фото из видео v11.1.5 Mod by Mixroot [Ru/Mu
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114384.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114384.jpgsave_picture_114384.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Malwarebytes Windows Firewall Control 6.9.9.6 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114385.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114385.jpgsave_picture_114385.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ magnet:?xt=urn:btih:CD706474F583DD9A03762FDC366D61A437F5F5D5
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114386.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114386.jpgsave_picture_114386.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ magnet:?xt=urn:btih:FA24210205C0BF632D0C6BB38EFB129FC69E55DF
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114387.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114387.jpgsave_picture_114387.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:8527BF38F2B1A1144F691183E49C063F8957EA64
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114388.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114388.jpgsave_picture_114388.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ uJAM - Beatmaker BUNDLE 2.3.1 (03.2024) VSTi, VSTi 3, AAX (x64) RePack by TCD [E
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114389.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114389.jpgsave_picture_114389.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ magnet:?xt=urn:btih:EBD6ED7D6BDD2A60259DFECBF9021C07FFB766FD
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114390.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114390.jpgsave_picture_114390.jpg" />
 </div>
 
 

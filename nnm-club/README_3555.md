@@ -6,7 +6,7 @@ Astral Gray - The Past Is In The Way (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112805.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112805.jpgsave_picture_112805.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Michael van Merwyk - Blues Everywhere I Go (2024) [FLAC 24/44.1|Lossless|WEB-DL|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112806.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112806.jpgsave_picture_112806.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Buddy Rich - Giant Steps (1977) 2000, Point Entertainment [FLAC|Lossless|image +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112807.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112807.jpgsave_picture_112807.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Syd Lawrence And His Orchestra - The Big Sound Of Syd Lawrence And His Orchestra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112808.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112808.jpgsave_picture_112808.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Django Reinhardt - And His American Friends Complete Sessions (1934 - 1947) 4CD,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112809.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112809.jpgsave_picture_112809.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Bodyfarm - Malicious Ecstasy (2024) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112810.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112810.jpgsave_picture_112810.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Clarion Void - Failure in Repetition (2024) [FLAC|Lossless|WEB-DL|tracks] <Black
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112811.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112811.jpgsave_picture_112811.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Necrosanct - Incarnate (1992) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112812.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112812.jpgsave_picture_112812.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Mindwork - Into The Swirl (2009) Reissue, 2013, Divebomb Records [FLAC|Lossless|
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112813.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112813.jpgsave_picture_112813.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Mindwork - Eterea (2012) Reissue, 2013, Divebomb Records [FLAC|Lossless|image + 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112814.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112814.jpgsave_picture_112814.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Necrosanct - Equal In Death (1990) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112815.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112815.jpgsave_picture_112815.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Mindwork - Into The Swirl (2009) [FLAC|Lossless|image + .cue] <Progressive Thras
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112816.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112816.jpgsave_picture_112816.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:7B804CDB8258848F11E5417BDCBA98FB9CBCDC46
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112817.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112817.jpgsave_picture_112817.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ magnet:?xt=urn:btih:C49E1393501A153B9875FFB1DCC1D5C06D57FA02
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112818.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112818.jpgsave_picture_112818.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Brother Dege - Aurora (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112819.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112819.jpgsave_picture_112819.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ magnet:?xt=urn:btih:A5ADA44B6701DAE14DF0D570E056004816B48591
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112820.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112820.jpgsave_picture_112820.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ magnet:?xt=urn:btih:E78870F051684F69FEC8CA8472E61DD7D6DEBFC0
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112821.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112821.jpgsave_picture_112821.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ magnet:?xt=urn:btih:F85AB2F47AE186014BDDDC5096223D4A50823C36
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112822.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112822.jpgsave_picture_112822.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ magnet:?xt=urn:btih:874A2CCFA0AC952DAF03386A0B4B9AA842093D4F
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112823.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112823.jpgsave_picture_112823.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ TC Tom Comfort - Slave To The Stupid Still (2024) [FLAC 24/48|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112824.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112824.jpgsave_picture_112824.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ The End Machine - The Quantum Phase (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112825.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112825.jpgsave_picture_112825.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Stormhunter - Best Before: Death (2024) [FLAC|Lossless|WEB-DL|tracks] <Power Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112826.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112826.jpgsave_picture_112826.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Ratzlaff & Webb - Delta Badhand (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Bl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112827.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112827.jpgsave_picture_112827.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ D4oesz - Lucid Strings (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112828.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112828.jpgsave_picture_112828.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Nils Lofgren Band - Spares (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Roc
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112829.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112829.jpgsave_picture_112829.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ magnet:?xt=urn:btih:1B3F37C34E360673B7A3905C6BC8B4A5C3B81AFB
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112830.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112830.jpgsave_picture_112830.jpg" />
 </div>
 
 

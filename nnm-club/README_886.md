@@ -6,7 +6,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23375.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23375.jpgsave_picture_23375.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23376.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23376.jpgsave_picture_23376.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:DD7B26AD9068985DFC7A5B68DDFCEFAE493D053B
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23377.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23377.jpgsave_picture_23377.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ MediaHuman YouTube Downloader 3.9.9.98 (2603) RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23378.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23378.jpgsave_picture_23378.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:427053D047B806BEA004A2F566A8D6ACE4F082F0
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23379.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23379.jpgsave_picture_23379.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Honey Lemon Soda | Сладкий лимонад [2025, TV, 12] WEB-DL 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23380.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23380.jpgsave_picture_23380.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Device Doctor Simulator 2024 (2024) [Ru/Multi] (build 17836335) Repack seleZen
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23381.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23381.jpgsave_picture_23381.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Win 10 Tweaker 20.4 Portable by XpucT [Multi/Ru]
 >>24
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23382.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23382.jpgsave_picture_23382.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:8828FDB22D6F05E36C3AF5D305E6193C6980E288
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23383.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23383.jpgsave_picture_23383.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:607650977DA7CE71106ADE4B76F77FA93FEA64C7
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23384.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23384.jpgsave_picture_23384.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:278DD69C633B90885B94295528A6B4071085AD4A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23385.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23385.jpgsave_picture_23385.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:67BEC3578F4A9B7DD0F1DD0CB88E4D583C6043DC
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23386.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23386.jpgsave_picture_23386.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:EC69697E154C3F3601C79510C724192778B4AFD7
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23387.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23387.jpgsave_picture_23387.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ magnet:?xt=urn:btih:3CD4507D4C36769F0EC64EDE7015367609672959
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23388.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23388.jpgsave_picture_23388.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ magnet:?xt=urn:btih:737E6AAF5478DE5666FD49D2BF95F6E053AD6985
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23389.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23389.jpgsave_picture_23389.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ Unreal Tournament (1999) [En] (451) Unofficial [Game of the Year Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23390.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23390.jpgsave_picture_23390.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ Adobe Photoshop 2025 26.5.0.16 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23391.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23391.jpgsave_picture_23391.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ magnet:?xt=urn:btih:62D47E0BF2C3E5066657763BB83581FD86027F90
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23392.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23392.jpgsave_picture_23392.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ WinRAR 7.11 RePack (& Portable) by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23393.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23393.jpgsave_picture_23393.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ VA - Workout Motivation (Rap Edition) (2018-2025) Mixed by Sergey Sychev [MP3|32
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23394.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23394.jpgsave_picture_23394.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ magnet:?xt=urn:btih:EB802A155BF4B889F9D65B0BCA776F74F2ED10D5
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23395.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23395.jpgsave_picture_23395.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ magnet:?xt=urn:btih:58140D642E1A0A9149BD4DB86AD5BE93B8206A7C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23396.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23396.jpgsave_picture_23396.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ WinRAR 7.11 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23397.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23397.jpgsave_picture_23397.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ ENDER MAGNOLIA: Bloom in the Mist (2025) [Ru/Multi] (1.1.1.22380) Repack Let'sР
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23398.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23398.jpgsave_picture_23398.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ magnet:?xt=urn:btih:0640F93B00B41B2E0DA610828CDDAF7D491BF5D3
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23399.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23399.jpgsave_picture_23399.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ magnet:?xt=urn:btih:A7E23FD6690DB1A7708C392BA7EA6D35CE12535E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23400.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23400.jpgsave_picture_23400.jpg" />
 </div>
 
 

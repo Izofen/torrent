@@ -6,7 +6,7 @@
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243561.jpgsave_picture_243561.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ ASAP Utilities for Excel 7.9.4 Home and Student [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243562.jpgsave_picture_243562.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Zeelion - Steel Attack (2005) [APE|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243563.jpgsave_picture_243563.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:0658F28A90BB3155D5B30252489874D79FD1E147
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243564.jpgsave_picture_243564.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ HWiNFO 7.42 Build 5030 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243566.jpgsave_picture_243566.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ magnet:?xt=urn:btih:224EC08810B0CD6B7B4BA11D15F69E01B55AB03A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243567.jpgsave_picture_243567.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ SVO - Дежавю (2020) [MP3|320 Kbps] <Heavy Metal>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243568.jpgsave_picture_243568.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ magnet:?xt=urn:btih:B37E4328158C3B344F00281E7FAA7B476FDE0194
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243569.jpgsave_picture_243569.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ magnet:?xt=urn:btih:A7A13A6460B59074AEA3338BEDE6DD905BE599D7
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243570.jpgsave_picture_243570.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ VA - Sunshine Live Vol.59 (2016) [MP3|320 Kbps] <Future House, Trance, Nu Disco,
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243571.jpgsave_picture_243571.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ DoYourData File Eraser Pro 3.9 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243572.jpgsave_picture_243572.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ magnet:?xt=urn:btih:10C77A3CD17C53F369AC39B6157EF98DB4797C98
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243573.jpgsave_picture_243573.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ magnet:?xt=urn:btih:3D273208C1CCB179B6E949A834816C67FB2BB8D3
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243574.jpgsave_picture_243574.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ magnet:?xt=urn:btih:AEE10775133AFA310BC5D705613521907B251A52
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243575.jpgsave_picture_243575.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ magnet:?xt=urn:btih:E858A222D04BFC0642F3DD8F81EFDECE08651340
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243576.jpgsave_picture_243576.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ EditReady 2.7.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243577.jpgsave_picture_243577.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Lifestream - Alter Echo (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243578.jpgsave_picture_243578.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ The Pasadena Roof Orchestra - Lullaby Of Broadway, The Best Of The Pasadena Roof
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243579.jpgsave_picture_243579.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ magnet:?xt=urn:btih:87D296AC215341B6B00BDA66AEEAD3E6AB658DB9
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243580.jpgsave_picture_243580.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ Friends of Hell - Friends Of Hell (2022) [FLAC|Lossless|WEB-DL|tracks] <Doom Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243581.jpgsave_picture_243581.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ magnet:?xt=urn:btih:C596BC1CE03D46E04225FA3C7CFC225C098A42F4
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243583.jpgsave_picture_243583.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ VA - 100 Hits 80s Rewind (2011) 5 CD [OGG Vorbis|480 Kbps] <Pop, Rock, Power Pop
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243584.jpgsave_picture_243584.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Yello - You Gotta Say Yes To Another Excess (1983) [FLAC 2.0|192/24|image + .cue
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243585.jpgsave_picture_243585.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Principle 6 v6.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243586.jpgsave_picture_243586.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ VA - Markus Schulz - Global DJ Broadcast - Top 20 November (2016) [MP3|320 Kbps]
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243587.jpgsave_picture_243587.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ magnet:?xt=urn:btih:AD962B83D3E9B46CD2823836EAA9BF0C9558DE36
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243588.jpgsave_picture_243588.jpg" />
 </div>
 
 

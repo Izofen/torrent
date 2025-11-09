@@ -6,7 +6,7 @@ Total Commander 7.56a Vi7Pack 1.85 Final [Русский, English]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75937.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75937.jpgsave_picture_75937.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Total Commander 7.56a Vi7Pack 1.85 Final [Русский, English]
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75949.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75949.jpgsave_picture_75949.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Total Commander 7.56a Vi7Pack 1.85 Final [Русский, English]
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75950.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75950.jpgsave_picture_75950.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:91E41F4D00BCDAD3218D5B57567D00586C4D11F6
 >>Историческая проза, Мифы и Легенды
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75967.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75967.jpgsave_picture_75967.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ AVG Internet Security 2012 SP1 Beta 2 ML/Rus
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75969.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75969.jpgsave_picture_75969.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ AVG Internet Security 2012 включает в себя следующие мо�
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75970.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75970.jpgsave_picture_75970.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ AVG Internet Security 2012 включает в себя следующие мо�
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75972.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75972.jpgsave_picture_75972.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ magnet:?xt=urn:btih:B625B2A050785A57B0E8AB35475CA3E4630317BE
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75973.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75973.jpgsave_picture_75973.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ magnet:?xt=urn:btih:B625B2A050785A57B0E8AB35475CA3E4630317BE
 >>Рыбалка и Охота
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75977.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75977.jpgsave_picture_75977.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ magnet:?xt=urn:btih:673855C58D1F2C2D8B5A18D2FB08004E90EA7300
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75988.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75988.jpgsave_picture_75988.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ Autorun WPI DVD 12.02.2012 by andreyonohov [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75992.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75992.jpgsave_picture_75992.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ Made Man [CiderX] [Rus]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75994.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75994.jpgsave_picture_75994.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ magnet:?xt=urn:btih:013E52BA7CCC695778D1B329129C78D7230339C5
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75997.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75997.jpgsave_picture_75997.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ U2 - Live at Glastonbury Festival (2011) HDTVRip [H.264]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75999.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75999.jpgsave_picture_75999.jpg" />
 </div>
 
 
@@ -365,7 +365,7 @@ SaS планета 110418 [Multi, русский присутствует]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76005.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76005.jpgsave_picture_76005.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ SAS.Планета / SAS.Planet / SASPlanet – свободная програ�
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76007.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76007.jpgsave_picture_76007.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ SAS.Планета / SAS.Planet / SASPlanet – свободная програ�
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76010.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76010.jpgsave_picture_76010.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ SAS.Планета / SAS.Planet / SASPlanet – свободная програ�
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76014.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76014.jpgsave_picture_76014.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ magnet:?xt=urn:btih:BDD52820193E782F66F0ADF12988D7B341C069C5
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76016.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76016.jpgsave_picture_76016.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ magnet:?xt=urn:btih:88B8437D366F0B09732DE47F0E788A596E4B2565
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76017.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76017.jpgsave_picture_76017.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ magnet:?xt=urn:btih:EB6E4DF62A13DF14E128CE980250A900063A0A63
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76018.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76018.jpgsave_picture_76018.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ magnet:?xt=urn:btih:EB6E4DF62A13DF14E128CE980250A900063A0A63
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76020.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76020.jpgsave_picture_76020.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Alvegia Online / Альвегия Онлайн [Ru] (L) 2011
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76021.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76021.jpgsave_picture_76021.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Reg Organizer 5.40 Beta 3 [Rus/Eng]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76035.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76035.jpgsave_picture_76035.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Sara Tavares - Balance (2005) [FLAC|Lossless]<Pop, folk>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76045.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76045.jpgsave_picture_76045.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Helium Music Manager 8.4 Build 10293 Network Edition [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76066.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76066.jpgsave_picture_76066.jpg" />
 </div>
 
 

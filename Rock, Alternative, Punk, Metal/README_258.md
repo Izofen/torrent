@@ -6,7 +6,7 @@ The Glass Beads - Therapy (2020) [MP3|~245 Kbps (V0)] <Alternative, Coldwave>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162275.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162275.jpgsave_picture_162275.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Pharaux - Birdsongs of the Manic Vol. I (2020) [FLAC|Lossless|tracks + .cue] <Do
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162280.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162280.jpgsave_picture_162280.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Drunken Buddha - II (2020) [FLAC|Lossless|tracks + .cue] <Hard Rock, Classic Roc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162282.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162282.jpgsave_picture_162282.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Unruly Child - Our Glass House (2020) [FLAC|Lossless|image + .cue] <Melodic Hard
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162302.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162302.jpgsave_picture_162302.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ magnet:?xt=urn:btih:928D68C80176ACD8BFCFF92DB2FDB5A2A0F271BA
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162307.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162307.jpgsave_picture_162307.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Chicago - Greatest Christmas Hits (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162334.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162334.jpgsave_picture_162334.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Moaning Silence - A Waltz Into Darkness (2020) [MP3|320 Kbps] <Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162342.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162342.jpgsave_picture_162342.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Stoneflower - Finally (2020) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162347.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162347.jpgsave_picture_162347.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Camel - The Snow Goose (1975) Remastered And Expanded Edition, 2023, UMC-Decca [
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162354.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162354.jpgsave_picture_162354.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ The Monster - Extervolution (2020) [MP3|320 Kbps] <Heavy, Power-Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162358.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162358.jpgsave_picture_162358.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Sainted Sinners - Unlocked & Reloaded (2020) [FLAC|Lossless|image + .cue] <Heavy
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162362.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162362.jpgsave_picture_162362.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Magick Touch - Heads Have Got To Rock 'n' Roll (2020) [FLAC|Lossless|image + .cu
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162366.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162366.jpgsave_picture_162366.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Cadaver - Edder & Bile (2020) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162378.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162378.jpgsave_picture_162378.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Al Stewart - Songs on the Radio: The Complete U.S. Singles 1974-1981 (2023) Comp
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162380.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162380.jpgsave_picture_162380.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ George Loukissas - Apocalypse (2020) [FLAC|Lossless|tracks + .cue] <Hard & Heavy
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162396.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162396.jpgsave_picture_162396.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Markgraf - Markgraf (2020) [FLAC|Lossless|tracks + .cue] <Black Metal, Death Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162424.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162424.jpgsave_picture_162424.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Between the Buried and Me - Colors (2007) Remix, Remaster, 2020 [MP3|320 Kbps] <
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162426.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162426.jpgsave_picture_162426.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ magnet:?xt=urn:btih:3BA52E973899C04416EF2F8FBC674D79656D0246
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162431.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162431.jpgsave_picture_162431.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Blatant Disarray - High Time for a War Crime (2020) [FLAC|Lossless|tracks + .cue
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162432.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162432.jpgsave_picture_162432.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Remedy - Something That Your Eyes Won't See (2022) [FLAC|Lossless|WEB-DL|tracks]
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162487.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162487.jpgsave_picture_162487.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Criminal Animal - Backroom Business (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162506.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162506.jpgsave_picture_162506.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Serenity - The Last Knight (2020) Japanese Edition [FLAC|Lossless|image + .cue] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162526.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162526.jpgsave_picture_162526.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Asmodean - By a Thread (2023) [MP3|320 Kbps] <Progressive Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162547.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162547.jpgsave_picture_162547.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ VA - The Greatest Rock Tunes 2022 (2022) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162561.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162561.jpgsave_picture_162561.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ magnet:?xt=urn:btih:9ACDE78E099DB4B59AEBC81CC1E3C3B5AB2E231E
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162566.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162566.jpgsave_picture_162566.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Bad Montana - Rock City (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162574.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162574.jpgsave_picture_162574.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Wildermyth (2021) [Ru/Multi] (1.16plus559/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18370.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18370.jpgsave_picture_18370.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Microsoft Office LTSC 2024 Professional Plus / Standard + Visio + Project 16.0.1
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18371.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18371.jpgsave_picture_18371.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:D5DC2B04E3E6BD3894FBD521B0B2A2F6637422FD
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18372.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18372.jpgsave_picture_18372.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ PurpleSchool, Антон Ларичев | Основы React, React Router и Re
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18373.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18373.jpgsave_picture_18373.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:C5CDA9475894ED33C308E32EB45D5C8DF0BCA620
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18374.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18374.jpgsave_picture_18374.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ PurpleSchool, Антон Ларичев, Игорь Орлов | Kubernetes и H
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18375.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18375.jpgsave_picture_18375.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:751C8D0FD1E4586A4E32BC965783FA83F614EA21
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18376.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18376.jpgsave_picture_18376.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:44EF3D2F6A4519885E1FE051C59FA5BDDA268AF7
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18377.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18377.jpgsave_picture_18377.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:37019500048A00A0E138C7EA823DD0E6D2DFD65B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18378.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18378.jpgsave_picture_18378.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ magnet:?xt=urn:btih:B8E906A8E3E5F77DD9CE591F82CC76C07501BF65
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18379.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18379.jpgsave_picture_18379.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Windows 11 Pro/Ent LTSC by OneSmiLe 24H2 build 26100.4061 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18380.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18380.jpgsave_picture_18380.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ magnet:?xt=urn:btih:5BD496834EEF5B50A1F740DB1CC00587A13A01C4
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18381.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18381.jpgsave_picture_18381.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ magnet:?xt=urn:btih:1583CDD47C801B3D936ED496A5F58A16E2B2075E
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18382.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18382.jpgsave_picture_18382.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ magnet:?xt=urn:btih:74DEF013987975A41FB39F5B58792DEC93632009
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18383.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18383.jpgsave_picture_18383.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ magnet:?xt=urn:btih:33951B9FD94C97F8CE35F42693205EAB48B9275E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18384.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18384.jpgsave_picture_18384.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ magnet:?xt=urn:btih:32736D4D980B890A9123CFCBD6383643F0392ED2
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18385.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18385.jpgsave_picture_18385.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ magnet:?xt=urn:btih:10F9F48A808778508183847A4D357A3AB09D7BBD
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18386.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18386.jpgsave_picture_18386.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ IObit Driver Booster Pro 12.4.0.585 RePack (& Portable) by elchupacabra [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18387.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18387.jpgsave_picture_18387.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ magnet:?xt=urn:btih:D53A363C68F3104416F5FB78FE42F71B759EA7C8
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18388.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18388.jpgsave_picture_18388.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ magnet:?xt=urn:btih:2A25A6B672FF25D1D45E3AD1488A5D7695AA7CF6
 >>Звуковые дорожки и субтитры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18389.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18389.jpgsave_picture_18389.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ magnet:?xt=urn:btih:F9087C949282B6883FB88D9F1D1A963727DD6770
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18390.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18390.jpgsave_picture_18390.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ magnet:?xt=urn:btih:F9087C949282B6883FB88D9F1D1A963727DD6770
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18391.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18391.jpgsave_picture_18391.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Amos Media Co. | Scott 2020 Standard Postage Stamp Catalogue + Scott New Listing
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18392.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18392.jpgsave_picture_18392.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ magnet:?xt=urn:btih:A037B54F7BBDD219614E93A04978882F66A24835
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18393.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18393.jpgsave_picture_18393.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ magnet:?xt=urn:btih:E1ECC3BEEAB1160D25E5A6E945F8C2727A74B07B
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18394.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18394.jpgsave_picture_18394.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ AQusmatiq Audio - Dedalus Delay  1.1.0 VST 3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18395.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18395.jpgsave_picture_18395.jpg" />
 </div>
 
 

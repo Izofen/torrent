@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120537.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120537.jpgsave_picture_120537.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Noxia Somnia (2024) [En] (1.0) Scene Tenoke
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120538.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120538.jpgsave_picture_120538.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Volume2 1.1.9.466 Beta + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120539.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120539.jpgsave_picture_120539.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:D25BAF7CFE541CA17208B4ABD9C7344F6D18E70E
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120540.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120540.jpgsave_picture_120540.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Ableton - Live Suite 11.3.21 (x64) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120541.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120541.jpgsave_picture_120541.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Ivan Piskunov | (Само)обучение. Исследования, факты
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120542.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120542.jpgsave_picture_120542.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Supermium 121.0.6167.81 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120544.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120544.jpgsave_picture_120544.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ Waves Ultimate 2024.01.24 VST, VST 3, AAX, STANDALONE (x64) RePack by R2R [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120545.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120545.jpgsave_picture_120545.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:E4C94EA762388BFE9D859BB3D02BCB024A668177
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120546.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120546.jpgsave_picture_120546.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:BDBA6B25B95B4C94B46B468FA651B7D40948AA9E
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120547.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120547.jpgsave_picture_120547.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:4CAD9D90D7FA37FD519BB0F45017B8299FBAD6FC
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120548.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120548.jpgsave_picture_120548.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Spectrasonics Omnisphere Software 2.8.6c, Patch 2.8.2c, Soundsource 2.6.2c Libra
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120549.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120549.jpgsave_picture_120549.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Lil' Guardsman (2024) [Multi] (1.0) Scene TiNYiSO
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120550.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120550.jpgsave_picture_120550.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Bazanova Art, Ольга Базанова | Практика художника 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120551.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120551.jpgsave_picture_120551.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ magnet:?xt=urn:btih:259E965755EC07ACD34F6662138C8A0F8C498D6D
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120552.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120552.jpgsave_picture_120552.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ magnet:?xt=urn:btih:3E0FE9B6204691C4C1FB072660C60FAC8FAF4ECC
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120553.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120553.jpgsave_picture_120553.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ magnet:?xt=urn:btih:B55F352E92E56C34B2EC077359CED4BC30280C7E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120554.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120554.jpgsave_picture_120554.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Old World v.70360 (2020) [Multi/Ru] [macOS Native game]
 >>Strategy, RPG для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120555.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120555.jpgsave_picture_120555.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ Bomb Rush Cyberfunk (2023) [Ru/Multi] (1.0.20385) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120556.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120556.jpgsave_picture_120556.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ magnet:?xt=urn:btih:441EED8154CB032C0F75EFBECEACB50B5F4B3D9F
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120557.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120557.jpgsave_picture_120557.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Inspector Gadget - Mad Time Party / Инспектор Гаджет – Безу
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120558.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120558.jpgsave_picture_120558.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ magnet:?xt=urn:btih:52E70ACB81B57D09511B2BE83BFADA0C0F0A1FAD
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120559.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120559.jpgsave_picture_120559.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ magnet:?xt=urn:btih:181D48FC17BF995E8C4765E815BAEC3A1A986091
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120560.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120560.jpgsave_picture_120560.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ magnet:?xt=urn:btih:8E1140A049F99C2310AA7462F770BCC7D52BC955
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120561.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120561.jpgsave_picture_120561.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ magnet:?xt=urn:btih:0204F6777B3D760C90AC5F7D5486732E4D1720D3
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120562.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120562.jpgsave_picture_120562.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ magnet:?xt=urn:btih:9102423F2D1A6C15D0F98F6644BF8C32EFBDAFE1
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120563.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120563.jpgsave_picture_120563.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232149.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232149.jpgsave_picture_232149.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:2C51171B1F25C674EC45CDC99EC8024F6ADF931D
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232150.jpgsave_picture_232150.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:582462BA34795CF5253FEB5C6D971FC01C3016D6
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232151.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232151.jpgsave_picture_232151.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:08CEDCC407749EAFA25D855E97C9D321C93C80B4
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232155.jpgsave_picture_232155.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Nexorum - Tongue of Thorns (2023) [MP3|320 Kbps] <Black, Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232156.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232156.jpgsave_picture_232156.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Black Cat Hoodoo - Liar's Coat (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232157.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232157.jpgsave_picture_232157.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:DAE5E6B67093FC43A56426A27CE9F4E75382E1FC
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232159.jpgsave_picture_232159.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:948FBE73BA584A6FBD9971C062385B8A81566CAE
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232160.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232160.jpgsave_picture_232160.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ RTG. Петербургский музей истории фотографии (
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232162.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232162.jpgsave_picture_232162.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ Terranoct - Icon of Ruin (2023) [MP3|320 Kbps] <Progressive Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232165.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232165.jpgsave_picture_232165.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ magnet:?xt=urn:btih:D498A940C973F010203BED2ED19008E8A1C29E0C
 >>КВН
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232166.jpgsave_picture_232166.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ Sko/Torp - Radio Songbook "The Best Of" (1998) [FLAC|Lossless|WEB-DL|tracks] <Po
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232167.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232167.jpgsave_picture_232167.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ magnet:?xt=urn:btih:12B767D1785CB84AB0211006DC1BB37D42CA85DE
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232169.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232169.jpgsave_picture_232169.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ Kalmah - Kalmah (2023) [FLAC|Lossless|image + .cue] <Melodic Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232170.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232170.jpgsave_picture_232170.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ Nexorum - Death Unchained (2020) [MP3|320 Kbps] <Black, Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232171.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232171.jpgsave_picture_232171.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ magnet:?xt=urn:btih:28B20581D00BE768BD7D15C8E8AC6FD80F3FFDC2
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232173.jpgsave_picture_232173.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Talvienkeli - In A World Full Of Clouds (2023) [FLAC|Lossless|WEB-DL|tracks] <Pr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232176.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232176.jpgsave_picture_232176.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ magnet:?xt=urn:btih:8C2DAC4EBFB492B09616B51867D8F8EDD78A502F
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232177.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232177.jpgsave_picture_232177.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Anthony Rosano and The Conqueroos - Cheat the Devil (2023) [FLAC|Lossless|WEB-DL
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232178.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232178.jpgsave_picture_232178.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ magnet:?xt=urn:btih:7107BA9BD138236634252C661DF88A91F3A5D437
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232179.jpgsave_picture_232179.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ magnet:?xt=urn:btih:6DFA3B589071434B224BAA90502EBA034F30968B
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232180.jpgsave_picture_232180.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Sculforge - Intergalactic Battle Tunes (2023) [MP3|320 Kbps] <Speed Heavy, Power
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232183.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232183.jpgsave_picture_232183.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Bob Corritore & Friends - High Rise Blues (2023) [FLAC|Lossless|WEB-DL|tracks] <
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232185.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232185.jpgsave_picture_232185.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ magnet:?xt=urn:btih:63C084F41C1851730142AE05FD148F8B5DDBA5FA
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232186.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232186.jpgsave_picture_232186.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ Wise Disk Cleaner 11.0.3.817 RePack (& portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232187.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232187.jpgsave_picture_232187.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ Marek Arnold's Artrock Project - same (2023) [FLAC|Lossless|WEB-DL|tracks] <Prog
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232190.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232190.jpgsave_picture_232190.jpg" />
 </div>
 
 

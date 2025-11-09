@@ -6,7 +6,7 @@ Innerforce - 2 Albums (2017, 2022) [Mp3|320 kbps] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183946.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183946.jpgsave_picture_183946.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Galderia - Return Of The Cosmic Men (2017) Japanese Edition [FLAC|Lossless|image
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183949.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183949.jpgsave_picture_183949.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Opera GX 102.0.4880.74 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_183950.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_183950.jpgsave_picture_183950.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ magnet:?xt=urn:btih:5FF009EC075A4B43D4A693AFED1E6AE5C0850B3E
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_183951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183951.jpgsave_picture_183951.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Mashgot - Тишина... (2022) [MP3|320 Kbps] <Alternative Metal, Progressive 
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183954.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183954.jpgsave_picture_183954.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ Monkey's Audio 10.23 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183955.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183955.jpgsave_picture_183955.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ magnet:?xt=urn:btih:E703B6F17A4A176D46C1A91F32D3D6ED89D0A62F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_183956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183956.jpgsave_picture_183956.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ UnderWill - The Inevitable End (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183960.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183960.jpgsave_picture_183960.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ Blonde Redhead - Sit Down for Dinner (2023) [FLAC|Lossless|WEB-DL|tracks] <Alter
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_183961.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_183961.jpgsave_picture_183961.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Eye of Doom - The Sapient (2022) [FLAC|Lossless|WEB-DL|tracks] <Psych, Stoner, D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183963.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183963.jpgsave_picture_183963.jpg" />
 </div>
 
 
@@ -265,7 +265,7 @@ Marie Laforet - Marie Laforet (2001) [FLAC|Lossless|image + .cue] <Chanson, Pop>
 >>Зарубежный Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_183964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183964.jpgsave_picture_183964.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Fantasy - Das Beste (2023) Deluxe Edition [MP3|320 Kbps] <Dance Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_183966.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_183966.jpgsave_picture_183966.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Tempel - On The Steps Of The Temple (2014) [FLAC|Lossless|tracks + .cue] <Post-M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183969.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183969.jpgsave_picture_183969.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ magnet:?xt=urn:btih:77AABDA7E5AE748AE4E73AB7F7BF539071F469FD
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_183970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183970.jpgsave_picture_183970.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ magnet:?xt=urn:btih:E49EEA25DB79B3F9387C182E61714EECB086E26B
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183971.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183971.jpgsave_picture_183971.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ magnet:?xt=urn:btih:325BA5021810CA67B1D9F5DB2D40E773952F92B6
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_183973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183973.jpgsave_picture_183973.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ Starblind - Black Bubbling Ooze (2020) [FLAC|Lossless|image + .cue] <Heavy Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183974.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183974.jpgsave_picture_183974.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ magnet:?xt=urn:btih:00F86E9681F64825F7B6493727C9F9912543E3DF
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_183976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183976.jpgsave_picture_183976.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ Anxious Arms - Crimes of Despair (2022) [FLAC|Lossless|WEB-DL|tracks] <Emo, Hard
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183977.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183977.jpgsave_picture_183977.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ magnet:?xt=urn:btih:78D1DFCA1FD6370138E4882E23F6FDDC1F35EB8D
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_183979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183979.jpgsave_picture_183979.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ Tempel - The Moon Lit Our Path (2015) [FLAC|Lossless|tracks + .cue] <Post-Metal,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183980.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183980.jpgsave_picture_183980.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ Dramanduhr - Tramohr (2022) [FLAC|Lossless|WEB-DL|tracks] <Avant-garde Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183982.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183982.jpgsave_picture_183982.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ magnet:?xt=urn:btih:DC2127E729D2F3641BB3DF5DB72E81A0BCA4D9B1
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_183983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183983.jpgsave_picture_183983.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ magnet:?xt=urn:btih:4CDF79A194F68ACB549FF25063C6A27D6631B367
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_183985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183985.jpgsave_picture_183985.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ magnet:?xt=urn:btih:D62CDE94372A9390AF45E2B377ECEA0CCC427533
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_183988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183988.jpgsave_picture_183988.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ Black Stone Cherry - Screamin' At The Sky (2023) [FLAC|Lossless|WEB-DL|tracks] <
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183989.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183989.jpgsave_picture_183989.jpg" />
 </div>
 
 

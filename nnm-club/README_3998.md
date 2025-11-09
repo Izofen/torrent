@@ -6,7 +6,7 @@
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124496.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124496.jpgsave_picture_124496.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Hikikomari Kyuuketsuki no Monmon | Зaбoты пpинцeccы вaмпиpoв–xи
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124497.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124497.jpgsave_picture_124497.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:5B2E43DFA6A871DAFB962ABA2C201A685E5E7666
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124499.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124499.jpgsave_picture_124499.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:E8AA1A0746DFF5C76DF606125073A7A7CCD318CE
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124500.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124500.jpgsave_picture_124500.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:9EDCBD3ECF3A6ADD5EB17B55F8D4FB4AA98A5FE2
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124501.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124501.jpgsave_picture_124501.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:5FC8C635E1FD80A88E1C84BDDF69AE3FDE3EE3B0
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124502.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124502.jpgsave_picture_124502.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Schwarzer Engel - 5 Releases (2015-2024) [FLAC|Lossless|WEB-DL|tracks] <Symphoni
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124503.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124503.jpgsave_picture_124503.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:B2C98244DBC332C7955419DF0E575A7688E61E2F
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124504.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124504.jpgsave_picture_124504.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ The Austrian Blues Combo - Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Roc
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124505.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124505.jpgsave_picture_124505.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ Olaf Hoeks & Ruud de Vries - Swang Thang (2024) [FLAC|Lossless|WEB-DL|tracks] <J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124506.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124506.jpgsave_picture_124506.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ magnet:?xt=urn:btih:36A40CE830B8A55CF025986453D2943BCECF6B14
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124507.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124507.jpgsave_picture_124507.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ magnet:?xt=urn:btih:A8DD9D07B32E558F35F33339C416BE3CE9B05FAD
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124508.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124508.jpgsave_picture_124508.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ Revisal - Curtain Call (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Deathcore>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124509.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124509.jpgsave_picture_124509.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ magnet:?xt=urn:btih:A756FF745887522011375CB35C4007EC16704C59
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124510.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124510.jpgsave_picture_124510.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ Martha High - Jazz and Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Blues>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124511.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124511.jpgsave_picture_124511.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ Eric Prydz - Live @ Forever Stage Forever Midnight, Los Angeles Convention Cente
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124512.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124512.jpgsave_picture_124512.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ Chrome Black Future - 2 Albums (2023) [FLAC|Lossless|WEB-DL|tracks] <Industrial 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124513.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124513.jpgsave_picture_124513.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ magnet:?xt=urn:btih:FCCA0B3773586EA46BBECD0D203A3ECBC92B9128
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124514.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124514.jpgsave_picture_124514.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Lair - The Hidden Shiv (2024) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal, Sludge>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124515.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124515.jpgsave_picture_124515.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Sacriversum - The Shadow of the Golden Fire - Early Days (2001) Compilation, 202
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124516.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124516.jpgsave_picture_124516.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ KAUAN - ATM Revised (2023) [FLAC|Lossless|tracks + .cue] <Atmospheric Black Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124517.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124517.jpgsave_picture_124517.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ Martyr - Murder X: The End of the Game (2000) [FLAC|Lossless|image + .cue] <Deat
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124518.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124518.jpgsave_picture_124518.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ Visions of Morpheus - Lost Within (2023) [FLAC|Lossless|WEB-DL|tracks] <Progress
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124519.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124519.jpgsave_picture_124519.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ Gwydrion - Gwydrion (2023) [FLAC|Lossless|WEB-DL|tracks] <Gothic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124520.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124520.jpgsave_picture_124520.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ Exodia - Into The Mouth Of Hell (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124521.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124521.jpgsave_picture_124521.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ magnet:?xt=urn:btih:A6CAA79DA8977BF4A0021B34FA07929040175613
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124522.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124522.jpgsave_picture_124522.jpg" />
 </div>
 
 

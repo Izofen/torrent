@@ -6,7 +6,7 @@
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150665.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150665.jpgsave_picture_150665.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:C0C4A8CAF867AA1D7C9915321A8E9C6DA1509BB7
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150666.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150666.jpgsave_picture_150666.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:9FD64147D64C8CE58F9E42A98C441957086026CB
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150667.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150667.jpgsave_picture_150667.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:D4C446832FFF6FE5C918E089317003538B6F4E6D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150669.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150669.jpgsave_picture_150669.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Thomas Anders - …Sings Modern Talking: Romantic Warriors (2025) [FLAC|Lossless
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150670.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150670.jpgsave_picture_150670.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ MotoGP. Этап 19 из 22. Гран-при Австралии. Квалифи�
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150671.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150671.jpgsave_picture_150671.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:90652A9DD06DF607A02FB8C068DA53C81FA9246C
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150672.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150672.jpgsave_picture_150672.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:CC6DC7893A5BB8C914951B4A490F690968DCC936
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150673.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150673.jpgsave_picture_150673.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:40F3E8465E04927F665301E20A336238E7334830
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150674.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150674.jpgsave_picture_150674.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ VA - Rising Sun Wonders (2025) [MP3|320 Kbps] <Progressive House, Melodic House 
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150675.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150675.jpgsave_picture_150675.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ VA - Trance In Motion Vol.391 (2025) [MP3|320 Kbps|image + .cue] <Trance, Uplift
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150676.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150676.jpgsave_picture_150676.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ Microsoft Visual C++ 2026 Redistributable 14.50.35710.0 [Ru]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150677.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150677.jpgsave_picture_150677.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ Microsoft® Windows® 11 Pro-Home Optim Lite x64 25H2 RU by OVGorskiy 10.2025
 >>Сборки Windows 11
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150678.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150678.jpgsave_picture_150678.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ magnet:?xt=urn:btih:5A5D2DC18043DDC48E0523C39027FC1EE1715BB0
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150679.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150679.jpgsave_picture_150679.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Dead Island Retro Revenge (2016) [Ru/Multi] (build 1160760) Repack seleZen
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150680.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150680.jpgsave_picture_150680.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Travellers Rest (2020) [Ru/Multi] (0.7.3.5.1) Repack Pioneer [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150681.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150681.jpgsave_picture_150681.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ magnet:?xt=urn:btih:AEB3342010F0CC6B34F8551D0C7E2A95B4C88089
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150682.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150682.jpgsave_picture_150682.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ magnet:?xt=urn:btih:6153AE22B28D1E9B0BBF099F0E9FF0B7B4D5B083
 >>Религия (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150683.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150683.jpgsave_picture_150683.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Level One, Дмитрий Шелег | Первая помощь. Курс, ко
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150684.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150684.jpgsave_picture_150684.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ magnet:?xt=urn:btih:703AA7C0DCAB66D160F8EAD8F0A4F6260DCA5227
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150685.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150685.jpgsave_picture_150685.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ magnet:?xt=urn:btih:D290B795D243B5B33A58E68E2CFDA92809996A1B
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150686.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150686.jpgsave_picture_150686.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ magnet:?xt=urn:btih:E144294BCB5F1ADF2379F61A43BB178EC2F79C1A
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150687.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150687.jpgsave_picture_150687.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ magnet:?xt=urn:btih:4675CD4974EAABE65A2774202EDED60290054AE4
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150688.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150688.jpgsave_picture_150688.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ magnet:?xt=urn:btih:BB33B3A99CC04A57C3ED997E48A9C38670FDF61E
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150689.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150689.jpgsave_picture_150689.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ magnet:?xt=urn:btih:A3ADB37BEA952CE1846B22FA02AD9025E7DBA64F
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150690.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150690.jpgsave_picture_150690.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ magnet:?xt=urn:btih:AA7A8C2C1DE93A828B4798B7F91310A29EA97AC1
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150691.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150691.jpgsave_picture_150691.jpg" />
 </div>
 
 

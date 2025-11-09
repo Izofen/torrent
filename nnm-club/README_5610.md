@@ -6,7 +6,7 @@ Dropzone 4 Pro v.4.7.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172852.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172852.jpgsave_picture_172852.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:09E4D2B5267A08AB5DBED67A8CE4456BA812F0A9
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172853.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172853.jpgsave_picture_172853.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Native SQLite Manager 1.26.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172854.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172854.jpgsave_picture_172854.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Athentech Perfectly Clear Video for Mac 4.6.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172855.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172855.jpgsave_picture_172855.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ VueScan Pro 9.8.18 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172856.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172856.jpgsave_picture_172856.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:FA17A1EEB468EFC9CBA8D6887BD6A28124269459
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172857.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172857.jpgsave_picture_172857.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Sync Folders Pro 4.6.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172858.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172858.jpgsave_picture_172858.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Text Workflow 1.7  [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172859.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172859.jpgsave_picture_172859.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ Icecream Video Converter Pro 1.35 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172860.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172860.jpgsave_picture_172860.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:AB71514CC202335F749C96EAB86BE6E69AD4F5E1
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172861.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172861.jpgsave_picture_172861.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:4EAC91981D7823B8B965B8917CC5F3A8EC059628
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172862.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172862.jpgsave_picture_172862.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ magnet:?xt=urn:btih:B6834EC5BED5CAC0B7FBE3C19652A2C565F7CAD3
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172863.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172863.jpgsave_picture_172863.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ High-Logic FontCreator Professional 15.0.0.2941 Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172864.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172864.jpgsave_picture_172864.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ magnet:?xt=urn:btih:572F120BEB7783EF77F1D8B5DFBDF7EB302912A3
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172865.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172865.jpgsave_picture_172865.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ AYVY 1.22.2 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172866.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172866.jpgsave_picture_172866.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ magnet:?xt=urn:btih:EB8C1AFC9133922B4AD1EB2DB1902FD225697F18
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172867.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172867.jpgsave_picture_172867.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Corey Taylor - CMF2 (2023) [FLAC|Lossless|tracks + .cue] <Alt.Metal, Hard Rock>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172868.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172868.jpgsave_picture_172868.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ magnet:?xt=urn:btih:492788C7DC83B282864EEBF2B768BFA9710E8576
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172869.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172869.jpgsave_picture_172869.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ magnet:?xt=urn:btih:30EC8A29463D8B641928FBF52607986F58A376A3
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172870.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172870.jpgsave_picture_172870.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ EverWeb (Standalone) 4.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172871.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172871.jpgsave_picture_172871.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ System Dashboard Pro 1.7.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172872.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172872.jpgsave_picture_172872.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ magnet:?xt=urn:btih:D95E37E5A60E375CD4F44F290A6149A4BAA35097
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172873.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172873.jpgsave_picture_172873.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ Grant Green - Alive! (1970) 2000, Blue Note [FLAC|Lossless|tracks + .cue] <Jazz-
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172874.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172874.jpgsave_picture_172874.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ PhotoSweeper X 4.8.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172875.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172875.jpgsave_picture_172875.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ KCNcrew Pack 10-15-23 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172876.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172876.jpgsave_picture_172876.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ Andre Previn - Four Classic Albums (1957 - 1959) 2CD, 2011, Avid Jazz [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172877.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172877.jpgsave_picture_172877.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Francesco Polito - Trip (2020) [AAC|~344 Kbps]<Jazz>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240135.jpgsave_picture_240135.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:02AB32567258EEDF8870A9A3C0863C875EC2B199
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240136.jpgsave_picture_240136.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ GraphicConverter 11 v11.6.3 Beta [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240137.jpgsave_picture_240137.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:D696F7C20F617168628DF777E3D44AC6DC16C0EB
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240138.jpgsave_picture_240138.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Smultron 12 v12.4.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240139.jpgsave_picture_240139.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:36473D34BE1150A45E849343BBCD5F931D775503
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240140.jpgsave_picture_240140.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:A639B2692346AEB8D82522C8074931EFDA2606B4
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240141.jpgsave_picture_240141.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ Graham Nash - Now (2023) [FLAC 24/44.1-96|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240142.jpgsave_picture_240142.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ magnet:?xt=urn:btih:4AF84ACDABD6AB030BD94071C152049A0F650BF4
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240143.jpgsave_picture_240143.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ magnet:?xt=urn:btih:29CF8783CA0C23E6ED63ECED74826722D8CFDC8F
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240144.jpgsave_picture_240144.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ magnet:?xt=urn:btih:8914C0D1C9E527DC81FFD33A42AEA12AACD9EE54
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240145.jpgsave_picture_240145.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ Acorn 7 v7.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240146.jpgsave_picture_240146.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ Dropzone 4 Pro v4.3.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240147.jpgsave_picture_240147.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ magnet:?xt=urn:btih:E21EF0754862EB91BC90178836ADF264CF72DF7F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240148.jpgsave_picture_240148.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ RTG. Святки в деревне Шуваловка (2013) HDTV [H.264/1080i]
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240149.jpgsave_picture_240149.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ La Famiglia Degli Ortega - La Famiglia Degli Ortega (1973) 1996, Vinyl Magic [FL
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240150.jpgsave_picture_240150.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ magnet:?xt=urn:btih:452A56BAD2B16E23B9166B4F59DEE7D4AF7EB11F
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240151.jpgsave_picture_240151.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ magnet:?xt=urn:btih:7C30250DDFDC5E8DAA38CD6775B040255E899048
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240152.jpgsave_picture_240152.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ GraphicConverter 11 v11.6.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240153.jpgsave_picture_240153.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ magnet:?xt=urn:btih:CAE8C4C9E9CD2599E273A85AD2A44AC7759770DB
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240154.jpgsave_picture_240154.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Permute 3 v3.6.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240155.jpgsave_picture_240155.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ magnet:?xt=urn:btih:0BC21FC0F0E054FCD790F298590CED1E6F911E19
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240156.jpgsave_picture_240156.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ magnet:?xt=urn:btih:5A28E7DDFACD064B57001510F8D2A6730C3E3EB2
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240157.jpgsave_picture_240157.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ VA - 90s Lost & Found (2023) [MP3|320 Kbps] <Pop, Rock, R&B>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240158.jpgsave_picture_240158.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ magnet:?xt=urn:btih:E787761B83DDE9930EA60C1BE52C0600706578E7
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240159.jpgsave_picture_240159.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ magnet:?xt=urn:btih:85C866FE777819920CA4CCBC3CA0503C5ABC6438
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240160.jpgsave_picture_240160.jpg" />
 </div>
 
 

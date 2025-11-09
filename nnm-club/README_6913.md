@@ -6,7 +6,7 @@ Inboard - Image Organizer 1.1.6 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237535.jpgsave_picture_237535.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ VA - Café Deluxe Chillout - Nu Jazz / Lounge, Vol. 2 (2015) [AAC|~323 Kbps] <Ea
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237536.jpgsave_picture_237536.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Topaz Photo AI 1.3.2 (x64) RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237537.jpgsave_picture_237537.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:D177312BB534FADFE9ADA0D9CE082052DA312434
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237538.jpgsave_picture_237538.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ VA - Deep House: Soulful Melodic Sound (2021) [MP3|320 Kbps] <Deep House, Electr
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237539.jpgsave_picture_237539.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ magnet:?xt=urn:btih:1E3BA9D4689397FF8A5EAC57BBDADBEC7ABA2960
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237540.jpgsave_picture_237540.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ Super Vectorizer Pro for Mac 2.3.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237541.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237541.jpgsave_picture_237541.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:E606DD7A9DABC3DED6697C818A4C4C7DBC01B885
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237542.jpgsave_picture_237542.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ Pink Floyd - In Concert 1987 (8CD) (2021) [FLAC|Lossless|tracks] <Progressive Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237543.jpgsave_picture_237543.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ magnet:?xt=urn:btih:DD0820E2CB7A75CC7F73C6595232D2AB7B0F9C36
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237544.jpgsave_picture_237544.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ VA - Ultimate Club Tunes (2023) [MP3|320 Kbps] <Euro House, Club, Progressive, T
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237545.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237545.jpgsave_picture_237545.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ magnet:?xt=urn:btih:79DCBA4ABBCF5644DBEDBFD746DB324D303DE71F
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237546.jpgsave_picture_237546.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ magnet:?xt=urn:btih:4D0A0032D0C005BFEB47379714992D833A0F9A7F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237547.jpgsave_picture_237547.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ VA - Café Deluxe Chillout - Nu Jazz / Lounge, Vol. 6 (2020) [AAC|~284 Kbps] <Ea
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237548.jpgsave_picture_237548.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ magnet:?xt=urn:btih:6FACB075C6084E6805041078C3E132472010CFDB
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237549.jpgsave_picture_237549.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Dynamic Wallpaper 14.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237550.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237550.jpgsave_picture_237550.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Mp3tag 1.0.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237551.jpgsave_picture_237551.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ ASAP - Down The Wire (1990) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237552.jpgsave_picture_237552.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ IObit Uninstaller Pro 12.4.0.6 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237553.jpgsave_picture_237553.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ magnet:?xt=urn:btih:FE5D2ACA80C101C8EB0A57238A6099EB409962FD
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237554.jpgsave_picture_237554.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Skype 8.96.0.408 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237555.jpgsave_picture_237555.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ VA - Café Deluxe Chillout - Nu Jazz / Lounge, Vol. 4 (2018) [AAC|~302 Kbps] <Ea
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237556.jpgsave_picture_237556.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ magnet:?xt=urn:btih:3C573B2E17D0545DA32EEB070662970C3BD4802B
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237557.jpgsave_picture_237557.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ XYplorer 24.40.0000 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237558.jpgsave_picture_237558.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Protomartyr - Formal Growth in the Desert (2023) [FLAC|Lossless|WEB-DL|tracks] <
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237559.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237559.jpgsave_picture_237559.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Dave Patten - The First Cut (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237560.jpgsave_picture_237560.jpg" />
 </div>
 
 

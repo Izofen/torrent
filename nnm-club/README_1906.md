@@ -6,7 +6,7 @@ Chip Chip - So Close To Heaven (2010) Remastered [OGG Vorbis|480 Kbps] <Electron
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49913.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49913.jpgsave_picture_49913.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:4F7CD3F492630E94B36195A92410B88BFAA0144B
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49914.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49914.jpgsave_picture_49914.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ The Ghost Inside - Searching for Solace (2024) [FLAC|Lossless|tracks + .cue] <Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49915.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49915.jpgsave_picture_49915.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:9E8CC3405F54271BE907023C543447234B3076DA
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49916.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49916.jpgsave_picture_49916.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ VA - French Kisses (Lovely Lounge Collection), Vol. 2 (2024) [FLAC|Lossless|WEB-
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49917.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49917.jpgsave_picture_49917.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ magnet:?xt=urn:btih:CA683B8DA02179CAF61F3CD52416D4832B7739A0
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49918.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49918.jpgsave_picture_49918.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ magnet:?xt=urn:btih:429A2FD146AE1DB1B7DD08E903A5A2DC8544D950
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49919.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49919.jpgsave_picture_49919.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ PrivaZer Pro 4.0.89 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49920.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49920.jpgsave_picture_49920.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ EssentialPIM Pro 12.0.3 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49921.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49921.jpgsave_picture_49921.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ Mr.Big - Ten (2024) [FLAC|Lossless|image + .cue] <Hard Rock, Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49922.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49922.jpgsave_picture_49922.jpg" />
 </div>
 
 
@@ -262,7 +262,7 @@ magnet:?xt=urn:btih:8136085AB2F15E192D711DEB636D973D102DEF39
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49923.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49923.jpgsave_picture_49923.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ Elvira T - Одержима (2013) [WavPack|Lossless|image + .cue] <R&B, Pop>
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49924.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49924.jpgsave_picture_49924.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ ANTARCTIC - Культура. Часть 2 (2024) [MP3|320 Kbps] <Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49925.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49925.jpgsave_picture_49925.jpg" />
 </div>
 
 
@@ -340,7 +340,7 @@ PrivaZer Pro 4.0.89 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49926.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49926.jpgsave_picture_49926.jpg" />
 </div>
 
 
@@ -364,7 +364,7 @@ Topaz Video AI 5.2.0 (x64) RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49927.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49927.jpgsave_picture_49927.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ magnet:?xt=urn:btih:6AC2AB47F8E70A545C07F8A3EA3BACE89096C3EE
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49928.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49928.jpgsave_picture_49928.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ IsMyLcdOK 5.66 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49929.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49929.jpgsave_picture_49929.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Reanimation inc / Скорая Помощь Inc v54 Mod by vadj [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49930.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49930.jpgsave_picture_49930.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ OBS Studio 30.2.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49931.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49931.jpgsave_picture_49931.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ DVDFab 13.0.2.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49932.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49932.jpgsave_picture_49932.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ magnet:?xt=urn:btih:59B4D44A31AE4B17B68786C0DFE5C57218A08726
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49933.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49933.jpgsave_picture_49933.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ magnet:?xt=urn:btih:01EBC2BA108581C8CD6A6932FB35649CBFF48080
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49934.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49934.jpgsave_picture_49934.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ USB Device Tree Viewer 4.3.1.0 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49935.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49935.jpgsave_picture_49935.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ magnet:?xt=urn:btih:140EE95F5B852AD47A0EFD90F99D0E1BA4879EC5
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49936.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49936.jpgsave_picture_49936.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ magnet:?xt=urn:btih:C5CB53CA0EC5BB730C7C4999B54B5A87ECE35202
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49937.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49937.jpgsave_picture_49937.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ DVDFab StreamFab 6.1.8.8 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49938.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49938.jpgsave_picture_49938.jpg" />
 </div>
 
 

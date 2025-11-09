@@ -6,7 +6,7 @@
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143996.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143996.jpgsave_picture_143996.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ KYPCK - Ниже (2011) [FLAC|Lossless|tracks + .cue] <Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143997.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143997.jpgsave_picture_143997.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:91E37B1A13B6069AAED42E7808B19AABDCD2B625
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143999.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143999.jpgsave_picture_143999.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:BF13F83F0A83F752B9388C23115DD022B1992DE2
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144000.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144000.jpgsave_picture_144000.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ Redream Premium 1.5.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144001.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144001.jpgsave_picture_144001.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ magnet:?xt=urn:btih:4B65C941E8F8E4CB3B5A3791BCAD18067B589E30
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144002.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144002.jpgsave_picture_144002.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ magnet:?xt=urn:btih:F309C2D81861D4C2E35E7C2D272BB5BAD1F059E2
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144003.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144003.jpgsave_picture_144003.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ PasteNow Pro 2.15.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144004.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144004.jpgsave_picture_144004.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:C7D3948DE6607F6DF1CBA47D8FD0208908E0E451
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144005.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144005.jpgsave_picture_144005.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ Nostalgica - Nostalgica (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144006.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144006.jpgsave_picture_144006.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ Mammoth WVH - Mammoth II (2023) [FLAC|Lossless|image + .cue] <Alternative Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144008.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144008.jpgsave_picture_144008.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ Adobe Premiere Pro CC 2015 (v9.1.0) RUS/ENG Update 3
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144009.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144009.jpgsave_picture_144009.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ SyncTime 3.7.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144010.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144010.jpgsave_picture_144010.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ magnet:?xt=urn:btih:0469ED26C22C781BCB105D97903D8E0FDE0581D4
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144012.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144012.jpgsave_picture_144012.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Touken Ranbu: Hanamaru / Дикая пляска мечей: Ханамару [2
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144013.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144013.jpgsave_picture_144013.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ magnet:?xt=urn:btih:397BE8830923ED9F4364C1FD769133FEF003EBE2
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144014.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144014.jpgsave_picture_144014.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Chromium 65.0.3306.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144015.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144015.jpgsave_picture_144015.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ NGW: Выжить несмотря ни на что / Extreme Survivors (2014) H
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144016.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144016.jpgsave_picture_144016.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ PROMT Professional 11 Build 9.0.556 Home Edition [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144017.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144017.jpgsave_picture_144017.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ magnet:?xt=urn:btih:0A2AA79C1DDE0F2C7FC2A1ED63F99B8FA9181750
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144018.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144018.jpgsave_picture_144018.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ magnet:?xt=urn:btih:6590E6C21062EC26605A76A6529887268A363FB1
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144019.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144019.jpgsave_picture_144019.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ magnet:?xt=urn:btih:82C08E50404E6193C824D88675C9954DC9F77BAD
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144020.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144020.jpgsave_picture_144020.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ Invisible 2.5.6.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144021.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144021.jpgsave_picture_144021.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ magnet:?xt=urn:btih:8738AB854CE3F626B922313344CADE5B363E3D6B
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144023.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144023.jpgsave_picture_144023.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ magnet:?xt=urn:btih:6C30C8D8B145A7DDABF76D743D1ED2D4A7B39E23
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144024.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144024.jpgsave_picture_144024.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Broken Sword: The Sleeping Dragon / Сломанный меч 3: Спящий д
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144025.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144025.jpgsave_picture_144025.jpg" />
 </div>
 
 

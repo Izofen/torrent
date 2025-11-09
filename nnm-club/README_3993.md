@@ -6,7 +6,7 @@ Electric Asturias - Dimensions (2023) [FLAC|Lossless|tracks + .cue] <Progressive
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124364.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124364.jpgsave_picture_124364.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:5D662FFDF77D14E7B6F189D17C520D3896CD7D81
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124365.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124365.jpgsave_picture_124365.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ LOUNA - Обратная сторона. Часть 2 (2023) [MP3|320 Kbps] <Alt
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124366.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124366.jpgsave_picture_124366.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Sandboxie plus 1.12.6 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124367.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124367.jpgsave_picture_124367.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ PhotoRoom v4.8.0 b1226 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124368.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124368.jpgsave_picture_124368.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ LOUNA - Обратная сторона. Часть 2 (2023) [FLAC|Lossless|WEB-
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124370.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124370.jpgsave_picture_124370.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:5553F26624E7CDB76FC9689EB26C5BEB9DA8654E
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124371.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124371.jpgsave_picture_124371.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:93EFDCE1494683B7C14F98B5C1C3048EB889E347
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124372.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124372.jpgsave_picture_124372.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:6F0CF821DDCDE83A423DDF8AAACA7CBC98A91C93
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124373.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124373.jpgsave_picture_124373.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ magnet:?xt=urn:btih:406655D38CC2BEDBBE2B8DDEC04AD8675AEC867E
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124374.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124374.jpgsave_picture_124374.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ magnet:?xt=urn:btih:9F160ED33C74E600AF55D786484ADB7AC82133E5
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124375.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124375.jpgsave_picture_124375.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ magnet:?xt=urn:btih:99A565FCB6DA06AAF3EED4653D03E9386A0097CF
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124376.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124376.jpgsave_picture_124376.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ magnet:?xt=urn:btih:FA057FE60DB3A65D89D7AB583CB92F7597F5E5EE
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124377.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124377.jpgsave_picture_124377.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ simplewall 3.7.7 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124378.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124378.jpgsave_picture_124378.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Kaya Joshi: Magical Detective (2023) [En] (1.0) Unofficial
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124379.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124379.jpgsave_picture_124379.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Astrological Charts / Астрологические Карты Pro v10.5 [Ru/Mu
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124380.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124380.jpgsave_picture_124380.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ magnet:?xt=urn:btih:561BD9FF196904575B70A777EC18CA2E24B2CE83
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124381.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124381.jpgsave_picture_124381.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ magnet:?xt=urn:btih:D327E67FE548FDC7BACE135DE6C380480EF825BD
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124382.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124382.jpgsave_picture_124382.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Kirill Pokrovsky - Music from the Divinity Universe (2004) Limited Edition Sound
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124383.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124383.jpgsave_picture_124383.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ magnet:?xt=urn:btih:712606B541A076AEC67A93ADC212D923AA0E4B0D
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124384.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124384.jpgsave_picture_124384.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Google Chrome 120.0.6099.200 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124385.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124385.jpgsave_picture_124385.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ magnet:?xt=urn:btih:8BB46FC89E701FACC6B5DE9870B766ACD1495D35
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124386.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124386.jpgsave_picture_124386.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ magnet:?xt=urn:btih:58A5A83A3278E30EDA956D9AA90484A59A0A7BF8
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124387.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124387.jpgsave_picture_124387.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ magnet:?xt=urn:btih:E339CFE73E9B8B9BF95EDA450629DDB918B27A11
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124388.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124388.jpgsave_picture_124388.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ WPS Office + PDF v18.6 b1486 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124389.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124389.jpgsave_picture_124389.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ Xiaomi Home (Ранее. MiHome) v10.9.708 Fix Mod by Vevs [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124390.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124390.jpgsave_picture_124390.jpg" />
 </div>
 
 

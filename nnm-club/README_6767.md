@@ -6,7 +6,7 @@ A Pretext to Human Suffering - Endless Cycle of Suffering (2023) [FLAC|Lossless|
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232891.jpgsave_picture_232891.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:F02D8288FC70625E5BB5362EB267C0A8128998F4
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232895.jpgsave_picture_232895.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Icecream Video Converter 1.30 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232896.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232896.jpgsave_picture_232896.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:54B3B531A5BD3A8E1A0527CFFC847F02B7437D84
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232897.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232897.jpgsave_picture_232897.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Chromium 114.0.5735.199 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232898.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232898.jpgsave_picture_232898.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ VA - Музыка для машины Vol.19 (2023) [MP3|320 Kbps] <Pop, Dance, 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232899.jpgsave_picture_232899.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ Sidney Bechet - 1949, Vol. 3 (2002) Classics [FLAC|Lossless|tracks + .cue] <Dixi
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232901.jpgsave_picture_232901.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ QOwnNotes 23.7.0 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232902.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232902.jpgsave_picture_232902.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ VA - Марш ВДВ. Часть 1 (2007) [FLAC|Lossless|tracks + .cue] <Шан�
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232903.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232903.jpgsave_picture_232903.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ magnet:?xt=urn:btih:66EDC968292E562D08E476B4B7AC5A2AA21BE518
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232907.jpgsave_picture_232907.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ PotPlayer 230523 (1.7.21915) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232909.jpgsave_picture_232909.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ magnet:?xt=urn:btih:9657726DF03B26E9FBEFD20000DE78566FC31858
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232910.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232910.jpgsave_picture_232910.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ magnet:?xt=urn:btih:0D56D40F9D88D648911D78B8FC26837DBF1C396D
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232911.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232911.jpgsave_picture_232911.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ magnet:?xt=urn:btih:FAAC5777C4D1FE4ACB5C196D8DD5B279E79F4F99
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232912.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232912.jpgsave_picture_232912.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ magnet:?xt=urn:btih:6BD2BAE06E24CF762F6A0B227F5E9981AA89D6E0
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232915.jpgsave_picture_232915.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Lucky Patcher 10.8.2 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232917.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232917.jpgsave_picture_232917.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ Text Editor Pro 27.4.0 + Portable + Bonus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232919.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232919.jpgsave_picture_232919.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ magnet:?xt=urn:btih:3A67F801E03A4A7220007511F911395BBCFBF8A0
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232921.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232921.jpgsave_picture_232921.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Blutengel - Un:Sterblich: Our Souls Will Never Die (2023) [FLAC|Lossless|WEB-DL|
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232922.jpgsave_picture_232922.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ magnet:?xt=urn:btih:8D6BA49CD671A9B3477CD66045C3895C52FCFA55
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232924.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232924.jpgsave_picture_232924.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ magnet:?xt=urn:btih:4664486DBEAB717B2E8A9969873F449460951424
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232925.jpgsave_picture_232925.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ magnet:?xt=urn:btih:A117E75444B0414CFC0704254296F2E1863B7B25
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232929.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232929.jpgsave_picture_232929.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ RJ TextEd 15.91.3.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232931.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232931.jpgsave_picture_232931.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ magnet:?xt=urn:btih:7AE3C77C6E9B3E4CE905625CAADAFC1763ED311D
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232932.jpgsave_picture_232932.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ T.G. Copperfield - Out In The Desert (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232934.jpgsave_picture_232934.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ magnet:?xt=urn:btih:0BA1ECD8F7FC817E8C1B743D069FA84C028BD3BF
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232935.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232935.jpgsave_picture_232935.jpg" />
 </div>
 
 

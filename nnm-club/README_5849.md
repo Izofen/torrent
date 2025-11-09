@@ -6,7 +6,7 @@
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183550.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183550.jpgsave_picture_183550.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:E46A4D444EDD68DDDB0A104945CB3FD5F8C25F79
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183551.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183551.jpgsave_picture_183551.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:B0B39B0B2583A140C6B0DD818D265FDA44D4C0BF
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183553.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183553.jpgsave_picture_183553.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:62A90A78AF0F952A88C96B4D3A9AB409B1C46216
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183554.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183554.jpgsave_picture_183554.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ ProcessKO 6.11 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183555.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183555.jpgsave_picture_183555.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:2188F7A0A6072B0EFD2318CD66A0CF5FC63B0733
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183557.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183557.jpgsave_picture_183557.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ Granich.Design, Алиса Брюква | Granich Midjourney (2023) WEB-DL [AD] 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_183559.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_183559.jpgsave_picture_183559.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:6D16BC8C4B3BD34B87CB66943CA4ACC74ED9726E
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183560.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183560.jpgsave_picture_183560.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:AC776DE1DB7D0B6EDEEF9F4CAA0980428C1F95B0
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183563.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183563.jpgsave_picture_183563.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ DJ Sven, Marc Hartman - The Revival (2018) [AAC|~335 Kbps] <Electro, Techno/Hous
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_183564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183564.jpgsave_picture_183564.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ magnet:?xt=urn:btih:80585AEE1E510F3A0CA1826B2C376FF82FB360D6
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_183565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183565.jpgsave_picture_183565.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ SQLPro Studio 2020.104 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_183567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183567.jpgsave_picture_183567.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Pepakura Designer 5.0.9 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183568.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183568.jpgsave_picture_183568.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ magnet:?xt=urn:btih:FF8EF0FF11B4A1676A1942AC6CFBDB6E951430F3
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183570.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183570.jpgsave_picture_183570.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ magnet:?xt=urn:btih:A0014A834C65E3CAF69AEAC19799A7EA829D8C4D
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_183571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183571.jpgsave_picture_183571.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ magnet:?xt=urn:btih:45794D4D7698B9C342B98701E6F2703C9679250B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183573.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183573.jpgsave_picture_183573.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ magnet:?xt=urn:btih:431CA11561C240E1BC67C22E31A559472EE6C69F
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_183574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183574.jpgsave_picture_183574.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ IObit Driver Booster Pro 10.1.0.86 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183576.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183576.jpgsave_picture_183576.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ Kenny Dorham - Jerome Kern Showboat (1960) 1990, Bainbridge Records [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_183577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183577.jpgsave_picture_183577.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ OverPicture for Safari 1.10 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_183579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183579.jpgsave_picture_183579.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ Shi Cao Lao Long Bei Guan Yi E Long Zhi Ming | A Herbivorous Dragon of 5,000 Yea
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183580.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183580.jpgsave_picture_183580.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ FileZilla 3.62.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183583.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183583.jpgsave_picture_183583.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:E0B73B09DFA6292636E36EC26DF5317C2A684E00
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183584.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183584.jpgsave_picture_183584.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Symphorce - Become Death (2007) [APE|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_183585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183585.jpgsave_picture_183585.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ magnet:?xt=urn:btih:A17973E5F2F5723832A90AD5319FAD4A4D44F7F3
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_183588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183588.jpgsave_picture_183588.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Hookshot 1.13 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_183589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183589.jpgsave_picture_183589.jpg" />
 </div>
 
 

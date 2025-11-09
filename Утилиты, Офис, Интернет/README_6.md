@@ -6,7 +6,7 @@ Auslogics BoostSpeed 14.1.0.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4301.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4301.jpgsave_picture_4301.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Auslogics BoostSpeed 14.1.0.0 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4306.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4306.jpgsave_picture_4306.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Auslogics BoostSpeed 14.1.0.0 RePack (& Portable) by KpoJIuK [Ru/En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4308.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4308.jpgsave_picture_4308.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Auslogics Disk Defrag Pro 12.1.0.0 + Portable [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4309.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4309.jpgsave_picture_4309.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Auslogics Disk Defrag Pro 12.1.0.0 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4311.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4311.jpgsave_picture_4311.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Process Lasso Pro 16.0.2.10 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4314.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4314.jpgsave_picture_4314.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ AusLogics Disk Defrag Ultimate 4.13.0.2 [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4315.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4315.jpgsave_picture_4315.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ StartAllBack 3.9.15 build 5310 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4320.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4320.jpgsave_picture_4320.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ Auslogics SSD Optimizer 2.1.0.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4321.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4321.jpgsave_picture_4321.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Form Pilot Office 2.84 [Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4330.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4330.jpgsave_picture_4330.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ StartAllBack 3.9.15 StartIsBack++ 2.9.20 (2.9.1) StartIsBack + 1.7.6 RePack by K
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4340.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4340.jpgsave_picture_4340.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ magnet:?xt=urn:btih:772CDD20AFF84EB6A7ED4126DDEB6105BEA3E1E0
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4355.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4355.jpgsave_picture_4355.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Process Lasso Pro 16.0.2.10 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4454.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4454.jpgsave_picture_4454.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Icecream PDF Candy Desktop PRO 3.15 [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4458.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4458.jpgsave_picture_4458.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ BigLyBT 3.9 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4501.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4501.jpgsave_picture_4501.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ TechSmith Snagit 2025.3.1.7988 [Multi]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4530.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4530.jpgsave_picture_4530.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ Beyond Compare Pro 5.1.4.31268 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4555.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4555.jpgsave_picture_4555.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ UltraSearch Professional 4.8.2.1182 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4564.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4564.jpgsave_picture_4564.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Xplorer2 Ultimate 6.2.0.3 + Portable [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4571.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4571.jpgsave_picture_4571.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ USB Device Tree Viewer 4.6.1.0 Portable [En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4585.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4585.jpgsave_picture_4585.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Fast Screen Recorder 2.1.0.15 Portable by 7997 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4684.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4684.jpgsave_picture_4684.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ IsMyLcdOK 6.11 Portable [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4705.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4705.jpgsave_picture_4705.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Driver Magician 6.0 Portable by conservator [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4726.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4726.jpgsave_picture_4726.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Lacey 3.07 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4860.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4860.jpgsave_picture_4860.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Fast Screen Recorder 2.1.0.15 RePack by Madara [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4965.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4965.jpgsave_picture_4965.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Emurasoft EmEditor Professional 25.3.1 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5009.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5009.jpgsave_picture_5009.jpg" />
 </div>
 
 

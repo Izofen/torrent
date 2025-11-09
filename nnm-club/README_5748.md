@@ -6,7 +6,7 @@ Udemy, BHM Engineering Academy, Israel Gbati | ARM GNU Assembly Programming From
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177950.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177950.jpgsave_picture_177950.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:723233D63BB82CAB19863B59591BAAED96664F10
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177951.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177951.jpgsave_picture_177951.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:D2358047BFE3B3F15784E9F87608E57082B8B809
 >>Автомобильные обуч.видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177954.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177954.jpgsave_picture_177954.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ Fancy - Flames Of Love (1988) [OGG Vorbis|600 Kbps] <Electronic, Disco, Synth-po
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177955.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177955.jpgsave_picture_177955.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ CoolUtils Total PDF Converter 6.1.0.308 RePack (& Portable) by elchupacabra [Mul
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177957.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177957.jpgsave_picture_177957.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ magnet:?xt=urn:btih:2C13C510212B198C2D16E6133DF2C3D33AAAF752
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177958.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177958.jpgsave_picture_177958.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ magnet:?xt=urn:btih:9C6D182284706D4E2B896FFD56D81B49304C8BBF
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177962.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177962.jpgsave_picture_177962.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ VA - Heavy '70s Rock (2022) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177963.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177963.jpgsave_picture_177963.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Fancy - Contact (1986) [OGG Vorbis|550 Kbps] <Electronic, Pop, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177965.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177965.jpgsave_picture_177965.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ magnet:?xt=urn:btih:E0158AEABE3A81A279F096AF8C056112604E33FA
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177967.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177967.jpgsave_picture_177967.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ magnet:?xt=urn:btih:79383B8C01F9D6F52E2198E3E72C71BBB0C4005A
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177970.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177970.jpgsave_picture_177970.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ magnet:?xt=urn:btih:C0D29C34EE76D86D0B34AD87FEA17CC6FB152D58
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177971.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177971.jpgsave_picture_177971.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ magnet:?xt=urn:btih:C00533FE4A44F2A54BD6A3EC9957E69D1324B87B
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177974.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177974.jpgsave_picture_177974.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ Amberian Dawn - Take A Chance - A Metal Tribute to Abba (2022) [FLAC 2.0|44/24|W
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177975.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177975.jpgsave_picture_177975.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ Antti Martikainen - 3 Albums (2020-2022) [MP3|320 Kbps] <Power Metal, Epic Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177978.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177978.jpgsave_picture_177978.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ magnet:?xt=urn:btih:D4C2BB1C1FB766ABD4D6CD8DA5591CC7DEE91976
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177979.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177979.jpgsave_picture_177979.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ magnet:?xt=urn:btih:AC8AA7A73012BC740D2E7EF1F55DD26F571C8095
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177981.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177981.jpgsave_picture_177981.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Emsisoft Emergency Kit 2023.10.0.12134 Portable [Multi/Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177984.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177984.jpgsave_picture_177984.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ magnet:?xt=urn:btih:301FE0C7281FDE46471D3C9552175522D3717C90
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177987.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177987.jpgsave_picture_177987.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ magnet:?xt=urn:btih:5E029743F78F5B33A425C81907B1C5025E095359
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177991.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177991.jpgsave_picture_177991.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ magnet:?xt=urn:btih:5A961B434F857A08797EEF8FD813F782291C0963
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177993.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177993.jpgsave_picture_177993.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Amberian Dawn - Take A Chance - A Metal Tribute to Abba (2022) [FLAC|Lossless|WE
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177996.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177996.jpgsave_picture_177996.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ magnet:?xt=urn:btih:D3D308A4839E0393188195077216939F86EE65FC
 >>Футбол. Чемпионаты мира
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177997.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177997.jpgsave_picture_177997.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ magnet:?xt=urn:btih:AFD77227E669255653858D3BB5C8C497FB76456D
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178000.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178000.jpgsave_picture_178000.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ magnet:?xt=urn:btih:8B623354B972DB4BCC69312C6EEA330970E0A6A0
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178001.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178001.jpgsave_picture_178001.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ magnet:?xt=urn:btih:4D64071855B7D3B91E81DB795AC54B3E358F3C13
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178003.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178003.jpgsave_picture_178003.jpg" />
 </div>
 
 

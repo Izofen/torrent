@@ -6,7 +6,7 @@ Microsoft .NET 7.0.17 Runtime [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113611.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113611.jpgsave_picture_113611.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:C59947918640B715268FC7D883821EC3E92FE6E8
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113612.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113612.jpgsave_picture_113612.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Sonny Stitt - Tune-Up! (1972) 1993, Muse Records [FLAC|Lossless|tracks + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113613.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113613.jpgsave_picture_113613.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ TechSmith Snagit 2024.2.1 for Mac [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113614.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113614.jpgsave_picture_113614.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ Data Merge for Mac 1.1.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113615.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113615.jpgsave_picture_113615.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ Ngguitarboy - Woolabaloola (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113616.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113616.jpgsave_picture_113616.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ Navicat for MongoDB on Mac 16.3.7 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113617.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113617.jpgsave_picture_113617.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ TechSmith Camtasia 2023 Studio 2023.3.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113618.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113618.jpgsave_picture_113618.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ Oscar Peterson - Con Alma: Live in Lugano (1964) 2023, Mack Avenue [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113619.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113619.jpgsave_picture_113619.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ magnet:?xt=urn:btih:CFD4D0C7BCC84A30993D85E652DB8FF5C2F00E37
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113620.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113620.jpgsave_picture_113620.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ Navicat for Oracle on Mac 16.3.7 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113621.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113621.jpgsave_picture_113621.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ Kenny Barron - The Source (2023) Artwork Records [FLAC|Lossless|tracks + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113622.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113622.jpgsave_picture_113622.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ Glenn Marais and The Mojo Train - Red, Hot and Blue (2024) [FLAC 24/48|Lossless|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113623.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113623.jpgsave_picture_113623.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ Ibai García - Chasing the blues (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <B
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113624.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113624.jpgsave_picture_113624.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ Permute 3 v.3.11.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113625.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113625.jpgsave_picture_113625.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ Notebooks – Write and Organize 3.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113626.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113626.jpgsave_picture_113626.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ EazyDraw 11.6.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113627.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113627.jpgsave_picture_113627.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Piezo 1.8.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113628.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113628.jpgsave_picture_113628.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ Darkthrone - Soulside Journey (1991) Reissue, 2012, Peaceville [FLAC|24/192|imag
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113629.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113629.jpgsave_picture_113629.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ Keep It 2.4.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113630.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113630.jpgsave_picture_113630.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Terumasa Hino - Bluestruck (1990) [FLAC|Lossless|tracks + .cue] <Fusion, Bop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113631.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113631.jpgsave_picture_113631.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Dani Bischoff - Cedars Boulevard (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blu
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113632.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113632.jpgsave_picture_113632.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Sonny Stitt - Night Letter (1963, 1969) 1996, Prestige [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113633.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113633.jpgsave_picture_113633.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ magnet:?xt=urn:btih:9EA91C1586051AA1619C5E9593E8E4CF275310D9
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113634.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113634.jpgsave_picture_113634.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Navicat for Redis on Mac 16.3.7 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113635.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113635.jpgsave_picture_113635.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ magnet:?xt=urn:btih:6AAF50DCD6D0A71B55C0D5B3608C1638F6BC62BF
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113636.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113636.jpgsave_picture_113636.jpg" />
 </div>
 
 

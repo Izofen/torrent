@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109931.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109931.jpgsave_picture_109931.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109932.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109932.jpgsave_picture_109932.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Topaz Photo AI 3.0.2 (x64) Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109933.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109933.jpgsave_picture_109933.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:4C85CFAAE572532BC000E9D20B67E00D15A2ECC5
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109934.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109934.jpgsave_picture_109934.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:618C85076CB7E3E4319F9D450AF760FEEE23CF85
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109935.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109935.jpgsave_picture_109935.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ WinTools.net Premium 24.5.1 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109936.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109936.jpgsave_picture_109936.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:10594E1D25513EDEBD250C974D6048E86DF3F797
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109937.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109937.jpgsave_picture_109937.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ Alessandro Brunetta - Shakedown! (2024) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <J
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109938.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109938.jpgsave_picture_109938.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ Blaze of Perdition - Conscious Darkness (2017) [FLAC|Lossless|tracks + .cue] <Bl
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109939.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109939.jpgsave_picture_109939.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ Shrine of Insanabilis - Vast Vortex Litanies (2019) [FLAC|Lossless|image + .cue]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109940.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109940.jpgsave_picture_109940.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ David "Fathead" Newman & The Tilden Webb Trio - Cellar Groove (2004) 2013, Cella
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109941.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109941.jpgsave_picture_109941.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ Shrine of Insanabilis - Tombs Opened by Fervent Tongues... Earth's Final Necropo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109942.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109942.jpgsave_picture_109942.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ Gugun Blues Shelter - Coming Out (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blu
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109943.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109943.jpgsave_picture_109943.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ Joe Metzka - Blues for Daniel (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109944.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109944.jpgsave_picture_109944.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ Blazing Eternity - A Certain End of Everything (2024) [FLAC|Lossless|WEB-DL|trac
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109945.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109945.jpgsave_picture_109945.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ WailingGita - Mafia's Masquerade (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jaz
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109946.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109946.jpgsave_picture_109946.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ Monica Shriver - Unfolding (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109947.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109947.jpgsave_picture_109947.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ Bloodcum - Arsestabbers (2001) Demo, Reissue, 2020, Brutal Mind [FLAC|Lossless|i
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109948.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109948.jpgsave_picture_109948.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Novelty Five - Rosetta (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109949.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109949.jpgsave_picture_109949.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ Charles Fambrough - Keeper Of The Spirit (1995) AudioQuest Music [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109950.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109950.jpgsave_picture_109950.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ Blazing Eternity - A World to Drown In (2003) [FLAC|Lossless|image + .cue] <Melo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109951.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109951.jpgsave_picture_109951.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Fux Jazz Band - Mi Lugar de Fantasía (2024) [FLAC 24/48|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109952.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109952.jpgsave_picture_109952.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Shrine of Insanabilis - Disciples of the Void (2015) [FLAC|Lossless|image + .cue
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109953.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109953.jpgsave_picture_109953.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ AWaJI Jazz Blues - Superstition (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109954.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109954.jpgsave_picture_109954.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Bastardz Music Lab - Episode #64 (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jaz
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109955.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109955.jpgsave_picture_109955.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ Jacky Terrasson & Stephane Belmondo - Mother (2016) Impulse! [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109956.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109956.jpgsave_picture_109956.jpg" />
 </div>
 
 

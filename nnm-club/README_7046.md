@@ -6,7 +6,7 @@ Zoner Photo Studio X19.2303.2.445 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241407.jpgsave_picture_241407.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Code Composer Studio 12.2.0.00009 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241408.jpgsave_picture_241408.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ B.O.S.C.H. - Parasit (2023) [FLAC|Lossless|WEB-DL|tracks] <Industrial-Metal, Roc
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241409.jpgsave_picture_241409.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:FB87657D33A6DCED0B3BC650362AFF5201267F01
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241411.jpgsave_picture_241411.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ Majesty - Back To Attack (2023) [MP3|320 Kbps] <Heavy, Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241412.jpgsave_picture_241412.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ Northlane - 6 альбомов + 1 EP (2010-2022) [MP3|320 кб/с]<Progressive 
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241413.jpgsave_picture_241413.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ Paste 2.2.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241414.jpgsave_picture_241414.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ magnet:?xt=urn:btih:45C33F29DA15AC08EDB746DBD04FF52934CB9968
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241415.jpgsave_picture_241415.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ magnet:?xt=urn:btih:01E0C4F3836C4F680777D991F438867454558958
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241416.jpgsave_picture_241416.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ VA - Record Super Chart 08.04.2023 [MP3|320 Kbps] <Pop, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241418.jpgsave_picture_241418.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ ZippO - Фитиль 2 (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241419.jpgsave_picture_241419.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ Fred Astaire - The Astaire Story (1952) 2CD, 1988, Verve [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241420.jpgsave_picture_241420.jpg" />
 </div>
 
 
@@ -315,7 +315,7 @@ Icecream Screen Recorder PRO 7.23 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241421.jpgsave_picture_241421.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ magnet:?xt=urn:btih:8CA80825674FC4B0E36CD1A3B2B206070A8DF661
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241422.jpgsave_picture_241422.jpg" />
 </div>
 
 
@@ -364,7 +364,7 @@ magnet:?xt=urn:btih:FE920DAEC494F3D8345F2C6B2B1046D85AECB946
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241423.jpgsave_picture_241423.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ MotoGP. Этап 02. Гран-При Дохи. Квалификация. (03.04.
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241425.jpgsave_picture_241425.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Hetman Uneraser Home / Office / Unlimited Edition 6.7 RePack (& Portable) by Try
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241426.jpgsave_picture_241426.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ AnyMP4 Mac Blu-ray Player 6.3.32 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241427.jpgsave_picture_241427.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ magnet:?xt=urn:btih:340426B535A9CC2321E8EE798F48567C6D2F7424
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241428.jpgsave_picture_241428.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ Woody Herman - 1940 (2002) Classics [FLAC|Lossless|image + .cue] <Swing, Big Ban
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241429.jpgsave_picture_241429.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ VA - 50 Hits Spring (2023) [MP3|320 Kbps] <Latin Dance, Reggae, Dancehall, Synth
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241430.jpgsave_picture_241430.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ magnet:?xt=urn:btih:7BA27F1B539091EBAE6DD12C1F19045E1562BC2B
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241432.jpgsave_picture_241432.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Schoolism, Wouter Tulp | Digital Painting Workout with Wouter Tulp Part 1 (2020)
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241433.jpgsave_picture_241433.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ KCNcrew Pack 03-15-17 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241434.jpgsave_picture_241434.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Kuba - Albomba (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241435.jpgsave_picture_241435.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ K.S.V. - Цикл (2021) [MP3|320 Kbps] <Hardcore Punk>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241436.jpgsave_picture_241436.jpg" />
 </div>
 
 

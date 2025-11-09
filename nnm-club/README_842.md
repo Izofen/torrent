@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22231.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22231.jpgsave_picture_22231.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:12CB9BFBAEB9107A23128BDE0F9E092EB7732ED9
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22232.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22232.jpgsave_picture_22232.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:745BD4499325031D2FD77576144C7E95C49745AD
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22233.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22233.jpgsave_picture_22233.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Zerocoder, Кирилл Пшинник, Мария Размазина и д.р. 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22234.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22234.jpgsave_picture_22234.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:E4697DB96A4BDF0B59185FF3A18E212668A84CF0
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22235.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22235.jpgsave_picture_22235.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Zerocoder | Станьте профессиональным зерокодеро
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22236.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22236.jpgsave_picture_22236.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ Zerocoder, Вадим Михалев | Зерокодер мобильных п�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22237.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22237.jpgsave_picture_22237.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ magnet:?xt=urn:btih:E0870096B9D95476C2E1C3FDFA1F2C8860ABCC27
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22238.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22238.jpgsave_picture_22238.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ magnet:?xt=urn:btih:87E6F58D51B7BB1F075BDA3A5D0D177764D4B28D
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22239.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22239.jpgsave_picture_22239.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ magnet:?xt=urn:btih:5C151DA72F3F83FF38CBEFE7A5575F82136FD952
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22240.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22240.jpgsave_picture_22240.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ magnet:?xt=urn:btih:5C151DA72F3F83FF38CBEFE7A5575F82136FD952
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22241.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22241.jpgsave_picture_22241.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ magnet:?xt=urn:btih:53F6C5DF62413BD3C268D2120B5C3F27A45BDB8B
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22242.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22242.jpgsave_picture_22242.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ magnet:?xt=urn:btih:53F6C5DF62413BD3C268D2120B5C3F27A45BDB8B
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22243.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22243.jpgsave_picture_22243.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ magnet:?xt=urn:btih:E159048D083D0B219E8D10B219AECD48B9FCDB7F
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22244.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22244.jpgsave_picture_22244.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Vagrus: The Riven Realms (2021) [Ru/Multi] (1.2.00.0402Q/dlc) Repack FitGirl [Ce
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22245.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22245.jpgsave_picture_22245.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ magnet:?xt=urn:btih:F06E03DB1008DFEEDA1EB54BB4BBFC352890E60A
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22246.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22246.jpgsave_picture_22246.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ magnet:?xt=urn:btih:50A4A5853AE0FE41317D802C46CDA986DAF21044
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22247.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22247.jpgsave_picture_22247.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ magnet:?xt=urn:btih:BA77C5587EF5336C72CF9EA896268DFA42AD61A6
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22248.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22248.jpgsave_picture_22248.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ magnet:?xt=urn:btih:951777DA2AFFFB0CDB84E5D529D93ADF4DDE72BC
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22249.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22249.jpgsave_picture_22249.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ magnet:?xt=urn:btih:3A5B9661CD46505D94254BF98BEEEA4ACA7B6B22
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22250.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22250.jpgsave_picture_22250.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ magnet:?xt=urn:btih:4E88A90768FF9FE60DE3A8CA03C21B312516378A
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22251.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22251.jpgsave_picture_22251.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ AirBrush: ИИ Фоторедактор v7.7.0 Mod by PieMods [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22252.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22252.jpgsave_picture_22252.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ magnet:?xt=urn:btih:C8AABFDDEDC1A231914C94FAD4782AEB11605510
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22253.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22253.jpgsave_picture_22253.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ magnet:?xt=urn:btih:C401091D9547CB34567ACBDB72918BE538477A70
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22254.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22254.jpgsave_picture_22254.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ VA - Новые хитовые песни 2025, Часть 3 (2025) [FLAC|Lossle
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22255.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22255.jpgsave_picture_22255.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ State Azure - The Light That Remains (2025) [FLAC|Lossless|WEB-DL|tracks] <Psybi
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22256.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22256.jpgsave_picture_22256.jpg" />
 </div>
 
 

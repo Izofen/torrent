@@ -6,7 +6,7 @@
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192701.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192701.jpgsave_picture_192701.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:F233BCE051E7F685732E8E8393173AC4E8518357
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192702.jpgsave_picture_192702.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:31407CA257DA0A0D961C01D2F4CC4450DB413453
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192703.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192703.jpgsave_picture_192703.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ ZEDGE 8.14.8 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192704.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192704.jpgsave_picture_192704.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:92969C3A2E6A760FFA6B4DA7BDE88BD059156306
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192706.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192706.jpgsave_picture_192706.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Jon Bon Jovi - Blaze Of Glory (1990) Reissue, 2013, Mercury [OGG Vorbis|480 Kbps
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192707.jpgsave_picture_192707.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ magnet:?xt=urn:btih:88C1C43703CF5040D0749A7921200341B33FF47E
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192708.jpgsave_picture_192708.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ John Bongiovi - The Power Station Sessions 1980-1983 (2001) Reissue [OGG Vorbis|
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192709.jpgsave_picture_192709.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ magnet:?xt=urn:btih:1082A9B3277BAA91ADAE0AA79C6E3A1E37B0C3B1
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192710.jpgsave_picture_192710.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ Woody Herman - The Complete Capitol Recordings Of Woody Herman (1948 - 1956) 6CD
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192711.jpgsave_picture_192711.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ Cursed to Occult - Diary of a Broken Man (2023) [MP3|320 Kbps] <Sludge Metal, Cr
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192712.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192712.jpgsave_picture_192712.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ VivaVideo Video Editor v9.11.2 Mod by maxi123444 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192713.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192713.jpgsave_picture_192713.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ Lee O'Nell Blues Gang - This Is Us (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues R
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192714.jpgsave_picture_192714.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ Ginger Wildheart & The Sinners - Ginger Wildheart & The Sinners (2022) [FLAC|Los
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192715.jpgsave_picture_192715.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ magnet:?xt=urn:btih:12A763526B4A78B353AB03D7AB26EF345D6673EB
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192716.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192716.jpgsave_picture_192716.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ Fear Disease - Floodgates (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192717.jpgsave_picture_192717.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ magnet:?xt=urn:btih:30929C20CE9860E9CFA83F50DC4D7F4888B7A777
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192718.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192718.jpgsave_picture_192718.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ magnet:?xt=urn:btih:446D1BD98C540C8FB6495CEBF1730E081E2F2C87
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192719.jpgsave_picture_192719.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ magnet:?xt=urn:btih:7AF0DDD17D1FEA42918412ED77D09879C92E43AF
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192720.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192720.jpgsave_picture_192720.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ Laurence Jones - Destination Unknown (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192721.jpgsave_picture_192721.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ magnet:?xt=urn:btih:B981A269C69747273451B45FB276AC49496128FD
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192722.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192722.jpgsave_picture_192722.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ magnet:?xt=urn:btih:66E05BE676587869326A1EE39A7C678DAAD29F6F
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192723.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192723.jpgsave_picture_192723.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Rotten Tongue - Sacrificial Ideation (2022) [FLAC|Lossless|WEB-DL|tracks] <Black
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192724.jpgsave_picture_192724.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ magnet:?xt=urn:btih:FB49AC1D36C31DF5A4849C47410120D292EA2A87
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192725.jpgsave_picture_192725.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ MotoGP. Этап 11. Гран-при Каталонии. Гонка (03.09.2023)
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192726.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192726.jpgsave_picture_192726.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ Far Beyond - The Moment Of Creation (2023) [FLAC|Lossless|WEB-DL|tracks] <Sympho
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192727.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192727.jpgsave_picture_192727.jpg" />
 </div>
 
 

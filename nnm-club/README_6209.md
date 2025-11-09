@@ -6,7 +6,7 @@ Udemy, Nafay Sheikh | Unreal Engine 5: Realistic Product Animation / Visualizati
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194914.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194914.jpgsave_picture_194914.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Kodi 20.2 (Nexus) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194915.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194915.jpgsave_picture_194915.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:B3973B9CA45C0739056A6DCDA6E724173F76E9EB
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194916.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194916.jpgsave_picture_194916.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ OsmAnd+ - Карты & GPS Офлайн 4.5.6 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194917.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194917.jpgsave_picture_194917.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:80909196830C10794157F4CF0C678408391B85C3
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_194918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_194918.jpgsave_picture_194918.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:DDCAC49C09C91EA4C096A2CA62BF61B42CF0FAC2
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194919.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194919.jpgsave_picture_194919.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:A2EA7E1EF81E05541E69B21538418FF9BFA048ED
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194920.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194920.jpgsave_picture_194920.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ AI Photo for Mac 1.13 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194921.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194921.jpgsave_picture_194921.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ Adguard 7.14.0 (7.14.4316.0) RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194922.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194922.jpgsave_picture_194922.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ magnet:?xt=urn:btih:C033AC8C5D5E49BF01714AA9BD6641242EEB81C4
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194923.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194923.jpgsave_picture_194923.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Punto Switcher 4.4.5 Build 529 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194924.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194924.jpgsave_picture_194924.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ magnet:?xt=urn:btih:B91A9F21321015FA948BB2969A50E0F2DABB6B70
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194925.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194925.jpgsave_picture_194925.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Adobe Substance 3D Designer 12.4.0 [Multi]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194926.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194926.jpgsave_picture_194926.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ SimCity 3000 Unlimited (2000) [Ru] (1.0) Unofficial
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194927.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194927.jpgsave_picture_194927.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Koodo Reader 1.5.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194928.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194928.jpgsave_picture_194928.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ SimCity 2000 (1995) [En] (1.0) Repack dark_elf2 [Special Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194929.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194929.jpgsave_picture_194929.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ magnet:?xt=urn:btih:20597FF951750A46B07A8BBDE85C8CF1C1DEC9A5
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194930.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194930.jpgsave_picture_194930.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ magnet:?xt=urn:btih:6E71C16A088F7EDA88137C41C359A92FF75029F1
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194931.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194931.jpgsave_picture_194931.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ magnet:?xt=urn:btih:0BD420F9430FC83C494648671244DB1FF4295549
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194932.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194932.jpgsave_picture_194932.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ magnet:?xt=urn:btih:53EAA5B36639540B9639BF74BEA8AAA5CD029FA9
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194933.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194933.jpgsave_picture_194933.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ magnet:?xt=urn:btih:4BBFECB6B3F0DA48A2477DA2CE50999D3B47D4DA
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194934.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194934.jpgsave_picture_194934.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ magnet:?xt=urn:btih:B5CF6F0C340358CFCFD521585ABC2FDB10CD30B3
 >>Флот
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_194935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_194935.jpgsave_picture_194935.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Radio Tapok - Эпоха Империй (2023) [MP3|320 Kbps] <Power Metal>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194936.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194936.jpgsave_picture_194936.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ magnet:?xt=urn:btih:E40E01408390B367C02DD1B8BD5A414F742FA1EF
 >>Флот
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_194937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_194937.jpgsave_picture_194937.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ nthLink 6.1.0.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194938.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194938.jpgsave_picture_194938.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ magnet:?xt=urn:btih:8208668A7E91C3A8F6B199032D253B00C3933775
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_194939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_194939.jpgsave_picture_194939.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Tiger Rose feat. B. Chambille - Tiger Rose & B. Chambille (2025) [FLAC|Lossless|
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71704.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71704.jpgsave_picture_71704.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ DGM - Endless (2024) Japanese Edition [FLAC|Lossless|image + .cue] <Progressive 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71705.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71705.jpgsave_picture_71705.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ AARA - Eiger (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Black Metal, Atmosphe
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71706.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71706.jpgsave_picture_71706.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Morbid Saint - Swallowed By Hell (2023) 2024, High Roller Records [FLAC|Lossless
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71707.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71707.jpgsave_picture_71707.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Druknroll - My Dark Desires (2023) [FLAC|Lossless|image + .cue] <Groove Metal, M
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71708.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71708.jpgsave_picture_71708.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Unto Others - Never, Neverland (2024) [FLAC|Lossless|image + .cue] <Heavy Metal,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71709.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71709.jpgsave_picture_71709.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Ed Alstrom - Flee Though None Pursue (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71710.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71710.jpgsave_picture_71710.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Gareth Huggett - Modern Life (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues R
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71711.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71711.jpgsave_picture_71711.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Brian Grilli - Great Big Sky (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71712.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71712.jpgsave_picture_71712.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Jeff Krause & Brokedown Gramophone - Tears for My Friends (2025) [FLAC 24/96|Los
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71713.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71713.jpgsave_picture_71713.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:9B9995397C0ED09CF89EF0564658252C0A1D7D35
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71714.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71714.jpgsave_picture_71714.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Enrico Pieranunzi Jazz Ensemble - Time's Passage (2020) Abeat Records [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71715.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71715.jpgsave_picture_71715.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Crimson Storm - Livin' on the Bad Side (2024) [FLAC 24/44.1|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71716.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71716.jpgsave_picture_71716.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Aldo Farias with Mario Nappi, Tommaso Scannapieco & Pietro Iodice - Worlds (2025
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71717.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71717.jpgsave_picture_71717.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ magnet:?xt=urn:btih:548E4A3AB029BC3B1D35FA9F6892D319F1C48F74
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71718.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71718.jpgsave_picture_71718.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ magnet:?xt=urn:btih:89084DFA6EC9D51BA60B26AAE54978D7266CC523
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71719.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71719.jpgsave_picture_71719.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ Renovation Blues Band - Nail It! (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71720.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71720.jpgsave_picture_71720.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ Le Garage - Fingernails (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71721.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71721.jpgsave_picture_71721.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ Spencer Ezell - Ringside Seats (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71722.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71722.jpgsave_picture_71722.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ Opera Nera - The Tempest (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Prog
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71723.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71723.jpgsave_picture_71723.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Lowell Hopper - Never Too Late (2025) [FLAC|Lossless|WEB-DL|tracks] <Contemporar
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71724.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71724.jpgsave_picture_71724.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Enrico Pieranunzi Trio - New Visions (2019) Storyville [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71725.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71725.jpgsave_picture_71725.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Starchilde - Jupiter Brain (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progres
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71726.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71726.jpgsave_picture_71726.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ Luigi Martinale Trio - Le Sue Ali (2005) 2009, Albore Jazz [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71727.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71727.jpgsave_picture_71727.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ magnet:?xt=urn:btih:D9AD7F990BDA1EB33AAE3987C271C475094236CF
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71728.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71728.jpgsave_picture_71728.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ Marius M.21 - Dreams (2016) [MP3|320 Kbps] <Italo-Disco, Space-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71729.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71729.jpgsave_picture_71729.jpg" />
 </div>
 
 

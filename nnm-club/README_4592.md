@@ -6,7 +6,7 @@
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143749.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143749.jpgsave_picture_143749.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:B90B609608AAB265B34A4A52405FAC86C4F53969
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143750.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143750.jpgsave_picture_143750.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ VA - Space Odyssey. New Year's Voyage 2018 2CD (2017) [MP3|320 Kbps] <Spacesynth
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143751.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143751.jpgsave_picture_143751.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:BCB3EAD12330F804ED85A56C47EADDD4D02D4773
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143752.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143752.jpgsave_picture_143752.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Agonizer - Birth The End (2007) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143754.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143754.jpgsave_picture_143754.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:CB2FC8BFE259BB6CA246864E02819CD0524BB810
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143755.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143755.jpgsave_picture_143755.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:74DB3A50F50375D3E86C131B4B88B0AC3B7AEAB0
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143756.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143756.jpgsave_picture_143756.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Wise Disk Cleaner 11.0.6.820 RePack (& portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143757.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143757.jpgsave_picture_143757.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:EDDE4C1F45342A367B42FEDAE41CCEF0A82BA678
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143759.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143759.jpgsave_picture_143759.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ Everfrost - Blue Eyed Emotion (2015) [MP3|320 кб/с] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143760.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143760.jpgsave_picture_143760.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ magnet:?xt=urn:btih:FFEF940C4451477809F8E203B47A998C486E6B00
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143763.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143763.jpgsave_picture_143763.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ Child - Child (1969) [MP3|320 кб/с] <Psychedelic Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143765.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143765.jpgsave_picture_143765.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ Firefox Browser 120.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143767.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143767.jpgsave_picture_143767.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Allavsoft Video Downloader Converter 3.22 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143768.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143768.jpgsave_picture_143768.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Shantae: Half-Genie Hero (2016) [WiiU] [USA] 5.3.2 [Loadiine GX2] [eShop] [En]
 >>Wii U
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143769.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143769.jpgsave_picture_143769.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Recovery Partition for Acer Aspire E1-531G / Windows 8 (х64)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143770.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143770.jpgsave_picture_143770.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Recovery Partition for Acer Aspire E1-531G / Windows 8 (х64)
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143771.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143771.jpgsave_picture_143771.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ magnet:?xt=urn:btih:6F48678BE1DB61822FC418A8CA4877AA2936DDA0
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143774.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143774.jpgsave_picture_143774.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ VA - Deejay Dance Compilation Mixed By DJ Neil (2004) [FLAC|Lossless|tracks] <Tr
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143775.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143775.jpgsave_picture_143775.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ magnet:?xt=urn:btih:6B752D618E4374E55C3AAA5EB18AA8CB82ED2EEB
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143776.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143776.jpgsave_picture_143776.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ magnet:?xt=urn:btih:AB3BA72BE4F62EA3ABF0E553FFDB75DDEC280220
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143777.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143777.jpgsave_picture_143777.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ The Frank Wright Quartet - Church Number Nine (1970) 2002, Black Keys[FLAC|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143778.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143778.jpgsave_picture_143778.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Drifters | Скитальцы [2016, TV, 12] HDTV 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143779.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143779.jpgsave_picture_143779.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ magnet:?xt=urn:btih:14BC70421F95E5941CBD1ED037257D615EA96C2E
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143780.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143780.jpgsave_picture_143780.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ magnet:?xt=urn:btih:5448FCB78C792EC6DCFF93B3BE32EC55DD6B57EF
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143782.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143782.jpgsave_picture_143782.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Urbie Green - Five Classic Albums 1953 - 1956 (2013) 2CD, Avid Jazz [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143784.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143784.jpgsave_picture_143784.jpg" />
 </div>
 
 

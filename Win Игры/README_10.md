@@ -6,7 +6,7 @@ Galactic Civilizations IV (2023) [Ru/Multi] (3.01/dlc) Repack Let'sРlay [Supern
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2883.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2883.jpgsave_picture_2883.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ SWAT Commander (2025) [Ru/Multi] (0.7.7.4) Repack Let'sРlay [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2890.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2890.jpgsave_picture_2890.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Smalland: Survive the Wilds (2024) [Ru/Multi] (2.0.4) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2891.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2891.jpgsave_picture_2891.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Shardlight (2016) [En] (3.4) License GOG [Special Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2898.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2898.jpgsave_picture_2898.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Whispered Secrets 17: Poisoner's Masquerade (2025) [En] (1.0) Unofficial [Collec
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2971.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2971.jpgsave_picture_2971.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Shape of Dreams (2025) [Ru/Multi] (1.0.0.RC12 s) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3002.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3002.jpgsave_picture_3002.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ X4: Foundations (2018) [Ru/Multi] (8.00/dlc) Repack seleZen [Community of Planet
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3027.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3027.jpgsave_picture_3027.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Kaiserpunk (2025) [Ru/Multi] (1.01.010/dlc) Repack Let'sРlay [Supporter Edition
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3029.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3029.jpgsave_picture_3029.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Shape of Dreams (2025) [Ru/Multi] (build 19939749) Repack seleZen
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3041.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3041.jpgsave_picture_3041.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Heads Will Roll: Reforged (2023) [Ru/Multi] (2.6/dlc) Repack FitGirl [Complete E
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3046.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3046.jpgsave_picture_3046.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Monster Prom 4: Monster Con (2025) [En] (1.42.a/dlc) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3050.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3050.jpgsave_picture_3050.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Empyrion - Galactic Survival (2020) [Ru/Multi] (1.13.2 4801/dlc) Repack Pioneer
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3056.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3056.jpgsave_picture_3056.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Virtua Fighter 5 R.E.V.O. (2025) [Multi] (1.05/dlc) Repack Let'sРlay [30th Anni
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3067.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3067.jpgsave_picture_3067.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Reus 2 (2024) [Ru/Multi] (1.9.0/dlc) Repack Let'sРlay [Complete edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3068.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3068.jpgsave_picture_3068.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Iron Core: Mech Survivor (2025) [Ru/Multi] (3.0.8) Repack Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3082.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3082.jpgsave_picture_3082.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Airships: Conquer the Skies (2015) [Ru/Multi] (1.2.8.2/dlc) License GOG (обн�
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3090.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3090.jpgsave_picture_3090.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ AI War 2 (2019) [En] (5.714/dlc) License GOG [Titan Edition]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3092.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3092.jpgsave_picture_3092.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Starship Troopers: Terran Command (2022) [Ru/Multi] (5.1.3 HF1/dlc) Repack Let's
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3099.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3099.jpgsave_picture_3099.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Knock on the Coffin Lid (2024) [Ru/Multi] (1.3.5.4/dlc) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3100.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3100.jpgsave_picture_3100.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Brigand: Oaxaca (2017) [En] (17.0/dlc) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3105.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3105.jpgsave_picture_3105.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Myth Finders (2025) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3128.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3128.jpgsave_picture_3128.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Roots of Pacha (2023) [Ru/Multi] (1.3.0) Repack Let'sРlay
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3173.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3173.jpgsave_picture_3173.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ FACEMINER (2025) [Ru/Multi] (1.41) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3194.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3194.jpgsave_picture_3194.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Ravenous Devils (2022) [Ru/Multi] (Build 9180250) Repack Let'sРlay
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3203.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3203.jpgsave_picture_3203.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Planet of Lana (2023) [Ru/Multi] (1.1.0.0) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3222.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3222.jpgsave_picture_3222.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Labyrinthine (2023) [Ru/Multi] (Build 19705579/dlc) Repack FitGirl [Supporter Ed
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3240.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3240.jpgsave_picture_3240.jpg" />
 </div>
 
 

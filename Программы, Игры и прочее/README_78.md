@@ -6,7 +6,7 @@ Moon+ Reader Pro v8.3 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_196064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196064.jpgsave_picture_196064.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Minecraft: Pocket Edition 1.20.0.21.BETA Mod by roydiPRO [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196156.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196156.jpgsave_picture_196156.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Terraria 1.4.4.9.2 Mod by Dav124 [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196190.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196190.jpgsave_picture_196190.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:8BE3B55E6B86ECEA8FAF408AD8630602E146CCE3
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196196.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196196.jpgsave_picture_196196.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Tone Generator PRO v3.36 [En/Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_196264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196264.jpgsave_picture_196264.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ WiFi Analyzer v3.7 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_196270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196270.jpgsave_picture_196270.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ ByVoice v3.7.0 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_196355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196355.jpgsave_picture_196355.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Call Recorder - SKVALEX 3.6.0 Mod by 5mod [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196378.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196378.jpgsave_picture_196378.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Kaspersky для Android 11.99.4.9878 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196552.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196552.jpgsave_picture_196552.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Cx Проводник / Cx File Explorer 2.0.0 Mod by guf1990 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196554.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196554.jpgsave_picture_196554.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ SmartDriver: АнтиРадар ГИБДД v1.15.0.36616 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_196573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196573.jpgsave_picture_196573.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Adobe Acrobat Reader для PDF 23.6.0.28101.Beta Mod by PieMods [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196578.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196578.jpgsave_picture_196578.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Reface v3.40.0 [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_196597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196597.jpgsave_picture_196597.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Filmic Pro 7.2 Mod by Timozhai [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196623.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196623.jpgsave_picture_196623.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Psiphon Pro 382 Mod by DEXUNPACKER [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196668.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196668.jpgsave_picture_196668.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:1C798EDE6A6C2988511E29C7E4CF166839AB7B6C
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_196692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196692.jpgsave_picture_196692.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Carista OBD2 v7.5 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_196698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196698.jpgsave_picture_196698.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ magnet:?xt=urn:btih:76FA508A5906A553CF01F52CB29C432C749C92CF
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_196902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196902.jpgsave_picture_196902.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ magnet:?xt=urn:btih:802DD6D04C880B803A36F31802851BBA174B24B8
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_196994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196994.jpgsave_picture_196994.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ magnet:?xt=urn:btih:B0B5897490DC7B57BF4A7B2447E845DED2A8DCCA
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_197042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197042.jpgsave_picture_197042.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ magnet:?xt=urn:btih:F10FD93CB4E809328D27FE6A616213845EF1DF23
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197121.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197121.jpgsave_picture_197121.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:5995C9716ED8743D8B10ABC28D55FD70F808E297
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197296.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197296.jpgsave_picture_197296.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ magnet:?xt=urn:btih:57B93F3CA3BA1F58A24D9A0CBBAF3B549C3F7230
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197499.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197499.jpgsave_picture_197499.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ magnet:?xt=urn:btih:AE395F8EFD97F2E7453C9CBF3F3E06B05386C319
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197540.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197540.jpgsave_picture_197540.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ magnet:?xt=urn:btih:1CDBD01A535EE3087E6E950453B802AE12B71724
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197568.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197568.jpgsave_picture_197568.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ magnet:?xt=urn:btih:28A46F7416CF29E1D55AD34758842B782B02A968
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197609.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197609.jpgsave_picture_197609.jpg" />
 </div>
 
 

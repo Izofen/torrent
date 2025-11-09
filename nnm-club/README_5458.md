@@ -6,7 +6,7 @@
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168829.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168829.jpgsave_picture_168829.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:7690970BE55E39870FE5C6E2AAE8453525F97E39
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168830.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168830.jpgsave_picture_168830.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:CF4D2BEC7C593D47E3432044D99D53D94FC7F657
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168831.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168831.jpgsave_picture_168831.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:6282F826514373F848A4470806F0FAABF5AF27DE
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168832.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168832.jpgsave_picture_168832.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ VA - Пацанам городских окраин (2004) [FLAC|Lossless|tracks
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168833.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168833.jpgsave_picture_168833.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Roxette - Exclusive collection (2001) [FLAC|Lossless|image + .cue] <Pop Rock, Ba
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168834.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168834.jpgsave_picture_168834.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:2EFEC8ADF2AAAA0E8968DE015F770FE7B0B6C42E
 >>Бокс
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168835.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168835.jpgsave_picture_168835.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ Uninstall Tool 3.7.3 Build 5720 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168836.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168836.jpgsave_picture_168836.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ magnet:?xt=urn:btih:99AF26C6A4652058928B20BAC32018BC2DB0037A
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168837.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168837.jpgsave_picture_168837.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ Shadow Tactics: Blades of the Shogun - Aiko's Choice (2021) [Ru/Multi] (3.2.25.f
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168838.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168838.jpgsave_picture_168838.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ Electronik Sound Lab - 808 Bass Module III 3.3.1 VSTi, VSTi3 (x86/x64) Retail + 
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168839.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168839.jpgsave_picture_168839.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ magnet:?xt=urn:btih:0A4F149758F6A039D5AB864398686EBD6A8C859D
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168840.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168840.jpgsave_picture_168840.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:89014BFC1EE2F1496CF852DAA191BD3B0104ABCF
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168841.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168841.jpgsave_picture_168841.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Master PDF Editor 5.9.70 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168842.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168842.jpgsave_picture_168842.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Harry Potter and the Chamber of Secrets / Гарри Поттер и Тайна�
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168843.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168843.jpgsave_picture_168843.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ magnet:?xt=urn:btih:6AB447A5AFC8B004FDA90D8A0F77B9CE883F8DC0
 >>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168844.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168844.jpgsave_picture_168844.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ magnet:?xt=urn:btih:B7EF50AFC2CA04318B0954DD0CA8BAF5610EA7F0
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168845.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168845.jpgsave_picture_168845.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ magnet:?xt=urn:btih:6E9AF023709DADF6468FBF37DFF087F519A7B04B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168846.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168846.jpgsave_picture_168846.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ magnet:?xt=urn:btih:B59A5F856845CFF68465BEE58FF25C1A404C0E12
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168847.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168847.jpgsave_picture_168847.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ Freemake Video Converter 4.1.10.479 RePack (& Portable) by elchupacabra [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168848.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168848.jpgsave_picture_168848.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ magnet:?xt=urn:btih:F52923ECAC1D4F0859AB597186AC0944AB3F0932
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168849.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168849.jpgsave_picture_168849.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ magnet:?xt=urn:btih:285182F4F4D2158DA0612F4E64981508B3FF5B45
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168850.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168850.jpgsave_picture_168850.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ magnet:?xt=urn:btih:196F66B9B05FF7153F738B4F22BAF78A4731185A
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168851.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168851.jpgsave_picture_168851.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ magnet:?xt=urn:btih:065F83CDF934D83249A674A6E6ABC4E9D9502ABA
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168852.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168852.jpgsave_picture_168852.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ magnet:?xt=urn:btih:9521626C9D420E37B7F614652B82397ACE43D409
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168853.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168853.jpgsave_picture_168853.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Queen Samantha - 3 Albums (1978, 1979) 2 Reissue CD, 2020 [MP3|320 Kbps] <Electr
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168854.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168854.jpgsave_picture_168854.jpg" />
 </div>
 
 

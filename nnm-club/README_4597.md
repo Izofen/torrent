@@ -6,7 +6,7 @@
 >>Звездные войны / Star Wars (сериалы по франшизе)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143902.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143902.jpgsave_picture_143902.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ eMail Address Extractor 3.5.8.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143903.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143903.jpgsave_picture_143903.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Coolmuster PDF Converter Pro 2.1.22 RePack by вовава [Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143904.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143904.jpgsave_picture_143904.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:491B160AA515D1CA830579DB57077311B21DAA59
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143905.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143905.jpgsave_picture_143905.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ XnView MP for Mac 1.6.2 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143906.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143906.jpgsave_picture_143906.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ TuneUp Utilities 2013 13.0.3000.138 RePack by elchupacabra [Русский / А�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143907.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143907.jpgsave_picture_143907.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ VA - Dance Music Delirious (2017) [MP3|320 Kbps] <Euro Dance, Pop Dance>
 >>Eurodance, Euro-House, Technopop
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143908.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143908.jpgsave_picture_143908.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ USBclean 3.6.4.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143909.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143909.jpgsave_picture_143909.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ HITMAN 2 (2018) [Ru/Multi] (2.72.0/dlc) Repack Other s [Gold Edition]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143910.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143910.jpgsave_picture_143910.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ magnet:?xt=urn:btih:9448CD5E1B8E8055388524561ED0D16C2C2DF5B5
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143911.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143911.jpgsave_picture_143911.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ VA - Global Trance 2023 - 2024 (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143912.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143912.jpgsave_picture_143912.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ magnet:?xt=urn:btih:A5F2B56295019652AF0491992BEA9A257CF41A79
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143913.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143913.jpgsave_picture_143913.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ magnet:?xt=urn:btih:1C8ECE6876D82C8F143BE27834CC8C687C7F29C8
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143915.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143915.jpgsave_picture_143915.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ magnet:?xt=urn:btih:AA2C3E45788DBE7E141F310871A50E78036989A1
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143916.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143916.jpgsave_picture_143916.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ magnet:?xt=urn:btih:29EDA9A8678DE40541FA6624B695A712286CC626
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143917.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143917.jpgsave_picture_143917.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ VueScan Pro 9.6.24-64 bit [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143918.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143918.jpgsave_picture_143918.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ VA - Tea Time Moments Vol 1 (Finest Relaxing Smooth Jazz Music) (2017) [MP3|320 
 >>Jazz
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143919.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143919.jpgsave_picture_143919.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ magnet:?xt=urn:btih:E06A9585EC4262A22047A6B178861C3D83B5C6AD
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143920.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143920.jpgsave_picture_143920.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ magnet:?xt=urn:btih:FB16BA5D114BF00F94A82BCD39A2AF9C01685D14
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143921.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143921.jpgsave_picture_143921.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ magnet:?xt=urn:btih:14E608699FE511CA2CC0BDCAA7133D86B963803E
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143923.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143923.jpgsave_picture_143923.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Torchlight 2/II [Ru/En] (RePack/1.20.5.3) 2012 | R.G. Catalyst
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143924.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143924.jpgsave_picture_143924.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ magnet:?xt=urn:btih:967B52FB79FA1FF74C28F979E1ECAD5B63BA42A9
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143925.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143925.jpgsave_picture_143925.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Daylight - 30 (2021) [MP3|320 Kbps] <Spacesynth, Dance-pop>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143926.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143926.jpgsave_picture_143926.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ magnet:?xt=urn:btih:F426C0ECD79A1C961EFAFE95EF25D292C30A0403
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143927.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143927.jpgsave_picture_143927.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ magnet:?xt=urn:btih:5DF93C9EB01CBCE0AB6FE43FB9D9D67FEF26E0A0
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143928.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143928.jpgsave_picture_143928.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ magnet:?xt=urn:btih:453CB02847F180C22021850594098BFF2942D791
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143929.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143929.jpgsave_picture_143929.jpg" />
 </div>
 
 

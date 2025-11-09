@@ -6,7 +6,7 @@ Konvolted - Human Reification (2023) [FLAC|Lossless|WEB-DL|tracks] <Groove Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224275.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224275.jpgsave_picture_224275.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Atomic Dust - Eden (1992) EP [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224280.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224280.jpgsave_picture_224280.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Writhing - Of Earth & Flesh (2022) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224293.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224293.jpgsave_picture_224293.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Rainbow - Long Island 1979 Down To Earth Tour (2023) Japanese Edition [FLAC|Loss
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224565.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224565.jpgsave_picture_224565.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Rainbow - Denver 1979 Down To Earth Tour (2023) Japanese Edition [FLAC|Lossless|
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224668.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224668.jpgsave_picture_224668.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Stefan Kaiser - 6 Albums (2018-2023) [MP3|320 Kbps] <Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224860.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224860.jpgsave_picture_224860.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Girlschool - WTFortyfive? (2023) [FLAC|Lossless|image + .cue] <Heavy Metal, Hard
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224867.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224867.jpgsave_picture_224867.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Crypta - Shades of Sorrow (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224888.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224888.jpgsave_picture_224888.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Divisiv - 3 Albums (2019-2023) [MP3|320 Kbps] <Gothic, Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224897.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224897.jpgsave_picture_224897.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ GNOB - 2 Albums (2018-2023) [MP3|320 Kbps] <Heavy Psych, Fuzz, Stoner>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224938.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224938.jpgsave_picture_224938.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ The Royal Beggars - Falling To New Heights (2023) [FLAC|Lossless|WEB-DL|tracks] 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224974.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224974.jpgsave_picture_224974.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Voyager - Fearless In Love (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224980.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224980.jpgsave_picture_224980.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Until The Sun - Enchantment (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Blu
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224988.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224988.jpgsave_picture_224988.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ The Small Kicks - Get American! (2023) [FLAC|Lossless|WEB-DL|tracks] <Classic Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224996.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224996.jpgsave_picture_224996.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Teeth - Unremittance (2014) [FLAC|Lossless|WEB-DL|tracks] <Death, Sludge Metal, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225005.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225005.jpgsave_picture_225005.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Vampyroteuthis Infernalis - Vampyroteuthis Infernalis (2022) [FLAC|Lossless|WEB-
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225023.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225023.jpgsave_picture_225023.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Gatoebrio - 2 Albums (2020-2023) [MP3|320 Kbps] <Heavy Metal, Doom Metal, Hard R
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225030.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225030.jpgsave_picture_225030.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ Virgin Black - Requiem - Pianissimo (2018) [FLAC|Lossless|WEB-DL|tracks] <Doom, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225046.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225046.jpgsave_picture_225046.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ Skeleton - Our Way (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225064.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225064.jpgsave_picture_225064.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ Wolves of AhPuch - La Ascension Del Pukuj (2021) [FLAC|Lossless|image + .cue] <B
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225072.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225072.jpgsave_picture_225072.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Cavalera - Morbid Visions (2023) [FLAC|Lossless|image + .cue] <Thrash Metal, Dea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225532.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225532.jpgsave_picture_225532.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ magnet:?xt=urn:btih:2A699C1D62CC583A4D9F13C09B3DE2D99265185E
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225571.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225571.jpgsave_picture_225571.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ Ekseption & Royal Philharmonic Orchestra - Ekseption 00.04 (2023) Expanded Editi
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225625.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225625.jpgsave_picture_225625.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ Outlanders - From Chaos to Extinction (2023) [MP3|320 Kbps] <Heavy, Thrash Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225670.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225670.jpgsave_picture_225670.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ magnet:?xt=urn:btih:7A796C8E1DBD04D8C06D1BD2C4FFFFACB09CA5C8
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225722.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225722.jpgsave_picture_225722.jpg" />
 </div>
 
 
@@ -677,7 +677,7 @@ Tag My Heart - Tag My Heart (2023) [MP3|320 Kbps] <Nu Metal, Metalcore, Female V
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225756.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225756.jpgsave_picture_225756.jpg" />
 </div>
 
 

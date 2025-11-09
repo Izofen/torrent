@@ -6,7 +6,7 @@
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40474.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40474.jpgsave_picture_40474.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Angra - Acoustic - Live At Ópera De Arame (2024) 2CD[FLAC|Lossless|WEB-DL|track
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40475.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40475.jpgsave_picture_40475.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ magnet:?xt=urn:btih:ED9EF86EBDE09A826097577E7A6D453C52CC5C60
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40476.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40476.jpgsave_picture_40476.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ GoldSim 14.0 R3 Build 449 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40477.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40477.jpgsave_picture_40477.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:AD63694B8D5BDF499F68474A35F7AF3D87150CAD
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40478.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40478.jpgsave_picture_40478.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ Citrus AI - HD Photo Enhancer v3.0 Mod by TRUMods [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40479.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40479.jpgsave_picture_40479.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ Army Of Lovers - Sexodus (2023) 2 x CD, Reissue, 2024, Maschina Records [FLAC|Lo
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40480.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40480.jpgsave_picture_40480.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:834609830CEB67EBAF2CB9F4E8CE8EDE3720F48E
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40481.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40481.jpgsave_picture_40481.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ VA - New Pop Revolution (2024) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40482.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40482.jpgsave_picture_40482.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ magnet:?xt=urn:btih:3E91B88BAFF44BB3662B9169A6F8DD34A0D82B79
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40483.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40483.jpgsave_picture_40483.jpg" />
 </div>
 
 
@@ -262,7 +262,7 @@ Neckbreak (2019) [Ru/Multi] (1.1) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40484.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40484.jpgsave_picture_40484.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ AirBrush: ИИ Фоторедактор v7.4.0 Mod by MustHave [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40485.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40485.jpgsave_picture_40485.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ magnet:?xt=urn:btih:20C26DF4ED7EBF16C2351C368EE3CA057D10627F
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40486.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40486.jpgsave_picture_40486.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ magnet:?xt=urn:btih:2647BEFE5DAB95FF2651B4F181943F95F7775383
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40487.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40487.jpgsave_picture_40487.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ VA - My Life In Blue Vol. 02 (2024) [MP3|320 Kbps] <Blues, Blues Rock, Country B
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40488.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40488.jpgsave_picture_40488.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ Picsart AI Photo Editor, Video v25.9.6 Final Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40489.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40489.jpgsave_picture_40489.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Tablacus Explorer 24.10.11 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40490.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40490.jpgsave_picture_40490.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ magnet:?xt=urn:btih:7A73D7A0718769F933550B3A98AF2252C89B2FCD
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40491.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40491.jpgsave_picture_40491.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ magnet:?xt=urn:btih:A98C97C314EF067ED984D19AD892A4E53DFDB39B
 >>Бокс
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40492.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40492.jpgsave_picture_40492.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ VA - NRJ Music Awards 2024 (2024) [MP3|320 Kbps] <Pop, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40493.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40493.jpgsave_picture_40493.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ VA - This Is Halloween (2024) 2CD [MP3|320 Kbps] <Rock, Pop>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40494.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40494.jpgsave_picture_40494.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Bassnectar (Lorin Ashton) - No Colors (2024) [FLAC 16/44.1|Lossless|WEB-DL|track
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40495.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40495.jpgsave_picture_40495.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ magnet:?xt=urn:btih:A9524FE0B12D358F5555A01D04B46A296CA698FB
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40496.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40496.jpgsave_picture_40496.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ magnet:?xt=urn:btih:91FB6E5B19223D3F6BBF371E0D6A546C17395C90
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40497.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40497.jpgsave_picture_40497.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ magnet:?xt=urn:btih:6153F0E252D5D4D6AD95442A5AF60961431FF527
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40498.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40498.jpgsave_picture_40498.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ magnet:?xt=urn:btih:7B0FA44FABC6948C4682AB1B5B519B7B286D3143
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40499.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40499.jpgsave_picture_40499.jpg" />
 </div>
 
 

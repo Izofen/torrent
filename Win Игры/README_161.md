@@ -6,7 +6,7 @@ Sylvio: Black Waters (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47568.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47568.jpgsave_picture_47568.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ LunarLux (2023) [Multi] (1.371) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47570.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47570.jpgsave_picture_47570.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Age of Empires IV (4) (2021) [Ru/Multi] (11.0.782/dlc) Scene Rune [Anniversary E
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47572.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47572.jpgsave_picture_47572.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Abathor (2024) [Multi] (1.0) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47578.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47578.jpgsave_picture_47578.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Night of the Dead (2020) [Ru/Multi] (1.1.1.13/dlc) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47588.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47588.jpgsave_picture_47588.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Truck & Logistics Simulator (2023) [Ru/Multi] (1.02) Scene Rune
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47590.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47590.jpgsave_picture_47590.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ PATHOGEN X (2024) [Ru/Multi] (1.0.0.6) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47591.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47591.jpgsave_picture_47591.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Age of Empires IV (4) (2021) [Ru/Multi] (11.0.0782.0/dlc) Repack Decepticon [Ann
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47594.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47594.jpgsave_picture_47594.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Chernobylite (2019) [Ru/Multi] (49522.s04_black_smoke/dlc) Repack Decepticon [En
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47620.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47620.jpgsave_picture_47620.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:B44A5DFE49AC5A9EBA1AC1655947047F97B84BF4
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47679.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47679.jpgsave_picture_47679.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Get To The Top (2024) [En] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47683.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47683.jpgsave_picture_47683.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Thalassa: Edge of the Abyss (2024) [Ru/Multi] (1.0.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47699.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47699.jpgsave_picture_47699.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Apartment No 129 (2024) [Ru/Multi] (Build 15267401) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47701.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47701.jpgsave_picture_47701.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ House Flipper 2 (2023) [Ru/Multi] (20240719/dlc) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47703.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47703.jpgsave_picture_47703.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Setteeh / Сэттээх (2024) [Ru/En] (Build 15264138) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47704.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47704.jpgsave_picture_47704.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Blockbuster Inc. (2024) [Ru/Multi] (1.8.0) Scene Rune
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47707.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47707.jpgsave_picture_47707.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Subnautica: Below Zero (2019) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47709.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47709.jpgsave_picture_47709.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ USC: Counterforce (2023) [Multi] (1.00.0a) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47710.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47710.jpgsave_picture_47710.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Citizen Sleeper (2022) [En] (1.4.9) License GOG [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47716.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47716.jpgsave_picture_47716.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Minds Beneath Us (2024) [Multi] (1.0.1) Scene Skidrow
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47733.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47733.jpgsave_picture_47733.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Neon White (2022) [Ru/Multi] (1.0.740.0) Scene Dinobytes
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47743.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47743.jpgsave_picture_47743.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Kingdom Shell (2023) [Ru/Multi] (1.0) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47750.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47750.jpgsave_picture_47750.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Deadlink (2022) [Ru/Multi] (1.2.27806) Scene Tenoke
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47757.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47757.jpgsave_picture_47757.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Closer the Distance (2024) [Multi] (1.0) Scene SKIDROW
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47772.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47772.jpgsave_picture_47772.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ PIGROMANCE (2022) [Multi] (1.0) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47773.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47773.jpgsave_picture_47773.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ My Lovely Wife (2022) [Ru/Multi] (1.1.14f2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47780.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47780.jpgsave_picture_47780.jpg" />
 </div>
 
 

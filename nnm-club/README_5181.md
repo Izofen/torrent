@@ -6,7 +6,7 @@ Briton Rites - Occulte Fantastique (2020) [MP3|320 Kbps] <Heavy Metal,  Doom Met
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161455.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161455.jpgsave_picture_161455.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ RAW Power 3.4.16 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161456.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161456.jpgsave_picture_161456.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ BackStory Wallpapers 2.3.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161457.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161457.jpgsave_picture_161457.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ Bernie Marsden - Chess (2021) [FLAC|Lossless|image + .cue] <Blues Rock, Rock'n'R
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161458.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161458.jpgsave_picture_161458.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ Hookshot 1.15.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161459.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161459.jpgsave_picture_161459.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ Halloween Stories 5: The Neglected Dead / Хеллоуинские истори�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161460.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161460.jpgsave_picture_161460.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ PatterNodes 3 v.3.2.3 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161461.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161461.jpgsave_picture_161461.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ Report Kit 1.0.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161462.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161462.jpgsave_picture_161462.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ MacCleanse 9.0.6 Pre-Release [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161463.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161463.jpgsave_picture_161463.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ Count Basie & His Orchestra - The Count Basie Collection (1937 - 1939) 3CD, 2021
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161464.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161464.jpgsave_picture_161464.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ Rogue Amoeba Farrago 2.0.6 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161465.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161465.jpgsave_picture_161465.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ Task Calendar 1.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161466.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161466.jpgsave_picture_161466.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ KeyTrails 1.2.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161467.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161467.jpgsave_picture_161467.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Briton Rites - 3 Albums (2010-2020) [MP3|V0/320 Kbps] <Heavy-Metal, Doom-Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161468.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161468.jpgsave_picture_161468.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Aiseesoft iPhone Cleaner 1.0.18 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161469.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161469.jpgsave_picture_161469.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Herbert Gronemeyer - Chaos (1993) [FLAC|Lossless|image + .cue] <rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161470.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161470.jpgsave_picture_161470.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ GrandTotal 7 v7.0.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161471.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161471.jpgsave_picture_161471.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ PhotoMill X 1.8.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161472.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161472.jpgsave_picture_161472.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ magnet:?xt=urn:btih:C2EA74F7D6BBE62B3D4E6C504D97C48D161F6C55
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161473.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161473.jpgsave_picture_161473.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ Middle 1.5.12 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161474.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161474.jpgsave_picture_161474.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ EditReady 22.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161475.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161475.jpgsave_picture_161475.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ magnet:?xt=urn:btih:C814E5CE374E6FE22D164B90E7DE6574F2781722
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161476.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161476.jpgsave_picture_161476.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Folder-Factory 7.6.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161477.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161477.jpgsave_picture_161477.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ magnet:?xt=urn:btih:6E85C00056B025321A850BBB8656BDEBE4AF3988
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161478.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161478.jpgsave_picture_161478.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Chakal - Man Is A Jackal 2 Man (2017) [FLAC|Lossless|image + .cue] <Thrash Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161479.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161479.jpgsave_picture_161479.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ VI Labs Audio - Ravenscroft 275 (UVI Falcon) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161480.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161480.jpgsave_picture_161480.jpg" />
 </div>
 
 

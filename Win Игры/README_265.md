@@ -6,7 +6,7 @@ Hollow Knight: Silksong (2025) [Ru/Multi] (1.0.28891) Repack Necros
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193315.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193315.jpgsave_picture_193315.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Bye Sweet Carole (2025) [Ru] (1.0.1/dlc) Repack seleZen
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193346.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193346.jpgsave_picture_193346.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Absolum (2025) [Ru/Multi] (02 r34045) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193347.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193347.jpgsave_picture_193347.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Dispatch (2025) [Ru/Multi] (1.0.14864/dlc) Repack Let'sРlay [Digital Deluxe Edi
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193348.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193348.jpgsave_picture_193348.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Double Dragon Revive (2025) [Ru/Multi] (1.1.0.0/dlc) Repack Let'sРlay [Deluxe E
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193356.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193356.jpgsave_picture_193356.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Dispatch (2025) [Ru/Multi] (1.0.14753/dlc) Scene Rune [Digital Deluxe Edition]
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193360.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193360.jpgsave_picture_193360.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Dispatch (2025) [Ru/Multi] (1.0.14753/dlc) Repack seleZen [Digital Deluxe Editio
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193361.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193361.jpgsave_picture_193361.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Vampire: The Masquerade - Bloodlines 2 (2025) [Ru/Multi] (0.1.26.2.46023.12/dlc)
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193362.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193362.jpgsave_picture_193362.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Forgotten Seas (2024) [Ru/Multi] (1.0) Repack Pioneer
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193363.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193363.jpgsave_picture_193363.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Forgotten Seas (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193364.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193364.jpgsave_picture_193364.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Dispatch (2025) [Ru/Multi] (1.0.14753/dlc) Repack Wanterlude [Digital Deluxe Edi
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193365.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193365.jpgsave_picture_193365.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Castle Crashers (2012) [Ru/En] (3.0/dlc) Repack Necros
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193366.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193366.jpgsave_picture_193366.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Knightica (2025) [Ru/Multi] (1.1.1a) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193367.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193367.jpgsave_picture_193367.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Warcraft II: Remastered (2024) [Ru/Multi] (1.0.0.2157) Repack Necros
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193368.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193368.jpgsave_picture_193368.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Vampire The Masquerade - Bloodlines 2 (2025) [Ru/Multi] (46047/dlc) Repack Wante
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193385.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193385.jpgsave_picture_193385.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Painkiller (2025) [Ru/Multi] (224001/dlc) Repack Other s
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193386.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193386.jpgsave_picture_193386.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Painkiller (2025) [Ru/Multi] (224001/dlc) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193387.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193387.jpgsave_picture_193387.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Vampire: The Masquerade - Bloodlines 2 (2025) [Ru/Multi] (46047/dlc) Repack sele
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193388.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193388.jpgsave_picture_193388.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Vampire: The Masquerade - Bloodlines 2 (2025) [Ru/Multi] (46047/dlc) Repack FitG
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193394.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193394.jpgsave_picture_193394.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Plants vs. Zombies: Replanted (2025) [Multi] (1.2.1173.0) Repack Necros
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193400.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193400.jpgsave_picture_193400.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ It's a Wrap! (2023) [Ru/Multi] (1.0.6) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193460.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193460.jpgsave_picture_193460.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Metal Eden (2025) [Ru/Multi] (85667) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193461.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193461.jpgsave_picture_193461.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Dispatch (2025) [Ru/Multi] (1.0.14864/dlc) Repack Other s [Digital Deluxe Editio
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193462.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193462.jpgsave_picture_193462.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Onirism (2025) [Ru/Multi] (1.0) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193468.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193468.jpgsave_picture_193468.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Lady Mabel Mysteries: Death on Board (2025) [En] (1.0) Unofficial [Collector's E
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193470.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193470.jpgsave_picture_193470.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Agatha Christie - Hercule Poirot: The London Case (2023) [Ru/Multi] (1.0) Scene 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193494.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193494.jpgsave_picture_193494.jpg" />
 </div>
 
 

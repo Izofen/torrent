@@ -6,7 +6,7 @@ Rauniot (2024) [Ru/Multi] (1.0.0.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58796.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58796.jpgsave_picture_58796.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ The Signal State (2021) [Ru/Multi] (1.33b) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58800.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58800.jpgsave_picture_58800.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Shinkansen 0 (2024) [Ru/Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58805.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58805.jpgsave_picture_58805.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ FLAKE The Legend of Snowblind (2024) [En] (1.1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58807.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58807.jpgsave_picture_58807.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Sweet Transit (2022) [Ru/Multi] (1.0.38) Scene Skidrow
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58826.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58826.jpgsave_picture_58826.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Kingsgrave (2024) [Ru/Multi] (1.0.0.2.3) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58827.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58827.jpgsave_picture_58827.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Aquamarine (2022) [En] (2.1.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58841.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58841.jpgsave_picture_58841.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Laika: Aged Through Blood (2023) [Ru/Multi] (1.0.13) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58844.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58844.jpgsave_picture_58844.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ UFO Robot Grendizer - The Feast of the Wolves (2023) [Ru/Multi] (27.0.12191/dlc)
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58851.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58851.jpgsave_picture_58851.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Demon Lord Reincarnation (2023) [En] (1.0.6.1/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58852.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58852.jpgsave_picture_58852.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Aron's Adventure (2021) [En] (1.05) Scene CODEX
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58873.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58873.jpgsave_picture_58873.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Omega Mouse Zero (2024) [En] (1.0) Scene TiNYiSO
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58880.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58880.jpgsave_picture_58880.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Mato Anomalies (2023) [Multi] (rc3/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58884.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58884.jpgsave_picture_58884.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Sophia the Traveler (2024) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58888.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58888.jpgsave_picture_58888.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Battle Planet - Judgement Day (2019) [Multi] (1.7.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58891.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58891.jpgsave_picture_58891.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ The Mildew Children / Дети Плесени (2024) [Ru/En] (1.1.0) Repack Othe
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58907.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58907.jpgsave_picture_58907.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Galactic Ruler Enlightenment (2024) [Multi] (11.2.1286) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58908.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58908.jpgsave_picture_58908.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Eiyuden Chronicle: Hundred Heroes (2024) [Ru/Multi] (1.0/dlc) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58909.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58909.jpgsave_picture_58909.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Ready, Steady, Ship! (2024) [Multi] (1.0.0) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58914.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58914.jpgsave_picture_58914.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Aron's Adventure (2021) [Multi] (1.05) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58916.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58916.jpgsave_picture_58916.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Astria Ascending (2021) [Multi] (1.0.154/dlc) License GOG [Digital Collector's E
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58922.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58922.jpgsave_picture_58922.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Agatha Christie Hercule Poirot: The London Case (2023) [Ru/Multi] (1.0.7) Licens
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58923.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58923.jpgsave_picture_58923.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Scars Above (2023) [Ru/Multi] (1.0.0.132679) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58927.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58927.jpgsave_picture_58927.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ World Turtles (2023) [Multi] (1.0) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58930.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58930.jpgsave_picture_58930.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ The Repair House: Restoration Sim (2023) [Multi] (1.9) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58934.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58934.jpgsave_picture_58934.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Knights & Guns (2024) [Multi] (1.0) Scene SKIDROW
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58935.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58935.jpgsave_picture_58935.jpg" />
 </div>
 
 

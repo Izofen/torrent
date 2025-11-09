@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101425.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101425.jpgsave_picture_101425.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101426.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101426.jpgsave_picture_101426.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Periodic Table / Таблица Менделеева 2025 PRO v3.5.7 Mod by Bala
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101427.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101427.jpgsave_picture_101427.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Aoki Honoo | Blue Flames | Холодное пламя (Синие огни) [19
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101428.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101428.jpgsave_picture_101428.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Electrical Calculations Pro / Электрические расчеты v10.2.2 
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101429.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101429.jpgsave_picture_101429.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:48FED0C3D59959D61450F83DC6250304D44FBCC4
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101430.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101430.jpgsave_picture_101430.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Reanimation inc / Скорая Помощь Inc v61 Mod by vadj [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101431.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101431.jpgsave_picture_101431.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:1E76489A4D1573DB02FA0F578EC980F38FE39FFB
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101432.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101432.jpgsave_picture_101432.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ VA - Amazing New Hits (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101433.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101433.jpgsave_picture_101433.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ Royal Romances 6: Fortunes and Foes / Королевские романы 6: У�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101434.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101434.jpgsave_picture_101434.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ The Offspring - Supercharged: Worldwide in '25 (2024) [FLAC|Lossless|WEB-DL|trac
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101435.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101435.jpgsave_picture_101435.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ magnet:?xt=urn:btih:E348A28D041C721EC53CC6BF54CC93A7BFB78607
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101436.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101436.jpgsave_picture_101436.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ magnet:?xt=urn:btih:2CCF40992E638CCCACDFAA2998F2458B0F0DE0AB
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101437.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101437.jpgsave_picture_101437.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Bria Mobile: VoIP Softphone v6.18.2 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101438.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101438.jpgsave_picture_101438.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ DeWolff - Muscle Shoals (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Psych, South
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101439.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101439.jpgsave_picture_101439.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ SOBA, Moussa Koita, Emile Biayenda - Fiman (2024) [FLAC 24/48|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101440.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101440.jpgsave_picture_101440.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Terry Wilson Slesser feat. Back Street Crawler Band - Forever Blue (2024) [FLAC 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101441.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101441.jpgsave_picture_101441.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Wolverine Leipzig - Machine Messiah (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101442.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101442.jpgsave_picture_101442.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Shyfrin Alliance - Upside Down Blues (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101443.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101443.jpgsave_picture_101443.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ magnet:?xt=urn:btih:C18DEBA7ED449F49F602579FF56363F7A14B5837
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101444.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101444.jpgsave_picture_101444.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ John Popper - Zygote (1999) CD, Album, Club Edition [FLAC|Lossless|tracks + .cue
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101445.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101445.jpgsave_picture_101445.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ magnet:?xt=urn:btih:5E3682C13555235C236DCB8036784C120264451F
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101446.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101446.jpgsave_picture_101446.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ magnet:?xt=urn:btih:3F26A17A5844135C1E0064BA84A477F2B6526064
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101447.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101447.jpgsave_picture_101447.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ magnet:?xt=urn:btih:415AA1D0CB605F96341C7EB1870693B7DBC28A63
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101448.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101448.jpgsave_picture_101448.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Chicago - Back Home (Live) (1983) Remastered, 2024, Cult Legends [FLAC|Lossless|
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101449.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101449.jpgsave_picture_101449.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ magnet:?xt=urn:btih:20B9D669FE21BA95C4D1BA1026D1EFBCC393502C
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101450.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101450.jpgsave_picture_101450.jpg" />
 </div>
 
 

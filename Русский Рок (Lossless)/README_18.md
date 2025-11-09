@@ -6,7 +6,7 @@ Smerdead - Мёртвый лес (2023) [FLAC|Lossless|image + .cue] <Melodic De
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127569.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127569.jpgsave_picture_127569.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:95852CF71B279C17184BEE994A1F3C758915E923
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127577.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127577.jpgsave_picture_127577.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Moongates Guardian - Broken Sword (2022) Compilation [FLAC|Lossless|image + .cue
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127578.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127578.jpgsave_picture_127578.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ In Vision - Manuscript (2023) [FLAC|Lossless|image + .cue] <Melodic Death Metal>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127579.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127579.jpgsave_picture_127579.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ magnet:?xt=urn:btih:A50DE41E1A89B0E2CB0006563389AC7C857096DA
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127580.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127580.jpgsave_picture_127580.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ magnet:?xt=urn:btih:6291D424E8401961E26FBFCB04E47707EA0428F0
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127620.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127620.jpgsave_picture_127620.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ magnet:?xt=urn:btih:FB54E507AD89761469E4A9C8870D52BEA2BBE06A
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127966.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127966.jpgsave_picture_127966.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Ammanas - Solitude (2023) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128221.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128221.jpgsave_picture_128221.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Dramaturg - Darkness (2022) [FLAC|Lossless|image + .cue] <Melodic Black Metal>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128222.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128222.jpgsave_picture_128222.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Cavandish - Лицемерие (2023) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128225.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128225.jpgsave_picture_128225.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Grimorium Verum - Reall (2022) [FLAC|Lossless|image + .cue] <Black Metal, Sympho
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128227.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128227.jpgsave_picture_128227.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Razörschrieck - Black Magick (2023) [FLAC|Lossless|image + .cue] <Depressive Bl
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128355.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128355.jpgsave_picture_128355.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Treachery - The Key To The Abyss (2022) [FLAC|Lossless|image + .cue] <Death Meta
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128358.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128358.jpgsave_picture_128358.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Cryptic Conversion - Eldritch Echoes (2023) [FLAC|Lossless|image + .cue] <Brutal
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128360.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128360.jpgsave_picture_128360.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Morbus V - Aura (2022) [FLAC|Lossless|image + .cue] <Death Metal, Doom Metal, At
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128362.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128362.jpgsave_picture_128362.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Under The Scythe - Realms Of The Void (2023) [FLAC|Lossless|image + .cue] <Techn
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128384.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128384.jpgsave_picture_128384.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ magnet:?xt=urn:btih:3E7CCDF3F23DCF7E37AF50C1F5E0BE707196974E
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128528.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128528.jpgsave_picture_128528.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Sympuls-e - Immensity (2022) [FLAC|Lossless|image + .cue] <Melodic Death Metal>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128536.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128536.jpgsave_picture_128536.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Crazer - ФАКты (2022) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128556.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128556.jpgsave_picture_128556.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Rubicon - Aliapolis (2023) [FLAC|Lossless|image + .cue] <Heavy Metal, Power Meta
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128557.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128557.jpgsave_picture_128557.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:320416B29E4D7026BFAAB0FAB8F315013561702B
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130362.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130362.jpgsave_picture_130362.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:0B8D5C6102AF2C3B3E015B7A41019EDB3CA68A4D
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131036.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131036.jpgsave_picture_131036.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ magnet:?xt=urn:btih:976092BC3464381C045B31FA2A34777ACD9096BA
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131117.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131117.jpgsave_picture_131117.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ magnet:?xt=urn:btih:404D51C7325E7901D5835A77517908FE0958E8A8
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131151.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131151.jpgsave_picture_131151.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Lunatii - Insomniashes (2023) [FLAC|Lossless|image + .cue] <Depressive Black Met
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131197.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131197.jpgsave_picture_131197.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ magnet:?xt=urn:btih:D445A1446BF863FB69AFEECD8D30E45A419D22DB
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131201.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131201.jpgsave_picture_131201.jpg" />
 </div>
 
 

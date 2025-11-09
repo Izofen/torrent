@@ -6,7 +6,7 @@ Apache OpenOffice 4.1.15 Stable [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126520.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126520.jpgsave_picture_126520.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ UFS Explorer Professional Recovery 5.20.3 RePack (& Portable) by Trovel [Multi/R
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127016.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127016.jpgsave_picture_127016.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Universal Media Creation Tool 19.12.2023 Portable [Ru/En]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127166.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127166.jpgsave_picture_127166.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ CurrPorts 2.77 Portable [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127670.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127670.jpgsave_picture_127670.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ AOMEI Partition Assistant Pro 10.2.1.0 (акция Comss) [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128490.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128490.jpgsave_picture_128490.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Revo Uninstaller Pro 5.4.3 + Portable [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128564.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128564.jpgsave_picture_128564.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ HWiNFO 8.32 Build 5840 + Portable [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128566.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128566.jpgsave_picture_128566.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Revo Uninstaller Pro 5.4.3 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128567.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128567.jpgsave_picture_128567.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Flyoobe 1.31 Portable [En]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128577.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128577.jpgsave_picture_128577.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ TechSmith Camtasia 25.2.4 Build 12581 RePack by elchupacabra [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128593.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128593.jpgsave_picture_128593.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ CPU-Z 2.17.0 Portable [Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128594.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128594.jpgsave_picture_128594.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Lacey 3.08 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128595.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128595.jpgsave_picture_128595.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ DU Meter 9.01 Build 4874 RePack by KpoJIuK [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128610.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128610.jpgsave_picture_128610.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ O&O Defrag Professional + Server 30.0 Build 1063 RePack by KpoJIuK [Ru/En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128611.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128611.jpgsave_picture_128611.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ AOMEI Backupper Technician Plus 8.0.0 + Portable [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128642.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128642.jpgsave_picture_128642.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Universal Media Creation Tool 08.12.2023 Portable [Ru/En]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128797.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128797.jpgsave_picture_128797.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Microsoft Office LTSC 2021 Professional Plus / Standard + Visio + Project 16.0.1
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128809.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128809.jpgsave_picture_128809.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ Windows Manager 2.2.0.0 RePack by KpoJIuK [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128825.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128825.jpgsave_picture_128825.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ O&O ShutUp10++ 2.0.1009 Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128894.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128894.jpgsave_picture_128894.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Revo Uninstaller Pro 5.4.3 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128895.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128895.jpgsave_picture_128895.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ TapinRadio 2.16.11 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128936.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128936.jpgsave_picture_128936.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ FastStone Capture 11.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128956.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128956.jpgsave_picture_128956.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Wise Windows Key Finder Portable 1.0.2.13 [Multi]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128995.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128995.jpgsave_picture_128995.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Microsoft Office LTSC 2024 Professional Plus / Standard + Visio + Project 16.0.1
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129030.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129030.jpgsave_picture_129030.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Simple Port Forwarding Pro 3.6.0 [Multi/Rus]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130581.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130581.jpgsave_picture_130581.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Zentimo xStorage Manager 3.0.5.1299 RePack by KpoJIuK [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130973.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130973.jpgsave_picture_130973.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131506.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131506.jpgsave_picture_131506.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Pyramaze - Studio Albums (7 releases) (2004-2023) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131508.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131508.jpgsave_picture_131508.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Six Foot Six - Beggar's Hill (2023) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131509.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131509.jpgsave_picture_131509.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Chris Gregory - Bluestinato (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131510.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131510.jpgsave_picture_131510.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Willie Clayton - Showtime Mr. C (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues, Sou
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131511.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131511.jpgsave_picture_131511.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ S.N.A.K.E. - Three (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131512.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131512.jpgsave_picture_131512.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ magnet:?xt=urn:btih:32DF8A2E308C63AF5C110190B2296D6D18C95663
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131513.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131513.jpgsave_picture_131513.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Matthew Scott - Mirrors (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131515.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131515.jpgsave_picture_131515.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ magnet:?xt=urn:btih:6BB49B0C8782533FE314874764FCA393DDC68364
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131516.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131516.jpgsave_picture_131516.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ magnet:?xt=urn:btih:15BB058893C362E43001AD1FAB2A829089D6B2BE
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131517.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131517.jpgsave_picture_131517.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ MOF - Outsiders (2023) [FLAC|Lossless|WEB-DL|tracks] <Rap-Rock, Math Rock, Alt.M
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131519.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131519.jpgsave_picture_131519.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ magnet:?xt=urn:btih:D2F8D031003F1AE3052464ED8A6113BF2AE15F2D
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131520.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131520.jpgsave_picture_131520.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ magnet:?xt=urn:btih:975AE0CAC48FB3338CEF1E3D63DA7FF05C0A7FF7
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131521.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131521.jpgsave_picture_131521.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ Tony Voltaggio - Scratchings (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131523.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131523.jpgsave_picture_131523.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ FleshTorture - The Stench Of Humanity (2011) [MP3|320 кб/с]<Brutal Death Grin
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131524.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131524.jpgsave_picture_131524.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Eric B Turner - IT AIN'T EASY (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131525.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131525.jpgsave_picture_131525.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ magnet:?xt=urn:btih:1E4BB327A689AF248FFBF6D1BEF76A89C9DFA22E
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131526.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131526.jpgsave_picture_131526.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Proud Outsiders - Anything To Offer? (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131527.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131527.jpgsave_picture_131527.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ magnet:?xt=urn:btih:10462367A50A6977D8783EA8686BBE5829E5A6E3
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131529.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131529.jpgsave_picture_131529.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ magnet:?xt=urn:btih:20B1BAD08E483789A4B7CE144A73A950CBE06684
 >>Религии и культы (Док/TV)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131530.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131530.jpgsave_picture_131530.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Daemon Grey - Daemonic (2023) [FLAC|Lossless|WEB-DL|tracks] <Modern Metal, Indus
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131531.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131531.jpgsave_picture_131531.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ magnet:?xt=urn:btih:840CE3E0A7D31B1AFAA9F3B878868336F5748D9B
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131532.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131532.jpgsave_picture_131532.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Old Ruins - Always Heading East (2023) [MP3|320 Kbps] <Heavy, Post-Black Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131533.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131533.jpgsave_picture_131533.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Tom MacLear - The Big Blue Mac (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131535.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131535.jpgsave_picture_131535.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ magnet:?xt=urn:btih:3E7BF0C51B063E97E36B83BD106D0D658A906FC4
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131536.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131536.jpgsave_picture_131536.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ magnet:?xt=urn:btih:4C0E05018B5EA70E2AE213FD89DFA3F22E187B7E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131537.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131537.jpgsave_picture_131537.jpg" />
 </div>
 
 

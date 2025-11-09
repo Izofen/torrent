@@ -6,7 +6,7 @@ Opeth - Morningrise (1996) Reissue, 2016, Candlelight Records [FLAC|24/192|image
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149615.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149615.jpgsave_picture_149615.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Free Download Manager 6.13.0.3463 [Multi/Ru]
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149616.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149616.jpgsave_picture_149616.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Free Download Manager обладает практически всеми нео�
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149617.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149617.jpgsave_picture_149617.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ Free Download Manager обладает практически всеми нео�
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149618.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149618.jpgsave_picture_149618.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ goPanel 2 v2.9.4 [En]
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149619.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149619.jpgsave_picture_149619.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ PDF Shaper Professional 8.9 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149620.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149620.jpgsave_picture_149620.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ PDF Shaper Professional 8.9 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149621.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149621.jpgsave_picture_149621.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ PDF Shaper Professional 8.9 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149623.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149623.jpgsave_picture_149623.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ PDF Shaper Professional 8.9 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149624.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149624.jpgsave_picture_149624.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ Wise Reminder 1.3.1.86 [Multi/Ru]
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149625.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149625.jpgsave_picture_149625.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ Wise Reminder 1.3.1.86 [Multi/Ru]
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149626.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149626.jpgsave_picture_149626.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ PDF Shaper Professional 10.6 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149627.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149627.jpgsave_picture_149627.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ PDF Shaper Professional 10.6 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149628.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149628.jpgsave_picture_149628.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Mpire of Evil - Hell To The Holy (2012) [MP3|320 кб/с]<Thrash Metal>
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149630.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149630.jpgsave_picture_149630.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ VA - Connecting The Dots (Michael Mayer) (2021) [AAC|~320 Kbps] <House>
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149631.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149631.jpgsave_picture_149631.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ VA - Connecting The Dots (Michael Mayer) (2021) [AAC|~320 Kbps] <House>
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149632.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149632.jpgsave_picture_149632.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ K-Lite Codec Pack Update 16.6.8 [En]
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149633.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149633.jpgsave_picture_149633.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Spirit Legends: The Forest Wraith / Легенды Духов: Лесной пр
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149634.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149634.jpgsave_picture_149634.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ Spirit Legends: The Forest Wraith / Легенды Духов: Лесной пр
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149635.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149635.jpgsave_picture_149635.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Greg Puciato - Fuck Content (2020) [MP3|320 Kbps] <Metalcore>
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149636.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149636.jpgsave_picture_149636.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ Alice Cooper - Brutally Live (2000) DVDRip [H.264]
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149637.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149637.jpgsave_picture_149637.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ GoodTask 6.9.2 [Multi/Ru]
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149640.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149640.jpgsave_picture_149640.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Steinberg - Retrologue 2.2.10 VSTi, VSTi3, AAX (x64) RePack by VR [En]
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149641.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149641.jpgsave_picture_149641.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Sarah McLachlan - Wonderland (2016) [AAC|256 Kbps]<Pop, Folk, Holiday, Christmas
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149642.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149642.jpgsave_picture_149642.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Sarah McLachlan - Wonderland (2016) [AAC|256 Kbps]<Pop, Folk, Holiday, Christmas
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149643.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149643.jpgsave_picture_149643.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ VA - Deep Anturage House Music (2015) [MP3|320 кб/с] <Deep House, Electro>
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149644.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149644.jpgsave_picture_149644.jpg" />
 </div>
 
 

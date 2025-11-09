@@ -6,7 +6,7 @@ Topaz Video AI 3.2.0 (x64) RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241437.jpgsave_picture_241437.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ VA - Disco Fluid Vol. 2 (2023) [MP3|320 Kbps] <Disco, Indie Dance, Funky House, 
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241438.jpgsave_picture_241438.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ VA - Armin van Buuren - A State Of Trance 1118 (2023) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241439.jpgsave_picture_241439.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:8C1E831EB40A7B16C1FB6B4BB7FEB867D500B63E
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241440.jpgsave_picture_241440.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:A729CEB3BBCFBC5B4C9E58F5E3ED111DD167B117
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241441.jpgsave_picture_241441.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ VA - Uplifting Only Top: 15 March (2017) [FLAC|Lossless|WEB|tracks] <Uplifting T
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241442.jpgsave_picture_241442.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ Xliff Editor 2.7.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241443.jpgsave_picture_241443.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ Omni Recover 3 v3.3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241445.jpgsave_picture_241445.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ magnet:?xt=urn:btih:2CAA7368A52DE8AA7EDF458BF6E31CB69F84D45E
 >>Футбол
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241446.jpgsave_picture_241446.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ magnet:?xt=urn:btih:537E7F1BCE2B58C945A5765E20B6495FF4D0A56B
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241447.jpgsave_picture_241447.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ magnet:?xt=urn:btih:64A149DDEA143B82B30B2DB60900977D40A588E5
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241448.jpgsave_picture_241448.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ Atahualpa - Atahualpa Rock (2020) [MP3|320 Kbps] <Native American, Rock, World>
 >>Folk
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241449.jpgsave_picture_241449.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ USDownloader 1.3.5.9 Portable (15.03.2017) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241450.jpgsave_picture_241450.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ Scrutiny 9 v9.6.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241451.jpgsave_picture_241451.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ magnet:?xt=urn:btih:69254C6AB6DA111B850240C988AE2E35959C935C
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241452.jpgsave_picture_241452.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Celestial Season - Forever Scarlet Passion (1993) Remaster, 2020, Burning World 
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241453.jpgsave_picture_241453.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ magnet:?xt=urn:btih:7EE8A84DC1A340044613E9725642F9C44E2B900A
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241454.jpgsave_picture_241454.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ Cattac - Deliverance (2023) [FLAC|Lossless|WEB-DL|tracks] <EBM, Dark Electro>
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241455.jpgsave_picture_241455.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ magnet:?xt=urn:btih:9514A92D095C3A332C9A5C6AF2AC6798D317F610
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241457.jpgsave_picture_241457.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ Dangermuffin - Heritage (2017) [FLAC|Lossless|tracks + .cue] <Folk Rock, America
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241458.jpgsave_picture_241458.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ VA - Soul Hit Covers (2021) [FLAC|Lossless|WEB-DL|tracks] <R&B, Soul, Funk>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241459.jpgsave_picture_241459.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ magnet:?xt=urn:btih:FF9A3F9508EF7192D203830CD64D4CB45513FB99
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241460.jpgsave_picture_241460.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Celestial Season - Solar Lovers (1995) Remaster, 2020, Burning World Records [FL
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241461.jpgsave_picture_241461.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Oushitsu Kyoushi Haine | The Royal Tutor | Королевский репетит
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241462.jpgsave_picture_241462.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ magnet:?xt=urn:btih:E8A476E9AF582A2D654B5CDD4B34ED7BAA84E3D7
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241463.jpgsave_picture_241463.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ magnet:?xt=urn:btih:10CCD9D27514BF70C4186C2D1245CDA19C403A13
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241465.jpgsave_picture_241465.jpg" />
 </div>
 
 

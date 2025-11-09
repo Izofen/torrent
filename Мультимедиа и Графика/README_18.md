@@ -6,7 +6,7 @@ W.A. Production - BeatQuake 1.0.0 VST, VST3, AAX (x86/x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36277.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36277.jpgsave_picture_36277.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Rhodes Anthology 1.0.0 VSTi, VSTi 3, AAX (x64) RePack by R2R [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36281.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36281.jpgsave_picture_36281.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Sonic Academy - KICK 3 1.0.0 VSTi 3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36854.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36854.jpgsave_picture_36854.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Eventide - Ensemble Bundle 2.20.0 VST, VST 3, AAX (x64) RePack by R2R [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36857.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36857.jpgsave_picture_36857.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Raising Jake Studios SideMinder Plu-ins 11.2024 VST, VST3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36862.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36862.jpgsave_picture_36862.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Baby Audio - Transit 2 1.1.0 VST, VST 3, AAX (x86/x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36866.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36866.jpgsave_picture_36866.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ u-he - Zebra Legacy 2.9.4 VSTi, VSTi 3, AAX (x86/x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36871.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36871.jpgsave_picture_36871.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ IK Multimedia - TONEX MAX 1.8.0 STANDALONE, VST, VST 3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36891.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36891.jpgsave_picture_36891.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ Format Factory 5.20.0 (x64) RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37536.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37536.jpgsave_picture_37536.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ Audiopunks - Spectra 610 Complimiter 1.0.0 VST 3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37760.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37760.jpgsave_picture_37760.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Ircam Lab - The Snail 1.4.2 STANDALONE, VST 3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37761.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37761.jpgsave_picture_37761.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ Plug And Mix - VIP Bundle V4 4.0.0 VST, VST 3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37795.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37795.jpgsave_picture_37795.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Tux Paint 0.9.34 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38203.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38203.jpgsave_picture_38203.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Thenatan - OPR8 1.0.0 VST, VST 3 (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38382.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38382.jpgsave_picture_38382.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Steinberg - Retrologue 2 2.4.0 VSTi 3, AAX (x64) + Content [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38472.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38472.jpgsave_picture_38472.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ XLN Audio - Addictive Drums 2 Complete 2.5.2.1 STANDALONE, VSTi, VSTi 3, AAX (x6
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38496.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38496.jpgsave_picture_38496.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ iZotope Audiolens 1.4.0 (x64) RePack by R2R [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38575.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38575.jpgsave_picture_38575.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Steinberg - WaveLab 12 Pro 12.0.40 (x64) [Multi]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38608.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38608.jpgsave_picture_38608.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ D16 Group - Lush 2 2.0.2 VSTi, VSTi 3, AAX (x86/x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38680.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38680.jpgsave_picture_38680.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ GForce - Oddity3 1.1.0 STANDALONE, VSTi, VSTi 3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38686.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38686.jpgsave_picture_38686.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ Wave Alchemy - Tapewave 1.0.0 VST 3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38712.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38712.jpgsave_picture_38712.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Togu Audio Line - TAL-G-Verb 1.2.8 VST, VST 3, AAX, CLAP (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39479.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39479.jpgsave_picture_39479.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ K-Lite Codec Pack Update 18.6.3 [En]
 >>Видео Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39706.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39706.jpgsave_picture_39706.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Guitar Pro 8.1.3 Build 121 (x64) [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39804.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39804.jpgsave_picture_39804.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Excite Audio - Bloom Palette Object 1.0.0 STANTALONE, VSTi, VSTi 3, AAX (x64) [E
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39949.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39949.jpgsave_picture_39949.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ u-he - Twangstorm 1.0.2 VST, VST 3, AAX (x86/x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39962.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39962.jpgsave_picture_39962.jpg" />
 </div>
 
 

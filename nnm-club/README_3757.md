@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118062.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118062.jpgsave_picture_118062.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:08309B52817CFC654EAE5A800038F0E2C0EAE630
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118063.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118063.jpgsave_picture_118063.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:C572B1F4EFFBF158379A76F90413B9C057FD66C8
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118064.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118064.jpgsave_picture_118064.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:5A827669C89A436CCDD1D1AE014512322F0CE5B3
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118065.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118065.jpgsave_picture_118065.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Cult of the Lamb v.1.3.5.214 (2022) [Multi/Ru] [macOS Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118066.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118066.jpgsave_picture_118066.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:ADD13DC5EA1D199321E0E258B6445E4E22E4F936
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118067.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118067.jpgsave_picture_118067.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:ACA7EFD4C6A51096E86F54788AD8AD4C7BF52A09
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118068.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118068.jpgsave_picture_118068.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:ED506F70371759FD088B1E407BEDAC467484012F
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118069.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118069.jpgsave_picture_118069.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ Nickelback - Studio albums (11 releases) (1996-2022) hand made [restored, declip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118070.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118070.jpgsave_picture_118070.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:63AA1ACD4209DAC660AACEA2DA8438DD13010882
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118071.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118071.jpgsave_picture_118071.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:A0A096F056146C8B37C9350AAFD7305A37F8BA7B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118072.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118072.jpgsave_picture_118072.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Succubus With Guns (2021) [Ru/Multi] (13403147/dlc) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118073.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118073.jpgsave_picture_118073.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:9EDC4F76EE2A77FC00428CFAC8D14FF4FA46AFDE
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118074.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118074.jpgsave_picture_118074.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ John Coltrane Quartet With Red Garland - Complete Recordings (1957, 1958) 3CD, 2
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118075.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118075.jpgsave_picture_118075.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ magnet:?xt=urn:btih:6424A4C56828AF99EF63D052DAFE5A35BDD6EDF3
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118076.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118076.jpgsave_picture_118076.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Pat Martino & Joyous Lake - Stone Blue (1998) Blue Note [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118077.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118077.jpgsave_picture_118077.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Stranger Vision - Wasteland (2022) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118078.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118078.jpgsave_picture_118078.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Minuit 10 - Sans Bruit (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Progressive R
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118079.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118079.jpgsave_picture_118079.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ magnet:?xt=urn:btih:6EA4ABC0E76DCCAC78D5D2C640A5C7E06F2C7E3C
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118080.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118080.jpgsave_picture_118080.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Al Grey & Bjarne Nerem - Al Meets Bjarne (1989) Gemini [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118081.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118081.jpgsave_picture_118081.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ magnet:?xt=urn:btih:21E3F1CD409494E193F558F6B71B1C836F04190E
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118082.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118082.jpgsave_picture_118082.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Sovereign - Altered Realities (2024) [FLAC|Lossless|WEB-DL|tracks] <Death, Thras
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118083.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118083.jpgsave_picture_118083.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Battle Ram - Long Live the Ram (2013) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118084.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118084.jpgsave_picture_118084.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Synesthesia - Worst Case Scenario (2015) [FLAC|Lossless|image + .cue] <Progressi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118085.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118085.jpgsave_picture_118085.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Crying Steel - The Steel Is Back! (2007) [FLAC|Lossless|image + .cue] <Power Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118086.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118086.jpgsave_picture_118086.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ Solstice - Lamentations (1994) [FLAC|Lossless|image + .cue] <Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118087.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118087.jpgsave_picture_118087.jpg" />
 </div>
 
 

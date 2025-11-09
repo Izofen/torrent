@@ -6,7 +6,7 @@ Paul Van Dyk - Volume - The best of Paul Van Dyk (2009) DVDRip [H.264/1080p-LQ] 
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120671.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120671.jpgsave_picture_120671.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:74A9A33FFA212D694AEEC0327F07040499642226
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120672.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120672.jpgsave_picture_120672.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:BC94752FF540682B4F2DB0F5E585199817B9479D
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120673.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120673.jpgsave_picture_120673.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ Strava: бег, велоезда, хайкинг v344.9 Mod by ReVanced Team [Ru
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120674.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120674.jpgsave_picture_120674.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ Paul Van Dyk - Music Discovery Project (The Planets Reloaded) (2009) WEBRip [H.2
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120675.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120675.jpgsave_picture_120675.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ magnet:?xt=urn:btih:2F2284DC17AF3798628AD359C7795E8EC319C0E8
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120676.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120676.jpgsave_picture_120676.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:EE102C14087DC4202186D73675D514E3B749CFFD
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120677.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120677.jpgsave_picture_120677.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:8C3ED54F8F2565DB0C7857C5B564669D700E9247
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120678.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120678.jpgsave_picture_120678.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:3EF1ADB958C6541974B8411E4A6D5C7757D7E496
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120679.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120679.jpgsave_picture_120679.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ magnet:?xt=urn:btih:F73242EBB557FA3D67C936221098B58E8138DE4C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120680.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120680.jpgsave_picture_120680.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ magnet:?xt=urn:btih:B2AA7F77C4E3157FC6953C9E08F69F11A5CE2F91
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120681.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120681.jpgsave_picture_120681.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ magnet:?xt=urn:btih:5154C3D60B526DB398BB8E22B7AEAD2E5A273348
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120682.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120682.jpgsave_picture_120682.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ VA - Шансон премьера 2024 январь (Новые песни. Н�
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120683.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120683.jpgsave_picture_120683.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ magnet:?xt=urn:btih:6718C06B3E0A44323A4F202E3796D5BA9164734A
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120684.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120684.jpgsave_picture_120684.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ magnet:?xt=urn:btih:C2EC6FFB345CFB38E88926C7B17C3953D90BA7F6
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120685.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120685.jpgsave_picture_120685.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ magnet:?xt=urn:btih:60CCA889698E1CE107F1A91662D82A5316A7F5EC
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120686.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120686.jpgsave_picture_120686.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ magnet:?xt=urn:btih:F0E293E287E571F09E426563675BB59C62452A42
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120687.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120687.jpgsave_picture_120687.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ magnet:?xt=urn:btih:10DF248FB2C534325C9CF2C2669B94EA340F938D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120688.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120688.jpgsave_picture_120688.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ magnet:?xt=urn:btih:4E1260CB52E3D5EA875099B019CE78199AF21540
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120689.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120689.jpgsave_picture_120689.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ magnet:?xt=urn:btih:215C14076A456433169B75A7ECD9BA521E6E9F2D
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120690.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120690.jpgsave_picture_120690.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ magnet:?xt=urn:btih:6BCEB630E0C2C2B5D1BA0FB91AFC206A5F12E7BA
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120691.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120691.jpgsave_picture_120691.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Sucker Punch Productions | Артбук по игре Ghost of Tsushima / The Ar
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120692.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120692.jpgsave_picture_120692.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ magnet:?xt=urn:btih:B27AAD68EA877D76F6A1C962CFA19CA6A6F53F9B
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120693.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120693.jpgsave_picture_120693.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Udemy, Phil Ebiner | Affinity Photo Complete Guide to Photo Editing in Affinity 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120694.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120694.jpgsave_picture_120694.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ magnet:?xt=urn:btih:B2025399EA573742183ED7362FF2F9F30B480995
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120695.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120695.jpgsave_picture_120695.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ magnet:?xt=urn:btih:2896DBF67F1F4B74AF687F41D796BE2C6A5FB446
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120696.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120696.jpgsave_picture_120696.jpg" />
 </div>
 
 

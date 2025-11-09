@@ -6,7 +6,7 @@
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37017.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37017.jpgsave_picture_37017.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:AB1C0D507FB669C062CDED02700EBB7B69FA4FFF
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37070.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37070.jpgsave_picture_37070.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Keepsafe: Защита Фото и Видео v13.3.1 Premium Mod by DEXUNPACKER
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37075.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37075.jpgsave_picture_37075.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ DIGI Clock Widget Plus 3.4.0 (ARM64) Mod by Number one' [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37089.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37089.jpgsave_picture_37089.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ exFAT/NTFS for USB by Paragon Pro v5.0.0.1 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37114.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37114.jpgsave_picture_37114.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ AdGuard Ad Blocker  Nightly Premium [No-Root] v4.7.113 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37119.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37119.jpgsave_picture_37119.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ OsmAnd+ — Карты & GPS Офлайн v4.9.5 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37300.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37300.jpgsave_picture_37300.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ MyFitnessPal: Счетчик калорий v24.44.0 + Wear v1.1.2 Mod by Balata
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37310.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37310.jpgsave_picture_37310.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Electrodoc Pro v6.0 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37323.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37323.jpgsave_picture_37323.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:D07B5AED7487B5B62EDEF8DF7EE08D343DE188B2
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37392.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37392.jpgsave_picture_37392.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ STEEZY Studio - Learn To Dance v5.0.0 Mod by youarefinished [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37398.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37398.jpgsave_picture_37398.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ DreamFace: видео редактор с ИИ v4.8.5 Mod by MustHave [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37407.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37407.jpgsave_picture_37407.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Solid Explorer File Manager v2.8.54 + Plugins Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37414.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37414.jpgsave_picture_37414.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ magnet:?xt=urn:btih:11E8A276861461E30F963CA5556C16642216CCA4
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37415.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37415.jpgsave_picture_37415.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ magnet:?xt=urn:btih:A503B8162E89F6F4A0188C7BFC88949AEB01B9C2
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37440.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37440.jpgsave_picture_37440.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ MiHome v9.9.700 Mod by Vevs [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37520.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37520.jpgsave_picture_37520.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Duolingo: изучай языки 6.7.1 Mod by derrin [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37592.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37592.jpgsave_picture_37592.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ SmartDriver: АнтиРадар ГИБДД v1.16.0.36623 Premium Mod by vedsereg
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37615.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37615.jpgsave_picture_37615.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ iCSee v7.4.0 Free [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37678.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37678.jpgsave_picture_37678.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ MobiOffice (ex. OfficeSuite) Premium + PDF v15.0.54212 Extra Mod by Balatan [Ru/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37679.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37679.jpgsave_picture_37679.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Cozy Magnifier & Microscope Plus v6.4.1 Mod by derrin [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37725.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37725.jpgsave_picture_37725.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ Obtainium 1.1.29 [Ru/Multi] (Обновляемая)
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37745.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37745.jpgsave_picture_37745.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ Listonic / Список покупок v8.14.3 Mod by NURIK kz [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37763.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37763.jpgsave_picture_37763.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ PictureThis - Plant Identification v5.0.11 Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37767.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37767.jpgsave_picture_37767.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ PicWish: AI Photo Editor v1.8.1 Mod by derrin [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37769.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37769.jpgsave_picture_37769.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ Stellio - Music Player v6.10.0 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37785.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37785.jpgsave_picture_37785.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Morreale - Appunti Di Viaggio (2020) [MP3|320 Kbps] <Progressive Rock, Symphonic
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175294.jpgsave_picture_175294.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Pallbearer - Forgotten Days (2020) [FLAC|Lossless|tracks + .cue] <Doom Metal, Ep
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175296.jpgsave_picture_175296.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:5E1FB31534024800D156E905F6B83A787218550F
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175297.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175297.jpgsave_picture_175297.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Format Factory 5.13.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175299.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175299.jpgsave_picture_175299.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ magnet:?xt=urn:btih:00385C46EEF36E8ACEC5C2C8E4EE677CE158B17F
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175300.jpgsave_picture_175300.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ magnet:?xt=urn:btih:4506AC65446157F4D60A4683434CDFB3CE2FF1DA
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175301.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175301.jpgsave_picture_175301.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Faidra - Six Voices Inside (2020) [FLAC|Lossless|image + .cue] <Atmospheric Blac
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175303.jpgsave_picture_175303.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ magnet:?xt=urn:btih:FC5D97C6DF0463C85C6F98829321C7E3D1FEDB7F
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175304.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175304.jpgsave_picture_175304.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ magnet:?xt=urn:btih:8E3FB2F8DE2CE6AF598CD1C0A7F9D5FDB809BF69
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175305.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175305.jpgsave_picture_175305.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ Reflection - Alpha et Omega (2023) [FLAC|Lossless|WEB-DL|tracks] <Synthpop>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175307.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175307.jpgsave_picture_175307.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ VideoDuke 1.14 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175308.jpgsave_picture_175308.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Revo Uninstaller Pro 5.0.8 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175309.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175309.jpgsave_picture_175309.jpg" />
 </div>
 
 
@@ -316,7 +316,7 @@ magnet:?xt=urn:btih:C53B6850198423BA8F0DF1FFF92E8CF6348C6D48
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175311.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175311.jpgsave_picture_175311.jpg" />
 </div>
 
 
@@ -340,7 +340,7 @@ Valentina Studio Pro 10.5.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175312.jpgsave_picture_175312.jpg" />
 </div>
 
 
@@ -364,7 +364,7 @@ Monastery - From Blood (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175313.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175313.jpgsave_picture_175313.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ magnet:?xt=urn:btih:888DEFC2545431EDCFBB2890049E98BBC9B245F3
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175315.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175315.jpgsave_picture_175315.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ PortsMonitor 1.4.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175316.jpgsave_picture_175316.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Core Temp 1.18.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175317.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175317.jpgsave_picture_175317.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ magnet:?xt=urn:btih:4758AE2CC65E0FAE64328FF5D91559D830910B3D
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175319.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175319.jpgsave_picture_175319.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ PhotoSweeper X 3.9.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175320.jpgsave_picture_175320.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Tardigrade Inferno - Burn the Circus (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175321.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175321.jpgsave_picture_175321.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ MEDUZA - Live @ Our House, Hi Ibiza, Spain (2023-09-29) [MP3|320 Kbps] <Tech Hou
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175323.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175323.jpgsave_picture_175323.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Posterino 3 v3.9.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175324.jpgsave_picture_175324.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ magnet:?xt=urn:btih:897836B4066C465C1F41D2EEA6EA52B68732A737
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175325.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175325.jpgsave_picture_175325.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Sticky Password Premium 8.6.2.1258 (промо SharewareOnSale) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175327.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175327.jpgsave_picture_175327.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ magnet:?xt=urn:btih:2AD972997BE364CDE61E6E6E7FA9D54B910BA860
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175328.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175328.jpgsave_picture_175328.jpg" />
 </div>
 
 

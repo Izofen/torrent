@@ -6,7 +6,7 @@ Dark Souls 2: Scholar of the First Sin (2015) [Ru/En] (1.0.2/dlc) Repack xatab
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54473.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54473.jpgsave_picture_54473.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:C8008561192730C9580760039110442E43B04C50
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54474.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54474.jpgsave_picture_54474.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Medieval Kingdom Wars Story (2023) [Ru/Milti] (1.0) Scene Tenoke
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54475.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54475.jpgsave_picture_54475.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Maxthon Browser 7.1.8.9001 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54476.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54476.jpgsave_picture_54476.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:7F6BFB4B02F932C09E07BBB793F4CDABC37FF541
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54477.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54477.jpgsave_picture_54477.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Kingdom of Fallen: The Last Stand / Королевство Павших: Пос�
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54478.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54478.jpgsave_picture_54478.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Tiny Terry's Turbo Trip (2024) [Multi] (1.28.1701) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54479.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54479.jpgsave_picture_54479.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:56D6E6ADAC2A69283BFC8353D299F6F1F37F1A57
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54480.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54480.jpgsave_picture_54480.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:B1614EF4AEDE4D7220B11B3FD27E372BCE9EC77E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54481.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54481.jpgsave_picture_54481.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ CONSORTIUM Remastered (2024) [Multi] (1.0.1) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54482.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54482.jpgsave_picture_54482.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ magnet:?xt=urn:btih:A7F12C66F211D9691B43A41B575C7F1C1023476F
 >>Сатира, Юмор
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54483.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54483.jpgsave_picture_54483.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Topaz Video AI 5.1.1 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54484.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54484.jpgsave_picture_54484.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ magnet:?xt=urn:btih:0CE5C8A3E5AE876D38FEA4E2D1C856D21C14006E
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54485.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54485.jpgsave_picture_54485.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ magnet:?xt=urn:btih:B29C3CA99602E83B2509C16CACDD5EC174883941
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54486.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54486.jpgsave_picture_54486.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ magnet:?xt=urn:btih:84EB493DB94E06A9113C80E2785B9CD4B055DD34
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54487.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54487.jpgsave_picture_54487.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ magnet:?xt=urn:btih:D76212790E65CAF28A84FA1C8AC216B0F51AD891
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54488.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54488.jpgsave_picture_54488.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ Crown Wars: The Black Prince (2024) [Ru/Multi] (1.0/dlc) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54489.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54489.jpgsave_picture_54489.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Touhou Mystia's Izakaya (2021) [Multi] (4.1.2/dlc) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54490.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54490.jpgsave_picture_54490.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ magnet:?xt=urn:btih:C6DA2478AE099FA710EC4A16BAB21DEF07CD37C2
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54491.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54491.jpgsave_picture_54491.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ F.I.S.T.: Forged In Shadow Torch (2021) [Ru/Multi] (1.200.002) Repack dixen18
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54492.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54492.jpgsave_picture_54492.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ magnet:?xt=urn:btih:A9B2CF991B8ECF23FA3920F0C2824B51808D81FD
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54493.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54493.jpgsave_picture_54493.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ magnet:?xt=urn:btih:A9B2CF991B8ECF23FA3920F0C2824B51808D81FD
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54494.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54494.jpgsave_picture_54494.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Kingdom of Fallen: The Last Stand / Королевство Павших: Пос�
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54495.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54495.jpgsave_picture_54495.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ magnet:?xt=urn:btih:35F93B7C0592A57F76C29EE300D725EFC00A2EC2
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54496.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54496.jpgsave_picture_54496.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ magnet:?xt=urn:btih:2164C92734BF8C25441902CB2D04CA0BA632096D
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54497.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54497.jpgsave_picture_54497.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Need for Speed: Жажда скорости / Need for Speed (2014) WEB-DLRip [H
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54498.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54498.jpgsave_picture_54498.jpg" />
 </div>
 
 

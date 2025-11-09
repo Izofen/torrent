@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249733.jpgsave_picture_249733.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:57E41A627E00FE6F8D2D227DDDF09955352C6AF9
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249734.jpgsave_picture_249734.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:6247F21C04EAF3B7FC704EF83823540941453AF4
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249735.jpgsave_picture_249735.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:A7F7BCB14D7B30795B148BABEB8093B6AB7642F4
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249736.jpgsave_picture_249736.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:EA6BFE47D6C59BC8DDF8E9395F3C49F8D3E0138B
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249737.jpgsave_picture_249737.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ Brackets 2.2.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249738.jpgsave_picture_249738.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:C58A3F1386DE738BC39801D7F85F475717BE677C
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249739.jpgsave_picture_249739.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ Kiss In A Dragon Night - Kiss In A Dragon Night (2023) [MP3|320 Kbps] <Melodic H
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249740.jpgsave_picture_249740.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ PotPlayer 220706 (1.7.21765) RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249741.jpgsave_picture_249741.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ NIUBI Partition Editor 9.3.9 Technician Edition RePack (& Portable) by elchupaca
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249742.jpgsave_picture_249742.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ Speedtest by Ookla 1.10.163.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249743.jpgsave_picture_249743.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ magnet:?xt=urn:btih:FFB1BD2C514AFAFBF0BD3814B251FBB7027A7A77
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249744.jpgsave_picture_249744.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ magnet:?xt=urn:btih:A495F1FB6C99C907C45F12D664C1257AE3FF856F
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249745.jpgsave_picture_249745.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ magnet:?xt=urn:btih:2C05C6CBFBEA913D2E304FD951179D149412FEAA
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249746.jpgsave_picture_249746.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ magnet:?xt=urn:btih:E865C340BC08D8F0759E052CA0445B627182B82F
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249747.jpgsave_picture_249747.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ magnet:?xt=urn:btih:9679D1DDEAAB69FC5EFC2E3C243BACB5A40E70A2
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249748.jpgsave_picture_249748.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ CGMA, Ben Keeling | Advanced Substance for Environment Art (2020) PCRec [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249749.jpgsave_picture_249749.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ magnet:?xt=urn:btih:0F5EA5F1BCB97939CB21422FC1C36539198E2894
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249750.jpgsave_picture_249750.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ Junichiro Horikawa | VEX for Algorithmic Design Part 1-6 (2020-2021) PCRec [EN, 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249751.jpgsave_picture_249751.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ magnet:?xt=urn:btih:4AE015DED5499599C56293B28E275932A7734CBB
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249752.jpgsave_picture_249752.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ IrfanView 4.60 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249753.jpgsave_picture_249753.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ magnet:?xt=urn:btih:852398018D1290F38D9573DD19E933567DEC800A
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249754.jpgsave_picture_249754.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Civil War - Invaders (2022) [FLAC|Lossless|image + .cue] <Heavy Metal, Power Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249755.jpgsave_picture_249755.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ magnet:?xt=urn:btih:1D9CE1347DB9242F9DB50FE308E10CFB20ACCD54
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249756.jpgsave_picture_249756.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ VA - 20s Finest Pop (2023) [OGG Vorbis|480 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249757.jpgsave_picture_249757.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ magnet:?xt=urn:btih:9EC5570129D37181F25D2761F39E243735757E56
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249758.jpgsave_picture_249758.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28483.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28483.jpgsave_picture_28483.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Topaz Photo AI Pro 3.4.5 (x64) RC [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28484.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28484.jpgsave_picture_28484.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ Topaz Gigapixel AI Pro 8.2.1 RC [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28485.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28485.jpgsave_picture_28485.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:54E93595227FC7D3C0A4480B81967022349017FB
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28486.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28486.jpgsave_picture_28486.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Tor Browser Bundle 14.0.5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28487.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28487.jpgsave_picture_28487.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:A1889D2C71D7C2544EBE2FFBB2FEFEE2FE4D1B1E
 >>Солдаты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28488.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28488.jpgsave_picture_28488.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:E8B000322E283E75DE11A2F0070F7FE79867424D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28489.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28489.jpgsave_picture_28489.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ CPU-Z 2.14.0 Portable [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28490.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28490.jpgsave_picture_28490.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Eyes of War (2023) [Ru/Multi] (1.0) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28491.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28491.jpgsave_picture_28491.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Systems.Education | Конференция по проектированию п�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28492.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28492.jpgsave_picture_28492.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:9E5398494F8E90C886C96517E1BCDDA5B57D3A0D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28493.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28493.jpgsave_picture_28493.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:0CF832CC30AD32C9A4F98DC61ED179CBB9CFE382
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28494.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28494.jpgsave_picture_28494.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:74F8DA6406C945552B1B41BFD547DD3FD6FB4044
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28495.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28495.jpgsave_picture_28495.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ magnet:?xt=urn:btih:126324B7FDB7F1676AC848E6D8FF5826EC2DCB6C
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28496.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28496.jpgsave_picture_28496.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ magnet:?xt=urn:btih:02DA72AC0289CD67829C28C56861499F6411C297
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28497.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28497.jpgsave_picture_28497.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ Teenage Mutant Ninja Turtles: Splintered Fate / Черепашки-ниндзя:
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28498.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28498.jpgsave_picture_28498.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ magnet:?xt=urn:btih:A4CEB9ACC7259FA290C4AFB2014436EFBCF78B4F
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28499.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28499.jpgsave_picture_28499.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ BBC: Саймон Шама - История Британии / BBC: Simon Schama
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28500.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28500.jpgsave_picture_28500.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ magnet:?xt=urn:btih:7A1A07CAC8EB3DAC7A8777445318508B4E08DC6B
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28501.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28501.jpgsave_picture_28501.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ magnet:?xt=urn:btih:31B7D3FB9D34AC7463B27E5467DDC312A4AF838A
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28502.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28502.jpgsave_picture_28502.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Vanced Tube v5.3.80.119 Mod by TRUMods [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28503.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28503.jpgsave_picture_28503.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ magnet:?xt=urn:btih:2E222375D3F7E8D7EF8F2F8C52DA755F889CE589
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28504.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28504.jpgsave_picture_28504.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ magnet:?xt=urn:btih:12205FEF5B077679A540B3E072AAFD10E4F11B57
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28505.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28505.jpgsave_picture_28505.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ magnet:?xt=urn:btih:F99D6CB06E0E0144106006587D98EB789EA5662F
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28506.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28506.jpgsave_picture_28506.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Master-Skills & Андрей Скидан | Программирование б�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28507.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28507.jpgsave_picture_28507.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Teenage Mutant Ninja Turtles: Splintered Fate (2024) [Ru/Multi] (1.7.0/dlc) Repa
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28508.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28508.jpgsave_picture_28508.jpg" />
 </div>
 
 

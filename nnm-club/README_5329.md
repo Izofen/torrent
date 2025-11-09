@@ -6,7 +6,7 @@ KMS Tools Portable by Ratiborus 15.12.2022 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165385.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165385.jpgsave_picture_165385.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:CA9581452C9262E2973E01EB338994796A6B4E27
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165386.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165386.jpgsave_picture_165386.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Speedtest от Ookla 5.2.2 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165387.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165387.jpgsave_picture_165387.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ VA - Erotica, Vol. 4 (2018) [AAC|~313 Kbps] <Electronic, Chill Out, Lounge>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165388.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165388.jpgsave_picture_165388.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Gamedec (2021) [Ru/Multi] (1.7.1.r70100/dlc) License GOG [Digital Deluxe Edition
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165389.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165389.jpgsave_picture_165389.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:04B328485534B59648222997FE0F410641E20FEB
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165390.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165390.jpgsave_picture_165390.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ VA - Erotica, Vol. 2 (2016) [AAC|~331 Kbps] <Electronic, Chill Out, Lounge>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165391.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165391.jpgsave_picture_165391.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ O&O DiskImage Professional 18.5 Build 340 RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165392.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165392.jpgsave_picture_165392.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:50B736ADFF3FE9F6E418DD250C17A22565DAD4A4
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165393.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165393.jpgsave_picture_165393.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:A574BE2BA904B6180B5344B5EB6DA41DADDC5F97
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165394.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165394.jpgsave_picture_165394.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Bernie Marsden - And About Time Too (1979) [FLAC|24/192|image + .cue|Vinyl-Rip] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165395.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165395.jpgsave_picture_165395.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ VA - Nu Cool Covers 3: Pop Classics ReStyled (2020) [AAC|~328 Kbps] <Lounge, Nu 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165396.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165396.jpgsave_picture_165396.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ KCNcrew Pack 12-15-20 + Bonus [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165397.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165397.jpgsave_picture_165397.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Microsoft Office 2016-2019 Professional Plus / Standard + Visio + Project 16.0.1
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165398.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165398.jpgsave_picture_165398.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ magnet:?xt=urn:btih:50ECCAFB6D06B688D75A378C6B9B6B74AC2CA657
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165399.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165399.jpgsave_picture_165399.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ magnet:?xt=urn:btih:0AA9EE13AF2F0933A9CD79E00C9CB82ECF4B810D
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165400.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165400.jpgsave_picture_165400.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ magnet:?xt=urn:btih:1B8FE262CC92A3AEBC064D71148667525C828F0B
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165401.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165401.jpgsave_picture_165401.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ AirRadar 6 v6.0.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165402.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165402.jpgsave_picture_165402.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Tensei Shitara Ken Deshita / Reincarnated as a Sword / О моём переро�
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165403.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165403.jpgsave_picture_165403.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Udemy, Nexttut, Victor Yamakado | Zbrush Character Likeness Sculpting Tutorial (
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165404.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165404.jpgsave_picture_165404.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Duplicate Photos SweeperOff 3.9 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165405.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165405.jpgsave_picture_165405.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ Divine Horsemen - Bitter End Of A Sweet Night (2023) [FLAC|Lossless|WEB-DL|track
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165406.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165406.jpgsave_picture_165406.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ magnet:?xt=urn:btih:2ECAFAF648159352AD5129E6ED30A8E8C72F7187
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165407.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165407.jpgsave_picture_165407.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ VA - Erotica, Vol. 3 (2018) [AAC|~325 Kbps] <Electronic, Chill Out, Lounge>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165408.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165408.jpgsave_picture_165408.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ magnet:?xt=urn:btih:38CB610A04642092F0467CBD6E74C55B59BEAE4E
 >>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165409.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165409.jpgsave_picture_165409.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ Renton - Birthday Mix (2018) [FLAC|Lossless|WEB-DL|image + .cue] <Chillout, Deep
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165410.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165410.jpgsave_picture_165410.jpg" />
 </div>
 
 

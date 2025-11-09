@@ -6,7 +6,7 @@ Forgotten Realms: Demon Stone (2025) [Ru/Multi] (BuildID 19330718) Repack FitGir
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5618.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5618.jpgsave_picture_5618.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Space Adventure Cobra - The Awakening (2025) [Multi] (0.01.35/dlc) Repack Let's�
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5620.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5620.jpgsave_picture_5620.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Aurelia (2024) [Ru/Multi] (1.0.1) Repack Let'sРlay [18+]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5624.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5624.jpgsave_picture_5624.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Enemy Front (2014) [Ru/Multi] (1.0/dlc) Repack Let'sРlay
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5628.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5628.jpgsave_picture_5628.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ BROK The InvestiGator (2022) [Ru/Multi] (1.5.3.7/dlc) License GOG [Deluxe Editio
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5632.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5632.jpgsave_picture_5632.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:86A1657B53A0FB31E7FF41F72E55338D0278ABC4
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5635.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5635.jpgsave_picture_5635.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Nordhold (2025) [Ru/Multi] (1.1.05/dlc) Repack Let'sРlay [Supporter Bundle]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5642.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5642.jpgsave_picture_5642.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ The Drifter (2025) [Ru/Multi] (1.0.7) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5685.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5685.jpgsave_picture_5685.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Grim Chronicles: Superior Sorcery / Мрачные летописи: Высше�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5689.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5689.jpgsave_picture_5689.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Goat Simulator 3 (2022) [Ru/Multi] (1.1.4.3_410056/dlc) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5697.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5697.jpgsave_picture_5697.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Black Geyser: Couriers of Darkness (2021) [Ru/Multi] (1.2.64) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5728.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5728.jpgsave_picture_5728.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Ninja Gaiden: Ragebound (2025) [Ru/Multi] (cs37290) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5730.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5730.jpgsave_picture_5730.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ House Flipper 2 (2023) [Ru/Multi] (1.9.3.0/dlc) Repack Pioneer
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5736.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5736.jpgsave_picture_5736.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Vlad Circus: Curse of Asmodeus (2025) [Ru/Multi] (1.6.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5738.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5738.jpgsave_picture_5738.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Firehawk FPV: Drone Warfare Simulator (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5740.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5740.jpgsave_picture_5740.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Becastled (2021) [Ru/Multi] (0.9102) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5743.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5743.jpgsave_picture_5743.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Yield! Fall of Rome (2025) [Ru/Multi] (1.0.2.0) Repack Let'sРlay [Supporter Bun
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5747.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5747.jpgsave_picture_5747.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Gears of War Reloaded (2025) [Ru/Multi] (1.0.1.3689997) Repack seleZen
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5749.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5749.jpgsave_picture_5749.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ FOUNDRY (2024) [Ru/Multi] (0.6.0.21821) Repack Pioneer [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5753.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5753.jpgsave_picture_5753.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Atelier Yumia: The Alchemist of Memories & The Envisioned Land / Ателье Ю
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5761.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5761.jpgsave_picture_5761.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Dark Envoy (2023) [Ru/Multi] (1.8.0.74338) Repack FitGirl [Director's Cut - Supp
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5762.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5762.jpgsave_picture_5762.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Intravenous 2 (2024) [Ru/Multi] (1.4.5/dlc) Repack Let'sРlay [Supporter Bundle]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5767.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5767.jpgsave_picture_5767.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Spirit of the North 2 (2025) [Ru/Multi] (12765-13132) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5772.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5772.jpgsave_picture_5772.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Metal Gear Solid Delta: Snake Eater (2025) [Ru/Multi] (1.1.1/dlc) Repack FitGirl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5777.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5777.jpgsave_picture_5777.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Atelier Yumia: The Alchemist of Memories & The Envisioned Land / Ателье Ю
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5778.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5778.jpgsave_picture_5778.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Shadow Labyrinth (2025) [Multi] (1.0.4/dlc) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5782.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5782.jpgsave_picture_5782.jpg" />
 </div>
 
 

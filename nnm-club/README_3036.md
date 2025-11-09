@@ -6,7 +6,7 @@ Schallusion - Morphologic Tales (2012) [MP3|320 кб/с]<Goa Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95416.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95416.jpgsave_picture_95416.jpg" />
 </div>
 
 
@@ -36,7 +36,7 @@ magnet:?xt=urn:btih:BB20C2817CC8F55BC050A0B30441C1DEDBC3D1CB
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95430.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95430.jpgsave_picture_95430.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:02003CD8B160191511D2F30F22FD062F6162B290
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95435.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95435.jpgsave_picture_95435.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ KISS - Dressed To Kill (1975) [MP3|320 кб/с]<Hard Rock, Rock>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95459.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95459.jpgsave_picture_95459.jpg" />
 </div>
 
 
@@ -118,7 +118,7 @@ Inkubus Sukkubus - The Dark Goddess (2011) [MP3|320 кб/с]<Gothic Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95460.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95460.jpgsave_picture_95460.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - Trance Eve Volume 23 (03.03.2012) [MP3|320 кб/с]<Uplifting Trance, Vocal
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95462.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95462.jpgsave_picture_95462.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ magnet:?xt=urn:btih:5282A4076641D7CCF417BB6363F09D8269536814
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95474.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95474.jpgsave_picture_95474.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ Onkel Tom Angelripper - Nunc Est Bibendum (2011) [MP3|320 кб/с]<Thrash Metal,
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95479.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95479.jpgsave_picture_95479.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ magnet:?xt=urn:btih:A53DDA1BB85D3C81EC6177EC7AB6D4C1E691D369
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95480.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95480.jpgsave_picture_95480.jpg" />
 </div>
 
 
@@ -265,7 +265,7 @@ magnet:?xt=urn:btih:37366167C6E2DC7BDF747EBAD8C35BD5F45D47BE
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95482.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95482.jpgsave_picture_95482.jpg" />
 </div>
 
 
@@ -289,7 +289,7 @@ magnet:?xt=urn:btih:77B83518E06323409E618D3E69EF1C398B6E0D94
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95519.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95519.jpgsave_picture_95519.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ magnet:?xt=urn:btih:66A797013F7DA6226926869EA7B93CC28BAF8A7E
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95522.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95522.jpgsave_picture_95522.jpg" />
 </div>
 
 
@@ -341,7 +341,7 @@ magnet:?xt=urn:btih:04DDDBD7B248B8F4AEBF1D27684A83C87B31CB39
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95546.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95546.jpgsave_picture_95546.jpg" />
 </div>
 
 
@@ -365,7 +365,7 @@ magnet:?xt=urn:btih:BE4270159245EA784265362366AFCDD3021F7DAE
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95548.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95548.jpgsave_picture_95548.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ magnet:?xt=urn:btih:0DF096AD142CD42AEE9720797486AEA6349A19B1
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95551.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95551.jpgsave_picture_95551.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ magnet:?xt=urn:btih:5BE2A4D0E372F5464E823D909A06F40C4E26F4A6
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95557.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95557.jpgsave_picture_95557.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ VA - The Dance Cube XXXV 3CD (2011) [MP3|320 кб/с]<Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95565.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95565.jpgsave_picture_95565.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ VA - The Dance Cube XXXVI 3CD (2011) [MP3|320 кб/с]<Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95569.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95569.jpgsave_picture_95569.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ VA - Seashore Desire #23 (2012) [MP3|320 kbps] <Uplifting Trance, Dream Trance, 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95604.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95604.jpgsave_picture_95604.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ magnet:?xt=urn:btih:1B2E0B25A7C1C6BA98DC3EA132AFDE5726A0CFB2
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95621.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95621.jpgsave_picture_95621.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Bruce Springsteen - Wrecking Ball (Special Edition) (2012) [MP3|~245 кб/с (V0
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95623.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95623.jpgsave_picture_95623.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ magnet:?xt=urn:btih:9C2126FDAAF22426B15653C62D71042919504A6F
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95626.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95626.jpgsave_picture_95626.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ magnet:?xt=urn:btih:D296F33128F371843759D6DF084188D8EE30B874
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95629.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95629.jpgsave_picture_95629.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ magnet:?xt=urn:btih:007D2F856557D8CBF7ABAD97B2B5A920538D6DA5
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95637.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95637.jpgsave_picture_95637.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ magnet:?xt=urn:btih:7C2F41BDD1E85D504CD282AE2D90D54A478AD17B
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95652.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95652.jpgsave_picture_95652.jpg" />
 </div>
 
 
@@ -684,7 +684,7 @@ magnet:?xt=urn:btih:CFB1F86744CA3C7D08793C820C31DC6DAD51EBAE
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95655.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95655.jpgsave_picture_95655.jpg" />
 </div>
 
 

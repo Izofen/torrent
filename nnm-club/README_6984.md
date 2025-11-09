@@ -6,7 +6,7 @@ Clipsy: Clipboard Manager 2.0 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239741.jpgsave_picture_239741.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Guillaume Nouaux & The Stride Piano Kings (2020) Self-Released [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239742.jpgsave_picture_239742.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:1F4AC924FF80E3B6CDCED63855735FB33717B256
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239743.jpgsave_picture_239743.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Lisa Fitzpatrick | Артбук по фильму Аватар / The Art of Avat
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239744.jpgsave_picture_239744.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Glarysoft Malware Hunter PRO 1.165.0.782 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239745.jpgsave_picture_239745.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ Alfred 4 Powerpack 4.2.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239746.jpgsave_picture_239746.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:E17EB287DFAA80CC59F3FDCFBBDE0B62764A7146
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239747.jpgsave_picture_239747.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ References.Design 2.4.1 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239748.jpgsave_picture_239748.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:75CEC566EE76B30E988A57BE3FCE5CCE61E84B63
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239749.jpgsave_picture_239749.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ Stormage - Ashes Of Doom (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239750.jpgsave_picture_239750.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ Sammy Davis, Jr. - I've Gotta Be Me (1968) 2004,  Collectors' Choice Music [FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239751.jpgsave_picture_239751.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ Benny Golson Funky Quintet - That's Funky (1994) 2000, Arkadia Jazz [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239752.jpgsave_picture_239752.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ magnet:?xt=urn:btih:44618E4EB2271654A235FF008F3A530AD4666258
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239753.jpgsave_picture_239753.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ magnet:?xt=urn:btih:179DAD5060B27215DC5ADC87B0CD4598BDD0AAD8
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239754.jpgsave_picture_239754.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ WITCH - Zango (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239755.jpgsave_picture_239755.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ VA - Bravo Hits Vol. 120 (2023) 2CD, Compilation [MP3|320 Kbps] <Synthpop, Dance
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239756.jpgsave_picture_239756.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Acon Digital Acoustica Premium Edition 7.3.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239757.jpgsave_picture_239757.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Vansidian - Reflecting The Shadows (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239758.jpgsave_picture_239758.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Cybermode Beats - 3 Albums (2023) [MP3|320 Kbps] <Cyberpunk, Dark Electro, Dark 
 >>Industrial, EBM, Dark Electro
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239759.jpgsave_picture_239759.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Joe Dassin - Golden Disc (2005) Compilation [FLAC|Lossless|image + .cue] <Pop, C
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239760.jpgsave_picture_239760.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ magnet:?xt=urn:btih:D4621A4E27CBCE4570844C6322CD455A8B2D97DF
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239761.jpgsave_picture_239761.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Land Of The Sun - II (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Psych, Stoner, 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239762.jpgsave_picture_239762.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Blumentals WeBuilder 2022 17.3.0.244 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239763.jpgsave_picture_239763.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Cloak - Black Flame Eternal (2023) [FLAC|Lossless|WEB-DL|tracks] <Gothic, Black 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239764.jpgsave_picture_239764.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ magnet:?xt=urn:btih:6CCF934327F708F6436DF77BF3A3188C640B5D81
 >>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239765.jpgsave_picture_239765.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ Sound Grinder Pro 3.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239766.jpgsave_picture_239766.jpg" />
 </div>
 
 

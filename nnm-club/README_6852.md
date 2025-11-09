@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235428.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235428.jpgsave_picture_235428.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Exoto - Final Festering (2023) [FLAC|Lossless|WEB-DL|tracks] <Death, Thrash Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235429.jpgsave_picture_235429.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Downie 4 v4.2.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235430.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235430.jpgsave_picture_235430.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ magnet:?xt=urn:btih:FEAF9A134A61FF5B2A2C792618EDCAE85F90B18E
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235431.jpgsave_picture_235431.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ Von Glitschka | Лаборатория векторной графики (2016-2
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235432.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235432.jpgsave_picture_235432.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ Paul Bley, Evan Parker, Barre Phillips - Time Will Tell (1995) ECM [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235433.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235433.jpgsave_picture_235433.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ Ashampoo Photo Commander 17.0.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235434.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235434.jpgsave_picture_235434.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ LaMarca - LaMarca (1985) Reissue, Remastered, 2022, MelodicRock Classics [FLAC|L
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235435.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235435.jpgsave_picture_235435.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ The Dimitri Keiski Band - II (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235436.jpgsave_picture_235436.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ magnet:?xt=urn:btih:B8ABFA2D353D3F46FA39E522234288F8E3843C34
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235437.jpgsave_picture_235437.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ magnet:?xt=urn:btih:01E3AC5E347B8D6C6CB8D293566B39073DD38BAE
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235438.jpgsave_picture_235438.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ Jessica Williams - Live At Maybeck Recital Hall, Vol. 21 (1992) Concord Jazz [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235439.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235439.jpgsave_picture_235439.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ magnet:?xt=urn:btih:0CEC38D17D1ADE3815BC7412F8553331A78CFF4D
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235440.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235440.jpgsave_picture_235440.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ The Unresolved - Convalescence (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235441.jpgsave_picture_235441.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ Opera 98.0.4759.39 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235442.jpgsave_picture_235442.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ Krita 5.1.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235443.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235443.jpgsave_picture_235443.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Preachers Of Distortion - Fight Or Flight (2023) [FLAC|Lossless|WEB-DL|tracks] <
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235444.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235444.jpgsave_picture_235444.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Ray Alder - II (2023) [FLAC|Lossless|image + .cue] <Progressive Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235445.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235445.jpgsave_picture_235445.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ OpenNumismat 1.8.22 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235446.jpgsave_picture_235446.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ sPoonman - Silent Psalm (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235447.jpgsave_picture_235447.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ magnet:?xt=urn:btih:3C653B53E8607DA8F30D50FFC888F708C1CECEB3
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235448.jpgsave_picture_235448.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Primitai - Night Brings Insanity (2016) [FLAC|Lossless|WEB-DL|tracks] <Heavy Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235449.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235449.jpgsave_picture_235449.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ magnet:?xt=urn:btih:6F6032E192FE2AAAFF464ABB38415CFAFCED2098
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235450.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235450.jpgsave_picture_235450.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ NASA работает над магнитной защитой от космич
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_235451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_235451.jpgsave_picture_235451.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ NASA работает над магнитной защитой от космич
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235452.jpgsave_picture_235452.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Divine - Compilation (2023) [MP3|320 Kbps] <Hi-NRG>
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235453.jpgsave_picture_235453.jpg" />
 </div>
 
 

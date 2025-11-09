@@ -6,7 +6,7 @@ Benighted - Obscene Repressed (2020) [FLAC|Lossless|WEB-DL|tracks] <Brutal Death
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241888.jpgsave_picture_241888.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Solar Eruption - The End Is Near (Limited Edition) / Bloody Mary (2019-2020) [MP
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241896.jpgsave_picture_241896.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Europe - Collections (2005) [FLAC|Lossless|tracks + .cue] <Rock, Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241911.jpgsave_picture_241911.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ magnet:?xt=urn:btih:14F077D32D1564B8E7094D942D7B01118935A0A9
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241912.jpgsave_picture_241912.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Wrack - Altare der Verganglichkeit (2023) [FLAC|Lossless|WEB-DL|tracks] <Black M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241922.jpgsave_picture_241922.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Vengeance - Retaliation (2020) EP [MP3|320 Kbps] <Metallic Hardcore, Beatdown Ha
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241933.jpgsave_picture_241933.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Breakdowns At Tiffany's - Eternal Lords (2020) [MP3|320 Kbps] <Metalcore>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241941.jpgsave_picture_241941.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Section Brain - Hospital of Death (1993) [FLAC|Lossless|image + .cue] <Technical
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241942.jpgsave_picture_241942.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Aara - Triade III: Nyx (2023) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Black M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241952.jpgsave_picture_241952.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Biopsyhoz (Биопсихоз) - 2 Albums (2019-2021) [FLAC|Lossless|WEB-DL|trac
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241956.jpgsave_picture_241956.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ This White Mountain - Finality (2020) [FLAC|Lossless|WEB-DL|tracks] <Black Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241962.jpgsave_picture_241962.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Adorned Brood - Noor (2008) [FLAC|Lossless|image + .cue] <Folk Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241972.jpgsave_picture_241972.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ VA - Comfort Zone - Soft Rock (2023) [FLAC|Lossless|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241985.jpgsave_picture_241985.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Aiden Malacaria - Inferno (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metalc
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241997.jpgsave_picture_241997.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Unruly Child - Can't Go Home (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Melodi
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241998.jpgsave_picture_241998.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Powerwolf - Interludium (2023) 3xCD, Deluxe Edition [FLAC|Lossless|WEB-DL|tracks
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242005.jpgsave_picture_242005.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Dynazty - The Dark Delight (2020) [FLAC|Lossless|WEB-DL|tracks] <Melodic Heavy M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242007.jpgsave_picture_242007.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ Shaman - Rescue (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive, Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242017.jpgsave_picture_242017.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Dead Animal Assembly Plant - Bring Out The Dead (2021) [FLAC|Lossless|WEB-DL|tra
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242041.jpgsave_picture_242041.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Arctic Rain - Unity (2023) Japanese Edition [FLAC|Lossless|image + .cue] <Melodi
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242047.jpgsave_picture_242047.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Siena Root - Revelation (2022) [FLAC|Lossless|WEB-DL|tracks] <Prog Rock, Psychod
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242054.jpgsave_picture_242054.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Imperial State Electric - Pop War (2012) [FLAC|Lossless|image + .cue] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242063.jpgsave_picture_242063.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Majesties - Vast Reaches Unclaimed (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242065.jpgsave_picture_242065.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ Nightrider - Nightrider (1979) Reissue, 1992, Musea Records [MP3|320 Kbps] <Heav
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242073.jpgsave_picture_242073.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ Kong - Traders of Truth (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242080.jpgsave_picture_242080.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ Black Spiders - Black Spiders (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, S
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242084.jpgsave_picture_242084.jpg" />
 </div>
 
 

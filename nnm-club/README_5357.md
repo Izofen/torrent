@@ -6,7 +6,7 @@
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166138.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166138.jpgsave_picture_166138.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Alpha Souls - Carousel Of Emotions (2020) [MP3|320 Kbps] <Melodic Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166139.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166139.jpgsave_picture_166139.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Adobe Photoshop 2023 24.1.0.166 RePack by KpoJIuK [Multi/Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166140.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166140.jpgsave_picture_166140.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ TechTool Pro 12 v12.0.4 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166141.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166141.jpgsave_picture_166141.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ Miss Jane feat. Miichii - It's A Fine Day (2023) [FLAC|Lossless|WEB-DL|tracks] <
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166142.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166142.jpgsave_picture_166142.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ Microsoft Office LTSC 2021 Professional Plus / Standard + Visio + Project 16.0.1
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166143.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166143.jpgsave_picture_166143.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:462BB622956287428C70BBD7039C21A3912E2299
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166144.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166144.jpgsave_picture_166144.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:596F5A24A3B266A8CBBC31AD535A84EC9F8F3AFE
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166145.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166145.jpgsave_picture_166145.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ XYZ School, Александр Балакшин | Gamecode (2020) WEB-DL [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166146.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166146.jpgsave_picture_166146.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:CB0F6AD5F0A9C0FBD5E2A8991A5DE2446217D303
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166147.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166147.jpgsave_picture_166147.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ KAUAN - Sorni Nai Live (2021) [FLAC|Lossless|Web-DL|tracks] <Dark Folk, Atmosphe
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166148.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166148.jpgsave_picture_166148.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ PureSync 6.2.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166149.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166149.jpgsave_picture_166149.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Resource Hacker 5.2.4.386 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166150.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166150.jpgsave_picture_166150.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ magnet:?xt=urn:btih:94FE19920CEE3E2C75479C7CE4B01F3A4726226B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166151.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166151.jpgsave_picture_166151.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Beegie Adair - Winter Wonderland (2021) EP [FLAC|Lossless|WEB-DL|tracks] <Piano 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166152.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166152.jpgsave_picture_166152.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Sprint-Layout 6.0 DC 24.10.2019 RePack by NikZayatS2018 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166153.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166153.jpgsave_picture_166153.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Comodo Dragon 117.0.5938.150 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166154.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166154.jpgsave_picture_166154.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ magnet:?xt=urn:btih:12390E041C9DD71A2FE1F7B2F0CC72A0E4D34D76
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166155.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166155.jpgsave_picture_166155.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Adobe After Effects 2023 23.1.0.83 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166156.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166156.jpgsave_picture_166156.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ magnet:?xt=urn:btih:2290592545817F2B2363EB040393898FD854714B
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166157.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166157.jpgsave_picture_166157.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ Mono Inc. - The Book of Fire (2020) Platinum Edition, 2021, NoCut [FLAC|Lossless
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166158.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166158.jpgsave_picture_166158.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ magnet:?xt=urn:btih:2BF7AE60B97676FAA1F0CAE7C3826997D0FF9B1B
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166159.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166159.jpgsave_picture_166159.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ Adobe Photoshop Lightroom Classic 12.1.0.8  RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166160.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166160.jpgsave_picture_166160.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Wondershare PDFelement 10.1.4.2521 RePack by elchupacabra + OCR Plugin [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166161.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166161.jpgsave_picture_166161.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ The Darkness - Motorheart (2021) Limited Edition [FLAC|Lossless|tracks + .cue] <
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166162.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166162.jpgsave_picture_166162.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Neal Schon - Universe (2020) [MP3|320 Kbps] <Instrumental Guitar Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166163.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166163.jpgsave_picture_166163.jpg" />
 </div>
 
 

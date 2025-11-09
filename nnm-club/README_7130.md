@@ -6,7 +6,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244319.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244319.jpgsave_picture_244319.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:C2A4E03936A18D54FFF02E25B5F8276B4DCFEA9C
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244320.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244320.jpgsave_picture_244320.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ VA - I Love The 90's 10 Years Anniversary Edition (2017) 5CD, Compilation [FLAC|
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244321.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244321.jpgsave_picture_244321.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:A5BFBE6BAB3D8B74E8E91133088EE2D973CAECD8
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244322.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244322.jpgsave_picture_244322.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Angel Vivaldi - Away With Words, Part 1-2 (2014-2023) 2EP [MP3|320 Kbps] <Progre
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244323.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244323.jpgsave_picture_244323.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:7E12E3222F52AC336F5A164699FED5E71C933C5F
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244324.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244324.jpgsave_picture_244324.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ NeoFinder Business 8.1.2 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244325.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244325.jpgsave_picture_244325.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:4C5C82AE420743D45B4F8D1EB9B5EB6DB90B0697
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244326.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244326.jpgsave_picture_244326.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ Chris Angels - Gods (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Progressive Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244327.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244327.jpgsave_picture_244327.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ magnet:?xt=urn:btih:25273F34FD6988E256B7B1912E2ED0F386EE800E
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244328.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244328.jpgsave_picture_244328.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ magnet:?xt=urn:btih:D03E39286DB4701ADEBA46F33DB5F86860590898
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244329.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244329.jpgsave_picture_244329.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ The Tony Kofi Quartet - The Silent Truth (2008) Specific Jazz[FLAC|Lossless|imag
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244330.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244330.jpgsave_picture_244330.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ magnet:?xt=urn:btih:1A9E435184E980AA453C90E2F3205E8CBD3E9335
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244331.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244331.jpgsave_picture_244331.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ Rebelway, Saber Jlassi | Advanced Houdini FX - RISE (2020) PCRec [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244332.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244332.jpgsave_picture_244332.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ VA - Choices (2023) [MP3|320 Kbps] <Disco, Soulful, Afrobeat, Nu Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244333.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244333.jpgsave_picture_244333.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ FreeTube 0.17.0 Beta + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244334.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244334.jpgsave_picture_244334.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Absurd - Asgardsrei (1999) 2017 Remastered, IG Farben [FLAC|Lossless|image + .cu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244335.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244335.jpgsave_picture_244335.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ Thelonious Monk - The Best of Thelonious Monk (1955 - 1960) 2004, Riverside Reco
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244336.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244336.jpgsave_picture_244336.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Laurent Coq Trio - Spinnin' (2005) Cristal Records[FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244337.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244337.jpgsave_picture_244337.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ magnet:?xt=urn:btih:1479FDF9D676D65400BC9BF455AB2BA3B232ABA1
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244338.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244338.jpgsave_picture_244338.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ Empire - Sound Barrier (1995) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244339.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244339.jpgsave_picture_244339.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ VA - Quantize Miami Sampler (2023) [MP3|320 Kbps] <Disco, Nu-Disco, Afrobeat, Fu
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244340.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244340.jpgsave_picture_244340.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ magnet:?xt=urn:btih:21FA8C1C86EF6B3B4F44B48A4B9A3E9BFCAFDE3B
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244341.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244341.jpgsave_picture_244341.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ VA - Notes from the Depth, Vol. 10 (2020) [AAC|~332 Kbps] <House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244342.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244342.jpgsave_picture_244342.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ The Chronicle (2022) [En] (1.0) License TiNYiSO
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244343.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244343.jpgsave_picture_244343.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ FabFilter - Total Bundle 2022.02.15 VST, VST3, AAX (x86/x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244344.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244344.jpgsave_picture_244344.jpg" />
 </div>
 
 

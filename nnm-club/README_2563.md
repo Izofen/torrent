@@ -6,7 +6,7 @@ Super Lovers II | Больше, чем возлюбленные 2 [2017, TV, 10 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67388.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67388.jpgsave_picture_67388.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:BDA90F853C3E837FE9565A01D44FE8D2E0E29471
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67389.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67389.jpgsave_picture_67389.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:FB160C68EEFCCDB80705A864AAAE236CE0708270
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67390.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67390.jpgsave_picture_67390.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ VA - Earthbound Collection 2025 (Tibetania Records) [FLAC|Lossless|WEB-DL|tracks
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67391.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67391.jpgsave_picture_67391.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:20FD8DB5A325F5EB2DEFA0C0155EBCD5693A4DC1
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67392.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67392.jpgsave_picture_67392.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:D0446321DADB4BB8CFC12D069227E465B72230CC
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67393.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67393.jpgsave_picture_67393.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Epica - Aspiral (2025) [MP3|320 Kbps] <Symphonic Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67394.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67394.jpgsave_picture_67394.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:34F249DAFB20CF5AA46379EC02389F386D917EE2
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67395.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67395.jpgsave_picture_67395.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:9B6EEA5D775AAE6E6F873AF04895A27BBCA890FB
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67396.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67396.jpgsave_picture_67396.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:FA318803E5FA939BE70085539D8E746D095F9CD9
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67397.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67397.jpgsave_picture_67397.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:809039E652D7BE727ECCCE17B26E6B40C62C2266
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67398.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67398.jpgsave_picture_67398.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:77CDE0E959C6D55A32CC7204329EC76EF1D1363F
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67399.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67399.jpgsave_picture_67399.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:34C1EC67B726F3C6EDAE84F5CCCD472712A2A962
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67400.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67400.jpgsave_picture_67400.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:3804A320AE9193185A3D8685BDC073BFE2FE98BA
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67401.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67401.jpgsave_picture_67401.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ magnet:?xt=urn:btih:85AD223F67C93C89A235C54D1B3E82C1C8EBF734
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67402.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67402.jpgsave_picture_67402.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:8B2E796F58FF02EA59FF852B19C71D0FC7690069
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67403.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67403.jpgsave_picture_67403.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ magnet:?xt=urn:btih:10965EDEE9E38D93CF789C41244C548C05498589
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67404.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67404.jpgsave_picture_67404.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Helena Vondrackova - Music (1980) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Soul,
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67405.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67405.jpgsave_picture_67405.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ VA - Шансон премьера 2025 апрель (Новые песни. Н�
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67406.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67406.jpgsave_picture_67406.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ magnet:?xt=urn:btih:1D9126D64A6298089E05AE0BE2C20A050974113B
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67407.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67407.jpgsave_picture_67407.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Draw.io 26.2.15 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67408.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67408.jpgsave_picture_67408.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ VA - Music News For Forum vol.077 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67409.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67409.jpgsave_picture_67409.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ magnet:?xt=urn:btih:20EFF666795381B1AD2950E426B465CFAC8BA64A
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67410.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67410.jpgsave_picture_67410.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ magnet:?xt=urn:btih:DDC15E7CE8B57F6612359573481EC7E0CE478045
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67411.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67411.jpgsave_picture_67411.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ Deserted Fear - Studio Albums (6 releases) (2012-2025) hand made [restored, decl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67412.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67412.jpgsave_picture_67412.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ magnet:?xt=urn:btih:21C1B5449B9176EF79ED55DB61B6E5471B823333
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67413.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67413.jpgsave_picture_67413.jpg" />
 </div>
 
 

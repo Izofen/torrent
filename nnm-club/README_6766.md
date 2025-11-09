@@ -6,7 +6,7 @@ Speedwhore - The Future Is Now (2015) [FLAC|Lossless|image + .cue] <Black, Thras
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232847.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232847.jpgsave_picture_232847.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Kesha - Gag Order (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop>
 >>Pop (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232850.jpgsave_picture_232850.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Topaz Photo AI 1.3.12 (x64) Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232851.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232851.jpgsave_picture_232851.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ National Nightmare - High Life (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232853.jpgsave_picture_232853.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ magnet:?xt=urn:btih:90E2D4E1C14A44EAAB770A42AE58E9ACE211779F
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232856.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232856.jpgsave_picture_232856.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ magnet:?xt=urn:btih:1B38FFF9AA111420C8ECA893F22F79F184A01CDE
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232857.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232857.jpgsave_picture_232857.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ magnet:?xt=urn:btih:F2513F0D3CCE0F46EC156A3FA9C6CC4C60F227DF
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232859.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232859.jpgsave_picture_232859.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ magnet:?xt=urn:btih:8DD0D1A2247F504D8C17CEC1F76AAEBC40C37EA3
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232860.jpgsave_picture_232860.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ The Ducks - High Flyin' (Live) (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232861.jpgsave_picture_232861.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ magnet:?xt=urn:btih:E4C0C77C1B918FDE92CAAB3D0B9206679EAED927
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232865.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232865.jpgsave_picture_232865.jpg" />
 </div>
 
 
@@ -265,7 +265,7 @@ Avalanch - El Dilema De Los Dioses (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232866.jpgsave_picture_232866.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ magnet:?xt=urn:btih:810A11AF15BF27AA9E9271989D3DF425F508CB2A
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232867.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232867.jpgsave_picture_232867.jpg" />
 </div>
 
 
@@ -316,7 +316,7 @@ magnet:?xt=urn:btih:A9FF09C36B675EC553D7F2A7B37DC2F27DF66EB0
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232868.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232868.jpgsave_picture_232868.jpg" />
 </div>
 
 
@@ -340,7 +340,7 @@ magnet:?xt=urn:btih:83C72583916E3EEDCE9FBCF6C3441B71521A6E64
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232870.jpgsave_picture_232870.jpg" />
 </div>
 
 
@@ -364,7 +364,7 @@ Protz - In Dog We Trust (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232871.jpgsave_picture_232871.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ PeaZip 9.3.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232875.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232875.jpgsave_picture_232875.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ RTG. Каменные загадки долины реки Малая Лаба (
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232876.jpgsave_picture_232876.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ magnet:?xt=urn:btih:40E8456AA1FF7FD43EB5CEC8E9E7EDC689C71D75
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232877.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232877.jpgsave_picture_232877.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ magnet:?xt=urn:btih:3E34A283EDE54E321027F59C94FED87E11EFD744
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232878.jpgsave_picture_232878.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Ancestry - Revelations (2011) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232879.jpgsave_picture_232879.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Calibre 6.22.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232880.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232880.jpgsave_picture_232880.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Kid3 3.9.4 Audio Tagger Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232885.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232885.jpgsave_picture_232885.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Topaz Photo AI 1.3.5 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232886.jpgsave_picture_232886.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ magnet:?xt=urn:btih:C828F7418FF191D542EBF246B12254D2A9DCB657
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232887.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232887.jpgsave_picture_232887.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ magnet:?xt=urn:btih:BC4FD94C10089E0EC6D90D110D1AD0259D6972B5
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232888.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232888.jpgsave_picture_232888.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ Windows Update Viewer 0.5.6.0 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232889.jpgsave_picture_232889.jpg" />
 </div>
 
 

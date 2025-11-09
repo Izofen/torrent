@@ -6,7 +6,7 @@ Pool Cleaning Simulator (2024) [Ru/Multi] (1.7.0.2.6) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105653.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105653.jpgsave_picture_105653.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Fallen Leaf (2024) [En] (1.0.0.1) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105736.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105736.jpgsave_picture_105736.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Enchantment 2: Sun's Tear (2024) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105806.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105806.jpgsave_picture_105806.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Enchantment: Secret Hideaway (2023) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105869.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105869.jpgsave_picture_105869.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Crystal Shard Adventure Bundle (2016) [Ru/Multi] (1.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106045.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106045.jpgsave_picture_106045.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Punch Club 2: Fast Forward (2023) [Ru/Multi] (1.101/dlc) Repack Other s
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106069.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106069.jpgsave_picture_106069.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ A Memoir Blue (2022) [Ru/Multi] (Build 8901003) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106071.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106071.jpgsave_picture_106071.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Magical Delicacy (2024) [Multi] (1.0) Scene Razor 1911
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106133.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106133.jpgsave_picture_106133.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Park Beyond (2023) [Ru/Multi] (4.0.0/dlc) Scene Rune
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106145.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106145.jpgsave_picture_106145.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Lifecraft (2024) [En] (0.1.0d8) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106455.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106455.jpgsave_picture_106455.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ City of Stories 2: The Professor's Secret (2024) [En] (1.0) Unofficial [Collecto
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106460.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106460.jpgsave_picture_106460.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ I Was a Teenage Exocolonist (2022) [En] (1) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106464.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106464.jpgsave_picture_106464.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Asterix and Obelix: Slap them All! (2021) [Ru/Multi] (1.0.44) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106469.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106469.jpgsave_picture_106469.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Donut Dodo (2022) [En] (1.3.9.1) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106584.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106584.jpgsave_picture_106584.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Paper Trail (2024) [Multi] (1.0) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107282.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107282.jpgsave_picture_107282.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Detectives United 7: Mission Possible (2024) [En] (1.0) Unofficial [Collector's 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107335.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107335.jpgsave_picture_107335.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Siralim Ultimate (2021) [En] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107632.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107632.jpgsave_picture_107632.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ TY the Tasmanian Tiger 4 (2015) [Multi] (1.0) Scene SKIDROW
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107639.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107639.jpgsave_picture_107639.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Criminal Archives 4: Blade of Deceit (2024) [Multi] (1.0) Unofficial [Collector'
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107712.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107712.jpgsave_picture_107712.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ no sleep for sole (2024) [Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108077.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108077.jpgsave_picture_108077.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Echoes of Despair (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108444.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108444.jpgsave_picture_108444.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Paranormal Files 11: Sacrifice to Shadows (2024) [En] (1.0) Unofficial [Collecto
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109005.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109005.jpgsave_picture_109005.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Pizza Possum (2023) [Ru/Multi] (1.4.16) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109831.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109831.jpgsave_picture_109831.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Cavern of Dreams (2023) [En] (7.5) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110535.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110535.jpgsave_picture_110535.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Dark City 9: Amsterdam (2024) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110786.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110786.jpgsave_picture_110786.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Harmony: The Fall of Reverie (2023) [Multi] (1.03.1485026) License GOG [Soundtra
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110903.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110903.jpgsave_picture_110903.jpg" />
 </div>
 
 

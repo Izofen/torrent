@@ -6,7 +6,7 @@ Saturnus - The Storm Within (2023) [FLAC|Lossless|image + .cue] <Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_220230.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_220230.jpgsave_picture_220230.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:68D5558113983C43FAECA78F742F5487611A26CD
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_220236.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_220236.jpgsave_picture_220236.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:AEE0CAE87F1D430BCA425E508F7DC715C1042CFD
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_220240.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_220240.jpgsave_picture_220240.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:AE608A97F3FA8C2BF43403FCDB71AF8B5F1C343C
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_220244.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_220244.jpgsave_picture_220244.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Kaleidoscope 4.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_220251.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_220251.jpgsave_picture_220251.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ Cathalepsy - Blood and Steel (2023) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_220261.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_220261.jpgsave_picture_220261.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ Hampton Hawes - The Sermon (1958) 2002, Original Jazz Classics [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_220267.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_220267.jpgsave_picture_220267.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ Feeder 4 v.4.5.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_220276.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_220276.jpgsave_picture_220276.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ Adobe Photoshop 2026 27.0.0.25 RePack by KpoJIuK [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_220291.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_220291.jpgsave_picture_220291.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ ABBYY FineReader PDF 16.0.14.7295 RePack by KpoJIuK [Multi/Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_220414.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_220414.jpgsave_picture_220414.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ Dark Moon (2025) [Ru/Multi] (Build version 2025-10-29) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_220442.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_220442.jpgsave_picture_220442.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ DAEMON Tools Lite 11.2.0.2099 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_220480.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_220480.jpgsave_picture_220480.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ Adobe Photoshop Lightroom Classic 2026 15.0.0.17 RePack by KpoJIuK [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_220588.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_220588.jpgsave_picture_220588.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ eRa - The Live Experience 2022 (2023) CamRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_220603.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_220603.jpgsave_picture_220603.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ magnet:?xt=urn:btih:A420FE6F8DC92830CC432F04B62C6874C7EE2FC7
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_220620.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_220620.jpgsave_picture_220620.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ magnet:?xt=urn:btih:B9146D863F70AF383BAC56B37E4E7F91916D1528
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_220626.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_220626.jpgsave_picture_220626.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ magnet:?xt=urn:btih:D0CAEB7412E352C78BFAF4C0F2A3B059C61F10A6
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_220631.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_220631.jpgsave_picture_220631.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Silly Polly Beast (2025) [Ru/Multi] (1.01) License GOG
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_220632.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_220632.jpgsave_picture_220632.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ TuneIn Radio 32.0.1 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_220637.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_220637.jpgsave_picture_220637.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ PreSonus Studio One 6 Professional 6.2.0 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_220644.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_220644.jpgsave_picture_220644.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ magnet:?xt=urn:btih:76793E75C3D0AFF552535E1653E5FD1529CC40AD
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_220651.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_220651.jpgsave_picture_220651.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ magnet:?xt=urn:btih:73B749B250675BE6A6D77A8F6DDA1C18E7CD85D0
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_220665.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_220665.jpgsave_picture_220665.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ magnet:?xt=urn:btih:3F3BA6467CD9B9C79BB119B20C557FDDEC4012D2
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_220674.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_220674.jpgsave_picture_220674.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ TweakPower 2.042 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_220681.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_220681.jpgsave_picture_220681.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Adobe Illustrator 2026 30.0.0.123 RePack by KpoJIuK [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_220683.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_220683.jpgsave_picture_220683.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ magnet:?xt=urn:btih:02A2A2CA43D515CDD5D9D344059EABCB2B3E953A
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_220692.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_220692.jpgsave_picture_220692.jpg" />
 </div>
 
 

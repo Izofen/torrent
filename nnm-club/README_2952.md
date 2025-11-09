@@ -6,7 +6,7 @@
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87496.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87496.jpgsave_picture_87496.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Men of War: Condemned Heroes / Штрафбат [Ru] (RePack) 2012 | Fenixx
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87497.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87497.jpgsave_picture_87497.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Gran Turismo 4 Prologue [Multi5] (RePack/Emul) 2004 | MarkusEVO
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87498.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87498.jpgsave_picture_87498.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Gran Turismo 4 Prologue [Multi5] (RePack/Emul) 2004 | MarkusEVO
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87499.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87499.jpgsave_picture_87499.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ magnet:?xt=urn:btih:F6F257ABE11FCB71501D4C51A1641585915A04B9
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87500.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87500.jpgsave_picture_87500.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ Cannon Fodder 3 [Ru] (RePack) 2012 l Fenixx
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87501.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87501.jpgsave_picture_87501.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ magnet:?xt=urn:btih:5817D0D686273AA7316FFEAF088FC4560378FF3A
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87502.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87502.jpgsave_picture_87502.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ magnet:?xt=urn:btih:602959FEA2274F78C93DF1E5C1F6597C49A108B4
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87504.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87504.jpgsave_picture_87504.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ magnet:?xt=urn:btih:602959FEA2274F78C93DF1E5C1F6597C49A108B4
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87505.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87505.jpgsave_picture_87505.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Michel Teló - Na Balada (2011) [MP3|320 кб/с]<Pop Folk / Sertanejo / World>
 >>Folk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87506.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87506.jpgsave_picture_87506.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ magnet:?xt=urn:btih:9415CF1EA6D76802DCFAA133426BA20E85836025
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87508.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87508.jpgsave_picture_87508.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Kato - Discolized (2010) [FLAC|Lossless]<Electronic, House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87513.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87513.jpgsave_picture_87513.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Kato - Discolized (2010) [FLAC|Lossless]<Electronic, House>
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87514.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87514.jpgsave_picture_87514.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ magnet:?xt=urn:btih:7308A2D337E81D9C84EC7A620F598BCCDC2CBD47
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87518.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87518.jpgsave_picture_87518.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ magnet:?xt=urn:btih:5A20B3D21121587DE217A501A9FA84CE1FCECDA4
 >>Зарубежная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87521.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87521.jpgsave_picture_87521.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ magnet:?xt=urn:btih:B37FC82D7FA842F56A6897BD4A0F0D149110AF31
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87522.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87522.jpgsave_picture_87522.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ magnet:?xt=urn:btih:DB75F0F9DDC7F3F7E95924310A12010FE7D804B3
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87524.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87524.jpgsave_picture_87524.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ magnet:?xt=urn:btih:46FC4F39F433E5515249B9ED0FD258665A414A15
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87528.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87528.jpgsave_picture_87528.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Annalisa - Mentre Tutto Cambia (2012) [MP3|320 кб/с]<Italian Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87529.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87529.jpgsave_picture_87529.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ magnet:?xt=urn:btih:2262CF94FCD7EB282EC0C7013BE8EA7AAC396D08
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87531.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87531.jpgsave_picture_87531.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ magnet:?xt=urn:btih:2262CF94FCD7EB282EC0C7013BE8EA7AAC396D08
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87532.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87532.jpgsave_picture_87532.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ magnet:?xt=urn:btih:2262CF94FCD7EB282EC0C7013BE8EA7AAC396D08
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87533.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87533.jpgsave_picture_87533.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ magnet:?xt=urn:btih:2262CF94FCD7EB282EC0C7013BE8EA7AAC396D08
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87534.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87534.jpgsave_picture_87534.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ magnet:?xt=urn:btih:28BD03124ED05A9AD52CC6F58DF8D8A0B733A1C3
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87536.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87536.jpgsave_picture_87536.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Google Chrome 18.0.1025.152 Stable [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87537.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87537.jpgsave_picture_87537.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Google Chrome - веб-браузер производства Google с отк�
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87542.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87542.jpgsave_picture_87542.jpg" />
 </div>
 
 

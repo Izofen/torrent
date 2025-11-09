@@ -6,7 +6,7 @@ Xilisoft Media Toolkit Ultimate 7.0 [English]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80333.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80333.jpgsave_picture_80333.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Xilisoft Media Toolkit Ultimate 7.0 [English]
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80337.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80337.jpgsave_picture_80337.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:733AB194CB81A1137501702D2DE4E818FAD77A4E
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80343.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80343.jpgsave_picture_80343.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:85C115E2D3DA2098CB43C82D2C8547415D9D94BE
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80344.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80344.jpgsave_picture_80344.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ magnet:?xt=urn:btih:CD2D6B9E86DFCDFF2BE2EC4EDDA9B3B87ED1064D
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80355.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80355.jpgsave_picture_80355.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ magnet:?xt=urn:btih:CD2D6B9E86DFCDFF2BE2EC4EDDA9B3B87ED1064D
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80367.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80367.jpgsave_picture_80367.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ magnet:?xt=urn:btih:9C697F5830E0EFA22124DC0F095591B197F2637B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80372.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80372.jpgsave_picture_80372.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:329D63E9471C2292B2DCB5A017CEC9BE6C38E5AB
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80376.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80376.jpgsave_picture_80376.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ magnet:?xt=urn:btih:83A7EE88FA44CDDA70A5E514DD164FAEEA7B8025
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80377.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80377.jpgsave_picture_80377.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ VA - DFM - Russian Dance from AGR (2.03.2012) MP3, 320 kbps (2012) [MP3|320 кб
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80380.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80380.jpgsave_picture_80380.jpg" />
 </div>
 
 
@@ -262,7 +262,7 @@ VA - Еврохит Топ -40 (04.03.2012) (2012) [MP3|320 кб/с]<pop, dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80397.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80397.jpgsave_picture_80397.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ Epica - Requiem For The Indifferent (2012) [MP3|320 кб/с (Scene)]<Symphonic M
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80398.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80398.jpgsave_picture_80398.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ magnet:?xt=urn:btih:D77929D00F36884F7A99178F60C4DA25FD058656
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80408.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80408.jpgsave_picture_80408.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ magnet:?xt=urn:btih:D77929D00F36884F7A99178F60C4DA25FD058656
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80413.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80413.jpgsave_picture_80413.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ magnet:?xt=urn:btih:1BC9F13C5E0B8B966D7BCFAF7F0BD6169CA73444
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80416.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80416.jpgsave_picture_80416.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ magnet:?xt=urn:btih:1BC9F13C5E0B8B966D7BCFAF7F0BD6169CA73444
 >>Религии и культы (Док/TV)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80426.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80426.jpgsave_picture_80426.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ magnet:?xt=urn:btih:7747B3CE08C57C02536F5EC6E1662CBE4B67E904
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80436.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80436.jpgsave_picture_80436.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:73CE2D413DC9B1750DDCDD82514DA94D8802DB4A
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80437.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80437.jpgsave_picture_80437.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Gens-Rerecording 11b (svn296) [Английский, Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80438.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80438.jpgsave_picture_80438.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ Gens-Rerecording 11b (svn296) [Английский, Русский]
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80442.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80442.jpgsave_picture_80442.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ Gens-Rerecording 11b (svn296) [Английский, Русский]
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80444.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80444.jpgsave_picture_80444.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ Gens-Rerecording 11b (svn296) [Английский, Русский]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80450.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80450.jpgsave_picture_80450.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Gesaffelstein - Original (2010 -2011) [MP3|320 кб/с]<Techno>
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80453.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80453.jpgsave_picture_80453.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ Double Commander 0.5.3 + Portable x86-x64 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80454.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80454.jpgsave_picture_80454.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ Double Commander является unicode-совместимым приложе�
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80456.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80456.jpgsave_picture_80456.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ magnet:?xt=urn:btih:CFA5878BF1D1CE448C7DCB3681ED94B5CE1F79E0
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80460.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80460.jpgsave_picture_80460.jpg" />
 </div>
 
 

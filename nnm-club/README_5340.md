@@ -6,7 +6,7 @@ RTFX Animation, Ринат Тимеркаев | Основы 2D FX анимац�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165679.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165679.jpgsave_picture_165679.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:52938DECDCD0C2406BB99E7FC91258E52C743E10
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165680.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165680.jpgsave_picture_165680.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:A8602FD26551340DBEABD30453303B72C87DD1BB
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165681.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165681.jpgsave_picture_165681.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:82C12DB22BA2B367DE42A58B30A36C9B3EF40A6B
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165682.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165682.jpgsave_picture_165682.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ PotPlayer 221215 (1.7.21859) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165683.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165683.jpgsave_picture_165683.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:48F484E9C027427EDCC8646807CB975D5C2FB53F
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165684.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165684.jpgsave_picture_165684.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:D5F13F5FB4FAFF3C9F25EBD449106FBDEBDE8FAB
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165685.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165685.jpgsave_picture_165685.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Evernote 8.13.3 Premium [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165686.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165686.jpgsave_picture_165686.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:B81C9282053B1E12FC71755D3DEC320C05AEBFA4
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165687.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165687.jpgsave_picture_165687.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Ghostrunner 2 (2023) [Ru/Multi] (39734.9/dlc) Repack Other s [Brutal Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165688.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165688.jpgsave_picture_165688.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ magnet:?xt=urn:btih:B4AE18A6EDF0D39655A3763803D78DBE527295C2
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165689.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165689.jpgsave_picture_165689.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ magnet:?xt=urn:btih:8AB99EE4C9140F794FA58AA4D0793EA87C33CBBC
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165690.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165690.jpgsave_picture_165690.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Microsoft Visual Studio 2019 Enterprise 16.11.22 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165691.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165691.jpgsave_picture_165691.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Uninstall Tool 3.7.3 Build 5720 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165692.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165692.jpgsave_picture_165692.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ magnet:?xt=urn:btih:821EF232B15F5718C7EC39EDAADF67DCE5F3C95A
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165693.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165693.jpgsave_picture_165693.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ Power-user (for MS Office) Premium 1.6.1165.0 [En]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165694.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165694.jpgsave_picture_165694.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ magnet:?xt=urn:btih:A8ECE620712C8F86DF33FBEEEC4F3B6AAFF88151
 >>Космос
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165695.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165695.jpgsave_picture_165695.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ INMOST (2020) [Ru/Multi] (1.0.4) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165696.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165696.jpgsave_picture_165696.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:98D5E1C69335A52C4ED145CD10140542D20F68C6
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165697.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165697.jpgsave_picture_165697.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ magnet:?xt=urn:btih:A5F99EE1F9C61ED2649F5B0F62C095E18DA89726
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165699.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165699.jpgsave_picture_165699.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:09624117FC4EAD4FE3F112EC74D09FDDD405E51E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165700.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165700.jpgsave_picture_165700.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ magnet:?xt=urn:btih:47283449A715749B1D551EFAB1448CC741771F49
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165701.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165701.jpgsave_picture_165701.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ magnet:?xt=urn:btih:CCF31C718833E208424C0BA0A4B04C428B1D2DB8
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165702.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165702.jpgsave_picture_165702.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ PDF Expert 2.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165703.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165703.jpgsave_picture_165703.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Off the Air (2011-2021) WEBRip [H.264/1080p] (сезон 1-11, серии 1-42 �
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165704.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165704.jpgsave_picture_165704.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Tenorshare UltData - Mac 3.0.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165706.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165706.jpgsave_picture_165706.jpg" />
 </div>
 
 

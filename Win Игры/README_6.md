@@ -6,7 +6,7 @@ Firefighting Simulator: Ignite (2025) [Ru/Multi] (1.0003.28253.87380/dlc) Repack
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1897.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1897.jpgsave_picture_1897.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Betrayer (2014) [Ru/Multi] (1.9.6844.2) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1902.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1902.jpgsave_picture_1902.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Mortal Sin (2023) [Ru/Multi] (1.0) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1919.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1919.jpgsave_picture_1919.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Kingdom Come: Deliverance II (2025) [Ru/Multi] (1.4/dlc) Repack Wanterlude [Gold
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1927.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1927.jpgsave_picture_1927.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Wingspan  / Крылья (2020) [Ru/Multi] (283/dlc) License GOG [Special Editio
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1932.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1932.jpgsave_picture_1932.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Metal Gear Solid Delta: Snake Eater (2025) [Ru/Multi] (1.1.3 Build 19869727/dlc)
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1937.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1937.jpgsave_picture_1937.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ StarVaders (2025) [Ru/Multi] (1.1.1) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1940.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1940.jpgsave_picture_1940.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Mystery Trackers 21: The Shrouded Village / Охотники за тайнами
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2016.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2016.jpgsave_picture_2016.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Knights of the Crusades (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2077.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2077.jpgsave_picture_2077.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Lost Skies (2025) [Ru/Multi] (1.0.79-50871/dlc) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2081.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2081.jpgsave_picture_2081.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ CULTIC (2022) [En] (Build 20024050/dlc) Repack Let'sРlay [Complete Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2087.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2087.jpgsave_picture_2087.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Dying Light: The Beast (2025) [Ru/En] (1.2.0/dlc) Repack Decepticon [Deluxe Edit
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2093.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2093.jpgsave_picture_2093.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Medieval Dynasty (2021) [Ru/Multi] (2.4.1.1/dlc) Repack Let'sРlay [Ultimate Edi
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2097.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2097.jpgsave_picture_2097.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Ravenswatch (2023) [Ru/Multi] (1.03.01.00.26879/dlc) Repack FitGirl [Supporter E
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2099.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2099.jpgsave_picture_2099.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ House Builder (2021) [Ru/Multi] (Build 15-09-2025/dlc) Repack FitGirl [Pack and 
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2100.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2100.jpgsave_picture_2100.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Dying Light: The Beast (2025) [Ru/Multi] (1.2.0/dlc) Repack seleZen [Deluxe Edit
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2102.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2102.jpgsave_picture_2102.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Firefighting Simulator Ignite (2025) [Ru/Multi] (1.0005.28457.87919/dlc) Repack 
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2104.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2104.jpgsave_picture_2104.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Lost Skies (2025) [Ru/Multi] (1.0.79) Repack seleZen
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2107.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2107.jpgsave_picture_2107.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Parkitect (2018) [Ru/Multi] (1.11f3/dlc) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2114.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2114.jpgsave_picture_2114.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Forever Skies (2023) [Ru/Multi] (1.0.3 Build #41195/dlc) Repack Let'sРlay
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2117.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2117.jpgsave_picture_2117.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ WARNO (2024) [Ru/Multi] (166262/dlc) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2118.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2118.jpgsave_picture_2118.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Lost Soul Aside™ (2025) [Ru/Multi] (1.008/dlc) Repack Let'sРlay [Deluxe Editi
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2119.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2119.jpgsave_picture_2119.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Darkest Dungeon II (2) (2023) [Ru/Multi] (2.03.79909/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2120.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2120.jpgsave_picture_2120.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Operation: Polygon Storm (2024) [Multi] (1.5.2.7/dlc) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2123.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2123.jpgsave_picture_2123.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Dying Light: The Beast (2025) [Ru/Multi] (1.2.0/dlc) Repack FitGirl [Deluxe Edit
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2125.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2125.jpgsave_picture_2125.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ El Paso, Elsewhere (2024) [En] (2025.p1) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2235.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2235.jpgsave_picture_2235.jpg" />
 </div>
 
 

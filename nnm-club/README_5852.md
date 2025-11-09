@@ -6,7 +6,7 @@ LinguaTrip, Веня Пак и др. | Интенсив от Intermediate до A
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_183679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183679.jpgsave_picture_183679.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Trance: The Vocal Session 2023 (2022) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183680.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183680.jpgsave_picture_183680.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:B86F8588B22A202738EE32AD51D46235A899A03A
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183682.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183682.jpgsave_picture_183682.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ magnet:?xt=urn:btih:352D39F8B0A0D5C6429D506B8A27A0712B67863D
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_183683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183683.jpgsave_picture_183683.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ magnet:?xt=urn:btih:82B7379FA8BAB77908332611FA3BE63F5A6E9CAB
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_183685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183685.jpgsave_picture_183685.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ magnet:?xt=urn:btih:531553C5895ABA7C1CC23E2F261E0B1C9E5198D3
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183686.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183686.jpgsave_picture_183686.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ magnet:?xt=urn:btih:1E8AB71D4D1B5B6640565A88B8FEBFC4448C7FA4
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183687.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183687.jpgsave_picture_183687.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ magnet:?xt=urn:btih:5E0C38FD46585A67E6157D60E50F59764145F49A
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_183690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183690.jpgsave_picture_183690.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Cobian Reflector 2.5.00 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183691.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183691.jpgsave_picture_183691.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ magnet:?xt=urn:btih:8D92EEEABBD8EE7231F171D99C8BAC0735DE3237
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183694.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183694.jpgsave_picture_183694.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ JetBrains Full Pack 2020.2.3 - 2020.2.4 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_183695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183695.jpgsave_picture_183695.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ Icecream Screen Recorder PRO 7.18 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183696.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183696.jpgsave_picture_183696.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ Udemy, Артем Баданов | Изучение C++ с нуля (2020) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_183698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183698.jpgsave_picture_183698.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ magnet:?xt=urn:btih:6D73FD5E44D39E7DEB0AB53AF6093F90F3E3E644
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183700.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183700.jpgsave_picture_183700.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ magnet:?xt=urn:btih:079298B72D1F1DCC348E5641CCD16681C4DBD245
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183703.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183703.jpgsave_picture_183703.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ magnet:?xt=urn:btih:54C0D34E5EDEF0A572D97F13033071C3FEB303CC
 >>Сверхъестественное / Supernatural
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_183704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183704.jpgsave_picture_183704.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ magnet:?xt=urn:btih:8BA18D101C47116098DE3C7648B0AAB7FB85DD8C
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_183707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183707.jpgsave_picture_183707.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ magnet:?xt=urn:btih:D489FAE5BBFD9E75A00D04222013C6C0D6EE68D9
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183708.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183708.jpgsave_picture_183708.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ f.lux v4.126 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_183711.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_183711.jpgsave_picture_183711.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ magnet:?xt=urn:btih:FB4BEE40F8A3DAC719F401F8F004E2C0DD499E8D
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_183715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183715.jpgsave_picture_183715.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ magnet:?xt=urn:btih:FD4C60988624BC45186D8B42AB120C18C985BC01
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183716.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183716.jpgsave_picture_183716.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Savage - The Hits (2020) [FLAC|Lossless|image + .cue] <Pop, EuroDance>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_183719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183719.jpgsave_picture_183719.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ WonderFox HD Video Converter Factory Pro 26.7 RePack (& Portable) by TryRooM [Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183720.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183720.jpgsave_picture_183720.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ magnet:?xt=urn:btih:AD3743552FCB2FDC9346922F75C1EE5222889BB1
 >>Футбол. Чемпионаты мира
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183721.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183721.jpgsave_picture_183721.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ magnet:?xt=urn:btih:9A253B2F934702B00E694BD81AC3A44D74EE6869
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_183724.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_183724.jpgsave_picture_183724.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ Kush Audio - LG Drive 1.0.0 VST, VST3, AAX (x64) RePack by R2R [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183725.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183725.jpgsave_picture_183725.jpg" />
 </div>
 
 

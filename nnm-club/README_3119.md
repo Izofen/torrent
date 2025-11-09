@@ -6,7 +6,7 @@ Marcus King - Mood Swings (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues, Roc
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100656.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100656.jpgsave_picture_100656.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Ned Evett - Strange Kind Of Freedom (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100657.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100657.jpgsave_picture_100657.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Mesquite Cafe - Raven's Cry (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Ro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100658.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100658.jpgsave_picture_100658.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Mark Bennett Gartman - Crossing of the Roads (2024) [FLAC 24/192|Lossless|WEB-DL
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100659.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100659.jpgsave_picture_100659.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Kripton - Fire on My Strings (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100660.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100660.jpgsave_picture_100660.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Mad Dillon's Deputies - Biting Dynamite (2024) [FLAC 24/48|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100661.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100661.jpgsave_picture_100661.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Mako - Virtual Blues II (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100662.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100662.jpgsave_picture_100662.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Lance and Lea - Boots & Blues (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Countr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100663.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100663.jpgsave_picture_100663.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Mal Waldron & Marion Brown - Much More! (1989) Free Lance [FLAC|Lossless|image +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100664.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100664.jpgsave_picture_100664.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ magnet:?xt=urn:btih:9EAC5058D69E5CA9251721CB7ADC93B1082CB26E
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100665.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100665.jpgsave_picture_100665.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ magnet:?xt=urn:btih:5536893E203D073336BE7E4F5CB348D549AD9550
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100666.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100666.jpgsave_picture_100666.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ magnet:?xt=urn:btih:69EEA2BA7CA3AA1E34204531EF0B683761CCC805
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100667.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100667.jpgsave_picture_100667.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ VA - DANCE CUBE 2024 (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100668.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100668.jpgsave_picture_100668.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ magnet:?xt=urn:btih:C352CD24CDE52AE0A3C94D8DEDFA237F8ABCBB4D
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100669.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100669.jpgsave_picture_100669.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ QOwnNotes 24.12.7 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100670.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100670.jpgsave_picture_100670.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ magnet:?xt=urn:btih:A60F1DD1F9ED563AAAE76D8B93C2D538538E7371
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100671.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100671.jpgsave_picture_100671.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ magnet:?xt=urn:btih:72C971B82BD0E64DF003C24A4FAD2B18FE16A8CD
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100672.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100672.jpgsave_picture_100672.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ magnet:?xt=urn:btih:30F99E47D375F9BF93DFB4667951BD8AB84870BF
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100673.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100673.jpgsave_picture_100673.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ magnet:?xt=urn:btih:059B7730BEA67E30A04713E993FCD198BFE7037A
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100674.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100674.jpgsave_picture_100674.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ The Wind Blowers - Blues for Rainy Days (2024) [FLAC|Lossless|WEB-DL|tracks] <Bl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100675.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100675.jpgsave_picture_100675.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ Rosemary Clooney - Irving Berlin's White Christmas (1954) 2014, Real Gone Music 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100676.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100676.jpgsave_picture_100676.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ Teddy Horangic & Frank Lacy - This Christmas With Night Is Alive (2023) Night Is
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100677.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100677.jpgsave_picture_100677.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ The Mudhounds - The Dirt I’m Used To (2024) [FLAC|Lossless|WEB-DL|tracks] <Blu
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100678.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100678.jpgsave_picture_100678.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ VA - Reason II Rise: Uplift Best Of 2024 (2024) [MP3|320 Kbps] <Trance, Upliftin
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100679.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100679.jpgsave_picture_100679.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Veravey - Blooming Inspiration (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100680.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100680.jpgsave_picture_100680.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ Markus Schulz - Global DJ Broadcast Classics Showcase 20th Edition (2024-12-26) 
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100681.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100681.jpgsave_picture_100681.jpg" />
 </div>
 
 

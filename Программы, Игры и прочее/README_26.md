@@ -6,7 +6,7 @@ Ventusky: Прогноз погоды v38.0 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39490.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39490.jpgsave_picture_39490.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:F573DAA65DA4D99FBE83683038F93E5DF3F387D7
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39511.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39511.jpgsave_picture_39511.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Vanced Tube v5.2.80.113 Mod by TRUMods [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39604.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39604.jpgsave_picture_39604.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Candleman 3.3.2 Mod by youarefinished [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39705.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39705.jpgsave_picture_39705.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Pencil Photo Sketch : Drawing v2.0.95 Mod by PieMods [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39737.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39737.jpgsave_picture_39737.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Photo Mate R3 v3.8.0 b188 Mod by Balatan [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39747.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39747.jpgsave_picture_39747.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ GTA III – NETFLIX 1.83.44255649 Mod by apkvision [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39761.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39761.jpgsave_picture_39761.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ GTA 3 — Definitive Edition 1.83.44255649 Mod by apkvision [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39784.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39784.jpgsave_picture_39784.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ Valiant Hearts: The Great War 1.0.4 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39785.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39785.jpgsave_picture_39785.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ Monument Valley 2 NETFLIX v3.7.120 Mod by apkvision [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39789.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39789.jpgsave_picture_39789.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ AR Ruler App: Линейка Рулетка v2.8.8.1 Mod by srajawwal09 [Ru/Mult
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39798.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39798.jpgsave_picture_39798.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ GTA: Vice City — Definitive Edition v1.83.44255649 Mod by apkvision [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39803.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39803.jpgsave_picture_39803.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Vanced Tube v5.1.83.147 Mod by TRUMods [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39805.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39805.jpgsave_picture_39805.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ RuStore для Android v1.53.0.2 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39811.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39811.jpgsave_picture_39811.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ GTA: Vice City – NETFLIX 1.83.44255649 Mod by Apkvision [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39813.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39813.jpgsave_picture_39813.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ GTA: San Andreas — Definitive Edition 1.86.44544238 Mod by apkvision [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39833.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39833.jpgsave_picture_39833.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ GTA: San Andreas – NETFLIX 1.86.44544238 Mod by Apkvision [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39837.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39837.jpgsave_picture_39837.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ PDF Extra PDF Editor & Scanner v10.17.266453 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39850.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39850.jpgsave_picture_39850.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ TapScanner v3.0.42 Mod by 0x7d [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39856.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39856.jpgsave_picture_39856.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Reface: Face Swap AI Generator v4.25 Mod by Mixroot [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39858.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39858.jpgsave_picture_39858.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ EOBD Facile: OBD 2 авто сканер v3.66.1062 Mod by derrin, NURIK kz [Ru/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39869.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39869.jpgsave_picture_39869.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ World of Goo Remastered 1.0.23082408 Mod by DroidHaven [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39876.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39876.jpgsave_picture_39876.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ Valiant Hearts: Coming Home 1.0.5 Mod by apkvision [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39882.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39882.jpgsave_picture_39882.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Monument Valley NETFLIX 3.7.235 Mod by apkvision [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39883.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39883.jpgsave_picture_39883.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ Background Video Recorder Pro v10.9.9 Mod by srajawwal09 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39898.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39898.jpgsave_picture_39898.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ magnet:?xt=urn:btih:044011AFFB1117D2E768508FD608D309E99E6574
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39901.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39901.jpgsave_picture_39901.jpg" />
 </div>
 
 

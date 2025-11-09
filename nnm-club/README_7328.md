@@ -6,7 +6,7 @@ YT Downloader 9.17.17 [En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250567.jpgsave_picture_250567.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:E67B633B7A587FACFB64B57EAD7C9F2550F6B2E9
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250568.jpgsave_picture_250568.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:AE621716F0F6121E9C424888A7D3A2B8C7F53CC8
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250569.jpgsave_picture_250569.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:07566D2B30891EA218545275375202773C5CEC4F
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250570.jpgsave_picture_250570.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:8AA8429A1EE135AE37BC7B85C1C6EBF4D1FCB2F2
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250571.jpgsave_picture_250571.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ VA - 90s Rewind (Warner Music) (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250572.jpgsave_picture_250572.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:C0F20E005ABFFD0B6D9A5C0E0DBD1DE541B40B9B
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250573.jpgsave_picture_250573.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:1E1749E42AAC972FE255182D69177A9F76DB7B87
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250574.jpgsave_picture_250574.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ Europa Universalis V (5) (2025) [Ru/Multi] (1.0.0/dlc) Scene Tenoke
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250575.jpgsave_picture_250575.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ magnet:?xt=urn:btih:07C26DF26086B0B09DABE927A5132176282480F2
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250576.jpgsave_picture_250576.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ magnet:?xt=urn:btih:5FAE38FAE5700719706429D5E37B92EE687D831B
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250577.jpgsave_picture_250577.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ magnet:?xt=urn:btih:9DBECC0F90ED767104AF1BB5985A80A7F536F06E
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250578.jpgsave_picture_250578.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ Total Commander 11.56 LitePack & PowerPack + Portable 2025.11 by SamLab [Multi/R
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250579.jpgsave_picture_250579.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ magnet:?xt=urn:btih:6A5E951E2953CFAB7C32D3EBD7CB9DDB443DCF3A
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250580.jpgsave_picture_250580.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ VA - #001 ВЕРШИНА БЛЮЗА (2025) [MP3|320 Kbps] <Blues, Blues Rock>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250581.jpgsave_picture_250581.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ magnet:?xt=urn:btih:B33E3774E6D8E92C90A43746C6EA86820DF74190
 >>Отечественные Мультфильмы 21-го века (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250582.jpgsave_picture_250582.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ magnet:?xt=urn:btih:3CCA1569C1EA7FD2D0FC7638125419AF35A5CE82
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250583.jpgsave_picture_250583.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ magnet:?xt=urn:btih:14F3073C4E8333EB7C71EE1C220A0FD19A32AACF
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250584.jpgsave_picture_250584.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ VA - #002 ВЕРШИНА БЛЮЗА (2025) [MP3|320 Kbps] <Blues, Blues Rock>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250585.jpgsave_picture_250585.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Nine Sols (2024) [Ru/Multi] (202511032357.953572b8.0) Repack Necros
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250586.jpgsave_picture_250586.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ VA - 80s Rewind (Warner Music) (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250587.jpgsave_picture_250587.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ magnet:?xt=urn:btih:E07D45672BD6CC73C4D1865E2AC7E142BE80D7BD
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250588.jpgsave_picture_250588.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ magnet:?xt=urn:btih:67B110B2D13B9970C60C05B25C80BCF7D7E19C29
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250589.jpgsave_picture_250589.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ magnet:?xt=urn:btih:3399E04CB5F0E657F8E56254D7E8822E848D6053
 >>А знаете ли вы..
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_250590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_250590.jpgsave_picture_250590.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ magnet:?xt=urn:btih:3399E04CB5F0E657F8E56254D7E8822E848D6053
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250591.jpgsave_picture_250591.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ Affinity Studio 3.0.0.3791 [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250592.jpgsave_picture_250592.jpg" />
 </div>
 
 

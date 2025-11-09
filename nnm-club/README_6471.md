@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204951.jpgsave_picture_204951.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:A63D912C967DFDA0B68A6263686F4FD74110AAE2
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204952.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204952.jpgsave_picture_204952.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ PerigeeCopy 1.7 [Ru/En]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204953.jpgsave_picture_204953.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:F57A41AE45276DDAD111B0FE1E1D615688BF0A1C
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204954.jpgsave_picture_204954.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:5FDA19001DD53FA080F40F8A2799D0F80B97AF9A
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204955.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204955.jpgsave_picture_204955.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:E584A9735251E5EB9CC80F1CE8F7A5A3ACA351E6
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204956.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204956.jpgsave_picture_204956.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Revo Uninstaller Pro 5.0.7 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204957.jpgsave_picture_204957.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:B4609494E993F5C4EC0918800CF3B652A0D0A4C9
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204958.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204958.jpgsave_picture_204958.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:E51A02A03B27F93738681D05ADCA9D0611982804
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204959.jpgsave_picture_204959.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:403FFB6C1BA281D6513FF846646738E79441C656
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204960.jpgsave_picture_204960.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:AEDAF4EC57524F310106C872D6DC3D2C11F0E102
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204961.jpgsave_picture_204961.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ magnet:?xt=urn:btih:91FC9F0C339D63BAA10FA13AEE05546559A8D660
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204962.jpgsave_picture_204962.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Kiwi VPN Proxy: Safer & Faster 43.30.09 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204963.jpgsave_picture_204963.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ magnet:?xt=urn:btih:DCF06172ADF6031AC815652B1375150780DB394B
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204964.jpgsave_picture_204964.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ magnet:?xt=urn:btih:D5C02F4C60A97F925B9D2144B41A628FF812F177
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204965.jpgsave_picture_204965.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ BitComet 2.03 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204966.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204966.jpgsave_picture_204966.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ magnet:?xt=urn:btih:C87136C030D72B5C0CC2657142115E21FA937F82
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204967.jpgsave_picture_204967.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ CamScanner 6.47.6.2308150000 Mod by maxi123444 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204968.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204968.jpgsave_picture_204968.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ Dresden China - Dresden China (1986) 2010 Reissue, Remastered, DWS Records [FLAC
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204969.jpgsave_picture_204969.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ YouTube ReVanced Extended 18.32.39 (RVP v2.188.1) Mod by YT-Advanced + Micro G [
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204970.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204970.jpgsave_picture_204970.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ magnet:?xt=urn:btih:40989461D7D8E3BD66D362D0E3F6425AA4F9FDBA
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204971.jpgsave_picture_204971.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ magnet:?xt=urn:btih:3B203C3FA24E398AA9B0D5593AA5E1F0FECD5080
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204972.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204972.jpgsave_picture_204972.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ magnet:?xt=urn:btih:9ED17A4BD0DF09BB81E894456A0B3FFF96C0F7C8
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204973.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204973.jpgsave_picture_204973.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ magnet:?xt=urn:btih:E9CBDDE7A2B8BFF36E07616A886C5A7162EED6D3
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204974.jpgsave_picture_204974.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Gradient v2.9.70 Mod by KirillCXV [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204975.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204975.jpgsave_picture_204975.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ magnet:?xt=urn:btih:0E8CE45CE96E29F176474774BCC4EEA92F556D53
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204976.jpgsave_picture_204976.jpg" />
 </div>
 
 

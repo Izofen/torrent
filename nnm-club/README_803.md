@@ -6,7 +6,7 @@
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21206.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21206.jpgsave_picture_21206.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ VA - Top Indie Rock Mix Vol. 1 (2025) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21207.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21207.jpgsave_picture_21207.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:322751D979CD2747C70B1A4AA87D20C81BDE2F70
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21208.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21208.jpgsave_picture_21208.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ VA - Todo Rock! 2025 (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21209.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21209.jpgsave_picture_21209.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ VA - April is Rock 2025 (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21210.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21210.jpgsave_picture_21210.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ Vintage Culture - Live @ DNA Art Car, Arena Open Camboriu, Brazil (2025-03-02) [
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21211.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21211.jpgsave_picture_21211.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Nightsteel - Nightsteel (2024) Remastered, 2025, Cosmic Fire Records [FLAC 24/44
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21212.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21212.jpgsave_picture_21212.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ magnet:?xt=urn:btih:160DDDF9A371BE4D58C7AA7B1CC5DEB38A3C645E
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21213.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21213.jpgsave_picture_21213.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ magnet:?xt=urn:btih:7A8A96200B43FCA925C10DB763CF105E48C5E483
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21214.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21214.jpgsave_picture_21214.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ magnet:?xt=urn:btih:987C98A7193AF26FA73A603A4331898DF93E7F7F
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21215.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21215.jpgsave_picture_21215.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ OK Go - And the Adjacent Possible (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21216.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21216.jpgsave_picture_21216.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Chris Connor - Chris Connor (1956) 1991, Atlantic [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21217.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21217.jpgsave_picture_21217.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Slaughter the Giant - Asylum of the Damned (2019) EP [FLAC|Lossless|WEB-DL|track
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21218.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21218.jpgsave_picture_21218.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ magnet:?xt=urn:btih:7A87686CD414316A375E7B6B847439B8E1FD1FA6
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21219.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21219.jpgsave_picture_21219.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ magnet:?xt=urn:btih:E08C632441BE8B94230B32091744556B0815F7BF
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21220.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21220.jpgsave_picture_21220.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ magnet:?xt=urn:btih:302A4CE9333E9BB7B29B738CE05176CC866125D7
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21221.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21221.jpgsave_picture_21221.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ magnet:?xt=urn:btih:08F90B07B73740DFCADF4663D9F906D26FEDEAC8
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21222.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21222.jpgsave_picture_21222.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Tablacus Explorer 25.4.14 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21223.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21223.jpgsave_picture_21223.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ magnet:?xt=urn:btih:F216174040C0A58F231BC3AFEFE5A2BD870470F6
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21224.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21224.jpgsave_picture_21224.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ magnet:?xt=urn:btih:DA4E07D1C09DD90158BC433AB3472F832BA378D6
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21225.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21225.jpgsave_picture_21225.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ Joe Bonamassa - Santiago - The South American Broadcast (2024) 2 x CD [FLAC|Loss
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21226.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21226.jpgsave_picture_21226.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ magnet:?xt=urn:btih:172C8ED8BF715D7C7ED02449973643CCCF23FA5D
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21227.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21227.jpgsave_picture_21227.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ magnet:?xt=urn:btih:6742DC43B6F4932E0845851CA56FBED1CB05B7A9
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21228.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21228.jpgsave_picture_21228.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ Notification Dots v1.2.61 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21229.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21229.jpgsave_picture_21229.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ magnet:?xt=urn:btih:3D1C4519D3F7DE47E0D4993FC3F4DB6531F43E6F
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21230.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21230.jpgsave_picture_21230.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ magnet:?xt=urn:btih:73D6864C741609D838A8D264948F91E84426ED1E
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21231.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21231.jpgsave_picture_21231.jpg" />
 </div>
 
 

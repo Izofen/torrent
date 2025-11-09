@@ -6,7 +6,7 @@ Aiseesoft Mac Screen Recorder 2.2.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207428.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207428.jpgsave_picture_207428.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Chrono Plus - Time Tracker 1.7 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207431.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207431.jpgsave_picture_207431.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Bitter Velvet - Unleashed Fears (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207432.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207432.jpgsave_picture_207432.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:82D46BB0F0DD1D3ECB0D1DD6D41C6487FC6F6246
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207437.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207437.jpgsave_picture_207437.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Essential Presets Bundle for Luminar Neo Mac 1.0.2 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207440.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207440.jpgsave_picture_207440.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ WinTools.net Premium / Professional / Classic 23.8.1 RePack (& Portable) by Doda
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207441.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207441.jpgsave_picture_207441.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ SplitCam 10.7.16 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207444.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207444.jpgsave_picture_207444.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Topaz Video AI 3.3.8 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207445.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207445.jpgsave_picture_207445.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ LDPlayer 9.0.55 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207447.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207447.jpgsave_picture_207447.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ NetSpot PRO – Wi-Fi Reporte‪r‬ for Mac 2.16.1067  [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207449.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207449.jpgsave_picture_207449.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ DesktopDigitalClock 4.91 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207450.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207450.jpgsave_picture_207450.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:96ED005926923D0A593829DE10D4EB4AB37A8BF2
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207452.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207452.jpgsave_picture_207452.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ magnet:?xt=urn:btih:1A0CF07C5C9A1C1C4AFC0B923782D564AB12D0AE
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207456.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207456.jpgsave_picture_207456.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ magnet:?xt=urn:btih:458D7017488499129255EBCD416B01A322F62CE3
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207457.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207457.jpgsave_picture_207457.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ magnet:?xt=urn:btih:D8FB08BB6BCFE5DCEAD71503CC1E3D7483A971A5
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207459.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207459.jpgsave_picture_207459.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ SupRemo 4.10.2.2085 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207461.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207461.jpgsave_picture_207461.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ magnet:?xt=urn:btih:13673A23710AA699299C036353A8C8F68E9DAD29
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207463.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207463.jpgsave_picture_207463.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ magnet:?xt=urn:btih:0C43BF47D32A942900260A5428645C92757789B1
 >>Религия (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207464.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207464.jpgsave_picture_207464.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ magnet:?xt=urn:btih:E0B92091CF25F5C54E22090CF51EF648A66A5016
 >>Флот
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207466.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207466.jpgsave_picture_207466.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Uma Musume: Pretty Derby | Девушки-лошадки: Милое дерби 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207468.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207468.jpgsave_picture_207468.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ magnet:?xt=urn:btih:4A4754A601006FDDC2AB1E5C1857B86E304EE15F
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207470.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207470.jpgsave_picture_207470.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:A39A548419EDA6EC0A232515472D71C8B028CE99
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207472.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207472.jpgsave_picture_207472.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ magnet:?xt=urn:btih:254A71FBB530DDB0C826B1A4C108802F3B087D31
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207475.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207475.jpgsave_picture_207475.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ magnet:?xt=urn:btih:F71FFE804324CE49BFB0073ECB061F30C53B76B5
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207476.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207476.jpgsave_picture_207476.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ magnet:?xt=urn:btih:0611E6E45A3AA61057F5A9F9E1556DF7644AA355
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207478.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207478.jpgsave_picture_207478.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ App Builder 2023.39 (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207480.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207480.jpgsave_picture_207480.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Harax - Theia (2012) [FLAC|Lossless]<Dub, Downtempo, Ambient, Psychill>
 >>Psybient, Psychill, Psydub (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90628.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90628.jpgsave_picture_90628.jpg" />
 </div>
 
 
@@ -37,7 +37,7 @@ Johann Sebastian Bach – Fluten Sonaten BWV 1020, 1030-32, 1013, Nicolet & Rich
 >>Камерная (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90629.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90629.jpgsave_picture_90629.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ magnet:?xt=urn:btih:C9B4730623B8E2A99BACFA7D70903811A4B3824C
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90631.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90631.jpgsave_picture_90631.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ magnet:?xt=urn:btih:CB57C8256D010B4FDD63FBC952F6690D9D41884B
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90632.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90632.jpgsave_picture_90632.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ magnet:?xt=urn:btih:A38D62F76D23519FB331451F11598D448578688C
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90633.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90633.jpgsave_picture_90633.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ magnet:?xt=urn:btih:A38D62F76D23519FB331451F11598D448578688C
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90634.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90634.jpgsave_picture_90634.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ magnet:?xt=urn:btih:A38D62F76D23519FB331451F11598D448578688C
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90637.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90637.jpgsave_picture_90637.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ magnet:?xt=urn:btih:5234BF7E80A45C95FC1716CEAE6ECB8AF5DCBF17
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90639.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90639.jpgsave_picture_90639.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Apex - Omega Point (2012) EP [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90642.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90642.jpgsave_picture_90642.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Apex - Omega Point (2012) EP [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90643.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90643.jpgsave_picture_90643.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Tor Even Mathisen - Arctic Motion (Релакс) (2012) HDRip [H.264/720p]
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90644.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90644.jpgsave_picture_90644.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ magnet:?xt=urn:btih:2AB4A6CE8B4EE9FE5A5CA7E521FC687CD7CA88F2
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90645.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90645.jpgsave_picture_90645.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ magnet:?xt=urn:btih:2AB4A6CE8B4EE9FE5A5CA7E521FC687CD7CA88F2
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90648.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90648.jpgsave_picture_90648.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ VA - Хит FM Top Music (2012) [MP3|256 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90649.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90649.jpgsave_picture_90649.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ VA - 77 детских песен на бис (2003) [MP3|320 kbps]<Детска
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90652.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90652.jpgsave_picture_90652.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ VA - Инструментальная музыка (2012) vol. № 20 [MP3|320 �
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90654.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90654.jpgsave_picture_90654.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ magnet:?xt=urn:btih:AACA435AF88B743695AAA4195580EF44DC326B17
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90655.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90655.jpgsave_picture_90655.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ magnet:?xt=urn:btih:AACA435AF88B743695AAA4195580EF44DC326B17
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90660.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90660.jpgsave_picture_90660.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ magnet:?xt=urn:btih:76B128269AB8586818621EE17E1F3811D9533AF9
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90661.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90661.jpgsave_picture_90661.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ magnet:?xt=urn:btih:76B128269AB8586818621EE17E1F3811D9533AF9
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90662.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90662.jpgsave_picture_90662.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ East 17 - Dark Light (2012) [MP3|320 кб/с]<Pop, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90663.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90663.jpgsave_picture_90663.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ magnet:?xt=urn:btih:9C90C77BD9B6781A9E05C43F45896A3F2BC821D7
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90670.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90670.jpgsave_picture_90670.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ magnet:?xt=urn:btih:01A73AF1E6E4B63BF27C3D65D5950004183FDE14
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90671.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90671.jpgsave_picture_90671.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ VA - Инструментальная музыка (2012) vol. № 18 [MP3|320 �
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90674.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90674.jpgsave_picture_90674.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ magnet:?xt=urn:btih:7E5288B7B0FF39ACC4784210430FDCBF26D8BE1B
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90675.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90675.jpgsave_picture_90675.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ magnet:?xt=urn:btih:7E5288B7B0FF39ACC4784210430FDCBF26D8BE1B
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90679.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90679.jpgsave_picture_90679.jpg" />
 </div>
 
 

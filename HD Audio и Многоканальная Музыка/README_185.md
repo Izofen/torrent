@@ -6,7 +6,7 @@ The Hu - Studio Albums (2 releases) (2020-2022) hand made [restored, declipped] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128807.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128807.jpgsave_picture_128807.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Bloodywood - Studio Albums (2 releases) (2022-2025) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128870.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128870.jpgsave_picture_128870.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ Ihsahn - Studio Albums (11 releases) (2006-2024) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128871.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128871.jpgsave_picture_128871.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ VA - Балкантон – Танцова Музика (1965) [FLAC|Lossless|im
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128872.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128872.jpgsave_picture_128872.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Creedence Clearwater Revival - Gold (1972) 1975 [DTS 4.1 CD-Audio|44.1/16|image+
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129013.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129013.jpgsave_picture_129013.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Suburban Tribe - Дискография (10 Albums) (1994 - 2011) hand made [res
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129209.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129209.jpgsave_picture_129209.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Chamelion - Legends & Lores (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Power 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129721.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129721.jpgsave_picture_129721.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ The Beatles - Abbey Road (1969) remix 2019 remaster [DTS-ES Discrete 6.1 CD-Audi
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129751.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129751.jpgsave_picture_129751.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Everdawn - Venera (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Symphonic Metal,
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129831.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129831.jpgsave_picture_129831.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Cher - Cher's Greatest Hits 1965-1992. Volume 1 (1993) Compilation, Unofficial R
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129862.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129862.jpgsave_picture_129862.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Kylie Minogue - Extension (2023) The Extended Mixes [FLAC 24/44.1|Lossless|WEB-D
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129887.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129887.jpgsave_picture_129887.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Devin Townsend - Empath (2019) 2020 [DTS 5.1 CD-Audio|44.1/16|image+.cue|BD-Audi
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130132.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130132.jpgsave_picture_130132.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:7DCB2DF173AA2E6C2404A0686CBFEB2BB4B1117E
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130690.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130690.jpgsave_picture_130690.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ The Killers - Rebel Diamonds (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Alterna
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131078.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131078.jpgsave_picture_131078.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Neil Young - Before and After (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Classi
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131091.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131091.jpgsave_picture_131091.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Fifth Note - Here We Are (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic H
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131161.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131161.jpgsave_picture_131161.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Ayreon - Into the Electric Castle (A Space Opera) (1998) [FLAC|24/192|image + .c
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131165.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131165.jpgsave_picture_131165.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Arjen Anthony Lucassen - Lost in the New Real (2012) [FLAC|24/96|tracks|Vinyl-Ri
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131167.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131167.jpgsave_picture_131167.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Cassidy Paris - New Sensation (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131177.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131177.jpgsave_picture_131177.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Ayreon - Universal Migrator Part 1 - The Dream Sequencer (2000) [FLAC|24/192|ima
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131186.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131186.jpgsave_picture_131186.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ The Chronicles of Father Robin - The Songs & Tales of Airoea - Book II (2023) [F
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131188.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131188.jpgsave_picture_131188.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Atreyu - The Beautiful Dark of Life (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131190.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131190.jpgsave_picture_131190.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ The London Suede - Autofiction (2022) Expanded, 2023, BMG Rights Management (UK)
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131195.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131195.jpgsave_picture_131195.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Porcupine Tree - Closure / Continuation.Live (2023) [FLAC 24/96|Lossless|WEB-DL|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131499.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131499.jpgsave_picture_131499.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Pyramaze - Studio Albums (7 releases) (2004-2023) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131508.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131508.jpgsave_picture_131508.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Bryan Ferry - Boys And Girls (1985) /2005 Remaster/ [DST 2.0, 5.1 1bit/2822,4kHz
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132401.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132401.jpgsave_picture_132401.jpg" />
 </div>
 
 

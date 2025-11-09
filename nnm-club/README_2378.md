@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62195.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62195.jpgsave_picture_62195.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62196.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62196.jpgsave_picture_62196.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:9C9BFA0DE103A2BF33F75319E868B6D4D76E555C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62197.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62197.jpgsave_picture_62197.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:C4A69C281F8AC6816106BBF93A8D9B58886B5223
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62198.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62198.jpgsave_picture_62198.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:2384391CE61D88063F36727ACAE8F4D53F47D873
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62199.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62199.jpgsave_picture_62199.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:ACB8457D8E9042CF718D74BB3C71BF00A4B9516D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62200.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62200.jpgsave_picture_62200.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:8842DCD3ECFA959BC46C7348C4512B57F883B82F
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62201.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62201.jpgsave_picture_62201.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Davinci Resolve Studio 18.6.6 [Multi/Rus]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62202.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62202.jpgsave_picture_62202.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:17A0F158A87F7FA2C31EFFE6F0F898182F3A868D
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62203.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62203.jpgsave_picture_62203.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ magnet:?xt=urn:btih:17A0F158A87F7FA2C31EFFE6F0F898182F3A868D
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62204.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62204.jpgsave_picture_62204.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ magnet:?xt=urn:btih:10AB03A253A1E69568940FC7CCD19ED4C68B12B8
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62205.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62205.jpgsave_picture_62205.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Alone in the Dark (2024) [Ru/Multi] (1.02/dlc) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62206.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62206.jpgsave_picture_62206.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ magnet:?xt=urn:btih:9E888E4C7767B01133AE6E5ADDA562E5D2E6920A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62207.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62207.jpgsave_picture_62207.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ magnet:?xt=urn:btih:B0ABE7E1C252F5C4E7100925924D9326E729F2B7
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62208.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62208.jpgsave_picture_62208.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ magnet:?xt=urn:btih:323FAE8CF5D270506A3FBD2DF89AB7A18DB597A0
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62209.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62209.jpgsave_picture_62209.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ Blackmagic Design DaVinci Resolve Studio 18.6.6 Build 7 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62210.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62210.jpgsave_picture_62210.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ magnet:?xt=urn:btih:5EAA88EF3061F105315E2BD423D34CD7D57D4861
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62211.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62211.jpgsave_picture_62211.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ magnet:?xt=urn:btih:177E865A0CD8AB0437AEDD35986A78722B890D58
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62212.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62212.jpgsave_picture_62212.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ magnet:?xt=urn:btih:154CCE11DA9F1D46A3CF4D36CC7E64F7D5CAA4D3
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62213.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62213.jpgsave_picture_62213.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ JetBrains IntelliJ IDEA Ultimate for Mac 2023.3.5 Intel/ARM [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62214.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62214.jpgsave_picture_62214.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Yello - Baby (1991) 1992 [FLAC 24/192|Lossless|tracks] <Synth-Pop>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62215.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62215.jpgsave_picture_62215.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Joplin 2.14.20 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62216.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62216.jpgsave_picture_62216.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ O&O Defrag Professional 28.0 Build 10005 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62217.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62217.jpgsave_picture_62217.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ VA - Bravo Hits 13 (1996) 2CD, Compilation  [FLAC|Lossless|WEB-DL|tracks] <Elect
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62218.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62218.jpgsave_picture_62218.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ JetBrains GoLand for Mac 2023.3.5 Intel  [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62219.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62219.jpgsave_picture_62219.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ magnet:?xt=urn:btih:08648195A5F814A9550BB4A58545673BF9B02952
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62220.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62220.jpgsave_picture_62220.jpg" />
 </div>
 
 

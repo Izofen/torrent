@@ -6,7 +6,7 @@
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23349.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23349.jpgsave_picture_23349.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:3610FA7BDBC1E7D50752692905977C61E1C2D653
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23350.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23350.jpgsave_picture_23350.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:29A10EE7D72A7AEC1239F9DC74A127F4A4ABE1AF
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23351.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23351.jpgsave_picture_23351.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ eWeather HD - weather app v9.0.2 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23352.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23352.jpgsave_picture_23352.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:D290C29A91B046FCBE62D8D28780A4B1A636FBF9
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23353.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23353.jpgsave_picture_23353.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Telegram Desktop 5.13.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23354.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23354.jpgsave_picture_23354.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ Device Doctor Simulator 2024 (2024) [Ru/Multi] (1.01) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23355.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23355.jpgsave_picture_23355.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ Cities: Skylines (2015) [Ru/Multi] (1.19.2-f3/dlc) Repack Wanterlude
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23356.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23356.jpgsave_picture_23356.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:CE6747C5903D307086D8CF967186D6D8AE015D98
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23357.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23357.jpgsave_picture_23357.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ By Click Downloader Premium 2.4.18 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23358.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23358.jpgsave_picture_23358.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Opera One 117.0.5408.163 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23359.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23359.jpgsave_picture_23359.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ magnet:?xt=urn:btih:0644BDAC75FEA48B345C6C01E6FD59607C3FD35C
 >>Историческая проза, Мифы и Легенды
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23360.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23360.jpgsave_picture_23360.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Sousei no Aquarion: Myth of Emotions | Aquarion: Myth of Emotions | Аквари
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23361.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23361.jpgsave_picture_23361.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Empires of the Undergrowth (2017) [Multi] (1.101071/dlc) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23362.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23362.jpgsave_picture_23362.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ magnet:?xt=urn:btih:ABDC5117B26BC9C8888A9DEE9EC8A7B2999AACFF
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23363.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23363.jpgsave_picture_23363.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Ao no Hako | Blue Box | Голубая шкатулка [2024, TV, 25 эп.] WEB
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23364.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23364.jpgsave_picture_23364.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ magnet:?xt=urn:btih:8D3E7CACDC8BB6926D0E32C0F8CB1D9F1486E675
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23365.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23365.jpgsave_picture_23365.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ Google Chrome 134.0.6998.178 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23366.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23366.jpgsave_picture_23366.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ Far Cry 3: Blood Dragon (2013) [Ru] (1.02) Repack seleZen
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23367.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23367.jpgsave_picture_23367.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ magnet:?xt=urn:btih:CC420CA51DDDDFB0736ACF7A25342AA3214CDD26
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23368.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23368.jpgsave_picture_23368.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Internet Download Manager 6.42 Build 31 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23369.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23369.jpgsave_picture_23369.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ magnet:?xt=urn:btih:DF135BD07C1B9DAABBCD3A50879B9B8861CFFAEC
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23370.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23370.jpgsave_picture_23370.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ magnet:?xt=urn:btih:1062E40402BCB02BC95B2E75BB8B824FEB555BB9
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23371.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23371.jpgsave_picture_23371.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Dragon Ball Z: Kakarot (2020) [Ru/Multi] (2.12/dlc) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23372.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23372.jpgsave_picture_23372.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Brave Browser 1.76.82 Portable by Cento8 [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23373.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23373.jpgsave_picture_23373.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ magnet:?xt=urn:btih:D6E84667D98EC851DCBF8EBD6D56EC6ED529EBF7
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23374.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23374.jpgsave_picture_23374.jpg" />
 </div>
 
 

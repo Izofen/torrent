@@ -6,7 +6,7 @@ FlashPeak SlimBoat 1.1.15 + Portable by Noby.uCoz.Ru [Мульти\Рус.]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145274.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145274.jpgsave_picture_145274.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ SlimBoat - веб-браузер на легком движке WebKit. Рабо
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145275.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145275.jpgsave_picture_145275.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Vision Mastermixers - Seventies Mixes (1995) [FLAC|Lossless|image + .cue] <Pop, 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145276.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145276.jpgsave_picture_145276.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ Need For Speed: The Run (2011) [En/Ru] (1.1) Repack R.G. Games [Limited Edition]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145277.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145277.jpgsave_picture_145277.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ Day R Premium v1.677 [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145278.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145278.jpgsave_picture_145278.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ VA - Масть крестовая от радио Шансон. Часть №7
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145279.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145279.jpgsave_picture_145279.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ VA - Trance Collection Vol.55 (2016) [MP3|96-320 Kbps] <Trance, Progressive Tran
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145280.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145280.jpgsave_picture_145280.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ magnet:?xt=urn:btih:6AD630E8AF9D2CE922F274CD0B998790EFDAA34C
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145281.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145281.jpgsave_picture_145281.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ Downie 3 v3.9.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145283.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145283.jpgsave_picture_145283.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ Dire Straits - Live 1978-1992 (2023) Box Set, Compilation, Reissue, Remastered, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145284.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145284.jpgsave_picture_145284.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ Wardruna - Skald (2018) [FLAC|Lossless|tracks + .cue] <Folk Ambient, Dark Ambien
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145285.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145285.jpgsave_picture_145285.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ magnet:?xt=urn:btih:F68E488CD0EAA05C9F4634FD1F7E313D2F08E4EC
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145286.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145286.jpgsave_picture_145286.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ AOMEI Backupper Technician Plus 6.3.0 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145288.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145288.jpgsave_picture_145288.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ magnet:?xt=urn:btih:C3EF9A1CD45D15D3C9265F1920B3DDA4A78B5AA9
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145289.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145289.jpgsave_picture_145289.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ Obsidian Kingdom - Mantiis (2012) [MP3|320 Kbps] <Experimental, Extreme Progress
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145290.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145290.jpgsave_picture_145290.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ Kalacheva School, Анастасия Ермакова | Между светом 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145291.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145291.jpgsave_picture_145291.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ FileZilla Server 1.2.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145293.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145293.jpgsave_picture_145293.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Crunkz - Best Of EDM 2019 Rewind Mix 2019-12-20 [MP3|320 Kbps] <Electro House, P
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145294.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145294.jpgsave_picture_145294.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ magnet:?xt=urn:btih:89F00B078528CE7A4CD76BE9460370671F47F071
 >>Ноты и обучение музыке
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145297.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145297.jpgsave_picture_145297.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ magnet:?xt=urn:btih:B39D5AF93672AD40ED4043577340F4213C971B46
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145299.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145299.jpgsave_picture_145299.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ VA - Best of Perplexity 2016  [MP3|320 Kbps] <House, Tech House, Deep House, Ele
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145300.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145300.jpgsave_picture_145300.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ magnet:?xt=urn:btih:9371B8D9D952FFE47D856D6E6B1326CD3EBEC652
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145301.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145301.jpgsave_picture_145301.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ magnet:?xt=urn:btih:75350D2D55B1D1E7EA30BFF737B246CCE6314302
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145302.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145302.jpgsave_picture_145302.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ CyberLink PowerDirector Ultimate 22.0.2313.0 (x64) Portable by 7997 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145303.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145303.jpgsave_picture_145303.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ magnet:?xt=urn:btih:9CC694EBCF17001345E8A1912F2EEBFC0699252F
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145304.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145304.jpgsave_picture_145304.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ magnet:?xt=urn:btih:FA6945D57AA5B5FAA02F3B77E139C995856EE1AD
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145305.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145305.jpgsave_picture_145305.jpg" />
 </div>
 
 

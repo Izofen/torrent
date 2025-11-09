@@ -6,7 +6,7 @@ Plus Messenger (Telegram+)  v12.1.1.1 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252293.jpgsave_picture_252293.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ MotoGP. Этап 21 из 22. Гран-при Португалии. Спринт 
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252294.jpgsave_picture_252294.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ VA - Redux Selection, Vol. 11 / 2025 (2025) [MP3|320 Kbps] <Trance, Uplifting Tr
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252295.jpgsave_picture_252295.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ WPS Office + PDF v18.22 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252296.jpgsave_picture_252296.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:6610F916375D73409828EB7F005EB812FBA82044
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252297.jpgsave_picture_252297.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Words of Wonders: Игра в слова v5.3.5 Mod by vadj [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252298.jpgsave_picture_252298.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Photo Studio PRO v2.8.7.4631 Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252299.jpgsave_picture_252299.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Background Video Recorder Pro v13.9.77 Mod by NURIK kz [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252300.jpgsave_picture_252300.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:FBF21113163878C6A10EDDCBAF6D42C185C96797
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252301.jpgsave_picture_252301.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:8553F0A54819FA5E97B9F46594C483DF0A9DEF62
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252302.jpgsave_picture_252302.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:F94394AA925902F0955B398BAAD1238477CB73ED
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252303.jpgsave_picture_252303.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:3009E61667BD64B1EAB705742CAA09651190E6F2
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252304.jpgsave_picture_252304.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:4007812E753FA72DB2C6C10E10549124CBC4F057
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252305.jpgsave_picture_252305.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ magnet:?xt=urn:btih:312AA8E5C388BC148D4F03E3E1B8EFE856947F0A
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252306.jpgsave_picture_252306.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ magnet:?xt=urn:btih:191A53924D3F1FF50BB61A8D06E30675087DE434
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252307.jpgsave_picture_252307.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ magnet:?xt=urn:btih:38FBC2C06B3C66A59E40F1FE4544DE98B5294E4C
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252308.jpgsave_picture_252308.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ magnet:?xt=urn:btih:DD92B4B02015C8058E28F453F103B0A87EF0D6A4
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252309.jpgsave_picture_252309.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ magnet:?xt=urn:btih:FF8F558A02F16ABE73CF16EDCCCAB8D9A36D1118
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252310.jpgsave_picture_252310.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ magnet:?xt=urn:btih:A5CF9F5A66B804474D3CD677BAC8DA475B424E3C
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252311.jpgsave_picture_252311.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ magnet:?xt=urn:btih:805F8DFDCF43EE103F80587CA9FAC2BAAF7EDDF8
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252312.jpgsave_picture_252312.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ YT Downloader 9.18.1 [En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252313.jpgsave_picture_252313.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ The Cranberries - MTV Unplugged (Live MTV Unplugged) (2025) [FLAC 24/96|Lossless
 >>Alternative, Punk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252314.jpgsave_picture_252314.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ magnet:?xt=urn:btih:F1912514B52172E909B45A1FF3EC5712198D902C
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252315.jpgsave_picture_252315.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ magnet:?xt=urn:btih:558289F04B73E0CBFED47BE1EBC2DA2648DDE4DE
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252316.jpgsave_picture_252316.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Complete XBLA Games [Xbox 360] [Freeboot/Jtag] [Rus/Eng] (2005-2012)
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252317.jpgsave_picture_252317.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ magnet:?xt=urn:btih:7A779CDEC54845DEE7CD7FD1E85AE77A73430321
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252318.jpgsave_picture_252318.jpg" />
 </div>
 
 

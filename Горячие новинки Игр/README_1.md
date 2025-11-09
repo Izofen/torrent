@@ -6,7 +6,7 @@ Greedland (2025) [Ru/Multi] (1.0.02) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1703.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1703.jpgsave_picture_1703.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ NODE: The Last Favor of the Antarii / NODE: последняя услуга Ан
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1704.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1704.jpgsave_picture_1704.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Dead Reset (2025) [Ru/Multi] (1.0.2) Repack Other s
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1709.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1709.jpgsave_picture_1709.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Bad Cheese (2025) [Ru/Multi] (1.00.035) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1724.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1724.jpgsave_picture_1724.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Firefighting Simulator: Ignite (2025) [Ru/Multi] (1.0003.28253.87380/dlc) Repack
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1897.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1897.jpgsave_picture_1897.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Mortal Sin (2023) [Ru/Multi] (1.0) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1919.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1919.jpgsave_picture_1919.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Knights of the Crusades (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2077.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2077.jpgsave_picture_2077.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Lost Skies (2025) [Ru/Multi] (1.0.79-50871/dlc) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2081.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2081.jpgsave_picture_2081.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Dying Light: The Beast (2025) [Ru/En] (1.2.0/dlc) Repack Decepticon [Deluxe Edit
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2093.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2093.jpgsave_picture_2093.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Dying Light: The Beast (2025) [Ru/Multi] (1.2.0/dlc) Repack seleZen [Deluxe Edit
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2102.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2102.jpgsave_picture_2102.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Firefighting Simulator Ignite (2025) [Ru/Multi] (1.0005.28457.87919/dlc) Repack 
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2104.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2104.jpgsave_picture_2104.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Lost Skies (2025) [Ru/Multi] (1.0.79) Repack seleZen
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2107.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2107.jpgsave_picture_2107.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Dying Light: The Beast (2025) [Ru/Multi] (1.2.0/dlc) Repack FitGirl [Deluxe Edit
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2125.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2125.jpgsave_picture_2125.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Formula Legends (2025) [Multi] (1.0) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2243.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2243.jpgsave_picture_2243.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ NODE: The Last Favor of the Antarii (2025) [Ru/Multi] (1.0.7) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2246.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2246.jpgsave_picture_2246.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Shape of Dreams (2025) [Ru/Multi] (r.1.0.6.2_s) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2250.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2250.jpgsave_picture_2250.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Ammo and Oxygen (2025) [Ru/Multi] (1.2) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2263.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2263.jpgsave_picture_2263.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Jotunnslayer Hordes of Hel (2025) [Ru/Multi] (1.0.2.88095/dlc) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2279.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2279.jpgsave_picture_2279.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Jotunnslayer: Hordes of Hel (2025) [Ru/Multi] (1.0.0.87582) Repack FitGirl [Coll
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2398.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2398.jpgsave_picture_2398.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Cronos: The New Dawn (2025) [Ru/Multi] (20250908_2250-323631/dlc) Repack Other s
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2404.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2404.jpgsave_picture_2404.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ JETRUNNER (2025) [Ru/Multi] (1.0.4/dlc) Repack Let'sРlay [Founders Edition]
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2417.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2417.jpgsave_picture_2417.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Warhammer 40,000: Dawn of War (2025) [Ru/Multi] (2.2.1.1) Repack Let'sРlay [Def
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2436.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2436.jpgsave_picture_2436.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ JETRUNNER (2025) [Ru/Multi] (1.0.1-dragon-0694/dlc) Repack FitGirl [Founders Edi
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2500.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2500.jpgsave_picture_2500.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Star Fire Eternal Cycle (2025) [Ru/Multi] (1.26.325) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2522.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2522.jpgsave_picture_2522.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Beyond Sunset (2023) [En] (1.0) License GOG
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2569.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2569.jpgsave_picture_2569.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Tokyo Underground Killer (2025) [Ru/Multi] (1.0.3) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2676.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2676.jpgsave_picture_2676.jpg" />
 </div>
 
 

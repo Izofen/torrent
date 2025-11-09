@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204504.jpgsave_picture_204504.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:86CB4AD4E9D69CE9EE16EE3A11940726828E49CA
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204505.jpgsave_picture_204505.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:9F54DFA2001FC31082CF34799A459ACC246E4D12
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204506.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204506.jpgsave_picture_204506.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:62B660DD9955B8FE3FAFCE104D50302739D07700
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204507.jpgsave_picture_204507.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:0955DE77BC8AB7812E2DC03E1632FDAE8D8A06BA
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204508.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204508.jpgsave_picture_204508.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:6DA8B1D21DD0A69FC0935717844C714281AC5D88
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204509.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204509.jpgsave_picture_204509.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:E2C50EC797F17FF2EFD1DAD862355C4F1BBC358F
 >>Отечественные Мультфильмы 21-го века (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204510.jpgsave_picture_204510.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:D0365032D77D10BE22954776BDEEF8AE73AAD7E2
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204511.jpgsave_picture_204511.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ Sandboxie plus 1.11.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204512.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204512.jpgsave_picture_204512.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ Udemy, iwayQ Technology | Project in DevOps: Jenkins CI/CD for Kubernetes Deploy
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204513.jpgsave_picture_204513.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ magnet:?xt=urn:btih:28B8854AB06A28E983DF0483921601BF9AB6C896
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204514.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204514.jpgsave_picture_204514.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ magnet:?xt=urn:btih:3C67A507070BC07B83BEAF8D2E830C6B4C3437D1
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204515.jpgsave_picture_204515.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ magnet:?xt=urn:btih:9D98B603EF171DDF1AFABC124CE4FBC09F7AC0F9
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204516.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204516.jpgsave_picture_204516.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ magnet:?xt=urn:btih:9E9012FF98A9F5FB3A1EEE65BA02FEBEE007CBE3
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204517.jpgsave_picture_204517.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ magnet:?xt=urn:btih:D17ED2A7C8EDA2942E2EC74B6737ADE3DC0E5C46
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204518.jpgsave_picture_204518.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ AOMEI Partition Assistant Technician Edition 9.13.1 RePack (& Portable) by elchu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204519.jpgsave_picture_204519.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ DefenderUI 1.10 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204520.jpgsave_picture_204520.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ ardanlabs.com, Miki Tebeka | Practical Go Foundations (2022) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204521.jpgsave_picture_204521.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ magnet:?xt=urn:btih:91DB653AEAE59000FE0E053FE8534DF31AF33BA6
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204522.jpgsave_picture_204522.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ HiPER Calc Pro (Scientific Calculator) 10.3.1 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204523.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204523.jpgsave_picture_204523.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Windows 10 (v22h2) x64 PRO by KulHunter v3 (esd) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204524.jpgsave_picture_204524.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Wireshark 4.0.8 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204525.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204525.jpgsave_picture_204525.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ LDPlayer 9.0.57 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204526.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204526.jpgsave_picture_204526.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ VSDC Video Editor Pro 7.2.2.442 [Multi/Ru] (акция Comss)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204527.jpgsave_picture_204527.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ Frontendmasters, Steve Kinney | React Performance (2022) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204528.jpgsave_picture_204528.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ VA - Music News vol.293 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204529.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204529.jpgsave_picture_204529.jpg" />
 </div>
 
 

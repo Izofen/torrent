@@ -6,7 +6,7 @@ Multi Commander Full Edition 15.0 Build 3072 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28170.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28170.jpgsave_picture_28170.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Techno Banter (2025) [Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28171.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28171.jpgsave_picture_28171.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Suicide Squad: Kill the Justice League (2024) [Multi] (1.0.6.0/dlc) Repack DjDI 
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28172.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28172.jpgsave_picture_28172.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:D1DAFB3C2D29D61E7973A19F3F655F95FDE825DD
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28173.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28173.jpgsave_picture_28173.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:17E4EDFF592103E795375FCEB7A5247D3E97BE90
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28174.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28174.jpgsave_picture_28174.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ K-Lite Codec Pack 18.8.0 Mega/Full/Standard/Basic [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28175.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28175.jpgsave_picture_28175.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ iTubeGo YouTube Downloader 9.4.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28176.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28176.jpgsave_picture_28176.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:0440F1E17C45C1FCEF40E0B214D3B1F70AE50131
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28177.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28177.jpgsave_picture_28177.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ DISMTools 0.6.0.2512 (Update 1) + Portable [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28178.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28178.jpgsave_picture_28178.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Hero of the Kingdom: The Lost Tales 2 / Герой Королевства: Ут�
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28179.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28179.jpgsave_picture_28179.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Hero of the Kingdom: The Lost Tales 1 / Герой Королевства: Ут�
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28180.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28180.jpgsave_picture_28180.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Hard Disk Sentinel PRO 6.20.7 Build 13391 Beta RePack (& Portable) by elchupacab
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28181.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28181.jpgsave_picture_28181.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Hero of the Kingdom III / Герой Королевства III (2018) [Ru/Multi
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28182.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28182.jpgsave_picture_28182.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ magnet:?xt=urn:btih:05897AD768CEA83A8DA88787CABBB93AE37B00FE
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28183.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28183.jpgsave_picture_28183.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Sword of the Necromancer: Resurrection (2025) [Multi] (1.0.3) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28184.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28184.jpgsave_picture_28184.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ magnet:?xt=urn:btih:5297F8AA90D946071E0B58551F5B6EACB68A8DEB
 >>Латиноамериканские сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28185.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28185.jpgsave_picture_28185.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ magnet:?xt=urn:btih:BCA5DB86A1537A402DA9526C3F22EB1F973FB3C3
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28186.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28186.jpgsave_picture_28186.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ magnet:?xt=urn:btih:20EC76CFDB193A3C075B35FB2BC97E35A6A20530
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28187.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28187.jpgsave_picture_28187.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ magnet:?xt=urn:btih:B3C6BF8B4C08A0DD5298B7F7345E5076268E0086
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28188.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28188.jpgsave_picture_28188.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ magnet:?xt=urn:btih:3EEB9C10CC7FA1CE3278B48DDDC818CD8D6086A7
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28189.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28189.jpgsave_picture_28189.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Exogate Initiative (2023) [Multi] (1.0.0.97bd92b) Repack FitGirl
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28190.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28190.jpgsave_picture_28190.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ magnet:?xt=urn:btih:6BD9CE6812E40EBE2C5D2FF0428A1D7DA6D63F0B
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28191.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28191.jpgsave_picture_28191.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ magnet:?xt=urn:btih:F6ACB7B35EC302AB6BDE3EAD98ED0A0C7EEBD4FF
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28192.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28192.jpgsave_picture_28192.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ magnet:?xt=urn:btih:1D2BE574F9BC818E4D70891CA29DFA7804733661
 >>Кинолетопись Страны Советской
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28193.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28193.jpgsave_picture_28193.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ magnet:?xt=urn:btih:BCD5ED28246A2C97F968E9D2075B03660A32FE04
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28194.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28194.jpgsave_picture_28194.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Plague Inc: Evolved (2016) [Ru/Multi] (1.20.0.0/dlc) Repack Decepticon
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28195.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28195.jpgsave_picture_28195.jpg" />
 </div>
 
 

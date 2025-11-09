@@ -6,7 +6,7 @@
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28695.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28695.jpgsave_picture_28695.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:0FA9A281BA2E15933D16DFBFFBC57648845C509A
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28696.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28696.jpgsave_picture_28696.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ IM-Magic Partition Resizer 7.5.1 Professional |Server | Unlimited Edition RePack
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28697.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28697.jpgsave_picture_28697.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Soundify Vocal Remover 1.2.5 Portable by Spirit Summer [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28698.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28698.jpgsave_picture_28698.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Topaz Video AI Pro 6.0.4 RC [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28699.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28699.jpgsave_picture_28699.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:6D5DF18B6BBFE438937D020C86CC3E7208E8F01E
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28700.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28700.jpgsave_picture_28700.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ MemTest86 11.2 Build 1000 Free [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28701.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28701.jpgsave_picture_28701.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ By Click Downloader Premium 2.4.16 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28702.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28702.jpgsave_picture_28702.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:7A85CBCA0FDBAB968B55225168C264747D4F4248
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28703.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28703.jpgsave_picture_28703.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:A4D2316920AEFD8E9F89C4DFB003F68C640D76C2
 >>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28704.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28704.jpgsave_picture_28704.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ magnet:?xt=urn:btih:AB2246D89D443D8CDE0739D70A628E6667687859
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28705.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28705.jpgsave_picture_28705.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:4D3BD655533158CC43053476B7C066D12CF2E3CA
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28706.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28706.jpgsave_picture_28706.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Topaz Video AI 6.0.3 (x64) Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28707.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28707.jpgsave_picture_28707.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ magnet:?xt=urn:btih:42EC57CA2BD691B03C41C930CDE4650D436A7826
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28708.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28708.jpgsave_picture_28708.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ VA - Time Of Rock & Metal от ALEXnROCK Part 1 (2025) [MP3|320 Kbps] <Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28709.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28709.jpgsave_picture_28709.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:7B3BC52CD95AC066C196DAC3F5CA861492277219
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28710.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28710.jpgsave_picture_28710.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Redmond | Мультиварка-скороварка RMC-PM400. 120 рецеп�
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28711.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28711.jpgsave_picture_28711.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ Topaz Video AI 6.0.3 (x64) RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28712.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28712.jpgsave_picture_28712.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:C31E6D9F19CE8A3CD8D587E15DF6460D48B32EC1
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28713.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28713.jpgsave_picture_28713.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ GPU-Z 2.62.0 RePack by druc [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28714.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28714.jpgsave_picture_28714.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:2925A72E56BFFC68A4D03CD7D8AD23AFF760FE90
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28715.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28715.jpgsave_picture_28715.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Nucleer Coffee - My Music Collection 2.3.14.156 [Multi/Ru]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28716.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28716.jpgsave_picture_28716.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ magnet:?xt=urn:btih:9C847E5D7A601D1ABB3A45798814AC1422B23226
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28717.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28717.jpgsave_picture_28717.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ magnet:?xt=urn:btih:768A42BAC139A862AB104909E91B15CBC52EA096
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28718.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28718.jpgsave_picture_28718.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ magnet:?xt=urn:btih:768A42BAC139A862AB104909E91B15CBC52EA096
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28719.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28719.jpgsave_picture_28719.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Infostart, Артур Аюханов, Александр Кунташов, Ва�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28720.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28720.jpgsave_picture_28720.jpg" />
 </div>
 
 

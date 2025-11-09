@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236239.jpgsave_picture_236239.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:B609CCBED54F292355118CEC72709C2C9177580E
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236240.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236240.jpgsave_picture_236240.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:2B6C5B4A6BE1FE3F20F9A1BAC4CBB67D0C503CD3
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_236242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_236242.jpgsave_picture_236242.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:F0FC1011A249676AF976567558F19ACB217A78C8
 >>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_236244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_236244.jpgsave_picture_236244.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:9CEFE85D6AE815A77FF8E5E0A2263F6B22D4F3C7
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236245.jpgsave_picture_236245.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Live Wallpaper & Themes 4K Pro 17.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236246.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236246.jpgsave_picture_236246.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ VA - White Lounge, Vol. 1 (2021) [AAC|~332 Kbps] <Lounge, Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236247.jpgsave_picture_236247.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ VueScan Pro 9.8.08 ARM/Intel [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236249.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236249.jpgsave_picture_236249.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Distillery - I'm Your Nightmare (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_236250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_236250.jpgsave_picture_236250.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:A663D8C45CCF7DB26F6DF11512430E9F26433434
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236251.jpgsave_picture_236251.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ MotoGP. Этап 07. Гран-при Германии. Спринт (17.06.2023)
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236252.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236252.jpgsave_picture_236252.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Webcams 2.0.17 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236254.jpgsave_picture_236254.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Wings Of Destiny - Time (2015) [FLAC|Lossless|image + .cue] <Melodic Power Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236255.jpgsave_picture_236255.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Black Art Jazz Collective - Ascension (2020) HighNote Records [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_236256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_236256.jpgsave_picture_236256.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ VA - Ibiza Sundown Chillout (2021) [AAC|~295 Kbps] <Lounge, Chill Out, Downtempo
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236258.jpgsave_picture_236258.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ magnet:?xt=urn:btih:5B22AF21145EADB8B8555E6C952845D2F1375D4C
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236259.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236259.jpgsave_picture_236259.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ magnet:?xt=urn:btih:49B1F1B9ACA359DC5E1997DDD8427408553FF9C0
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236261.jpgsave_picture_236261.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Helsreach - Helsreach (2022) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal, Hardco
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236262.jpgsave_picture_236262.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ Viper FTP 5.7.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236263.jpgsave_picture_236263.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Scrutiny 10 v10.4.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236264.jpgsave_picture_236264.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Larry Taylor and The Taylor Family - Generations of Blues_ West Side Legacy (202
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236266.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236266.jpgsave_picture_236266.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ magnet:?xt=urn:btih:85149FBEB5B47E4BDACAD04E52EAC2A75FA54E6F
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236267.jpgsave_picture_236267.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ FlippedNormals, Emiel Sleegers | Advanced Texturing in Substance Painter (2021) 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236269.jpgsave_picture_236269.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Boo Boo Davis - The Trio 2008 - 2019 (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_236270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_236270.jpgsave_picture_236270.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Daniel Irvine | Build Your Own Test Framework: A Practical Guide to Writing Bett
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_236271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_236271.jpgsave_picture_236271.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ FastScripts 3.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236272.jpgsave_picture_236272.jpg" />
 </div>
 
 

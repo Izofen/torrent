@@ -6,7 +6,7 @@ Public Memory - Elegiac Beat (2023) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Left
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124776.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124776.jpgsave_picture_124776.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:62D53255D8D3C1931ACDC5EE5A4AE2CBBE024201
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124807.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124807.jpgsave_picture_124807.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Blank & Jones - Chilltronica EP 8 (2023) [FLAC|Lossless|WEB-DL|tracks] <Electron
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124884.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124884.jpgsave_picture_124884.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Eguana, Qeight - Call Of The Wild (2023) [FLAC|Lossless|WEB-DL|tracks] <Ambient,
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124906.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124906.jpgsave_picture_124906.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Eguana - Connect (2023) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Lounge>
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124907.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124907.jpgsave_picture_124907.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ VA - Extend The 80s Electro (2018) 3 CD [OGG Vorbis|480 Kbps] <Electronic, Synth
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125027.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125027.jpgsave_picture_125027.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Eguana - Echo (2023) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Lounge>
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125049.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125049.jpgsave_picture_125049.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ VA - Dance 2024 (2023) [MP3|320 Kbps] <Dance, Club, House, Electronic>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125055.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125055.jpgsave_picture_125055.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ VA - Christmas in Paris: Chillout Your Mind (2023) [FLAC|Lossless|WEB-DL|tracks]
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125057.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125057.jpgsave_picture_125057.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ VA - Armin Van Buuren - A State Of Trance 1153 (Yearmix 2023) (2023) [MP3|320 Kb
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125162.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125162.jpgsave_picture_125162.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ VA - Monster Tunes Year Mix 2023 (Mixed by Madwave) (2023) [MP3|320 Kbps] <Tranc
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125327.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125327.jpgsave_picture_125327.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Dara - Berezhno (2023) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass, Breaks, Ambie
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125347.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125347.jpgsave_picture_125347.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ VA - ARMADA - Trance Year Mix 2023 (2023-12-25) [MP3|320 Kbps] <Trance, Progress
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125422.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125422.jpgsave_picture_125422.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ VA - Sunset Emotions, Vol. 8 (Compiled by Marco Celloni) (2023) [FLAC|Lossless|W
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125575.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125575.jpgsave_picture_125575.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Zincboy - Bizarre Book (2023) [MP3|320 Kbps] <Neo-Psychedelia, Breakbeat, Trip-H
 >>Downtempo, Trip-Hop, Lounge
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125576.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125576.jpgsave_picture_125576.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Alexey Teplykh - The City at Night (2023) [FLAC|Lossless|WEB-DL|tracks] <Synthpo
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125584.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125584.jpgsave_picture_125584.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ VA - Silent Place, Vol. 1-3 (2023) 3 x CD [MP3|320 Kbps] <Lounge, Chill Out, Dow
 >>Downtempo, Trip-Hop, Lounge
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125600.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125600.jpgsave_picture_125600.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ VA - Forest Retreat: Chillout Your Mind (2023) [FLAC|Lossless|WEB-DL|tracks] <Ba
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125732.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125732.jpgsave_picture_125732.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ VA - Progressive Amsterdam 2025 (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125831.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125831.jpgsave_picture_125831.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ VA - Autumn Hits (Deep Strips Records) (2025) [FLAC|Lossless|WEB-DL|tracks] <Hou
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125899.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125899.jpgsave_picture_125899.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ Frank Walker - Live @ Breakaway Music Festival Michigan, United States (2025-08-
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126046.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126046.jpgsave_picture_126046.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ VA - Relaxed & Refined (The Chillout Experience) (2025) [FLAC|Lossless|WEB-DL|tr
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126122.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126122.jpgsave_picture_126122.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ VA - Massage Music (Soothing Vibes for Massage Bliss, Bodywork, and Total Relaxa
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126124.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126124.jpgsave_picture_126124.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ Mike Williams - Live @ Storylines, Hotel Arena, Amsterdam Dance Event (2023-10-2
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126205.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126205.jpgsave_picture_126205.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ VA - Turbo Drive, Vol. 1 (2020) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrow
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126236.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126236.jpgsave_picture_126236.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ VA - Turbo Drive, Vol. 2 (2022) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrow
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126239.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126239.jpgsave_picture_126239.jpg" />
 </div>
 
 

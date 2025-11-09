@@ -6,7 +6,7 @@ Myst (2021) [Ru/Multi] (3.0.1) Repack dixen18 [VR]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23569.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23569.jpgsave_picture_23569.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Chorus of Carcosa (2025 ) [Ru/Multi] (01.08) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23576.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23576.jpgsave_picture_23576.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Myst (2021) [Ru/Multi] (3.0.1) Repack FitGirl [VR]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23648.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23648.jpgsave_picture_23648.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ The Invincible (2023) [Ru/Multi] (1.6) Repack Other s [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23657.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23657.jpgsave_picture_23657.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Them and Us (2021) [Ru/Multi] (1.1.2/dlc) Repack FitGirl [Ultimate Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23664.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23664.jpgsave_picture_23664.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Wanderstop (2025) [Multi] (Build #15399) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23695.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23695.jpgsave_picture_23695.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Scene Investigators (2023) [Ru/Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23741.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23741.jpgsave_picture_23741.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ A Game About Digging A Hole (2025) [Ru/Multi] (Build 17793684) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23764.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23764.jpgsave_picture_23764.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Myst (2021) [Ru/Multi] (3.0.1) Repack seleZen [VR]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23822.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23822.jpgsave_picture_23822.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ The Mansion of The Macabre (2024) [Multi] (1.1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23888.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23888.jpgsave_picture_23888.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ The Phantom (2025) [En] (1.013) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24007.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24007.jpgsave_picture_24007.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ The Long Dark (2017) [Ru/Multi] (2.40/dlc) Repack dixen18 [Episodes 1-4]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24017.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24017.jpgsave_picture_24017.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Grand Theft Auto V Enhanced (2025) [Ru/Multi] (1.0.812.8) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24022.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24022.jpgsave_picture_24022.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ The Invincible (2023) [Ru/Multi] (1.6) Repack seleZen [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24078.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24078.jpgsave_picture_24078.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ The Invincible (2023) [Ru/Multi] (1.6) Repack FitGirl [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24095.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24095.jpgsave_picture_24095.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Beyond Galaxyland (2024) [Ru/Multi] (1.0.0.6/1.0.2.2) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24192.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24192.jpgsave_picture_24192.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Split Fiction (2025) [Ru/Multi] (Build 17714403) Repack Wanterlude
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24228.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24228.jpgsave_picture_24228.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Hauntsville (2025) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24309.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24309.jpgsave_picture_24309.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Siberian Way (2025) [Ru/En] (1.1.2) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24396.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24396.jpgsave_picture_24396.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ The Test: Reality Check (2025) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24489.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24489.jpgsave_picture_24489.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Asylum (2025) [Ru/Multi] (Build 17711849) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24605.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24605.jpgsave_picture_24605.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Worldless (2023) [Ru/Multi] (1.3.5) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24653.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24653.jpgsave_picture_24653.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Shadowgate 2 (II) (2025) [Multi] (1.0.7) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24655.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24655.jpgsave_picture_24655.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Asylum (2025) [Ru/Multi] (build 17707886) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24699.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24699.jpgsave_picture_24699.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Martha Is Dead (2022) [Ru/Multi] (1.0720.01/dlc) License GOG [Digital Deluxe Bun
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24748.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24748.jpgsave_picture_24748.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ The Night of the Rabbit (2013) [Ru/Multi] (2.2.334) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24759.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24759.jpgsave_picture_24759.jpg" />
 </div>
 
 

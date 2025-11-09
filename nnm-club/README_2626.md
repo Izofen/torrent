@@ -6,7 +6,7 @@
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69026.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69026.jpgsave_picture_69026.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:E7BB56531184F3D9FD52BE6CC912FEACA7A7E14E
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69027.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69027.jpgsave_picture_69027.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ magnet:?xt=urn:btih:DA638A35670E34B4C9BFB70DF755465FEC2E1ED4
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69028.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69028.jpgsave_picture_69028.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:1FF2CB2EAEB1A52066831B6CE56CBC2E2A5C911C
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69029.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69029.jpgsave_picture_69029.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:C081F75C80F332E5A8CABE91DA62E11F7A6DAD28
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69030.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69030.jpgsave_picture_69030.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:702440EF28D37A0F1DDA99B4BAAE7A2762FB83F2
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69031.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69031.jpgsave_picture_69031.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ Puzzle Ways - Adventure (2024) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69032.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69032.jpgsave_picture_69032.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:7052CB60CD7B0926D6D1E60DC7B313E928D739B2
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69033.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69033.jpgsave_picture_69033.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ VA - Dream Electric (2018) 2LP [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowa
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69034.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69034.jpgsave_picture_69034.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ TuneIn Radio Pro v37.7 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69035.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69035.jpgsave_picture_69035.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ Lighting calculations / Расчеты освещения v6.1.1 Mod by Balatan 
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69036.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69036.jpgsave_picture_69036.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ Xreveal 2.7.7 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69037.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69037.jpgsave_picture_69037.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ magnet:?xt=urn:btih:A778ED011CA300194C151A6F69A5D40B08B9798A
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69038.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69038.jpgsave_picture_69038.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ magnet:?xt=urn:btih:15D3B51B051CB4853239E81688D87EF295C61DFC
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69039.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69039.jpgsave_picture_69039.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ Motörhead - The Bronze Age (1979 - 1982) (2002) 4xCD, Box Set, Compilation, Rem
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69040.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69040.jpgsave_picture_69040.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ magnet:?xt=urn:btih:39DB9901D80F21716E33E93B45965A3622D63096
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69041.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69041.jpgsave_picture_69041.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ VA - Disco Cuts (2018) [FLAC|Lossless|WEB-DL|tracks] <Disco, Pop>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69042.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69042.jpgsave_picture_69042.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ magnet:?xt=urn:btih:EC21AC153A0E26959DDE8F59D9EBE6D564AC2AE2
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69043.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69043.jpgsave_picture_69043.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ magnet:?xt=urn:btih:E648C405B1BD0A0B4B30ED0F5FD405FA094403C5
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69044.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69044.jpgsave_picture_69044.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ magnet:?xt=urn:btih:4EA4CC14A82CDD0E58D3D08998761BE422FD27B3
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69045.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69045.jpgsave_picture_69045.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ reaConverter Pro 7.848 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69046.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69046.jpgsave_picture_69046.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ magnet:?xt=urn:btih:3227A906115DCD711CE723D0810F4780F9280B6B
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69047.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69047.jpgsave_picture_69047.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ magnet:?xt=urn:btih:D1F2254AB31482253C7B93ACB53E6A79F88E1062
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69048.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69048.jpgsave_picture_69048.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ AI - AzizRush. Я просто стал слеп (2025) [MP3|320 Kbps] <Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69049.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69049.jpgsave_picture_69049.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Victoria Nordmann - Love & Disco (2025) [FLAC|Lossless|WEB-DL|tracks] <Euro-Disc
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69050.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69050.jpgsave_picture_69050.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ magnet:?xt=urn:btih:657526DE6BC8DEDA2121554B81B06346050B2765
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69051.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69051.jpgsave_picture_69051.jpg" />
 </div>
 
 

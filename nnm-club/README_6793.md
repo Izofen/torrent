@@ -6,7 +6,7 @@ Jessica Williams - Ain't Misbehavin' (1996) 1999, Candid [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233747.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233747.jpgsave_picture_233747.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Aathma - Dust from a Dark Sun (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233748.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233748.jpgsave_picture_233748.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Things 3 v3.15 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233749.jpgsave_picture_233749.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Uplink: Hacker Elite (2001) [En] (1.6) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233750.jpgsave_picture_233750.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ Tadd Dameron And His Orchestra - The Magic Touch (1962) 1992, Original Jazz Clas
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233752.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233752.jpgsave_picture_233752.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ magnet:?xt=urn:btih:B3D5A7AC281712D0EF9F5F731F132F22E151BE60
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233753.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233753.jpgsave_picture_233753.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ Vivaldi 6.0.2979.22 include standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233754.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233754.jpgsave_picture_233754.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ A Better Finder Rename 11 v11.39 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233755.jpgsave_picture_233755.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Oh, Sleeper - Bloodied / Unbowed (2019) [FLAC|Lossless|WEB-DL|tracks] <Metalcore
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233756.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233756.jpgsave_picture_233756.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ magnet:?xt=urn:btih:89B6C0CD7AB443AAABA2A0CAE48BE2C87C994BD5
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233757.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233757.jpgsave_picture_233757.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ Jay Jay Johnson Sextet - With Clifford Brown, Vol.1 (1953, 1954) 1995, Toshiba-E
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233759.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233759.jpgsave_picture_233759.jpg" />
 </div>
 
 
@@ -290,7 +290,7 @@ Blackmagic Design DaVinci Resolve Studio 18.0B Build 14 Public Beta 3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233760.jpgsave_picture_233760.jpg" />
 </div>
 
 
@@ -314,7 +314,7 @@ Helgrind - Insurrection (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Thras
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233761.jpgsave_picture_233761.jpg" />
 </div>
 
 
@@ -341,7 +341,7 @@ VA - Meditation Piano (2023) [FLAC|Lossless|WEB-DL|tracks] <Meditation, Piano>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233762.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233762.jpgsave_picture_233762.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ magnet:?xt=urn:btih:D571D6CC3AD2B7D057AE834988F3D740C22347F6
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233763.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233763.jpgsave_picture_233763.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ magnet:?xt=urn:btih:0CFFA12F06CBFC064650C6DA3A18BCE978A8B3A6
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233764.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233764.jpgsave_picture_233764.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ PDF24 Creator 11.13.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233765.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233765.jpgsave_picture_233765.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ XYplorer 24.40.0100 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233767.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233767.jpgsave_picture_233767.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ magnet:?xt=urn:btih:C3823528F9EC21789350404CE85968A7D54AA8AD
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233768.jpgsave_picture_233768.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ magnet:?xt=urn:btih:3991AB0752C2A40BF120CC903776E5D365037136
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233769.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233769.jpgsave_picture_233769.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ Connected Hearts 3: The Musketeers Saga / Связанные любовью 3: �
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233770.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233770.jpgsave_picture_233770.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ MacPilot 13 v13.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233771.jpgsave_picture_233771.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ SimpleMind − Mind Mapping 2.1.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233772.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233772.jpgsave_picture_233772.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ magnet:?xt=urn:btih:CC71042F30B2B377157930462E9BD750D930F362
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233774.jpgsave_picture_233774.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ magnet:?xt=urn:btih:6B853F1CF07BC7A02DB17C5B582B224C31341D27
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233775.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233775.jpgsave_picture_233775.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ Athentech Perfectly Clear WorkBench for Mac 4.5.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233777.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233777.jpgsave_picture_233777.jpg" />
 </div>
 
 

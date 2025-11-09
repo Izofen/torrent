@@ -6,7 +6,7 @@ Grave Digger (Hellryder; Steelhammer; The Fyredogs) - Studio Albums (27 releases
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30139.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30139.jpgsave_picture_30139.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Dream Express - Дрийм Экспресс (1979) [FLAC 2.0|192/24|image +.cue|
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30315.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30315.jpgsave_picture_30315.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Sybreed - Studio Albums (4 releases) (2004-2012) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30322.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30322.jpgsave_picture_30322.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ HammerFall (& Cans) - Studio Albums (20 releases) (1997-2024) hand made [restore
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30568.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30568.jpgsave_picture_30568.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ VA - Romantic Collection. Italia '2000 (2000) Compilation, Unofficial Release [F
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30992.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30992.jpgsave_picture_30992.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Vivaldi Metal Project - Studio Albums (3 releases) (2016-2022) hand made [restor
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31078.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31078.jpgsave_picture_31078.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Paper Lace - First Edition (1972) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop R
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31101.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31101.jpgsave_picture_31101.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Mark Duffy - Tribute To Glen Campbell (1973) [FLAC 2.0|192/24|image +.cue|Vinyl-
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31112.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31112.jpgsave_picture_31112.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ Tremonti (Creed, Alter Bridge) - Studio Albums (6 releases) (2012-2025) hand mad
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31199.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31199.jpgsave_picture_31199.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ VA - Legend Rock Ballads vol.1 - vol.3 (1996) Compilation, Unofficial Release [F
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31269.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31269.jpgsave_picture_31269.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Sevendust - Studio Albums (14 releases) (1997-2023) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31463.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31463.jpgsave_picture_31463.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Theatres Des Vampires - Studio Albums (12 releases) (1996-2021) hand made [resto
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31472.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31472.jpgsave_picture_31472.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Conquer Divide - Studio Albums (2 releases) (2015-2024) hand made [restored, dec
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31474.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31474.jpgsave_picture_31474.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Atreyu - Studio Albums (12 releases) (2001-2024) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31478.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31478.jpgsave_picture_31478.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Umbra Et Imago - Studio Albums (14 releases) (1992-2017) hand made [restored, de
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31813.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31813.jpgsave_picture_31813.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ Accept - Studio Albums (23 releases) (1979-2024) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32066.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32066.jpgsave_picture_32066.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ magnet:?xt=urn:btih:0A78E145EA4DE94AFA9F99235D87EEB381B90619
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32244.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32244.jpgsave_picture_32244.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ Ill Niño (Ill Nino) - Studio Albums (7 releases) (2002-2024) hand made [restore
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33037.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33037.jpgsave_picture_33037.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ magnet:?xt=urn:btih:C15CBA43A2A3A582F9B0602323E1970E1BE22065
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33667.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33667.jpgsave_picture_33667.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ Therion - Studio Albums (21 releases) (1991-2023) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33693.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33693.jpgsave_picture_33693.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Dark Lightning - Studio Albums (2 releases) (2023-2024) hand made [restored, dec
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33973.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33973.jpgsave_picture_33973.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ relaXX - Вечная Музыка Любви И Секса. Afternoon (qeHb) (2
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34488.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34488.jpgsave_picture_34488.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ VA - Шлягеры Уходящего Века (2000) [FLAC 2.0|48/24|image +.c
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34707.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34707.jpgsave_picture_34707.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ the Gathering - Studio Albums (14 releases) (1992-2022) hand made [restored, dec
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34821.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34821.jpgsave_picture_34821.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ Xandria - Studio Albums (10 releases) (2003-2024) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35046.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35046.jpgsave_picture_35046.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Virgin Steele - Studio Albums (15 releases) (1982-2023) hand made [restored, dec
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35101.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35101.jpgsave_picture_35101.jpg" />
 </div>
 
 

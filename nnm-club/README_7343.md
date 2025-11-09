@@ -6,7 +6,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251194.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251194.jpgsave_picture_251194.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:10FCB5FA8CF528F1946CBEB6C1B3A16D8AF94908
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251197.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251197.jpgsave_picture_251197.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:10FCB5FA8CF528F1946CBEB6C1B3A16D8AF94908
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251198.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251198.jpgsave_picture_251198.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:5648E82CD4E5C5CBFD264BCB0D8C2CA636DB484F
 >>Folk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251200.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251200.jpgsave_picture_251200.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:5648E82CD4E5C5CBFD264BCB0D8C2CA636DB484F
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251201.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251201.jpgsave_picture_251201.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ Accept - Stalingrad (2012) 2LP [WavPack 2.0 32/96|image (Vinyl-Rip)]<Heavy Metal
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251202.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251202.jpgsave_picture_251202.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ magnet:?xt=urn:btih:ED416EC19D27D3AD0626D6BE3018BF611B0041C2
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251204.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251204.jpgsave_picture_251204.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ Fort Boyard: La Legende [Ru] (RePack) 1996 | Pilotus
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251205.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251205.jpgsave_picture_251205.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ Fort Boyard: La Legende [Ru] (RePack) 1996 | Pilotus
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251210.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251210.jpgsave_picture_251210.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ magnet:?xt=urn:btih:1C0FC10AC0EEBECF87903B1BC6BFE6513A9051D7
 >>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251212.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251212.jpgsave_picture_251212.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ magnet:?xt=urn:btih:8D836821EDFC538E05AD6A11E0883A458A5D72A9
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251213.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251213.jpgsave_picture_251213.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ magnet:?xt=urn:btih:0E9A5EEF28D9E0AC8D8D6A4D3764289B6B8F5D2F
 >>Новости
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_251215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251215.jpgsave_picture_251215.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ magnet:?xt=urn:btih:0E9A5EEF28D9E0AC8D8D6A4D3764289B6B8F5D2F
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251216.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251216.jpgsave_picture_251216.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ StaxRip 2.50.4 Portable [En]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251218.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251218.jpgsave_picture_251218.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ magnet:?xt=urn:btih:B2BA0C20675911B7EED32DDA64EE41A2BEA77497
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251220.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251220.jpgsave_picture_251220.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ magnet:?xt=urn:btih:39F7BCF9864388152FC16C6D2A338C7ECC84224F
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251221.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251221.jpgsave_picture_251221.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ magnet:?xt=urn:btih:69A22D20A43BF7D72A9C517588507A874A1C540B
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251222.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251222.jpgsave_picture_251222.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ magnet:?xt=urn:btih:69A22D20A43BF7D72A9C517588507A874A1C540B
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251223.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251223.jpgsave_picture_251223.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ magnet:?xt=urn:btih:D7991F065E16AC43C61ACFF6E91FCF0A5FAFA22C
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251224.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251224.jpgsave_picture_251224.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ magnet:?xt=urn:btih:D7991F065E16AC43C61ACFF6E91FCF0A5FAFA22C
 >>Архив Авто
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251225.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251225.jpgsave_picture_251225.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Empire Drowns - Endless Nights (2025) [FLAC|Lossless|WEB-DL|tracks] <Doom, Gothi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251226.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251226.jpgsave_picture_251226.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ magnet:?xt=urn:btih:EBBCE35F243A323D129B8F95A23B349C62AD7BB4
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251227.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251227.jpgsave_picture_251227.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Psiphon 3 build 186 RePack (& Portable) by elchupacabra (DC 29.10.2025) [Multi/R
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251228.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251228.jpgsave_picture_251228.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ magnet:?xt=urn:btih:49D59FD5DF56A72DF3ADF6C679DD7C3DC3B087D8
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251230.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251230.jpgsave_picture_251230.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ magnet:?xt=urn:btih:49D59FD5DF56A72DF3ADF6C679DD7C3DC3B087D8
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251231.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251231.jpgsave_picture_251231.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ magnet:?xt=urn:btih:C5A8E372BA9C6B4A90294B34ACA1196ADE0C32E3
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251232.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251232.jpgsave_picture_251232.jpg" />
 </div>
 
 

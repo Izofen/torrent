@@ -6,7 +6,7 @@ Keep It 2.2.11 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205400.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205400.jpgsave_picture_205400.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Kaos Vortex - Seeds of Decay (2015) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205402.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205402.jpgsave_picture_205402.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Dato 5.0.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205415.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205415.jpgsave_picture_205415.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ Hyperdontia - A Vessel Forlorn (2019) Compilation [FLAC|Lossless|tracks + .cue] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205417.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205417.jpgsave_picture_205417.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ An Autumn For Crippled Children - Closure (2023) [FLAC|Lossless|WEB-DL|tracks] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205419.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205419.jpgsave_picture_205419.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Uncaved - Dogmatorraistes (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205421.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205421.jpgsave_picture_205421.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Iratus Vir - Under a Midnight Sun (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205423.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205423.jpgsave_picture_205423.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Hyades - And the Worst is Yet to Come (2007) [FLAC|Lossless|image + .cue] <Thras
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205425.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205425.jpgsave_picture_205425.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ SiteSucker 5.1.11 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205427.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205427.jpgsave_picture_205427.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ magnet:?xt=urn:btih:9E98BF4DDD50626218F8352FBD0DABBC33E084EF
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205430.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205430.jpgsave_picture_205430.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ magnet:?xt=urn:btih:06F3B5F942CD91E1707548192EED8D620CCB790C
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205432.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205432.jpgsave_picture_205432.jpg" />
 </div>
 
 
@@ -290,7 +290,7 @@ KCNcrew Pack 08-15-23 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205433.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205433.jpgsave_picture_205433.jpg" />
 </div>
 
 
@@ -314,7 +314,7 @@ Dr. John - The Montreux Years (2023) [FLAC|Lossless|tracks + .cue] <Jazz, Funk, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205436.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205436.jpgsave_picture_205436.jpg" />
 </div>
 
 
@@ -341,7 +341,7 @@ Dr. John - Things Happen That Way (2022) [FLAC|Lossless|tracks + .cue] <Blues, P
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205437.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205437.jpgsave_picture_205437.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ Blutgott - Respawned In Heavy Metal (2023) [MP3|320 Kbps] <Heavy Metal, Death 'n
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205440.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205440.jpgsave_picture_205440.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ Sea of Dreams - Land of Flames (1998) [MP3|320 Kbps] <Melodic Progressive, Power
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205441.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205441.jpgsave_picture_205441.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ magnet:?xt=urn:btih:51A78722B7B0FC996872305896AA7EAA82052752
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205444.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205444.jpgsave_picture_205444.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ magnet:?xt=urn:btih:C752072688CED62C7BB3DF08A9436E2CE07FC0F0
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205445.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205445.jpgsave_picture_205445.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ TinkerTool System 8 v.8.85 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205447.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205447.jpgsave_picture_205447.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ SiteSucker Pro 5.1.11 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205450.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205450.jpgsave_picture_205450.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Gene Ammons - Funky (1957) 1992, Original Jazz Classics [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205452.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205452.jpgsave_picture_205452.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ Jag Panzer - Ample Destruction (1984) Reissue, 2001, No Poser Rec. [FLAC|Lossles
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205453.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205453.jpgsave_picture_205453.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ Rideout - Driven To Insanity (2023) [MP3|320 Kbps] <Progressive Hard, Heavy Meta
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205456.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205456.jpgsave_picture_205456.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ Jag Panzer - Tyrants (1983) Reissue, 2013, High Roller Rec. [FLAC|Lossless|image
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205458.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205458.jpgsave_picture_205458.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ Sea of Dreams - Dawn of Time (1996) [MP3|320 Kbps] <Melodic Progressive, Power M
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205459.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205459.jpgsave_picture_205459.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ magnet:?xt=urn:btih:15EF8AD24EE4033117187F3185FEA9CC00EDEBDB
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205462.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205462.jpgsave_picture_205462.jpg" />
 </div>
 
 

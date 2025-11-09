@@ -6,7 +6,7 @@
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210941.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210941.jpgsave_picture_210941.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ VA - Music News vol.271 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210945.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210945.jpgsave_picture_210945.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Serif Affinity Photo 2.1.1.1847 RePack by KpoJIuK [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210946.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210946.jpgsave_picture_210946.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:F2848D894FFFFDA14D84227C410344121BEDC464
 >>Мультимедийные справочники, Энциклопедии
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210949.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210949.jpgsave_picture_210949.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ CPUID HWMonitor Pro 1.52 (x64) Portable by zeka.k [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210951.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210951.jpgsave_picture_210951.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:E0A8B8593A9D52ECC5FE1FB7DB726F361A98AD95
 >>Мультимедийные справочники, Энциклопедии
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210953.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210953.jpgsave_picture_210953.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:26C1439AB78F48CDBAAA5854A9AB9D9296F48598
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210955.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210955.jpgsave_picture_210955.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ Spotify 1.2.14.1141 (Repack & Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210956.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210956.jpgsave_picture_210956.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:D34EC9DFD41BEED08078B688DDFDF5ED07B6775F
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210960.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210960.jpgsave_picture_210960.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ Aiseesoft Mac FoneTrans 9.2.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210962.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210962.jpgsave_picture_210962.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:1C1AEF96222DA4B5556911F756CC121B90D419EF
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210963.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210963.jpgsave_picture_210963.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Total Commander 11.00 beta8 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210965.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210965.jpgsave_picture_210965.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:1BF7D2E550226D765D443CAE842594E01F9EF160
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210969.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210969.jpgsave_picture_210969.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:1A0B91A5B1CCC8D7856DAEF176A84723D530E1B8
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210970.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210970.jpgsave_picture_210970.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ magnet:?xt=urn:btih:AFEFC4E9C379CB8E19CB4D6DA42544D46C02356C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210972.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210972.jpgsave_picture_210972.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ O&O DiskImage Professional 18.4 Build 299 RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210974.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210974.jpgsave_picture_210974.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Ultraman Final | Ультрамен 3 [2023, ONA, 12 эп.] WebRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210976.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210976.jpgsave_picture_210976.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ magnet:?xt=urn:btih:B23E5D34BAFB29E6C0F44F2C9385735FA61C02FE
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210978.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210978.jpgsave_picture_210978.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ magnet:?xt=urn:btih:EFC889BD4D0FB96DBAA2FC9F78B42690463A5FF8
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210980.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210980.jpgsave_picture_210980.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ NirLauncher Package 1.30.3 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210981.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210981.jpgsave_picture_210981.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ EZ CD Audio Converter 11.0.3.1 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210983.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210983.jpgsave_picture_210983.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ VA - Road Trip Rock (2023) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210984.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210984.jpgsave_picture_210984.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ magnet:?xt=urn:btih:E075590A9E358B3E6A9ED315E1FA17D2DD6FAA9D
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210987.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210987.jpgsave_picture_210987.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Ungoogled Chromium 114.0.5735.134-1.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210991.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210991.jpgsave_picture_210991.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ magnet:?xt=urn:btih:AE2467ABF035241F5202F1B54EB281F99F20A877
 >>Мультимедийные справочники, Энциклопедии
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210994.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210994.jpgsave_picture_210994.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ The New Topnotes - Where Do We Go From Here? (1978) LP [MP3|320 Kbps] <Disco, Fu
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210996.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210996.jpgsave_picture_210996.jpg" />
 </div>
 
 

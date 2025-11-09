@@ -6,7 +6,7 @@ Rosewater (2025) [Multi] (1.00.1) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22728.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22728.jpgsave_picture_22728.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Flintlock The Siege of Dawn (2024) [Ru/Multi] (1.1.72-268413/dlc) Repack Let'sР
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22734.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22734.jpgsave_picture_22734.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Tropico 6 (2019) [Ru/Multi] (23/dlc) Repack Let'sРlay [El Prez Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22747.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22747.jpgsave_picture_22747.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Lurking Danger (2025) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22748.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22748.jpgsave_picture_22748.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Battle Brothers (2017) [Ru/En] (1.5.1.5 HF/dlc) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22749.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22749.jpgsave_picture_22749.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Somber Echoes (2025) [Ru/Multi] (22449) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22754.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22754.jpgsave_picture_22754.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Tekken 8 (2024) [Ru/Multi] (2.00.01/dlc) Repack Wanterlude
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22757.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22757.jpgsave_picture_22757.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Legacy of Kain Soul Reaver 1&2 Remastered (2024) [Ru/Multi] (Build 17692767) Rep
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22760.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22760.jpgsave_picture_22760.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Star of Providence / Monolith (2017) [Multi] (1.2/dlc) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22782.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22782.jpgsave_picture_22782.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Which Way Up: Galaxy Games (2025) [Ru/Multi] (1.0.0+e1d15/dlc) Repack seleZen
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22802.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22802.jpgsave_picture_22802.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Nature & Life: Drunk On Nectar (2016) [En] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22806.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22806.jpgsave_picture_22806.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Tainted Grail: Conquest (2021) [Ru/Multi] (1.3d) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22826.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22826.jpgsave_picture_22826.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Lizards Must Die 2 / Русы против ящеров 2 (2025) [Ru/Multi] (Bui
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22848.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22848.jpgsave_picture_22848.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ The Thing: Remastered (2024) [Multi] (1.1.1) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22866.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22866.jpgsave_picture_22866.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Afterimage (2023) [Ru/Multi] (1.2.1/dlc) Repack Let'sРlay [Deluxe Edition]
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22884.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22884.jpgsave_picture_22884.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Miryam The Polluted Land (2025) [Ru/Multi] (1.0.7) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22889.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22889.jpgsave_picture_22889.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Icebound Secrets: The Frostwood Bane / Тайны ледяного мира: П�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22890.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22890.jpgsave_picture_22890.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Inayah - Life after Gods (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22891.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22891.jpgsave_picture_22891.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Rain World (2017) [Ru/Multi] (1.10.1/dlc) Repack FitGirl [Deluxe Edition]
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22897.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22897.jpgsave_picture_22897.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ A TAVERN FOR TEA (2023) [Ru/Multi] (2.03) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22921.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22921.jpgsave_picture_22921.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Mark of the Deep (2025) [Ru/Multi] (1.0.0.0.3/dlc) Repack FitGirl [Deluxe Editio
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22930.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22930.jpgsave_picture_22930.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Inayah - Life after Gods (2025) [Ru/Multi] (1.0) Repack seleZen
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22936.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22936.jpgsave_picture_22936.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Unholy (2023) [Ru/Multi] (30864) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22939.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22939.jpgsave_picture_22939.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Battlefield 4 (2013) [Ru/Multi] (4700144/dlc) Repack Other s [Premium Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22942.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22942.jpgsave_picture_22942.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Twilight Monk (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22955.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22955.jpgsave_picture_22955.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Spyro Reignited Trilogy (2019) [Ru/En] (Build 3849171) Repack Mizantrop1337
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22963.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22963.jpgsave_picture_22963.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Saint Asonia - Studio Albums (3 releases) (2015-2022) hand made [restored, decli
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70077.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70077.jpgsave_picture_70077.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Nightrage - Studio Albums (11 releases) (2003-2024) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70079.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70079.jpgsave_picture_70079.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Bury Your Dead - Studio Albums (7 releases) (2003-2019) hand made [restored, dec
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70190.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70190.jpgsave_picture_70190.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Dead Sara - Studio Albums (6 releases) (2009-2021) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70212.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70212.jpgsave_picture_70212.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Starset - Studio Albums (4 releases) (2014-2024) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70214.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70214.jpgsave_picture_70214.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Von Hertzen Brothers - Studio Albums (9 releases) (2001-2024) hand made [restore
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70235.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70235.jpgsave_picture_70235.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Greta Van Fleet - Studio Albums (4 releases) (2017-2023) hand made [restored, de
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70250.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70250.jpgsave_picture_70250.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ JoNo - Studio Albums (4 releases) (2006-2017) hand made [restored, declipped] [F
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70339.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70339.jpgsave_picture_70339.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ Ritual (Sweden) - Studio Albums (5 releases) (1995-2024) hand made [restored, de
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70370.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70370.jpgsave_picture_70370.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Innerspace - Studio Albums (3 releases) (2012-2024) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70440.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70440.jpgsave_picture_70440.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Infringement (Norway) - Studio Albums (3 releases) (2017-2024) hand made [restor
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70441.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70441.jpgsave_picture_70441.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ VA - Музыкальный Бутерброд (2001) Compilation, Unofficial Re
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70561.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70561.jpgsave_picture_70561.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ The Last Band - Studio Albums (4 releases) (2012-2018) hand made [restored, decl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70785.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70785.jpgsave_picture_70785.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Dreamland - Studio Albums (3 releases) (2005-2009) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70939.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70939.jpgsave_picture_70939.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Canterra - Studio Albums (2 releases) (2016-2020) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70973.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70973.jpgsave_picture_70973.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ Enshine - Studio Albums (3 releases) (2013-2021) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71059.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71059.jpgsave_picture_71059.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Be'lakor - Studio Albums (5 releases) (2007-2021) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71110.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71110.jpgsave_picture_71110.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ Fates Warning (Arch/Matheos; Ray Alder) - Studio Albums (18 releases) (1984-2023
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71122.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71122.jpgsave_picture_71122.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ The Kovenant (Covenant) - Studio Albums (4 releases) (1997-2003) hand made [rest
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71136.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71136.jpgsave_picture_71136.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ We Sell The Dead - Studio Albums (2 releases) (2018-2020) hand made [restored, d
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71138.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71138.jpgsave_picture_71138.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Omnium Gatherum - Studio Albums (10 releases) (2003-2023) hand made [restored, d
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71200.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71200.jpgsave_picture_71200.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Labyrinth (Italy) - Studio Albums (11 releases) (1996-2025) hand made [restored,
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71278.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71278.jpgsave_picture_71278.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Jonne Aaron (Negative ) - Studio Albums (5 releases) (2012-2021) hand made [rest
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71377.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71377.jpgsave_picture_71377.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ Einherjer - Studio Albums (11 releases) (1995-2021) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71428.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71428.jpgsave_picture_71428.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ Faith No More - Studio Albums (7 releases) (1985-2015) hand made [restored, decl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71437.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71437.jpgsave_picture_71437.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Witchwood (ex-Buttered Bacon Biscuits) - Studio Albums (4 releases) (2009-2020) 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71532.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71532.jpgsave_picture_71532.jpg" />
 </div>
 
 

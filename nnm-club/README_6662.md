@@ -6,7 +6,7 @@ Little Feat - Sailin' Shoes (1972) 2CD, Deluxe Edition, Remaster, 2023, Rhino - 
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227882.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227882.jpgsave_picture_227882.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ SoMaD - Story of Marion & Damiel (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressi
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227889.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227889.jpgsave_picture_227889.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ William The Conqueror - Excuse Me While I Vanish (2023) [FLAC|Lossless|WEB-DL|tr
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227896.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227896.jpgsave_picture_227896.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Signs Of The Swarm - Amongst The Low And Empty (2023) [FLAC|Lossless|WEB-DL|trac
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227907.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227907.jpgsave_picture_227907.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Dogs Of Neptune - 2 Albums (2016-2023) [MP3|320 Kbps] <Progressive Heavy Metal, 
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227914.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227914.jpgsave_picture_227914.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Abaddon - Statues of Sorrow (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227926.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227926.jpgsave_picture_227926.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ James Rivera's Metal Wave - New Wave Gone Metal (2023) [FLAC|Lossless|WEB-DL|tra
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227932.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227932.jpgsave_picture_227932.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Arkham Witch - Beer And Bullet Belts (2023) [FLAC|Lossless|WEB-DL|tracks] <Doom 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227938.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227938.jpgsave_picture_227938.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Mutoid Man - Mutants (2023) [FLAC|Lossless|WEB-DL|tracks] <Stoner Metal, Post-Ha
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227948.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227948.jpgsave_picture_227948.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ SyncBird Pro 4.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227960.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227960.jpgsave_picture_227960.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Kost - Warden (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228004.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228004.jpgsave_picture_228004.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Herald the Apocalypse - They Don't Care About Us (2023) EP [MP3|320 Kbps] <Death
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228012.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228012.jpgsave_picture_228012.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Infection Code - Intimacy (2007) [FLAC|Lossless|image + .cue] <Industrial, Thras
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228022.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228022.jpgsave_picture_228022.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Ashtar - Wandering Through Time (2023) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228030.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228030.jpgsave_picture_228030.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ magnet:?xt=urn:btih:DDD499208694B0464B6CE0FAA297022891794ED9
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228111.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228111.jpgsave_picture_228111.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ magnet:?xt=urn:btih:AA5564F0AC9FB51348ACDEA4E681E852641B9B85
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228124.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228124.jpgsave_picture_228124.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ magnet:?xt=urn:btih:83C9F30D7D5E36F04FF79DFB246C0233E9780377
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228156.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228156.jpgsave_picture_228156.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Zorin OS 16.3 Pro/Pro Lite [64-bit] 2xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228163.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228163.jpgsave_picture_228163.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ magnet:?xt=urn:btih:4072C42AB653C1D7975C0567531D8CDD58427287
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228202.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228202.jpgsave_picture_228202.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Assassin's Creed IV: Black Flag (2013) [Ru/Multi] (1.08/dlc) Repack dixen18
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228210.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228210.jpgsave_picture_228210.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ magnet:?xt=urn:btih:1930E422B0B62B669C5B1635B1839A6A92E5E3DA
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228219.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228219.jpgsave_picture_228219.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ Bloodhound (2023) [Ru/Multi] (1.0) Scene Skidrow
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228228.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228228.jpgsave_picture_228228.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Wise Registry Cleaner Pro 11.0.3.714 RePack (& portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228286.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228286.jpgsave_picture_228286.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ magnet:?xt=urn:btih:090F478E07F5B8B83587D059D4EA7B83C1977EF3
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228294.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228294.jpgsave_picture_228294.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ VA - Late Night Piano Lounge (2023) [FLAC|Lossless|WEB-DL|tracks] <Instrumental,
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228302.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228302.jpgsave_picture_228302.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ Uninstall Tool 3.7.3 Build 5716 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228311.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228311.jpgsave_picture_228311.jpg" />
 </div>
 
 

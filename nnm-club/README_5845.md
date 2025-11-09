@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183372.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183372.jpgsave_picture_183372.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Phase One Capture One 23 Enterprise 16.0.1.20 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183374.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183374.jpgsave_picture_183374.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ King King - Maverick (Deluxe) (2020) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_183375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183375.jpgsave_picture_183375.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:0FA6742E30EE2A677313EA2EABC1CAFC708A6B80
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183377.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183377.jpgsave_picture_183377.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:B8652B5882FECE13EED81C4B0D6A7940E507163B
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_183379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183379.jpgsave_picture_183379.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:C20D85A4D34A14086B2A58E0D297864055AD1B20
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183380.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183380.jpgsave_picture_183380.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Hearts of Iron IV v.1.12.14.50e7 (2018) [Multi/Ru] [macOS Native game]
 >>Strategy, RPG для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_183382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183382.jpgsave_picture_183382.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ Adguard 7.11.3 (7.11.4107.0) RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183384.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183384.jpgsave_picture_183384.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:917C3E6562E39B2DD1314B733414371D0ADB7C4F
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_183385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183385.jpgsave_picture_183385.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:F62DDF6860FBE2A9B95200A2598EB7A1554177E7
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183387.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183387.jpgsave_picture_183387.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:328A52EF28818E2F7122BB3A0DE9CC44C4D287AB
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183389.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183389.jpgsave_picture_183389.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ VA - A State Of Trance - Future Favorite - Best Of 2020 - (Extended Versions) (2
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_183390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183390.jpgsave_picture_183390.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ magnet:?xt=urn:btih:03AC5183C2286860BC519933E1EE1A84296381E3
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183392.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183392.jpgsave_picture_183392.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ magnet:?xt=urn:btih:E5728E616CFC2A0256A926CC491F3539C36BE20A
 >>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_183394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183394.jpgsave_picture_183394.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ magnet:?xt=urn:btih:B1A7AA1DA4A7538378564593FF96BDF9B255D1EC
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183396.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183396.jpgsave_picture_183396.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ VA - Pop 2020 [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_183398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183398.jpgsave_picture_183398.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ magnet:?xt=urn:btih:9E1696D132054A353A22BCCE9D1CB0D342CAC3D0
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183401.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183401.jpgsave_picture_183401.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ magnet:?xt=urn:btih:C42DDB360F6D1FEFB7E5A019F20DF94DA3DC6F58
 >>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_183402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183402.jpgsave_picture_183402.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ magnet:?xt=urn:btih:A3FDFC5218FC10F7A9D6DFE41B856DEB43C9C32E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183405.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183405.jpgsave_picture_183405.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ magnet:?xt=urn:btih:4D6D5009AD451E1FD587C8A50188FD45E78642DC
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_183406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183406.jpgsave_picture_183406.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ magnet:?xt=urn:btih:DFCF317FE6520CE39EB1A8A90BD0484430AB6031
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_183408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183408.jpgsave_picture_183408.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ magnet:?xt=urn:btih:78E480C3ED1133AB8679C4D518B69C2274740500
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183410.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183410.jpgsave_picture_183410.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ magnet:?xt=urn:btih:E6C0F32099FEC4FB436996A0DEBD5B23163C6625
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183413.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183413.jpgsave_picture_183413.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:95D4A02AA936E3C2DEB4C8D41DD8F3A76ADE8EBB
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_183414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183414.jpgsave_picture_183414.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ magnet:?xt=urn:btih:D52C7E0EC05D889831AC85041B2E4785182BD58E
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_183415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183415.jpgsave_picture_183415.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ VA - Айсберг-Каникулы с Андреем Губиным  (2001) [F
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_183418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183418.jpgsave_picture_183418.jpg" />
 </div>
 
 

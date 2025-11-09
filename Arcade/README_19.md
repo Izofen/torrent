@@ -6,7 +6,7 @@ Livestream 2: Escape from Togaezuka Happy Place (2023) [Multi] (1.01) License GO
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124095.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124095.jpgsave_picture_124095.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Tools Up! (2024) [Ru/Multi] (1.06/dlc) License GOG [Ultimate Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124123.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124123.jpgsave_picture_124123.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Tonight We Riot (2020) [Ru/Multi] (pcrelease.c) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124144.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124144.jpgsave_picture_124144.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Deflector (2023) [Ru/Multi] (1.0.0.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124413.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124413.jpgsave_picture_124413.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Eternal Dread 3 (2023) [Multi] (1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124459.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124459.jpgsave_picture_124459.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Strayed Lights (2023) [Ru/Multi] (Build 11697504) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125406.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125406.jpgsave_picture_125406.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Banners of Ruin (2021) [Ru/Multi] (1.4.69/dlc) License GOG [Supporter Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127523.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127523.jpgsave_picture_127523.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ River Tails: Stronger Together (2023) [Multi] (1.0) Scene Rune
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127729.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127729.jpgsave_picture_127729.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Klonoa Phantasy Reverie Series (2022) [Multi] (1.0/dlc) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130988.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130988.jpgsave_picture_130988.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ LEGO The Lord Of The Rings / LEGO Властелин колец [Ru/En] (RePack)
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131756.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131756.jpgsave_picture_131756.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Braid [Ru/En] (RePack/1.0.1.5) 2008 | R.G. Механики
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131761.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131761.jpgsave_picture_131761.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Plants vs. Zombies (2009) [Ru/En] (1.2.0.1096) Repack dixen18 [Game of the Year 
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132182.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132182.jpgsave_picture_132182.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Gangs of Sherwood (2023) [Multi] (1.5.253310/dlc) Repack DjDI [Lionheart Edition
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134005.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134005.jpgsave_picture_134005.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Renegade Ops [Ru/En/Multi6] (Steam-Rip/13/2 DLC) 2011 | R.G. Игроманы
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135768.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135768.jpgsave_picture_135768.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Trash Sailors (2021) [Ru/Multi] (1.1.9) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137066.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137066.jpgsave_picture_137066.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Niffelheim (2018) [Ru/Multi] (1.0.12) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137205.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137205.jpgsave_picture_137205.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Kalaban (2016) [En] (1.0.2) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137256.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137256.jpgsave_picture_137256.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ Evoland Dilogy (2013-2015) [Ru/En] (1.1.2490/1.0.9135) Repack R.G. Механи�
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137588.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137588.jpgsave_picture_137588.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ The King of Fighters XIV (2017) [En/Ja] (1.25) Repack xatab
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138446.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138446.jpgsave_picture_138446.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Shank (2010) [Ru] (1.3) Repack R.G. Revenants
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138479.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138479.jpgsave_picture_138479.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Worms Revolution [Ru] (Repack/1.0/3DLC) 2012 | DiMoNFliX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138605.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138605.jpgsave_picture_138605.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Bad North (2018) [Ru/Multi] (1.05.1) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140031.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140031.jpgsave_picture_140031.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Valfaris: Mecha Therion (2023) [Ru/Multi] (1.0.3) Scene Skidrow
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140995.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140995.jpgsave_picture_140995.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Sine Mora [En] (Repack) 2012 | R.G. Origami
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141131.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141131.jpgsave_picture_141131.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Alien Shooter 2: Reloaded (2009) [Ru/En] (1.2) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141180.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141180.jpgsave_picture_141180.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ LEGO Star Wars III: The Clone Wars (2011) [Multi] (1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141252.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141252.jpgsave_picture_141252.jpg" />
 </div>
 
 

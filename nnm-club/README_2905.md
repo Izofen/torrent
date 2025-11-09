@@ -6,7 +6,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85496.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85496.jpgsave_picture_85496.jpg" />
 </div>
 
 
@@ -36,7 +36,7 @@ magnet:?xt=urn:btih:D4523542CDDEB34BC3AFCAA5DD8F9B9D8E6CF3F0
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85499.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85499.jpgsave_picture_85499.jpg" />
 </div>
 
 
@@ -69,7 +69,7 @@ magnet:?xt=urn:btih:115FFB2E629C67A4830F464BF065AF4A143DDE91
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85500.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85500.jpgsave_picture_85500.jpg" />
 </div>
 
 
@@ -99,7 +99,7 @@ DVD-приложение к журналу Upgrade Special №3-4 [март-ап
 >>Приложения к журналам
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85501.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85501.jpgsave_picture_85501.jpg" />
 </div>
 
 
@@ -124,7 +124,7 @@ magnet:?xt=urn:btih:B684EF3AF2BC10F842B23B0CA9550BB825F1BCF0
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85503.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85503.jpgsave_picture_85503.jpg" />
 </div>
 
 
@@ -148,7 +148,7 @@ Samantha Fox - Greatest Hits (2009) [MP3|320 кб/с]<Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85505.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85505.jpgsave_picture_85505.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ VA - Magic of Classic music (2012) [MP3|192-256 kbps]<Classic>
 >>Классика (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85507.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85507.jpgsave_picture_85507.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ magnet:?xt=urn:btih:D0E46F98DC7969D956D9EFB47FAE05B141B9FE90
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85508.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85508.jpgsave_picture_85508.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Christina Sturmer - [24 альбома] Дискография (2003-2010) [MP3|
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85509.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85509.jpgsave_picture_85509.jpg" />
 </div>
 
 
@@ -265,7 +265,7 @@ magnet:?xt=urn:btih:4AEB35E739FD6FCD6D2D4CC0DB7538CC7823EB2D
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85510.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85510.jpgsave_picture_85510.jpg" />
 </div>
 
 
@@ -289,7 +289,7 @@ Wise Disk Cleaner 7.15 build 472 Final + Portable [Multi(Rus)]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85511.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85511.jpgsave_picture_85511.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ Wise Disk Cleaner 7.15 build 472 Final + Portable [Multi(Rus)]
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85514.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85514.jpgsave_picture_85514.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ VA - Вечеринка В Стиле Руки Вверх! 8 (2012) [MP3|192-320
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85516.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85516.jpgsave_picture_85516.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ magnet:?xt=urn:btih:5F2B2A4EDE32CF70F0E17D9A6843AE4AE554DAC1
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85519.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85519.jpgsave_picture_85519.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ VA - Стас Михайлов поздравляет (2012) [MP3|128 kbps]<Ша
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85520.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85520.jpgsave_picture_85520.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ magnet:?xt=urn:btih:7F65B5BD00074F548E0A329275E296E17F0F5266
 >>Авторская и Военная песня (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85521.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85521.jpgsave_picture_85521.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ Europe - The Final Countdown (1986)  [APE 2.0 24/48 | tracks (VinylRip)]<hard ro
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85522.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85522.jpgsave_picture_85522.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ magnet:?xt=urn:btih:9561E9AE966EAFF6D3C5534CE24DE9BBD1CBAF96
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85524.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85524.jpgsave_picture_85524.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ VA - Популярная поп музыка (2012) [MP3|256 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85525.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85525.jpgsave_picture_85525.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ magnet:?xt=urn:btih:09A03725F3A259191860DFADEB30B49B117C7DED
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85526.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85526.jpgsave_picture_85526.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ magnet:?xt=urn:btih:DA987E41F9FA5482DA3AA9C6ECA5637F0E0519DA
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85527.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85527.jpgsave_picture_85527.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ VA - Эх, Разгуляй! Весна (2012) [MP3|128 kbps]<Шансон>
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85528.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85528.jpgsave_picture_85528.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ magnet:?xt=urn:btih:4D810A41A3A1E266780479D1E267E3DD9648824F
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85529.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85529.jpgsave_picture_85529.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ magnet:?xt=urn:btih:4E8441C646E1FC2978773E0FC5CC87AE3D0A90C2
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85530.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85530.jpgsave_picture_85530.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ magnet:?xt=urn:btih:D7248FA719F4CA841053EF0DF2F802F998C1BF3A
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85532.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85532.jpgsave_picture_85532.jpg" />
 </div>
 
 
@@ -705,7 +705,7 @@ magnet:?xt=urn:btih:0ABEDA4896664E5538E3FF8D546F7CEF0FD3D0DC
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85533.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85533.jpgsave_picture_85533.jpg" />
 </div>
 
 

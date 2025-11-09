@@ -6,7 +6,7 @@ NirLauncher Package 1.30.21 Portable [Ru/En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_201871.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_201871.jpgsave_picture_201871.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ AnyDesk 9.6.3 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202028.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202028.jpgsave_picture_202028.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Screenpic 0.15.2 [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202131.jpgsave_picture_202131.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Deluge 2.1.1 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202145.jpgsave_picture_202145.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:727C9753605D8DCCBD9376BDC315874D92CFC482
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202194.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202194.jpgsave_picture_202194.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Internet Download Manager 6.42 Build 52 RePack by elchupacabra [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202209.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202209.jpgsave_picture_202209.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Reg Organizer 9.89 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202215.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202215.jpgsave_picture_202215.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ ABBYY Screenshot Reader 16.0.14.7295 Portable by Conservator (x64) [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202229.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202229.jpgsave_picture_202229.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ Floorp Browser 12.3.4 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202410.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202410.jpgsave_picture_202410.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ magnet:?xt=urn:btih:00C4F3999DAB08047FF9A2D4CF79EB5624865DA9
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202445.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202445.jpgsave_picture_202445.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Hetman Partition Recovery 4.6 Home / Office / Commercial / Unlimited Edition ReP
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202508.jpgsave_picture_202508.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Screen Translator 3.3.0 [Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202538.jpgsave_picture_202538.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Scrivener 3.1.4.0 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202544.jpgsave_picture_202544.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Nekonverter 1.3.0 [Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202552.jpgsave_picture_202552.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ GenoPro 2020 3.1.0.1 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202574.jpgsave_picture_202574.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Total Uninstall 7.3.1 Professional Portable by 7997 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202655.jpgsave_picture_202655.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Total Uninstall 7.3.1 Professional Edition [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202702.jpgsave_picture_202702.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ WinExt Pro 30.0 (ключ COMSS) [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202704.jpgsave_picture_202704.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ USB Oblivion 1.17.0.0 Portable [Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202716.jpgsave_picture_202716.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ R-Studio Network 9.2 Build 191126 Portable by 7997 [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202725.jpgsave_picture_202725.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Magic Uneraser Home / Office / Commercial Edition 6.9 RePack (& Portable) by Try
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203193.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203193.jpgsave_picture_203193.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Kate 23.08.0 Build 2141 + Portable [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203201.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203201.jpgsave_picture_203201.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ iSpy 7.2.6.0 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203386.jpgsave_picture_203386.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Hetman Internet Spy Unlimited Edition 3.8 RePack (& Portable) by elchupacabra [M
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203494.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203494.jpgsave_picture_203494.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ AeroAdmin 4.9 сборка 3612 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203568.jpgsave_picture_203568.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Sidebar Diagnostics 3.6.3 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204116.jpgsave_picture_204116.jpg" />
 </div>
 
 

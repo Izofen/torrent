@@ -6,7 +6,7 @@
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109489.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109489.jpgsave_picture_109489.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:B0DFC19053D65F87FEB6E098D698094254FF4FC1
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109490.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109490.jpgsave_picture_109490.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Pain - I Am (2024) [FLAC|Lossless|WEB-DL|tracks] <Industrial Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109491.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109491.jpgsave_picture_109491.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Abstruct - Wallpapers in 4K 2.9 Mod by TryRoom [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109492.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109492.jpgsave_picture_109492.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ VA - Kraftsport Mix 2024 [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109493.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109493.jpgsave_picture_109493.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ PortableApps.com Platform 29.5.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109494.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109494.jpgsave_picture_109494.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ magnet:?xt=urn:btih:98E1F68E137B527ACEA5157FDE80701A702F87B0
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109495.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109495.jpgsave_picture_109495.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ FolderSizes Enterprise 9.6.483 (Repack & Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109496.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109496.jpgsave_picture_109496.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ Moon+ Reader Pro v9.4 (b904000) Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109497.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109497.jpgsave_picture_109497.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ magnet:?xt=urn:btih:5C57357B7F0FD5945352E4EF5666332444336BFD
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109498.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109498.jpgsave_picture_109498.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ VueScan Pro 9.8.33 Portable by 7997 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109499.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109499.jpgsave_picture_109499.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ magnet:?xt=urn:btih:DC36E8AA90E80BBF29F1839CF3AD91F49421B07F
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109500.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109500.jpgsave_picture_109500.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Red Dead Halo - No Country For Despicable Men (2024) [FLAC|Lossless|WEB-DL|track
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109501.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109501.jpgsave_picture_109501.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Pain - I Am (2024) [MP3|320 Kbps] <Industrial Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109502.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109502.jpgsave_picture_109502.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ VA - The Disco Rock Years (2022) [FLAC|Lossless|WEB-DL|tracks] <Disco. Pop, Rock
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109503.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109503.jpgsave_picture_109503.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Busuu - изучение языков 31.22.0(1019875) Mod by maxi123444 [Ru/Mul
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109504.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109504.jpgsave_picture_109504.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Viber 22.7.0.0 (x64) RePack (Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109505.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109505.jpgsave_picture_109505.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ magnet:?xt=urn:btih:3A93C6B2DD5405B4FB1A49167D5D45C28EB46C3F
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109506.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109506.jpgsave_picture_109506.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ PrivaZer Pro 4.0.85 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109507.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109507.jpgsave_picture_109507.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Strava: бег, велоезда, хайкинг v359.19 Mod by ReVanced Team [R
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109508.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109508.jpgsave_picture_109508.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ magnet:?xt=urn:btih:14AF7295CDFBDD8B2D515966C242A8743258946C
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109509.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109509.jpgsave_picture_109509.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ VA - Music News vol.376 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109510.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109510.jpgsave_picture_109510.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ magnet:?xt=urn:btih:E8EAB850A250A2843E403D7B536F8FC98AC56CB1
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109511.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109511.jpgsave_picture_109511.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Soul Browser 1.4.19 Mod by youarefinished [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109512.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109512.jpgsave_picture_109512.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ magnet:?xt=urn:btih:52190F04DEE43F890F59C21C83526C2F068539B6
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109513.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109513.jpgsave_picture_109513.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Soul Browser 1.4.19 Mod by derrin [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109514.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109514.jpgsave_picture_109514.jpg" />
 </div>
 
 

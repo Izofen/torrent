@@ -6,7 +6,7 @@ Resurrection of mind (2024) [Ru/En] (Build 15055615) Repack Other s
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48613.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48613.jpgsave_picture_48613.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:2ACF01DFEDBC0083ECC40964DE3EEDA10043C6D7
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48614.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48614.jpgsave_picture_48614.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:A1319B05EE518ADEFC2FCDC83BD8031CF2DAC2F0
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48615.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48615.jpgsave_picture_48615.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:622FC0878E280BC19C0F1E085535FF6E93470AE8
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48616.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48616.jpgsave_picture_48616.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:D81546364F6EB02B7D116F7039193347CCA90317
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48617.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48617.jpgsave_picture_48617.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:85DE32BAE1FC8877E859D514FEC6996DD9FC3EB4
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48618.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48618.jpgsave_picture_48618.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:334649E1BC5A94E7CCC2FDBA35161E3EBF368FBA
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48619.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48619.jpgsave_picture_48619.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:C449E1D14EA6BB8FD3A7B76E8EE37D8F7D205370
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48620.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48620.jpgsave_picture_48620.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:7D278B5AE7A2E3657B256D328090A3B47C2765D6
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48621.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48621.jpgsave_picture_48621.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:7D278B5AE7A2E3657B256D328090A3B47C2765D6
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48622.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48622.jpgsave_picture_48622.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:AAC7C7E91E2A16A5D6EBB489C815F7FAF4DC8135
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48623.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48623.jpgsave_picture_48623.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Drug Dealer Simulator 2 (2024) [Ru/Multi] (1.0.2) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48624.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48624.jpgsave_picture_48624.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:B7D04D5A7EC280CDFB5043BE80A8DA9E9ED5842B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48625.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48625.jpgsave_picture_48625.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ magnet:?xt=urn:btih:98D0A88A84B28F8ACB8459F46C32E52279D4C3E2
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48626.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48626.jpgsave_picture_48626.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ magnet:?xt=urn:btih:12AD6C284330066E7ED08105C8229B556FED436C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48627.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48627.jpgsave_picture_48627.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ House Party (2017) [Ru/Multi] (1.3.3.12714/dlc) License GOG [18+]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48628.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48628.jpgsave_picture_48628.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ EOBD Facile: OBD 2 авто сканер v3.63.1047 Mod by derrin, NURIK kz [Ru/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48629.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48629.jpgsave_picture_48629.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ magnet:?xt=urn:btih:B097E2ABA0A99D54FC6230C7F4216BD7320F0894
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48630.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48630.jpgsave_picture_48630.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Kono Subarashii Sekai ni Shukufuku wo! 3 | Konosuba 3 | Да благослов�
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48631.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48631.jpgsave_picture_48631.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ magnet:?xt=urn:btih:577DE0A0369526DFDC263F3454C3D4516F0530DA
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48632.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48632.jpgsave_picture_48632.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ magnet:?xt=urn:btih:2344A7796005B6DACB051FFB14F793F1918DB474
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48633.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48633.jpgsave_picture_48633.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ magnet:?xt=urn:btih:E95A68DE3B74106A73D640869A9ADE899417B074
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48634.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48634.jpgsave_picture_48634.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ magnet:?xt=urn:btih:1E3B9D1DC7C828622583B539DF992ABE88F27D5D
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48635.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48635.jpgsave_picture_48635.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ The Messenger (2018) [Ru/Multi] (2.0.4/dlc) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48636.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48636.jpgsave_picture_48636.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ VA - Ностальгия 8 NNM-Remix (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48637.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48637.jpgsave_picture_48637.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Rush - 22 Studio Albums, 12 Live, 9 Compilation (1974 - 2015) 116 CD [FLAC|Lossl
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48638.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48638.jpgsave_picture_48638.jpg" />
 </div>
 
 

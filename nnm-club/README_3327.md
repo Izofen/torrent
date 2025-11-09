@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106863.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106863.jpgsave_picture_106863.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106864.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106864.jpgsave_picture_106864.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ TeknoVore - Caerdroia (2024) [FLAC|Lossless|WEB-DL|tracks] <Dark Electro, Hard T
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106865.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106865.jpgsave_picture_106865.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:F06E5AB30E863CA78B028F86CB9392BCB9831901
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106866.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106866.jpgsave_picture_106866.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ magnet:?xt=urn:btih:86FD6DDD2C3EB661D78A1785A101F82082C0EA12
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106867.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106867.jpgsave_picture_106867.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ Simone Kopmajer - Hope (2024) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106868.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106868.jpgsave_picture_106868.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ magnet:?xt=urn:btih:33D2F260D71A38361AB0D89B9B868090F424E465
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106869.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106869.jpgsave_picture_106869.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ magnet:?xt=urn:btih:44F44DB6E4F272286CDF0FCBAEE97C77DFA67AAA
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106870.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106870.jpgsave_picture_106870.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ OCCT 13.1.0 Final Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106871.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106871.jpgsave_picture_106871.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ Glary Utilities Pro 6.12.0.16 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106872.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106872.jpgsave_picture_106872.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ magnet:?xt=urn:btih:B3E78F611F4F39A49FD3235FFE82D03B41BBE7B5
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106873.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106873.jpgsave_picture_106873.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ MetaX 2.88 [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106874.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106874.jpgsave_picture_106874.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ magnet:?xt=urn:btih:2DC61A5B47F4AD5029B50103ECE06AF7A4DC74C7
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106875.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106875.jpgsave_picture_106875.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ BurnAware Professional 17.9 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106876.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106876.jpgsave_picture_106876.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Wondershare PDFelement 10.4.6.2776 + OCR Plugin (x64) Portable by 7997 [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106877.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106877.jpgsave_picture_106877.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ magnet:?xt=urn:btih:B91A6CBAB27E003D2C5085A249199F1FA5D4289D
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106878.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106878.jpgsave_picture_106878.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ Glary Tracks Eraser 6.0.1.10 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106879.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106879.jpgsave_picture_106879.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Image Uploader 1.4.1 Build 5176 Nightly + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106880.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106880.jpgsave_picture_106880.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ magnet:?xt=urn:btih:41A250396D943CDA5D6DF46CF4CC9A91AE91BFB8
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106881.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106881.jpgsave_picture_106881.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Quinn Sullivan - Salvation (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Roc
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106882.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106882.jpgsave_picture_106882.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ Aiseesoft Video Converter Ultimate 10.8.50 RePack (& Portable) by elchupacabra [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106883.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106883.jpgsave_picture_106883.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Draw.io 24.6.4 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106884.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106884.jpgsave_picture_106884.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Lag - Asleep Behind the Wheel (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106885.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106885.jpgsave_picture_106885.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Sabïre - Jätt (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106886.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106886.jpgsave_picture_106886.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Sear Bliss - Heavenly Down (2024) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Bla
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106887.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106887.jpgsave_picture_106887.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ Sunbomb - Light Up The Sky (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Metal>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106888.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106888.jpgsave_picture_106888.jpg" />
 </div>
 
 

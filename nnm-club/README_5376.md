@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166646.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166646.jpgsave_picture_166646.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:54ED7D9633F88C41054A8FA06602C35E54B5B3FF
 >>Сатира, Юмор
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166647.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166647.jpgsave_picture_166647.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Logic Pro X 10.7.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166648.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166648.jpgsave_picture_166648.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:97E2B5B44780E6850955AB90418805ADE751A8C5
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166649.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166649.jpgsave_picture_166649.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:9D9E7FF4A5CCA916DE9783A4596176F8951C687A
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166650.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166650.jpgsave_picture_166650.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:A2513FC86EED01037F607AE13CB21BB9AA99A20D
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166651.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166651.jpgsave_picture_166651.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Discovery: Nasa и SpaceX: путешествие в будущее / NASA and S
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166652.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166652.jpgsave_picture_166652.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ XnViewMP 0.98.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166653.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166653.jpgsave_picture_166653.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:918C24967F09AB3C8FA4A7EEBE4B43A32C87B188
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166654.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166654.jpgsave_picture_166654.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:C794959C1CAF640A8D6C2F5BD10544F1B8E5DE9D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166655.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166655.jpgsave_picture_166655.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:8F46E52E5672A7D07C0D813D7A15C1E4F643C281
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166656.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166656.jpgsave_picture_166656.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ NG: Неразгаданные тайны Солнца / Dark Secrets of the Sun
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166657.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166657.jpgsave_picture_166657.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ PhotoScape X Pro 3.0.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166658.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166658.jpgsave_picture_166658.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ magnet:?xt=urn:btih:B61B4BA179F4BB6DCC32C4469509C8C3F2351FD9
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166659.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166659.jpgsave_picture_166659.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ magnet:?xt=urn:btih:3376306D0432750FF8F25751E955C95F34083ABA
 >>Классическая поэзия и проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166660.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166660.jpgsave_picture_166660.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ The Bat! Professional 9.3.1.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166661.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166661.jpgsave_picture_166661.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ magnet:?xt=urn:btih:D8B305CE02EBA6A111C90919F6237F1A7FE5F99B
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166662.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166662.jpgsave_picture_166662.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ magnet:?xt=urn:btih:EC3617D3719D7B4D3E14B321E337E8E6A0003A91
 >>История
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166663.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166663.jpgsave_picture_166663.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ ASoft .NET Version Detector 21 R1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166664.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166664.jpgsave_picture_166664.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ magnet:?xt=urn:btih:89565A63822EA7463BAC5A326D3CF1BC03F88938
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166666.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166666.jpgsave_picture_166666.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ iRingg 1.0.43 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166667.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166667.jpgsave_picture_166667.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ NIUBI Partition Editor 7.6.7 Professional / Technician / Server / Enterprise Edi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166668.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166668.jpgsave_picture_166668.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ FilePane 1.10.7 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166669.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166669.jpgsave_picture_166669.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ EIZO Japan - Super anime song - Legend of the 1990's (2010) [WavPack|Lossless|im
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166670.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166670.jpgsave_picture_166670.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ magnet:?xt=urn:btih:D24CCE1EDF2BAE94C21504C4E4C6AD8F1E718F32
 >>История
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166671.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166671.jpgsave_picture_166671.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ Estas Tonne - 27 Синглов (2006-2020) [FLAC|Lossless|WEB-DL|tracks] <Instr
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166672.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166672.jpgsave_picture_166672.jpg" />
 </div>
 
 

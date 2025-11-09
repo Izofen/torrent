@@ -6,7 +6,7 @@ Fort Firewall 3.9.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244612.jpgsave_picture_244612.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Mortuary Drape - Necromantic Doom Returns (2018) [FLAC|Lossless|image + .cue] <B
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244613.jpgsave_picture_244613.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Peppa Pig: World Adventures [6+] (2023) [Multi] (1.0) Scene Tenoke
 >>Детские Игры
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244614.jpgsave_picture_244614.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Glarysoft Malware Hunter PRO 1.164.0.781 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244615.jpgsave_picture_244615.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:9FA6C8D26964D64B99B91AABFDA67EEE1D106B9F
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244616.jpgsave_picture_244616.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Ella Fitzgerald - BD Jazz (1945 - 1952) 2CD, 2003, Nocturne [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244617.jpgsave_picture_244617.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ Mal Waldron - Up Popped the Devil (1973) 2003, Enja Records[FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244618.jpgsave_picture_244618.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ Dropshare 5.10 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244619.jpgsave_picture_244619.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ magnet:?xt=urn:btih:7AB7AFBF5E960C041852A315ABBCE45C733216C1
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244620.jpgsave_picture_244620.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ Peter Erskine - Dr. Um (2016) Fuzzy Music [FLAC|Lossless|tracks + .cue] <Jazz Fu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244621.jpgsave_picture_244621.jpg" />
 </div>
 
 
@@ -262,7 +262,7 @@ Avi Rosenfeld & Lain Barbier - Seasons Blues (2023) [MP3|320 Kbps] <Classic Rock
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244622.jpgsave_picture_244622.jpg" />
 </div>
 
 
@@ -289,7 +289,7 @@ VA - Romantic Collection: Woman In Love (2000) [OGG Vorbis|480 Kbps] <Electronic
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244623.jpgsave_picture_244623.jpg" />
 </div>
 
 
@@ -316,7 +316,7 @@ magnet:?xt=urn:btih:4635AADBCB67329713A7F1437350C9F294B08CD3
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244624.jpgsave_picture_244624.jpg" />
 </div>
 
 
@@ -341,7 +341,7 @@ Bad Frankenhausen - Eins (2016) [MP3|320 Kbps] <Heavy Metal, Hard Rock>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244625.jpgsave_picture_244625.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ magnet:?xt=urn:btih:DD42EA5650961F5BCB45D38450C6CEB892175D30
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244626.jpgsave_picture_244626.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ Scrutiny 10 v10.3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244627.jpgsave_picture_244627.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ Tales Of A Liquid Dawn - 2 Albums (2022) [MP3|320 Kbps] <Progressive Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244628.jpgsave_picture_244628.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ Sandboxie 5.63.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244629.jpgsave_picture_244629.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Jason - Justiciero Arcaico (1997) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244630.jpgsave_picture_244630.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ magnet:?xt=urn:btih:6D582B237330841BFB6194EFAE2EB3E6A0B6AE0F
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244631.jpgsave_picture_244631.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:85D08A998FA83F53507E5F88D12AF26B9A6A992C
 >>КВН
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244632.jpgsave_picture_244632.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Multitouch 1.24.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244633.jpgsave_picture_244633.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ VA - Ambient Top Summer 2016 (2016) [MP3|320 Kbps] <Balearic, Downtempo>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244634.jpgsave_picture_244634.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ magnet:?xt=urn:btih:045C6AA7004176A3974809E6D4E2E66D70F96457
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244635.jpgsave_picture_244635.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ magnet:?xt=urn:btih:382228C7E34129683E482D4094417021B12F3640
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244636.jpgsave_picture_244636.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ magnet:?xt=urn:btih:C27530047E3DA0B36BD4C4EAB933BC29EF825DA9
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244637.jpgsave_picture_244637.jpg" />
 </div>
 
 

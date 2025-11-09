@@ -6,7 +6,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105875.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105875.jpgsave_picture_105875.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ RRR. Рядом ревёт революция / RRR / Rise Roar Revolt (2022) BD
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105876.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105876.jpgsave_picture_105876.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ StartAllBack 3.8.1 build 5111 (DC-02-08-2024) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105877.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105877.jpgsave_picture_105877.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:D097F51ABBD5FFF66EE5C680B0C83A3D405CE14C
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105878.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105878.jpgsave_picture_105878.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:0F94C18E33053C3D3B190EA7A0D3B3EE8902D627
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105879.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105879.jpgsave_picture_105879.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:0F94C18E33053C3D3B190EA7A0D3B3EE8902D627
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105880.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105880.jpgsave_picture_105880.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:C309BC85BB6C6AD131D22E1E678CE5078581A77A
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105881.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105881.jpgsave_picture_105881.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:30D716A3B22BD895F58FACCF07CCEFF6A4207B49
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105882.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105882.jpgsave_picture_105882.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ RRR. Рядом ревёт революция / RRR / Rise Roar Revolt (2022) BD
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105883.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105883.jpgsave_picture_105883.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ magnet:?xt=urn:btih:2EE5BFF5280FDDC4615EAAA3C34F74AEC244039E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105884.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105884.jpgsave_picture_105884.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ magnet:?xt=urn:btih:2EE5BFF5280FDDC4615EAAA3C34F74AEC244039E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105885.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105885.jpgsave_picture_105885.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ magnet:?xt=urn:btih:2EE5BFF5280FDDC4615EAAA3C34F74AEC244039E
 >>Экранки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105886.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105886.jpgsave_picture_105886.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ magnet:?xt=urn:btih:2704719C45281438490D393428A32F42CB944482
 >>Экранки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105887.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105887.jpgsave_picture_105887.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ magnet:?xt=urn:btih:93ACFBF042C5489991A76FE7116203E5BCB9618D
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105888.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105888.jpgsave_picture_105888.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ magnet:?xt=urn:btih:ACFBF3B5A872A3E6D37FC39595D590B461150B95
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105889.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105889.jpgsave_picture_105889.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ magnet:?xt=urn:btih:49586BC26CF24BD698AA4FDEA30A9697CCC6E563
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105890.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105890.jpgsave_picture_105890.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ magnet:?xt=urn:btih:9DBD20F589A7E418E5704568AF8ED5B5426E81D1
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105891.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105891.jpgsave_picture_105891.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Twilight Force - Studio Albums (4 releases) (2014-2023) hand made [restored, dec
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105892.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105892.jpgsave_picture_105892.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ Big Steel Train - #BST24 (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Country R
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105893.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105893.jpgsave_picture_105893.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ Jan Wouter Oostenrijk - Maghreb Jazz Guitar (2024) [FLAC 24/44.1|Lossless|WEB-DL
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105894.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105894.jpgsave_picture_105894.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Bria Skonberg - What It Means (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Vocal 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105895.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105895.jpgsave_picture_105895.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Immanuel Trio - Divinity (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105896.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105896.jpgsave_picture_105896.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Emaginario - Interlude of the Duende (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105897.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105897.jpgsave_picture_105897.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Sarke - Endo Feight (2024) [FLAC|Lossless|WEB-DL|tracks] <Black, Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105898.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105898.jpgsave_picture_105898.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ HPM & Vega - Game On (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105899.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105899.jpgsave_picture_105899.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Connor Sablan - Hot Pot (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105900.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105900.jpgsave_picture_105900.jpg" />
 </div>
 
 

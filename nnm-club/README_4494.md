@@ -6,7 +6,7 @@
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140551.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140551.jpgsave_picture_140551.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:CAC345BD46AFF2C2DBD7F29AA8AC529E02218288
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140552.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140552.jpgsave_picture_140552.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Liveclasses, Дмитрий Шатров | Affinity Photo: быстрый ста
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140553.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140553.jpgsave_picture_140553.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Just Before Dawn - Precis innan gryningen (2013) [FLAC|Lossless|image + .cue] <D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140554.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140554.jpgsave_picture_140554.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Ford против Ferrari / Ford v Ferrari (2019) WEBRip [Line, AD]
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140555.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140555.jpgsave_picture_140555.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Comedy Woman. 10 лет (2017.12.29) HDTV [H.264/1080i]
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140556.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140556.jpgsave_picture_140556.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:DBDD479B7DD7D8977C7A5337F7CE7F12F8CF4FAF
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140557.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140557.jpgsave_picture_140557.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:32729143E35A249A0739799EDED8A1E2718F316A
 >>Зарубежная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140558.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140558.jpgsave_picture_140558.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:2CBD6658A37DD8D86481EADB02222D592A07D62D
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140560.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140560.jpgsave_picture_140560.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ Compass - A Silent Symphony (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progre
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140561.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140561.jpgsave_picture_140561.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ Greta Van Fleet - Always There (2019) [AAC|~344 Kbps] <Rock, Score>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140562.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140562.jpgsave_picture_140562.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ magnet:?xt=urn:btih:70779C5227023E33944EEE7F66ED7D05AD7D07BE
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140563.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140563.jpgsave_picture_140563.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ magnet:?xt=urn:btih:70779C5227023E33944EEE7F66ED7D05AD7D07BE
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140564.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140564.jpgsave_picture_140564.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ magnet:?xt=urn:btih:FFCECCBFE726755506400DB4A3EF1A7D26216B36
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140565.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140565.jpgsave_picture_140565.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ One Click Hide 1.0.0.78 [Ru] (Авторская раздача)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140566.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140566.jpgsave_picture_140566.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Dare - 8 Albums (1988 - 2016) 8CD [FLAC|Lossless|image + .cue] <Melodic Hard Roc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140567.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140567.jpgsave_picture_140567.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ magnet:?xt=urn:btih:7713C7796F193170AA8BB469FE187BDDF79E7071
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140568.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140568.jpgsave_picture_140568.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ magnet:?xt=urn:btih:6904143BF28855EE9E32B1E82AE68A973557F4CA
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140569.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140569.jpgsave_picture_140569.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ magnet:?xt=urn:btih:EE8D6BE7B2E9DC7DC5171E7A1542207A6BACC015
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140570.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140570.jpgsave_picture_140570.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Aiseesoft AnyCoord for Mac 1.0.26 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140571.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140571.jpgsave_picture_140571.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Cisdem Video Player 5.6.0 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140572.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140572.jpgsave_picture_140572.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ magnet:?xt=urn:btih:AAF24FBB9A2D8D0645FCEE2BC7254714BF485CB6
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140573.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140573.jpgsave_picture_140573.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ magnet:?xt=urn:btih:0F2E454E25A7FD84037560D4E5AD49D5803EAB97
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140574.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140574.jpgsave_picture_140574.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ magnet:?xt=urn:btih:819C32C66A62FB287D96D5D02EABDDBFB3199FC9
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140576.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140576.jpgsave_picture_140576.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ magnet:?xt=urn:btih:9DB6695935DAD0B3E492F7ED4A932D0F912D941B
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140577.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140577.jpgsave_picture_140577.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ magnet:?xt=urn:btih:574F3098B0988832062971E485EC1A714B6ACF76
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140578.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140578.jpgsave_picture_140578.jpg" />
 </div>
 
 

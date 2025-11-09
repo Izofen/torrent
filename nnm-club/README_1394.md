@@ -6,7 +6,7 @@ Once Alive (2024) [Ru/Multi] (0.9.9.8) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36599.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36599.jpgsave_picture_36599.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:36BEFEFD76DEE459A97B06556DE9A8A6A97CE011
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36600.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36600.jpgsave_picture_36600.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Bullet Runner (2024) [En] (1.2.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36601.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36601.jpgsave_picture_36601.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Marilyn Manson - One Assassination Under God: Chapter 1 (2024) [MP3|320kbps] <In
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36602.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36602.jpgsave_picture_36602.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Queen - Queen I (1973) 2xCD, SHM-CD, Japanese Edition, Reissue, Remastered, 2024
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36603.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36603.jpgsave_picture_36603.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:B50C7AFB57B02F63AFC65243696E5653F6B9EC04
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36604.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36604.jpgsave_picture_36604.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:99219D826C7EFC93F9BE9A1DDA52D6384CDA4FF2
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36605.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36605.jpgsave_picture_36605.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:CAB6B3069106D7A0C908C25FB07ED964CF5FD40C
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36606.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36606.jpgsave_picture_36606.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ magnet:?xt=urn:btih:861D4235F3B68A7C6B681A5A0853184A4F2958F8
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36607.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36607.jpgsave_picture_36607.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ magnet:?xt=urn:btih:F8580919032162E08AF84740189E5F88DA57F330
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36608.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36608.jpgsave_picture_36608.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:47D51C254A52079A90B8769878D3AA117D673E32
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36609.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36609.jpgsave_picture_36609.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:03BCACB71971BD4A63A19E231A417E6C4B1D2391
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36610.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36610.jpgsave_picture_36610.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:EAFDAA00D576D40CB7DA6B1A0EE5E36F2FB989F3
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36611.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36611.jpgsave_picture_36611.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ magnet:?xt=urn:btih:2C0A1BB28FD4E18837FEEF653E19350A0C0E7B67
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36612.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36612.jpgsave_picture_36612.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ magnet:?xt=urn:btih:2C0A1BB28FD4E18837FEEF653E19350A0C0E7B67
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36613.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36613.jpgsave_picture_36613.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ magnet:?xt=urn:btih:2FE123C789E378E667C56DEDED04B41CF3111165
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36614.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36614.jpgsave_picture_36614.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ magnet:?xt=urn:btih:6B8410AA2C87FFE33AC639553459A70A1429A1FE
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36615.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36615.jpgsave_picture_36615.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ magnet:?xt=urn:btih:F50581B7E6376FDF2956E541717E01CC129917F7
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36616.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36616.jpgsave_picture_36616.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Rainbow - Colour Collection (2007) [FLAC|Lossless]<Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36617.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36617.jpgsave_picture_36617.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Rainbow - Star Collection (2010) 4CD Boxset[MP3|320 кб/с]<Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36618.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36618.jpgsave_picture_36618.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Disney Dreamlight Valley (2023) [Multi] (1.14.1.990/dlc) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36619.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36619.jpgsave_picture_36619.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ magnet:?xt=urn:btih:B0A870EE4CE919B07AC61F817DE97A0949989B34
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36620.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36620.jpgsave_picture_36620.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ The Devil Within: Satgat (2024) [Multi] (1.0) Scene Rune
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36621.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36621.jpgsave_picture_36621.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ magnet:?xt=urn:btih:8EE79E7745E029B6C7989DB5C45371A1435CA5AB
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36622.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36622.jpgsave_picture_36622.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ magnet:?xt=urn:btih:F74E026B71A1DF873658B061BF438C0AB3CF278E
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36623.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36623.jpgsave_picture_36623.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ magnet:?xt=urn:btih:8DCC899B5FE999B2D143C3A400EC036E0F07EE8B
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36624.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36624.jpgsave_picture_36624.jpg" />
 </div>
 
 

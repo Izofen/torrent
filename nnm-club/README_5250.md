@@ -6,7 +6,7 @@ Windows Server, Version 1909 (10.0.18363.535) - Оригинальные обр�
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163281.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163281.jpgsave_picture_163281.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:E20687B2BB28A339CDC595EF9C77B7E3ADB444B6
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163282.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163282.jpgsave_picture_163282.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ PowerPhotos 1.9.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163283.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163283.jpgsave_picture_163283.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Windows Server 2019 LTSC 1809 (build 17763.914) updated_December_2019 - Ориг
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163284.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163284.jpgsave_picture_163284.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:307C14C029D4C0F5CF374AE39E94CC7E837DD26B
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163285.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163285.jpgsave_picture_163285.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ SaviorSkin - Omnipotence of the Absolute (2020) [FLAC|Lossless|tracks + .cue] <G
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163286.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163286.jpgsave_picture_163286.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Def Leppard - High ’n’ Dry (1981) Japanese Edition, Reissue, Remastered, 202
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163287.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163287.jpgsave_picture_163287.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ iTrash 5 v5.3.3 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163288.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163288.jpgsave_picture_163288.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ K-Lite Codec Pack Update 17.9.1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163289.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163289.jpgsave_picture_163289.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ Theragon - Where the Stories Begin (2020) [MP3|320 Kbps] <Power-Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163290.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163290.jpgsave_picture_163290.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ magnet:?xt=urn:btih:58D06DCA2E5C150B03BCE7A160BEA757834849C0
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163291.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163291.jpgsave_picture_163291.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ magnet:?xt=urn:btih:B03A85579D7A415898DC4CCB63AE14933FA97722
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163292.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163292.jpgsave_picture_163292.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:252CE09B7C726720D24E9EE9B0E579FB8A9670A5
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163293.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163293.jpgsave_picture_163293.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ magnet:?xt=urn:btih:8D0ACBEAFF0D68E9050241098B2EEA51E9A554F6
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163294.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163294.jpgsave_picture_163294.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ magnet:?xt=urn:btih:76D073AB8BB5DB9534E4F6F232AC0521ACF15032
 >>Футбол. Чемпионаты мира
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163295.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163295.jpgsave_picture_163295.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ magnet:?xt=urn:btih:03F51637EC40C2C2DCDB04826C53E660C5FE1A3E
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163296.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163296.jpgsave_picture_163296.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ magnet:?xt=urn:btih:FE093DE79BBC60C431A28562B1CA63C45A7BECE1
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163297.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163297.jpgsave_picture_163297.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ magnet:?xt=urn:btih:4379F7943FE2BB6477FA871C53AD05BEB651B289
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163299.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163299.jpgsave_picture_163299.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ magnet:?xt=urn:btih:F290F4BC206F92867E2C3513DC5A7ABA44560199
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163300.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163300.jpgsave_picture_163300.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ magnet:?xt=urn:btih:DED5F793B9B816696C900BABFFAF7BC0247E45B5
 >>Футбол. Чемпионаты мира
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163301.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163301.jpgsave_picture_163301.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ magnet:?xt=urn:btih:7C4F7CA6354290EE138191F21ABEC5B69A29B40F
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163302.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163302.jpgsave_picture_163302.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ Siskin - We Are Siskin (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Trance>
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163303.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163303.jpgsave_picture_163303.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Topaz Gigapixel AI 4.4.5 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163304.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163304.jpgsave_picture_163304.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ Gumroad, Tim Bergholz | Blade Tutorial (2016) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163305.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163305.jpgsave_picture_163305.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ magnet:?xt=urn:btih:1C1EAAC6A4FB2F6221BCFD2C2C1A973560155BF1
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163306.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163306.jpgsave_picture_163306.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ NeoOffice 2017.23 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163307.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163307.jpgsave_picture_163307.jpg" />
 </div>
 
 

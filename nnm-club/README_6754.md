@@ -6,7 +6,7 @@ R-Wipe & Clean 20.0.2413 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232351.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232351.jpgsave_picture_232351.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:7393AE503A61F0006F3DF34A7879908B4832360E
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232352.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232352.jpgsave_picture_232352.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Omni Toolbox 1.4.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232353.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232353.jpgsave_picture_232353.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:2A6954B08897EB74A57D2583CBB314CB37BA5E2F
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232355.jpgsave_picture_232355.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ Tipard DVD Ripper for Mac 10.0.52 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232357.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232357.jpgsave_picture_232357.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:15383D6D2070606C5A678133259AC08E37FB5B32
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232359.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232359.jpgsave_picture_232359.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:FFC1A5F565A55ED5D64FC58F174990D50B06A284
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232360.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232360.jpgsave_picture_232360.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Horace Silver Quintet - The Stylings Of Silver (1957) 1996, Toshiba-EMI [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232362.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232362.jpgsave_picture_232362.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ Simply Red - Time (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop, Funk, Soul>
 >>Pop (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232363.jpgsave_picture_232363.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ magnet:?xt=urn:btih:FCA3FDF313198B34D764AE87D3AF138B87E8B717
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232365.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232365.jpgsave_picture_232365.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ MediaHuman YouTube Downloader 3.9.9.84 (1407) RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232366.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232366.jpgsave_picture_232366.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ magnet:?xt=urn:btih:762F0E37FA99A10F58FD8FA5311EA4532D923EB0
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232367.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232367.jpgsave_picture_232367.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ Horace Silver - And The Jazz Messengers (1955) 1987, Blue Note [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232369.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232369.jpgsave_picture_232369.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ magnet:?xt=urn:btih:D50EBEB4DDB70686658AB701FA741180F01C71FF
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232370.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232370.jpgsave_picture_232370.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ magnet:?xt=urn:btih:9577DFC37673EEC5186CBFD0E4891548A757BEA5
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232372.jpgsave_picture_232372.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ magnet:?xt=urn:btih:001E87261E57B546085F5107400359894A43DD2F
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232373.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232373.jpgsave_picture_232373.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ BalenaEtcher 1.18.9 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232374.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232374.jpgsave_picture_232374.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ magnet:?xt=urn:btih:F788824DDDB225D6D34D0DC798AB07EECD054459
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232375.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232375.jpgsave_picture_232375.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ magnet:?xt=urn:btih:666BB2F4D796467FEEDC02636AD81997D96E1E33
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232376.jpgsave_picture_232376.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ FastScripts 3.2.7 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232379.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232379.jpgsave_picture_232379.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Free Hex Editor Neo 7.35.00.8564 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232380.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232380.jpgsave_picture_232380.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Dreadhammer - Sovereign (2023) [MP3|320 Kbps] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232381.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232381.jpgsave_picture_232381.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Thomas Hardin Trio - Jazz de kiku Chopin (2006) Victor Entertainment [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232383.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232383.jpgsave_picture_232383.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ magnet:?xt=urn:btih:80DD2872C5A44F1CECE37E47D5D1EE9BA1AB424A
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232385.jpgsave_picture_232385.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Marked 2 - Markdown Preview 2.6.25 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232386.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232386.jpgsave_picture_232386.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ magnet:?xt=urn:btih:2A2DE9772F3D920F73A289FE0D77D2110402AC78
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232387.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232387.jpgsave_picture_232387.jpg" />
 </div>
 
 

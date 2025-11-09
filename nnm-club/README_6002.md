@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188852.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188852.jpgsave_picture_188852.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Grandaddy Short Leg - The Ballad of Cain (2022) [FLAC|Lossless|WEB-DL|tracks] <B
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188853.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188853.jpgsave_picture_188853.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Rebecca Downes - The Space Between Us (2022) [FLAC|Lossless|WEB-DL|tracks] <Blue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188854.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188854.jpgsave_picture_188854.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Easy Data Transform 1.42.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188855.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188855.jpgsave_picture_188855.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Raven Said - 2 Albums (2020-2022) [FLAC|Lossless|WEB-DL|tracks] <Occult Wave, Go
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188856.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188856.jpgsave_picture_188856.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ magnet:?xt=urn:btih:9823219DF99F9265EAE75F69ABBF0572EC1C38D0
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188857.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188857.jpgsave_picture_188857.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:263ED2CF4F93B41E26FFE3DE5CAD690174542DD6
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188858.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188858.jpgsave_picture_188858.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ Google Chrome 117.0.5938.63 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188859.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188859.jpgsave_picture_188859.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ Icecream Video Editor Pro 3.07 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188860.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188860.jpgsave_picture_188860.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ magnet:?xt=urn:btih:A67C4508877CE8A6C1E5359FB44E8127A73FADB8
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188861.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188861.jpgsave_picture_188861.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ magnet:?xt=urn:btih:5C43341025C239A821D29EE7CD75EB12EF0916C1
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188862.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188862.jpgsave_picture_188862.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ magnet:?xt=urn:btih:81335C0D18ADE56542AD05EB68C8DA0AEB15BD12
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188863.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188863.jpgsave_picture_188863.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ magnet:?xt=urn:btih:0221B98A9CB714C0D8DA2B7277391C1EBC3A9393
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188864.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188864.jpgsave_picture_188864.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ magnet:?xt=urn:btih:85598CED41A8FED1931424D5C350928A0BA08F75
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188865.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188865.jpgsave_picture_188865.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Medina Azahara - La Capsula del Tiempo (2022) Compilation [FLAC|Lossless|WEB-DL|
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188866.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188866.jpgsave_picture_188866.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ magnet:?xt=urn:btih:525B1A32650FF6432A6996FE7C78E0A3A3DEE08D
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188867.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188867.jpgsave_picture_188867.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ magnet:?xt=urn:btih:AAE0444CE6E5EC90940DD0447A11880B14FF9A23
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188868.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188868.jpgsave_picture_188868.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ magnet:?xt=urn:btih:5308C0600F5DD6EBB87905CA95ABD60E8F518F93
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188869.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188869.jpgsave_picture_188869.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Path Finder 2160 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188870.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188870.jpgsave_picture_188870.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Hostile Breed - 4 Albums (2001-2016) [MP3|320 Kbps] <Metalcore, Thrash Metal>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188871.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188871.jpgsave_picture_188871.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ magnet:?xt=urn:btih:EBCC5CB72A95BE1DABDCCFB3475946E590786602
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188872.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188872.jpgsave_picture_188872.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ magnet:?xt=urn:btih:5B4E129B0AA61AEAEA4643658CE9DD387A63F7EE
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188873.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188873.jpgsave_picture_188873.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ The Muddy York Blues Machine - The Muddy York Blues Machine (2022) [FLAC|Lossles
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188874.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188874.jpgsave_picture_188874.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ Dirt Forge - 2 Albums (2017-2022) [FLAC|Lossless|WEB-DL|tracks] <Sludge, Doomy, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188875.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188875.jpgsave_picture_188875.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Theicon - Beyond The Universe - Act 1-2 (2022) [FLAC|Lossless|WEB-DL|tracks] <Pr
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188876.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188876.jpgsave_picture_188876.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ The Jorgensens - Americana Soul (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues, Sou
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188877.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188877.jpgsave_picture_188877.jpg" />
 </div>
 
 

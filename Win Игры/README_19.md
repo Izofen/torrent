@@ -6,7 +6,7 @@ Eriksholm: The Stolen Dream (2025) [Ru/Multi] (1.3) Repack Wanterlude
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5451.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5451.jpgsave_picture_5451.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Rogue Loops (2025) [Ru/Multi] (1.3.4) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5454.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5454.jpgsave_picture_5454.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Broken Arrow (2025) [Ru/Multi] (1.0.9.1/dlc) Repack Let'sРlay
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5455.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5455.jpgsave_picture_5455.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Primal Planet (2025) [Ru/Multi] (Avgust 25th 2025 v1) Repack Let'sРlay [Dino Su
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5458.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5458.jpgsave_picture_5458.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ ZEPHON (2024) [Ru/Multi] (1.1.15/dlc) Repack Let'sРlay [Supporter Edition]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5462.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5462.jpgsave_picture_5462.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Enshrouded (2024) [Ru/Multi] (Build 19651931) Repack Pioneer [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5468.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5468.jpgsave_picture_5468.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Survive the Fall (2025) [Ru/Multi] (1.2.0.2534/dlc) Repack Let'sРlay [Ultimate 
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5470.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5470.jpgsave_picture_5470.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Tactical Warfare (2025) [Ru/Multi] (Build 18683670) Repack Let'sРlay
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5473.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5473.jpgsave_picture_5473.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Sengoku Dynasty (2024) [Ru/Multi] (1.1.0.12/dlc) Repack Let'sРlay [Ultimate Edi
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5474.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5474.jpgsave_picture_5474.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Ithya: Magic Studies / Итийя: Волшебные занятия (2025) [Ru/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5518.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5518.jpgsave_picture_5518.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Rage in Peace (2018) [Multi] (1.0) License GOG [Collector's Edition]
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5519.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5519.jpgsave_picture_5519.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ A Little to the Left (2022) [Multi] (3.5.10/dlc) Scene Tenoke
 >>Classic Arcade/Zuma/3match (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5525.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5525.jpgsave_picture_5525.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Miraculous - Paris Under Siege (2024) [Ru/Multi] (1.0) Repack Yaroslav98
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5551.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5551.jpgsave_picture_5551.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Echo Point Nova (2024) [Ru/Multi] (2.11) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5553.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5553.jpgsave_picture_5553.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Ithya: Magic Studies / Итийя: Волшебные занятия (2025) [Ru/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5554.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5554.jpgsave_picture_5554.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Stranded: Alien Dawn (2022) [Ru/Multi] (build 18840735) Repack seleZen
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5568.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5568.jpgsave_picture_5568.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Relic Hunters Legend (2023) [Ru/Multi] (1.0) Repack seleZen
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5574.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5574.jpgsave_picture_5574.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Frozenheim (2022) [Ru/Multi] (1.4.10.3) Repack Let'sРlay [Deluxe Edition]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5576.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5576.jpgsave_picture_5576.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Yield! Fall of Rome (2025) [Ru/Multi] (1.0.1.3/dlc) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5577.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5577.jpgsave_picture_5577.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Forever Skies (2023) [Ru/Multi] (1.3/dlc) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5586.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5586.jpgsave_picture_5586.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Echo Point Nova (2024) [Ru/Multi] (2.1) Repack FitGirl [Digital Deluxe Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5591.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5591.jpgsave_picture_5591.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Artis Impact (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5593.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5593.jpgsave_picture_5593.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Stranded: Alien Dawn (2022) [Ru/Multi] (1.23.250612) Scene Rune
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5594.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5594.jpgsave_picture_5594.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ BROK the InvestiGator - The Brawl Bar (2025) [Ru/Multi] (1.5.3.7) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5598.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5598.jpgsave_picture_5598.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ magnet:?xt=urn:btih:CF2A6C2A9019CA4834854B87ADC95D4853D62B4D
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5601.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5601.jpgsave_picture_5601.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Herdling (2025) [Ru/Multi] (1.2.3.p) Repack Let'sРlay [Complete Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5611.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5611.jpgsave_picture_5611.jpg" />
 </div>
 
 

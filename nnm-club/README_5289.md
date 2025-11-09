@@ -6,7 +6,7 @@
 >>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164322.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164322.jpgsave_picture_164322.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:B71474DB7E787996B52FB96F726F73509FE65F5D
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164323.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164323.jpgsave_picture_164323.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Artlantis 2021.2 v9.5.2.29009 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164324.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164324.jpgsave_picture_164324.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Soniq Circus - Chapter 1-2 (2022-2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Prog
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164325.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164325.jpgsave_picture_164325.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Tol Galen - Swamp Castle (2022) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Black
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164326.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164326.jpgsave_picture_164326.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ magnet:?xt=urn:btih:1DB6FC4179F21C1EECFBBC43C6882BE10F003B1C
 >>Прочие зимние виды спорта
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164327.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164327.jpgsave_picture_164327.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ magnet:?xt=urn:btih:DA308140FC44AF1B3268E0452641DAA48DA5C673
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164328.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164328.jpgsave_picture_164328.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ Kenny Drew - The Classic Albums (1953 - 1961) 4CD, 2020, Enlightenment [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164329.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164329.jpgsave_picture_164329.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ ApowerREC 1.5.3.12 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164330.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164330.jpgsave_picture_164330.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ magnet:?xt=urn:btih:9E1534D71ADC14167D18369C2A381821592819F2
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164331.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164331.jpgsave_picture_164331.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ magnet:?xt=urn:btih:530A0312520E017B186B47363BB98ADDC5EF27DB
 >>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164332.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164332.jpgsave_picture_164332.jpg" />
 </div>
 
 
@@ -290,7 +290,7 @@ iStatistica Pro 5.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164333.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164333.jpgsave_picture_164333.jpg" />
 </div>
 
 
@@ -314,7 +314,7 @@ magnet:?xt=urn:btih:C7DB77EAA3AFEB2CA5E3798BB2013D62FE61D84F
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164334.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164334.jpgsave_picture_164334.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ DCommander 3 Premium v3.8.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164335.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164335.jpgsave_picture_164335.jpg" />
 </div>
 
 
@@ -364,7 +364,7 @@ magnet:?xt=urn:btih:CED01ECC980E5D36EECFFA1F8F406D67ADAF0A35
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164336.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164336.jpgsave_picture_164336.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ magnet:?xt=urn:btih:CB6F5E36D01A0A40A135B1C58406D78821057F94
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164337.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164337.jpgsave_picture_164337.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ Apeaksoft Android Toolkit 1.2.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164338.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164338.jpgsave_picture_164338.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ magnet:?xt=urn:btih:FB1069984E323A53992E9729F46A47366DEF0DA9
 >>Прочие зимние виды спорта
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164339.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164339.jpgsave_picture_164339.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Things 3 v3.13.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164340.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164340.jpgsave_picture_164340.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Clouds of Clarity - Superficial Society (2022) [FLAC|Lossless|WEB-DL|tracks] <Me
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164341.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164341.jpgsave_picture_164341.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ magnet:?xt=urn:btih:DF40840407C67C3670EDDED7F950E62887D47A70
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164342.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164342.jpgsave_picture_164342.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Zucchero Sugar Fornaciari - Discover (2021) [FLAC|Lossless|image + .cue] <Blues 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164343.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164343.jpgsave_picture_164343.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ magnet:?xt=urn:btih:4B59CC11C61E93CDA119D2890E8D10ADE9997E06
 >>Прочие зимние виды спорта
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164344.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164344.jpgsave_picture_164344.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ VA - Techno Club Vol. 64 (Mixed by Talla 2XLC, Alessandra Roncone & Madwave) (20
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164345.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164345.jpgsave_picture_164345.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Q-Dir 7.99 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164346.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164346.jpgsave_picture_164346.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ BBoy Звезда - Удар по невежеству (2022) [FLAC|Lossless|WEB
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164347.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164347.jpgsave_picture_164347.jpg" />
 </div>
 
 

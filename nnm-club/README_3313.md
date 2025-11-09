@@ -6,7 +6,7 @@ T.S. Monk - Take One (1992) Blue Note [FLAC|Lossless|tracks + .cue] <Hard Bop, P
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106499.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106499.jpgsave_picture_106499.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Paul Di'Anno's Warhorse - Paul Di'Anno's Warhorse with Madiraca & Pupi (2024) [F
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106500.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106500.jpgsave_picture_106500.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Babbba - 5D Cabaret (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz, Swing>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106501.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106501.jpgsave_picture_106501.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ High-Logic FontCreator Professional 15.0.0.2993 RePack (& Portable) by elchupaca
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106502.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106502.jpgsave_picture_106502.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Highly Suspect - As Above, So Below (2024) [FLAC|Lossless|WEB-DL|tracks] <Altern
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106503.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106503.jpgsave_picture_106503.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Rotting Christ - Pro Xristou (2024) [FLAC|Lossless|image + .cue] <Melodic Black 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106504.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106504.jpgsave_picture_106504.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Babbba - Cabaret II (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz, Swing>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106505.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106505.jpgsave_picture_106505.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Photo Supreme 2024.2.1.6582 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106506.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106506.jpgsave_picture_106506.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Albert Castiglia - Righteous Souls (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues R
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106507.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106507.jpgsave_picture_106507.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Orange Goblin - Science, Not Fiction (2024) [FLAC|Lossless|WEB-DL|tracks] <Stone
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106508.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106508.jpgsave_picture_106508.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ SkyEye - New Horizons (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106509.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106509.jpgsave_picture_106509.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Shokran - Studio Albums (4 releases) (2014-2024) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106510.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106510.jpgsave_picture_106510.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ David Moore and Westridge - Get The Led Out! (2024) [FLAC 24/48|Lossless|WEB-DL|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106511.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106511.jpgsave_picture_106511.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ magnet:?xt=urn:btih:393F71AA53C9EFCE95F467617FAAFB4D19EDF037
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106512.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106512.jpgsave_picture_106512.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Liner Lou - Bluester (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106513.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106513.jpgsave_picture_106513.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Will Jackson - Where There's a Will There's a Way (2024) [FLAC|Lossless|WEB-DL|t
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106514.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106514.jpgsave_picture_106514.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ magnet:?xt=urn:btih:2216192AB7A8516C0B75389F34FA10DC741C6DBA
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106515.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106515.jpgsave_picture_106515.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ VA - Idyllic Vacation Chilly Lounge Vacation Getaway Instrumentals for Leisure a
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106516.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106516.jpgsave_picture_106516.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ VA - Idyllic Vacation Tranquil Vacation Getaway Instrumentals for Leisure and Pl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106517.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106517.jpgsave_picture_106517.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ Nemoreus - Orcunadoras (2024) [FLAC|Lossless|WEB-DL|tracks] <Folk Metal, Black M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106518.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106518.jpgsave_picture_106518.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Cryptopsy - As Gomorrah Burns (2023) [FLAC|Lossless|image + .cue] <Technical Dea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106519.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106519.jpgsave_picture_106519.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Nat Adderley Quintet - The Old Country (1990) 1992, Enja Records [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106520.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106520.jpgsave_picture_106520.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Anne Sajdera - New Year (2018) Bijuri Records [FLAC|Lossless|tracks + .cue] <Pos
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106521.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106521.jpgsave_picture_106521.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Nat Adderley - Introducing Nat Adderley (1955) 2001, Verve Records [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106522.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106522.jpgsave_picture_106522.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Devastation Inc. - Beyond The Shape Of Violence (2020) [FLAC|Lossless|image + .c
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106523.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106523.jpgsave_picture_106523.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ Kadavar - 7 albums, 10 CD (2012-2021) [FLAC|Lossless|image + .cue | tracks + .cu
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106524.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106524.jpgsave_picture_106524.jpg" />
 </div>
 
 

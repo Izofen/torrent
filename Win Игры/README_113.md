@@ -6,7 +6,7 @@ Song of Farca (2021) [Ru/Multi] (1.0.2.25) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32157.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32157.jpgsave_picture_32157.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Shadow Warrior Classic Redux (2013) [En] (1.1.9/dlc) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32161.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32161.jpgsave_picture_32161.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ STAR WARS: Bounty Hunter (2024) [Ru/Multi] (1.1 patch 2) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32164.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32164.jpgsave_picture_32164.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Airship: Kingdoms Adrift (2023) [Multi] (1.6.1.2) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32167.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32167.jpgsave_picture_32167.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Realms of Arkania: Star Trail (Remake) (2017) [Multi] (1.10) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32171.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32171.jpgsave_picture_32171.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Flint: Treasure of Oblivion (2024) [Ru/Multi] (Build 16756464) Repack seleZen
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32176.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32176.jpgsave_picture_32176.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ The Ghost Treasure / Призрачные сокровища (2024) [Ru/Multi] (
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32203.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32203.jpgsave_picture_32203.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Monster Jam Steel Titans (2019) [Ru/Multi] (1.1a/dlc) License GOG
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32210.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32210.jpgsave_picture_32210.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Penny’s Big Breakaway (2024) [Ru/Multi] (1.2.20240313) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32214.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32214.jpgsave_picture_32214.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Finding Frankie (2024) [Ru/Multi] (Build 16260850) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32218.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32218.jpgsave_picture_32218.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Cowboy 3030 (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32222.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32222.jpgsave_picture_32222.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ On Your Tail (2024) [Multi] (1.0.1) Repack FitGirl [Deluxe Bundle]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32235.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32235.jpgsave_picture_32235.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ The Ghost Treasure / Призрачные сокровища (2024) [Ru/Multi] (
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32253.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32253.jpgsave_picture_32253.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ MiSide (2024) [Ru/Multi] (0.9) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32271.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32271.jpgsave_picture_32271.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Snow Bros. Wonderland (2024) [Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32282.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32282.jpgsave_picture_32282.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ BioGun (2024) [Ru/Multi] (1.600) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32329.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32329.jpgsave_picture_32329.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Snow Bros. Wonderland (2024) [Multi] (1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32341.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32341.jpgsave_picture_32341.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Flint: Treasure of Oblivion (2024) [Ru/Multi] (Build 16756464) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32342.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32342.jpgsave_picture_32342.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Flint: Treasure of Oblivion (2024) [Ru/Multi] (Build 16756464) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32343.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32343.jpgsave_picture_32343.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Slopecrashers (2024) [En] (1.0.0.4) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32345.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32345.jpgsave_picture_32345.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ The Sims 3 (2009-2013) [Ru/Multi] (1.67.2.024037/dlc) Repack dixen18 [Complete E
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32349.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32349.jpgsave_picture_32349.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ S.W.I.N.E. HD Remaster (2019) [Ru/Multi] (1.7.1846) Repack Other s
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32356.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32356.jpgsave_picture_32356.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Stars In The Trash (2024) [Ru/Multi] (Build 20241208) Repack FitGirl [Deluxe Edi
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32362.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32362.jpgsave_picture_32362.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Penny Blood: Hellbound (2024) [Multi] (1.0.00628) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32363.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32363.jpgsave_picture_32363.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ My Time at Sandrock (2023) [Ru/Multi] (1.4.2/dlc) Scene Rune
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32376.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32376.jpgsave_picture_32376.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Assassin's Creed Mirage (2023) [Ru/Multi] (1.0.6/dlc) Repack Wanterlude [Master 
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32378.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32378.jpgsave_picture_32378.jpg" />
 </div>
 
 

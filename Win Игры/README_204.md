@@ -6,7 +6,7 @@ Chambers (2024) [En] (1.0) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62785.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62785.jpgsave_picture_62785.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Cats Love Boxes (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Classic Arcade/Zuma/3match (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62786.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62786.jpgsave_picture_62786.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ The Unknown (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62799.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62799.jpgsave_picture_62799.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Tank Operations: European Campaign (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62813.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62813.jpgsave_picture_62813.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Rise of the Tomb Raider (2016) [Ru/Multi] (1.0.1027.0/dlc) Repack Decepticon [20
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62832.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62832.jpgsave_picture_62832.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Welcome to ParadiZe (2024) [Ru/Multi] (Build Feb 26 2024/dlc) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62834.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62834.jpgsave_picture_62834.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Tomb Raider (2013) [Ru] (1.1.838.0/dlc) Repack Decepticon [Game of The Year Edit
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62837.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62837.jpgsave_picture_62837.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Microcosmum 2 (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62838.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62838.jpgsave_picture_62838.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Thief Simulator 2 (2023) [Ru/Multi] (1.21) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62889.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62889.jpgsave_picture_62889.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Monuments Renovator (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62898.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62898.jpgsave_picture_62898.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Beneath the Mountain (2024) [En] (1.3) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62918.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62918.jpgsave_picture_62918.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Somerville (2022) [Multi] (1.0) License Razor1911
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62934.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62934.jpgsave_picture_62934.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ The Thaumaturge (2024) [Ru/Multi] (70.100/dlc) Repack FitGirl [Digital Deluxe Ed
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62939.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62939.jpgsave_picture_62939.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Zoria: Age of Shattering (2024) [Multi] (1.0/dlc) Scene FAiRLiGHT
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62943.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62943.jpgsave_picture_62943.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ House Flipper 2 (2023) [Ru/Multi] (13653866/dlc) Repack Other s [Digital Deluxe 
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63007.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63007.jpgsave_picture_63007.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ YOKO (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63020.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63020.jpgsave_picture_63020.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Zoonomaly (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63023.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63023.jpgsave_picture_63023.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Connected Hearts 4: Cost of Beauty / Связанные сердца 4: Цена
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63066.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63066.jpgsave_picture_63066.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Big Adventure: Trip to Europe 7 / Большое приключение: Пое�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63076.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63076.jpgsave_picture_63076.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Expeditions: A MudRunner Game (2024) [Ru/Multi] (1.0/dlc) Repack Other s [Suprem
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63125.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63125.jpgsave_picture_63125.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Taxi Life: A City Driving Simulator (2024) [Ru/Multi] (13655355/dlc) Repack Othe
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63136.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63136.jpgsave_picture_63136.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Lucky Season: King of Fools (2024) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63512.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63512.jpgsave_picture_63512.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Crimzon Clover: World Ignition (2014) [Multi] (1.06) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63519.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63519.jpgsave_picture_63519.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Russian Soul Simulator / Симулятор Русской Души (2024) [Ru/E
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63562.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63562.jpgsave_picture_63562.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Disco Simulator (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63625.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63625.jpgsave_picture_63625.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Stellar Ghosts Settlers (2024) [En] (1.0.220) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63654.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63654.jpgsave_picture_63654.jpg" />
 </div>
 
 

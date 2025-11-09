@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139607.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139607.jpgsave_picture_139607.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:DD7506D7A2C710C66D9AE358A915A7437DAF20F8
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139609.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139609.jpgsave_picture_139609.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Glass Hammer - Chronomonaut (2018) [FLAC|Lossless|tracks + .cue] <Symphonic Prog
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139610.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139610.jpgsave_picture_139610.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:940BA099CE0B134C02613578946ABB533B3B8CC0
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139611.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139611.jpgsave_picture_139611.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ Gulman 4: Still alive (2016) [En] (1.0) License PLAZA
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139612.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139612.jpgsave_picture_139612.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ magnet:?xt=urn:btih:717A75A4F7A9A384898456E36919524859867F9B
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139614.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139614.jpgsave_picture_139614.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ magnet:?xt=urn:btih:6A02C1AA7D8C83E4FA7B01C7F7568CB321685381
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139615.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139615.jpgsave_picture_139615.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ magnet:?xt=urn:btih:ADB5CA2047E580986F6C7581ABA576DB1F979AFF
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139616.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139616.jpgsave_picture_139616.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ magnet:?xt=urn:btih:4ACF4EBE1F71BED7BA1565DB03E815E95FD4D29D
 >>Релакс / Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139617.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139617.jpgsave_picture_139617.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ magnet:?xt=urn:btih:DAAA1B9401022295684CE501793553E202C8EE77
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139620.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139620.jpgsave_picture_139620.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ magnet:?xt=urn:btih:F00AE42C731BC3C1F8202BFC7CEBF8EB93170419
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139622.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139622.jpgsave_picture_139622.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ magnet:?xt=urn:btih:3FD44C0C185556B1C7804AAFF97CD71987B09E33
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139623.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139623.jpgsave_picture_139623.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ Chrome Division - One Last Ride (2018) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139624.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139624.jpgsave_picture_139624.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ Sensei 1.5.8 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139625.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139625.jpgsave_picture_139625.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ magnet:?xt=urn:btih:9F5232F3E8788B60C4653A9789C457E30BD8A839
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139626.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139626.jpgsave_picture_139626.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ George Lynch & Jeff Pilson - Heavy Hitters (2020) [FLAC|Lossless|image + .cue] <
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139627.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139627.jpgsave_picture_139627.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ magnet:?xt=urn:btih:D11E08BA96EA1D9748FF76508EB496D2E87C2BBC
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139628.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139628.jpgsave_picture_139628.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ magnet:?xt=urn:btih:1002611C7624A2EE574EA62F6CA17F1890CD9B1F
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139629.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139629.jpgsave_picture_139629.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ History Channel: Тайны египетских пирамид / Lost Secrets o
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139630.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139630.jpgsave_picture_139630.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ magnet:?xt=urn:btih:EB3A662A505EB5C6196A58BFB670C0298FE76817
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139631.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139631.jpgsave_picture_139631.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ magnet:?xt=urn:btih:0E5A1E92BCF74FC2E43ABB35DD4DA17862B3FFFA
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139634.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139634.jpgsave_picture_139634.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Discovery: Нострадамус / Nostradamus (2006) IPTVRip [H.264]
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139635.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139635.jpgsave_picture_139635.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Christian Tolle Project - Point Blank (2018) [FLAC|Lossless|tracks + .cue] <Hard
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139636.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139636.jpgsave_picture_139636.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ magnet:?xt=urn:btih:736512CF98F2A4A9F2D40E4BCC8EA10358D0502F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139638.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139638.jpgsave_picture_139638.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ magnet:?xt=urn:btih:81024FF8E2EC7FA9A934562CFF50DF9F414E60D5
 >>Хоккей. Чемпионаты мира
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139639.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139639.jpgsave_picture_139639.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ magnet:?xt=urn:btih:4326857FAE2D876F7127FBE073E651411A7C2D47
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139640.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139640.jpgsave_picture_139640.jpg" />
 </div>
 
 

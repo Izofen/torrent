@@ -6,7 +6,7 @@
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41593.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41593.jpgsave_picture_41593.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Advanced Renamer 4.03 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41594.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41594.jpgsave_picture_41594.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:ADE0903BFC9DBBACF4320F0F3F970C107B14B0DB
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41595.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41595.jpgsave_picture_41595.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Sandboxie 5.69.10 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41596.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41596.jpgsave_picture_41596.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ PDFsam Basic 5.2.8 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41597.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41597.jpgsave_picture_41597.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:E819618DA5A80417C3E53DEE74C23CB82EB09ED8
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41598.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41598.jpgsave_picture_41598.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - Milk & Sugar House Nation Ibiza (2024) [MP3|320 Kbps] <Funky, Club House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41599.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41599.jpgsave_picture_41599.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:AA92C36A483C49DF861FF4822AB70E20CEFE57B2
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41600.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41600.jpgsave_picture_41600.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:6307D64C3CCD50AD40AC80E0B4570B0FBD09AC95
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41601.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41601.jpgsave_picture_41601.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:B333257F0A6208EEE21877F6F05465A797A1879E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41602.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41602.jpgsave_picture_41602.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ IObit Smart Defrag Pro 10.1.0.419 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41603.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41603.jpgsave_picture_41603.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ NoMachine 8.14.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41604.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41604.jpgsave_picture_41604.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ O&O Defrag Professional 29.0 Build 11110 RePack (& Portable) by elchupacabra [Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41605.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41605.jpgsave_picture_41605.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ R-Studio Network 9.4 Build 191359 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41606.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41606.jpgsave_picture_41606.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ ReNamer Pro 7.6 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41607.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41607.jpgsave_picture_41607.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ magnet:?xt=urn:btih:E873A350230B9DDC644DA2E03642DBBFBFDCA07E
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41608.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41608.jpgsave_picture_41608.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ magnet:?xt=urn:btih:276EF6EA9049ABCA7BCE10D48FCDA3ECC6C8EE28
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41609.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41609.jpgsave_picture_41609.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ magnet:?xt=urn:btih:39A5DE0EC268AFFF6784E69E7D323451D3A742C4
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41610.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41610.jpgsave_picture_41610.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ magnet:?xt=urn:btih:58008545F0F7DFC2402719AA015872234B14A2A1
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41611.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41611.jpgsave_picture_41611.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Sandboxie plus 1.14.10 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41612.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41612.jpgsave_picture_41612.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ Araxis Merge Pro 2024.6002 (x64) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41613.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41613.jpgsave_picture_41613.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Double Commander 1.1.18 gamma + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41614.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41614.jpgsave_picture_41614.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ VA - Суперхиты Дискотеки 90-х Vol.2 (2011) [OGG Vorbis|480 Kb
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41615.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41615.jpgsave_picture_41615.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Xrecode 3 1.157 Repack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41616.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41616.jpgsave_picture_41616.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ magnet:?xt=urn:btih:7F4162FA59DACE09A2C502EAA734224E007511A4
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41617.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41617.jpgsave_picture_41617.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ magnet:?xt=urn:btih:6599C818BBB04C0B15FB9B62C3C404D4F8698032
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41618.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41618.jpgsave_picture_41618.jpg" />
 </div>
 
 

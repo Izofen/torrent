@@ -6,7 +6,7 @@
 >>Экстрим
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238187.jpgsave_picture_238187.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ SideNotes 1.4.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238188.jpgsave_picture_238188.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ Smart Driver Manager Pro 6.4.975 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238189.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238189.jpgsave_picture_238189.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ Symfonia - In Paradisum (2011) Japanese Edition [FLAC|Lossless|image + .cue] <Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238190.jpgsave_picture_238190.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ IObit Driver Booster Pro 10.4.0.127 RePack (& Portable) by elchupacabra [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238191.jpgsave_picture_238191.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ Desktop Calendar 2.3.108.5601 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238192.jpgsave_picture_238192.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ Fort Firewall 3.8.13 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238193.jpgsave_picture_238193.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:8E17154A0E0B632265CF5CA65FD59C0F40DF1DD2
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238194.jpgsave_picture_238194.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ ON1 Effects 2021.1 v15.1.0.10035 CR2 [Multi/Rus]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238195.jpgsave_picture_238195.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:9ECA375E5D99C2DE670AD781FA75E93D8B3ACE75
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238196.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238196.jpgsave_picture_238196.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:289950AF61D7706E372D1B7F61C0393CEDCFA71A
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238197.jpgsave_picture_238197.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ Gaye Adegbalola - Satisfied (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238198.jpgsave_picture_238198.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ Firefox Browser 85.0.1 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238199.jpgsave_picture_238199.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Sultan - Check And Mate (1990) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238200.jpgsave_picture_238200.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Jiddu Krishnamurti | Nobody Can Teach You About Yourself (2021) [PDF]
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238201.jpgsave_picture_238201.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ magnet:?xt=urn:btih:A935FB8D3E36331FD972A04EA955C1BE7FD00C7B
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238202.jpgsave_picture_238202.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ magnet:?xt=urn:btih:2A716277FEE60E733CEDFE4123243079017130DD
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238203.jpgsave_picture_238203.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ magnet:?xt=urn:btih:2AC7EFC7EF5C1B8566D6661E15A278CAC50DF0AB
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238204.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238204.jpgsave_picture_238204.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ Crispin Cioe - Soul Noir (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238205.jpgsave_picture_238205.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ magnet:?xt=urn:btih:60866EA010D682CFFDC9AE5D476D8B14E7381891
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238206.jpgsave_picture_238206.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ magnet:?xt=urn:btih:00D593DEE6FF7B76CE54590E1AACEF478F8B765B
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238207.jpgsave_picture_238207.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Sanz - Let Us Die (2022) [MP3|320 Kbps] <Electronic, Synth-pop, Rock>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238208.jpgsave_picture_238208.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Foreseen - Untamed Force (2022) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal, Har
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238209.jpgsave_picture_238209.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ magnet:?xt=urn:btih:DF2FF4385847B696AA003E5A329B34BF2FF2C3D4
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238210.jpgsave_picture_238210.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Wondershare Recoverit 10.1.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238211.jpgsave_picture_238211.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ magnet:?xt=urn:btih:8C47281DEDBDBCCF0E849335FCA7F16E6A7B7A2A
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238212.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238212.jpgsave_picture_238212.jpg" />
 </div>
 
 

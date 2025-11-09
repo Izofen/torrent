@@ -6,7 +6,7 @@ NYMF: Галерея женской красоты Давида Дубницко
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153638.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153638.jpgsave_picture_153638.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:08FCE38EA885AA8696F9830A9FF1C1842694CF0F
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153639.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153639.jpgsave_picture_153639.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:FBDBEADFCAEA6B725CEF20EB9AA659493C652764
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153640.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153640.jpgsave_picture_153640.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Microsoft Product Keys 2.6.3 Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153641.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153641.jpgsave_picture_153641.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ DAEMON Tools Lite 10.5.0.222 Unlocked [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153642.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153642.jpgsave_picture_153642.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Windows 11 x64 Rus by OneSmiLe [22631.2715]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153643.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153643.jpgsave_picture_153643.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:B1DB8DE4F42A3B8937BA2DC5788FA47E7FC529DC
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153644.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153644.jpgsave_picture_153644.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:14395ECEA95259EBB7024EA415D2DAC906B06EEF
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153645.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153645.jpgsave_picture_153645.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ AppKiller 3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153646.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153646.jpgsave_picture_153646.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ Adobe Substance 3D Painter 9.1.0 build 2983 (x64) Portable by 7997 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153647.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153647.jpgsave_picture_153647.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:3AD66D4602CF1B8DF5E529019A8E355D7D495514
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153648.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153648.jpgsave_picture_153648.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ ExifEditor 1.2.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153649.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153649.jpgsave_picture_153649.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ magnet:?xt=urn:btih:A609145C9E53B48E609651108195157E384FD838
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153650.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153650.jpgsave_picture_153650.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ magnet:?xt=urn:btih:38F039AA04B084B756B404D0D4BD1246F8A7F607
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153651.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153651.jpgsave_picture_153651.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ magnet:?xt=urn:btih:98D0B3CB7C9F2075641F3D555D4B0FC20705B0FB
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153652.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153652.jpgsave_picture_153652.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ magnet:?xt=urn:btih:860B158D8D71A4CB1EA8B8896EABE0D69300FFF4
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153653.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153653.jpgsave_picture_153653.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ magnet:?xt=urn:btih:860B158D8D71A4CB1EA8B8896EABE0D69300FFF4
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153654.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153654.jpgsave_picture_153654.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ magnet:?xt=urn:btih:DD90FD5588445C4ACC97D548222A6F4CD3B7DCE9
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153655.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153655.jpgsave_picture_153655.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ FileUnhider 3.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153656.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153656.jpgsave_picture_153656.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ AOMEI Backupper Technician Plus 6.8.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153657.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153657.jpgsave_picture_153657.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ The Awakener: Forgotten Oath (2023) [Multi] (1.0) Scene Rune
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153658.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153658.jpgsave_picture_153658.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Chaos Control 1.11 [En/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153659.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153659.jpgsave_picture_153659.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:916C5D26DD4F58E0D452758A2028B39F0F1D0363
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153660.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153660.jpgsave_picture_153660.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ HandBrake 1.6.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153661.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153661.jpgsave_picture_153661.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ magnet:?xt=urn:btih:284C98ADAD82B89C453DFF92293E2CE105A9D1B7
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153662.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153662.jpgsave_picture_153662.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Adobe Photoshop 2024 25.1.0.120 (x64) Lite Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153663.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153663.jpgsave_picture_153663.jpg" />
 </div>
 
 

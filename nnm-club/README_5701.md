@@ -6,7 +6,7 @@
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175689.jpgsave_picture_175689.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Crosti 1.14.0 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175691.jpgsave_picture_175691.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:C8A9BFE77A66B772268172F914C5E8815099CA7C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175692.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175692.jpgsave_picture_175692.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:9462170FD359D20F662C33BB2A08FB67FD377355
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175694.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175694.jpgsave_picture_175694.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:FAA557934D36F8BC22876DC82EB8513480FB05D6
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175695.jpgsave_picture_175695.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Temple Agents - Next Step (2022) [FLAC|Lossless|WEB-DL|tracks] <Modern Rock, Pos
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175697.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175697.jpgsave_picture_175697.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ Elmedia Player Pro 7.17 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175698.jpgsave_picture_175698.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ magnet:?xt=urn:btih:99860045EAC1DCC6062CF1B0BEB970DB9565AA86
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175699.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175699.jpgsave_picture_175699.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Paul Bartolome - Reflections (2022) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks]
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175701.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175701.jpgsave_picture_175701.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ Nox App Player 7.0.0.7200 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175702.jpgsave_picture_175702.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ Monitorian 4.5.0.0 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175703.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175703.jpgsave_picture_175703.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ magnet:?xt=urn:btih:77C2264A7BB8DBFF13EC7DFAF5AF6CAB4DAB00D9
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175705.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175705.jpgsave_picture_175705.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ magnet:?xt=urn:btih:AA6906C1DC6FDF2BACBCEAA57AF0DA8EEEC8423B
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175706.jpgsave_picture_175706.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ magnet:?xt=urn:btih:6630A470A753B75F907BC0E75BEAC9C82C8496BA
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175707.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175707.jpgsave_picture_175707.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ Taj Mahal - Live at Ultrasonic Studios (2020) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175709.jpgsave_picture_175709.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ George Coleman Featuring Ned Otter - Danger High Voltage (1996) 2000, Two and Fo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175710.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175710.jpgsave_picture_175710.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ magnet:?xt=urn:btih:10C451ED875C2225E2B8CD20CF32FCAC1A362548
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175711.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175711.jpgsave_picture_175711.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Total Commander 11.01 (09.10.2023) Portable by MiG [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175713.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175713.jpgsave_picture_175713.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ magnet:?xt=urn:btih:E5DC5444D31C1548222C824A053B9860A0327571
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175714.jpgsave_picture_175714.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ magnet:?xt=urn:btih:8B9C587E5D98673972D2610E7875D04DE4275575
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175715.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175715.jpgsave_picture_175715.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ Endtime - Impending Doom (2022) [FLAC|Lossless|WEB-DL|tracks] <Sludge, Doom Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175717.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175717.jpgsave_picture_175717.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ magnet:?xt=urn:btih:AC936FEDD43E06354C0FE9DF51E63DC1961799E2
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175718.jpgsave_picture_175718.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Blackmagic Design DaVinci Resolve Studio 18.6.1 Build 8 (x64) Portable by 7997 [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175719.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175719.jpgsave_picture_175719.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ magnet:?xt=urn:btih:CE89BB3E005E20EFFCBD1EAC122E29DF456AF102
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175721.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175721.jpgsave_picture_175721.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Udemy, Darrin Lile | Blender 2.83 и захват движения / Blender 2.8
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175722.jpgsave_picture_175722.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ Symbol Of Obscurity - n.N.i.M.m. (2007) [WavPack|Lossless|image + .cue] <Melodic
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175723.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175723.jpgsave_picture_175723.jpg" />
 </div>
 
 

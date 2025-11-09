@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1259.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1259.jpgsave_picture_1259.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Kijin Gentoushou | Sword of the Demon Hunter | Хроники людей и де
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1260.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1260.jpgsave_picture_1260.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Victoria 3 (2022) [Ru/Multi] (1.10.0/dlc) Repack Pioneer [Grand Edition]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1261.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1261.jpgsave_picture_1261.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ WUCHANG: Fallen Feathers (2025) [Ru/Multi] (179243/dlc) Repack Wanterlude [Delux
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1262.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1262.jpgsave_picture_1262.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Hollow Knight: Silksong (2025) [Ru/Multi] (1.0.28650) Repack Wanterlude
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1263.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1263.jpgsave_picture_1263.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:132B52353CBC217E5F40526E7C7599A258A1DA27
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1264.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1264.jpgsave_picture_1264.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Volan - Конец (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <melodic-hardcore,
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1265.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1265.jpgsave_picture_1265.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Chaoseum - Life 4 Sale (2025) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Nu-Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1266.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1266.jpgsave_picture_1266.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Laura Cantrell - Just Like A Rose: The Anniversary Sessions (2023) [FLAC|Lossles
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1267.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1267.jpgsave_picture_1267.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ Hank Mobley - Three Classic Albums Plus (1956) 2CD, 2016, Avid Jazz [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1268.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1268.jpgsave_picture_1268.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ magnet:?xt=urn:btih:2FCDBA56FDC348DD3310A62ED993CB6588BCDBC0
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1269.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1269.jpgsave_picture_1269.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ Sammy Hagar - Voice Of Rock - Compilation (1973-2025) [MP3|320 Kbps] <Hard rock,
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1270.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1270.jpgsave_picture_1270.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ magnet:?xt=urn:btih:756CCAFD9317E53AE7AF3A372FD0E0612EE8A111
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1271.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1271.jpgsave_picture_1271.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ DRAGON BALL: Sparking! ZERO (2024) [Ru/Multi] (2014.013.003.009.008/dlc) Repack 
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1272.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1272.jpgsave_picture_1272.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ magnet:?xt=urn:btih:5AFE93E0CDDCF80925BF45B3320CACBA7D8B50BE
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1273.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1273.jpgsave_picture_1273.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ magnet:?xt=urn:btih:BE429EB19AE0FAED337943CB92246C5001292EE2
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1274.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1274.jpgsave_picture_1274.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ magnet:?xt=urn:btih:21518CAE77F365254E7B1C776EA7BE845CC13649
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1275.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1275.jpgsave_picture_1275.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ magnet:?xt=urn:btih:692D7DBA6004ED8BFECD236C0EC553E80C8F7617
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1276.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1276.jpgsave_picture_1276.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ Nancy - 4 Releases (2018-2021) Digital release [FLAC|Lossless|WEB-DL|tracks] <Al
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1277.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1277.jpgsave_picture_1277.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ magnet:?xt=urn:btih:CD4BC0434946EB895D92FC105DFD279CDC5A9F58
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1278.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1278.jpgsave_picture_1278.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ magnet:?xt=urn:btih:0E5303FFB3F1F064207724B97FEAA24E0E804BE8
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1279.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1279.jpgsave_picture_1279.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ VA - Uplifting Only Top 15: September 2025 (Extended Mixes) (2025) [MP3|320 Kbps
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1280.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1280.jpgsave_picture_1280.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ magnet:?xt=urn:btih:FA2B645A55B4DBE47435A954ACAA831057C091C4
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1281.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1281.jpgsave_picture_1281.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ VA - Deep Currents (2025) [MP3|320 Kbps] <House, Deep House, Dance, Club>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1282.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1282.jpgsave_picture_1282.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Niikto - Nocturnal Emissions II (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Dark
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1283.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1283.jpgsave_picture_1283.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ Elkie Brooks - Pearls (1981) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1284.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1284.jpgsave_picture_1284.jpg" />
 </div>
 
 

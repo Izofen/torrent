@@ -6,7 +6,7 @@ Pro Pool 2024 v1.57 Mod by vadj [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38413.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38413.jpgsave_picture_38413.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Brotato: Premium 1.3.193 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38834.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38834.jpgsave_picture_38834.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Candleman 3.3.2 Mod by youarefinished [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39705.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39705.jpgsave_picture_39705.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ GTA III – NETFLIX 1.83.44255649 Mod by apkvision [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39761.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39761.jpgsave_picture_39761.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ GTA 3 — Definitive Edition 1.83.44255649 Mod by apkvision [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39784.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39784.jpgsave_picture_39784.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Valiant Hearts: The Great War 1.0.4 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39785.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39785.jpgsave_picture_39785.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ Monument Valley 2 NETFLIX v3.7.120 Mod by apkvision [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39789.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39789.jpgsave_picture_39789.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ GTA: Vice City — Definitive Edition v1.83.44255649 Mod by apkvision [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39803.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39803.jpgsave_picture_39803.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ GTA: Vice City – NETFLIX 1.83.44255649 Mod by Apkvision [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39813.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39813.jpgsave_picture_39813.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ GTA: San Andreas — Definitive Edition 1.86.44544238 Mod by apkvision [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39833.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39833.jpgsave_picture_39833.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ GTA: San Andreas – NETFLIX 1.86.44544238 Mod by Apkvision [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39837.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39837.jpgsave_picture_39837.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ World of Goo Remastered 1.0.23082408 Mod by DroidHaven [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39876.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39876.jpgsave_picture_39876.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ Valiant Hearts: Coming Home 1.0.5 Mod by apkvision [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39882.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39882.jpgsave_picture_39882.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ Monument Valley NETFLIX 3.7.235 Mod by apkvision [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39883.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39883.jpgsave_picture_39883.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Botanicula 1.0.274 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40004.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40004.jpgsave_picture_40004.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ magnet:?xt=urn:btih:30A30E1232A8F553F7EAE3B7D8371AB2DF63CB61
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41187.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41187.jpgsave_picture_41187.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Monument Valley 2 3.7.501 Mod by youarefinished [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41809.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41809.jpgsave_picture_41809.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Monument Valley 3.4.109 Mod by youarefinished [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41822.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41822.jpgsave_picture_41822.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ Wood Block Puzzle (QBlock)  v3.9.0 Mod by vadj [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49197.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49197.jpgsave_picture_49197.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ magnet:?xt=urn:btih:4E695717F4A0CFBDFEB9CA152227091F99B6E98E
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50405.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50405.jpgsave_picture_50405.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ magnet:?xt=urn:btih:FC58621BBD23665D8ED9243A24F602FB44E4E184
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52945.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52945.jpgsave_picture_52945.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Minecraft: Pocket Edition 1.21.10.20.BETA Mod by MODAPKOKI [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53172.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53172.jpgsave_picture_53172.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Wood Block Puzzle (QBlock)  v3.6.0 Mod by vadj [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55316.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55316.jpgsave_picture_55316.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ magnet:?xt=urn:btih:B1D925938D304C92AD82B8BF0FC1716E39125517
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56292.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56292.jpgsave_picture_56292.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ magnet:?xt=urn:btih:1E45AA4B4CE175D002FCC325E2C8CD2791E65A02
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59459.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59459.jpgsave_picture_59459.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ Call of Duty: Strike Team 1.0.40 Mod by Dhаmpir & Eastlion [Ru/Uk]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59974.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59974.jpgsave_picture_59974.jpg" />
 </div>
 
 

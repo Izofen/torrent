@@ -6,7 +6,7 @@ Roll Mega, Son Little & Eric Krasno - Roll Mega (2025) [FLAC 24/48|Lossless|WEB-
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17034.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17034.jpgsave_picture_17034.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Mojo Hands - GO! GO! GO! (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17035.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17035.jpgsave_picture_17035.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Leatherjacks - Surviving the Beginning of the End (2025) [FLAC 24/48|Lossless|WE
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17036.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17036.jpgsave_picture_17036.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Dj Cult Music - Blues Dreams on the Horizon (2025) [FLAC 24/192|Lossless|WEB-DL|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17060.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17060.jpgsave_picture_17060.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Dead Romantic - Stay High (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17061.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17061.jpgsave_picture_17061.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Charlie Slavik - A Nice Reminder (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <B
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17062.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17062.jpgsave_picture_17062.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Broke Oracle - Shackle and Weight (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17063.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17063.jpgsave_picture_17063.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Big Shoes - King Size (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17084.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17084.jpgsave_picture_17084.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Big A Sherrod - Torchbearer Of The Clarksdale Sound (2025) [FLAC 24/48|Lossless|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17085.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17085.jpgsave_picture_17085.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Ash Lambe & The 32-20's - Ash Lambe & the 32-20's (2025) [FLAC 24/48|Lossless|WE
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17086.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17086.jpgsave_picture_17086.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Abrania - Back To Our Sleazy Roots (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17087.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17087.jpgsave_picture_17087.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Joe Bonamassa - Drive By The Exit Sign (2025) EP [FLAC 24/44.1|Lossless|WEB-DL|t
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17094.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17094.jpgsave_picture_17094.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Sparks - MAD! (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Synthpop>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17114.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17114.jpgsave_picture_17114.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ magnet:?xt=urn:btih:28B29B3B40577F10F810E5B39BF5F180197B9DC1
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17239.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17239.jpgsave_picture_17239.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Morcheeba - Escape The Chaos (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Electro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17246.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17246.jpgsave_picture_17246.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ VA - Jan Sparring/Nils-Borge Gardh/Linda Hutchens/Bobby Jones & New Life - Till 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17340.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17340.jpgsave_picture_17340.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Arcana - Studio Albums (9 releases) (1996-2014) hand made [restored, declipped] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17341.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17341.jpgsave_picture_17341.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Thaddeus Moss - Strip Down (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues R
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17421.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17421.jpgsave_picture_17421.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Tenkiller - Burn the Boats (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17422.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17422.jpgsave_picture_17422.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Lisa Price - Priceless (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Melodic Hard 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17423.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17423.jpgsave_picture_17423.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ Jazzy Coffee - Noir Notes (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17446.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17446.jpgsave_picture_17446.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ Gutta Verse Moon - Unusual Vision (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17447.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17447.jpgsave_picture_17447.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ Greg Foat & Jihad Darwish - Opening Time (2025) [FLAC 24/48|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17448.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17448.jpgsave_picture_17448.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ Five Foot Finn - Electric Hex (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17449.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17449.jpgsave_picture_17449.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ Extreme Tinnitus - Darlene - Extreme Tinnitus - Darlene (2025) [FLAC 24/96|Lossl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17450.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17450.jpgsave_picture_17450.jpg" />
 </div>
 
 
@@ -682,7 +682,7 @@ Audiophile NBR Music - Speak Softly Love (Deluxe Edition) (2025) [FLAC 24/48|Los
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17451.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17451.jpgsave_picture_17451.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Twiztid - Songs of Samhain, Vol. III: Cult of Night (2022) [FLAC|Lossless|WEB-DL
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237952.jpgsave_picture_237952.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Spasm - Mystery Of Obsession (2021) [APE|Lossless|image + .cue] <Goregrind>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237953.jpgsave_picture_237953.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ AudioSwitcher 3.03 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237954.jpgsave_picture_237954.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ MSI Kombustor 4.1.24.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237955.jpgsave_picture_237955.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ magnet:?xt=urn:btih:B60CE21677EDBA18040EF14E0690B6293C69543F
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237956.jpgsave_picture_237956.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ Aiseesoft Screen Recorder 2.7.18 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237957.jpgsave_picture_237957.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ magnet:?xt=urn:btih:DAD7D69B4A800790873B459B118556C323A0F29F
 >>Сериалы DC Comics
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237958.jpgsave_picture_237958.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ Dying Alone - One Man Tragedy (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Deat
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237959.jpgsave_picture_237959.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Soilent Green - Pussysoul (1994) [FLAC|Lossless|image + .cue] <Sludge, Death Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237960.jpgsave_picture_237960.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ Xliff Editor 2.9.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237961.jpgsave_picture_237961.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ IObit Smart Defrag Pro 8.4.0.262 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237962.jpgsave_picture_237962.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ Giants Dwarfs And Black Holes - In a Sandbox Full of Suns (2023) [FLAC|Lossless|
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237963.jpgsave_picture_237963.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ magnet:?xt=urn:btih:3D8791F8F7D61C387126505FE542C7280E0701C8
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237964.jpgsave_picture_237964.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ DMG Audio - All Plugins 2023.04.03 VST, VST 3, AAX, RTAS (x86/x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237965.jpgsave_picture_237965.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ Tyrano Banderas - Hacia el Abismo (2022) [FLAC|Lossless|WEB-DL|tracks] <Progress
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237966.jpgsave_picture_237966.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ magnet:?xt=urn:btih:06397BDAF667CC9A528CF5B3DC794BCB165A6D1D
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237967.jpgsave_picture_237967.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Megaride - Mo (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Stoner, Grunge>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237968.jpgsave_picture_237968.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Black & Damned - Servants Of The Devil (2023) [MP3|320 Kbps] <Heavy, Power Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237969.jpgsave_picture_237969.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ magnet:?xt=urn:btih:E0B1CAAA33150FA8E2F1F6ECC7E1632960D93292
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237970.jpgsave_picture_237970.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ CyberLink PowerDirector Ultimate 21.4.2812.0 (x64) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237971.jpgsave_picture_237971.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ Tyranis - Failure to Yield (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237973.jpgsave_picture_237973.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Four By Fate - Relentless (2016) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237974.jpgsave_picture_237974.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ magnet:?xt=urn:btih:0054B50951F2D0B5113C8B990325B2293D4BF5E4
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237975.jpgsave_picture_237975.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Nat "King" Cole - 1947, Vol. 3 (2000) Classics [FLAC|Lossless|tracks + .cue] <Vo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237976.jpgsave_picture_237976.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ Icecream Video Editor Pro 2.72 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237977.jpgsave_picture_237977.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Arched Fire - Trust Betrayal (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Speed 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237978.jpgsave_picture_237978.jpg" />
 </div>
 
 

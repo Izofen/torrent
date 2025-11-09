@@ -6,7 +6,7 @@
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100604.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100604.jpgsave_picture_100604.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Melyazm - Чтобы было (2014) [MP3|320 Kbps] <Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100605.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100605.jpgsave_picture_100605.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:BA2224F5476FF801E248A6EC77A980745D8D2F3C
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_100606.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_100606.jpgsave_picture_100606.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ VA - The Best Releases 2024 of Endlessky Audio (By Abstract Moon & André Wilden
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100607.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100607.jpgsave_picture_100607.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Natalia Lafourcade - Natalia Lafourcade Live at Carnegie Hall 2022 (2024) [FLAC 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100608.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100608.jpgsave_picture_100608.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ Art Blakey - In This Korner (1978) 1992, Concord Jazz [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100609.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100609.jpgsave_picture_100609.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ magnet:?xt=urn:btih:B40DBF9C821435F27C5BE584DEF5C7801DABFB9B
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100610.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100610.jpgsave_picture_100610.jpg" />
 </div>
 
 
@@ -187,7 +187,7 @@ magnet:?xt=urn:btih:72EE4E7ED41A571252890E3764DF2667F6FE9BA4
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_100611.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_100611.jpgsave_picture_100611.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ magnet:?xt=urn:btih:3CE68444E7BCE9A63EEA909D3ABF03A85F379EE3
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100612.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100612.jpgsave_picture_100612.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ magnet:?xt=urn:btih:28A1C33A3BC03804705E7CBAFDC1DB99F7080F03
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100613.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100613.jpgsave_picture_100613.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ magnet:?xt=urn:btih:69D285C0D367B73FFBCE87F108159EB3C962FEC7
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100614.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100614.jpgsave_picture_100614.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ Anna's Quest (2015) [Ru/Multi] (1.3.4792) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100615.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100615.jpgsave_picture_100615.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ Magic Eraser / Магический ластик v2.16.4 Mod by Maximoff⁠ [Ru/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100616.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100616.jpgsave_picture_100616.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ Teach In - See The Sun (1977) Remastered 2024 [FLAC|Lossless|WEB-DL|tracks] <Pop
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100617.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100617.jpgsave_picture_100617.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ Ji Jia Shou Shen: Baolie Feiche 4 | Screechers Wild 4! | Дикие Скриче
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100618.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100618.jpgsave_picture_100618.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ VA - SAW 2 ((2005-2024)) [MP3|320 Kbps] <Alternative Metal, Nu-Metal, Progressiv
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100619.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100619.jpgsave_picture_100619.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ magnet:?xt=urn:btih:E4DD8DE945A6E655774CC58AAF79BEA3F0BE00C1
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100620.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100620.jpgsave_picture_100620.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ STEEZY Studio - Learn To Dance v5.3.0 Mod by youarefinished [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100621.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100621.jpgsave_picture_100621.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ magnet:?xt=urn:btih:4C928A631E5AB3CCD6B649B3D87FCF951EA01D3D
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100622.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100622.jpgsave_picture_100622.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ An Airport for Aliens Currently Run by Dogs (2021) [En] (1.3) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100623.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100623.jpgsave_picture_100623.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ VA - SAW 5 (2005-2024) [MP3|320 Kbps] <Alternative Metal, Nu-Metal, Progressive 
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100624.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100624.jpgsave_picture_100624.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ magnet:?xt=urn:btih:AB07E215FFE296D411F56AF62584D86FDAB4A809
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100625.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100625.jpgsave_picture_100625.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ magnet:?xt=urn:btih:F01F859A9AD551F81F5A2BEB72C2FC5740CC025E
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100626.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100626.jpgsave_picture_100626.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ magnet:?xt=urn:btih:FD3F8E15622396CD55541AF36015B511788D64A0
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100627.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100627.jpgsave_picture_100627.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ magnet:?xt=urn:btih:3315BEE34357D57D6D9C566348B999AFF141DA74
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100628.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100628.jpgsave_picture_100628.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Text Editor Pro 31.2.0 + Portable + Bonus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100629.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100629.jpgsave_picture_100629.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Mojo Man - Love & Revolution (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103531.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103531.jpgsave_picture_103531.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Doc Payne - Totally Unconventional (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <B
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103532.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103532.jpgsave_picture_103532.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Swallow The Sun - Shining (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Gothic-Doo
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103535.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103535.jpgsave_picture_103535.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Gato Barbieri - Standards Lost And Found 1 (2024) [FLAC 24/48|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103536.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103536.jpgsave_picture_103536.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Biest - Labyrinth (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103537.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103537.jpgsave_picture_103537.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Bronski Beat - The Age of Consent (1984) 40 Year Anniversary Edition, 2024, Lond
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103540.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103540.jpgsave_picture_103540.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Black D.O.G - It's A Long Way For Rock'N'Roll (2024) [FLAC 24/44.1|Lossless|WEB-
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103552.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103552.jpgsave_picture_103552.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Red Giant - Red Giant (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103561.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103561.jpgsave_picture_103561.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Health - Rat Wars (2023) Ultra Edition, 2024,  Loma Vista Recordings [FLAC 24/48
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103574.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103574.jpgsave_picture_103574.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Widespread Panic - Warfield 2000 #4 (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103576.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103576.jpgsave_picture_103576.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ DGM - Endless (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive Metal>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103577.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103577.jpgsave_picture_103577.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ Cold Cave - Passion Depression (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Syn
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103594.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103594.jpgsave_picture_103594.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ magnet:?xt=urn:btih:20825ABE652672B000F16399C2C70BBCF8F76045
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103611.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103611.jpgsave_picture_103611.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ Joe Bonamassa - Different Shades Of Blue (Overdrive) (2014) 2024 Reissue, 10th A
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103671.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103671.jpgsave_picture_103671.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ Def Leppard - Live At The Leadmill (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <H
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103690.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103690.jpgsave_picture_103690.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Cemetery Skyline - Nordic Gothic (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <E
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103701.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103701.jpgsave_picture_103701.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Dragony - Hic Svnt Dracones (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Sympho
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103702.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103702.jpgsave_picture_103702.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Astral Magic - Those Who Came from the Stars (2024) [FLAC 24/48|Lossless|WEB-DL|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103712.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103712.jpgsave_picture_103712.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Tove Lo - Queen Of The Clouds: X (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <P
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103713.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103713.jpgsave_picture_103713.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Chicago - John F. Kennedy Center For The Performing Arts, Washington D.C. (9/16/
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103714.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103714.jpgsave_picture_103714.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Ad Infinitum - Abyss (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Symphonic met
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103715.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103715.jpgsave_picture_103715.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Johan Steensland - Crossfade (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103716.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103716.jpgsave_picture_103716.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ House Of Lords - Full Tilt Overdrive (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103719.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103719.jpgsave_picture_103719.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Radioactive - Reset (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103721.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103721.jpgsave_picture_103721.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Roberto Sass - Transit (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Downtempo, 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103724.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103724.jpgsave_picture_103724.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Our Graves - System Overload (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <EBM, 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103727.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103727.jpgsave_picture_103727.jpg" />
 </div>
 
 

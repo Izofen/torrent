@@ -6,7 +6,7 @@
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188068.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188068.jpgsave_picture_188068.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Robert Babicz - Light Of The Universe (2023) [FLAC|Lossless|WEB-DL|tracks] <Tech
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188069.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188069.jpgsave_picture_188069.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ Windows Server 2025 LTSC [10.0.26100.6899], Version 24H2 (Updated October 2025) 
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188070.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188070.jpgsave_picture_188070.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ Brian Setzer - The Devil Always Collects (2023) [FLAC|Lossless|image + .cue] <Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188071.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188071.jpgsave_picture_188071.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ Windows Server [10.0.25398.1913], version 23H2 (Updated October 2025) - Ориг
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188072.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188072.jpgsave_picture_188072.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ magnet:?xt=urn:btih:D0DB639D30EDDC660550B5EFE85A2BEDF017FFA9
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188073.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188073.jpgsave_picture_188073.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ Windows Server 2022 LTSC [10.0.20348.4294], Version 21H2 (Updated October 2025) 
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188074.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188074.jpgsave_picture_188074.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ WPS Office + PDF 18.2 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188075.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188075.jpgsave_picture_188075.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ VA - Top 9 August 2023 Emotional and Uplifting Trance (2023) [MP3|320 Kbps] <Tra
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188076.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188076.jpgsave_picture_188076.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ magnet:?xt=urn:btih:1850CC987DAC17491C140D561BA90D952312E408
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188077.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188077.jpgsave_picture_188077.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ Seventh Wonder - Studio Albums (6 releases) (2005-2022) hand made [restored, dec
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188078.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188078.jpgsave_picture_188078.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ Microsoft Windows 11 [10.0.26100.6899], Version 24H2 (Updated October 2025) - О
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188079.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188079.jpgsave_picture_188079.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ Dana Landry - Journey Home (2002) 2005, Summit Records [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188080.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188080.jpgsave_picture_188080.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ Microsoft Windows 11 [10.0.26100.6899], Version 24H2 (Updated October 2025) - О
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188081.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188081.jpgsave_picture_188081.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ magnet:?xt=urn:btih:6793E6BDCE9ECF37CADB81DE36852788F0CD03C4
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188082.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188082.jpgsave_picture_188082.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Microsoft Windows 11 [10.0.22631.6060], Version 23H2 (Updated October 2025) - О
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188083.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188083.jpgsave_picture_188083.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ VA - 10 Years Of Suanda Music - Mixed by Adip Kiyoi (2023) [MP3|320 Kbps] <Tranc
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188084.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188084.jpgsave_picture_188084.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ magnet:?xt=urn:btih:7E2F7333FE1449BF206FB88A9BDADB19B20E7400
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188085.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188085.jpgsave_picture_188085.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ Microsoft Windows 11 [10.0.22631.6060], Version 23H2 (Updated October 2025) - О
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188086.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188086.jpgsave_picture_188086.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Roadwolf - Unchain the Wolf (2021) [FLAC|Lossless|image + .cue] <Heavy Metal, Ha
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188087.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188087.jpgsave_picture_188087.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ Microsoft Windows 10 [10.0.19045.6456], Version 22H2 (Updated October 2025) - О
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188088.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188088.jpgsave_picture_188088.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Microsoft Visual Studio 2022 Enterprise 17.14.18 (Offline Cache) [Ru/En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188089.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188089.jpgsave_picture_188089.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ WiFi Analyzer v6.6 (b104) Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188090.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188090.jpgsave_picture_188090.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Smart AudioBook Player Pro v11.5.5 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188091.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188091.jpgsave_picture_188091.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Vampire The Masquerade - Bloodlines 2 (2025) [Ru/Multi] (46047/dlc) Repack Let's
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188092.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188092.jpgsave_picture_188092.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ Vanced Tube v5.5.80.115 Mod by TRUMods [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188093.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188093.jpgsave_picture_188093.jpg" />
 </div>
 
 

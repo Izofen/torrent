@@ -6,7 +6,7 @@ RogueKiller Anti-Malware 15.13.0 + Portable [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161114.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161114.jpgsave_picture_161114.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:5C5A4E61D10E53FBE54E1D545627838A4317289C
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161115.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161115.jpgsave_picture_161115.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Disk Analyzer Pro 4.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161116.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161116.jpgsave_picture_161116.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:2D94AE8366BDE9B4818FA0781E1E2CE9956E1424
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161117.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161117.jpgsave_picture_161117.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:8EFA00AA5D19B97485680BFFBC03C73CA799A23A
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161118.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161118.jpgsave_picture_161118.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ jetAudio HD Music Player Plus v12.0.1 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161119.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161119.jpgsave_picture_161119.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ VA - Lounge Top 55 Deluxe, the Very Best of, Vol. 1 (2014) [AAC|~328 Kbps] <Loun
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161120.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161120.jpgsave_picture_161120.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:78F602458D9520786B225A2CE3E7653BAF761E41
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161121.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161121.jpgsave_picture_161121.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Photo Perspective Pro 1.6.4 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161122.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161122.jpgsave_picture_161122.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ FastStone Capture 10.3 Final RePack (& portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161123.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161123.jpgsave_picture_161123.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Microsoft Windows 11 [10.0.22000.1335], Version 21H2 (Updated December 2022) - �
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161124.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161124.jpgsave_picture_161124.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:0F3A9BCCB3A436A6230D365EE27B60A063CD5C11
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161125.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161125.jpgsave_picture_161125.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Times Of Grace - Songs Of Loss And Separation (2021) [FLAC|Lossless|tracks + .cu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161126.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161126.jpgsave_picture_161126.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ magnet:?xt=urn:btih:0735047319C32E599CE87B0723C8E14D234618E0
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161127.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161127.jpgsave_picture_161127.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ magnet:?xt=urn:btih:D6C81623EAD8F70839A9DD4E10169D12B48E7D95
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161128.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161128.jpgsave_picture_161128.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ magnet:?xt=urn:btih:C800DE185892A3C0B92AD9B3093A383F5C1619E8
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161129.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161129.jpgsave_picture_161129.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ magnet:?xt=urn:btih:FB13DBFC199ACE24C884EFBDFE37E04AFAC8E661
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161130.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161130.jpgsave_picture_161130.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ VA - Vocal Melodic Techno for U (2022) [MP3|320 Kbps] <Melodic Techno>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161131.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161131.jpgsave_picture_161131.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Icecream Screen Recorder Pro 7.31 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161132.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161132.jpgsave_picture_161132.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ VA - Record Super Chart 667 (2020) [MP3|320 Kbps] <Pop, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161133.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161133.jpgsave_picture_161133.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ magnet:?xt=urn:btih:2D8B338A6E0187AE8E012C18D06DC75F592A8F0E
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161134.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161134.jpgsave_picture_161134.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ magnet:?xt=urn:btih:9AEF7146684C3DEDBCB1E80E212C9D6F4488E9C5
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161135.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161135.jpgsave_picture_161135.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Meta 2.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161136.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161136.jpgsave_picture_161136.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ magnet:?xt=urn:btih:B131FC549AB6FCF81FB2F4E6510820E2E338FB65
 >>История
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161137.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161137.jpgsave_picture_161137.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Microsoft Windows 10.0.19044.2364, Version 21H2 (Updated December 2022) - Ори
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161138.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161138.jpgsave_picture_161138.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ magnet:?xt=urn:btih:6B19CE3F24A82E4F43B0AD9BE7E2996220C4945E
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161139.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161139.jpgsave_picture_161139.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189161.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189161.jpgsave_picture_189161.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Oslo - Don't Turn Your Back (1991) Remaster, 2022, Metallic Blue Records [FLAC|L
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189162.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189162.jpgsave_picture_189162.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Black Widows - Among The Brave Ones (2022) [FLAC|Lossless|WEB-DL|tracks] <Gothic
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189163.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189163.jpgsave_picture_189163.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:CA0595EA0A282471933E434C128C5C140E1C6274
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189164.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189164.jpgsave_picture_189164.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Two Of A Kind - Two Of A Kind (2007) [FLAC|Lossless|image + .cue] <Hard Rock, AO
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189165.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189165.jpgsave_picture_189165.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Idris Muhammad - Turn This Mutha Out (1977) 2016, King Record [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189166.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189166.jpgsave_picture_189166.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ magnet:?xt=urn:btih:DB996970C5FC028B19E65FF30994F2C99FDBDD9B
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189167.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189167.jpgsave_picture_189167.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Remina - Strata (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189168.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189168.jpgsave_picture_189168.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ magnet:?xt=urn:btih:987D092B1FE888D34FA3ACF702F337D1D0049465
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189169.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189169.jpgsave_picture_189169.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ magnet:?xt=urn:btih:4446ADFB695C5F3F358E7D94EAB623863A7A84F7
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189170.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189170.jpgsave_picture_189170.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ MEmu 9.0.6.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189171.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189171.jpgsave_picture_189171.jpg" />
 </div>
 
 
@@ -289,7 +289,7 @@ I Am - Eternal Steel (2022) [FLAC|Lossless|WEB-DL|tracks] <Deathcore, Hardcore>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189172.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189172.jpgsave_picture_189172.jpg" />
 </div>
 
 
@@ -316,7 +316,7 @@ magnet:?xt=urn:btih:7A737FB174391953366D3B45DD4E12BB8F55991E
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189173.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189173.jpgsave_picture_189173.jpg" />
 </div>
 
 
@@ -341,7 +341,7 @@ Stratovarius - Unbreakable (2013) [OGG Vorbis|480 Kbps] <Rock, Heavy Metal, Powe
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189174.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189174.jpgsave_picture_189174.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ magnet:?xt=urn:btih:09C991C3BB1F872622E29805215F26106D0C5005
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189175.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189175.jpgsave_picture_189175.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ Doomocracy - Unorthodox (2022) [FLAC|Lossless|WEB-DL|tracks] <Epic Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189176.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189176.jpgsave_picture_189176.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ AIDA64 Extreme | Engineer | Business Edition | Network Audit 6.92.6600 RePack (&
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189177.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189177.jpgsave_picture_189177.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ Silent Cry - Terra (2022) [FLAC|Lossless|WEB-DL|tracks] <Gothic Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189178.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189178.jpgsave_picture_189178.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ magnet:?xt=urn:btih:ECD89A726C175016ED83BB15EEA776DA59FC7DBD
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189179.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189179.jpgsave_picture_189179.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Kyndra - Visions And Voices (2022) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189180.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189180.jpgsave_picture_189180.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ NVIDIA GeForce Desktop Game Ready 537.34 WHQL + DCH [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189181.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189181.jpgsave_picture_189181.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ Kitze | Zero To Shipped (2023) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189182.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189182.jpgsave_picture_189182.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Capture One 23 Pro 16.2.4.34 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189183.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189183.jpgsave_picture_189183.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Topaz Video AI 3.4.4 (x64) RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189184.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189184.jpgsave_picture_189184.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ VA - Italo 2000 - Italo Dance Classics Vol. 1 (1998) 2CD [OGG Vorbis|480 Kbps] <
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189185.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189185.jpgsave_picture_189185.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ Uninstall Tool 3.7.3 Build 5718 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189186.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189186.jpgsave_picture_189186.jpg" />
 </div>
 
 

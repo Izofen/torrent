@@ -6,7 +6,7 @@ Miasma Chronicles (2023) [Ru/Multi] (1.1.1729.42704) Repack Other s
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188636.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188636.jpgsave_picture_188636.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:6C2C505F48768E54BD67D318AC61706DF09BB00F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188637.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188637.jpgsave_picture_188637.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ LDPlayer 9.0.28 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188638.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188638.jpgsave_picture_188638.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:D47627C960E703F693D5A3FD807E50EB72C96EBE
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188639.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188639.jpgsave_picture_188639.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ God Of Weapons (2023) [Ru/Multi] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188640.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188640.jpgsave_picture_188640.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Auslogics BoostSpeed 13.0.0.1 RePack (& Portable) by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188641.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188641.jpgsave_picture_188641.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:4B71157EC6D4D514F3CC65C360810322D7657C06
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188642.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188642.jpgsave_picture_188642.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:6997C8C2A6E3BC3AF9A31DA481DE5EA3362CB39C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188643.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188643.jpgsave_picture_188643.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ VA - Dance Hits of the outgoing year (2022) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188644.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188644.jpgsave_picture_188644.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:69A837AACD71BD86710CE21A52C9EA01C38EB4E5
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188645.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188645.jpgsave_picture_188645.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:B6FEDB5F0B6954225383922458E491B912C0FB5A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188646.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188646.jpgsave_picture_188646.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ VA - Super Mega Hits (2022) [MP3|320 Kbps] <Electropop, Dancehall, Synth-pop, Af
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188650.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188650.jpgsave_picture_188650.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ magnet:?xt=urn:btih:36B3A2F5B93589BCB160B42EC198C534FBED7A23
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188651.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188651.jpgsave_picture_188651.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ kobezzza.channel, Андрей Кобец | «Computer Science во Frontend». 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188652.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188652.jpgsave_picture_188652.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ magnet:?xt=urn:btih:BC02E0F7E4D49699FEC2D5BB58D72A5CD67EB6A6
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188653.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188653.jpgsave_picture_188653.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ magnet:?xt=urn:btih:B1D753135ADA21C805647BB60F387C6B4AE997F9
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188654.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188654.jpgsave_picture_188654.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ magnet:?xt=urn:btih:DB6844575CB243D23D7DD68A0CDC7D129D58CE08
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188655.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188655.jpgsave_picture_188655.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ magnet:?xt=urn:btih:53EA77B23237D4EF5E0B8CA5D8DED1C6753FF279
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188656.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188656.jpgsave_picture_188656.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ magnet:?xt=urn:btih:7822F9942F0CFFE0A54FA52911BC7AC77B6D01F1
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188657.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188657.jpgsave_picture_188657.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ Suzi Quatro - Uncovered (2022) [DSD 128|tracks|Vinyl-Rip] <Glam-Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188658.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188658.jpgsave_picture_188658.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ magnet:?xt=urn:btih:C5930AF51E77D9D26876F9B89210A5F9B1D8B82B
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188659.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188659.jpgsave_picture_188659.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ Murder House (2020) [Ru/Multi] (1.0.2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188660.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188660.jpgsave_picture_188660.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ magnet:?xt=urn:btih:72050145D856B6AF481866EAF9E1689F776A1736
 >>Native *Nix Games
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188661.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188661.jpgsave_picture_188661.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ magnet:?xt=urn:btih:7C97DE030FD71DB5E1BC4B26A2DC21DA90E6E65B
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188662.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188662.jpgsave_picture_188662.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ magnet:?xt=urn:btih:A71D559B56B9B66FE717B9F8431AE3F884151683
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188663.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188663.jpgsave_picture_188663.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ magnet:?xt=urn:btih:714DB43AB75A5EDC964BDFCDD4A9FBA373E5F746
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188665.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188665.jpgsave_picture_188665.jpg" />
 </div>
 
 

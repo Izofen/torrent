@@ -6,7 +6,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88417.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88417.jpgsave_picture_88417.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:EF0FEC960EB2C2A3B0B5A67C1CDD916F6057CE02
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88418.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88418.jpgsave_picture_88418.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:EF0FEC960EB2C2A3B0B5A67C1CDD916F6057CE02
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88420.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88420.jpgsave_picture_88420.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:DA0364D4ED4721D81C145291A4A90502F619147E
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88427.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88427.jpgsave_picture_88427.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Space - The Very Best Of Space (2011) [FLAC|Lossless|image + .cue] <Electronic, 
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88430.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88430.jpgsave_picture_88430.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Wasurenagumo / Паучонок [2012, TV-sp.] HDTV 720p 10bit raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88433.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88433.jpgsave_picture_88433.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ Wasurenagumo / Паучонок [2012, TV-sp.] HDTV 720p 10bit raw
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88435.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88435.jpgsave_picture_88435.jpg" />
 </div>
 
 
@@ -187,7 +187,7 @@ magnet:?xt=urn:btih:F31CF8D5CACF575771BF043A4E9458E308D92EE2
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88436.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88436.jpgsave_picture_88436.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ magnet:?xt=urn:btih:F31CF8D5CACF575771BF043A4E9458E308D92EE2
 >>Отечественные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88437.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88437.jpgsave_picture_88437.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ Tezuka Osamu no Buddha: Akai Sabaku yo! Utsukushiku / Будда: Пустыня
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88438.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88438.jpgsave_picture_88438.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ Blumenthal Web Builder 2011 11.2.2.131 [Русский, Английский, Н
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88439.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88439.jpgsave_picture_88439.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ WeBuilder является революционным все-в-одном ве�
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88441.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88441.jpgsave_picture_88441.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ Auslogics BoostSpeed 5.2.1.10 Portable by PortableApps [Мульти, Русск
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88444.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88444.jpgsave_picture_88444.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ Auslogics BoostSpeed 5.2.1.10 Portable - Портативная версия п�
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88445.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88445.jpgsave_picture_88445.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ Auslogics BoostSpeed 5.2.1.10 Portable - Портативная версия п�
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88447.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88447.jpgsave_picture_88447.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ magnet:?xt=urn:btih:897707717C1CEC6B7B3658259F1CA9398734AF9F
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88448.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88448.jpgsave_picture_88448.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ Tears For Fears - Songs From The Big Chair (1985) [WavPack|Lossless] US Remaster
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88449.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88449.jpgsave_picture_88449.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Tears For Fears - Songs From The Big Chair (1985) [WavPack|Lossless] US Remaster
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88453.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88453.jpgsave_picture_88453.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Tears For Fears - Songs From The Big Chair (1985) [WavPack|Lossless] US Remaster
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88454.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88454.jpgsave_picture_88454.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Tears For Fears - Songs From The Big Chair (1985) [WavPack|Lossless] US Remaster
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88455.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88455.jpgsave_picture_88455.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ VA - Фестиваль Авторадио 80-90-Х 50/50 (2012) [MP3|256 kbps]<
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88461.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88461.jpgsave_picture_88461.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ magnet:?xt=urn:btih:FE09B44D74E5C7961AAB8854628A8F54D613EBBD
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88466.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88466.jpgsave_picture_88466.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:FE09B44D74E5C7961AAB8854628A8F54D613EBBD
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88468.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88468.jpgsave_picture_88468.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ DFX Audio Enhancer 10.137 [Eng + русификатор]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88469.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88469.jpgsave_picture_88469.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ DFX Audio Enhancer — звуковой плагин для улучшения �
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88471.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88471.jpgsave_picture_88471.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ magnet:?xt=urn:btih:F183A9D750CA94624322FFED2A83D445F3BB34A9
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88473.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88473.jpgsave_picture_88473.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24285.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24285.jpgsave_picture_24285.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:3ED6DCEE143DC9F6A39EB60CC1553B1D0B60B7D1
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24286.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24286.jpgsave_picture_24286.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:CFF30FA7E6634100ABFC9AE5FE22D77F23B5416D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24287.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24287.jpgsave_picture_24287.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:F157DEFD169575282C3839EDEF986DCFA5C816E2
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24288.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24288.jpgsave_picture_24288.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:8C35315FA896BBB108A6B9019C4A7B3ABE8A7C08
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24289.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24289.jpgsave_picture_24289.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:0C66E8AFB13F8102069FE9026145CAECE05716BD
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24290.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24290.jpgsave_picture_24290.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ RUTUBE - видео, шоу, трансляции 30.1.4.TV-androidtv [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24291.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24291.jpgsave_picture_24291.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ inPixio Photo Eraser 10.5.7924 Portable by FC Portables [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24292.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24292.jpgsave_picture_24292.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:7A184668591DA31EE151A2AAB0192B174C4AA133
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24293.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24293.jpgsave_picture_24293.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Udemy, Penny de Byl | Shader Development from Scratch with Cg - Unity 6 Compatib
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24294.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24294.jpgsave_picture_24294.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:BECBF8AF37197366BD1DAF8341A9D3C10CDF0BED
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24295.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24295.jpgsave_picture_24295.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:6679439EDADAE548D2893C6D40DA4E01A9EBA690
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24296.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24296.jpgsave_picture_24296.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:D3FE25E67E1F79208BE0E3B2FE8B59D00A56BD51
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24297.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24297.jpgsave_picture_24297.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ SIV (System Information Viewer) 5.80 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24298.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24298.jpgsave_picture_24298.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ magnet:?xt=urn:btih:2E039DC4BFF8D04CF46A7CEBFD6206567E56C59B
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24299.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24299.jpgsave_picture_24299.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ inPixio Photo Cutter 10.5.8105 Portable by FC Portables [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24300.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24300.jpgsave_picture_24300.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ magnet:?xt=urn:btih:93726217333B344B3A9962A665E58F22D4F2545E
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24301.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24301.jpgsave_picture_24301.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ Ori and the Blind Forest (2015) [Ru/Multi] (1.0/dlc) Repack seleZen [Definitive 
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24302.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24302.jpgsave_picture_24302.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ EZ CD Audio Converter 12.1.0.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24303.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24303.jpgsave_picture_24303.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Ori and the Will of the Wisps (2020) [Ru/Multi] (3.1) Repack seleZen
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24304.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24304.jpgsave_picture_24304.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ magnet:?xt=urn:btih:6A2692221BBE9CDC6F61E43A9E19A7D5737FD9FD
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24305.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24305.jpgsave_picture_24305.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:AA27E9BCD58F5FC92C4C13701B728D6F3328956B
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24306.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24306.jpgsave_picture_24306.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ magnet:?xt=urn:btih:4B5830F4D720B5E8F515D76C1AB18754E7E312E8
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24307.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24307.jpgsave_picture_24307.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ magnet:?xt=urn:btih:EBE78F648AA33AEAB47EBC0C9D4B66B9D4E80D37
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24308.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24308.jpgsave_picture_24308.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Hauntsville (2025) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24309.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24309.jpgsave_picture_24309.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Republic of Pirates (2024) [Ru/Multi] (0.32.1.24) Repack Let'sРlay
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24310.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24310.jpgsave_picture_24310.jpg" />
 </div>
 
 

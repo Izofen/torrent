@@ -6,7 +6,7 @@
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243195.jpgsave_picture_243195.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:31DE608AB254AC744BD400DEC351B74C0199DEA5
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243196.jpgsave_picture_243196.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Trallery - Catalepsy (2013) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243197.jpgsave_picture_243197.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ VA - ZYX Italo Disco New Generation Vol. 2 (2013) 2 CD [OGG Vorbis|480 Kbps] <It
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243199.jpgsave_picture_243199.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ VA - The Synthpop Disco (2022) [MP3|320 Kbps] <Synthpop, Electronic, Electro Pop
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243200.jpgsave_picture_243200.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ magnet:?xt=urn:btih:D889B543F621E8D26DEE1690C948C74B97CAE693
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243201.jpgsave_picture_243201.jpg" />
 </div>
 
 
@@ -161,7 +161,7 @@ Disk Graph 2.1.15 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243202.jpgsave_picture_243202.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ magnet:?xt=urn:btih:19A1D35E88A0195789412D17B6EFDE4CAE08CE1C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243203.jpgsave_picture_243203.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ MKVToolNix 75.0.0 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243204.jpgsave_picture_243204.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ Smokin' Gun - Live Round From Seattle (2000) Live [FLAC|Lossless|image + .cue] <
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243206.jpgsave_picture_243206.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ magnet:?xt=urn:btih:E15B7971D0DA2B5EB0105A623A2A441F69A6A49D
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243207.jpgsave_picture_243207.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ magnet:?xt=urn:btih:8E6CC979A43102F0FE09584A7BC56C76D36F850A
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243208.jpgsave_picture_243208.jpg" />
 </div>
 
 
@@ -314,7 +314,7 @@ Universal Sigh - Cherish (2020) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243209.jpgsave_picture_243209.jpg" />
 </div>
 
 
@@ -341,7 +341,7 @@ Nordjevel - Nordjevel (2016) Limited Edition [FLAC|Lossless|image + .cue] <Black
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243210.jpgsave_picture_243210.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ magnet:?xt=urn:btih:C6A4BBC2530CB2B2AA0482845C7A2507DAF40B0A
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243211.jpgsave_picture_243211.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ Uartsy, Jahirul Amin | Rigging Fundamentals in Maya (2017) PCRec [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243212.jpgsave_picture_243212.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Themes for Keynote 5.1 [Multi/Ru]]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243213.jpgsave_picture_243213.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:100FA3EFBC511B14614AEF2FE8CBE2E204E4C53C
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243214.jpgsave_picture_243214.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Rainbow - Down To Earth (1979) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243215.jpgsave_picture_243215.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Joy Walls - 4k Wallpapers App v1.8 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243216.jpgsave_picture_243216.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Dark Fury - Vae Victis! (2004) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243218.jpgsave_picture_243218.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Johnny Griffin - Four Classic Albums 1956 - 1958 (2017) 2CD, Avid Jazz [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243219.jpgsave_picture_243219.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ magnet:?xt=urn:btih:44A85ACB28D6D0C01C80307AC224263C1F561EF1
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243220.jpgsave_picture_243220.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Caramba Switcher 2022.03.29 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243221.jpgsave_picture_243221.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ magnet:?xt=urn:btih:50A1182B57C08C0CB9E524E33F2388B4ABCBB1AA
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243222.jpgsave_picture_243222.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ magnet:?xt=urn:btih:403C6565AF21F0AA350F119DF7D964E1C4724CC2
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243223.jpgsave_picture_243223.jpg" />
 </div>
 
 

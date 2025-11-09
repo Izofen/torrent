@@ -6,7 +6,7 @@
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134289.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134289.jpgsave_picture_134289.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Monolith - Circulus Novem (2023) [FLAC|Lossless|WEB-DL|tracks] <Instrumental Dje
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134291.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134291.jpgsave_picture_134291.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:59E2857B1B8B366F0648396403F6E8E5CD3C2398
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134292.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134292.jpgsave_picture_134292.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ Maelfoy - Failures, Fears and Forgiveness (2023) [FLAC|Lossless|WEB-DL|tracks] <
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134293.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134293.jpgsave_picture_134293.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Sorcerer - Studio Albums (5 releases) (1995-2023) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134295.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134295.jpgsave_picture_134295.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ magnet:?xt=urn:btih:BDC3ED87E069E8D7549EFC266D31E2662FEEC012
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134296.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134296.jpgsave_picture_134296.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ VA - Sleaze Rock (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134297.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134297.jpgsave_picture_134297.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Driver Genius 12.0.0.1211 RePack (& Portable) by KpoJIuK (24.12.2012) [Русс�
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134298.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134298.jpgsave_picture_134298.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Driver Genius Professional - программа для управления др
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134299.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134299.jpgsave_picture_134299.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ magnet:?xt=urn:btih:88F4B28AB2D669518FB859BE6F58D69BE535ED95
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134300.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134300.jpgsave_picture_134300.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ magnet:?xt=urn:btih:A963D10517D342AC7CE5F93D20CEB8278AE2ED68
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134301.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134301.jpgsave_picture_134301.jpg" />
 </div>
 
 
@@ -291,7 +291,7 @@ magnet:?xt=urn:btih:F9A1DA3D86CD0A180AD9999609FC6E1AF0BBDF0D
 >>Костюмы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134302.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134302.jpgsave_picture_134302.jpg" />
 </div>
 
 
@@ -316,7 +316,7 @@ magnet:?xt=urn:btih:36E3CECE0162922F72CDE7DEDE96FFAE807A222B
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134303.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134303.jpgsave_picture_134303.jpg" />
 </div>
 
 
@@ -340,7 +340,7 @@ magnet:?xt=urn:btih:58E9E4344D1BF60135FFB7CE437EE8E56FD3C195
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134304.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134304.jpgsave_picture_134304.jpg" />
 </div>
 
 
@@ -364,7 +364,7 @@ magnet:?xt=urn:btih:58E9E4344D1BF60135FFB7CE437EE8E56FD3C195
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134305.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134305.jpgsave_picture_134305.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ magnet:?xt=urn:btih:EF6E1919A826CCC064E3A9D774B1A99CD3267DBD
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134306.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134306.jpgsave_picture_134306.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Radical Dance Faction & Youth - Welcome to the Edge (2023) [FLAC|Lossless|WEB-DL
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134307.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134307.jpgsave_picture_134307.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ magnet:?xt=urn:btih:F7C63A739D33BBF6210DDC5BC846841DAF30731E
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134308.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134308.jpgsave_picture_134308.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Librarian Pro 7 v.7.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134309.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134309.jpgsave_picture_134309.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ magnet:?xt=urn:btih:A7B5CE8D89FAA70A9E29245BEB772D29ACB00D59
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134310.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134310.jpgsave_picture_134310.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ magnet:?xt=urn:btih:A7B5CE8D89FAA70A9E29245BEB772D29ACB00D59
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134312.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134312.jpgsave_picture_134312.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ magnet:?xt=urn:btih:9570AA4A66660CAD021A1DAF6FBCF591B845A0D2
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134314.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134314.jpgsave_picture_134314.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ magnet:?xt=urn:btih:21E48FAE6DB6E8F357A843ACE4EDB7A173993190
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134315.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134315.jpgsave_picture_134315.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Dash 7.2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134316.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134316.jpgsave_picture_134316.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ JixiPix Artista Impresso Pro 1.8.24 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134317.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134317.jpgsave_picture_134317.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ magnet:?xt=urn:btih:56BB1D0CCE5C2D2ED661D5F4D2BCBB8F096B6C68
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134319.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134319.jpgsave_picture_134319.jpg" />
 </div>
 
 

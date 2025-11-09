@@ -6,7 +6,7 @@ Karel Formant - Hungry for Love (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Bl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101113.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101113.jpgsave_picture_101113.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ The Smoothies - My Cozy Winter in Soul (2024) [FLAC 24/48|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101114.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101114.jpgsave_picture_101114.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Yuri Sosnin - The Night (2024) [MP3|320 Kbps] <Italo-Disco, Instrumental>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101115.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101115.jpgsave_picture_101115.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:E29A863596F4F3C9538932A4935C7D355C2E02ED
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101116.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101116.jpgsave_picture_101116.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Everdune - The Aces Strike Back (2024) [MP3|320 Kbps] <Spacesynth, Synthdance>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101117.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101117.jpgsave_picture_101117.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Cтарец Иосиф Ватопедский | О кончине века и а
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101118.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101118.jpgsave_picture_101118.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ After Evolution - War of the Worlds (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101119.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101119.jpgsave_picture_101119.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Everdune - The Aces Strike Back (2024) [FLAC|Lossless|WEB-DL|tracks] <Spacesynth
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101120.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101120.jpgsave_picture_101120.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ magnet:?xt=urn:btih:66AAD87245E2CCE97B8BED29472F08985921C0C3
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101121.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101121.jpgsave_picture_101121.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ magnet:?xt=urn:btih:4621A69B116A4C17C1E282C87CC00586EC6F4B54
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101122.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101122.jpgsave_picture_101122.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ magnet:?xt=urn:btih:A8043DD5FAF56EDDCFB620462625A9DF94A6C6E1
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101123.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101123.jpgsave_picture_101123.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ magnet:?xt=urn:btih:6E2BE7232C33E9087720B75BB6A980BE69BCC60D
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101124.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101124.jpgsave_picture_101124.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ magnet:?xt=urn:btih:FDDC6E449C67A672256F2800827E56F727E9032B
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101125.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101125.jpgsave_picture_101125.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ magnet:?xt=urn:btih:59E170A7B221ED4574F494EC0DC4AE83F03677AF
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101126.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101126.jpgsave_picture_101126.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ Sensual Chill Saxaphone Band, Erotica - Shades of Erotica (2024) [FLAC 24/44.1|L
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101127.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101127.jpgsave_picture_101127.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ Isa Nielsen - Break The Chains (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Har
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101128.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101128.jpgsave_picture_101128.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Flickering Alley - Lanterns in the Fog (2024) [FLAC|Lossless|WEB-DL|tracks] <Blu
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101129.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101129.jpgsave_picture_101129.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Shayne J Davis - Wardrop Street (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101130.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101130.jpgsave_picture_101130.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Mal Waldron - One Entrance, Many Exits (1982) 2003, Quicksilver [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101131.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101131.jpgsave_picture_101131.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ Sean Taylor - The End Of The Rainbow (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101132.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101132.jpgsave_picture_101132.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ magnet:?xt=urn:btih:F57B90AE084A1F3C99FAD166A38D20FB1865D2AC
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101133.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101133.jpgsave_picture_101133.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ John McDonald & Mark Maxwell - Feeling Blues (2024) [FLAC|Lossless|WEB-DL|tracks
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101134.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101134.jpgsave_picture_101134.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ John G Willis - Misfortune Cookie (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101135.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101135.jpgsave_picture_101135.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ Blurred Edge - Volume: 1 (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101136.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101136.jpgsave_picture_101136.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Blues For Comfort - Good Blues Tonight (2024) [FLAC|Lossless|WEB-DL|tracks] <Blu
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101137.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101137.jpgsave_picture_101137.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ Dave Williams - Disciple (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101138.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101138.jpgsave_picture_101138.jpg" />
 </div>
 
 

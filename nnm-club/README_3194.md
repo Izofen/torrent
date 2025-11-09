@@ -6,7 +6,7 @@ Togu Audio Line - TAL-U-NO-LX-V2 4.9.4 VSTi, VSTi 3, AAX, CLAP (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103384.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103384.jpgsave_picture_103384.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:5547097B20BAA8A8DC793FE8D4095FC39EDF7F47
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103385.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103385.jpgsave_picture_103385.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:6D9E689FF3A93D463D62B33F595A17BB705B6909
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103386.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103386.jpgsave_picture_103386.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:CDFB5158F6EA63627FE15F4F0A062EE98276653D
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103387.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103387.jpgsave_picture_103387.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ Jason Jackson - Looking Up (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Smooth 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103388.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103388.jpgsave_picture_103388.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ Gregory Kunde - Then and Now (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz, V
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103389.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103389.jpgsave_picture_103389.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ Kevin A Knowles - Vagabond (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Smooth 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103390.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103390.jpgsave_picture_103390.jpg" />
 </div>
 
 
@@ -187,7 +187,7 @@ Francesco Venerucci - INDIAN SUMMER (2024) [FLAC 24/88.2|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103391.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103391.jpgsave_picture_103391.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Grant Richards - Menagerie (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Contempor
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103392.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103392.jpgsave_picture_103392.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ magnet:?xt=urn:btih:BAEA42223AA6693F8460E71AEB3C2EE69A38BCFA
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103393.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103393.jpgsave_picture_103393.jpg" />
 </div>
 
 
@@ -265,7 +265,7 @@ magnet:?xt=urn:btih:9AA2CA2296B960E701CF6E7AAD7165AE6AAB38F0
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103394.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103394.jpgsave_picture_103394.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Steam Slicer - Beyond The Rivers (2024) [MP3|320 Kbps] <Progressive Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103395.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103395.jpgsave_picture_103395.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ magnet:?xt=urn:btih:45CCAF5F0693C32E297D8CEC3BFACD6E2F26A25C
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103396.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103396.jpgsave_picture_103396.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ magnet:?xt=urn:btih:A6EB1FA98955FD1BD1D05232F3173A2431201B49
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103397.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103397.jpgsave_picture_103397.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ Scarlet Bandit - Lose Your Blues (Late Night City Feeling Edition) (2024) [FLAC|
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103398.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103398.jpgsave_picture_103398.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ Brothers of Metal - Fimbulvinter (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <P
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103399.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103399.jpgsave_picture_103399.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ MotoGP. Этап 19 из 20. Гран-при Малайзии. Спринт (02.
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103400.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103400.jpgsave_picture_103400.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ Kristin Korb - Sweet Dreams (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz, Vo
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103401.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103401.jpgsave_picture_103401.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ magnet:?xt=urn:btih:2A211D51003F1DC2993777EBF255C804E10529C5
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103402.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103402.jpgsave_picture_103402.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ Frank Sinatra - Close To You And More (2002) Capitol Records [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103403.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103403.jpgsave_picture_103403.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ Christophe Goze - My Kind Of Blue (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103404.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103404.jpgsave_picture_103404.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ Boney James - Slow Burn (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Smooth Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103405.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103405.jpgsave_picture_103405.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ MotoGP. Этап 19 из 20. Гран-при Малайзии. Квалифик�
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103406.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103406.jpgsave_picture_103406.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ magnet:?xt=urn:btih:E69B62FF7DA86FDC7284B77075914FF5C76F80AD
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103407.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103407.jpgsave_picture_103407.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ Warren Haynes - Million Voices Whisper (2024) [FLAC 24/96|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103408.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103408.jpgsave_picture_103408.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ magnet:?xt=urn:btih:65C3F73280CC8D9D95C73FE36A0A9225F2956802
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103409.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103409.jpgsave_picture_103409.jpg" />
 </div>
 
 

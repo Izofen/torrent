@@ -6,7 +6,7 @@ Miss Jane feat. Miichii - It's A Fine Day (2023) [FLAC|Lossless|WEB-DL|tracks] <
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166142.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166142.jpgsave_picture_166142.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ SITD / S.I.T.D. / [:SITD:] / Shadows In The Dark - Discography 16 Releases (2002
 >>Industrial, EBM, Dark Electro
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166164.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166164.jpgsave_picture_166164.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Hanzel Und Gretyl + Side Projects (Cycle Sluts From Hell, KyzrWolf) - 13 Release
 >>Industrial, EBM, Dark Electro
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166229.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166229.jpgsave_picture_166229.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ VA - Which Bottle?: AUTUMN CLUB BOX 2023 [MP3|320 Kbps] <House, Funky House, Dan
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166355.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166355.jpgsave_picture_166355.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Marumari - Discography 5 Releases (1999-2019) Carpark Records [FLAC|Lossless|tra
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166378.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166378.jpgsave_picture_166378.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Aly & Fila - It's All About The Melody (2019) [FLAC|Lossless|CD|tracks + .cue] <
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166461.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166461.jpgsave_picture_166461.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Solarstone - . . . - - (2019) [FLAC|Lossless|CD|tracks + .cue] <Trance, Progress
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166503.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166503.jpgsave_picture_166503.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ VA - Progressive Nation (Compiled by Liquid Soul & Ace Ventura) (2019) [FLAC|Los
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166508.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166508.jpgsave_picture_166508.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Alien Vampires - Discography 16 Releases (2004-2020) [MP3|320 Kbps] <Harsh EBM, 
 >>Industrial, EBM, Dark Electro
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166583.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166583.jpgsave_picture_166583.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ DJ KUBA & NEITAN - Yearmix 2019 2019-12-08 [MP3|320 Kbps] <Electro House, Progre
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166632.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166632.jpgsave_picture_166632.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ VA - Alter Ego Records - Best of 2022 [FLAC|Lossless|WEB-DL|tracks] <Uplifting T
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166675.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166675.jpgsave_picture_166675.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ VA - Anjunadeep The Remixes 2022 (2022) Mixed [FLAC|Lossless|WEB-DL|tracks] <Mel
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166683.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166683.jpgsave_picture_166683.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ VA - Grum Presents: 20 Years Of Anjunabeats (2020) DJ Mix [FLAC|Lossless|WEB-DL|
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166691.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166691.jpgsave_picture_166691.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Guardner - Somedays In My Life (2002) Elektrolux [FLAC|Lossless|tracks+.cue] <Do
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166701.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166701.jpgsave_picture_166701.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ VA - Armada Music 2022 (2021) [FLAC|Lossless|WEB-DL|tracks] <Deep House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166845.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166845.jpgsave_picture_166845.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Leama & Moor - Distance Between Us (2006) Single [MP3|320 Kbps] <Progressive Hou
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166905.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166905.jpgsave_picture_166905.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Gui Boratto - Pentagram (2018) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Techno
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166961.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166961.jpgsave_picture_166961.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Leama & Moor - Distance Between Us (2006) Single [FLAC|Lossless|WEB-DL|tracks] <
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166984.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166984.jpgsave_picture_166984.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Laibach - Nova Akropola (1986) Expanded Edition, Remastered & Redesigned, 2023, 
 >>Industrial, EBM, Dark Electro
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167029.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167029.jpgsave_picture_167029.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Laibach - Wirtschaft Ist Tot (2023) [FLAC|Lossless|WEB-DL|tracks] <Industrial, N
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167113.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167113.jpgsave_picture_167113.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Cocooma - The Best Of Cocooma Vol 2 (2019) [FLAC|Lossless|WEB-DL|tracks] <Hard T
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167158.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167158.jpgsave_picture_167158.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Martin Garrix - Live @ IDEM, RAI, ADE (2023-10-20) [MP3|320 Kbps] <Electro House
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167219.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167219.jpgsave_picture_167219.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ VA - Morning Coffee: Chillout Your Mind (2025) [FLAC|Lossless|WEB-DL|tracks] <Ba
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167353.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167353.jpgsave_picture_167353.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ VA - Phil K Pres: Y4K - Distinctive Breaks (2005) [FLAC|Lossless]<Progressive Br
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167415.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167415.jpgsave_picture_167415.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ VA - Progressive Miami (2019) [MP3|320 Kbps] <Trance, Progressive Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167526.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167526.jpgsave_picture_167526.jpg" />
 </div>
 
 
@@ -675,7 +675,7 @@ VA - Sensual Winter Chill Vol.1 (2019) [FLAC|Lossless|WEB-DL|tracks] <Balearic, 
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167532.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167532.jpgsave_picture_167532.jpg" />
 </div>
 
 

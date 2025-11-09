@@ -6,7 +6,7 @@
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141791.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141791.jpgsave_picture_141791.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:D8ED9D53FD53658882736CBB630738089D579B32
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141792.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141792.jpgsave_picture_141792.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Wondershare UniConverter 13.5.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141794.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141794.jpgsave_picture_141794.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Legal Academy, Вадим Усков | Практическое руководс
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141795.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141795.jpgsave_picture_141795.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ VA - Утомлённое солнце. Песни 30-50-х (2008) [FLAC|Lossles
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141797.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141797.jpgsave_picture_141797.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ Alcest - 6 Albums, 2 EPs (2005-2019) [FLAC|Lossless|image + .cue] <Shoegaze, Bla
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141799.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141799.jpgsave_picture_141799.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ magnet:?xt=urn:btih:92B01B73418DF0173373A243CAEED11D32D37D72
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141800.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141800.jpgsave_picture_141800.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ Seishun Buta Yarou wa Bunny Girl Senpai no Yume o Minai / Rascal Does Not Dream 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141801.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141801.jpgsave_picture_141801.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ Felix De Luxe - So Weit So Gut (1987) Maxi-Single, 45 RPM [FLAC 2.0|192/24|image
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141802.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141802.jpgsave_picture_141802.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ magnet:?xt=urn:btih:EF67F2776AE8044D64831086BCA1C0D993A2DC05
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141803.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141803.jpgsave_picture_141803.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ AOMEI Partition Assistant Technician Edition 6.1 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141804.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141804.jpgsave_picture_141804.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ magnet:?xt=urn:btih:9D65728EE4441CFC343CF64D248BD5CFB57FF592
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141805.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141805.jpgsave_picture_141805.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ VA - Hit Lights '79 (1978) LP [MP3|320 Kbps] <Pop Rock, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141806.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141806.jpgsave_picture_141806.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ magnet:?xt=urn:btih:783D57E52F22271097228E96695F0A1C8FF7B93C
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141807.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141807.jpgsave_picture_141807.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ The Pretty Reckless - Death by Rock and Roll (2021) [DSD128 2.0|tracks|Vinyl-Rip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141809.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141809.jpgsave_picture_141809.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ magnet:?xt=urn:btih:5E6F89D9D1EC8FF53102CF4DB3172D3EF4E8480B
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141811.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141811.jpgsave_picture_141811.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ magnet:?xt=urn:btih:72BA3EEE90EAAFB376E1B0C59C1C44F8FEF47783
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141813.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141813.jpgsave_picture_141813.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ magnet:?xt=urn:btih:ED9D8AFF424B80B64158E2231961784B01888305
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141814.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141814.jpgsave_picture_141814.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ magnet:?xt=urn:btih:D5C7FC6D2F93C9A0FF4B8B297FCE1C05AB182F56
 >>Картинки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141815.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141815.jpgsave_picture_141815.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ Aven Colony (2017) [Ru/Multi] (1.0.1) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141816.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141816.jpgsave_picture_141816.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ magnet:?xt=urn:btih:2FE558665AD414F209AA91EB4EF8E15C31865A4D
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141818.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141818.jpgsave_picture_141818.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ magnet:?xt=urn:btih:B565E3769F684FA4C6FF27D3E8D0AE26487C110D
 >>Элементы (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141819.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141819.jpgsave_picture_141819.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ BetterTouchTool 3 v3.215 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141820.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141820.jpgsave_picture_141820.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ magnet:?xt=urn:btih:79D343D6E34227B55DE3AF2D80B4E13DC7AEC990
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141821.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141821.jpgsave_picture_141821.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ magnet:?xt=urn:btih:B4F70C70C24D982E6C938D73EC346E19AF1B55B5
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141824.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141824.jpgsave_picture_141824.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ magnet:?xt=urn:btih:FA85E3476CCE0BCB889D2D6BEAE73E72F4FEE37C
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141825.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141825.jpgsave_picture_141825.jpg" />
 </div>
 
 

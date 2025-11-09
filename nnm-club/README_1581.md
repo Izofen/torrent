@@ -6,7 +6,7 @@ KStars 3.7.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41463.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41463.jpgsave_picture_41463.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ IK Multimedia - T-RackS 6 MAX 6.0.2 STANDALONE, VST 3, AAX (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41464.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41464.jpgsave_picture_41464.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:2136CE185DE7B8901188BDB99CA37BA40C707413
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41465.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41465.jpgsave_picture_41465.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:4CE94CB1104F3E8D4741F1303BDEA6E6C2D860CF
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41466.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41466.jpgsave_picture_41466.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ VA - Союз 21  (1997) [FLAC|Lossless|tracks + .cue] <Pop>
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41467.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41467.jpgsave_picture_41467.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:9ED1EE1F5854987A26435D698C4F818EC7486138
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41468.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41468.jpgsave_picture_41468.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Firefox Browser 131.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41469.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41469.jpgsave_picture_41469.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:66D85AE30B70703FAADC2F986FB52B0DDD036443
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41470.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41470.jpgsave_picture_41470.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:0CB2AEC666A65D09E044DE4685F96A8027F07926
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41471.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41471.jpgsave_picture_41471.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:C41C444B2933A8CBAD95201F32035AC36D6D3511
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41472.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41472.jpgsave_picture_41472.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ Eric Clapton - Meanwhile (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41473.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41473.jpgsave_picture_41473.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ magnet:?xt=urn:btih:BC6D137B2244B0DD54F6ECFB940CED760E8758C8
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41474.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41474.jpgsave_picture_41474.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ O&O DiskImage Professional 19.1 Build 175 RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41475.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41475.jpgsave_picture_41475.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ magnet:?xt=urn:btih:741C6778F7CCF03265F9EC6879ED1821FCC6306F
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41476.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41476.jpgsave_picture_41476.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Macrorit Disk Scanner 6.8.0 Pro / Unlimited / Technician Edition RePack (& Porta
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41477.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41477.jpgsave_picture_41477.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ magnet:?xt=urn:btih:762703A490D90A0AA603F1B66A8BCB5A2520900E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41478.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41478.jpgsave_picture_41478.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Linkin Park: From Zero (Live Stream) (2024) WEBRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41479.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41479.jpgsave_picture_41479.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ magnet:?xt=urn:btih:9D7EFE2301C685A220BF0E19A265A894B1E193A2
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41480.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41480.jpgsave_picture_41480.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Blackmagic Design Fusion Studio 19.0.2 Build 4 (x64) [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41481.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41481.jpgsave_picture_41481.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ Macrorit Partition Expert Pro 8.2.0 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41482.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41482.jpgsave_picture_41482.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Bandizip Pro 7.36 Build 68355 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41483.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41483.jpgsave_picture_41483.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ magnet:?xt=urn:btih:27ED4B07A913F3B517F81B867C0BC426C74251AA
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41484.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41484.jpgsave_picture_41484.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ magnet:?xt=urn:btih:27ED4B07A913F3B517F81B867C0BC426C74251AA
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41485.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41485.jpgsave_picture_41485.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Surreal Farm (2024) [En] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41486.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41486.jpgsave_picture_41486.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Glary Utilities Pro 6.16.0.20 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41487.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41487.jpgsave_picture_41487.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ magnet:?xt=urn:btih:67763905184FE4A3331AFE1E653FF6ADEC526ACB
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41488.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41488.jpgsave_picture_41488.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Winter - 3 Albums (2021-2022) [FLAC|Lossless|WEB-DL|tracks] <Gothic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191401.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191401.jpgsave_picture_191401.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:68D62BAF922CDE5E309CE01A7AFAB8ABC1EE40DC
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191402.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191402.jpgsave_picture_191402.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:0F91F1EE15873C5E6EA529D0704C8B4A05053E6D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191403.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191403.jpgsave_picture_191403.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Geek Uninstaller 1.5.2 Build 165 Portable [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191404.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191404.jpgsave_picture_191404.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ Udemy, Very Academy, Zander | Full Stack - React Django DRF Channels Project - d
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191405.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191405.jpgsave_picture_191405.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:5223D6B5B6435B5C1AA18E2F4C3E6379CE4DE51A
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191406.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191406.jpgsave_picture_191406.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ magnet:?xt=urn:btih:534CCF6289DF87633939C1CB14AEE039B868E206
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_191407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191407.jpgsave_picture_191407.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ magnet:?xt=urn:btih:083310DE6485EA22C7218FF5E28F8B7CA9575E3E
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191408.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191408.jpgsave_picture_191408.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ Blue System - Hello America (1992) [OGG Vorbis|480 Kbps] <Electronic, Euro House
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191409.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191409.jpgsave_picture_191409.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ Blue System - Backstreet Dreams (1993) [OGG Vorbis|480 Kbps] <Electronic, Euro H
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191410.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191410.jpgsave_picture_191410.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ Vit Registry Fix Pro 14.8.5 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191411.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191411.jpgsave_picture_191411.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ The Airmen of Note - Openers! (2014) Department of the Air Force [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191412.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191412.jpgsave_picture_191412.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ magnet:?xt=urn:btih:A9E237EF260C7202E5B236DCDB52A9233C77FB5C
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191413.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191413.jpgsave_picture_191413.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ Alt SwitchER 19.5 Portable [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191414.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191414.jpgsave_picture_191414.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ MotoGP. Этап 20. Гран-при Валенсии. Квалификация 
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191415.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191415.jpgsave_picture_191415.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ magnet:?xt=urn:btih:EA38141A4B38908D73D1D33C328796CDB850E0FE
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191416.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191416.jpgsave_picture_191416.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ magnet:?xt=urn:btih:EA38141A4B38908D73D1D33C328796CDB850E0FE
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191417.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191417.jpgsave_picture_191417.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ Sodom - 40 Years At War: The Greatest Hell Of Sodom (2022) [FLAC|Lossless|image 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191418.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191418.jpgsave_picture_191418.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ The Airmen Of Note - The 2021 Jazz Heritage Series (2021) Department of the Air 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191419.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191419.jpgsave_picture_191419.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ Saint - Heaven Fell (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191420.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191420.jpgsave_picture_191420.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ magnet:?xt=urn:btih:C0FF8C804DCA8434FDF6E648F12A6332518F546F
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191421.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191421.jpgsave_picture_191421.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Jack Teagarden - The Complete Roulette Jack Teagarden Sessions (1959 - 1961) 4CD
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191422.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191422.jpgsave_picture_191422.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Untimely Demise - 4 Albums (2011-2022) [MP3|320 Kbps] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191423.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191423.jpgsave_picture_191423.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ magnet:?xt=urn:btih:ABEDACB3EAFDD0ACC120045210BAEB9D8991F928
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191424.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191424.jpgsave_picture_191424.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Rott - Phantom Fuzz (2022) [FLAC|Lossless|WEB-DL|tracks] <Sludge, Doom, Fuzz Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191425.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191425.jpgsave_picture_191425.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ magnet:?xt=urn:btih:9734CF7B6C80AFBE46FB3C43628D1624E79B7361
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191426.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191426.jpgsave_picture_191426.jpg" />
 </div>
 
 

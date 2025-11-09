@@ -6,7 +6,7 @@
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146933.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146933.jpgsave_picture_146933.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ magnet:?xt=urn:btih:990E073E644D0722708C1EDBCBFFFE55814F930A
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146935.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146935.jpgsave_picture_146935.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ magnet:?xt=urn:btih:73F54A4C6939820DC5B45A77FF7B5B9588D890FE
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146936.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146936.jpgsave_picture_146936.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:E252194DB296B20D45747FD7F3932F6426BF70D9
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146937.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146937.jpgsave_picture_146937.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ VA - End of 2016 (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146938.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146938.jpgsave_picture_146938.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ BLAME! | Блам! [2017, Movie] BDRemux 1080p raw+rus
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146939.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146939.jpgsave_picture_146939.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ ItGid, Александр Лущенко | JavaScript v.2.0 (2020)
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146940.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146940.jpgsave_picture_146940.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ Oeksound - Spiff 1.3.0 VST, VST3, AAX (x64) RePack by R2R [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146942.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146942.jpgsave_picture_146942.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Mystery of the Ancients 8: No Escape (2018) [En] (Beta) Unofficial
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146943.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146943.jpgsave_picture_146943.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ magnet:?xt=urn:btih:512EDE08C3AD70FC5A1C79F808638DE7C16F330A
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146944.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146944.jpgsave_picture_146944.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ magnet:?xt=urn:btih:AC95A6E8D973019C89A51E7FBC4A65F4C8C5C2D5
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146945.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146945.jpgsave_picture_146945.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ magnet:?xt=urn:btih:C653E00D2DB50E0B03AB4BAC1DC62652DB3CC2A1
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146947.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146947.jpgsave_picture_146947.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ VA - Winter Chillout 2017 (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146948.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146948.jpgsave_picture_146948.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ Aiseesoft Video Converter Ultimate 10.7.32 RePack (& Portable) by TryRooM [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146949.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146949.jpgsave_picture_146949.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ Deworker Pro, Дмитрий Елисеев | Разработка аукцио�
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146950.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146950.jpgsave_picture_146950.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ magnet:?xt=urn:btih:68B060F29CD998BBD70C08241DEB26ADCEF9E7E5
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146951.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146951.jpgsave_picture_146951.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ magnet:?xt=urn:btih:68B060F29CD998BBD70C08241DEB26ADCEF9E7E5
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146952.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146952.jpgsave_picture_146952.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ magnet:?xt=urn:btih:4EBE94D549C2614F812C32C1961BCC6B59DDA077
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146953.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146953.jpgsave_picture_146953.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ magnet:?xt=urn:btih:3FEED118CC0BEDC24FCCEA05B0962CC7CEA59840
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146955.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146955.jpgsave_picture_146955.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ magnet:?xt=urn:btih:9F7DE4470717678E541CDFCE9FA2CA28E3E29861
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146956.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146956.jpgsave_picture_146956.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Oddworld: Stranger’s Wrath HD [Ru/En/Multi9] (L/1.5) 2012
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146958.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146958.jpgsave_picture_146958.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ magnet:?xt=urn:btih:9F010ED2A5FDDE4DE099CDDA1AC9D74F36A69E04
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146959.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146959.jpgsave_picture_146959.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ VA - Winter Classical (2021) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146960.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146960.jpgsave_picture_146960.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ VA - Новинки С Разных Популярных мп3 Сайтов ver.
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146961.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146961.jpgsave_picture_146961.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ VA - Trance Collection by Yeiskomp Records Vol.1 (2016) [MP3|320 Kbps] <Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146962.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146962.jpgsave_picture_146962.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ The Bat! Professional 9.0.16 christmas [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146963.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146963.jpgsave_picture_146963.jpg" />
 </div>
 
 

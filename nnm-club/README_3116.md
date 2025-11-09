@@ -6,7 +6,7 @@
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100578.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100578.jpgsave_picture_100578.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:16F524D2C1F60FF2BD0BD55C1BFD6310706198A0
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100579.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100579.jpgsave_picture_100579.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ VA - Arcane League of Legends: Season 2 (Soundtrack from the Animated Series) (2
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100580.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100580.jpgsave_picture_100580.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ magnet:?xt=urn:btih:130573064FD08C595A2340D0D76C4D1439285A5A
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100581.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100581.jpgsave_picture_100581.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ magnet:?xt=urn:btih:D57626AF087AC972E1CDFCA5226AF1D8D839F39D
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100582.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100582.jpgsave_picture_100582.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ magnet:?xt=urn:btih:9CA76FCFDCBBFD46F2D9620E7E0160127EBC1834
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100583.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100583.jpgsave_picture_100583.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ magnet:?xt=urn:btih:813703CD085EBB915BCA9EA5C2CDCB9C30B85384
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100584.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100584.jpgsave_picture_100584.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ VA - The Magic of Classical Music (2024) [FLAC|Lossless|WEB-DL|tracks] <Classica
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100585.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100585.jpgsave_picture_100585.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ magnet:?xt=urn:btih:B04DFD97CFC05C19B871DC47F2B622324FB6349D
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100586.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100586.jpgsave_picture_100586.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ magnet:?xt=urn:btih:23E409670994F58B7F979F78584A4C328E92C0AE
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100587.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100587.jpgsave_picture_100587.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ VA - Compilation part 136 Electronic (2024) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100588.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100588.jpgsave_picture_100588.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ VA - Рождественский романс (2015) [MP3|320 Kbps] <Роман
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100589.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100589.jpgsave_picture_100589.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ magnet:?xt=urn:btih:C3A2DC5C8107EA3B913E83C6AEC4FEAD8C106507
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_100590.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_100590.jpgsave_picture_100590.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ V.A. - Music For Dreams, Best Of 2024 (2024) [FLAC|Lossless|WEB-DL|tracks] <Loun
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100591.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100591.jpgsave_picture_100591.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ magnet:?xt=urn:btih:373B47AB8239D470137B9C9A7971D9353CCD372F
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100592.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100592.jpgsave_picture_100592.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ magnet:?xt=urn:btih:5CAF330710BD23A5D47F2392A91E6638B10948B7
 >>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100593.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100593.jpgsave_picture_100593.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ magnet:?xt=urn:btih:31CD21F5A1ED39AC18FCC0802CB229D784A22A9B
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_100594.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_100594.jpgsave_picture_100594.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ magnet:?xt=urn:btih:94D2A764F204FD170DFFFC09D9F8CE684E0AB29B
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_100595.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_100595.jpgsave_picture_100595.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ magnet:?xt=urn:btih:CF6C369DC5FB8227AFCA05F9BD66BBB20D5FBED6
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100596.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100596.jpgsave_picture_100596.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ magnet:?xt=urn:btih:23345CDC7F7E8A1215368C632EC387020548CB34
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100597.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100597.jpgsave_picture_100597.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ magnet:?xt=urn:btih:CB79D2993AF43C7879C1654AF0FF5C17AF19F11D
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100598.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100598.jpgsave_picture_100598.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ VA - Compilation part 135 Electronic (2024) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100599.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100599.jpgsave_picture_100599.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ magnet:?xt=urn:btih:B8847AC8115A78D7B0AC178F447B94AF94EB5B86
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_100600.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_100600.jpgsave_picture_100600.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Photo Studio PRO v2.7.12.3613 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100601.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100601.jpgsave_picture_100601.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ magnet:?xt=urn:btih:64C8EEEAA3AD051A153039FD81DA92379B9E72D6
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100602.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100602.jpgsave_picture_100602.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Los Lobos - Earthquake Relief Concert 1989 (Live) (2024) [FLAC|Lossless|WEB-DL|t
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100603.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100603.jpgsave_picture_100603.jpg" />
 </div>
 
 

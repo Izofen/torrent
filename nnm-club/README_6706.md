@@ -6,7 +6,7 @@
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_230573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230573.jpgsave_picture_230573.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Luminous Black - Poweramp Skin 8.8 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230574.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230574.jpgsave_picture_230574.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ FBackup 9.8.805 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230575.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230575.jpgsave_picture_230575.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Prince of Persia: The Forgotten Sands / Принц Персии: Забытые 
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230578.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230578.jpgsave_picture_230578.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ TweakPower 2.039 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_230579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230579.jpgsave_picture_230579.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Artmeup, Кристина Бриль | Текстурная живопись (20
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_230580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230580.jpgsave_picture_230580.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:C511EB117594099110E9EBA4D63903A5DCCD72D7
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230581.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230581.jpgsave_picture_230581.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ WinToUSB Technician 7.9 Release 2 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_230583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230583.jpgsave_picture_230583.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Sandboxie 5.65.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230585.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230585.jpgsave_picture_230585.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Cities: Skylines II (2) (2023) [Ru/Multi] (1.3.6f1/dlc) Repack seleZen [Ultimate
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230586.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230586.jpgsave_picture_230586.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Brave Browser 1.52.119 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_230588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230588.jpgsave_picture_230588.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Spotify 1.2.13.656 (Repack & Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_230589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230589.jpgsave_picture_230589.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:6617D894FE693968486AF5AA91DB2887B4CEA2EC
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230590.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230590.jpgsave_picture_230590.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Chromium 115.0.5790.102 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230591.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230591.jpgsave_picture_230591.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Wreckreation (2025) [Ru/Multi] (1.0.144924) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230593.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230593.jpgsave_picture_230593.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ XYplorer 24.70.0000 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230594.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230594.jpgsave_picture_230594.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ Reg Organizer 9.20 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_230595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230595.jpgsave_picture_230595.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ Firefox Browser 114.0.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_230597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230597.jpgsave_picture_230597.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ Beneath (2025) [Ru/Multi] (0.9920f/dlc) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230599.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230599.jpgsave_picture_230599.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ magnet:?xt=urn:btih:8446DFA157A9528361C5EB8178357A4FFC229532
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230600.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230600.jpgsave_picture_230600.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ magnet:?xt=urn:btih:41780DD8679488336AEB9E6389DCD031CD638FD2
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_230601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230601.jpgsave_picture_230601.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Ningen Fushin no Boukensha-tachi ga Sekai o Sukuu You Desu | Авaнтюрист
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_230603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230603.jpgsave_picture_230603.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Dark Moon (2025) [Ru/Multi] (2025-10-29 Build 20591880) Repack seleZen
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230605.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230605.jpgsave_picture_230605.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Reverso Translation Dictionary / Переводной словарь Reverso 11.
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230606.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230606.jpgsave_picture_230606.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ magnet:?xt=urn:btih:0C9FD3F07EE114F4F9BD1775F6FB23DD8006B529
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_230607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230607.jpgsave_picture_230607.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ AllDup 4.5.48 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_230608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230608.jpgsave_picture_230608.jpg" />
 </div>
 
 

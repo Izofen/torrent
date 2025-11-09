@@ -6,7 +6,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235766.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235766.jpgsave_picture_235766.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:65274FC034CC8007FB8A004FEE9AB6FC432D2E83
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235767.jpgsave_picture_235767.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Numeron - Road to Valhalla (2023) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Bla
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235768.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235768.jpgsave_picture_235768.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ Hillward - Alternate Timelines (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235769.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235769.jpgsave_picture_235769.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ magnet:?xt=urn:btih:D0045B51D8A9C968B7F1DDDE5BFE429ACAB9F848
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235770.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235770.jpgsave_picture_235770.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ magnet:?xt=urn:btih:0DDB2D0D60C1D92010779803DECB186D90DB910F
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235771.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235771.jpgsave_picture_235771.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ magnet:?xt=urn:btih:44D4D3D5C638F02C3B581EF1079435B5B481EC7F
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235772.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235772.jpgsave_picture_235772.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:34F025D6507CD9D05F9AA1C83D44EA5720D6DE6A
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235773.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235773.jpgsave_picture_235773.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ magnet:?xt=urn:btih:72D354D39419FF50EB53DE319616E237961E2395
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235774.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235774.jpgsave_picture_235774.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ One Switch 1.30 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235775.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235775.jpgsave_picture_235775.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ LilyView 1.5 [Rus/En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235776.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235776.jpgsave_picture_235776.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ Kansas City Band - Barrelhouse ☆ Hey! Hey! (2001) Audio Park [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235777.jpgsave_picture_235777.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ Stian Carstensen - Musical Sanatorium (2021) [FLAC|Lossless|tracks + .cue] <Mode
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235778.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235778.jpgsave_picture_235778.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ Marshmello - Mellokillaz (2023) [FLAC|Lossless|WEB-DL|tracks] <Electronique, Dan
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235779.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235779.jpgsave_picture_235779.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ Vitaly Kis (Виталий Кись) - Chromatic Dreams (2007) [MP3|320 Kbps] <I
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235780.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235780.jpgsave_picture_235780.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ magnet:?xt=urn:btih:182F6BCE005573BA0EFBDCB62355F7532AACB697
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235781.jpgsave_picture_235781.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ magnet:?xt=urn:btih:659A1A2F244367877F243B0FFC3B079CBB70FDE6
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_235782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_235782.jpgsave_picture_235782.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ Cookie 6.6.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235783.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235783.jpgsave_picture_235783.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ Woe Unto Me - Spiral-Shaped Hopewreck (2021) [MP3|320 Kbps] <Melodic Metal, Doom
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235784.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235784.jpgsave_picture_235784.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ The Fake Cousins - The Set-Up (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235785.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235785.jpgsave_picture_235785.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ A-ha - Stay On These Roads (1988) [FLAC 2.0|96/24|image + .cue|Vinyl-Rip] <Elect
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235786.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235786.jpgsave_picture_235786.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Movie To GIF 3.2.0.0 Portable by Igor-1980 [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235787.jpgsave_picture_235787.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Billy Bang - Big Bang Theory (2000) Justin Time Records [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235788.jpgsave_picture_235788.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ magnet:?xt=urn:btih:BCE7D0711ED4DDC41151D5D1EE0F952809930765
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235789.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235789.jpgsave_picture_235789.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ magnet:?xt=urn:btih:50D9A0A619C9CC71C9C5C71BF27DC6E3361422F9
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235790.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235790.jpgsave_picture_235790.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ magnet:?xt=urn:btih:D6A4E5B3C21640CA7C0A9618C54BB24206999B6F
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235791.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235791.jpgsave_picture_235791.jpg" />
 </div>
 
 

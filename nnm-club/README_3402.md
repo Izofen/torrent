@@ -6,7 +6,7 @@ Bad News - Every Mistake Imaginable: The Complete Frilly Pink Years 1987-1988 (1
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108813.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108813.jpgsave_picture_108813.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ PhotoRoom 4.9.7 (b1416) Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108814.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108814.jpgsave_picture_108814.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:DE694E2248E93CE5579A44E6017245689263CA19
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108815.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108815.jpgsave_picture_108815.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Sant Andreu Jazz Band & Joan Chamorro - Jazzing 14 Vol.1 (2024) [FLAC 24/48|Loss
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108816.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108816.jpgsave_picture_108816.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ The Lew Tabackin Quartet - I'll Be Seeing You (1992) Concord Jazz [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108817.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108817.jpgsave_picture_108817.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Tommy Turrentine - Tommy Turrentine (1960) 1993, Bainbridge Records [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108818.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108818.jpgsave_picture_108818.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Luca Pasqua - My Jazz Side (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108819.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108819.jpgsave_picture_108819.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Christian De Mesones - You Only Live Twice (2024) [FLAC|Lossless|WEB-DL|tracks] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108820.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108820.jpgsave_picture_108820.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Darkthrone - It Beckons Us All (2024) [FLAC|Lossless|image + .cue] <Black Metal,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108821.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108821.jpgsave_picture_108821.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ John Haydock - Solitary Traveller (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108822.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108822.jpgsave_picture_108822.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ VA - Fulltime, Vol. 1 (Reworked by DJs) (2020) [FLAC|Lossless|WEB-DL|tracks] <Nu
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108823.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108823.jpgsave_picture_108823.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:5F4177C7143CA2F2D61167B2AB0874E7ABA01391
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108824.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108824.jpgsave_picture_108824.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ VA - Fulltime, Vol. 5 (Reworked by DJs) (2023) [FLAC|Lossless|WEB-DL|tracks] <Nu
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108825.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108825.jpgsave_picture_108825.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ VA - Trance In Motion Vol.376 (2024) [MP3|320 Kbps|image + .cue] <Trance, Uplift
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108826.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108826.jpgsave_picture_108826.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ magnet:?xt=urn:btih:37417023A92788D4933AD77EF8CDD27700E8762B
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108827.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108827.jpgsave_picture_108827.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ magnet:?xt=urn:btih:BE5AAA81BA1331D923A334F11B436E77F9269DBA
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108828.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108828.jpgsave_picture_108828.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Diane Larsen-Freeman, Marti Anderson | Techniques and Principles in Language Tea
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108829.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108829.jpgsave_picture_108829.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ magnet:?xt=urn:btih:5719691AEE22CCAB10F86697A3091DFEEC0E3CCD
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108830.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108830.jpgsave_picture_108830.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ VA - Fulltime, Vol. 4 (Reworked by DJs) (2021) [FLAC|Lossless|WEB-DL|tracks] <Nu
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108831.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108831.jpgsave_picture_108831.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ VA - Fulltime, Vol. 2 (Reworked by DJs) (2020) [FLAC|Lossless|WEB-DL|tracks] <Nu
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108832.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108832.jpgsave_picture_108832.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Bob Recchione - Don't Get Me Started (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108833.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108833.jpgsave_picture_108833.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ magnet:?xt=urn:btih:66356260A6522F0849E2168418635B91B4F9577F
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108834.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108834.jpgsave_picture_108834.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ VA - Nothing But... Pure Dance, Vol. 21 (2024) [MP3|320 Kbps] <Pop Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108835.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108835.jpgsave_picture_108835.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ VA - Fulltime, Vol. 3 (Reworked by DJs) (2021) [FLAC|Lossless|WEB-DL|tracks] <Nu
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108836.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108836.jpgsave_picture_108836.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ Marty Friedman - Drama (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock, Guitar Instru
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108837.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108837.jpgsave_picture_108837.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ The Dirty Denims - Party On! (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108838.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108838.jpgsave_picture_108838.jpg" />
 </div>
 
 

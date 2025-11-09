@@ -6,7 +6,7 @@ Internet Download Manager 6.42 Build 51 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136897.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136897.jpgsave_picture_136897.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Allavsoft Video Downloader Converter 3.28.4.9413 RePack (& Portable) by elchupac
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136917.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136917.jpgsave_picture_136917.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Internet Download Manager 6.42 Build 51 RePack by KpoJIuK [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136920.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136920.jpgsave_picture_136920.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Universal Maps Downloader 10.228 [En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136955.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136955.jpgsave_picture_136955.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Psiphon 3 build 186 RePack (& Portable) by elchupacabra (DC 09.10.2025) [Multi/R
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136960.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136960.jpgsave_picture_136960.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:B5E7492FA799DBEC3E06879C241D553F8D0264F8
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136963.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136963.jpgsave_picture_136963.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ RustDesk 1.4.3 + portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136976.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136976.jpgsave_picture_136976.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ ICQ 10.0 Build 38922 Final [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137748.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137748.jpgsave_picture_137748.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ Tor Bridges Updater 0.1.5 Portable [En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138752.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138752.jpgsave_picture_138752.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ MediaHuman YouTube to MP3 Converter 3.9.8.18 (2812) RePack by вовава [Ru/E
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138907.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138907.jpgsave_picture_138907.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ TrayButton for WhatsApp 1.0.83 [Ru/En] [Авторская раздача]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149904.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149904.jpgsave_picture_149904.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Discord 0.0.309 b73806 Stable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150231.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150231.jpgsave_picture_150231.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Rambox v. 2.2.2 [En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150621.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150621.jpgsave_picture_150621.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ YT Downloader 9.17.9 [En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150702.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150702.jpgsave_picture_150702.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ YT Downloader 9.17.9 RePack (& Portable) by elchupacabra [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150716.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150716.jpgsave_picture_150716.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ magnet:?xt=urn:btih:8FE09E2F35DFEA852B986F7C5ADCF116938AA2EA
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150723.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150723.jpgsave_picture_150723.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ Firefox Browser ESR 115.29.0 [Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150724.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150724.jpgsave_picture_150724.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ magnet:?xt=urn:btih:3B4A136DF437720503DBE13F43D53E9E729A3195
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150754.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150754.jpgsave_picture_150754.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Firefox Browser 144.0 Portable by PortableApps [Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150969.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150969.jpgsave_picture_150969.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Firefox Browser 144.0 [Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150977.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150977.jpgsave_picture_150977.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ magnet:?xt=urn:btih:480DD40112D46298800DF409FA50170833314919
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151660.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151660.jpgsave_picture_151660.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ Wowza Streaming Engine 4.7.8 [En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154998.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154998.jpgsave_picture_154998.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Vivaldi TOR Web Browser 2.2.1388.37 Stable Portable 32-64 bit by PortableAppZ [M
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155001.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155001.jpgsave_picture_155001.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Conceiva DownloadStudio 10.0.4.0 RePack by вовава [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156759.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156759.jpgsave_picture_156759.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ RusTV Player 3.1 Final Portable by DoMiNo [Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157940.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157940.jpgsave_picture_157940.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ DNS Jumper 2.3 Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159458.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159458.jpgsave_picture_159458.jpg" />
 </div>
 
 

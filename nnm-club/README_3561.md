@@ -6,7 +6,7 @@
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112961.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112961.jpgsave_picture_112961.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:8282997BC790D5AEB6C59A8AF667EB9F59806780
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112962.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112962.jpgsave_picture_112962.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:485D5CFCAE55F4DDC51CA3FF95C540DC1FEAF208
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112963.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112963.jpgsave_picture_112963.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Brave Browser 1.64.109 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112964.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112964.jpgsave_picture_112964.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ David Guetta - Live @ The Monolith Al Ula, Saudi Arabia (2024-03-20) [MP3|320 Kb
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112965.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112965.jpgsave_picture_112965.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Arvo Part - Alina (1999) [MP3|320 Kbps] <Classical, Contemporary>
 >>Фортепиано
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112966.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112966.jpgsave_picture_112966.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Sensual Lounge Music Universe - Sensuality in the Air: Romantic and Erotic Jazz 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112967.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112967.jpgsave_picture_112967.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ magnet:?xt=urn:btih:0C735EA5E047B56216B68BD232BA920A1155D45D
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112968.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112968.jpgsave_picture_112968.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ AirFoil+Airfoil Satellite 5.12 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112969.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112969.jpgsave_picture_112969.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ magnet:?xt=urn:btih:9F95E81E8867D1B8CDE47A30D9C77EB14DBFB3D5
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112970.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112970.jpgsave_picture_112970.jpg" />
 </div>
 
 
@@ -265,7 +265,7 @@ magnet:?xt=urn:btih:31A3E75AA44F3EDD3A252728AE7946A9AE636E5D
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112971.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112971.jpgsave_picture_112971.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Sensual Lounge Music Universe - Flavor of Seduction: Instrumental Jazz Sex Music
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112972.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112972.jpgsave_picture_112972.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Vid Sketa - First Step (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz Fusion
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112973.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112973.jpgsave_picture_112973.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Knight Cats 3: Whisper of the Universe (2024) [En] (1.0) Unofficial [Collector's
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112974.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112974.jpgsave_picture_112974.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ VueScan Pro for Mac 9.8.30 U2B [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112975.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112975.jpgsave_picture_112975.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ magnet:?xt=urn:btih:A56DCF53B058186DC449AE856FF34A4D3EA74824
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112976.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112976.jpgsave_picture_112976.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ magnet:?xt=urn:btih:D879AB6BC35096476C48A5BC74460F0C1D482F56
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112977.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112977.jpgsave_picture_112977.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ Firefox Browser 124.0.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112978.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112978.jpgsave_picture_112978.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ magnet:?xt=urn:btih:7378ECB1F60161D896A8F15D47809BAACA70A43D
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112979.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112979.jpgsave_picture_112979.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ magnet:?xt=urn:btih:DA790FAA8CF558D098206E784F307F2032638C20
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112980.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112980.jpgsave_picture_112980.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ magnet:?xt=urn:btih:4C83665C5E44204922812A45CCF80A982F880860
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112981.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112981.jpgsave_picture_112981.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Shakira - Las Mujeres Ya No Lloran (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop, La
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112982.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112982.jpgsave_picture_112982.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ magnet:?xt=urn:btih:ABA067DA72B2339C92814A390D80B016653162BA
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112983.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112983.jpgsave_picture_112983.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Shakira - Las Mujeres Ya No Lloran (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <P
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112984.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112984.jpgsave_picture_112984.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ BABY Audio - BA-1 1.5.0 STANDALONE, VSTi, VSTi3, AAX (x86/x64) + Expansion Packs
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112985.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112985.jpgsave_picture_112985.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ magnet:?xt=urn:btih:7B758F59434DC9C99D21F781EB9418E1C81EA9F1
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112986.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112986.jpgsave_picture_112986.jpg" />
 </div>
 
 

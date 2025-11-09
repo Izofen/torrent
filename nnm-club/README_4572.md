@@ -6,7 +6,7 @@
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143095.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143095.jpgsave_picture_143095.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:80188DE13E2B04F8D57DCDE5E2D8EE999790330A
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143096.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143096.jpgsave_picture_143096.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:945175B4758068543D26EFA11DDA684BA4911D67
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143097.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143097.jpgsave_picture_143097.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:67309A200CE5A4B6D5F00F6682F83C6D2D7C92DD
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143098.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143098.jpgsave_picture_143098.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ The Baroque Christmas Album - Various Artists (2005) [APE|Lossless] <Classical, 
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143100.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143100.jpgsave_picture_143100.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:53E5B55FDFE6BEA9C8B0AEF3258C0770C11B370B
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143101.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143101.jpgsave_picture_143101.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:C4E58CC7A23F49A796E65C055248145971DE363C
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143103.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143103.jpgsave_picture_143103.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Adobe Bridge 2024 14.0.1.137 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143104.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143104.jpgsave_picture_143104.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Peter Davison - What Happened Next... (2016) [MP3|320 Kbps] <New Age, Meditation
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143105.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143105.jpgsave_picture_143105.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ Afternova - For All Mankind (2015) [MP3|320 кб/с] <ChillOut>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143107.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143107.jpgsave_picture_143107.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ magnet:?xt=urn:btih:64AC9DD4C94B3BA90FCC4B78D88F6619539379F4
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143108.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143108.jpgsave_picture_143108.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ Dead Meadow - The Nothing They Need (2018) [FLAC|Lossless|tracks + .cue] <Stoner
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143109.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143109.jpgsave_picture_143109.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ VA - 100 Greatest 10s: The Best Songs of Last Decade (2019) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143110.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143110.jpgsave_picture_143110.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ magnet:?xt=urn:btih:0FBD909CF57B9836519C1CEFBF535E5376162BEC
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143111.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143111.jpgsave_picture_143111.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ magnet:?xt=urn:btih:2FDB9EE93346CCAB5C5AD5B21AF21B3C235D3E79
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143113.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143113.jpgsave_picture_143113.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ magnet:?xt=urn:btih:9428201C4DBBA2C70F0EF02C07D18AB22C7E7085
 >>Общественно-политические и пропагандистские ток-шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143114.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143114.jpgsave_picture_143114.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ VA - Moulton Music Presents Best Of 2018 (2018) [MP3|320 Kbps] <House, Soulful, 
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143115.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143115.jpgsave_picture_143115.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ J.S. Bach - Toccatas BWV 910-916 for piano (Wolfgang Rubsam) (1993) [FLAC|Lossle
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143117.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143117.jpgsave_picture_143117.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ magnet:?xt=urn:btih:A34D15A4550B8DC8D80E7E2292F9338DACD02337
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143118.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143118.jpgsave_picture_143118.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ magnet:?xt=urn:btih:17E069D032659A96121FCDF90A50AE9DA4BCFD0C
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143120.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143120.jpgsave_picture_143120.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ VA - Best Of Phoenix Music (2018) [MP3|320 Kbps] <House, Soulful, Funky>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143124.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143124.jpgsave_picture_143124.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ magnet:?xt=urn:btih:224D46CC9DE528A950ABF4056EB8D8CABA12D201
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143125.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143125.jpgsave_picture_143125.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ magnet:?xt=urn:btih:140F11E728647DBDFCFC8C47516CD672680C2AD5
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143126.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143126.jpgsave_picture_143126.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ magnet:?xt=urn:btih:D588E13B2CD3575DD9D50025F768D359142F86B1
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143127.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143127.jpgsave_picture_143127.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ YOHANE THE PARHELION -BLAZE in the DEEPBLUE- (2023) [Multi] (1.0) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143128.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143128.jpgsave_picture_143128.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ magnet:?xt=urn:btih:95EE8414075205EEDCFB586F602318956536CE3A
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143131.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143131.jpgsave_picture_143131.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69182.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69182.jpgsave_picture_69182.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:A4CD701EF0AF01143EE47E585DB50154BAF0F68B
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69183.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69183.jpgsave_picture_69183.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ XYplorer 27.00 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69184.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69184.jpgsave_picture_69184.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ VA - 40 Years Techno Club (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69185.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69185.jpgsave_picture_69185.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:B5B923B652F6F8B42DD062680C17DA9E55D75617
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69186.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69186.jpgsave_picture_69186.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:0785CCAF4B34253AFD1FAF1657B5FD16477AB7E9
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69187.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69187.jpgsave_picture_69187.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:DD3A33376C56AD474738F389EEF4C6FE2DC43A38
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69188.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69188.jpgsave_picture_69188.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:2B7736D50DA6F86B356CA64F02738AE308590B4C
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69189.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69189.jpgsave_picture_69189.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ PhotoDirector v19.12.2 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69190.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69190.jpgsave_picture_69190.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ magnet:?xt=urn:btih:292B3654BFE1F86ED74C48CE735EAC5DE6A9684D
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69191.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69191.jpgsave_picture_69191.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ AC/DC - The Fly Is Rockin' (2010) 2 x CD, Limited Edition, Numbered [FLAC|Lossle
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69192.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69192.jpgsave_picture_69192.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ magnet:?xt=urn:btih:FD80CFAD344669A67A62CEB064A8BE57D7AA1102
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69193.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69193.jpgsave_picture_69193.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ Madonna - Star Collection vol.2 (2000) Compilation, Unofficial Release [FLAC|Los
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69194.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69194.jpgsave_picture_69194.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ Jigsawscapes® - Пазлы v3.8.2 Mod by vadj [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69195.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69195.jpgsave_picture_69195.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ Ms. Holmes 7: The Death of Peter Blackheart / Мисс Холмс 7: Смерт�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69196.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69196.jpgsave_picture_69196.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ magnet:?xt=urn:btih:5CC914345F64A3E55F9617F4678B402E8DE05E95
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69197.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69197.jpgsave_picture_69197.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Draw.io 26.1.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69198.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69198.jpgsave_picture_69198.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ magnet:?xt=urn:btih:449762F840EED98D730FF48558435BA1B65613A3
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69199.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69199.jpgsave_picture_69199.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ magnet:?xt=urn:btih:AC9F6250259A08E8D7045DDAF214430CDE7B18D6
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69200.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69200.jpgsave_picture_69200.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ magnet:?xt=urn:btih:7585DA779071FAF480121BBF4B375059542BD914
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69201.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69201.jpgsave_picture_69201.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ magnet:?xt=urn:btih:5759646DCE0FF78E4ED5EFF72D38753F5599905C
 >>Сериалы DC Comics
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69202.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69202.jpgsave_picture_69202.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ magnet:?xt=urn:btih:7736AF9860D353DCAE5874892327ECA1253BA3C4
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69203.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69203.jpgsave_picture_69203.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ magnet:?xt=urn:btih:9EFE00EE8939204A67DD1FC982A8F493ACF32C2D
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69204.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69204.jpgsave_picture_69204.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ magnet:?xt=urn:btih:CFF8FDB6830A1FBB19BA5F98001533648F921751
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69205.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69205.jpgsave_picture_69205.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ ScreenToGif 2.41.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69206.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69206.jpgsave_picture_69206.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Vermilia - Karsikko (2025) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Pagan, Bla
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69207.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69207.jpgsave_picture_69207.jpg" />
 </div>
 
 

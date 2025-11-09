@@ -6,7 +6,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101053.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101053.jpgsave_picture_101053.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:F7BF0833197614B58FF2F693CD7546C7CA39A249
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101054.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101054.jpgsave_picture_101054.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:657A2442C4CD6CE5F6137EE2A10EAC26F5668F62
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101055.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101055.jpgsave_picture_101055.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:EF5743C3F1163D7DF7B70D4549E0753D0AFF8C53
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101056.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101056.jpgsave_picture_101056.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Tedeschi Trucks Band And Leon Russell - Present: Mad Dogs & Englishmen Revisited
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101057.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101057.jpgsave_picture_101057.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ FBReader Premium v3.8.19 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101058.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101058.jpgsave_picture_101058.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Listen Audiobook Player v5.3.4 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101059.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101059.jpgsave_picture_101059.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Nicky Romero - Tomorrowland Friendship Mix (2025-10-02) [MP3|320 Kbps] <Dance, E
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101060.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101060.jpgsave_picture_101060.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Electrical Calculations Pro / Электрические расчеты v11.0.2 
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101061.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101061.jpgsave_picture_101061.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ Photo Editor v12.0 Pro Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101062.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101062.jpgsave_picture_101062.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Photo Editor v12.0 Pro Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101063.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101063.jpgsave_picture_101063.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:480197FF1D5DF2E4C42ADCF2B7F55B053E3860FF
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101064.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101064.jpgsave_picture_101064.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ DocuFreezer 7.0 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101065.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101065.jpgsave_picture_101065.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:F77589765DD74FF82C5C7055F76F3D04ECA6C429
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101066.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101066.jpgsave_picture_101066.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ magnet:?xt=urn:btih:7BDF11DCF783778AED62C9C64C2C05350BDFAF6E
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101067.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101067.jpgsave_picture_101067.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ StaxRip 2.50.3.5 Portable [En]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101068.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101068.jpgsave_picture_101068.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ magnet:?xt=urn:btih:EC2C4DD6BC3659AAED01BCBF56B4AF9BF07A27E9
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101069.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101069.jpgsave_picture_101069.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ magnet:?xt=urn:btih:5CAAE4C4AD44E5E0986E2167AF82DB2DB80F3564
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101070.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101070.jpgsave_picture_101070.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ Sofia Bellini - Favorites Collection Part 4 (2025) [MP3|320 Kbps] <Italodisco, I
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101071.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101071.jpgsave_picture_101071.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ magnet:?xt=urn:btih:7BACB26D48733FB929F6B06DD7B532A17B3DF956
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101072.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101072.jpgsave_picture_101072.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ magnet:?xt=urn:btih:F987D2BC4C4DB7B75DF12AF431870568AB82DEA0
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101073.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101073.jpgsave_picture_101073.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ MORTEN - Live @ Mainstage, Ultra Music Festival Japan (2025-09-13) [MP3|320 Kbps
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101074.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101074.jpgsave_picture_101074.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ magnet:?xt=urn:btih:AA829C41D6EDF47C2F6B84453DE2ACDA790E1DB7
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101075.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101075.jpgsave_picture_101075.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ magnet:?xt=urn:btih:BFDD3621E21A4871F0B14C9054FD0B5269A29B9B
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101076.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101076.jpgsave_picture_101076.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ magnet:?xt=urn:btih:DF909E7E897E4F8399D3281BCD1288CE04A10134
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101078.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101078.jpgsave_picture_101078.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ magnet:?xt=urn:btih:9B36C866FEB9E12249B838427BCDB1F6C538D02C
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101079.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101079.jpgsave_picture_101079.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Ronnie Atkins - Trinity (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174049.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174049.jpgsave_picture_174049.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Top 8 September 2023 Emotional and Uplifting Trance (2023) [MP3|320 Kbps] <
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174050.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174050.jpgsave_picture_174050.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:371DFBBE51ED878C0C54D907301365CA7266172E
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174051.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174051.jpgsave_picture_174051.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ magnet:?xt=urn:btih:CD19E5660D35762E8E3243D7F3D5A719245B84F9
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174052.jpgsave_picture_174052.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ magnet:?xt=urn:btih:90F733E2F93BAEB843FB75F73943D2B4BD605FCC
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174053.jpgsave_picture_174053.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ magnet:?xt=urn:btih:E7D4DE8DC41E2C8894AB998A7EE80EFDA55B85A5
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174054.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174054.jpgsave_picture_174054.jpg" />
 </div>
 
 
@@ -161,7 +161,7 @@ magnet:?xt=urn:btih:6C13DB5972741082E414B342FE00E330F857C082
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174055.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174055.jpgsave_picture_174055.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ magnet:?xt=urn:btih:2AB6182CB981C3F160CB6A0BEA43B691316FB8A6
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174056.jpgsave_picture_174056.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ K-Lite Codec Pack Update 17.3.3 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174057.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174057.jpgsave_picture_174057.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ magnet:?xt=urn:btih:BAA2F26140AD0C821F1537289DAD628CE31B229E
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174059.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174059.jpgsave_picture_174059.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ TechSmith Snagit for Mac 2024.0.1 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174060.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174060.jpgsave_picture_174060.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ VA - Country Breakup Songs (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues/Country/F
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174061.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174061.jpgsave_picture_174061.jpg" />
 </div>
 
 
@@ -314,7 +314,7 @@ VA - Новогодний утренник. Сборник детских пес
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174062.jpgsave_picture_174062.jpg" />
 </div>
 
 
@@ -341,7 +341,7 @@ magnet:?xt=urn:btih:90F147527260430F454009834A124B4E7EC79E58
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174063.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174063.jpgsave_picture_174063.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ magnet:?xt=urn:btih:313F2C7D20DAC6BFAAB8F1A2373F2EC3D2E542F3
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174064.jpgsave_picture_174064.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ Newman - Ignition (2020) [FLAC|Lossless|image + .cue] <Hard Rock, AOR>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174065.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174065.jpgsave_picture_174065.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ magnet:?xt=urn:btih:C9FC1B738BB02F1C75AED91A3B16AC8F06324324
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174066.jpgsave_picture_174066.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ magnet:?xt=urn:btih:6C10279135130810C3914AF6143F1ED63A982E92
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174068.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174068.jpgsave_picture_174068.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ magnet:?xt=urn:btih:9512781538E52D770B8392E49015DBE35C15D843
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174069.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174069.jpgsave_picture_174069.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Ronnie Atkins - Trinity (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174070.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174070.jpgsave_picture_174070.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Martin Stephenson & John Perry - New Wave Connection (2022) [FLAC|Lossless|WEB-D
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174072.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174072.jpgsave_picture_174072.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ magnet:?xt=urn:btih:4F19D880E7AF9EA520D7AB4B981AE136C1A4A1F4
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174073.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174073.jpgsave_picture_174073.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ magnet:?xt=urn:btih:0F6010865C6FA7E378866C99070CA1DCC2423F84
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174074.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174074.jpgsave_picture_174074.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Assbuka - Ипортозамещение (2023) [FLAC|Lossless|WEB-DL|tracks] <M
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174075.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174075.jpgsave_picture_174075.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ Agisoft Metashape Professional 1.7.0 build 11539 pre-release [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174077.jpgsave_picture_174077.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ Eric Johanson - Live at DBA: New Orleans Bootleg (2022) 2CD [FLAC|Lossless|WEB-D
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174078.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174078.jpgsave_picture_174078.jpg" />
 </div>
 
 

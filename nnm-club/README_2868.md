@@ -6,7 +6,7 @@ VA - Блатной Хит. Только лучшее (2012) [MP3|192 кб/с]<�
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83827.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83827.jpgsave_picture_83827.jpg" />
 </div>
 
 
@@ -39,7 +39,7 @@ magnet:?xt=urn:btih:08559440F9693403C162716564C5707062A7A0C5
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83829.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83829.jpgsave_picture_83829.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ magnet:?xt=urn:btih:0AC58AB956A84BC9A9AB69CBC35EAC945B5BBDBD
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83830.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83830.jpgsave_picture_83830.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:419DAAE01DBB8EEE00E0CBEC992A6A7BBF52A23E
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83831.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83831.jpgsave_picture_83831.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ magnet:?xt=urn:btih:419DAAE01DBB8EEE00E0CBEC992A6A7BBF52A23E
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83833.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83833.jpgsave_picture_83833.jpg" />
 </div>
 
 
@@ -144,7 +144,7 @@ Great Jazz Trio - Standard Collection Vol.1 - Summertime (1988) [FLAC|Lossless]<
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83835.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83835.jpgsave_picture_83835.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Great Jazz Trio - Standard Collection Vol.1 - Summertime (1988) [FLAC|Lossless]<
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83836.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83836.jpgsave_picture_83836.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:1313834AA51A07F775ECA4F584E62D5FA1075939
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83837.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83837.jpgsave_picture_83837.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ magnet:?xt=urn:btih:3467E5A9D967C921635833C62836988D7C45984A
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83838.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83838.jpgsave_picture_83838.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ magnet:?xt=urn:btih:25A148FED0C621F326C4490E1E6DC5A5684A029E
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83839.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83839.jpgsave_picture_83839.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ True Sound Midi - Huge outbreak [MIDI Pack][английский]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83841.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83841.jpgsave_picture_83841.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ True Sound Midi - Huge outbreak [MIDI Pack][английский]
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83842.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83842.jpgsave_picture_83842.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Madonna - MDNA (Deluxe Edition) (2CD) (2012) [MP3|~245 кб/с (V0)]<Pop,  Vocal
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83843.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83843.jpgsave_picture_83843.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Hawkwind - Ridicule (1985) [APE|Lossless]<space/prog rock>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83844.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83844.jpgsave_picture_83844.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Hawkwind - Ridicule (1985) [APE|Lossless]<space/prog rock>
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83845.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83845.jpgsave_picture_83845.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Hawkwind - Ridicule (1985) [APE|Lossless]<space/prog rock>
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83848.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83848.jpgsave_picture_83848.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Hawkwind - Ridicule (1985) [APE|Lossless]<space/prog rock>
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83849.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83849.jpgsave_picture_83849.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ VA - We Got The Funk (2002) [FLAC|Lossless]<Funk, Soul, R&B>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83850.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83850.jpgsave_picture_83850.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ Overkill - 15 альбомов (1988 - 2010) Japanese Edition [FLAC|Lossless]<Th
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83851.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83851.jpgsave_picture_83851.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Overkill - 15 альбомов (1988 - 2010) Japanese Edition [FLAC|Lossless]<Th
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83854.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83854.jpgsave_picture_83854.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ VA - Убойные весенние хиты (2012) [MP3|256кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83856.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83856.jpgsave_picture_83856.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ magnet:?xt=urn:btih:2880C4D1B910484357AEB54DF36D29D7F1EAA20C
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83857.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83857.jpgsave_picture_83857.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ magnet:?xt=urn:btih:3785CFF9335CF4904E9248173971E59FA17944A2
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83863.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83863.jpgsave_picture_83863.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ magnet:?xt=urn:btih:3785CFF9335CF4904E9248173971E59FA17944A2
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83864.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83864.jpgsave_picture_83864.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ magnet:?xt=urn:btih:E6C002862B90A3D165D5BDB88ABCB20D12DF17DC
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83865.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83865.jpgsave_picture_83865.jpg" />
 </div>
 
 
@@ -684,7 +684,7 @@ magnet:?xt=urn:btih:E6C002862B90A3D165D5BDB88ABCB20D12DF17DC
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83870.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83870.jpgsave_picture_83870.jpg" />
 </div>
 
 

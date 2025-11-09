@@ -6,7 +6,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206628.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206628.jpgsave_picture_206628.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:F3EB198E2DDCED577EB01B448F470D30E8DF453C
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206630.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206630.jpgsave_picture_206630.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:459B0515789C6C0CC5E5B587228B928F302E0C4B
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206632.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206632.jpgsave_picture_206632.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ VA - Now That's What I Call 90's Pop (2023) CD, Compilation [MP3|320 Kbps] <Danc
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206636.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206636.jpgsave_picture_206636.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ magnet:?xt=urn:btih:842CD8CAD698D43F254DFB276BAD79A013728C13
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206638.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206638.jpgsave_picture_206638.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ magnet:?xt=urn:btih:7CF97B55BC5CE30DAEFF9C1AEFDADFCBC6B0893D
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206640.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206640.jpgsave_picture_206640.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:7A4ACBB7B4D252A103FD3829FFDAD6398AF9E2E4
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206641.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206641.jpgsave_picture_206641.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:C49601B949D1DB9B9C60F2C34E11DB014A0E3371
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206644.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206644.jpgsave_picture_206644.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ VA - Now That's What I Call Music 87 (2023) CD, Compilation [MP3|320 Kbps] <Danc
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206645.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206645.jpgsave_picture_206645.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ magnet:?xt=urn:btih:D788F208E0BEF6C562D4A30340C1C6864E77BA78
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206649.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206649.jpgsave_picture_206649.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ magnet:?xt=urn:btih:1EDDF8EDCD6BA323668887C5CAE178C79A2DE2EE
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206650.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206650.jpgsave_picture_206650.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ magnet:?xt=urn:btih:9D94986F77D066C4ACF18642CE2E18A8EC00AD38
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206651.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206651.jpgsave_picture_206651.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ Connection of Worlds 2: Star Riddle (2023) [En] (1.0) Unofficial [Collector's Ed
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206654.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206654.jpgsave_picture_206654.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ VA - Dominator 2023 (Voyage of the Damned) (2023) [MP3|320 Kbps] <Hardcore, Hard
 >>Hardstyle, Jumpstyle, Hardcore
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206657.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206657.jpgsave_picture_206657.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ VueScan Pro 9.8.14 ARM/Intel [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206660.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206660.jpgsave_picture_206660.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Allavsoft Video Downloader Converter 3.25.8.8606 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206662.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206662.jpgsave_picture_206662.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Romantic Beats for Lovers - Sensual Bubble Bath : Slow Romantic Jazz for Pleasur
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206664.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206664.jpgsave_picture_206664.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ File & Image Uploader 8.3.4 Portable + Skins [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206665.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206665.jpgsave_picture_206665.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ magnet:?xt=urn:btih:659168F186FEA66E6ABB7642261A76B737ED5193
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206667.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206667.jpgsave_picture_206667.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ magnet:?xt=urn:btih:E6B63D05096D491A9F13F453A52BB8DD39382FB7
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206672.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206672.jpgsave_picture_206672.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ magnet:?xt=urn:btih:F2B206948DDDA601D7179340D5E13355971FC639
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206675.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206675.jpgsave_picture_206675.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ AlDente Pro fo Mac 1.2.22 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206677.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206677.jpgsave_picture_206677.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ magnet:?xt=urn:btih:87B921D90E2D72DAFF91664DF2FB7DCD83811FA4
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206679.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206679.jpgsave_picture_206679.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ Microsoft .NET 7.0.10 Runtime [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206681.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206681.jpgsave_picture_206681.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ magnet:?xt=urn:btih:AFE27CA18187E6C656DDA8315D2B7C899D5FF7F1
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206683.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206683.jpgsave_picture_206683.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ magnet:?xt=urn:btih:57AE323F627E220DA9B8A2796A824C86673B7FA0
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206686.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206686.jpgsave_picture_206686.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160269.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160269.jpgsave_picture_160269.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:0B4D152707DDA730323BDCACB2C7DCD78C6B28F5
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160270.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160270.jpgsave_picture_160270.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ n-Track Studio Suite 10.0.0.8196 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160271.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160271.jpgsave_picture_160271.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:DFD3925297DA507C9616FDABC2CB71920BEDE6A9
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160272.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160272.jpgsave_picture_160272.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:CD0EB0D1C6498653EB0331FAB21C4F359D112A1E
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160273.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160273.jpgsave_picture_160273.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:14B0278A945ACFA764F79A0CC5B1B0743F87BF07
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160274.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160274.jpgsave_picture_160274.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Capture One 23 Enterprise 16.3.1.23 [En/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160275.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160275.jpgsave_picture_160275.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:A40E1A7FA6F1D7474EFCC2A771075B2C92BEF407
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160276.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160276.jpgsave_picture_160276.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:30ED451114C24AE16CFAFAE0C4A862F52B09FEC8
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160277.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160277.jpgsave_picture_160277.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:B310F9196E3F5DE9F1AA5D8A1282022ED4E8B224
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160278.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160278.jpgsave_picture_160278.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ The Alley Tones - Buzzard's Luck (2023) [FLAC|Lossless|WEB-DL|tracks] <Electric 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160279.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160279.jpgsave_picture_160279.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ Secret Sphere - Blackened Heartbeat (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160280.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160280.jpgsave_picture_160280.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ magnet:?xt=urn:btih:58B8F3AC85A875673627B09A5D0296FED1198C8E
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160281.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160281.jpgsave_picture_160281.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Yoink 3.6.89  [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160282.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160282.jpgsave_picture_160282.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ magnet:?xt=urn:btih:EA436E80D52E475A63BDBD4EE2DFDDA724554910
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160283.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160283.jpgsave_picture_160283.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ D'Virgilio, Morse & Jennings - Sophomore (2023) [FLAC|Lossless|WEB-DL|tracks] <P
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160284.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160284.jpgsave_picture_160284.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ The Bayou Bandits - Arizona Stepson (2023) [FLAC|Lossless|WEB-DL|tracks] <Southe
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160285.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160285.jpgsave_picture_160285.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ DJ Mix Pads 2 - Remix Version 6.0.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160286.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160286.jpgsave_picture_160286.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Kaliopi & The Blues Messengers - Blues for Minnie (2023) [FLAC|Lossless|WEB-DL|t
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160287.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160287.jpgsave_picture_160287.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ D'Virgilio, Morse & Jennings - Sophomore (2023) [FLAC 24/48|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160288.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160288.jpgsave_picture_160288.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ Luke - Strange Boy In Town (2023) [FLAC|Lossless|WEB-DL|tracks] <Electric Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160289.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160289.jpgsave_picture_160289.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Hinayana - Shatter And Fall (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodi
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160290.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160290.jpgsave_picture_160290.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Secret Sphere - Blackened Heartbeat (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160291.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160291.jpgsave_picture_160291.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Dawnrider - Fate Is Calling (Pt. 1) (2005) [FLAC|Lossless|image + .cue] <Power M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160292.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160292.jpgsave_picture_160292.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Protean Shield - Protean Shield (2023) [FLAC|Lossless|WEB-DL|tracks] <Metal, Hea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160293.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160293.jpgsave_picture_160293.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ AnyMP4 Data Recovery for Mac 1.3.16 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160294.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160294.jpgsave_picture_160294.jpg" />
 </div>
 
 

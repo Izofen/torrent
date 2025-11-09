@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78178.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78178.jpgsave_picture_78178.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ cFosSpeed 7.01 Build 1926 Beta [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78184.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78184.jpgsave_picture_78184.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ CFosSpeed - это быстрейший на сегодняшний день н�
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78190.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78190.jpgsave_picture_78190.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ VA - Millenium Sexy vol.3 - Сборник видеоклипов (2011) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78191.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78191.jpgsave_picture_78191.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ DivX Plus 8.2.2 Build 1.8.5.36 ML/Rus
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78192.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78192.jpgsave_picture_78192.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ DivX Plus Pro — это совершенно новый пакет кодеко
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78193.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78193.jpgsave_picture_78193.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ magnet:?xt=urn:btih:E7D3646A53CBDB241B062EA35C2E218C3B6DE24C
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78197.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78197.jpgsave_picture_78197.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ Ozzy Osbourne-The Ultimate Ozzy (1986) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78198.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78198.jpgsave_picture_78198.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Ozzy Osbourne-The Ultimate Ozzy (1986) DVD9
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78205.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78205.jpgsave_picture_78205.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Fleur (Flёur) - Пробуждение (2012) [MP3|320 кб/с]<Cardiowave, Roc
 >>Folk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78208.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78208.jpgsave_picture_78208.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Deep purple - Machine Head Live 1972 (1999) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78214.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78214.jpgsave_picture_78214.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Lady GaGa - The Singles (2011) [FLAC|Lossless]<Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78217.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78217.jpgsave_picture_78217.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ Lady GaGa - The Singles (2011) [FLAC|Lossless]<Pop>
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78220.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78220.jpgsave_picture_78220.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ magnet:?xt=urn:btih:DCD39D10BB297525C76A5C0D7588BD8EF0A64EDA
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78226.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78226.jpgsave_picture_78226.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ magnet:?xt=urn:btih:AED5632FE5C1848001D3ACFAAA1B15008004002A
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78227.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78227.jpgsave_picture_78227.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ SPB Phone Suite — это подборка функций телефона, д�
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78231.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78231.jpgsave_picture_78231.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Windows 7 Ultimate SP1 x64 Point Blank By StartSoft v 14.2.12 [Русский +�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78232.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78232.jpgsave_picture_78232.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Windows 7 Ultimate SP1 x64 Point Blank By StartSoft v 14.2.12 [Русский +�
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78233.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78233.jpgsave_picture_78233.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Avast! Pro Antivirus 7.0.1407 Final [ML, Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78240.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78240.jpgsave_picture_78240.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Agnitum Outpost Security Suite Pro v 7.5.2 (3939.602.1809) Final ML/Rus
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78244.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78244.jpgsave_picture_78244.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Outpost Security Suite (   Читать дальше...   )Название п�
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78248.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78248.jpgsave_picture_78248.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ magnet:?xt=urn:btih:AB92368065A1762ED595B61EA320D6ECAB9CFD4A
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78253.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78253.jpgsave_picture_78253.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Xilisoft Video Converter Ultimate v.7.1.0.20120222 (x32/x64/RUS) - Тихая у
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78255.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78255.jpgsave_picture_78255.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Microsoft Windows 7 Ultimate Ru x86 SP1 WPI Boot by OVGorskiy 19.02.2012
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78256.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78256.jpgsave_picture_78256.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ Microsoft Windows 7 Ultimate Ru x86 SP1 WPI Boot by OVGorskiy 19.02.2012
 >>Мобильное Видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78258.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78258.jpgsave_picture_78258.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ Microsoft Windows 7 Ultimate Ru x86 SP1 WPI Boot by OVGorskiy 19.02.2012
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78261.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78261.jpgsave_picture_78261.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Grim Chronicles: Superior Sorcery (2025) [En] (1.0) Unofficial [Collector's Edit
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8897.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8897.jpgsave_picture_8897.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:474F65A12EE70800AE17DAC4A797A48EE92026BD
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8898.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8898.jpgsave_picture_8898.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:E1104C2EED5E510248B11214A87E6677680D812C
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8899.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8899.jpgsave_picture_8899.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:928C8A0B86C5DBA819BACE72BAA64F3648FFFD1D
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8900.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8900.jpgsave_picture_8900.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:83FF82233AAC4EE13E662BCDEFAFA828ADB024C6
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8901.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8901.jpgsave_picture_8901.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Firefox Browser 141.0.3 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8902.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8902.jpgsave_picture_8902.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:0C55AD3C552F2C6003D10919AFD1C04850FB1238
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8903.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8903.jpgsave_picture_8903.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:7F7310E235E61F3548D0C848C5998D4517C5B7CA
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8904.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8904.jpgsave_picture_8904.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ INDIGO | Фортуна дама переменчивая (Книга 12). На 
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8905.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8905.jpgsave_picture_8905.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ magnet:?xt=urn:btih:0957B6054E4BA3AB9CF84EB9D03F485193CDD158
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8906.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8906.jpgsave_picture_8906.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Paul McCartney - New (2013) Japanese Edition, SHM-CD, Reissue, 2025, Capitol Rec
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8907.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8907.jpgsave_picture_8907.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:B18CBA63FF30FDDF7EDD4A5D3753C4794FD5CDD7
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8908.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8908.jpgsave_picture_8908.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Ashampoo WinOptimizer 28.00.13 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8909.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8909.jpgsave_picture_8909.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ magnet:?xt=urn:btih:E3564038F4959748E19EAF9F5B12EA534DEEC09C
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8910.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8910.jpgsave_picture_8910.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ magnet:?xt=urn:btih:A87F831F8A7BA6BE1551490CF684716D279BD4F0
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8911.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8911.jpgsave_picture_8911.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Wise Care 365 Pro 7.2.8.707 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8912.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8912.jpgsave_picture_8912.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ magnet:?xt=urn:btih:78C6DFD68887170756CAD14A4A79BA6C2CF319B0
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8913.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8913.jpgsave_picture_8913.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ magnet:?xt=urn:btih:752B4C542FEC86F292AE8CFCE22C0651B044A072
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8914.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8914.jpgsave_picture_8914.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ AIMP 5.40 Build 2690 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8915.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8915.jpgsave_picture_8915.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ magnet:?xt=urn:btih:FCB8EEDA7B635C7181AB42BFAF21A116958C7158
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8916.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8916.jpgsave_picture_8916.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ magnet:?xt=urn:btih:114AD6D4703485FD84FBCDDC1E68424BC609BABC
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8917.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8917.jpgsave_picture_8917.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ magnet:?xt=urn:btih:A127D10DD0E51A72CBD109726AC9D068370E0786
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8918.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8918.jpgsave_picture_8918.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ magnet:?xt=urn:btih:70913A4157D3395ACAF968CD6972399B50BCB7F8
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8919.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8919.jpgsave_picture_8919.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ magnet:?xt=urn:btih:C6FC871BF254E10B8348CEAF4AA195A709ECD4F0
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8920.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8920.jpgsave_picture_8920.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ magnet:?xt=urn:btih:496E55E0C6CFD325D4B86BF539E6AD2096049A5F
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8921.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8921.jpgsave_picture_8921.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ magnet:?xt=urn:btih:BEBB88F92A3D25D4444431C4C214A286B11851F0
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8922.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8922.jpgsave_picture_8922.jpg" />
 </div>
 
 

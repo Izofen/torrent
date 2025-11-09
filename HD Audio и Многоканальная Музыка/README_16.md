@@ -6,7 +6,7 @@ Cerrone & Christine and the Queens - Catching feelings (2025) EP [FLAC 24/44.1|L
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12568.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12568.jpgsave_picture_12568.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Muse - The 2nd Law (2012) Reissue, 2015, Warner Records [FLAC 24/96|Lossless|WEB
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12941.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12941.jpgsave_picture_12941.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Culture Kultur - Time (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Synthpop, Futu
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12943.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12943.jpgsave_picture_12943.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Spoon - They Want My Soul (2014) Reissue, Deluxe More Soul Edition, 2024, Matado
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12946.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12946.jpgsave_picture_12946.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Killing of a Sacred Deer - A Visage of a Mangled Body (2025) [FLAC 24/44.1|Lossl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12950.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12950.jpgsave_picture_12950.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Louis Armstrong - What A Wonderful World (1968) Japan Edition, Limited Edition, 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12961.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12961.jpgsave_picture_12961.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Bruce Springsteen - Tracks II: The Lost Albums (2025) [FLAC 24/96, 24/44.1|Lossl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13245.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13245.jpgsave_picture_13245.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Benson Boone - American Heart (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13253.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13253.jpgsave_picture_13253.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Gabrielle De Val - I Am The Hammer (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <H
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13254.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13254.jpgsave_picture_13254.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Heaven Shall Burn - Heimat (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Melodic D
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13260.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13260.jpgsave_picture_13260.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Crematory - ...Just Dreaming (1994) Remastered, Reissue, 2025, Roar [FLAC 24/44.
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13263.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13263.jpgsave_picture_13263.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Noumenia - Echoes (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Post-Groove Metal>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13265.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13265.jpgsave_picture_13265.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ De-Phazz - Luck You! (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Nu Jazz, Trip
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13278.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13278.jpgsave_picture_13278.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Barbra Streisand - The Secret Of Life: Partners, Volume 2 (2025) [FLAC 24/96|Los
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13279.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13279.jpgsave_picture_13279.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Sodom - Studio Albums (17 releases) (1986-2025) hand made [restored, declipped] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13315.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13315.jpgsave_picture_13315.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ magnet:?xt=urn:btih:F2CCC08F48EB63226F419B6061A47285E48372F5
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13571.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13571.jpgsave_picture_13571.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Alestorm - Studio Albums (9 releases) (2008-2025) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13718.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13718.jpgsave_picture_13718.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Joe Bonamassa - Trigger Finger (2025) EP [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13890.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13890.jpgsave_picture_13890.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Manowar - Kings of Metal (1988)[FLAC|24/192|image + .cue|Vinyl-Rip]  <Heavy, Pow
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13990.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13990.jpgsave_picture_13990.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Paul McCartney (Пол Маккартни) - Снова в СССР (1989) [FLAC
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14222.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14222.jpgsave_picture_14222.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ The Blue Stones - METRO (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock, Blue
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14399.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14399.jpgsave_picture_14399.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Brandee Younger - Gadabout Season (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Co
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14406.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14406.jpgsave_picture_14406.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Girls Aloud - The Girls Aloud Show (Live) (2025) [FLAC 24/48|Lossless|WEB-DL|tra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14407.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14407.jpgsave_picture_14407.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Neil Young + Promise of the Real - The Visitor (2017) [FLAC 24/192|Lossless|WEB-
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14411.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14411.jpgsave_picture_14411.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Smoulder - Times of Obscene Evil and Wild Daring (2019) [FLAC|24/192|image + .cu
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14412.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14412.jpgsave_picture_14412.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Dante - Studio Albums (5 releases) (2007-2022) hand made [restored, declipped] [
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14413.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14413.jpgsave_picture_14413.jpg" />
 </div>
 
 

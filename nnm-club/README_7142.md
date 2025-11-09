@@ -6,7 +6,7 @@ Donald Byrd - Live: Cookin' With Blue Note At Montreux (1973) 2022, Blue Note [F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244638.jpgsave_picture_244638.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ SFJAZZ Collective - Live 2005 2nd Annual Concert Tour (2005) 2CD, SFJazz Records
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244639.jpgsave_picture_244639.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:B27EEDF6C6CD006305201E729033106BE7C0D070
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244640.jpgsave_picture_244640.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ magnet:?xt=urn:btih:0A0D0581A99E460505B583C570AD85D4DB9929DD
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244641.jpgsave_picture_244641.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ Gemini 2: The Duplicate Finder 2.9.8 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244642.jpgsave_picture_244642.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ magnet:?xt=urn:btih:5279463C54304E268E66F47B115E7805CA706990
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244643.jpgsave_picture_244643.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ Clint Houston - Inside The Plain Of The Elliptic (1979) Remaster, 2015, Solid Re
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244644.jpgsave_picture_244644.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ magnet:?xt=urn:btih:E1A4D1F56B424769A49AB9AD982FF345F6E6C8CF
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244645.jpgsave_picture_244645.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ magnet:?xt=urn:btih:61BCC644171DB43C3C325FDA09DB08A02C32C4AF
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244646.jpgsave_picture_244646.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Aura Minimum - Fragments (2021) Strange Key [FLAC 2.0|44.1/24|tracks|WEB-DL] <Am
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244647.jpgsave_picture_244647.jpg" />
 </div>
 
 
@@ -265,7 +265,7 @@ Project Hospital v1.2.22644 (2018) [Multi/Ru] [macOS Native game]
 >>Strategy, RPG для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244648.jpgsave_picture_244648.jpg" />
 </div>
 
 
@@ -291,7 +291,7 @@ magnet:?xt=urn:btih:73FF0302314172D2661A59F48085EBF9AA335630
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244649.jpgsave_picture_244649.jpg" />
 </div>
 
 
@@ -315,7 +315,7 @@ Blue - Everybody Needs Somebody (1986) Italy 12" Single [MP3|320 Kbps] <Italo-Di
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244650.jpgsave_picture_244650.jpg" />
 </div>
 
 
@@ -341,7 +341,7 @@ Then It Ends - Vainglory (2023) [MP3|320 Kbps] <Metalcore, Hardcore>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244651.jpgsave_picture_244651.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ magnet:?xt=urn:btih:42209667CCB882F29F87102DDAC9A1CAAC3377FA
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244652.jpgsave_picture_244652.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ VA - Beatport Techno: Sound Pack #402 (2022) [MP3|320 Kbps] <Techno, Electro>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244653.jpgsave_picture_244653.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ Demon Project MX - Demon Project MX (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244654.jpgsave_picture_244654.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ Pierre de Bethmann - Sisyphe (2014) 2CD, Plus Loin Music[FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244655.jpgsave_picture_244655.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ magnet:?xt=urn:btih:D947742866B2BDF05240F977FBBEACAFE59D3CA3
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244656.jpgsave_picture_244656.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ magnet:?xt=urn:btih:82F1A7EA8C2A64146DFC234FBDF114A3BE25450B
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244657.jpgsave_picture_244657.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ Chromium 89.0.4389.72 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244658.jpgsave_picture_244658.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:7A9B52393A7918BAF86A07BEE70E3C53A6401DAE
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244659.jpgsave_picture_244659.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ magnet:?xt=urn:btih:938BB04109F28A2F865BE8517762B3DF9774FD82
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244660.jpgsave_picture_244660.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Infuse PRO 7 v7.3.4 U2B [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244661.jpgsave_picture_244661.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Artweaver Plus 7.0.15.15562 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244662.jpgsave_picture_244662.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Depleted - Failing (2023) [FLAC|Lossless|WEB-DL|tracks] <Funeral Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244663.jpgsave_picture_244663.jpg" />
 </div>
 
 

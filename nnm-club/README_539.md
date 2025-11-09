@@ -6,7 +6,7 @@
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14323.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14323.jpgsave_picture_14323.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Microsoft Windows 11 [10.0.22631.5472], Version 23H2 (Updated June 2025) - Ор�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14324.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14324.jpgsave_picture_14324.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:5117100079196A02B354F966882BF06D36CE11CF
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14325.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14325.jpgsave_picture_14325.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Windows Server [10.0.25398.1665], version 23H2 (Updated June 2025) - Ориги�
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14326.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14326.jpgsave_picture_14326.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:9ABC8D109CE1B61C2EC24CA688E8618A6F8048D0
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14327.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14327.jpgsave_picture_14327.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:ED1150167BE0FA8FFD9AA07121191204981C767C
 >>Элементы (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14328.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14328.jpgsave_picture_14328.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ Rain World (2017) [Ru/Multi] (1.10.4/dlc) Repack Other s [Complete Edition]
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14329.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14329.jpgsave_picture_14329.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:2A84DEA94432A2333B07E78F279D4B394D445395
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14330.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14330.jpgsave_picture_14330.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ VA - Melon Top 100 K-Pop Singles Chart (11-04-2025) [MP3|320 Kbps] <K-Pop, Dance
 >>Asian Pop
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14331.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14331.jpgsave_picture_14331.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ magnet:?xt=urn:btih:9914ABCE2F3A49C4528427085602F8CBBA921976
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14332.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14332.jpgsave_picture_14332.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:8E6DADB77BCF1231E52753B3EC85DE426E40EEC5
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14333.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14333.jpgsave_picture_14333.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:6ACA8B3C4D3A3FA91CE7EE8DF0DCA1B35D89B7B4
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14334.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14334.jpgsave_picture_14334.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Near-Mage (2025) [Ru/Multi] (1.1.1/dlc) Repack Let'sРlay [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14335.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14335.jpgsave_picture_14335.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ CorelDRAW Technical Suite 2025 26.1.0.143 (x64) RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14336.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14336.jpgsave_picture_14336.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Microsoft Windows 11 [10.0.22631.5472], Version 23H2 (Updated June 2025) - Ор�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14337.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14337.jpgsave_picture_14337.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ magnet:?xt=urn:btih:295AB34A3D328C394805AC96B3182653FB019468
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14338.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14338.jpgsave_picture_14338.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Aru Majo ga Shinu Made / Once Upon a Witch's Death / Пoкa вeдьмa нe ум�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14339.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14339.jpgsave_picture_14339.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ Microsoft Windows 11 [10.0.26100.4349], Version 24H2 (Updated June 2025) - Ор�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14340.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14340.jpgsave_picture_14340.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ Auslogics BoostSpeed 14.0.1.1 RePack (& Portable) by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14341.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14341.jpgsave_picture_14341.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ magnet:?xt=urn:btih:2A4387AAFF2D7119A2683391DD52AD868759C4C9
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14342.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14342.jpgsave_picture_14342.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Far Cry 2 (2008) [Ru] (1.03) Repack EXROW [Fortune's Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14343.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14343.jpgsave_picture_14343.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Windows Server 2022 LTSC [10.0.20348.3807], Version 21H2 (Updated June 2025) - �
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14344.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14344.jpgsave_picture_14344.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ magnet:?xt=urn:btih:6EE91C1871333E4F87A6CC7F78AFE901766A8C89
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14345.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14345.jpgsave_picture_14345.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ magnet:?xt=urn:btih:B4275FADAEB8683AD8A550C45C7F63E6DCB47DF3
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14346.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14346.jpgsave_picture_14346.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Warhammer 40.000: Dawn of War (2004) [Ru] (1.51/dlc) Repack EXROW
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14347.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14347.jpgsave_picture_14347.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Franzis ZOOM #3 Pro 3.31.04132 Portable by Spirit Summer [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14348.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14348.jpgsave_picture_14348.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249915.jpgsave_picture_249915.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:9F9AD0A7B30B4E3728124A0E5BCCDAA3A18F6751
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249916.jpgsave_picture_249916.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:EE4DCB65A17CF3AB2092480056889B6ED3C61CE4
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249917.jpgsave_picture_249917.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ VA - Piano Beach Lounge (2023) [FLAC|Lossless|WEB-DL|tracks] <Easy Listening, Lo
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249918.jpgsave_picture_249918.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Mushoku Tensei: Isekai Ittara Honki Dasu | Реинкарнация безраб
 >>Аниме OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249919.jpgsave_picture_249919.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:14A23B2D0D7FCD4762EC2501BFA7483018747354
 >>Трейлеры
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249920.jpgsave_picture_249920.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ VA - Лучшие песни радио русский шансон 9 (2009) [MP
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249921.jpgsave_picture_249921.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:69ACED22E59361166AB7EA31387027CF5EAADEED
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249922.jpgsave_picture_249922.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:9C80B0438F329F890DAA3C1D4759D3380DDC1D84
 >>Сериалы Marvel Comics
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249923.jpgsave_picture_249923.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ magnet:?xt=urn:btih:BDF11593A9B73D59F2B6AEAC56831C1568445090
 >>Новости
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249924.jpgsave_picture_249924.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ magnet:?xt=urn:btih:BDF11593A9B73D59F2B6AEAC56831C1568445090
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249925.jpgsave_picture_249925.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ magnet:?xt=urn:btih:061A54DC068FA0708EF248619B1506131910AB93
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249926.jpgsave_picture_249926.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:A2FE1A6580A3E001039006C880DAA2D694637277
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249927.jpgsave_picture_249927.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Notepad++ 8.4.4 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249928.jpgsave_picture_249928.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Fort Firewall 3.7.8 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249929.jpgsave_picture_249929.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ magnet:?xt=urn:btih:EDC896A7236352A5F307AA5D71FA7A4F063A399C
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249930.jpgsave_picture_249930.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Gumroad, Chris Legaspi | Shading Techniques in Photoshop (2016) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249931.jpgsave_picture_249931.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ magnet:?xt=urn:btih:2C8BE85E9BC1F3070AEB9D18827F73EC4D04C9D5
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249932.jpgsave_picture_249932.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ magnet:?xt=urn:btih:3D5B6F33DF3C5C9BA40021CF72E0AAB0BC96D415
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249933.jpgsave_picture_249933.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ magnet:?xt=urn:btih:B5B412E409F79CE250A7DD4A65E290EC21488FFF
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249934.jpgsave_picture_249934.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ magnet:?xt=urn:btih:B9FFB1CEA40F6117E048F7A2FB4A2BB375CBC69F
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249935.jpgsave_picture_249935.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ NetLimiter 5.2.3.0 (x64) RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249936.jpgsave_picture_249936.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ AOMEI Backupper Technician Plus 6.9.1 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249937.jpgsave_picture_249937.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ FanControl V120 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249938.jpgsave_picture_249938.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ VA - Enigma-Forest-Transit 10 (1998) [OGG Vorbis|480 Kbps] <Electronic, Ambient,
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249939.jpgsave_picture_249939.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ magnet:?xt=urn:btih:39A15539F982D9B6996486351CD089DDF242CAC0
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249940.jpgsave_picture_249940.jpg" />
 </div>
 
 

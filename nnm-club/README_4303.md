@@ -6,7 +6,7 @@
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133611.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133611.jpgsave_picture_133611.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:778FD3891AEECB16CA11A3CF9CDC35B555439566
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133612.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133612.jpgsave_picture_133612.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:F67B610188F5F9F94404936DE13B96B5DE538644
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133613.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133613.jpgsave_picture_133613.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Photo Mechanic Plus 6 v.6.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133615.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133615.jpgsave_picture_133615.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ WinToUSB Free / Pro / Enterprise / Technician 8.4 RePack (& Portable) by Dodakae
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133617.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133617.jpgsave_picture_133617.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:1423F7A7AD7E38E060D5D7DA9604E0C0925AD3F3
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133618.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133618.jpgsave_picture_133618.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ uTorrent Pro 3.6.0 Build 46944 Stable RePack (& Portable) by Dodakaedr [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133619.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133619.jpgsave_picture_133619.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ Macromedia Flash 5.0 [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133621.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133621.jpgsave_picture_133621.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:A011B3D4CF5E580DBE0ACC63DD0926C3A00478B1
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133622.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133622.jpgsave_picture_133622.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ Udemy, Studio Wander | Complete Guide to Unreal Engine 5 : 3D Architecture & Des
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133623.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133623.jpgsave_picture_133623.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ Microsoft выпустила «уродливый» рождественский
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133624.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133624.jpgsave_picture_133624.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ Microsoft выпустила «уродливый» рождественский
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133625.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133625.jpgsave_picture_133625.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:9983F102EF1461B811386825FEFC529069538954
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133626.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133626.jpgsave_picture_133626.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ magnet:?xt=urn:btih:D33418FCBC52ACBA3A48C2468EFB4A8AD664FDAB
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133627.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133627.jpgsave_picture_133627.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ magnet:?xt=urn:btih:FD64D89CA356A1F3B0F72BBCE5230AB444018A9B
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133628.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133628.jpgsave_picture_133628.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ magnet:?xt=urn:btih:A15B9B7359E735CBB9A2FB3E1311725DF4F4FD29
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133629.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133629.jpgsave_picture_133629.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Stevie Ray Vaughan and Double Trouble - The Essential Stevie Ray Vaughan and Dou
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133630.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133630.jpgsave_picture_133630.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Stevie Ray Vaughan and Double Trouble - The Essential Stevie Ray Vaughan and Dou
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133631.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133631.jpgsave_picture_133631.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ Car Mechanic Simulator 2021 (2021) [Ru/Multi] (1.0.32/dlc) Repack dixen18
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133633.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133633.jpgsave_picture_133633.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ VA - Это Новый год! (2023) [MP3|320 Kbps] <Pop, Rock>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133635.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133635.jpgsave_picture_133635.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ VA - New Age Style - Greatest New Age Hits, Vol. 9 (2012) [MP3|320 кб/с]<New 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133636.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133636.jpgsave_picture_133636.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ magnet:?xt=urn:btih:BC59B22ADC56237BEB359804CDADB30672896336
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133637.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133637.jpgsave_picture_133637.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ magnet:?xt=urn:btih:9E79322B9FF5DC62099C2330C2538078D089F609
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133638.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133638.jpgsave_picture_133638.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ magnet:?xt=urn:btih:36DB4E30960033E0B003AB681AD9E4BBD36E4CD0
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133640.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133640.jpgsave_picture_133640.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ World of Portraits | Master Retouch Collection (2023) PCRec [EN]
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133643.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133643.jpgsave_picture_133643.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ magnet:?xt=urn:btih:1219EA03EA5AA70864DB016F101E61493D887198
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133645.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133645.jpgsave_picture_133645.jpg" />
 </div>
 
 

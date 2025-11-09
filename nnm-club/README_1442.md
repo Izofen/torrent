@@ -6,7 +6,7 @@
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37847.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37847.jpgsave_picture_37847.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:FF3B1C8DFFE1F78EB99D06C6B1C57DEB93CD4672
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37848.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37848.jpgsave_picture_37848.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Dragon Age: The Veilguard (2024) [Ru/Multi] (Build 16212297 Patch 1/dlc) Repack 
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37849.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37849.jpgsave_picture_37849.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:6A287A5FE70668B0F6B6D271847C844E64193DC1
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37850.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37850.jpgsave_picture_37850.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:080DD562272E14FA50570C2C4DC10BC91CACA9C3
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37851.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37851.jpgsave_picture_37851.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Horizon Zero Dawn Remastered (2024) [Ru/Multi] (1.1.42.0) Repack Decepticon
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37852.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37852.jpgsave_picture_37852.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:95CFC178FBC3A6A935F5D0DD55253850B6F35095
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37853.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37853.jpgsave_picture_37853.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:F46C2FAD5D6CCFDFA9E5C19AC8F9C7C57EEC1046
 >>Экранки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37854.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37854.jpgsave_picture_37854.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ MediaHuman YouTube Downloader 3.9.9.96 (0711) RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37855.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37855.jpgsave_picture_37855.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:6E5DE208EF7C710AAEE0610E38AC57D04D085D92
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37856.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37856.jpgsave_picture_37856.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ VA - Trance Top 1000 - Ibiza Anthems Mini Mix (2018-2024) [MP3|320 Kbps] <Trance
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37857.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37857.jpgsave_picture_37857.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ magnet:?xt=urn:btih:3541ACDDD5B872285535821A58A84188A3C630CC
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37858.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37858.jpgsave_picture_37858.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ magnet:?xt=urn:btih:CBF87A40E3603FEDFF41C63B2FB1AAFAF596DED2
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37859.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37859.jpgsave_picture_37859.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ magnet:?xt=urn:btih:41CB06B6154A671440608088FE5977A0A02D419E
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37860.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37860.jpgsave_picture_37860.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ magnet:?xt=urn:btih:36BD40DCC9B9A3EDA3486B462C9506E1875F3007
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37861.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37861.jpgsave_picture_37861.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ magnet:?xt=urn:btih:8EF7CA50FE87458E2734AE9A8ECE86E32DCFD339
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37862.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37862.jpgsave_picture_37862.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ magnet:?xt=urn:btih:CF6C7AE73C6EB8359D53D44B673DB77DE25C3877
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37863.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37863.jpgsave_picture_37863.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ magnet:?xt=urn:btih:AA10F0D3F36E9261216F879EB24ABB4FE419CBE9
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37864.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37864.jpgsave_picture_37864.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ magnet:?xt=urn:btih:BC17F9D356CB95746A39AC2A4D984BECA02E5830
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37865.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37865.jpgsave_picture_37865.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ VA - Sun Sand & Spirit, Vol. 1 (Tibetania Records) (2024) [FLAC|Lossless|WEB-DL|
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37866.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37866.jpgsave_picture_37866.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ Blank & Jones - #WhatWeDoAtNight4 (EXPANDED) (2024) [FLAC|Lossless|WEB-DL|tracks
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37867.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37867.jpgsave_picture_37867.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ magnet:?xt=urn:btih:79195F818E2FE12B854B399AFF191C36658A76A8
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37868.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37868.jpgsave_picture_37868.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:5DA9686D9C61B8C34BF9E715F6DB9EF8D035A916
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37869.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37869.jpgsave_picture_37869.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ magnet:?xt=urn:btih:E93C6DDAF167E3FA0D84C046E8DEBEFEDCCAFD53
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37870.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37870.jpgsave_picture_37870.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Powerflo - Gorilla Warfare (2024) [FLAC|Lossless|WEB-DL|tracks] <Rap Metal, Hard
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37871.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37871.jpgsave_picture_37871.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ magnet:?xt=urn:btih:DE7853DE552ECAE810ABA3ACC853A70A435A0DA1
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37872.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37872.jpgsave_picture_37872.jpg" />
 </div>
 
 

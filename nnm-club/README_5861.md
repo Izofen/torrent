@@ -6,7 +6,7 @@ Wingfox, Steffen Hampel | Creating a Photorealistic Japanese Alleyway with Maya 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184079.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184079.jpgsave_picture_184079.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:67708FFAAA8B0022D30094D2DC4368448D142110
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184080.jpgsave_picture_184080.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ magnet:?xt=urn:btih:4C887F40C6DB372B0476DC02F8B772CA663F6B3A
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184082.jpgsave_picture_184082.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ Fedora 37 Workstation Server Spins [x86_64] 10xDVD, 2xCD
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184083.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184083.jpgsave_picture_184083.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:2F92DCB3217CF2139DB416E013E8A3D43B6F7985
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184085.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184085.jpgsave_picture_184085.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ LosslessCut 3.27 Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184086.jpgsave_picture_184086.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:A1E45415D0EF321BFE7435E323A6048FBDE1D862
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184089.jpgsave_picture_184089.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ Wolves In The Throne Room - Crypt of Ancestral Knowledge (2023) EP [FLAC|Lossles
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184090.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184090.jpgsave_picture_184090.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ magnet:?xt=urn:btih:42E845989478146C64BBD942573ED68F4657F180
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184091.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184091.jpgsave_picture_184091.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ Primitai - Violence Of The Skies (2021) [FLAC|Lossless|image + .cue] <Heavy Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184094.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184094.jpgsave_picture_184094.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ magnet:?xt=urn:btih:277D521D2F8FA1FE49588CFD161C4982DFEB0F53
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184095.jpgsave_picture_184095.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ Star Wolves 2 (2006) [Multi] (1.01pl) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184096.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184096.jpgsave_picture_184096.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ magnet:?xt=urn:btih:EA00AD5EECB8B985EDF75C666005EE1BCF9E4970
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184098.jpgsave_picture_184098.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ MCS Drivers Disk 22.11.8.1756 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184099.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184099.jpgsave_picture_184099.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ magnet:?xt=urn:btih:13429BE61E763C63FE47D8483B2099E62FB38CCF
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184101.jpgsave_picture_184101.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ magnet:?xt=urn:btih:E3597E867A0E6BBF199AA1AB8F4C08A6BEAC7454
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184102.jpgsave_picture_184102.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ magnet:?xt=urn:btih:C1F97C4831456F859D3A19A2BA07BF1FD2E3E069
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184104.jpgsave_picture_184104.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ magnet:?xt=urn:btih:D61701F640AF869210AFE4AE89D93CEB62450BF6
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184106.jpgsave_picture_184106.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ magnet:?xt=urn:btih:165EA4D8F2921C7F5009A331781DAEEDA655CA20
 >>Футбол
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184108.jpgsave_picture_184108.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ magnet:?xt=urn:btih:1D8B0910AE8B3E6D8525C9D9379248BA2CFAAB46
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184110.jpgsave_picture_184110.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Remote Desktop Manager Enterprise 2020.3.2.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184112.jpgsave_picture_184112.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ magnet:?xt=urn:btih:721BB7482458FCCE874C842B4CCEF34D438AC683
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184114.jpgsave_picture_184114.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ magnet:?xt=urn:btih:F93F61EE9BA5E03489A99536F84D134B70696C0E
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184116.jpgsave_picture_184116.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ magnet:?xt=urn:btih:87A4C7AB548B3FA6B3A00861838E68972668B918
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184118.jpgsave_picture_184118.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ magnet:?xt=urn:btih:574832BB65D90206BF6776F1EAC994453750618E
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184121.jpgsave_picture_184121.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ magnet:?xt=urn:btih:E6FAD1AB5A9E2FFFBA0073F50FD67A407EA3A053
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184122.jpgsave_picture_184122.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116419.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116419.jpgsave_picture_116419.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ StartAllBack 3.7.4 StartIsBack++ 2.9.20 (2.9.1) StartIsBack + 1.7.6 RePack by Kp
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116420.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116420.jpgsave_picture_116420.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:3803F863AB96D02FE94D6132DB50228575FF3DB6
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116421.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116421.jpgsave_picture_116421.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:F939E20B758AEF7A7749658C25C4409A4C677A1C
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116422.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116422.jpgsave_picture_116422.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:CB021ADA98E31CBF6FF4F164F2F9F5711B662562
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116423.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116423.jpgsave_picture_116423.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:C01C44886BDBDDFEB18B801D4540868DFD0A5D6B
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116424.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116424.jpgsave_picture_116424.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Wu Geng Ji | The Legend and the Hero | Feng Shen Ji | Chronicles of the God's Or
 >>Аниме хардсаб
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116425.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116425.jpgsave_picture_116425.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:E4F454352C207788F29FD809D8B02B3248133EC9
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116426.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116426.jpgsave_picture_116426.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:A78B250FB162D8D2305FD0EFD915FE65502D88AE
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116427.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116427.jpgsave_picture_116427.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Wu Geng Ji | The Legend and the Hero | Feng Shen Ji | Chronicles of the God's Or
 >>Аниме хардсаб
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116428.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116428.jpgsave_picture_116428.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:5D3589271516B3F6B2661301622FBA5589815340
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116429.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116429.jpgsave_picture_116429.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:425E2A5FC79879EB3348E7E6C527FB0ADAFE4F4A
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116430.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116430.jpgsave_picture_116430.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:0E2E425550DD103D47F1E698338656232D669463
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116431.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116431.jpgsave_picture_116431.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:EA8E4952878F724FB7B663235CC658DA68153489
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116432.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116432.jpgsave_picture_116432.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ magnet:?xt=urn:btih:6FB6B8B09C3338175ED0E60CE2DAF1F48119D205
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116433.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116433.jpgsave_picture_116433.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Modern Talking - Album Collection (1985-1987) 1st German Press [APE|Lossless|ima
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116434.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116434.jpgsave_picture_116434.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ magnet:?xt=urn:btih:60012C2BDDABA0E69226CA571ABB5B9E203AF685
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116435.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116435.jpgsave_picture_116435.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ magnet:?xt=urn:btih:60012C2BDDABA0E69226CA571ABB5B9E203AF685
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116436.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116436.jpgsave_picture_116436.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ magnet:?xt=urn:btih:92930A267A9A4BF41938DACFFF6A230885EE6683
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116437.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116437.jpgsave_picture_116437.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ magnet:?xt=urn:btih:70DE362564F04D5EBBD64EDCB232ADC00C0ECE29
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116438.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116438.jpgsave_picture_116438.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ magnet:?xt=urn:btih:DF694C5C35688C57CE20F2408FFEBE381F018D34
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116439.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116439.jpgsave_picture_116439.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ XnView Classic 2.51.6 (Minimal-Standard-Extended) + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116440.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116440.jpgsave_picture_116440.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Ultros (2024) [Multi] (1.0) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116441.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116441.jpgsave_picture_116441.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ magnet:?xt=urn:btih:AB20A6EE96E66738D9FD39AAE4C04AF2F84FC200
 >>Звездные врата / Stargate
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116442.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116442.jpgsave_picture_116442.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Tor Browser Bundle 13.0.10 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116443.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116443.jpgsave_picture_116443.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Hiren’s BootCD PE x64 v1.0.4 (6 February 2024) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116444.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116444.jpgsave_picture_116444.jpg" />
 </div>
 
 

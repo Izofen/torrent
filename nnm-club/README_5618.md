@@ -6,7 +6,7 @@ Mirror for Roku TV 2.10 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173060.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173060.jpgsave_picture_173060.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Grant Green - First Recordings (1959) 2007, Gambit Records [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173061.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173061.jpgsave_picture_173061.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Mirror for Hitachi TV 1.3 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173062.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173062.jpgsave_picture_173062.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Mirror for Fire TV  2.8 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173063.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173063.jpgsave_picture_173063.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:D5602838BCDD134474A8EEF1158E452B9F4907DF
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173064.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173064.jpgsave_picture_173064.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ Mark Schoen | Секреты совершенного секса / The Better Se
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173065.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173065.jpgsave_picture_173065.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:61FC4EED596D4933F759C20418FE8BF9D91603E4
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173066.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173066.jpgsave_picture_173066.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:D75A137E2B200BAC2A1B71D1F04C77396B2E2455
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173067.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173067.jpgsave_picture_173067.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:55C11EEED28CF77F808B3183BAFA3CC9143C13A8
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173068.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173068.jpgsave_picture_173068.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:383D9B8FB904C2929775B93F73C8DD13BC46B286
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173069.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173069.jpgsave_picture_173069.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:3A52FB34F3547B7E23BC0BE126CE233B51284206
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173070.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173070.jpgsave_picture_173070.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Lords of the Fallen (2023) [Ru/Multi] (1.1.184/dlc) Repack DjDI [Deluxe Edition]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173071.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173071.jpgsave_picture_173071.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:C291DC5D7C39779FFD3C04421E8A04846CA50AFD
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173072.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173072.jpgsave_picture_173072.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Windows 11 x64 Rus by OneSmiLe [22621.2428]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173073.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173073.jpgsave_picture_173073.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ magnet:?xt=urn:btih:453CA1BB6E7511C73DE1C4A2046AB3BB3FAB9211
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173074.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173074.jpgsave_picture_173074.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ ACDSee Photo Studio Ultimate 2024 17.0.2.3593 Full / Lite RePack by KpoJIuK [Ru/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173075.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173075.jpgsave_picture_173075.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ magnet:?xt=urn:btih:42F226D4B970EA26918C6B7E5557A1B52B8D8B0D
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173076.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173076.jpgsave_picture_173076.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ ELDEN RING (2022) [PS4] [EUR] 5.05 [HEN] [License / 1.15] [Ru/Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173077.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173077.jpgsave_picture_173077.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Sinclaire Institute | Секреты совершенного секса [2005] 
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173078.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173078.jpgsave_picture_173078.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ magnet:?xt=urn:btih:477892DB7D78EDCC291C4D2AE2F6401DEECBC14A
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173079.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173079.jpgsave_picture_173079.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ magnet:?xt=urn:btih:0BFE1166F1AAEDD8D09CEF774AF7F8D9113BD432
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173080.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173080.jpgsave_picture_173080.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ magnet:?xt=urn:btih:44AA4B12A202437F61E5ECD57ADFBE893E239194
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173081.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173081.jpgsave_picture_173081.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ magnet:?xt=urn:btih:0D061CDFED4DDD9B040A26210F98B2BA0D0E73B0
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173082.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173082.jpgsave_picture_173082.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ magnet:?xt=urn:btih:FE913B44A191DD91C2C8CAE4B6EA1835BAE3AB01
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173083.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173083.jpgsave_picture_173083.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ magnet:?xt=urn:btih:51FDB4251661DFE3E0B7356AD5190A0F9D7A0477
 >>Сериалы DC Comics
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173084.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173084.jpgsave_picture_173084.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ magnet:?xt=urn:btih:49214DE323754F94FF3D0681634FDAD9F696B52B
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173085.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173085.jpgsave_picture_173085.jpg" />
 </div>
 
 

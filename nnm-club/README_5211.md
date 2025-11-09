@@ -6,7 +6,7 @@ Steinberg Nuendo 12.0.70.464 (x64) Portable by 7997 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162238.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162238.jpgsave_picture_162238.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:04E7CBEA6BFB5147F93FA886C991A2E771E6A411
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162239.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162239.jpgsave_picture_162239.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Vambrace: Cold Soul (2019) [Ru/Multi] (1.11-fix) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162240.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162240.jpgsave_picture_162240.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:C500A90790B59BD363C04C87678F1E687B10A526
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162241.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162241.jpgsave_picture_162241.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:FB59BDC9D7F350A0804BCC39F65142315B2CC961
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162242.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162242.jpgsave_picture_162242.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:98CA22AC9144956FD24D9A81DC83997FE8D4CDD0
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162243.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162243.jpgsave_picture_162243.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Unpacking (2021) [Ru/Multi] (1.41) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162244.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162244.jpgsave_picture_162244.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:2C7F672309628B5698FF4B8A45187F43CA20B2D9
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162245.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162245.jpgsave_picture_162245.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:17BBCC06956200D85F321E755ADED17DFC3FFADC
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162246.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162246.jpgsave_picture_162246.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Cities: Skylines (2015) [Ru/Multi] (1.14.0-f4/dlc) License CODEX [Deluxe Edition
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162247.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162247.jpgsave_picture_162247.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:27D0DEECDEB5B67A436E6F88C72E8ED3B30333C3
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162248.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162248.jpgsave_picture_162248.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Opera GX 82.0.4227.44 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162249.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162249.jpgsave_picture_162249.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:F97A95B46FC9AB995C189530867BE34ECC5CCF9F
 >>Прочие зимние виды спорта
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162250.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162250.jpgsave_picture_162250.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ magnet:?xt=urn:btih:EA82038EB5DEA4D0EF218BE0883F658A16A277BA
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162251.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162251.jpgsave_picture_162251.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ magnet:?xt=urn:btih:318F0C5341F54AF88149CA7B31D808D88AB3C891
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162252.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162252.jpgsave_picture_162252.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ magnet:?xt=urn:btih:0B1DED25076EAACAAACD0A569272A55424E342A6
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162253.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162253.jpgsave_picture_162253.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ magnet:?xt=urn:btih:BA89B42F160703253B8C903D1EF25372B67CCECB
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162254.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162254.jpgsave_picture_162254.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Wildness - Ultimate Demise (2020) [FLAC|Lossless|image + .cue] <Melodic Hard Roc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162255.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162255.jpgsave_picture_162255.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ StarCraft (1998) [Ru/En] (1.16.1/dlc) Repack Necros
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162256.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162256.jpgsave_picture_162256.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ Samsara Joyride - Samsara Joyride (2020) [MP3|192 Kbps] <Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162257.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162257.jpgsave_picture_162257.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ magnet:?xt=urn:btih:27DBE45695FC873E4CFF31BF7B996061D90F7971
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162258.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162258.jpgsave_picture_162258.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ magnet:?xt=urn:btih:B97DABB5622077952A56B8569C0340FD401DD0FE
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162259.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162259.jpgsave_picture_162259.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ Udemy, Mrawan Hussain | BLENDER: Learn how to create the military Black Hornet d
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162260.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162260.jpgsave_picture_162260.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ magnet:?xt=urn:btih:9FB10A979B8D09C5BC8C4CB7315AA2119C3673BD
 >>Прочие зимние виды спорта
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162261.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162261.jpgsave_picture_162261.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ magnet:?xt=urn:btih:83DD876F7B4CF098458BF2A7E0E91E3841278528
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162262.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162262.jpgsave_picture_162262.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ magnet:?xt=urn:btih:A61A4EAB34C5D50EC18D20DBA2866AC670C66B35
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162263.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162263.jpgsave_picture_162263.jpg" />
 </div>
 
 

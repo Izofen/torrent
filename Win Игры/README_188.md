@@ -6,7 +6,7 @@ Ghost of Tsushima (2024) [Ru/Multi] (14380324/dlc) Scene Rune [Director's Cut]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56087.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56087.jpgsave_picture_56087.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:21AEC18812DE9BBB797F3936D7B46485C560ED86
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56090.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56090.jpgsave_picture_56090.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ AEW: Fight Forever (2023) [Multi] (1.10/dlc) Scene Rune
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56097.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56097.jpgsave_picture_56097.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ The Last Faith (2023) [Ru/Multi] (1.5) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56120.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56120.jpgsave_picture_56120.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Super Catboy (2023) [Ru/Multi] (1.0.4a) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56122.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56122.jpgsave_picture_56122.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Crow Country (2024) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56160.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56160.jpgsave_picture_56160.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ The Cursed Tape (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56163.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56163.jpgsave_picture_56163.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ The Desolate Hope (2014) [Ru/En] (1.35) Repack 1nomok
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56170.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56170.jpgsave_picture_56170.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ The Land Beneath Us (2024) [Multi] (1.0) Repack FitGirl
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56178.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56178.jpgsave_picture_56178.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ What the Fog (2024) [Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56183.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56183.jpgsave_picture_56183.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Mass Effect: Andromeda (2017) [Ru/Multi] (1.10) Repack dixen18
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56223.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56223.jpgsave_picture_56223.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ We Need To Go Deeper (2019) [En] (1.6.5.g) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56260.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56260.jpgsave_picture_56260.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Whispered Secrets 15: Cruise of Misfortune (2024) [En] (1.0) Unofficial [Collect
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56268.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56268.jpgsave_picture_56268.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Echoes of the Plum Grove (2024) [Multi] (1.0.1.0s) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56280.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56280.jpgsave_picture_56280.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ The Cursed Tape (2024) [Ru/Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56293.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56293.jpgsave_picture_56293.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ A Highland Song (2023) [En] (1.2.3) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56302.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56302.jpgsave_picture_56302.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Astral Ascent (2023) [Ru/Multi] (1.5.0/dlc) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56306.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56306.jpgsave_picture_56306.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Hollow Cocoon (2023) [Ru/Multi] (1.20) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56311.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56311.jpgsave_picture_56311.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Soviet Soldier / История советского Солдата (2024) [Ru/M
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56327.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56327.jpgsave_picture_56327.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Hollow Cocoon (2023) [Ru/Multi] (1.20) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56331.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56331.jpgsave_picture_56331.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Poltergeist Watcher (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56359.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56359.jpgsave_picture_56359.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Heavy Storm Shadow (2024) [Ru/Multi] (1.043) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56387.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56387.jpgsave_picture_56387.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Astro Pig (2024) [Multi] (1.1.5) Repack FitGirl
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56471.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56471.jpgsave_picture_56471.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Class of Heroes 2G: Remaster Edition (2024) [Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56472.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56472.jpgsave_picture_56472.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Little Kitty, Big City (2024) [Multi] (1.24.5.8_3487) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56484.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56484.jpgsave_picture_56484.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Braid (2024) [Multi] (0.444) Repack FitGirl [Anniversary Edition]
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56493.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56493.jpgsave_picture_56493.jpg" />
 </div>
 
 

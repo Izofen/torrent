@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147690.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147690.jpgsave_picture_147690.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Blackbird - Pink Shades (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147691.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147691.jpgsave_picture_147691.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:B8758AE19329E8F81E21B71EB18BA86990508E9D
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147692.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147692.jpgsave_picture_147692.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Mac FoneLab Android Data Recovery 3.2.16 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147693.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147693.jpgsave_picture_147693.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:5FAB7E362236330F3F7445BC6FECCD9FA8966425
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147696.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147696.jpgsave_picture_147696.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Balsamiq Mockups For Desktop 3.5.18 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147697.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147697.jpgsave_picture_147697.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:34038A4F2BEA02FB6A718C80E1CDF15A495DFE8A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147700.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147700.jpgsave_picture_147700.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:D2E8922A35374B50866739A682A94FCF376925E9
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147701.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147701.jpgsave_picture_147701.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:AC8B396946F53DA65B54640EC079D9E8DB25EAD9
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147702.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147702.jpgsave_picture_147702.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:2E2F0BBD53B4EEADFB7BBA66F7D9054B99B3E652
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147703.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147703.jpgsave_picture_147703.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ TG Pro (Temperature Gauge Pro) 2.88 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147704.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147704.jpgsave_picture_147704.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Stars On 45 - The Best Of (2005) [FLAC|Lossless|tracks + .cue]<Pop, Disco>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147707.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147707.jpgsave_picture_147707.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Affinity Designer 1.10.8 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147708.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147708.jpgsave_picture_147708.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Fallout 4 (2015) [Ru] (1.10.163.0.1/dlc) Repack xatab [Game of the Year Edition]
 >>12
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147709.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147709.jpgsave_picture_147709.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ magnet:?xt=urn:btih:E09B1779E8F41EBB79122F7C280B58C9EA3FF441
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147710.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147710.jpgsave_picture_147710.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ VENUS - Obscured Until Observed (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147712.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147712.jpgsave_picture_147712.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Haste The Day - Best Of The Best (2012) Solid State Records [FLAC|Lossless|track
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147714.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147714.jpgsave_picture_147714.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ VA - Goa (2015) [MP3|320 кб/с] <Progressive, Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147715.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147715.jpgsave_picture_147715.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ Fairy Gone / Пропавшие феи [2019, TV, 24 ep] WEBRip 1080p Rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147716.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147716.jpgsave_picture_147716.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ NIUBI Partition Editor 7.4.0 Technician Edition RePack (& Portable) by elchupaca
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147718.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147718.jpgsave_picture_147718.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ A Mountain Of One & Ricardo Villalobos - Ricardo Villalobos reimagines: Stars Pl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147719.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147719.jpgsave_picture_147719.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ magnet:?xt=urn:btih:B400DB32A541AA2EB1501475FD1A66B76D0370CD
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147721.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147721.jpgsave_picture_147721.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ magnet:?xt=urn:btih:33D9C8CF4D5B38C7589D04C80E84FDC7CA48EFD4
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147722.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147722.jpgsave_picture_147722.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ magnet:?xt=urn:btih:1B26B0AA9941E65BE89DC851D1A953BB3AB389D2
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147723.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147723.jpgsave_picture_147723.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Claudia Doffinger - Monochrome (2018) QFTF Records [FLAC|Lossless|WEB-DL|tracks]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147724.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147724.jpgsave_picture_147724.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ magnet:?xt=urn:btih:41C1012C9098CFFC432BE0CD52D66C85A8AEA8A9
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147725.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147725.jpgsave_picture_147725.jpg" />
 </div>
 
 

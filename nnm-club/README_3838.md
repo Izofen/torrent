@@ -6,7 +6,7 @@ Malwarebytes AdwCleaner 8.4.1.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120187.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120187.jpgsave_picture_120187.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:10498A6204C71D92D6A7A152D439A8B60D558DCA
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120188.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120188.jpgsave_picture_120188.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:70DBB82DB8C50DDECF3D846F49808EFC5F384B9F
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120190.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120190.jpgsave_picture_120190.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:99826CBCD2BF0A4628FA60BE711641C221813CF9
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120191.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120191.jpgsave_picture_120191.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ RUTUBE - видео, шоу, трансляции 28.16.1.TV-androidtv Mod by N3
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120192.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120192.jpgsave_picture_120192.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:128663686EAA74CF66DA053DCE8FAF914F1B7A25
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120193.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120193.jpgsave_picture_120193.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ AOMEI Partition Assistant Technician Edition 10.3.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120194.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120194.jpgsave_picture_120194.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Adobe Illustrator 2024 28.2.0.532 + Plug-ins (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120195.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120195.jpgsave_picture_120195.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:F5A7161531E00BE57BDF30B4511896A77F5FCD79
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120196.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120196.jpgsave_picture_120196.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ magnet:?xt=urn:btih:AB68481B69908BE4F686778637ECA93F124BB547
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120197.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120197.jpgsave_picture_120197.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Keka 1.3.7 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120198.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120198.jpgsave_picture_120198.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:51CE098ECC73540095D143F3F184C2020409058C
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120199.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120199.jpgsave_picture_120199.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Windows 10 Debloater 2.6.7 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120200.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120200.jpgsave_picture_120200.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:1C6197CC6F60E067587CB2A782381214914ED684
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120201.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120201.jpgsave_picture_120201.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ I'm counting to 6... (2024) [Ru/En] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120202.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120202.jpgsave_picture_120202.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:F7A1D428AD3A26DEC8129A79E62D60D344C6896A
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120203.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120203.jpgsave_picture_120203.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Solid Factory, Антон Ильин | SolidWorks. Базовый курс (2020
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120204.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120204.jpgsave_picture_120204.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ Adobe Illustrator 2024 28.2.0.532 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120205.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120205.jpgsave_picture_120205.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:53BA8B82ADF272EA13665E885F983DC4FFE6CA08
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120206.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120206.jpgsave_picture_120206.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Udemy, Daren Perincic | 2024 Blender Beginner Course - Create Cinematic Scenes (
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120207.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120207.jpgsave_picture_120207.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ magnet:?xt=urn:btih:96CE1342EC8AD917EE6266D3E7E4D11ACE590641
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120208.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120208.jpgsave_picture_120208.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ AnyDesk 8.0.8 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120210.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120210.jpgsave_picture_120210.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ magnet:?xt=urn:btih:2A5D446D135C426E0314977103545D408B9086A8
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120211.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120211.jpgsave_picture_120211.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ magnet:?xt=urn:btih:A41BCCB227944BC37A6FFF28038E7D9863E75282
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120212.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120212.jpgsave_picture_120212.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ magnet:?xt=urn:btih:11BB82628D96DF6FCC4257ED5B4A17E00052B447
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120213.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120213.jpgsave_picture_120213.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ magnet:?xt=urn:btih:9942C3F74791FE204E500A5F42B8CF7D371174E9
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120214.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120214.jpgsave_picture_120214.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Сериалы Marvel Comics
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247171.jpgsave_picture_247171.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Adobe InDesign 2023 18.4.0.56 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247172.jpgsave_picture_247172.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:754F535BB448626C2AE703EDE99A55F13FC55747
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247173.jpgsave_picture_247173.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:842B2A6572BF20AB381A298147BD06AC4694DD12
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247174.jpgsave_picture_247174.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:1460D4EE5FBBC8496AD3188CDB43D4057C9DF322
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247175.jpgsave_picture_247175.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:30A59B173A9AB7A80A06F3C19BB742C9D1BF2C21
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247176.jpgsave_picture_247176.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:F7716F78589975836780D2A6B1824879C594293A
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247177.jpgsave_picture_247177.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:8B244782D05FD3635BE912D2461CC59BC55E6E0C
 >>Менталист / The Mentalist; Теория Лжи / Lie To Me
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247178.jpgsave_picture_247178.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ Windows 10 22H2 Professional [19045.3086] x64 Mod 8 (03.07.2023) by bulygin-dima
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247179.jpgsave_picture_247179.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ The KMPlayer 4.2.2.77 repack by cuta (build 4) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247180.jpgsave_picture_247180.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ magnet:?xt=urn:btih:BE14C19874E551E2536928EBB8FFF0BBEB0A57B2
 >>Кости / Bones
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247181.jpgsave_picture_247181.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ magnet:?xt=urn:btih:574FC26EC52640311D82615958BB1D30BA243466
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247182.jpgsave_picture_247182.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ magnet:?xt=urn:btih:0B1AA5520CC1E9C7F62C83FC3E9406CB1135BE65
 >>Кости / Bones
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247183.jpgsave_picture_247183.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ magnet:?xt=urn:btih:F5E6552608293D54FE55FDDB977B90D8F9015E19
 >>Кости / Bones
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247184.jpgsave_picture_247184.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ magnet:?xt=urn:btih:9F74D47ED69DCB4DEB3ED9242E4C29D39D6BEBB4
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247185.jpgsave_picture_247185.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ magnet:?xt=urn:btih:7688A144E292AF8E86D8B999353DE8EA44D18BEF
 >>Кости / Bones
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247186.jpgsave_picture_247186.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ magnet:?xt=urn:btih:9C01A43213D32F072283BB808E9C013B6FEE3EBC
 >>Кости / Bones
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247187.jpgsave_picture_247187.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ magnet:?xt=urn:btih:CF88D6DECB9A258D2D71E96BC7635156339AAB29
 >>Кости / Bones
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247188.jpgsave_picture_247188.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ magnet:?xt=urn:btih:2372035B203AD5B6CF5B9CEC7ACB0A56A7E39168
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247189.jpgsave_picture_247189.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ magnet:?xt=urn:btih:6B46E19036BFC6B07CD63B664939EFEA464A1810
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247190.jpgsave_picture_247190.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ magnet:?xt=urn:btih:575C88E732DB8B6BF12606CC1206D97A1A3D6FCA
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247191.jpgsave_picture_247191.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ magnet:?xt=urn:btih:F58C67AF68C3E977B042E9602240123FC0F3A447
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247192.jpgsave_picture_247192.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Revo Uninstaller Pro 5.1.7 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247193.jpgsave_picture_247193.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ magnet:?xt=urn:btih:0824499526750D076739EA5D15A9C2C971A8F352
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247194.jpgsave_picture_247194.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ magnet:?xt=urn:btih:C470519D80A6DF2053E0F8F56F5F26694EA69862
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247195.jpgsave_picture_247195.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ magnet:?xt=urn:btih:080F0DAA2CAF5893FC964104597F2B271CFBCF99
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247196.jpgsave_picture_247196.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144955.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144955.jpgsave_picture_144955.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Adobe Audition CC 2019 12.0.1.34 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144957.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144957.jpgsave_picture_144957.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ VA - Полный отрыв. Зимние хиты (2016) [MP3|256 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144958.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144958.jpgsave_picture_144958.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Comfy File Recovery 3.7 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144959.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144959.jpgsave_picture_144959.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:7A66CAE8F03D03658CC4FCCF08800868DD7383C3
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144960.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144960.jpgsave_picture_144960.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:0D61722891EEE936D8BC56178308C56E5E81E3DB
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144962.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144962.jpgsave_picture_144962.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ MoneyBag 1.0.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144963.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144963.jpgsave_picture_144963.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:B3131FD702DD0C32D321DF1E58E06E321AFB8F0C
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144964.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144964.jpgsave_picture_144964.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ Adobe Media Encoder CC 2019 13.0.2.39 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144965.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144965.jpgsave_picture_144965.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ magnet:?xt=urn:btih:DF304A3C3E5D002CD505C79AE5FCC0F72716FA59
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144966.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144966.jpgsave_picture_144966.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ magnet:?xt=urn:btih:F7AC52F48770048BD81A239469E2D6AE11D6A31E
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144967.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144967.jpgsave_picture_144967.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ magnet:?xt=urn:btih:5E6FC4756845F9612E70652ECC34462E90ABD14A
 >>Флейм
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144969.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144969.jpgsave_picture_144969.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ KURSK (2018) [Ru/En] (2.1.0) Repack xatab
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144970.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144970.jpgsave_picture_144970.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ VA - Новогодний ресторан Шансона. Сборник № 6 
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144971.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144971.jpgsave_picture_144971.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ magnet:?xt=urn:btih:49D0F1C8DD0A540039597AE7BB91D564B1F6E11D
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144972.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144972.jpgsave_picture_144972.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ magnet:?xt=urn:btih:463E5B81CEC0A5F695B84B5C98C92F97FE726BE2
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144973.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144973.jpgsave_picture_144973.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ magnet:?xt=urn:btih:C65C0C0826F162B6545E713129FB00BCCDDA7400
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144974.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144974.jpgsave_picture_144974.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ VA - Sound: 2017 (2016) [MP3|320 Kbps] <Drum & Bass>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144976.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144976.jpgsave_picture_144976.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ AI War 2  v1.023 (2019) [En] [macOS Native game]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144977.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144977.jpgsave_picture_144977.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ magnet:?xt=urn:btih:6F5B4A5056202A0B09896E2A8ADF63DEBFE15DF4
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144978.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144978.jpgsave_picture_144978.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ MyLanViewer 4.19.7 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144979.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144979.jpgsave_picture_144979.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ magnet:?xt=urn:btih:275854430D7692057414E68BC8CBE42681F2EDFD
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144980.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144980.jpgsave_picture_144980.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Oceans of Slumber - Winter (2016) [MP3|320 Kbps] <Progressive Gothic Death Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144981.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144981.jpgsave_picture_144981.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ magnet:?xt=urn:btih:AA1352A09B327EE8E5901158FD8535BFF8C45A45
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144982.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144982.jpgsave_picture_144982.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Sakuna: Of Rice and Ruin (2020) [Multi] (1.0) License SKiDROW
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144983.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144983.jpgsave_picture_144983.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ magnet:?xt=urn:btih:5F47C4B019C6BA19DEDCB69B5917D117BD46FE24
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144984.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144984.jpgsave_picture_144984.jpg" />
 </div>
 
 

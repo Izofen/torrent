@@ -6,7 +6,7 @@
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154475.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154475.jpgsave_picture_154475.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Adrian Cantrill | AWS Certified Solutions Architect - Associate (SAA-C03) (2022)
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154476.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154476.jpgsave_picture_154476.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:C38618B8479197E9BE7185C78BE9210A14346A6B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154477.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154477.jpgsave_picture_154477.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:2405743F3BC2DF92B1BC287D137FC06172A47B51
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154478.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154478.jpgsave_picture_154478.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ tceh | Разработчик на Python (2017) PCRec [H.264/720p-LQ]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154479.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154479.jpgsave_picture_154479.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ magnet:?xt=urn:btih:009175729AEA6607BF9FB7DF33C7C87C3082AAA2
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154480.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154480.jpgsave_picture_154480.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ magnet:?xt=urn:btih:F0EF1432DDE10F098C5C0B16B5F006CD6FB4F0C4
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154481.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154481.jpgsave_picture_154481.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:D76D71B898EB708507DD1B7F41CEF15820251A43
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154482.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154482.jpgsave_picture_154482.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:0A9EC0CB9507E2753A074E8B5568A402360D1633
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154483.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154483.jpgsave_picture_154483.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:323E0F91D1EC7FE4401038B8C5BC390BE1A42E7B
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154484.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154484.jpgsave_picture_154484.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Sally Face (2016) [Ru/Multi] (1.5.05/dlc) Repack Other s [Episode 1-5]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154485.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154485.jpgsave_picture_154485.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ magnet:?xt=urn:btih:20C27E485CF8110B8B57E71BC8B7B2FBEA1845BE
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154486.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154486.jpgsave_picture_154486.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:C6F980A208EA2ED42F12F3D156B677260C0EBE00
 >>Релакс / Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154487.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154487.jpgsave_picture_154487.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ VA - Christmas Jazz And Lounge Music (2016) [MP3|320 Kbps] <Jazz>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154488.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154488.jpgsave_picture_154488.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ magnet:?xt=urn:btih:765AE4D3C0C2BAAFC4C912D193F4D3DE2EF25982
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154489.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154489.jpgsave_picture_154489.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ The Deviants - Ptooff! / Disposable (1967-68) Unofficial, 2006, Mason Records [M
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154490.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154490.jpgsave_picture_154490.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Topaz Video AI 4.0.3 (x64) + All Models Portable by FC Portables [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154491.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154491.jpgsave_picture_154491.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ magnet:?xt=urn:btih:A957C1DF50F70E557AC1EAA3DB52D6586CCF92EB
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154492.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154492.jpgsave_picture_154492.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Slurm (Слёрм) | Асинхронное программирование н�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154493.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154493.jpgsave_picture_154493.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Windows 8.1 6.3 (9600.20207) 86x64 Embedded Industry Enterprise + Pro (4in1) by 
 >>Сборки Windows 8
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154494.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154494.jpgsave_picture_154494.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ VA - Ремиксы от MGDC FM Vol 8 (2020) [MP3|320 Kbps] <Funky, Club House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154495.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154495.jpgsave_picture_154495.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ magnet:?xt=urn:btih:8C3A9C4AC68A7E752EB19DC43740907CDD9DA3D8
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154496.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154496.jpgsave_picture_154496.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Adobe Media Encoder 24.0.3.2 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154497.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154497.jpgsave_picture_154497.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Skillbox, Евгений Мирошниченко  | Шахматы с нуля 
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154498.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154498.jpgsave_picture_154498.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ VA - Mega Dance Party 2019 (2018) [MP3|320 Kbps] <Deep House, Dance, Bigroom, Pr
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154499.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154499.jpgsave_picture_154499.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ QuickTextPaste 6.51 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154500.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154500.jpgsave_picture_154500.jpg" />
 </div>
 
 

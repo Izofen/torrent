@@ -6,7 +6,7 @@ The Bat! Professional 10.5.2.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165017.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165017.jpgsave_picture_165017.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:AC948D1501726697DBEBA7268CF84860BE43B711
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165018.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165018.jpgsave_picture_165018.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:0B091AEE7990CAA2DB6BAD8C57AB7BEF26CD89FF
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165019.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165019.jpgsave_picture_165019.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ AVS Media Player 5.2.4.143 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165020.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165020.jpgsave_picture_165020.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Demon Hunter - Exile (2022) Deluxe Edition [MP3|320 Kbps] <Nu Metal, Alternative
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165021.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165021.jpgsave_picture_165021.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Deltopia DeltaWalker Oro Edition 2.5.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165022.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165022.jpgsave_picture_165022.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Total Commander 11.01 (27.10.2023) Portable by MiG [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165023.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165023.jpgsave_picture_165023.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:D1DE5C5C41657EDEBF9F6A3453DD1433897D2DE8
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165024.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165024.jpgsave_picture_165024.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:C5C454752F6201E86DC4ABF219E826C437B9153E
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165025.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165025.jpgsave_picture_165025.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ RogueKiller Anti-Malware 15.6.4 + Portable [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165026.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165026.jpgsave_picture_165026.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:026C255FB6A03BBD1511597C415D805203A53E66
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165028.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165028.jpgsave_picture_165028.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ AOMEI Backupper Technician Plus 7.3.3 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165029.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165029.jpgsave_picture_165029.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:5EB26FBFEAFF180D50884450AF1411332FC2A6C7
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165030.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165030.jpgsave_picture_165030.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ magnet:?xt=urn:btih:F48D0EB755EF7817EFCFB18FF27B66B08460DF51
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165031.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165031.jpgsave_picture_165031.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ magnet:?xt=urn:btih:AC3B75BD953BECF10E4F243AB3A733AD8644C5A8
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165032.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165032.jpgsave_picture_165032.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ magnet:?xt=urn:btih:D658998210D95E1F0066B7D675123470F38C4955
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165033.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165033.jpgsave_picture_165033.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ magnet:?xt=urn:btih:8A04BAF24805795754B9F83576E436F3F1CE5D52
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165034.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165034.jpgsave_picture_165034.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ magnet:?xt=urn:btih:BF3A2011846050FB77FCCA347974FD52CF818FEC
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165035.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165035.jpgsave_picture_165035.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ The Bat! Professional 10.5.2 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165036.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165036.jpgsave_picture_165036.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ VA - Saxophone Dreamsound (2023) [MP3|320 Kbps] <Jazz, Saxophone, Instrumental>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165037.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165037.jpgsave_picture_165037.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Volbeat - Servant Of The Mind (2021) 2xCD, Limitеd Еditiоn [FLAC|Lossless|ima
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165038.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165038.jpgsave_picture_165038.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ magnet:?xt=urn:btih:8C2881F1CD14FEE51FC4EB5F91A449A7767E5F48
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165039.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165039.jpgsave_picture_165039.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ IObit Uninstaller Free 12.2.0.6 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165040.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165040.jpgsave_picture_165040.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ magnet:?xt=urn:btih:EC79ABF6BF2115B098500F18220D512121CEDE03
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165041.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165041.jpgsave_picture_165041.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ magnet:?xt=urn:btih:FAE8CC777702D9FFEB1C0E75D31F6D40CBF7B3E9
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165042.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165042.jpgsave_picture_165042.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ magnet:?xt=urn:btih:269A436BB69156F889D6CB121AFCD5B6E61E5F22
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165043.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165043.jpgsave_picture_165043.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143680.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143680.jpgsave_picture_143680.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ YouTube Video Downloader PRO 5.9.2 (20171128) RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143682.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143682.jpgsave_picture_143682.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ VA - Beatport Synth Electronic: Sound Pack #387 (2021) [MP3|320 Kbps] <Synthwave
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143683.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143683.jpgsave_picture_143683.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Acoustic Alchemy - The Best of Acoustic Alchemy (2013) [FLAC|Lossless]<Instrumen
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143684.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143684.jpgsave_picture_143684.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:36FEF9DAAAB55D458F5140B1C3E2A490E996AE89
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143685.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143685.jpgsave_picture_143685.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Conception / Зачатие [2018, TV, 12] HDTV 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143686.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143686.jpgsave_picture_143686.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:0FAE5506C85968E3470FD2EDC0ED2EC5569CF685
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143687.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143687.jpgsave_picture_143687.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:E3097FF80B70BD8ACF87F554139370EB9417D164
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143688.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143688.jpgsave_picture_143688.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ Movavi Screen Recorder Studio 10.1.0 RePack (& Portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143689.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143689.jpgsave_picture_143689.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ magnet:?xt=urn:btih:D11946E6A287A61CD3E409E22BCA9A163DCBA2BC
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143690.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143690.jpgsave_picture_143690.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ Waterfox Current G6.0.6 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143691.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143691.jpgsave_picture_143691.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ Outline 3.22.0 [En/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143692.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143692.jpgsave_picture_143692.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ Mozilla Firefox ESR 52.5.3 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143693.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143693.jpgsave_picture_143693.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ Sora to Umi no Aida | Between the Sky and Sea | Между небом и мор�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143696.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143696.jpgsave_picture_143696.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ magnet:?xt=urn:btih:B1B4A1CC3EC21B1BDDBF4DD97D71B0A90E26282F
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143698.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143698.jpgsave_picture_143698.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ The Great Affairs - Sleepwalker (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143700.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143700.jpgsave_picture_143700.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ magnet:?xt=urn:btih:6F4E6C85577354BE55A94FDB527E1E5E95BAA361
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143701.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143701.jpgsave_picture_143701.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ VA - Музыка для машины Vol.41 (2023) [MP3|320 Kbps] <Pop, Dance, 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143703.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143703.jpgsave_picture_143703.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ magnet:?xt=urn:btih:0951C0FC18068FD7E856F437571F0F10998200CD
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143704.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143704.jpgsave_picture_143704.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ Bermuda Triangle: Colorful Pastorale | Бермудский треугольни
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143705.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143705.jpgsave_picture_143705.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ magnet:?xt=urn:btih:D532F1537A89D568DB76B8ED4DB93766F52058D2
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143706.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143706.jpgsave_picture_143706.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ ESET NOD32 AntiVirus 5.2.15.1 RePack (x86/x64) by SmokieBlahBlah [Русский
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143708.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143708.jpgsave_picture_143708.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Mozilla Thunderbird 115.5.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143709.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143709.jpgsave_picture_143709.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ VA - Beatport Techno Electronic: Sound Pack #384 (2021) [MP3|320 Kbps] <Techno, 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143710.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143710.jpgsave_picture_143710.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Sandboxie 3.76 Final [MULTi / Русский]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143711.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143711.jpgsave_picture_143711.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Sandboxie - yтилита для контроля за работой разли
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143712.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143712.jpgsave_picture_143712.jpg" />
 </div>
 
 

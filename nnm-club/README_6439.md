@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204106.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204106.jpgsave_picture_204106.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Peyton Parrish - Skalds of Metal (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock, Alt
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204107.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204107.jpgsave_picture_204107.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:C33CB78621903DD0BFAC2190846F2D3445240034
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204108.jpgsave_picture_204108.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:6C7E729FB5FCC37DE3A0C1BA2D9AC5B1B699AD3D
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204109.jpgsave_picture_204109.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:1B2A2B8841CE0B90659990E303E3FD975F34BCEC
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204110.jpgsave_picture_204110.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ MSI Afterburner 4.6.5.16358 Beta 4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204111.jpgsave_picture_204111.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:95DBEAE190CF54119F0D1DB48F6A2B56BB1B9862
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204112.jpgsave_picture_204112.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:881AB082860A555F9C1ECF95E990D6991FA975FA
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204113.jpgsave_picture_204113.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ Microsoft Visual Studio 2022 Enterprise 17.4.4 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204114.jpgsave_picture_204114.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:98D3A909216DFA7ABEBFE8B55BE881398748514B
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204115.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204115.jpgsave_picture_204115.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Sidebar Diagnostics 3.6.3 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204116.jpgsave_picture_204116.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:A43219229F149F47EAFB0F1B40A6763226F3B09C
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204117.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204117.jpgsave_picture_204117.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:8D1671A472C6ABA35616BFE8544129C2123A8C7B
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204118.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204118.jpgsave_picture_204118.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Saif Alshrideh | The Ultimate weapon course (Create Sniper in Blender 3.4 ) (202
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204119.jpgsave_picture_204119.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ magnet:?xt=urn:btih:C2ED35600BF86EE3C80362C0C1C99E7D4E397BCF
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204120.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204120.jpgsave_picture_204120.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ magnet:?xt=urn:btih:3B4F9BCC1D2CFB6C95FB2E10BDC020B4079C7C40
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204121.jpgsave_picture_204121.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ magnet:?xt=urn:btih:F128764D3CF69A15C948D884699398957B3DCE7D
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204122.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204122.jpgsave_picture_204122.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ DU Meter 8.01 Build 4827 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204123.jpgsave_picture_204123.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ magnet:?xt=urn:btih:189A04FC046B4549B48AEDC586D2FA37AF719090
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204124.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204124.jpgsave_picture_204124.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ Advanced SystemCare Pro 16.2.0.169 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204125.jpgsave_picture_204125.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ magnet:?xt=urn:btih:CA047FB22AB8F18666D1D9C41246DD341EA1EF12
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204126.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204126.jpgsave_picture_204126.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Udemy, Hamidreza Afshari | Texturing a Scene with Substance 3D Painter (2023) PC
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204127.jpgsave_picture_204127.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ magnet:?xt=urn:btih:5E3159772CA16DBCAF6063A7F6E4D24958E4E07F
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204128.jpgsave_picture_204128.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Media Player Classic Home Cinema (MPC-HC) 2.0.0 RePack (& portable) by KpoJIuK [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204129.jpgsave_picture_204129.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ magnet:?xt=urn:btih:2DACC8D8AB9FBC9F81C25FB85119D452230D8EEA
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204130.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204130.jpgsave_picture_204130.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ magnet:?xt=urn:btih:B26D0248492C82E754024F366E11678365516D71
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204131.jpgsave_picture_204131.jpg" />
 </div>
 
 

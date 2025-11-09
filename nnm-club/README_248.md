@@ -6,7 +6,7 @@
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6529.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6529.jpgsave_picture_6529.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:7EF90772871923DFD937AC6B77C7FF6B3B30FCD0
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6530.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6530.jpgsave_picture_6530.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:3F0536922857A041B8AF7B2981E9AF49939447B7
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6531.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6531.jpgsave_picture_6531.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Astra Linux Special Edition 1.8.3 [amd64] 3xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6532.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6532.jpgsave_picture_6532.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:E32F4A3E5307EC4979E24326C534E55782E5B45B
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6533.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6533.jpgsave_picture_6533.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:246647A80C5313465790D0271083C549BD904368
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6534.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6534.jpgsave_picture_6534.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:455D536204DAC0D535BB353AB1C44F5A61ACDC1E
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6535.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6535.jpgsave_picture_6535.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:4A843886BE35F871708B45BFDA7C36B87B0ACC8B
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6536.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6536.jpgsave_picture_6536.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:4A843886BE35F871708B45BFDA7C36B87B0ACC8B
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6537.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6537.jpgsave_picture_6537.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:C42AB62AC05AA74CEF1F1DAB17C72C7C11BEAA80
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6538.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6538.jpgsave_picture_6538.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:F4195D125D2B41D8B0667B3502D1C82EC2FF13F4
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6539.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6539.jpgsave_picture_6539.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:AD388A1562BD4D08F319967ED150C902221A68B2
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6540.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6540.jpgsave_picture_6540.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ The Beast Inside (2019) [Ru/Multi] (1.05) Repack Yaroslav98
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6541.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6541.jpgsave_picture_6541.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Ted Nugent - 35 Albums (1967 - 2018) 47 CD [FLAC|Lossless|image + .cue|tracks + 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6542.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6542.jpgsave_picture_6542.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ magnet:?xt=urn:btih:625E16B0A8C34CBBDB7BBA46AED831A9B773B1CD
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6543.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6543.jpgsave_picture_6543.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ magnet:?xt=urn:btih:77957CA23580C998AFD273DE208C8117E6516E7D
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6544.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6544.jpgsave_picture_6544.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ magnet:?xt=urn:btih:4A1C1E28FFC14F2967D02E09680AD727AC19AF22
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6545.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6545.jpgsave_picture_6545.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ System Shock 2 (2025) [Ru/Multi] (1.2.4244.0) Repack Let'sРlay [25th Anniversar
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6546.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6546.jpgsave_picture_6546.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ System Shock 2 (2025) [Ru/Multi] (1.2.4244.0) Repack Let'sРlay [25th Anniversar
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6547.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6547.jpgsave_picture_6547.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ System Shock 2 (2025) [Ru/Multi] (1.2.4244.0) Repack Let'sРlay [25th Anniversar
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6549.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6549.jpgsave_picture_6549.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Oxide Room 208 (2025) [Ru/Multi] (1.06) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6550.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6550.jpgsave_picture_6550.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ magnet:?xt=urn:btih:5BFCC6C983781D7EEC28D3C0D644B9140F82DEE7
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6551.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6551.jpgsave_picture_6551.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ magnet:?xt=urn:btih:CBF2B7FFD332C678E1A43178DB4011A9A57B3DE4
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6552.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6552.jpgsave_picture_6552.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Pink Floyd - История создания альбома "Wish You Were Here"
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6553.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6553.jpgsave_picture_6553.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Pink Floyd - История создания альбома "Wish You Were Here"
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6554.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6554.jpgsave_picture_6554.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ magnet:?xt=urn:btih:8C997BA2D5363005D6883144DA42E111893D6A8E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6555.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6555.jpgsave_picture_6555.jpg" />
 </div>
 
 

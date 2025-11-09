@@ -6,7 +6,7 @@ Lord Belial - Kiss the Goat (1994) [WavPack|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244558.jpgsave_picture_244558.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Tom Raley - Day To Day (2023) [MP3|320 Kbps] <Classic Rock, Blues Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244561.jpgsave_picture_244561.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ A Fragile Tomorrow - Generation Loss (2019) [FLAC|Lossless|tracks + .cue] <Rock,
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244565.jpgsave_picture_244565.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ City Of Lights - Before the Sun Sets (2022) [FLAC|Lossless|WEB-DL|tracks] <Melod
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244569.jpgsave_picture_244569.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Baest - Necro Sapiens (2021) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244577.jpgsave_picture_244577.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Nausea - World Struggle: Demos '88-'92 (2013) [FLAC|Lossless|image + .cue] <Deat
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244583.jpgsave_picture_244583.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Legion Of The Damned - The Poison Chalice (2023) EP [FLAC|Lossless|image + .cue]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244594.jpgsave_picture_244594.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Last Union - Twelve (2019) Japan [FLAC|Lossless|image + .cue] <Progressive Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244597.jpgsave_picture_244597.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ Avi Rosenfeld & XIS & JJ Sprondel - Rock Rock Baby (2022) [MP3|320 Kbps] <Classi
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244598.jpgsave_picture_244598.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Desolate Dreams - Inevitability (2016) [MP3|320 Kbps] <Instrumental Progressive 
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244599.jpgsave_picture_244599.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Platens - Of Poetry And Silent Mastery (2021) Japanese Edition [FLAC|Lossless|im
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244603.jpgsave_picture_244603.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Gravecarver - Spectral Carnage (2021) [FLAC|Lossless|WEB-DL|tracks] <Death Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244607.jpgsave_picture_244607.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ The Raw Collective - The Game (2023) [FLAC|Lossless|WEB-DL|tracks] <Classic Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244611.jpgsave_picture_244611.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Mortuary Drape - Necromantic Doom Returns (2018) [FLAC|Lossless|image + .cue] <B
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244613.jpgsave_picture_244613.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Avi Rosenfeld & Lain Barbier - Seasons Blues (2023) [MP3|320 Kbps] <Classic Rock
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244622.jpgsave_picture_244622.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Bad Frankenhausen - Eins (2016) [MP3|320 Kbps] <Heavy Metal, Hard Rock>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244625.jpgsave_picture_244625.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ Tales Of A Liquid Dawn - 2 Albums (2022) [MP3|320 Kbps] <Progressive Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244628.jpgsave_picture_244628.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Jason - Justiciero Arcaico (1997) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244630.jpgsave_picture_244630.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ magnet:?xt=urn:btih:6D582B237330841BFB6194EFAE2EB3E6A0B6AE0F
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244645.jpgsave_picture_244645.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Then It Ends - Vainglory (2023) [MP3|320 Kbps] <Metalcore, Hardcore>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244651.jpgsave_picture_244651.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ Demon Project MX - Demon Project MX (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244654.jpgsave_picture_244654.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Depleted - Failing (2023) [FLAC|Lossless|WEB-DL|tracks] <Funeral Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244663.jpgsave_picture_244663.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ Degreed - Are You Ready (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244667.jpgsave_picture_244667.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ Adrenalin - Dedicated (1995) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244673.jpgsave_picture_244673.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ Ken Hensley - My Book Of Answers (2021) [FLAC|Lossless|WEB-DL|tracks] <Rock, Cla
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244674.jpgsave_picture_244674.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ In-Quest - Epileptic (2004) [FLAC|Lossless|image + .cue] <Progressive Death Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244677.jpgsave_picture_244677.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165868.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165868.jpgsave_picture_165868.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ EarthView 7.5.0 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165869.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165869.jpgsave_picture_165869.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ BELOFF [dp] 2021.12.2
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165870.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165870.jpgsave_picture_165870.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ KCNcrew Pack 12-15-19 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165871.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165871.jpgsave_picture_165871.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Goodbye June - See Where The Night Goes (2022) [FLAC|Lossless|WEB-DL|tracks] <Bl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165872.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165872.jpgsave_picture_165872.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:BDB360C5F985F4E5A6C0F481B16C64C3F184BD8D
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165873.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165873.jpgsave_picture_165873.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ magnet:?xt=urn:btih:E2566A8817633A4F55AC620399D604A23BE83857
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165874.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165874.jpgsave_picture_165874.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ Magnétophone - I Guess Sometimes I Need To Be Reminded Of How Much You Love Me 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165875.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165875.jpgsave_picture_165875.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ magnet:?xt=urn:btih:39C3252BFF2308E232E0BD5D4664C4C8B794FAAE
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165876.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165876.jpgsave_picture_165876.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ magnet:?xt=urn:btih:14960E6B91F14DBC65A0401BBCE5FACFB8DFB056
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165877.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165877.jpgsave_picture_165877.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ magnet:?xt=urn:btih:4D9AAE66DE9D1EF6A520B67D5F9304E13A20C192
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165878.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165878.jpgsave_picture_165878.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ magnet:?xt=urn:btih:CF986E074C974DE532F01E75F613A43C74AF564E
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165879.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165879.jpgsave_picture_165879.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ Affinity Publisher Beta 1.8.0.523 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165881.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165881.jpgsave_picture_165881.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:69E62B2D97ED64EDEDD5836E6BCD202604E6103D
 >>История
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165882.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165882.jpgsave_picture_165882.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ FileMenu Tools 7.8.3 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165883.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165883.jpgsave_picture_165883.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Jennifer Lopez - This Is Me...Then (2022) 20th Anniversary Edition [FLAC|Lossles
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165884.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165884.jpgsave_picture_165884.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ VA - Fresh Family. Fresh Animal'z Bassball (1998) Resort Records [FLAC|Lossless|
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165885.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165885.jpgsave_picture_165885.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ magnet:?xt=urn:btih:3DFCF5AD9C9CA02ACAF6485B59063089E071CC72
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165886.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165886.jpgsave_picture_165886.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ magnet:?xt=urn:btih:B55848D29318BA36B77EBB5A26369DA4CB3E0EE0
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165887.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165887.jpgsave_picture_165887.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ magnet:?xt=urn:btih:B332C759FFC0F1C225F42B8BC2FC01E6B3C80480
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165888.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165888.jpgsave_picture_165888.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ magnet:?xt=urn:btih:DEAF74A060F5B89797286CB8A6E1BD492BF7EA23
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165889.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165889.jpgsave_picture_165889.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Smultron 12.0.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165890.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165890.jpgsave_picture_165890.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Digital Tutors, Ron Friedman | Animating a Dialogue Scene in Maya (2013) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165891.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165891.jpgsave_picture_165891.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Advanced SystemCare Pro 17.0.1.108 Portable by zeka.k [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165892.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165892.jpgsave_picture_165892.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ magnet:?xt=urn:btih:2523749711CC3CDE231C924383306D99CEEAAA75
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165893.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165893.jpgsave_picture_165893.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Macrorit Partition Expert 7.2.0 Unlimited Edition RePack (& Portable) by elchupa
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165894.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165894.jpgsave_picture_165894.jpg" />
 </div>
 
 

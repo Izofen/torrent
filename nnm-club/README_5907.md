@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186100.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186100.jpgsave_picture_186100.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:F4DF89FEBA3A5B6279EA0B2B5FA24ABA93781616
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186101.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186101.jpgsave_picture_186101.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Wolfheart - Studio Albums (7 releases) (2013-2025) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186102.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186102.jpgsave_picture_186102.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Joe Bonamassa - B.B. King's Blues Summit 100, Vol. II (2025) EP[FLAC 24/44.1|Los
 >>Blues, Soul (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186103.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186103.jpgsave_picture_186103.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Flyoobe 1.40 Portable [En]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186104.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186104.jpgsave_picture_186104.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ One Punch Man 3 | Ванпанчмен [ТВ-3] [2025, TV, 2 из 12 эп. + 1 S
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186105.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186105.jpgsave_picture_186105.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ magnet:?xt=urn:btih:A012DCE7D8327C7FD4EED377387EAE6E5D65F261
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186106.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186106.jpgsave_picture_186106.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:BDD59E4386141BCA97EED8671076DAD597800B71
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186107.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186107.jpgsave_picture_186107.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:93E8AE31739E1387AED0B1C0604E09AB1B90FF0E
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186108.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186108.jpgsave_picture_186108.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ magnet:?xt=urn:btih:DFDE3FF824B830451B19C753615A24EB46240335
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186109.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186109.jpgsave_picture_186109.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ Windows 11 23h2/24h2/25h2 by SURASOFT (v25.10.14) [Ru]
 >>Песочница ПО и сборок Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186110.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186110.jpgsave_picture_186110.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ magnet:?xt=urn:btih:29F4907D913C49CFA879A8866243BB25AE2B47E6
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186111.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186111.jpgsave_picture_186111.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ magnet:?xt=urn:btih:2F92DCB1B94DC9109E7E194726E16A8384840EEB
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186112.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186112.jpgsave_picture_186112.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ Davy Knowles - MKO (2025) [FLAC 24/48|Lossless|WEB-DL] <Blues Rock>
 >>Blues, Soul (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186113.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186113.jpgsave_picture_186113.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ magnet:?xt=urn:btih:6EE3464BBA76C686913F02EF19B813BB25AEB2FF
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186114.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186114.jpgsave_picture_186114.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Daniel Adiyants Trio - An Ordinary Miracle (2025) [FLAC 24/96|Lossless|WEB-DL] <
 >>Jazz (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186115.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186115.jpgsave_picture_186115.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ ON1 Photo RAW MAX 2026 20.0.5.17637 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186116.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186116.jpgsave_picture_186116.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Fast Video Cutter Joiner 6.9.2.0 RePack (& Portable) by elchupacabra [Ru/En]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186117.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186117.jpgsave_picture_186117.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ magnet:?xt=urn:btih:35A640A1993C05668EA84C68E40755730E9B53C1
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186118.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186118.jpgsave_picture_186118.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ Freemake Video Converter 5.0.0.18 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186119.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186119.jpgsave_picture_186119.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ PotPlayer 251017 (1.7.22628) Beta RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Видео Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186120.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186120.jpgsave_picture_186120.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Notepad++ 8.8.7 Final + Portable [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186121.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186121.jpgsave_picture_186121.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Microsoft® Windows® 11 Professional VL x64 22H2 RU by OVGorskiy 09.2023
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186127.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186127.jpgsave_picture_186127.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ magnet:?xt=urn:btih:09A2AE489529E2A60A2BEF79087536FF45E03B17
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186130.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186130.jpgsave_picture_186130.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Sunkenland (2023) [Ru/Multi] (0.1.40) Repack Other s
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186131.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186131.jpgsave_picture_186131.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ PAYDAY 3 (2023) [Ru/Multi] (1.0.0.0.624677) Repack DjDI
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186134.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186134.jpgsave_picture_186134.jpg" />
 </div>
 
 

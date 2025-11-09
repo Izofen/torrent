@@ -6,7 +6,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124549.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124549.jpgsave_picture_124549.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:9EDCE0F1F130FAD3DCB0CBF8DAC41252149C797E
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124550.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124550.jpgsave_picture_124550.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ StaxRip 2.31.0 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124551.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124551.jpgsave_picture_124551.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ The Voices Factory - The Voices Factory Sings The Beatles (2023) [FLAC|Lossless|
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124552.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124552.jpgsave_picture_124552.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ magnet:?xt=urn:btih:AAB08E2F5B7AA04D2FE547FE3DE0628478137012
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124553.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124553.jpgsave_picture_124553.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ Richard Bargel - Compilation (2024) [MP3|320 Kbps] <Blues rock, Blues, Soul>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124554.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124554.jpgsave_picture_124554.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ RegCool 1.353 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124555.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124555.jpgsave_picture_124555.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ magnet:?xt=urn:btih:FDF20DBF6D407F5905CA37470F3659D5ED5FCAF6
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124556.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124556.jpgsave_picture_124556.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ magnet:?xt=urn:btih:D3CFA3E49BDB9A0D6FCAA35F459D12FB8F9B8355
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124557.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124557.jpgsave_picture_124557.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ magnet:?xt=urn:btih:9430E4BEC3DDBCE5D37E498CCC53B4CD54421CB4
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124558.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124558.jpgsave_picture_124558.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ magnet:?xt=urn:btih:2EA4CA2062E94F82A188F9649611B935C1365ED4
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124559.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124559.jpgsave_picture_124559.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ Django Novo & Tov Ramstad - The Distance (2023) [FLAC|Lossless|WEB-DL|tracks] <A
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124560.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124560.jpgsave_picture_124560.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ Roadhouse Redeemers - From Gospel to Grit (2024) [FLAC|Lossless|WEB-DL|tracks] <
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124561.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124561.jpgsave_picture_124561.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ magnet:?xt=urn:btih:33428C8D5344158C633C03F81095014FF9C2A04E
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124562.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124562.jpgsave_picture_124562.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ magnet:?xt=urn:btih:F45C26E525DF2893A29889DD56C731AB467BB6BC
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124563.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124563.jpgsave_picture_124563.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ SyMenu 8.00.8766 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124564.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124564.jpgsave_picture_124564.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ magnet:?xt=urn:btih:25C030FE47882B20C7D5C4294C6BF0420AEA515B
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124565.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124565.jpgsave_picture_124565.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ TenPuru | Temple: No One Can Live on Loneliness | Храм: Никто не мо
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124566.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124566.jpgsave_picture_124566.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ PrivaZer Pro 4.0.81 RePack (& Portable) by Dodakaedr  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124567.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124567.jpgsave_picture_124567.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ magnet:?xt=urn:btih:56D1AE641F74DB6B488ECEA7838B252C5EDEBDB6
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124568.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124568.jpgsave_picture_124568.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ magnet:?xt=urn:btih:5775015568B0585BD9281A76C8F4EE7EF8BF9B5F
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124569.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124569.jpgsave_picture_124569.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ magnet:?xt=urn:btih:651302C17E62D460B9648D1024A96F823F7B24A2
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124570.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124570.jpgsave_picture_124570.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ SMD pro, Андрей Нифедов | VirtualDj и Подкастинг (2010) 
 >>Музыка (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124571.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124571.jpgsave_picture_124571.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ magnet:?xt=urn:btih:149D2DC31A481350A6D90ED8BBEC68D38903239B
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124572.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124572.jpgsave_picture_124572.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ magnet:?xt=urn:btih:54ED97B01B61E9A5D4EB03B51BC5D08ED1F170E8
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124573.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124573.jpgsave_picture_124573.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ magnet:?xt=urn:btih:7745E8B710D4A9B656ED41F21CF88F6ADE71E3C0
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124574.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124574.jpgsave_picture_124574.jpg" />
 </div>
 
 

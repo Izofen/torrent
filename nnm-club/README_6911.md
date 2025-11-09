@@ -6,7 +6,7 @@ Chucho Valdes - Tumi Sessions (2007) Tumi Music [FLAC|Lossless|tracks + .cue] <A
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237483.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237483.jpgsave_picture_237483.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:1CF26C7F59D660396FC67EFF4BF69DA92D87031D
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237484.jpgsave_picture_237484.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:B52A1A4DDF592DDC8D2CD9AD05E6B73AE4122618
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237485.jpgsave_picture_237485.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:426B385EE77E23C692B0C288A20C2D9047DCF419
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237486.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237486.jpgsave_picture_237486.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Multitouch 1.24.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237487.jpgsave_picture_237487.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:ACE8A85E1187E16BE0F527D391B9612027617A5D
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237488.jpgsave_picture_237488.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Core Fire - Consumed (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash, Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237489.jpgsave_picture_237489.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Tequilajazzz - Камни (2021) [AAC|~331 Kbps] <Alternative, Rock>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237490.jpgsave_picture_237490.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:23BE160FA5758BB7EC4024F9679AD520D641BA83
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237491.jpgsave_picture_237491.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ Ethan Philion - Meditations On Mingus (2022) Sunnyside [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237492.jpgsave_picture_237492.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ Icecream Video Converter 1.26 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237493.jpgsave_picture_237493.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ Red Nichols - 1925 - 1927 (2001) Classics [FLAC|Lossless|tracks + .cue] <Swing, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237494.jpgsave_picture_237494.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ Void King - 3 Albums (2016-2023) [FLAC|Lossless|WEB-DL|tracks] <Stoner Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237495.jpgsave_picture_237495.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ Shaka Ponk - Shaka Ponk (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237496.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237496.jpgsave_picture_237496.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ Aramis - Crimson (2023) [MP3|320 Kbps] <Death, Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237497.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237497.jpgsave_picture_237497.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ VA - Urban House Grooves, Vol. 1 (2021) [AAC|~323 Kbps] <House, Progressive Hous
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237498.jpgsave_picture_237498.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ Rhythm Therapy Band - Music Room Sessions, Vol. 2 (2023) [FLAC|Lossless|WEB-DL|t
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237499.jpgsave_picture_237499.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ Firefox Browser 112.0.2 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237500.jpgsave_picture_237500.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ magnet:?xt=urn:btih:B723945B50B8166C284F8AB89D530EC0FF098AD4
 >>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237501.jpgsave_picture_237501.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Icecream PDF Candy Desktop PRO 2.94 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237502.jpgsave_picture_237502.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ magnet:?xt=urn:btih:B14F91D5D3EA80D8689F145C72C37D2563CB1D21
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237503.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237503.jpgsave_picture_237503.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ magnet:?xt=urn:btih:14D32ABCE0AE8BC0D58EC11FFE25B67EA4EBE244
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237504.jpgsave_picture_237504.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Snakemother - Snakemother (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Doom
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237505.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237505.jpgsave_picture_237505.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ magnet:?xt=urn:btih:03DDA3B1FFDD3EE883AB71E074F2C4CD9424C0FE
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237506.jpgsave_picture_237506.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ VA - Urban House Grooves, Vol. 2 (2021) [AAC|~323 Kbps] <House, Progressive Hous
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237507.jpgsave_picture_237507.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Colorfy PLUS - Coloring Book v3.19 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237508.jpgsave_picture_237508.jpg" />
 </div>
 
 

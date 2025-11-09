@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15261.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15261.jpgsave_picture_15261.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:C4589032BC2E5107914B173E20E8E98A3C61A24A
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15262.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15262.jpgsave_picture_15262.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:B12ACE4B14F65237F5DA527E5DB0CE015F65C974
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15263.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15263.jpgsave_picture_15263.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:939E3CC0C5331EB7E8104BC29BEC85913EB2C77E
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15264.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15264.jpgsave_picture_15264.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:66EC6911875CF4DDC67215DD8AE91E066517BF04
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15265.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15265.jpgsave_picture_15265.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:586E4C27621ABA4D9C78E23654B065B7A338F475
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15266.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15266.jpgsave_picture_15266.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ VueScan Pro 9.8.46.06 RePack (& Portable) by elchupacabra (DC 05.06.2025) [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15267.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15267.jpgsave_picture_15267.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:55F24D0E81043D14BDD4A6E557243351CCD98E8E
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15268.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15268.jpgsave_picture_15268.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:B4751DF3022D093F5E7790F145133B427EDF73FC
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15269.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15269.jpgsave_picture_15269.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Vanced Tube v5.3.81.321 Mod by TRUMods [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15270.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15270.jpgsave_picture_15270.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Synchro (2025) [Ru/En] (0.1.6 Beta) Repack Let'sРlay [Playtest]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15271.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15271.jpgsave_picture_15271.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:10C19844E1BE0304A20F5646B4F2F24445939DBD
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15272.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15272.jpgsave_picture_15272.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:063BB179D6F7927A3F4E4D8FBA8B52EE5152F6EC
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15273.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15273.jpgsave_picture_15273.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ magnet:?xt=urn:btih:285B6268AC00C0DD7549C08C796633EB677005B6
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15274.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15274.jpgsave_picture_15274.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ EasyUEFI Technician 6.0 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15275.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15275.jpgsave_picture_15275.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ ICBM: Escalation (2024) [Ru/Multi] (1.0.9/dlc) Repack Let'sРlay
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15276.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15276.jpgsave_picture_15276.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ Take Me, Vitaly / Догони меня, Виталик (2024) [Ru/Multi] (Build
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15277.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15277.jpgsave_picture_15277.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ magnet:?xt=urn:btih:DEF525177E763B684120495C2B0B6C5E5FB70790
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15278.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15278.jpgsave_picture_15278.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ magnet:?xt=urn:btih:DEF525177E763B684120495C2B0B6C5E5FB70790
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15279.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15279.jpgsave_picture_15279.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Lethal Company (2023) [Ru/En] (72) Repack Pioneer [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15280.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15280.jpgsave_picture_15280.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ DELTARUNE (2025) [Multi] (1.01A) Unofficial
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15281.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15281.jpgsave_picture_15281.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ magnet:?xt=urn:btih:5FA65E4D88DDE34DC710EEB1E6116FFB165CD4BB
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15282.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15282.jpgsave_picture_15282.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ magnet:?xt=urn:btih:53E7264FAB5A5B458855C58A5E0E08BBE31D8946
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15283.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15283.jpgsave_picture_15283.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ magnet:?xt=urn:btih:1237E63CC8BAAEB7652F47382C6F0F8CF59A0F6A
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15284.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15284.jpgsave_picture_15284.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ magnet:?xt=urn:btih:A7D4944886AAD60207C235D7835916EF5C4A1CD4
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15285.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15285.jpgsave_picture_15285.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ magnet:?xt=urn:btih:38731853839C2588EA5F23EA1566FF03EBFB8579
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15286.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15286.jpgsave_picture_15286.jpg" />
 </div>
 
 

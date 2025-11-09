@@ -6,7 +6,7 @@ Decisive Pink - Ticket to Fame (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Elect
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237163.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237163.jpgsave_picture_237163.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Autumn Breeze, Vol. 3: Chill Sounds for Relaxing Moments (2019) [AAC|~327 K
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237165.jpgsave_picture_237165.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:92353288EC4C5F52F35997AB48CAF68AA45B9CA4
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237167.jpgsave_picture_237167.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Pure Reason Revolution - Eupnea (2020) [FLAC|Lossless|image + .cue] <Progressive
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237169.jpgsave_picture_237169.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ VA - Chillax (Smooth Chill-Out Sounds For Pure Relaxing), Vol. 3 (2021) [AAC|~31
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237170.jpgsave_picture_237170.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Thorium - Empires In The Sun (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237172.jpgsave_picture_237172.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ MotoGP. Этап 06. Гран-при Италии. Гонка (11.06.2023) WEBRi
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237173.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237173.jpgsave_picture_237173.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Just Dance 2022 Mod (2021) [PS3] [USA] 3.30 [HEN] [Cobra ODE / E3 ODE PRO ISO] [
 >>PS3
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237176.jpgsave_picture_237176.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ Karnataka - Requiem For A Dream (2023) [MP3|320 Kbps] <Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237179.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237179.jpgsave_picture_237179.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ magnet:?xt=urn:btih:A35B35E1EA9CC8A1D2FB54CA84608AF24877DA7B
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237181.jpgsave_picture_237181.jpg" />
 </div>
 
 
@@ -265,7 +265,7 @@ magnet:?xt=urn:btih:A35B35E1EA9CC8A1D2FB54CA84608AF24877DA7B
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237183.jpgsave_picture_237183.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ magnet:?xt=urn:btih:BF0214077202A3B609EB84E01CD253D671CB834B
 >>История
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237185.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237185.jpgsave_picture_237185.jpg" />
 </div>
 
 
@@ -316,7 +316,7 @@ magnet:?xt=urn:btih:AEBD289AA840A362C87BC8FE5FFDEA69DFD3151B
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237187.jpgsave_picture_237187.jpg" />
 </div>
 
 
@@ -340,7 +340,7 @@ VueScan Pro 9.7.85 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237188.jpgsave_picture_237188.jpg" />
 </div>
 
 
@@ -364,7 +364,7 @@ magnet:?xt=urn:btih:4FF6C044413B6C4ED6220AAF02C13F6425DEC3B1
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237189.jpgsave_picture_237189.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Relaxing Piano Crew - Jazz Ballad Piano Played in a Hideaway Restaurant (2022) [
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237194.jpgsave_picture_237194.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ PopChar X 8.9 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237195.jpgsave_picture_237195.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ VA - Superstars (1974) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Pop, Pop Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237196.jpgsave_picture_237196.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ magnet:?xt=urn:btih:7B88A65B6D3FB6F93DC3C9DF6881B15B37930543
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237200.jpgsave_picture_237200.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Tom Jones/Том Джонс - Лучшие песни из репертуара.
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237201.jpgsave_picture_237201.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ BetterDisplay Pro for Mac 1.4.14 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237202.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237202.jpgsave_picture_237202.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Iced Earth - Iced Earth (1990) [FLAC|Lossless|image + .cue] <Thrash Metal, Power
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237203.jpgsave_picture_237203.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Willie ''The Lion'' Smith - 1937 - 1938 (1992) Classics [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237204.jpgsave_picture_237204.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ magnet:?xt=urn:btih:3464346FB44E1766A5F042076DD9EDC8D7995A0B
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237206.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237206.jpgsave_picture_237206.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ magnet:?xt=urn:btih:67985672AF413E0B023AA4CABA787795447B9F2B
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237207.jpgsave_picture_237207.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ magnet:?xt=urn:btih:75687BD46500858668C4D6F60AC976BFD8DAF46B
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237208.jpgsave_picture_237208.jpg" />
 </div>
 
 

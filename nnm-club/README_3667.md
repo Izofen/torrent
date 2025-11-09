@@ -6,7 +6,7 @@ Fitify: Фитнес тренировки дома 1.66.2 Mod by Balatan [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115717.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115717.jpgsave_picture_115717.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ NetLimiter 5.3.8.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115718.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115718.jpgsave_picture_115718.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Photo Lab PRO v3.13.0 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115719.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115719.jpgsave_picture_115719.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Extreme - Collection (2024) [MP3|320 Kbps] <Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115720.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115720.jpgsave_picture_115720.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Maze of Realities 4: Symphony of Invension / Лабиринт реальност
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115721.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115721.jpgsave_picture_115721.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:6B24DE04ED0AC2D291524B5F9C268CC0D35C9FDF
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115722.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115722.jpgsave_picture_115722.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:A3808BA1742CBC694455E8EFDA200DAE2B9C59A8
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115723.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115723.jpgsave_picture_115723.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:A3808BA1742CBC694455E8EFDA200DAE2B9C59A8
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115724.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115724.jpgsave_picture_115724.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ TrustViewer 2.11.0.5090 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115725.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115725.jpgsave_picture_115725.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Celine Dion - Courage (2024) Japanese Edition [FLAC|Lossless|image + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115726.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115726.jpgsave_picture_115726.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:DA1A009248BDD02D7730B317A4983E339CFE61C4
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115727.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115727.jpgsave_picture_115727.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:82D4D0BE4748DCAD1EE56DBAC948DF0FA56EE6CF
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115728.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115728.jpgsave_picture_115728.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ magnet:?xt=urn:btih:4A6F7BE85C656696614D695DF257E562EF4FC39A
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115729.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115729.jpgsave_picture_115729.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ magnet:?xt=urn:btih:93B3CBEEDC87F772952BF9D3F29F4C5B30B7D54E
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115730.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115730.jpgsave_picture_115730.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ magnet:?xt=urn:btih:D1ED620B733E98D05074EC3DA53B15A1AD6AD6A1
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115731.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115731.jpgsave_picture_115731.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ magnet:?xt=urn:btih:A70DB43FD49B5DF1FFFD073B10A4F7D5081E8DEE
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115732.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115732.jpgsave_picture_115732.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ LibreWolf 123.0-1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115733.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115733.jpgsave_picture_115733.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ magnet:?xt=urn:btih:931C93C604986E9F114A910A398AAAA97E691F6E
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115734.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115734.jpgsave_picture_115734.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ magnet:?xt=urn:btih:357627F946A70B470CE6D77C75B341E110E9B6DC
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115735.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115735.jpgsave_picture_115735.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ magnet:?xt=urn:btih:B2A757FCA3F92C7435DA3006346CEF581A1E6986
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115736.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115736.jpgsave_picture_115736.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ ES File Explorer File Manager v4.4.2.2.1 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115737.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115737.jpgsave_picture_115737.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ FurMark 2.1.0.2 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115738.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115738.jpgsave_picture_115738.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ magnet:?xt=urn:btih:06F7AC81F496EF6152868BC8EE353DEA73436D23
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115739.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115739.jpgsave_picture_115739.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ VA - ЕвроХит Топ 40 Europa Plus 23.02.2024 [MP3|320 Kbps] <Pop, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115740.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115740.jpgsave_picture_115740.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Device Info / Информация об устройстве 3.3.5.24 Mod by Bal
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115741.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115741.jpgsave_picture_115741.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ magnet:?xt=urn:btih:B8F0F4FDB7DE80EB0B4019F1E14ED601FA2AA839
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115742.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115742.jpgsave_picture_115742.jpg" />
 </div>
 
 

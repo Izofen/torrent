@@ -6,7 +6,7 @@ Freemake Video Converter 4.1.13.112 RePack (& Portable) by elchupacabra [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155160.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155160.jpgsave_picture_155160.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Ashampoo Burning Studio 21.3.0.42 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155161.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155161.jpgsave_picture_155161.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ PhotoChef 1.3 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155162.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155162.jpgsave_picture_155162.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:186801571E9C704A07453884EB837C840752554F
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155164.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155164.jpgsave_picture_155164.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:59DB80F9EC6937040989E62397809C01CC62E7DB
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155166.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155166.jpgsave_picture_155166.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ AutoRuns 14.07 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155167.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155167.jpgsave_picture_155167.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:8F0ADF8A7AE63548BBBDC2E8D40AED775673B8F4
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155168.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155168.jpgsave_picture_155168.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Toy Defense 2 / Солдатики-2 v2.7.0.1 + Mod [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155169.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155169.jpgsave_picture_155169.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:B89D987C45F3D6DED1C464DD4066CD49167892AC
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155170.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155170.jpgsave_picture_155170.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Arturia - Pigments 1.0.0.473 VSTi, VSTi3, AAX (x86/x64) RePack by R2R (19.12.201
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155171.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155171.jpgsave_picture_155171.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ magnet:?xt=urn:btih:3E17D77466687F83BED20CB795DADA79D375C2A2
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155172.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155172.jpgsave_picture_155172.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ magnet:?xt=urn:btih:D81B95446504A623823E19795E68D23603379403
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155173.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155173.jpgsave_picture_155173.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Tone2 - Warmverb Multi-FX 1.2.1/1.2.2 VST (x86/x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155174.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155174.jpgsave_picture_155174.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Posterino 3 v3.9.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155175.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155175.jpgsave_picture_155175.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ VA - One Night in Aspen (Pure Progressive Clubsounds) (2012) [MP3|320 кб/с]<P
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155176.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155176.jpgsave_picture_155176.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Crime O'Clock (2023) [Multi] (1.3.2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155178.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155178.jpgsave_picture_155178.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Lolo - X (2021) [FLAC|Lossless|WEB-DL|tracks] <Rockin' Blues, Soul, Funk>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155180.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155180.jpgsave_picture_155180.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ magnet:?xt=urn:btih:599A0728BC107273308224403B990441D7F8057A
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155181.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155181.jpgsave_picture_155181.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ magnet:?xt=urn:btih:173D1F5A5ACE3B2936857DF81C0590F750A7A4B7
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155182.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155182.jpgsave_picture_155182.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ magnet:?xt=urn:btih:30583A6190E4344A05CCC99D6A9C3A44669435A5
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155184.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155184.jpgsave_picture_155184.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ magnet:?xt=urn:btih:82B41A5F725F03032E4F4914A6038CBBE3F75380
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155185.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155185.jpgsave_picture_155185.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ magnet:?xt=urn:btih:E36137C32127D4DEB606890C9858B783E139B774
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155187.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155187.jpgsave_picture_155187.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Keep It 1.9.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155189.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155189.jpgsave_picture_155189.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ magnet:?xt=urn:btih:ADEB218077D489634CEA0EE0AF8E9A94148C372F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155190.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155190.jpgsave_picture_155190.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ Microsoft официально представила песочницу Windows
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155191.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155191.jpgsave_picture_155191.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ MediBang Paint Pro 28.4 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155192.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155192.jpgsave_picture_155192.jpg" />
 </div>
 
 

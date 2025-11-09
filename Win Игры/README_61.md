@@ -6,7 +6,7 @@ The Sinking City (2019) [Ru/Multi] (Build 18222381/dlc) Repack Let'sРlay [Remas
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18359.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18359.jpgsave_picture_18359.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Citadelum (2024) [Ru/Multi] (2.0.0.17/dlc) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18361.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18361.jpgsave_picture_18361.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Duck Detective: The Secret Salami (2024) [En] (1.2.5) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18363.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18363.jpgsave_picture_18363.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Drug Dealer Simulator (2020) [Ru/Multi] (1.2.19.1) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18366.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18366.jpgsave_picture_18366.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Wildermyth (2021) [Ru/Multi] (1.16plus559/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18370.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18370.jpgsave_picture_18370.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Shredders (2022) [Ru/Multi] (13234/dlc) Repack Let'sРlay [540INDY Edition]
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18423.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18423.jpgsave_picture_18423.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Dakar Desert Rally (2022) [Ru/Multi] (2.3.0/dlc) Repack Let'sРlay [Digital Delu
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18457.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18457.jpgsave_picture_18457.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Clair Obscur: Expedition 33 (2025) [Ru/Multi] (56442/dlc) Repack Decepticon [Del
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18479.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18479.jpgsave_picture_18479.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ KARMA: The Dark World (2025) [Ru/Multi] (Build 18404146) Repack Let'sРlay [Digi
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18487.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18487.jpgsave_picture_18487.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Empyreal (2025) [Ru/Multi] (1.0.1.29392) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18490.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18490.jpgsave_picture_18490.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Rising Star 2 (2020) [Ru/Multi] (2.98.354/dlc) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18534.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18534.jpgsave_picture_18534.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ SlitterHead (2024) [Ru/Multi] (1.02.2-r00065826) Repack seleZen
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18540.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18540.jpgsave_picture_18540.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Tales of Kenzera: ZAU (2024) [Ru/Multi] (1.5.0.45551) Repack Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18543.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18543.jpgsave_picture_18543.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Silent Hill 2 Remake (2024) [Ru/Multi] (1.1.258 834) Repack seleZen [Deluxe Edit
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18545.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18545.jpgsave_picture_18545.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Tank Squad (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18565.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18565.jpgsave_picture_18565.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Codename: Ocean Keeper / Ocean Keeper: Dome Survival (2024) [Ru/Multi] (1.0) Rep
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18566.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18566.jpgsave_picture_18566.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Pathfinder: Wrath of the Righteous (2021) [Ru/Multi] (2.7.0w/dlc) Scene Rune [En
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18568.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18568.jpgsave_picture_18568.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Builders of Greece (2024) [Ru/Multi] (1.0.0 build 18361871) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18570.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18570.jpgsave_picture_18570.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ MechWarrior 5: Clans (2024) [Ru/Multi] (1.0.102/dlc) Repack FitGirl [Digital Col
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18588.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18588.jpgsave_picture_18588.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Liquor Store Simulator (2025) [Ru/Multi] (1.0.1) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18624.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18624.jpgsave_picture_18624.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Hunter’s Journey: Tears of the Lake (2025) [En] (1.0) Unofficial [Collector's 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18634.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18634.jpgsave_picture_18634.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Laundry & Supermarket Simulator / Laundry Simulator: PowerWash It! (2025) [Ru/Mu
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18658.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18658.jpgsave_picture_18658.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Cash Cleaner Simulator (2025) [Ru/Multi] (1.0.1/dlc) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18670.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18670.jpgsave_picture_18670.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Oil Refinery - The Simulation (2025) [Ru/Multi] (1.1.5) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18677.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18677.jpgsave_picture_18677.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ SlitterHead (2024) [Ru/Multi] (1.02.2-r00065826) Repack Let'sРlay
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18678.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18678.jpgsave_picture_18678.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Ultimate Fishing Simulator 2 (2022) [Ru/Multi] (1.25.05.09.3975) Repack FitGirl
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18680.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18680.jpgsave_picture_18680.jpg" />
 </div>
 
 

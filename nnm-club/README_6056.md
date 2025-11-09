@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190747.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190747.jpgsave_picture_190747.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:33092A2D2511972C647776D22A6AFD0A372D0D8E
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190748.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190748.jpgsave_picture_190748.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Karpov.courses | Продвинутая аналитика данных (Час�
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190751.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190751.jpgsave_picture_190751.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:3973877E47AEC86FFBBB9A3B6FB41365412C8343
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190758.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190758.jpgsave_picture_190758.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ The Cosmic Wheel Sisterhood (2023) [Ru/Multi] (1.1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190760.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190760.jpgsave_picture_190760.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:EE5AB3D4C0321909D42DB5D32028509C4BA54B81
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190762.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190762.jpgsave_picture_190762.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Wondershare Filmora 12.5.6.3504 x64 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190764.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190764.jpgsave_picture_190764.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:0F2A575367DBC18BDD6C977A36024A98A25D865F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190766.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190766.jpgsave_picture_190766.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:0858EA6AC837A76B1D03505C364C09EEA3102F2B
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190768.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190768.jpgsave_picture_190768.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:FD8A25AB57050E3CAD536A8920EBADF31520B219
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190769.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190769.jpgsave_picture_190769.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Psiphon 3 build 179 (05.09.2023) Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190771.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190771.jpgsave_picture_190771.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ magnet:?xt=urn:btih:403436976C041FDFC5C56733CA9A40CD47F5FA6F
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190772.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190772.jpgsave_picture_190772.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ magnet:?xt=urn:btih:3AC56A8AB852028EEE5D091608850789DA1677F3
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190773.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190773.jpgsave_picture_190773.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ magnet:?xt=urn:btih:6782A7AE0EB0289D071762E194BC599DF5E1EB0C
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190775.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190775.jpgsave_picture_190775.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ magnet:?xt=urn:btih:A78E9E54F604580C9100F29254689F420E1411DB
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190776.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190776.jpgsave_picture_190776.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ SoftMaker Office Professional 2024 rev. S1204.0902 RePack (& portable) by KpoJIu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190778.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190778.jpgsave_picture_190778.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ magnet:?xt=urn:btih:C3B904CA66F23FF79A9AA9C5F62A8370398E18C8
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190781.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190781.jpgsave_picture_190781.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ magnet:?xt=urn:btih:FF0465B741795A3714261AF9E171F764224516EC
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190783.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190783.jpgsave_picture_190783.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ magnet:?xt=urn:btih:769C33032F40506C1E2ACE626522D9125F198FED
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190784.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190784.jpgsave_picture_190784.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ magnet:?xt=urn:btih:BE912FF1AF62FB99E46C7EE44D0A8DC2FA435AF3
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190787.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190787.jpgsave_picture_190787.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ magnet:?xt=urn:btih:0F6D8637E819896733A945B3349AA67A7E5024A7
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190789.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190789.jpgsave_picture_190789.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ CPUID HWMonitor Pro 1.53 (x64) Portable by zeka.k [En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190798.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190798.jpgsave_picture_190798.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ magnet:?xt=urn:btih:ECDBA4CAD0D9854B311238FEA7C00F89CCE9AB2C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190800.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190800.jpgsave_picture_190800.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ magnet:?xt=urn:btih:67FF3233A1C18B190D2339B71697B602AE8E801D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190801.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190801.jpgsave_picture_190801.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ magnet:?xt=urn:btih:686CCCD665D77C3974C6E35889B32F8B27F03C8F
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190803.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190803.jpgsave_picture_190803.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ magnet:?xt=urn:btih:481B642CACAD6B7D4DC6E6EE48A74BF7A0600B03
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190806.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190806.jpgsave_picture_190806.jpg" />
 </div>
 
 

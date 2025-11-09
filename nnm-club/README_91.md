@@ -6,7 +6,7 @@ Auslogics SSD Optimizer 2.1.0.0 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2403.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2403.jpgsave_picture_2403.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Cronos: The New Dawn (2025) [Ru/Multi] (20250908_2250-323631/dlc) Repack Other s
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2404.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2404.jpgsave_picture_2404.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:6C13C9ADC50015E41983227235D2A7BBFEAF8ECD
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2405.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2405.jpgsave_picture_2405.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:36037B208E77A027F3E3984079C4FE84E65BD2EC
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2406.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2406.jpgsave_picture_2406.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:C55455B448446E220B6518662A503F00CFDE4A8F
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2407.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2407.jpgsave_picture_2407.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:6DAC0E2C7734CFE937E39DF48A1188DA82F79A92
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2408.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2408.jpgsave_picture_2408.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:34598212E2681C412A155435712B69E57E53EFBE
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2409.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2409.jpgsave_picture_2409.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:C0C5BDF8B69023D730040F33DB175DF7381A9B04
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2410.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2410.jpgsave_picture_2410.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ Cyberdawn, Олег Сапфир | Цикл "Инженерный Парадок
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2411.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2411.jpgsave_picture_2411.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ OpenAI сканирует разговоры и в некоторых случа
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2412.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2412.jpgsave_picture_2412.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ OpenAI сканирует разговоры и в некоторых случа
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2413.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2413.jpgsave_picture_2413.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:322551B002A299C655B55306EA559C8A233B0939
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2414.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2414.jpgsave_picture_2414.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:A2413D7838F131B5582D47ACA8D755F0060349E3
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2415.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2415.jpgsave_picture_2415.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ American Truck Simulator (2016) [Ru/Multi] (1.56.1.0s/dlc) Repack dixen18
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2416.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2416.jpgsave_picture_2416.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ JETRUNNER (2025) [Ru/Multi] (1.0.4/dlc) Repack Let'sРlay [Founders Edition]
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2417.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2417.jpgsave_picture_2417.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Monster Energy Supercross 25 - The Official Video Game (2025) [Multi] (1585442/d
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2418.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2418.jpgsave_picture_2418.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Five Nights at Freddy's: Secret of the Mimic (2025) [Ru/Multi] (1.0.20250826) Re
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2419.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2419.jpgsave_picture_2419.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ magnet:?xt=urn:btih:3DE010C6911D8E44167B10A5EFBD85178D7D01AC
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2420.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2420.jpgsave_picture_2420.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:99A686493DD738AD9A2B89E1DFA7FF4B60BC05B5
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2421.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2421.jpgsave_picture_2421.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ IObit Driver Booster Pro 13.0.0.138 RePack (& Portable) by elchupacabra [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2422.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2422.jpgsave_picture_2422.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:7B5FBCF132726E5762C2EAE54514CC74A3699A6C
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2423.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2423.jpgsave_picture_2423.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Tempest Rising (2025) [Ru/Multi] (1.4.0+50185/dlc) Repack Let'sРlay [Deluxe Edi
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2424.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2424.jpgsave_picture_2424.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Kingdom Come: Deliverance II (2025) [Ru/Multi] (1.4/dlc) Repack Decepticon [Gold
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2425.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2425.jpgsave_picture_2425.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ magnet:?xt=urn:btih:CCA0E3BCF8EB55A54F2282A12BBF22939C3F439C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2426.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2426.jpgsave_picture_2426.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ KIBORG (2025) [Ru/Multi] (20 2.50.9_15:1:60) Repack Let'sРlay
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2427.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2427.jpgsave_picture_2427.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ magnet:?xt=urn:btih:2E8D0259196017FDD32B2C0D3FFF171E927854EE
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2428.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2428.jpgsave_picture_2428.jpg" />
 </div>
 
 

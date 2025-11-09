@@ -6,7 +6,7 @@
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83552.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83552.jpgsave_picture_83552.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:DA93529CB4EBAA8BBAE1357A86C79D51F3FCE633
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83553.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83553.jpgsave_picture_83553.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:DA93529CB4EBAA8BBAE1357A86C79D51F3FCE633
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83555.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83555.jpgsave_picture_83555.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:1F5DCDBEE6769661511906ED96E5837D9B614400
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83557.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83557.jpgsave_picture_83557.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:1F5DCDBEE6769661511906ED96E5837D9B614400
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83558.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83558.jpgsave_picture_83558.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:1F5DCDBEE6769661511906ED96E5837D9B614400
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83560.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83560.jpgsave_picture_83560.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Yesterday / Yesterday: Печать Люцифера [Ru] (RePack) 2012 | Fenixx
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83561.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83561.jpgsave_picture_83561.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:29E617CB559A1A86FF1E8286F79E08889C1968C7
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83562.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83562.jpgsave_picture_83562.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:8D5FC6DF10164E17F55E4A4D9581C0875993BA13
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83564.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83564.jpgsave_picture_83564.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:8D5FC6DF10164E17F55E4A4D9581C0875993BA13
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83565.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83565.jpgsave_picture_83565.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:8D5FC6DF10164E17F55E4A4D9581C0875993BA13
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83566.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83566.jpgsave_picture_83566.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ magnet:?xt=urn:btih:56E3C4ACEC4BE444898E1C5FDD41B43466BE5971
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83567.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83567.jpgsave_picture_83567.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ magnet:?xt=urn:btih:F65F4C1BC904038429F49336332BEC0DD633E885
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83568.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83568.jpgsave_picture_83568.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ magnet:?xt=urn:btih:A3262B0EB247727CD1E1C6276D3403BAE014AC1E
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83569.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83569.jpgsave_picture_83569.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Counter-Strike: Source [Ru/Multi11] (RePack/34) 2004 | PyCc-TeaM
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83570.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83570.jpgsave_picture_83570.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ magnet:?xt=urn:btih:C1A2A5C4B51583B3938AD188EA2D9884801AEBBD
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83571.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83571.jpgsave_picture_83571.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ Microsoft Windows 7 Ultimate Ru x64 SP1 WPI Boot by OVGorskiy 16.03.2012
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83572.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83572.jpgsave_picture_83572.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Microsoft Windows 7 Ultimate Ru x64 SP1 WPI Boot by OVGorskiy 16.03.2012
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83575.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83575.jpgsave_picture_83575.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ magnet:?xt=urn:btih:83C209545645D2351F22D3B220D6B310435842B4
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83577.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83577.jpgsave_picture_83577.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ Windows Live Essentials 2011 15.4.3555.308 (Offline-Installer) [Русский/�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83578.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83578.jpgsave_picture_83578.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Offline-установщик предназначен для установки 
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83580.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83580.jpgsave_picture_83580.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ SkyMonk 1.71 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83582.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83582.jpgsave_picture_83582.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ Sony Picture Motion Browser update to 5.8 5.8.01 [русский, английс
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83584.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83584.jpgsave_picture_83584.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ Yesterday / Yesterday: Печать Люцифера [Ru] (RePack/1.0.0.1) 2012|
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83585.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83585.jpgsave_picture_83585.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ magnet:?xt=urn:btih:D90C643B5EBA751079661B68A691679C72E0B016
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83587.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83587.jpgsave_picture_83587.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ magnet:?xt=urn:btih:D90C643B5EBA751079661B68A691679C72E0B016
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83590.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83590.jpgsave_picture_83590.jpg" />
 </div>
 
 

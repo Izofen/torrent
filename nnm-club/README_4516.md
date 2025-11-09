@@ -6,7 +6,7 @@ Kim Salmon & Spencer P. Jones - Runaways (2013) [FLAC|Lossless|tracks] <Rock, Sw
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141266.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141266.jpgsave_picture_141266.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:0705BCB55967ACE4802F9E47FBBF6AAEB00F7E5F
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141267.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141267.jpgsave_picture_141267.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:6E769092C8FA1862E498912A92B1FE54327ADABF
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141268.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141268.jpgsave_picture_141268.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:F38C630B2D20F16558422FDFD8FF5B90E2FA1F3B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141269.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141269.jpgsave_picture_141269.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ VA - Record Super Chart 2019 Итоговый [MP3|320 Kbps] <Pop, House, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141270.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141270.jpgsave_picture_141270.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ magnet:?xt=urn:btih:A5F3027EB2E022334ADFEA4FB75EDC41092190DB
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141271.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141271.jpgsave_picture_141271.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:D6285412A638CDCE6F1E2D3E4E50502063136BB5
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141273.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141273.jpgsave_picture_141273.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ AIMP 4.50 Build 2058 Final RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141275.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141275.jpgsave_picture_141275.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:1A8AA8B2BBF64816486BA2EFACE4C3C6AA2A2FC0
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141276.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141276.jpgsave_picture_141276.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ Knights of Honor II: Sovereign (2022) [Ru/Multi] (2.0) Repack dixen18
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141277.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141277.jpgsave_picture_141277.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ magnet:?xt=urn:btih:B2013CB94011E497A73044E0E74D7C13B67C2AFD
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141279.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141279.jpgsave_picture_141279.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ VA - Goodnight Music Playlist: A Peaceful Chillout Goodnight Sleep (2016) [MP3|3
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141280.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141280.jpgsave_picture_141280.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ magnet:?xt=urn:btih:B2D625472C62AAB8C948FF5EABEC92E5F58E8C24
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141281.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141281.jpgsave_picture_141281.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Kingsman: Золотое кольцо / Kingsman: The Golden Circle (2017) BDRem
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141282.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141282.jpgsave_picture_141282.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ magnet:?xt=urn:btih:9B4C33941F54F8BCF84B5E7A49DD579D542F1E00
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141283.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141283.jpgsave_picture_141283.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ VA - The Official UK Top 40 Singles Chart 28.12.2018 (2018) [MP3|320 Kbps] <Pop,
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141286.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141286.jpgsave_picture_141286.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ magnet:?xt=urn:btih:EB22C0F19FBC46471FD81A9E74D85E4E2C888F96
 >>Книжная иллюстрация
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141287.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141287.jpgsave_picture_141287.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ CCleaner 6.18.10838 Free / Pro / Business / Technician Edition RePack (& Portabl
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141288.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141288.jpgsave_picture_141288.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ uTorrent Pro v6.6.7 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141289.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141289.jpgsave_picture_141289.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ DiskDigger 1.20.9.2683 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141290.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141290.jpgsave_picture_141290.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ XYplorer 20.60.0300 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141291.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141291.jpgsave_picture_141291.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ magnet:?xt=urn:btih:4899D815524A9461AA6FCF1321E1A4BD12A0A377
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141292.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141292.jpgsave_picture_141292.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ VA - Focus Me: Lounge (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141293.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141293.jpgsave_picture_141293.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ magnet:?xt=urn:btih:4F67E1E5338154EACAD2B0ACAA81E8B4C8AF9B21
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141296.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141296.jpgsave_picture_141296.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ magnet:?xt=urn:btih:8D2C4B2EE08D91688209302CB690ACFA84FB47C7
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141297.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141297.jpgsave_picture_141297.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Shoujo Shuumatsu Ryokou | Поход девочек после конца све
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141298.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141298.jpgsave_picture_141298.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114547.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114547.jpgsave_picture_114547.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:1D1175AAC9DBAB60E76CAC8C67EF02799B84AFFE
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114548.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114548.jpgsave_picture_114548.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:1D1175AAC9DBAB60E76CAC8C67EF02799B84AFFE
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114549.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114549.jpgsave_picture_114549.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:8B3174521BCB7096FAB49A23770A6405BF83A33D
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114550.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114550.jpgsave_picture_114550.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:9F20E08645B083DD61880CD698CFE6E6E45A9815
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114551.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114551.jpgsave_picture_114551.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:9F20E08645B083DD61880CD698CFE6E6E45A9815
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114552.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114552.jpgsave_picture_114552.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:2688176A913E6FE9986FEB4F4A6A8F33AE0B8BC1
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114553.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114553.jpgsave_picture_114553.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:E8E51B45B13C1B1FAEA30E2D5D4DA06F89D241B4
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114554.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114554.jpgsave_picture_114554.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:0C8816538E65AEA22D9D47A81ACE79163A39BE36
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114555.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114555.jpgsave_picture_114555.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:FB7B1377734F47A601A50C4BA1813F6F8793C845
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114556.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114556.jpgsave_picture_114556.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Kodi 20.5 (Nexus) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114557.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114557.jpgsave_picture_114557.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:6A8004857728B73FE0304719A3552598765EBAA6
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114558.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114558.jpgsave_picture_114558.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ f.lux v4.134 [En]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114559.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114559.jpgsave_picture_114559.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ magnet:?xt=urn:btih:AC7005C1D870AFCA1F217C4D38CA9877168BD2F1
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114560.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114560.jpgsave_picture_114560.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ magnet:?xt=urn:btih:51875BBF93AE678355FF603BD80067F11E07AEBE
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114561.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114561.jpgsave_picture_114561.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ Duolingo: изучай языки 5.141.2 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114562.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114562.jpgsave_picture_114562.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ magnet:?xt=urn:btih:03C7E03DE04AD4C3C2A0D329D44F678CFF0F5BDB
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114563.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114563.jpgsave_picture_114563.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ magnet:?xt=urn:btih:03C7E03DE04AD4C3C2A0D329D44F678CFF0F5BDB
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114564.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114564.jpgsave_picture_114564.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ mp3Tag Pro 12.1 [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114565.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114565.jpgsave_picture_114565.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ magnet:?xt=urn:btih:DF04C075EF95F190C4CEF996632A25E4AAF25877
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114566.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114566.jpgsave_picture_114566.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Beyond the Fringe (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114567.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114567.jpgsave_picture_114567.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ magnet:?xt=urn:btih:34374D7FD02145CBA7F3D42EAAD19ED8780441E8
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114568.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114568.jpgsave_picture_114568.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ magnet:?xt=urn:btih:0C3CE851DB1741BE7BBE5A73EA7D0C546CE7A92A
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114569.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114569.jpgsave_picture_114569.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ magnet:?xt=urn:btih:B0CAC8B375AB5A1DA8895CA83E283652770EA6BC
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114570.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114570.jpgsave_picture_114570.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ magnet:?xt=urn:btih:6DDD1D8A046F9A560807F695F498F7E39D70286B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114571.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114571.jpgsave_picture_114571.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Intra (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114572.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114572.jpgsave_picture_114572.jpg" />
 </div>
 
 

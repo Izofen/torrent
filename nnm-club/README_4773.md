@@ -6,7 +6,7 @@
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149365.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149365.jpgsave_picture_149365.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:8FA541B44965DEAA069DC6373614625A7CCBE9D3
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149366.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149366.jpgsave_picture_149366.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:5D877B502DC59A2DE85B3E68F63DE31F1FB9A974
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149367.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149367.jpgsave_picture_149367.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:45B415B0B25931B4657FBB42DAC6D63D43988640
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149368.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149368.jpgsave_picture_149368.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ magnet:?xt=urn:btih:E453872E0E260BDFDB4D813E96AB0328C80B9000
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149369.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149369.jpgsave_picture_149369.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ Wise Game Booster 1.5.3.77 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149370.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149370.jpgsave_picture_149370.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ Ani Tore! XX: Hitotsu Yane no Shita de / Тренировки с аниме! XX 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149371.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149371.jpgsave_picture_149371.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:F97B525537C972C82239D6416E8DC79E875A1679
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149372.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149372.jpgsave_picture_149372.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ MotoGP. Этап 19. Гран-при Катара. Спринт (18.11.2023) WEB
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149373.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149373.jpgsave_picture_149373.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:DAEDE9B020CBDD26CDC341ED1FA6D1A3ECE4DBDA
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149375.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149375.jpgsave_picture_149375.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:3D251726F3045FB082090285F317BCC4573A9206
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149376.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149376.jpgsave_picture_149376.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ magnet:?xt=urn:btih:93E476B09E854E19098621B84F051387AE8493E9
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149379.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149379.jpgsave_picture_149379.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ magnet:?xt=urn:btih:4DF6AEC983799160B1A89432CA425622F635750E
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149380.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149380.jpgsave_picture_149380.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Frank Zappa - Over-Nite Sensation (1973) 50th Anniversary, 2023, Frank Zappa Cat
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149381.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149381.jpgsave_picture_149381.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ magnet:?xt=urn:btih:6869F66A162C8EDD313A446972FDFB6C2D4D2C18
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149383.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149383.jpgsave_picture_149383.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ magnet:?xt=urn:btih:06AAC5A6675356010E4897187A25A96449145E7A
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149384.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149384.jpgsave_picture_149384.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ magnet:?xt=urn:btih:AC2DE5A3EDB8FD592EECF13589F7D66125B90A58
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149385.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149385.jpgsave_picture_149385.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ magnet:?xt=urn:btih:9E0A0A729155465D1EF69AF335C668D6D6B020FE
 >>КВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149386.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149386.jpgsave_picture_149386.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ VA - Covers Mix (2015) [MP3|320 кб/с] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149387.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149387.jpgsave_picture_149387.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ Hopper Disassembler 4.0.8 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149389.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149389.jpgsave_picture_149389.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ magnet:?xt=urn:btih:0EEB941862D66BF9968FF2E22A611A0DC5C97168
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149390.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149390.jpgsave_picture_149390.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Jewel - Spirit (1998) Deluxe Edition, 2023, Craft Recordings [FLAC 24/48|Lossles
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149391.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149391.jpgsave_picture_149391.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ magnet:?xt=urn:btih:938F9EF1BCB35DA2C9EC017E4D8033972169A022
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149394.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149394.jpgsave_picture_149394.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ magnet:?xt=urn:btih:4BEE19D903A2F259B69C9B1F02F6BF3D99DA11F7
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149395.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149395.jpgsave_picture_149395.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ magnet:?xt=urn:btih:B1953E589BAD74DB7A23D835BF41A84BB7C33AA5
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149396.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149396.jpgsave_picture_149396.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ Nightwolf - The Cult of the Wolf (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149397.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149397.jpgsave_picture_149397.jpg" />
 </div>
 
 

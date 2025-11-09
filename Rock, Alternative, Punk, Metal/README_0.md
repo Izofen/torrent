@@ -6,7 +6,7 @@ Esoterica - Ether Metal (2025) [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1770.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1770.jpgsave_picture_1770.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Isen - Zaklinani posledni zimy (2025) [FLAC|Lossless|WEB-DL|tracks] <Melidic Bla
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1779.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1779.jpgsave_picture_1779.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Ravager - From Us With Hate (2025) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1783.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1783.jpgsave_picture_1783.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Paradise Lost - Ascension (2025) [FLAC|Lossless|image + .cue] <Death Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1788.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1788.jpgsave_picture_1788.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Black Sabbath - Greatest Hits Broadcast Collection (2025) [FLAC|Lossless|WEB-DL|
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1883.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1883.jpgsave_picture_1883.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Arjen Anthony Lucassen - Songs No One Will Hear (2025) [MP3|320 Kbps] <Prog Rock
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1953.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1953.jpgsave_picture_1953.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Electric Land - Love 67 (2025) [MP3|320 Kbps] <Hard Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1955.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1955.jpgsave_picture_1955.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Surgical Steel - Cranck It Up! (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1957.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1957.jpgsave_picture_1957.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Black Satellite - Aftermath (2025) [MP3|320 Kbps] <Alternative Metal, Industrial
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1964.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1964.jpgsave_picture_1964.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Paradise Lost - Ascension (2025) [MP3|320 Kbps] <Doom Metal, Death Metal, Gothic
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1965.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1965.jpgsave_picture_1965.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Ward XVI - Identity (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Avant-Garde
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1969.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1969.jpgsave_picture_1969.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Grayceon - Then the Darkness (2025) [FLAC|Lossless|WEB-DL|tracks] <Progressive M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1970.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1970.jpgsave_picture_1970.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Paradise Lost - Ascension (2025) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal, Deat
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1989.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1989.jpgsave_picture_1989.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ magnet:?xt=urn:btih:F2B470FD597F867B0E01AE917C5EC28EFA7BFC15
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2070.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2070.jpgsave_picture_2070.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Moss Upon The Skull - Quest For The Secret Fire (2024) [MP3|320 Kbps] <Death Met
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2138.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2138.jpgsave_picture_2138.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Moss Upon The Skull - Quest For The Secret Fire (2024) [FLAC|Lossless|WEB-DL|tra
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2143.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2143.jpgsave_picture_2143.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Novembers Doom - Major Arcana (2025) [MP3|320 Kbps] <Doom Metal, Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2295.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2295.jpgsave_picture_2295.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Chasing Demons - Echoes from the Past (2025) [FLAC|Lossless|WEB-DL|tracks] <Heav
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2297.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2297.jpgsave_picture_2297.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:227695AF548611BF680393149F22923C3FB856CB
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2346.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2346.jpgsave_picture_2346.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Sweet Savage - Bang (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2448.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2448.jpgsave_picture_2448.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Dreamlord - Artificial Imprisonment (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2449.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2449.jpgsave_picture_2449.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Airborn - Lizard Secrets: Part 3 - Utopia (2025) [FLAC|Lossless|WEB-DL|tracks] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2462.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2462.jpgsave_picture_2462.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Helstar - The Devil's Masquerade (2025) [FLAC|Lossless|WEB-DL|tracks] <Power Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2471.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2471.jpgsave_picture_2471.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Dead End Tragedy - Electrical Impulses Of Hate (2025) [FLAC|Lossless|WEB-DL|trac
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2605.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2605.jpgsave_picture_2605.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ David Bowie - I Can't Give Everything Away (2002 - 2016) (2025) Reissue, Remaste
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2617.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2617.jpgsave_picture_2617.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Deep Purple - Made In Japan (1972) 5 x CD, Reissue, 2025, Warner Records LLC [FL
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2664.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2664.jpgsave_picture_2664.jpg" />
 </div>
 
 

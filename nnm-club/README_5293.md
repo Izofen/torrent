@@ -6,7 +6,7 @@ EdgeView 3 v.3.8.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164427.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164427.jpgsave_picture_164427.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:7E244769AC99F184C19DFD14F980261ECF2D2EF2
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164428.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164428.jpgsave_picture_164428.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:BB706694D8D1F7C9B51F5B84301964996907106A
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164429.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164429.jpgsave_picture_164429.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Bow - City Race (2022) [FLAC|Lossless|WEB-DL|tracks] <Groove Metal, Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164430.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164430.jpgsave_picture_164430.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:CC5F993E2C7DAD00B422A2878F44F92DA7AACE38
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164431.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164431.jpgsave_picture_164431.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Feeder 4 v.4.4.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164432.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164432.jpgsave_picture_164432.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:A5023C6219B7670A69447F1619510E4A8AB6D4ED
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164433.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164433.jpgsave_picture_164433.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:884BE30838E4E6A8439F31B4ECF6E946F04C40A9
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164434.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164434.jpgsave_picture_164434.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ VA - FSOE 700 - Rise Up (Mixed by Fuenka & Paul Denton) (2021) [MP3|320 Kbps] <T
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164435.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164435.jpgsave_picture_164435.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ VA - Chillout King Ibiza: Welcome 2 My Island (2014) [AAC|~343 Kbps] <Lounge, Ch
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164436.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164436.jpgsave_picture_164436.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ magnet:?xt=urn:btih:9681B2AB40FDC45DA5AF4F3FE403CD377696701D
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164437.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164437.jpgsave_picture_164437.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ Crimson Cry - Playing Gods (2020) [MP3|320 Kbps] <Progressive Power Metal>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164438.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164438.jpgsave_picture_164438.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ Empyrios - Zion (2013) [FLAC|Lossless|image + .cue] <Progressive Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164439.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164439.jpgsave_picture_164439.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ magnet:?xt=urn:btih:A21C2E1EA8E37FFFD314017DC57AFF651A015E05
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164440.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164440.jpgsave_picture_164440.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ Chicane - Everything We Had To Leave Behind (Back Pedal Brakes Remixes) (2021) [
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164441.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164441.jpgsave_picture_164441.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ magnet:?xt=urn:btih:0D1D5157406B0C95346B0A16DD84D4CD4A731E4F
 >>Прочие зимние виды спорта
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164442.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164442.jpgsave_picture_164442.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ Wondershare Filmora 9 v9.3.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164443.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164443.jpgsave_picture_164443.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Van Morrison & The Chieftains - Irish Heartbeat (1988) [FLAC|Lossless|tracks + .
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164444.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164444.jpgsave_picture_164444.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ VA - Beatport Electro House: Sound Pack #211 (2020) [MP3|320 Kbps] <Club, Dance,
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164445.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164445.jpgsave_picture_164445.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ ELEX II (2022) [Ru/Multi] (1.05c) License GOG
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164446.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164446.jpgsave_picture_164446.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ VA - Apres Ski Party Hits 2020 (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164447.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164447.jpgsave_picture_164447.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Riccardo Cocciante - - ... Je Chante (1999) [FLAC|Lossless|image + .cue] <Pop, C
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164448.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164448.jpgsave_picture_164448.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ magnet:?xt=urn:btih:BE099C261E7A3BDFEB7A485AF0F1A468DFBED55B
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164449.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164449.jpgsave_picture_164449.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ magnet:?xt=urn:btih:7D27A0035368CF506EDFCCE56A01A2BA2028ED1B
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164450.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164450.jpgsave_picture_164450.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ magnet:?xt=urn:btih:FA2C2CB880C85E32CDEE5A732EC56E9D646744CE
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164451.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164451.jpgsave_picture_164451.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Seal 1.11.0-rc.1 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164452.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164452.jpgsave_picture_164452.jpg" />
 </div>
 
 

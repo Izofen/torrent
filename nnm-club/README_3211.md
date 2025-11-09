@@ -6,7 +6,7 @@ Alison Moyet (Ex. Yazoo) - Key (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop, SynthP
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103833.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103833.jpgsave_picture_103833.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ magnet:?xt=urn:btih:BEA5FC833CD16561FD4836A03AD6FDDF7B27FB87
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103834.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103834.jpgsave_picture_103834.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:F4EC753BFBAA57A6538ACFC1B8F91E488B865A35
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103835.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103835.jpgsave_picture_103835.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ magnet:?xt=urn:btih:294C376474EE80D93F881552F34E2FC94DCAB6E4
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103836.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103836.jpgsave_picture_103836.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ magnet:?xt=urn:btih:E848E7AE9BF14EF45865D601984279D7B2038E0E
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103837.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103837.jpgsave_picture_103837.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ magnet:?xt=urn:btih:21210B2900D5B1D691C61702B30536219629226A
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103838.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103838.jpgsave_picture_103838.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ magnet:?xt=urn:btih:3D24AAECCB8D1E0AB3434D6297F80E79BC505567
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103839.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103839.jpgsave_picture_103839.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ magnet:?xt=urn:btih:DB58C98CA3ED01F3F67F9A61B0EE7B93504915E4
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103840.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103840.jpgsave_picture_103840.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Army Of Lovers - Massive Luxury Overdose  (1991) [FLAC|Lossless|tracks + .cue] <
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103841.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103841.jpgsave_picture_103841.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ magnet:?xt=urn:btih:2F572ED61374D8F86B2A645ADD22BC4E85C88618
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103842.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103842.jpgsave_picture_103842.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Exif Pilot 6.25.1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103843.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103843.jpgsave_picture_103843.jpg" />
 </div>
 
 
@@ -291,7 +291,7 @@ Jimi Hendrix - Electric Lady Studios: A Jimi Hendrix Vision (2024) 3CD [MP3|320 
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103845.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103845.jpgsave_picture_103845.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ magnet:?xt=urn:btih:C381175BCF66382CA9157A8D0E28A1FE1C24839C
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103847.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103847.jpgsave_picture_103847.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ magnet:?xt=urn:btih:6A5A2455B3857713BBDB278058C481B5D564E414
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103848.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103848.jpgsave_picture_103848.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ RJ TextEd 16.31 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103849.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103849.jpgsave_picture_103849.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ magnet:?xt=urn:btih:D7D0DE68F12913FF2C0AE35EFB5637BB41338AA0
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103850.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103850.jpgsave_picture_103850.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ KDRR - Деконструкция (2024) [MP3|320 Kbps] <Punk Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103851.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103851.jpgsave_picture_103851.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ magnet:?xt=urn:btih:8A3EBA79ACAD152FBD7CEA5AD513C4FC7CED89A9
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103852.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103852.jpgsave_picture_103852.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ VA - Armin van Buuren - A State Of Trance 1193 (2024) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103853.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103853.jpgsave_picture_103853.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ magnet:?xt=urn:btih:0D551302EB73567D35DADC81C52EC1E4ED902A9B
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103854.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103854.jpgsave_picture_103854.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ King Of The World - Get Up, Get Down & Get With It (2024) [FLAC 24/44.1|Lossless
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103855.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103855.jpgsave_picture_103855.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ magnet:?xt=urn:btih:D8DF7F4FE68882A0C1E7B014D85271EFC845349C
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103856.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103856.jpgsave_picture_103856.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Toby Lee - House On Fire (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103857.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103857.jpgsave_picture_103857.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ Chick Corea / Miroslav Vitous - Tones for Joan's Bones & Mountain in the Clouds 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103858.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103858.jpgsave_picture_103858.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ Jeanie Lambe And The Danny Moss Quartet - The Blue Noise Session (1999) Nagel He
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103859.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103859.jpgsave_picture_103859.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ magnet:?xt=urn:btih:4C24BBF4A06FA2C8D4C078E46B3CADF2A125963A
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103860.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103860.jpgsave_picture_103860.jpg" />
 </div>
 
 

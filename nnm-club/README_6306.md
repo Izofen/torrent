@@ -6,7 +6,7 @@ Natsu e no Tunnel, Sayonara no Deguchi | The Tunnel to Summer, the Exit of Goodb
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197566.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197566.jpgsave_picture_197566.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:83C95300E0ADA533580B4C258B8E8CDC68C0C485
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197567.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197567.jpgsave_picture_197567.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:213CCB0B088E03846639BECDDCE847290A286174
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197568.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197568.jpgsave_picture_197568.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:28A46F7416CF29E1D55AD34758842B782B02A968
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197569.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197569.jpgsave_picture_197569.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:54C1ED33823B41761671E3EADFBAEFF7F7C6CF61
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197570.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197570.jpgsave_picture_197570.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Apeiron, Алексей Арестович | Семинар «Дисциплин
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197571.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197571.jpgsave_picture_197571.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Andbery Cinematography, Андрей Береснев | PRO.СВЕТ (2020) WEB-
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197572.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197572.jpgsave_picture_197572.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:F1EF30C0F4F88656BE060E0C240827290E10AEFC
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197573.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197573.jpgsave_picture_197573.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:6C4FC7DE674EE3663AE3448A0ABD448171EF1681
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197574.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197574.jpgsave_picture_197574.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ magnet:?xt=urn:btih:040D9ECE35340CD83197A2E64FCEF5FD00EF96D9
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197575.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197575.jpgsave_picture_197575.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ Need for Speed: Жажда скорости / Need for Speed (2014) BDRemux [H.2
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197576.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197576.jpgsave_picture_197576.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ magnet:?xt=urn:btih:161FA01C6EF6069BBDB5C8EF355CDAAE4F665F72
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197578.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197578.jpgsave_picture_197578.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ liveclasses, Алексей Шадрин | Калибровка мониторо
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197579.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197579.jpgsave_picture_197579.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ magnet:?xt=urn:btih:392CFD9D4F524CBFB45F695BA6DE27E574532055
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197580.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197580.jpgsave_picture_197580.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ magnet:?xt=urn:btih:0179734E3B86425F4F6864BA2CBD069186B15C7F
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_197581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197581.jpgsave_picture_197581.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Apeiron, Алексей Арестович | Семинар «Ищите жен�
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197583.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197583.jpgsave_picture_197583.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ magnet:?xt=urn:btih:4478EAFADAE796E3AEE2324A8639F850AEB95C80
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197584.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197584.jpgsave_picture_197584.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ magnet:?xt=urn:btih:DB656243D5ECB845130629E5FA5C4CA97AB7AB7A
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197585.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197585.jpgsave_picture_197585.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ magnet:?xt=urn:btih:488A48FC8FE19E8D59659E5CD0B19E74F0B7A718
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197586.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197586.jpgsave_picture_197586.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ magnet:?xt=urn:btih:5B1A866844B11042AE213550CFF03D4A31C15735
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197587.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197587.jpgsave_picture_197587.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ magnet:?xt=urn:btih:B7AE4A27E786AAAC8DBEE87EF53F5FC6E93F95CF
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197589.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197589.jpgsave_picture_197589.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ magnet:?xt=urn:btih:3963C4E95C47428CF67DB4AC69C240F208BFD368
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197590.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197590.jpgsave_picture_197590.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ Shestov Systems, Михаил Шестов | Presentable Business English (2021)
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197591.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197591.jpgsave_picture_197591.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ Ben Harper - 17 альбомов (1994 - 2018) [FLAC|Lossless|tracks + .cue|imag
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_197592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197592.jpgsave_picture_197592.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Apeiron, Алексей Арестович | Семинар «Священная
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197593.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197593.jpgsave_picture_197593.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Railway Empire 2 (2023) [Ru/Multi] (1.0.0.51915/dlc) Scene Razor1911 [Digital De
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197594.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197594.jpgsave_picture_197594.jpg" />
 </div>
 
 

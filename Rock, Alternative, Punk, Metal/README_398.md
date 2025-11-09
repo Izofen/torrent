@@ -6,7 +6,7 @@ Edge of Paradise - Hologram (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232528.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232528.jpgsave_picture_232528.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Indefinite Decorum - Débutant (2023) [MP3|320 Kbps] <Symphonic Dark Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232533.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232533.jpgsave_picture_232533.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:58B585EE62B024897A33AB71A0833834B957FF1C
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232536.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232536.jpgsave_picture_232536.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Avatarium - Death, Where Is Your Sting (2022) [FLAC|Lossless|image + .cue] <Doom
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232541.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232541.jpgsave_picture_232541.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Lifesigns - Live In Netherlands (2023) [MP3|320 Kbps] <Neo-Progressive>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232544.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232544.jpgsave_picture_232544.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Night Legion - Fight Or Fall (2023) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232547.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232547.jpgsave_picture_232547.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ The Animal State - 3 Albums (2020-2023) [MP3|320 Kbps] <Progressive Metal, Rock>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232551.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232551.jpgsave_picture_232551.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ magnet:?xt=urn:btih:60FC6F3B9773090BE85273512EAEDC81EF5F9AD9
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232552.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232552.jpgsave_picture_232552.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Anima Tempo - Chaos Paradox (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232554.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232554.jpgsave_picture_232554.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Johnny The Boy - You (2023) [MP3|320 Kbps] <Blackened Sludge, Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232555.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232555.jpgsave_picture_232555.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Snowblind - Behind The Snow (2023) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232558.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232558.jpgsave_picture_232558.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Monje - Culto al Fin de los Tiempos (2023) [FLAC|Lossless|WEB-DL|tracks] <Stoner
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232562.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232562.jpgsave_picture_232562.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Sulfure - Anthropocene (2023) [MP3|320 Kbps] <Death, Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232567.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232567.jpgsave_picture_232567.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Eleanore Begin - 3 Albums (2016-2023) [MP3|320 Kbps] <Alternative Metal, Alterna
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232573.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232573.jpgsave_picture_232573.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Structure - Structure (2022) EP, Remastered [FLAC|Lossless|WEB-DL|tracks] <Atmos
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232574.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232574.jpgsave_picture_232574.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Cadaveria - Collection (2002 - 2022) 6CD [WavPack|Lossless|image + .cue] <Gothic
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232580.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232580.jpgsave_picture_232580.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ A Gram Trip - Long Overdue (2023) [MP3|320 Kbps] <Stoner, Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232582.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232582.jpgsave_picture_232582.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Acromancer - Acromancer (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Psych, Stone
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232586.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232586.jpgsave_picture_232586.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Stormhaven - Blindsight (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Death 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232588.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232588.jpgsave_picture_232588.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Rune - The End of Nothing (2003) [FLAC|Lossless|tracks] <Technical Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232595.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232595.jpgsave_picture_232595.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Suffer - Global Warming (1993) EP [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232597.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232597.jpgsave_picture_232597.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:BC1C50E6AF89B679E349ED6012715B3FC8442092
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232598.jpgsave_picture_232598.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Nocturnal Breed - Carry The Beast (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232606.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232606.jpgsave_picture_232606.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Eye of the Atlas - Eye of the Atlas (2023) [FLAC|Lossless|WEB-DL|tracks] <Altern
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232611.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232611.jpgsave_picture_232611.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Chaos Descent - The Blurry End of an Era (2023) [MP3|320 Kbps] <Melodic Death Me
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232616.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232616.jpgsave_picture_232616.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Runemagick - Beyond the Cenotaph of Mankind (2023) [FLAC|Lossless|WEB-DL|tracks]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232618.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232618.jpgsave_picture_232618.jpg" />
 </div>
 
 

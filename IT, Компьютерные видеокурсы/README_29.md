@@ -6,7 +6,7 @@ Babok-school, Анна Вичугова | Основы архитектуры и
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189116.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189116.jpgsave_picture_189116.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Kitze | Zero To Shipped (2023) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189182.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189182.jpgsave_picture_189182.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Laravelcreative.ru | Laravel 10 Vue 3 Inertia SPA Вебсокет чат (2023)
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189545.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189545.jpgsave_picture_189545.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Laravelcreative.ru | Excel Import Laravel Inertia Vue Tailwind [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189568.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189568.jpgsave_picture_189568.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Udemy, Abbass Masri | Mastering Jetpack Compose: Building Dynamic User Interface
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189623.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189623.jpgsave_picture_189623.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Laravelcreative.ru | Социальная сеть SPA Laravel 9 vue 3 Tailwind 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190288.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190288.jpgsave_picture_190288.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Udemy, Илья Фофанов, Валерий Павликов | Изучаем
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190718.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190718.jpgsave_picture_190718.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:8B3C17ED0790C55D224394776A16520DB9E20255
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190728.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190728.jpgsave_picture_190728.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ HYPE4 Academy | Подборка курсов по UI и web-дизайну (202
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190808.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190808.jpgsave_picture_190808.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ Laravelcreative.ru | Laravel 9: Базовый подробный курс (2023
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191340.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191340.jpgsave_picture_191340.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ Udemy, Very Academy, Zander | Full Stack - React Django DRF Channels Project - d
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191405.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191405.jpgsave_picture_191405.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ Thinknetica Pro, Анна Буянова | Старый Добрый Код: к�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191721.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191721.jpgsave_picture_191721.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ Udemy, Learn IT University, Andrii Piatakha | Object Oriented Programming - Basi
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191745.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191745.jpgsave_picture_191745.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ Yan Cui | AppSync Masterclass (Premium) (2023) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191839.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191839.jpgsave_picture_191839.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Talkpython | Подборка курсов по FastAPI (2021-2022) WEB-DL [EN /
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192038.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192038.jpgsave_picture_192038.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Udemy, Ines Ivanova-Kenova | Complete FastAPI REST course + AWS + Emails + Payme
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192050.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192050.jpgsave_picture_192050.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Amy Dutton | Everything Svelte (Complete package) (2023) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192097.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192097.jpgsave_picture_192097.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ magnet:?xt=urn:btih:B41723F6CC9E50E67777A9B2836835A3FEE9E543
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192469.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192469.jpgsave_picture_192469.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ OTUS, Александр Ключев | C++ Developer. Professional. Углуб�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192477.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192477.jpgsave_picture_192477.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Fillthegaps, Яковлева Диана | Многопоточное прогр
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192482.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192482.jpgsave_picture_192482.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ QA.GURU, Артём Eрошенко, Aлексей Виноградов, Ром�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192488.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192488.jpgsave_picture_192488.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Udemy, Dzianis Matveyenka (DMdev) | Computer Science on Java for Beginners (2023
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192490.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192490.jpgsave_picture_192490.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ magnet:?xt=urn:btih:86A4B4590119969666ED6AE1D73C958A08537DB3
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192492.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192492.jpgsave_picture_192492.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Skillfactory, Михаил Королев | Data Engineering (2023) WEB-DL [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192500.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192500.jpgsave_picture_192500.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Udemy, Dzianis Matveyenka (DMdev) | Beginner's Guide to Groovy for Java Devs (20
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192524.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192524.jpgsave_picture_192524.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ Filab, Діма Малєєв, Кріс Косик | Engineering Management (2023
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192592.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192592.jpgsave_picture_192592.jpg" />
 </div>
 
 

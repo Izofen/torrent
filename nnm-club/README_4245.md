@@ -6,7 +6,7 @@ VA - Christmas Party Lights (2012) [MP3|256 кб/с]<Pop, Vocal, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131645.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131645.jpgsave_picture_131645.jpg" />
 </div>
 
 
@@ -39,7 +39,7 @@ VA - Christmas Party Lights (2012) [MP3|256 кб/с]<Pop, Vocal, Dance>
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131646.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131646.jpgsave_picture_131646.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ magnet:?xt=urn:btih:2E44EBA4006756EBCADC7D5C0850A2C756D3EAA8
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131648.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131648.jpgsave_picture_131648.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:44B58C5DDF599662D0A944906FD9AD2236D2C81B
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131650.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131650.jpgsave_picture_131650.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ VA - Радио Шторм - NeРусский Шторм - 84 (2012) [MP3|128-32
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131651.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131651.jpgsave_picture_131651.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ magnet:?xt=urn:btih:5042476ED01B6ADED632E5C07B1FCA0AC846B3B9
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131652.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131652.jpgsave_picture_131652.jpg" />
 </div>
 
 
@@ -161,7 +161,7 @@ magnet:?xt=urn:btih:D24931B6CA2AFC013060AA775C674ECB52731DD4
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131654.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131654.jpgsave_picture_131654.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ magnet:?xt=urn:btih:2F7457A055405D469153328F3EEEC63D8FDB5A51
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131655.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131655.jpgsave_picture_131655.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ Supermium 119.0.6045.192 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131656.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131656.jpgsave_picture_131656.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ magnet:?xt=urn:btih:2D25698941515B976C873E6AD749DF028C6374B4
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131657.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131657.jpgsave_picture_131657.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Udemy, Mepi.pl Video Tutorials | Mastering Real-Time Animation in Unreal Engine:
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131658.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131658.jpgsave_picture_131658.jpg" />
 </div>
 
 
@@ -290,7 +290,7 @@ magnet:?xt=urn:btih:1D077F75D81D9B4360E660712672404A32A18118
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131659.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131659.jpgsave_picture_131659.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ magnet:?xt=urn:btih:DFD3A257A0A7A008651FDD03C95B5BED17644F23
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131660.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131660.jpgsave_picture_131660.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ magnet:?xt=urn:btih:627A7A27EDFAB1C08813E237C37CCA2E1A21CD79
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131661.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131661.jpgsave_picture_131661.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ magnet:?xt=urn:btih:76A8D1BBCC37453AFBC38C13B25CD2CA18A758CE
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131662.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131662.jpgsave_picture_131662.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ magnet:?xt=urn:btih:8DC327472E6C274E55CB2F2327AF8743AE3889F1
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131664.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131664.jpgsave_picture_131664.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Waifu Fighter - Family Friendly (2023) [Multi] (20231116) Scene Tenoke
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131666.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131666.jpgsave_picture_131666.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ magnet:?xt=urn:btih:BDF4035AAF13458A9159057D9745EAF4A3216882
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131668.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131668.jpgsave_picture_131668.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ magnet:?xt=urn:btih:480C7B1B8A441F6F0D10DF2F50CA205867E1B81E
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131670.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131670.jpgsave_picture_131670.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ magnet:?xt=urn:btih:A994F7ADAF6AAD5B607CDB399583A7423DF749D7
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131671.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131671.jpgsave_picture_131671.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ magnet:?xt=urn:btih:FD3E76760BC7A4A59660AD865FF54A62908954BD
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131672.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131672.jpgsave_picture_131672.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ magnet:?xt=urn:btih:A3E8FDEBB80A91AB766DB538087D6E8F52852023
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131673.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131673.jpgsave_picture_131673.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ magnet:?xt=urn:btih:50069830EB3C09A319E34EAB6F3AAF4DFC60A8A0
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131675.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131675.jpgsave_picture_131675.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ magnet:?xt=urn:btih:C062610F5F87DCDB4FDB28965B282F57ADE175F5
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131676.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131676.jpgsave_picture_131676.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ NVIDIA GeForce Desktop Game Ready 546.31 Hotfix + DCH [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131678.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131678.jpgsave_picture_131678.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ Heaven Below - Falling From Zero (2012) [MP3|320 кб/с]<Hard Rock | Alternativ
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131679.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131679.jpgsave_picture_131679.jpg" />
 </div>
 
 

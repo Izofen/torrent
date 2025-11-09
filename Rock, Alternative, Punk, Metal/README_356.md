@@ -6,7 +6,7 @@ Beyond the Black - 9 Releases (2015-2023) [MP3|320 Kbps] <Symphonic Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203793.jpgsave_picture_203793.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Eric Clapton - The Definitive 24 Nights (Live) (1991) 3CD, 2023, Reissue, Repris
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203921.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203921.jpgsave_picture_203921.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Sisters - Leecheater (2023) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204006.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204006.jpgsave_picture_204006.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Six of Swords - Regime Decay-Polar Vortex (2019) Compilation, Raw Skull Recordz 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204010.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204010.jpgsave_picture_204010.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Morpheus Project By Mustafa Khetty - Mozaick (2021) Deluxe Edition, 2022, Morphe
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204012.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204012.jpgsave_picture_204012.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Xfears - Reasons for Change (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Progre
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204016.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204016.jpgsave_picture_204016.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Rito Verdugo - Kamikaze Boom (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Psych, 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204018.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204018.jpgsave_picture_204018.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Silence - Vision (1991) Reissue, 2021, Self-released [FLAC|Lossless|image + .cue
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204020.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204020.jpgsave_picture_204020.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Creepshow - Creepshow (2023) [FLAC|Lossless|WEB-DL|tracks] <Black, Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204022.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204022.jpgsave_picture_204022.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Built For The Future - 2084:Heretic (2023) [FLAC|Lossless|WEB-DL|tracks] <Progre
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204026.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204026.jpgsave_picture_204026.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ MaterialEyes - Inside Out (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204041.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204041.jpgsave_picture_204041.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Who Is She? - Goddess Energy (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative R
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204044.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204044.jpgsave_picture_204044.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Holding Absence - The Noble Art Of Self Destruction (2023) [FLAC|Lossless|WEB-DL
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204046.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204046.jpgsave_picture_204046.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Cam Cole - Unleash (2023) [FLAC|Lossless|WEB-DL|tracks] <Folk Rock, Delta Blues,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204057.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204057.jpgsave_picture_204057.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Siniestro - Vortexx (2021) [FLAC|Lossless|WEB-DL|tracks] <Black, Thrash Metal, P
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204058.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204058.jpgsave_picture_204058.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Nine Pound Hammer - Rock 'n' Roll Radio (2023) [FLAC|Lossless|WEB-DL|tracks] <Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204061.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204061.jpgsave_picture_204061.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Comedy of Errors - Threnody for a Dead Queen (2023) [FLAC|Lossless|tracks + .cue
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204063.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204063.jpgsave_picture_204063.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ AB/CD - Back 'n' Attack (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204075.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204075.jpgsave_picture_204075.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Metallica - Park City, UT - January 25 live (2006) [FLAC|Lossless|tracks] <Thras
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204102.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204102.jpgsave_picture_204102.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Peyton Parrish - Skalds of Metal (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock, Alt
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204107.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204107.jpgsave_picture_204107.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Geezer Butler - 3 Albums, 1 Box-set (1995-2021) [FLAC|Lossless|image + .cue] <He
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204198.jpgsave_picture_204198.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Wreckless Eric - Leisureland (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative R
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204205.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204205.jpgsave_picture_204205.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Das Lumpenpack - Wach (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204208.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204208.jpgsave_picture_204208.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Noveria - The Gates Of The Underworld (2023) [FLAC|Lossless|WEB-DL|tracks] <Prog
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204213.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204213.jpgsave_picture_204213.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ a Giant Dog - Bite (2023) [FLAC|Lossless|WEB-DL|tracks] <glam-punk>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204217.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204217.jpgsave_picture_204217.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Veritas - Silent Script (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Heavy 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204219.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204219.jpgsave_picture_204219.jpg" />
 </div>
 
 

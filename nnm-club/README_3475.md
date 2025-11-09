@@ -6,7 +6,7 @@
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110711.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110711.jpgsave_picture_110711.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:75C7C807B937FA8ACB9CA442F40F40D5791F6BB6
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110712.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110712.jpgsave_picture_110712.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Pixies - Surfer Rosa & Come On Pilgrim (1988) [FLAC|Lossless|tracks + .cue] <Alt
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110713.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110713.jpgsave_picture_110713.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:2A8569B71A43D95634A27EFBDEC3F84549BF5368
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110714.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110714.jpgsave_picture_110714.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:08157D562FE5152EEC449AD1DD8C66C098E3798B
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110715.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110715.jpgsave_picture_110715.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ VA - Luxury Lifestyle Classy Relaxing Jazz Instrumentals (2024) [FLAC|Lossless|W
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110716.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110716.jpgsave_picture_110716.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:D63E6B0E00EC2013334E7D2BB1628D685D802010
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110717.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110717.jpgsave_picture_110717.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:F8AB605655D974B638BCD47F9074E432004B0250
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110718.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110718.jpgsave_picture_110718.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ VA - Jump Up & Boogie: The New Swing Collection (1998) Elektra Entertainment [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110719.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110719.jpgsave_picture_110719.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ VA - Gartenparty - Rock (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110720.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110720.jpgsave_picture_110720.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ magnet:?xt=urn:btih:53DD3D06CC59C93F5B8CDD6D42D246889CCBBDEA
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110721.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110721.jpgsave_picture_110721.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ VA - Summer Jazzy Sounds (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110722.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110722.jpgsave_picture_110722.jpg" />
 </div>
 
 
@@ -314,7 +314,7 @@ VA - Summer Jazz & Soul (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110723.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110723.jpgsave_picture_110723.jpg" />
 </div>
 
 
@@ -341,7 +341,7 @@ Angel Da Rock - Теряя целый мир (2024) [FLAC|Lossless|WEB-DL|tracks
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110724.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110724.jpgsave_picture_110724.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ Neil Young & Crazy Horse - Fu##in' Up (2024) [FLAC 24/96|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110725.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110725.jpgsave_picture_110725.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ magnet:?xt=urn:btih:471A1B8F57FB8010999A17EC443A06DE79CF6584
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110726.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110726.jpgsave_picture_110726.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ reaConverter Pro 7.807 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110727.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110727.jpgsave_picture_110727.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ VA - Rock the world (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110728.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110728.jpgsave_picture_110728.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ magnet:?xt=urn:btih:B803E3939C6C9A9579C0A9C0102DB541DCFB6CAB
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110729.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110729.jpgsave_picture_110729.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ magnet:?xt=urn:btih:10AF09B198161E5C2A44A1B2DE5B809762ACCFCD
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110730.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110730.jpgsave_picture_110730.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ MotoGP. Этап 04 из 21. Гран-при Испании. Квалифика�
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110731.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110731.jpgsave_picture_110731.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ magnet:?xt=urn:btih:4295931F5AD0D67C414B90948B84C632F3A8B431
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110732.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110732.jpgsave_picture_110732.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ magnet:?xt=urn:btih:C38A60523B91E71CA9C96578AF81ED5918558FD5
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110733.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110733.jpgsave_picture_110733.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Wavesequencer - Hyperion 1.52 STANDALONE, VSTi 3 (x64) RePack by TCD [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110734.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110734.jpgsave_picture_110734.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ VA - Anjunabeats presents: Earth Day 2024 (DJ Mix) (2024) [MP3|320 Kbps] <Trance
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110735.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110735.jpgsave_picture_110735.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Plotnik82 - Мои барды (2024) [MP3|320 Kbps] <Rock, Electronic>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110736.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110736.jpgsave_picture_110736.jpg" />
 </div>
 
 

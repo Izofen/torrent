@@ -6,7 +6,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154238.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154238.jpgsave_picture_154238.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ VA - Best Car Xmas Edition 2019 (2018) Compiled by mCITY [MP3|320 Kbps] <Dance, 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154239.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154239.jpgsave_picture_154239.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:063346D34271EE39A5E6F68D4A7325018B0E140E
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154240.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154240.jpgsave_picture_154240.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:ABE3CF21D399327B3D0BBF1940A7920EC26387EF
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154241.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154241.jpgsave_picture_154241.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ SolarFlow - Imagine (2020) [AAC|~323 Kbps] <Electronic, Lounge, Chill Out, Enigm
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154242.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154242.jpgsave_picture_154242.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Gotthard - Firebirth (2012) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154243.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154243.jpgsave_picture_154243.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ VA - Heavy Metal Collections Vol. 17 (5CD) (2020) [MP3|320 Kbps] <Symphonic, Pow
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154244.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154244.jpgsave_picture_154244.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ The First Assembly - The Prolet Kult (2023) [MP3|320 Kbps] <Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154245.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154245.jpgsave_picture_154245.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ VA - Подставляйте ладони-я насыплю Вам солнца
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154246.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154246.jpgsave_picture_154246.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Maxthon Browser 5.2.7.100 beta + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154247.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154247.jpgsave_picture_154247.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ VA - Winter Relaxation, Vol. 1 (2019) [AAC|~329 Kbps] <Lounge, Chill Out, Downte
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154248.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154248.jpgsave_picture_154248.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ magnet:?xt=urn:btih:3C6EE5AE934F5FD1FA2C9F45CE5223CB7EF2164F
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154249.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154249.jpgsave_picture_154249.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ VA - Musik (Vanity Records) (1981/2019) Kyou Records | Reissue, Remastered [FLAC
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154250.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154250.jpgsave_picture_154250.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ magnet:?xt=urn:btih:5A90A2C6DE9C4E51C7A4867DBACE9D2A7959CD09
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154251.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154251.jpgsave_picture_154251.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ magnet:?xt=urn:btih:EA9951D4435A5ABC1DB9F07B22A600846E77BD49
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154252.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154252.jpgsave_picture_154252.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ Degreed - 4 альбома Discography (2010-2017) [FLAC|Lossless|image + .cue] 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154253.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154253.jpgsave_picture_154253.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ magnet:?xt=urn:btih:C19BD7FD917CD56773A1FAA9C6EA8A026F59313D
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154254.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154254.jpgsave_picture_154254.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ The Bat! Professional Edition 7.4.2 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154255.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154255.jpgsave_picture_154255.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ magnet:?xt=urn:btih:30E2A673D8F57B7C48B072C3CD337E06D8E157DB
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154256.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154256.jpgsave_picture_154256.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:2081590F300150619091299A79E8E169F202D7FA
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154257.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154257.jpgsave_picture_154257.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Permute 3 v.3.9.15 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154258.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154258.jpgsave_picture_154258.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ TunesKit AceMovi Video Editor 4.6.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154259.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154259.jpgsave_picture_154259.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Mayhem - Wolf's Lair Abyss (1997) Reissue, 2019, Soulseller Records [FLAC|Lossle
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154260.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154260.jpgsave_picture_154260.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ SolarFlow - Collection of the Best Tracks From: Solarflow (2020) [AAC|~326 Kbps]
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154261.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154261.jpgsave_picture_154261.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Olga Scheps - 100% Scooter – Piano Only (2017) [FLAC|Lossless|WEB-DL|tracks] <
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154262.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154262.jpgsave_picture_154262.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Comedy Баттл. Новый сезон / Комеди Клаб / Comedy Club  
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154263.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154263.jpgsave_picture_154263.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Навигация для др. мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102352.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102352.jpgsave_picture_102352.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ VA - Лучшие Хиты Радио Шансон Часть 8 (2012) [MP3|256 
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102359.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102359.jpgsave_picture_102359.jpg" />
 </div>
 
 
@@ -65,7 +65,7 @@ magnet:?xt=urn:btih:E5BB24DBE70B0376D833DCF603DC6CD47772012D
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102361.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102361.jpgsave_picture_102361.jpg" />
 </div>
 
 
@@ -89,7 +89,7 @@ VA - Relax. Anti Stress Vol. 2 (2012) [MP3|320 кб/с]<Relax, Meditation>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102364.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102364.jpgsave_picture_102364.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ magnet:?xt=urn:btih:9895AB776287663E1645B246DCE6F08B47246254
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102373.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102373.jpgsave_picture_102373.jpg" />
 </div>
 
 
@@ -146,7 +146,7 @@ magnet:?xt=urn:btih:EB93708E24ED0DCA5F034A7B2947766D8FCC7FFE
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102376.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102376.jpgsave_picture_102376.jpg" />
 </div>
 
 
@@ -171,7 +171,7 @@ VA - Дя, Я пьяна! Девишник (2012) [MP3|320 кб/с]<Шансон
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102377.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102377.jpgsave_picture_102377.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:E23CA5D7637F4A69012ECE4AC90B0925D1DBE119
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102378.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102378.jpgsave_picture_102378.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ magnet:?xt=urn:btih:DEA37DC38BB4CA1846744390A32027340D15CCED
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102385.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102385.jpgsave_picture_102385.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:00B3796EA155A747738A319DCA7A1FD48BC7119E
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102386.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102386.jpgsave_picture_102386.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:69E2AD46A86E3FC520D35E92AB2F0D29E2369567
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102387.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102387.jpgsave_picture_102387.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ magnet:?xt=urn:btih:A66089FD1E84D99FDD88728F74BF616A991A9EC4
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102389.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102389.jpgsave_picture_102389.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Snow Patrol - Fallen Empires (2011) [MP3|320 кб/с]<Alternative>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102393.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102393.jpgsave_picture_102393.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ ROSA 2012 LTS LXDE beta (Национальая программная плат�
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102395.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102395.jpgsave_picture_102395.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ magnet:?xt=urn:btih:B40379E2030F6749D3E65A5EE3514205E0381D21
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102398.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102398.jpgsave_picture_102398.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ PHILEDS. Мощные светодиоды [2011] [PDF]
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102403.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102403.jpgsave_picture_102403.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ magnet:?xt=urn:btih:2F260CF5E81BC800FD4787C82CB3C3F03A623BF3
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102404.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102404.jpgsave_picture_102404.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ magnet:?xt=urn:btih:D604F16299C3B0BC2EC132E35847287D01757869
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102407.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102407.jpgsave_picture_102407.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ The Book of Desires / Книга желаний (P) [Ru] 2012
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102409.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102409.jpgsave_picture_102409.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ VA - Восточная Сказка (2012) [MP3|256 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102414.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102414.jpgsave_picture_102414.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ magnet:?xt=urn:btih:953D6230EA8BF66719796D77E4A99A5C866EE71D
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102418.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102418.jpgsave_picture_102418.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ magnet:?xt=urn:btih:325F588D000209D878957CB438B8A3D6613D1754
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102419.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102419.jpgsave_picture_102419.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ Infected Mushroom - Army Of Mushrooms (2012) [MP3|192 кб/с]<Psy-Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102423.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102423.jpgsave_picture_102423.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ magnet:?xt=urn:btih:341FF15698F624AD532F1E48F87477598665E74D
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102424.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102424.jpgsave_picture_102424.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ magnet:?xt=urn:btih:BA6DF47E86B753A29D1330F611376B677B30BD06
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102425.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102425.jpgsave_picture_102425.jpg" />
 </div>
 
 
@@ -682,7 +682,7 @@ magnet:?xt=urn:btih:1B61368A241A5349D577F6F7FFB93675CEA3E688
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102426.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102426.jpgsave_picture_102426.jpg" />
 </div>
 
 

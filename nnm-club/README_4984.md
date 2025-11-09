@@ -6,7 +6,7 @@ Lali Puna - Two Windows (2017) [FLAC|Lossless|tracks + .cue] <Electropop, Downte
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155721.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155721.jpgsave_picture_155721.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:94F8656768249B971BCC47E2D4E837C08E58C411
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155722.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155722.jpgsave_picture_155722.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ n-Track Studio Suite 10.0.0.8212 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155724.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155724.jpgsave_picture_155724.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ Mylene Farmer - Interstellaires (2015) [FLAC 2.0 24/192|image (Vinyl-Rip)]<Synth
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155725.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155725.jpgsave_picture_155725.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ magnet:?xt=urn:btih:CF2C047B00BD522C8EEB1D6CC7EE29E93D48E48F
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155726.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155726.jpgsave_picture_155726.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ magnet:?xt=urn:btih:3A2F4FBC7BEEF45785CD1A08416B60E014FCFA2F
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155727.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155727.jpgsave_picture_155727.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ AV Uninstall Tools Pack 2020.12 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155728.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155728.jpgsave_picture_155728.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ Ahmad Jamal - Ballades (2019) Jazz Village [FLAC|Lossless|tracks + .cue] <Post-B
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155729.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155729.jpgsave_picture_155729.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ VA - Hidden Paradise (2023) [MP3|320 Kbps] <Deep House, Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155730.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155730.jpgsave_picture_155730.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ Sleipnir 6.3.3.4000 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155731.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155731.jpgsave_picture_155731.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ magnet:?xt=urn:btih:28AB055C73AEE4577EC776C24A85BF4B7AB3ED17
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155732.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155732.jpgsave_picture_155732.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ VA - Italo Disco: The Lost Legends Vol.8 (2017) [MP3|320 Kbps] <Italo-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155733.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155733.jpgsave_picture_155733.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ magnet:?xt=urn:btih:35FE5F6F777503D47F0A3CE03D706C7BC1FC072B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155734.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155734.jpgsave_picture_155734.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ magnet:?xt=urn:btih:9B4593F52A80BA1F3CA72BEDC6C9BFBE5E1EF6CE
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155736.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155736.jpgsave_picture_155736.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ magnet:?xt=urn:btih:35AF654DDF4579ACC588BFF13A0DB61A14D1A306
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155737.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155737.jpgsave_picture_155737.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ magnet:?xt=urn:btih:A6C501A0B4F969C4ADB10A11387C34AA3FCA9C07
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155738.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155738.jpgsave_picture_155738.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ magnet:?xt=urn:btih:74C81EB0E9DCB8E92ABF62310403DA96D5134BC6
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155739.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155739.jpgsave_picture_155739.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Sync Folders Pro 4.6.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155740.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155740.jpgsave_picture_155740.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ magnet:?xt=urn:btih:2403082B9D27136316D28BD0B842A155483E9D0C
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155741.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155741.jpgsave_picture_155741.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Titiyo - Titiyo (1990) [MP3|320 Kbps] <Pop, Soul, R&B>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155742.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155742.jpgsave_picture_155742.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ magnet:?xt=urn:btih:B2738E4ADD325E8FB4DD67A3D15835FFDC128AAA
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155743.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155743.jpgsave_picture_155743.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ VA - Dark Beats: French Rap (2018) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155744.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155744.jpgsave_picture_155744.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ magnet:?xt=urn:btih:2F2A541BA5C63F7EB7DA4595FF907037D5D6D8C2
 >>Звуковые дорожки и субтитры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155745.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155745.jpgsave_picture_155745.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ I Am Alive [PS3] [PSN] [RUS] [NTSC] (2012)
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155746.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155746.jpgsave_picture_155746.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ magnet:?xt=urn:btih:9E097CD6114039CD612435CF83BD338DCF2F2285
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155747.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155747.jpgsave_picture_155747.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Heavenly Cream - An Acoustic Tribute to Cream (2023) [FLAC|Lossless|WEB-DL|track
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155748.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155748.jpgsave_picture_155748.jpg" />
 </div>
 
 

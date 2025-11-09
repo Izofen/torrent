@@ -6,7 +6,7 @@ PrivaZer (Donors) 4.0.58 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189360.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189360.jpgsave_picture_189360.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:C281B4D632034750F796A3888745613F32ACDDFF
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189361.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189361.jpgsave_picture_189361.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ VA - Bar Lounge Costes, Vol. 6 Lounge & Smooth Jazz Flavors (2023) [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189362.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189362.jpgsave_picture_189362.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ VA - Welcome to My Life - Pop-Rock Anthem (2023) [FLAC|Lossless|WEB-DL|tracks] <
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189363.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189363.jpgsave_picture_189363.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:79B5E2845A1F34F3A58D657CCBE6C0CB63920442
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189364.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189364.jpgsave_picture_189364.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ magnet:?xt=urn:btih:301B38D69D53DC1D36EC1FC8FDEC1B32E5A90AD2
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189365.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189365.jpgsave_picture_189365.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ magnet:?xt=urn:btih:8A3B395F3C1998B757E229A2AA1BF5D47BF18884
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189366.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189366.jpgsave_picture_189366.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ Bruce Springsteen - Only the Strong Survive (2022) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189367.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189367.jpgsave_picture_189367.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ Viber 18.8.0.0 (x64) RePack (Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189368.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189368.jpgsave_picture_189368.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ magnet:?xt=urn:btih:5B73A1249965F8FEDAC85D6FC23CB034CC953460
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189369.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189369.jpgsave_picture_189369.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ magnet:?xt=urn:btih:744AF071F8347A3D4F2ADD1B71163AE8E2C33C35
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189370.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189370.jpgsave_picture_189370.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ VA - Jazz music to concentrate (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189371.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189371.jpgsave_picture_189371.jpg" />
 </div>
 
 
@@ -315,7 +315,7 @@ magnet:?xt=urn:btih:BF278BAEA733617C38985A6769B4C89C7B9C01D6
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189372.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189372.jpgsave_picture_189372.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ Johann Strauss - Vienna Promenade Orchestra - The Strauss Selection (1973) [FLAC
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189373.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189373.jpgsave_picture_189373.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ VA - Unforgettable Romantic Moments Smooth Jazz Tunes (2023) [FLAC|Lossless|WEB-
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189374.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189374.jpgsave_picture_189374.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ HDCleaner 2.037 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189375.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189375.jpgsave_picture_189375.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ magnet:?xt=urn:btih:85B32AE52E3056A39918FE7DF04F43B94AA660CA
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189376.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189376.jpgsave_picture_189376.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Cycling'74 Max 8.5.6 + RNBO U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189377.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189377.jpgsave_picture_189377.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ magnet:?xt=urn:btih:16911D51C0CBD4841514C56501CF0CE884903644
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189378.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189378.jpgsave_picture_189378.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ magnet:?xt=urn:btih:8BABBEAA38C99BB914D2252F7F5AD04FA2C3E623
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189379.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189379.jpgsave_picture_189379.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ VA - Luxury Jazz Essentials 2023 (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189380.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189380.jpgsave_picture_189380.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Canary Mail 4.17 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189381.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189381.jpgsave_picture_189381.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Widgetter - Desktop Widgets for Mac 1.16.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189382.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189382.jpgsave_picture_189382.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ VA - Montreal Jazz Club 2023, Vol. 1 (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189383.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189383.jpgsave_picture_189383.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ magnet:?xt=urn:btih:95BAA3076CA206BC6DA32CF384C27BD47B91DA2A
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189384.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189384.jpgsave_picture_189384.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ magnet:?xt=urn:btih:495DC18D466CFD60756DC32B6C74B48A31A4E2E5
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189385.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189385.jpgsave_picture_189385.jpg" />
 </div>
 
 

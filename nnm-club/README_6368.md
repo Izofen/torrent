@@ -6,7 +6,7 @@ Perfectly Clear WorkBench 4.8.0.2871 RePack (& Portable) by elchupacabra [Multi/
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202212.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202212.jpgsave_picture_202212.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:8020F75032679BEE9768B6C2E2F6A5618E87D512
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202213.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202213.jpgsave_picture_202213.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ VA - TOP Non-Stop - Deep House and Chillout Before 2000. Part 2 (2022) [MP3|192-
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202214.jpgsave_picture_202214.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ Reg Organizer 9.89 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202215.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202215.jpgsave_picture_202215.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:D25B8543AFC0A579428917E50C3964B55AEE7EBA
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202217.jpgsave_picture_202217.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ Windows 10 22H2 19044.6456/19045.6456 by SURASOFT (v25.10.14) [Ru]
 >>Песочница ПО и сборок Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202218.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202218.jpgsave_picture_202218.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ Fort Solis (2023) [Ru/Multi] (Build 11938463) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202219.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202219.jpgsave_picture_202219.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:A3BD7C470D3433C6DB26F4CA0220D0E077FC8195
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202220.jpgsave_picture_202220.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ Bleak Haven (2025) [Ru/Multi] (1.2.1) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202221.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202221.jpgsave_picture_202221.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ Survival & Horror: Hangman's Rope (2023) [Ru/En] (Build 11602258) Scene Tenoke
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202222.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202222.jpgsave_picture_202222.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ Color By Number For Adults / Раскраски по номерам v4.5.5 [Ru/M
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202223.jpgsave_picture_202223.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ Adobe Acrobat Pro 2023.003.20284 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202224.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202224.jpgsave_picture_202224.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ magnet:?xt=urn:btih:5FDFE2A68778D82C89A2C0FA6CB0019388C71471
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202225.jpgsave_picture_202225.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ magnet:?xt=urn:btih:DF657D5A98A910F2FE33219160F0A2C85E4FB41A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202226.jpgsave_picture_202226.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Ventoy 1.0.95 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202227.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202227.jpgsave_picture_202227.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Yanni - Compilation (2023) [MP3|320 Kbps] <New Age>
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202228.jpgsave_picture_202228.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ ABBYY Screenshot Reader 16.0.14.7295 Portable by Conservator (x64) [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202229.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202229.jpgsave_picture_202229.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ magnet:?xt=urn:btih:698A21F0AA2EC5E9F8E4D3113D8A72C80BE3841F
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202230.jpgsave_picture_202230.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ magnet:?xt=urn:btih:879D43AC2C2579DD44C6383D0F056F3E80488B4C
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202231.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202231.jpgsave_picture_202231.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ magnet:?xt=urn:btih:915F861EE2E0F33DB694F5320AD7D1D6667378D4
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202232.jpgsave_picture_202232.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ magnet:?xt=urn:btih:4FC08EAD8C3484D230B3027BBA00BC328F4390FF
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202233.jpgsave_picture_202233.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ Adventure of Samsara (2025) [Multi] (1.0.13) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202234.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202234.jpgsave_picture_202234.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ Rencontre Nocturne - Nuit Sombre (01-31) (2019-2023) [MP3|320 Kbps] <Electro Hou
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202236.jpgsave_picture_202236.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ Tomb Raider (2013) [Ru/Multi] (Build 9573671/dlc) Repack Other s [GOTY Edition /
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202237.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202237.jpgsave_picture_202237.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ magnet:?xt=urn:btih:33479F5120A7AE17B800867914BA447EB5D19F55
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202238.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202238.jpgsave_picture_202238.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Spirit (US) - 15 Albums, 2 Box Set (1968 - 2022) 36 CD [FLAC|Lossless|image + .c
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202239.jpgsave_picture_202239.jpg" />
 </div>
 
 

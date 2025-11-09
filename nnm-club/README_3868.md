@@ -6,7 +6,7 @@ Pixelmator Pro 3.5.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120994.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120994.jpgsave_picture_120994.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:91D796C6DBA1BCA950FD4E979286AEB4B2645E36
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120995.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120995.jpgsave_picture_120995.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:23F81421A4CD45FCFB62B066AA7BB0129131452B
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120996.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120996.jpgsave_picture_120996.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ John Wetton - Caught In The Crossfire (1980) Expanded Edition, 2024, Spirit Of U
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120997.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120997.jpgsave_picture_120997.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ AnyMP4 iPhone Unlocker 1.3.56 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120998.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120998.jpgsave_picture_120998.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ VA - Compilation Electronic part 46 (2024) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120999.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120999.jpgsave_picture_120999.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ Emurasoft EmEditor Professional 23.1.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121000.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121000.jpgsave_picture_121000.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:99959E59BD746337219321972A2033DC3DEA0A4B
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121001.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121001.jpgsave_picture_121001.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ VA - 100 Hits Ultimate Number 1s (2016) 5 CD [OGG Vorbis|480 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121002.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121002.jpgsave_picture_121002.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ magnet:?xt=urn:btih:A57BC8F35C77219B2482D1C93C7049F0D222B4FF
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121003.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121003.jpgsave_picture_121003.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ FITLAB (ФИТЛАБ) | Эффективный автосервис. Курс р
 >>Автомобильные обуч.видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121005.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121005.jpgsave_picture_121005.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ magnet:?xt=urn:btih:5A851BC3C9222BD9A7F16451DD46D21597924FDD
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121006.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121006.jpgsave_picture_121006.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ FITLAB (ФИТЛАБ) | Психология управления персона
 >>Автомобильные обуч.видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121007.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121007.jpgsave_picture_121007.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ magnet:?xt=urn:btih:91BA484A9B63DF9A010A41914AA5602407003C5F
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121008.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121008.jpgsave_picture_121008.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ AR Ruler App: Линейка Рулетка v2.7.8 Mod by srajawwal09 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121009.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121009.jpgsave_picture_121009.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ Chromium-Gost 121.0.6167.85 + portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121010.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121010.jpgsave_picture_121010.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ CCP Games | Артбук по вселенной игр EVE  / EVE - Source (201
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121011.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121011.jpgsave_picture_121011.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ FITLAB (ФИТЛАБ) | Звонки в автосервисе. Курс для 
 >>Автомобильные обуч.видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121012.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121012.jpgsave_picture_121012.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Wise Auto Shutdown 2.0.6.107 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121013.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121013.jpgsave_picture_121013.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ FITLAB (ФИТЛАБ) | Переговоры и точка. Курс для ав
 >>Автомобильные обуч.видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121014.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121014.jpgsave_picture_121014.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ magnet:?xt=urn:btih:57F4BE43CAB1E4564AC0A302EB895B2F575DB4F6
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121015.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121015.jpgsave_picture_121015.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ magnet:?xt=urn:btih:7E4D06B0EE7E53E1D146D18900CBC1D4D85FA1EE
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121016.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121016.jpgsave_picture_121016.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ magnet:?xt=urn:btih:37CD841CCE1EB11BC073A7E98A678E349030AC0E
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121017.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121017.jpgsave_picture_121017.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ magnet:?xt=urn:btih:3CF3BD66642CB280DA349947611DA1D7E43FCC4A
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121018.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121018.jpgsave_picture_121018.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ PhotoTune - Улучшитель фото v4.4.9 Mod by maxi123444 [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121019.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121019.jpgsave_picture_121019.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Transcend SSD Scope 4.21 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121020.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121020.jpgsave_picture_121020.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28903.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28903.jpgsave_picture_28903.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:BFE707BC5C022C32F63D7FF218C8700DEC4A307C
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28904.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28904.jpgsave_picture_28904.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:0F60E9DDD30F1D7722EABDBFD0F376E14711C7ED
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28905.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28905.jpgsave_picture_28905.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Sarah Brightman - The Harem World Tour: Live From Las Vegas (2004) DVDRip [H.264
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28906.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28906.jpgsave_picture_28906.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:42CB4D294999C0EC39C0B7B22471A286D9EA6D21
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28907.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28907.jpgsave_picture_28907.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ SoftMaker Office Professional 2024 rev. S1222.1129 Portable by 7997 [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28908.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28908.jpgsave_picture_28908.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Marvel's Spider-Man 2 (2025) [Ru/Multi] (1.130.1.0/dlc) Repack DjDI [Digital Del
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28909.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28909.jpgsave_picture_28909.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:A202DED153F515DA75F75C92019F78607F598276
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28910.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28910.jpgsave_picture_28910.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:6FF7E16E0A27BB81B57D7FBE5727E6F1F06213CC
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28911.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28911.jpgsave_picture_28911.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:E8B4503CB4BBB766284FF66B551706880D907A69
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28912.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28912.jpgsave_picture_28912.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Metal Savior Black (2025) [En] (1.0) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28913.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28913.jpgsave_picture_28913.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Code Alkonost: Awakening of Evil (2025) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28914.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28914.jpgsave_picture_28914.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ magnet:?xt=urn:btih:8DEA07D9D1674FCCAADFAD23664BF92845F2FD14
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28915.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28915.jpgsave_picture_28915.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Foundation (2019) [Ru/Multi] (1.10.2.0/dlc) Repack FitGirl [Supporter Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28916.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28916.jpgsave_picture_28916.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Deliver Us Mars (2023) [Ru/Multi] (2.0.1) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28917.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28917.jpgsave_picture_28917.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ magnet:?xt=urn:btih:1D56A7FA97B864628256D8DDB9790585C8E8F455
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28918.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28918.jpgsave_picture_28918.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Ji Jia Shou Shen: Baolie Feiche 5 | Screechers Wild 5! | Дикие Скриче
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28919.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28919.jpgsave_picture_28919.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ magnet:?xt=urn:btih:0D1AD50E2C07CE89362E270DFA9922A393ACA98D
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28920.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28920.jpgsave_picture_28920.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ magnet:?xt=urn:btih:693045394FEB6CA673A8F0FD48A432C30E964F46
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28921.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28921.jpgsave_picture_28921.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ magnet:?xt=urn:btih:931A579783CA506CB54E83F543BCF592B46A18C1
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28922.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28922.jpgsave_picture_28922.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ magnet:?xt=urn:btih:931A579783CA506CB54E83F543BCF592B46A18C1
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28923.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28923.jpgsave_picture_28923.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ magnet:?xt=urn:btih:51B29C94B021B873F0C472394FD0EBC856CE603D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28924.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28924.jpgsave_picture_28924.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Mika and The Witch's Mountain (2024) [Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28925.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28925.jpgsave_picture_28925.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ NINJA GAIDEN 2 Black (2025) [Multi] (1.0.5.0) Repack DjDI
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28926.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28926.jpgsave_picture_28926.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ magnet:?xt=urn:btih:5031AE921A074E82BE7D025EC57E6D1302CB0022
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28927.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28927.jpgsave_picture_28927.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ magnet:?xt=urn:btih:E5DA834A6FA12F9CC2386A637EF4BBCEF1874E5B
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28928.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28928.jpgsave_picture_28928.jpg" />
 </div>
 
 

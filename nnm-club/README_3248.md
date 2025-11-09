@@ -6,7 +6,7 @@ Soft Jazz Mood, Jazz Guitar Music Zone, Old School Funk Squad - Highway Jazz: Hi
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104809.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104809.jpgsave_picture_104809.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - DJ 301 (1997) [OGG Vorbis|480 Kbps] <Electronic, Pop, Euro House>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104810.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104810.jpgsave_picture_104810.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - DJ Hits Vol. 275 (1997) [OGG Vorbis|480 Kbps] <Electronic, Hip Hop, Euro Ho
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104811.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104811.jpgsave_picture_104811.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Los Bitchos - Talkie Talkie (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternat
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104812.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104812.jpgsave_picture_104812.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ David Kushner - The Dichotomy (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104813.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104813.jpgsave_picture_104813.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Roberta Gambarini & Hank Jones - You Are There (2024) [FLAC 24/96|Lossless|WEB-D
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104814.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104814.jpgsave_picture_104814.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Steve Smith and The Sneakers - The Glory Road (2024) [FLAC 24/44.1|Lossless|WEB-
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104815.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104815.jpgsave_picture_104815.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Katrina SoulSinger - Category 5 (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Bl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104816.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104816.jpgsave_picture_104816.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Zaphica - Zaphica (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104817.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104817.jpgsave_picture_104817.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Steve Smith and The Sneakers - Hoodoo Man (2024) [FLAC 24/44.1|Lossless|WEB-DL|t
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104818.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104818.jpgsave_picture_104818.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Tim Armacost feat. Tom Harrell, Gary Smulyan, John Patitucci & Al Foster - Somet
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104819.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104819.jpgsave_picture_104819.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Taj Farrant - Chapter One (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104820.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104820.jpgsave_picture_104820.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Steve Smith and The Sneakers - Hopeless Troubadour (2024) [FLAC 24/44.1|Lossless
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104821.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104821.jpgsave_picture_104821.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ magnet:?xt=urn:btih:F550430815DE31CB8891F46B91632BBADD10C63D
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104822.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104822.jpgsave_picture_104822.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ TMS Underscores - Cool Like That Jazz! (2024) [FLAC 24/44.1|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104823.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104823.jpgsave_picture_104823.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ magnet:?xt=urn:btih:9516F5AA7E76055C44F31AF079BDE24F0CC4AA12
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104824.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104824.jpgsave_picture_104824.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ Peter Ndlala - Beira (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104825.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104825.jpgsave_picture_104825.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ Jerry Phillips - For The Universe (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104826.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104826.jpgsave_picture_104826.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ PhotoRoom v5.2.9 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104827.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104827.jpgsave_picture_104827.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ magnet:?xt=urn:btih:560D01CDBB3C265E9832E82CE63D02A457214C80
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104828.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104828.jpgsave_picture_104828.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ T. Graham Brown - From Memphis to Muscle Shoals (2024) [FLAC 24/48|Lossless|WEB-
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104829.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104829.jpgsave_picture_104829.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ VA - Здорово, бандиты! (Ништяк,браток!) (1999) [MP3|32
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104830.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104830.jpgsave_picture_104830.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ magnet:?xt=urn:btih:E05D5BF12358AFE923C6761963243D7438B79BF7
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104831.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104831.jpgsave_picture_104831.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ magnet:?xt=urn:btih:106343F60EC22275C3B8D35B8B65D76ECDC60E6F
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104832.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104832.jpgsave_picture_104832.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ magnet:?xt=urn:btih:1B53DFE0315A7FA55170E71EB4CB6EBDEF3F7D36
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104833.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104833.jpgsave_picture_104833.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ Enslaved - Studio Albums (19 releases) (1993-2023) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104834.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104834.jpgsave_picture_104834.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116029.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116029.jpgsave_picture_116029.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:4CA89A9ACCF5B311DAAE7069643856DDD4FB96EF
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116030.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116030.jpgsave_picture_116030.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ Black Sabbath - Heaven In Hartford (1980) Live, 2024 Smokin' [FLAC|Lossless|WEB-
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116031.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116031.jpgsave_picture_116031.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ magnet:?xt=urn:btih:474CB7295ADA932C422A3EE353B14F51ECEE265E
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116032.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116032.jpgsave_picture_116032.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ magnet:?xt=urn:btih:08E1969CBE8DC674D2C3D41F5A07FC376534F984
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116033.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116033.jpgsave_picture_116033.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ magnet:?xt=urn:btih:7C6A357CA257F504EC0602CDDDA9135FDBE7137D
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116034.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116034.jpgsave_picture_116034.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ magnet:?xt=urn:btih:AFEE43A463C5A92EBAE494A4815E1E7CE9DB06F1
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116035.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116035.jpgsave_picture_116035.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ PowerDirector – Video Editor v13.2.1 b1226220 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116036.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116036.jpgsave_picture_116036.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ magnet:?xt=urn:btih:3CFAE58707AEA41ECD40063087DEDB0C9521F8D3
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116037.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116037.jpgsave_picture_116037.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ PDF Expert 3.9.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116038.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116038.jpgsave_picture_116038.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ The Unseen Fears 6: Fortune's Consequence (2024) [En] (1.0) Unofficial [Collecto
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116039.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116039.jpgsave_picture_116039.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ Metal Skin Panic Madox-01 | Мадокс-01 [1987, OVA, 1 из 1] BDRip 1080p HE
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116040.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116040.jpgsave_picture_116040.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ magnet:?xt=urn:btih:5E416065C9FE394582F4C574C869DDB8D70D1049
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116041.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116041.jpgsave_picture_116041.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ ToonMe v0.7.0 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116042.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116042.jpgsave_picture_116042.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Bandle Tale: A League of Legends Story (2024) [Ru/Multi] (1.068p/dlc) Scene SKID
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116043.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116043.jpgsave_picture_116043.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ magnet:?xt=urn:btih:0BA16FC4908FA827F6BA1777F34222EA1523A316
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116044.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116044.jpgsave_picture_116044.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ VA - Electronic compilation part 57 (2024) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116045.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116045.jpgsave_picture_116045.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ VA - 23 февраля (2023) День защитника отечества [MP
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116046.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116046.jpgsave_picture_116046.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Directory List & Print Pro 4.31 + Standalone [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116047.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116047.jpgsave_picture_116047.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Sumatra PDF 3.6.15966 Prerelease + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116048.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116048.jpgsave_picture_116048.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Google Chrome 122.0.6261.70 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116049.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116049.jpgsave_picture_116049.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ magnet:?xt=urn:btih:E513D76B0944BA08FAC71C5156E3E8E930B41FC9
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116050.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116050.jpgsave_picture_116050.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ magnet:?xt=urn:btih:1966D0C1134B871D9141E262C91C1DDACFC2EF0C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116051.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116051.jpgsave_picture_116051.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ magnet:?xt=urn:btih:6BD309897245EC91F03ED0BCDAFC2B31C6719831
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116052.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116052.jpgsave_picture_116052.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ magnet:?xt=urn:btih:F3CBDF429241F45B062EA88FA373C5C58E5DB6D2
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116053.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116053.jpgsave_picture_116053.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ magnet:?xt=urn:btih:04F7BF27CE037555EBE303E60D347069AA172F71
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116054.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116054.jpgsave_picture_116054.jpg" />
 </div>
 
 

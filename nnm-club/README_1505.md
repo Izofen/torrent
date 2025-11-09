@@ -6,7 +6,7 @@ Sapho - El sol y la luna (1987) [FLAC|Lossless|tracks + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39485.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39485.jpgsave_picture_39485.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Rey-Nichols Shovelhead Band - Music From The Canyon (1999) [FLAC|Lossless|tracks
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39486.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39486.jpgsave_picture_39486.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:FF8A0B85450BF378B79DAE3433C86A114F0C5617
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39487.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39487.jpgsave_picture_39487.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:C42C1E051046A327506D5910C2435EC135FAD7E6
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39488.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39488.jpgsave_picture_39488.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:34BE35F5AE9E40B9D4407A97D7238B97F5C3D8FB
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39489.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39489.jpgsave_picture_39489.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Ventusky: Прогноз погоды v38.0 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39490.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39490.jpgsave_picture_39490.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ FontExpert 2025 20.0 Release 1 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39491.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39491.jpgsave_picture_39491.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Sarah Vaughan - A Time In My Life (1971) 1987, Mobile Fidelity Sound Lab [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39492.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39492.jpgsave_picture_39492.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:55E9568E192A840E6B8A965561392A879CB721C7
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39493.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39493.jpgsave_picture_39493.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ Beth Hart - You Still Got Me (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39494.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39494.jpgsave_picture_39494.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ Sarah Vaughan - Complete Musicraft Master Takes (2000) 2CD, Jazz Factory [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39495.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39495.jpgsave_picture_39495.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ Sarah Vaughan & Friends - A Night Of Sass & Brass (1986) 2006, Immortal [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39496.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39496.jpgsave_picture_39496.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ magnet:?xt=urn:btih:DD101898C89140DF37B0561214E15C00150DA1B9
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39497.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39497.jpgsave_picture_39497.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ Steps Ahead - Magnetic (1986) 2013, Elektra [FLAC|Lossless|tracks + .cue] <Jazz 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39498.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39498.jpgsave_picture_39498.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ magnet:?xt=urn:btih:B4F896A220E23BA525F92A7E9580F6A113D17DAE
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39499.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39499.jpgsave_picture_39499.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ Sarah Vaughan - Compact Jazz: Sarah Vaughan Live! (1987) Mercury[FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39500.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39500.jpgsave_picture_39500.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ Ann Hampton Callaway - From Sassy to Divine: The Sarah Vaughan Project (2014) Sh
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39501.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39501.jpgsave_picture_39501.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Sarah Vaughan - Sassy Swings Again (1967) Mercury [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39502.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39502.jpgsave_picture_39502.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Balabolka 2.15.0.879 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39503.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39503.jpgsave_picture_39503.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ magnet:?xt=urn:btih:B89DFA33957843A1E55E79EB545B99A590A00AD5
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39504.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39504.jpgsave_picture_39504.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Blue System - Диско 80-х (2007) [OGG Vorbis|480 Kbps] <Electronic, Pop, Di
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39505.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39505.jpgsave_picture_39505.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ Sarah Vaughan - The Magic of Sarah Vaughan (1940-e - 1960-e) 1998, Newsound 2000
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39506.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39506.jpgsave_picture_39506.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ magnet:?xt=urn:btih:7FBE05D6D2F51EAD091AAB3514E32B5A8FC22661
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39507.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39507.jpgsave_picture_39507.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ magnet:?xt=urn:btih:65888A3F5EB49991FCD1CBD050C7355641B84493
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39508.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39508.jpgsave_picture_39508.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ Reg Organizer 9.50 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39509.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39509.jpgsave_picture_39509.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ magnet:?xt=urn:btih:7668267DAC926981338522322F0C62FA95C8C265
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39510.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39510.jpgsave_picture_39510.jpg" />
 </div>
 
 

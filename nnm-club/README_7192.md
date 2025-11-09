@@ -6,7 +6,7 @@
 >>Отечественные Мультфильмы 21-го века (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245946.jpgsave_picture_245946.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:E1CB949DF8535CD8EA0D2197527E10E54AED2397
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245947.jpgsave_picture_245947.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Obscura - A Valediction (2021) [FLAC|Lossless|WEB-DL|tracks] <Technical Death Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245948.jpgsave_picture_245948.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ The Teddy Buckner Band - In Concert At The Dixieland Jubilee (1955) 1988, Gnp Cr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245949.jpgsave_picture_245949.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Black Rabbit - Hypnosomnia (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash, Death M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245950.jpgsave_picture_245950.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ SizeMyPics 1.7.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245951.jpgsave_picture_245951.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:6C4A2F7C27FB675B20CD7B1F9D30F05C5C43F185
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245952.jpgsave_picture_245952.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ PDF Shaper Professional 13.1 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245953.jpgsave_picture_245953.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ magnet:?xt=urn:btih:57671532BC44A05492AA9F8E28559BE3B9960CF5
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245954.jpgsave_picture_245954.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ Jesse Damon - Damon's Rage (2020) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245955.jpgsave_picture_245955.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ magnet:?xt=urn:btih:81766192A2DAA116F15128865C28B19111F381AF
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245956.jpgsave_picture_245956.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ Michael Davis - Absolute Trombone (1997) Hip-Bone Music [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245957.jpgsave_picture_245957.jpg" />
 </div>
 
 
@@ -314,7 +314,7 @@ WebToLayers 1.2.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245958.jpgsave_picture_245958.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ magnet:?xt=urn:btih:6EEA3B7004F9EA104DFA11ED84D956650BB5F728
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245959.jpgsave_picture_245959.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ magnet:?xt=urn:btih:7C9C551A7A01E2FD61ACCD26E1D2D6BDB386334D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245960.jpgsave_picture_245960.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ magnet:?xt=urn:btih:3B0F4CDCC123C7B44D7027AD6B2A57F3ED720451
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245961.jpgsave_picture_245961.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ magnet:?xt=urn:btih:2F7F37291E67007AF41EF45E5FE88A0E545BA9FC
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245962.jpgsave_picture_245962.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ magnet:?xt=urn:btih:6D1E223BC8A14794BAC330FEA0B2B918740FB889
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245963.jpgsave_picture_245963.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ IconJar 2.7.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245964.jpgsave_picture_245964.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ magnet:?xt=urn:btih:5C4E8F16C96054EA8CBD79D27BF52B2AE66D08F6
 >>Отечественные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245965.jpgsave_picture_245965.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ magnet:?xt=urn:btih:FB56FA30E8D7070DC69C9BE7D99CF5AEA19C744A
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245966.jpgsave_picture_245966.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ magnet:?xt=urn:btih:D1217643AF0840E4C420592C03D2E0A63333FF7E
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245967.jpgsave_picture_245967.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ magnet:?xt=urn:btih:0071EF5A8EF9E13AD83DF3C89F5CC9C226EC1A78
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245968.jpgsave_picture_245968.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ magnet:?xt=urn:btih:9D497F642F10A8F261FA0CA1ABED3E63A8A2DAC5
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245969.jpgsave_picture_245969.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ VA - World Of Trance (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245971.jpgsave_picture_245971.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ TwistedWave 24.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245972.jpgsave_picture_245972.jpg" />
 </div>
 
 

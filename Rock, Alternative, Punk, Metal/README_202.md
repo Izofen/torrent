@@ -6,7 +6,7 @@ Rubicon - Aliapolis (2023) [FLAC|Lossless|image + .cue] <Heavy Metal, Power Meta
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128557.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128557.jpgsave_picture_128557.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Frayle - Heretics & Lullabies (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Doom
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128592.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128592.jpgsave_picture_128592.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Earshot - Humaning (2025) [FLAC|Lossless|WEB-DL|tracks] <Alt. Rock, Nu Metal, Po
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128643.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128643.jpgsave_picture_128643.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Crowne - Wonderland (2025) [FLAC|Lossless|image + .cue] <Melodic Hard Rock, AOR>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128661.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128661.jpgsave_picture_128661.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Big Big Train - Ingenious Devices (2023) [FLAC|Lossless|image + .cue] <Progressi
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128684.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128684.jpgsave_picture_128684.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Alcatrazz - Disturbing The Peace (1985) Expanded Edition, 2023, Cherry Red Recor
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128711.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128711.jpgsave_picture_128711.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Hugo's Voyage - Inception (2023) [FLAC|Lossless|image + .cue] <Melodic Rock, AOR
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128729.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128729.jpgsave_picture_128729.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Dirkschneider & The Old Gang - Babylon (2025) [FLAC|Lossless|image + .cue] <Heav
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128815.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128815.jpgsave_picture_128815.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Danny Peyronel - It Happens When You Look The Other Way (2025) [FLAC 24/48|Lossl
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128852.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128852.jpgsave_picture_128852.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Kevin the Persian - Southern Dissonance (2022) [FLAC|Lossless|WEB-DL|tracks] <Al
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128930.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128930.jpgsave_picture_128930.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Nailed to Obscurity - Generation of the Void (2025) [FLAC|Lossless|WEB-DL|tracks
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128934.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128934.jpgsave_picture_128934.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Slave To The System - Slave To The System (2006) [FLAC|Lossless|image + .cue] <H
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129110.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129110.jpgsave_picture_129110.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Abyssus - Death Revival (2022) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129111.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129111.jpgsave_picture_129111.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Dive In Minds - Innocent Victims (2001) [FLAC|Lossless|image + .cue] <Progressiv
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129116.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129116.jpgsave_picture_129116.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ The Ferrymen - One More River To Cross (2022) [FLAC|Lossless|WEB-DL|tracks] <Pow
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129124.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129124.jpgsave_picture_129124.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Hideous Divinity - Obeisance Rising (2012) [MP3|320 кб/с]<Brutal Technical De
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129143.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129143.jpgsave_picture_129143.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Galeon - 2 альбома (2009-2011) [MP3|224 - 320 kbps]<Instrumental Melodic 
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129147.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129147.jpgsave_picture_129147.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Tokyo Blade - Fury (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129148.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129148.jpgsave_picture_129148.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ Giant - Shifting Time (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129150.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129150.jpgsave_picture_129150.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ Gerry Rafferty - Essential (2011) [FLAC|Lossless|WEB-DL|tracks] <Rock, Soft Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129151.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129151.jpgsave_picture_129151.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ Boris - W (2022) [FLAC|Lossless|WEB-DL|tracks] <Sludge Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129156.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129156.jpgsave_picture_129156.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ Edge Of Forever - Seminole (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129160.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129160.jpgsave_picture_129160.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ King Gizzard & The Lizard Wizard - Butterfly 3001 (2022) Remix [FLAC|Lossless|WE
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129164.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129164.jpgsave_picture_129164.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Orville Peck - Show Pony (2020) EP [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Al
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129167.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129167.jpgsave_picture_129167.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ Pedro the Lion - Havasu (2022) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Altern
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129169.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129169.jpgsave_picture_129169.jpg" />
 </div>
 
 
@@ -684,7 +684,7 @@ Kissin' Dynamite - Not The End Of The Road (2022) [FLAC|Lossless|WEB-DL|tracks] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129178.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129178.jpgsave_picture_129178.jpg" />
 </div>
 
 

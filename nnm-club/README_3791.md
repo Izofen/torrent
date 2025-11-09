@@ -6,7 +6,7 @@
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118946.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118946.jpgsave_picture_118946.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:3D5E11652914855C977C02BD9FAA41E3B87F6990
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118947.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118947.jpgsave_picture_118947.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:A236FC2574232150BE316730035BC4E96F9B62F2
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118948.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118948.jpgsave_picture_118948.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:CCF4377DDCAF6A69A0EBE40A475EA41EC103CFC8
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118949.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118949.jpgsave_picture_118949.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Sandboxie plus 1.12.9 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118950.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118950.jpgsave_picture_118950.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ BurnAware Professional 17.4 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118951.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118951.jpgsave_picture_118951.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ IceCream Ebook Reader Pro 6.46 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118952.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118952.jpgsave_picture_118952.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Icecream Video Editor Pro 3.16 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118953.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118953.jpgsave_picture_118953.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:C8440A0AFE2D2E65140A6F0A3FD043FBC196F154
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118954.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118954.jpgsave_picture_118954.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Laserdance - Around The Planet (1988) [OGG Vorbis|480 Kbps] <Electronic, Spacesy
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118955.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118955.jpgsave_picture_118955.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:D41F526634D89D9132DCE42476A8905107D6FA6E
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118956.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118956.jpgsave_picture_118956.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ XYplorer 25.50.0000 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118957.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118957.jpgsave_picture_118957.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Laserdance - Discovery Trip (1989) [OGG Vorbis|480 Kbps] <Electronic, Spacesynth
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118958.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118958.jpgsave_picture_118958.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:203A05EAD67C8EA34BA73DAF3F288BFCCFCE6594
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118959.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118959.jpgsave_picture_118959.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ magnet:?xt=urn:btih:D43B59823708F9D1CC835887A01608C77C6D0A8A
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118960.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118960.jpgsave_picture_118960.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ magnet:?xt=urn:btih:68BAA4D72326A449DE551D5423F00F4F14233B89
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118961.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118961.jpgsave_picture_118961.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ magnet:?xt=urn:btih:3C694A964BDBEDF1BC369E0388B1C0477B335003
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118962.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118962.jpgsave_picture_118962.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ magnet:?xt=urn:btih:8235BA52192198595CDB107F945A28EC903E9BD5
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118963.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118963.jpgsave_picture_118963.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ magnet:?xt=urn:btih:DA7287C697616A806AC2AEE19A00E8CE98E56224
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118964.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118964.jpgsave_picture_118964.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ magnet:?xt=urn:btih:8D13DEA80BEF0723FE62B8F16057D077D1B51C6F
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118965.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118965.jpgsave_picture_118965.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ magnet:?xt=urn:btih:71462D2C1AB90B645B025BC66F190584AAB47BCE
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118966.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118966.jpgsave_picture_118966.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ QOwnNotes 24.1.5 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118967.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118967.jpgsave_picture_118967.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ Master PDF Editor 5.9.82 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118968.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118968.jpgsave_picture_118968.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ magnet:?xt=urn:btih:36FF217E72EF4AF26D66F5DDA53136A7764956B1
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118969.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118969.jpgsave_picture_118969.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Qian Han, Nick Aleks,Ben McCarty, Daniel Graham etc. | Some cybersecurity books 
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118970.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118970.jpgsave_picture_118970.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ Not Another Weekend (2021) [Multi] (1.10) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118971.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118971.jpgsave_picture_118971.jpg" />
 </div>
 
 

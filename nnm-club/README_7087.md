@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243142.jpgsave_picture_243142.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:320337E3034D3F4BE7B8292D6EDA7793A837519B
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243143.jpgsave_picture_243143.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ Exit North - Book of Romance and Dust (2018) [FLAC|Lossless|WEB-DL|tracks] <Alte
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243144.jpgsave_picture_243144.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ Modern Man - Modern Man (1987) [MP3|320 Kbps] <Pop Rock, Synth-pop>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243145.jpgsave_picture_243145.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ magnet:?xt=urn:btih:CFD99C01054A2DC1082038252C363F55BB0B8A3F
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243146.jpgsave_picture_243146.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ Kevin M. Thomas - Generation Rock (2016) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243147.jpgsave_picture_243147.jpg" />
 </div>
 
 
@@ -161,7 +161,7 @@ magnet:?xt=urn:btih:A9A8C41D3E8CA37F54562A735C3F299D7FB8DE27
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243148.jpgsave_picture_243148.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ Graveworm - Ascending Hate (2015) Limited Edition [FLAC|Lossless|image + .cue] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243149.jpgsave_picture_243149.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ magnet:?xt=urn:btih:7352C5B64AAE7D3354CAE6D9FC1897839CE58A2D
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243150.jpgsave_picture_243150.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ magnet:?xt=urn:btih:6AD698703C8BFC73D4BF3DD97497F6E357BDB09F
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243151.jpgsave_picture_243151.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ Splash n Recolor 4.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243152.jpgsave_picture_243152.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ VA - German Top 100 Single Charts 25.03.2022 [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243153.jpgsave_picture_243153.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ Vivaldi 6.0.2979.11 include standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243154.jpgsave_picture_243154.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ Mark Dwane - The Euphonic Collection (2016) [MP3|320 Kbps] <Chill out>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243155.jpgsave_picture_243155.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ Metadatics 1.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243156.jpgsave_picture_243156.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ Topaz Photo AI 1.2.9 (x64) RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243157.jpgsave_picture_243157.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Topaz Gigapixel AI 6.0.0 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243158.jpgsave_picture_243158.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ magnet:?xt=urn:btih:E57E515D5DB208563A6C2DAA2AC8B52DAB709796
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243159.jpgsave_picture_243159.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ Burning Shadows - Gather, Darkness! (2012) [FLAC|Lossless|image + .cue] <Heavy M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243160.jpgsave_picture_243160.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ magnet:?xt=urn:btih:F868220A6D5575125369F5D3E81DDC30891B0ADE
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243161.jpgsave_picture_243161.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Maxthon Browser 7.0.0.3000 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243162.jpgsave_picture_243162.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Bethlehem - Bethlehem (2016) [MP3|320 Kbps] <Black Metal, Dark Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243163.jpgsave_picture_243163.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ magnet:?xt=urn:btih:FB69F7CA692724D2E68A097F13EE2971A069B0FA
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243164.jpgsave_picture_243164.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ magnet:?xt=urn:btih:F0B11BB11C75172518D31BF6CB6FEDB9CF29E102
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243165.jpgsave_picture_243165.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ magnet:?xt=urn:btih:58849D7A52C4320420060786424225082EF4A4C4
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243166.jpgsave_picture_243166.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ magnet:?xt=urn:btih:5F0DD811E77C4474C472D38F5F6E8BCF5C6E2769
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243167.jpgsave_picture_243167.jpg" />
 </div>
 
 

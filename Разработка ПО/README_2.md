@@ -6,7 +6,7 @@ JetBrains PyCharm Professional 2025.2.4 (x64-arm64) Repack by IFE`a [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212505.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212505.jpgsave_picture_212505.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ JetBrains PhpStorm 2025.2.4 (x64-arm64) Repack by IDE`a [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212514.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212514.jpgsave_picture_212514.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ JetBrains GoLand 2025.2.4 (x64-arm64) Repack by IDE`a [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212521.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212521.jpgsave_picture_212521.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Jetbrains IntelliJ IDEA Ultimate 2025.2.4 (x64-arm64) Repack by IDE`a [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212527.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212527.jpgsave_picture_212527.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ JetBrains Rider 2025.2.4 (x64-arm64) Repack by IDE`a [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213478.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213478.jpgsave_picture_213478.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Resource Tuner Business 2.23.0.0 [Multi/Ru]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233584.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233584.jpgsave_picture_233584.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ Code Composer Studio 12.2.0.00009 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241408.jpgsave_picture_241408.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ Lahey/Fujitsu Fortran 7.9 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243389.jpgsave_picture_243389.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ PowerShell Studio 2022 v5.8.202 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245271.jpgsave_picture_245271.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ Java SE Development Kit 8.0.341 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249585.jpgsave_picture_249585.jpg" />
 </div>
 
 

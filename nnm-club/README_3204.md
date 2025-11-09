@@ -6,7 +6,7 @@ Ignitor - Horns and Hammers (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103647.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103647.jpgsave_picture_103647.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Just Rock (Cool Badass Tunes, Vol. 1) (2024) [FLAC|Lossless|WEB-DL|tracks] 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103648.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103648.jpgsave_picture_103648.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:784EAA8CE460FEEB56D9D721D390CCA892D970E3
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103649.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103649.jpgsave_picture_103649.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - Just Jazz (Luxurious Smooth Tunes, Vol. 1) (2024) [FLAC|Lossless|WEB-DL|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103650.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103650.jpgsave_picture_103650.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ VA - Just Rock (Cool Badass Tunes, Vol. 2) (2024) [FLAC|Lossless|WEB-DL|tracks] 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103651.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103651.jpgsave_picture_103651.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ magnet:?xt=urn:btih:264406310B56A3594897EA07DD72448B761A4AA1
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103652.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103652.jpgsave_picture_103652.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ VA - Dinner Jazz Instrumentals_ The Ultimate Collection, Vol. 1 (2024) [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103653.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103653.jpgsave_picture_103653.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ VA - Just Jazz (Luxurious Smooth Tunes, Vol. 2) (2024) [FLAC|Lossless|WEB-DL|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103654.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103654.jpgsave_picture_103654.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ VA - Funky Jazz Saxophone (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Funk>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103655.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103655.jpgsave_picture_103655.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ VA - Funky Afro Jazz Grooves (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Funk>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103656.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103656.jpgsave_picture_103656.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Pat Fulgoni - The Pat Fulgoni Blues Experience (2024) [FLAC|Lossless|WEB-DL|trac
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103657.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103657.jpgsave_picture_103657.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ VA - It's A Groovy Thing! Vol.5 (The Amazing Jazz Funk Afro Sound) (2024) [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103658.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103658.jpgsave_picture_103658.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ magnet:?xt=urn:btih:A72B2D5A65F74C09948B2EAA0060EEC01E92183D
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103659.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103659.jpgsave_picture_103659.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ VA - Nu Acid Jazz Party For Your Aperitif (2024) [FLAC|Lossless|WEB-DL|tracks] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103660.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103660.jpgsave_picture_103660.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ VA - Acid Jazz Today 4 (Chapter Four) (2024) [FLAC|Lossless|WEB-DL|tracks] <Acid
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103661.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103661.jpgsave_picture_103661.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ Ted Heath & His Music - Listen To My Music (2003) Living Era [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103662.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103662.jpgsave_picture_103662.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ magnet:?xt=urn:btih:44652EC3936A741ADBA5D1B9CACB9C52FECD3179
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103663.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103663.jpgsave_picture_103663.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ magnet:?xt=urn:btih:1BE813C7C2D7C74CA500B1E911FA00C2260641BA
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103664.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103664.jpgsave_picture_103664.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ magnet:?xt=urn:btih:41A5BFBDE6569715E57F79F5A28EF09C0AE87829
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103665.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103665.jpgsave_picture_103665.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ PhotoDirector v19.7.1 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103666.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103666.jpgsave_picture_103666.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ magnet:?xt=urn:btih:AF8782C2376401E7BCA69A49D21C2F63BE7259DE
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103667.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103667.jpgsave_picture_103667.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ VA - Black Hole Trance Music 10-24 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103668.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103668.jpgsave_picture_103668.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ VA - You Rock (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103669.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103669.jpgsave_picture_103669.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ VA - Rockklassiker (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103670.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103670.jpgsave_picture_103670.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ Joe Bonamassa - Different Shades Of Blue (Overdrive) (2014) 2024 Reissue, 10th A
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103671.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103671.jpgsave_picture_103671.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ magnet:?xt=urn:btih:E8C8829A41B7FBEBB84EAB8D8AF9C54D170852BC
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103672.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103672.jpgsave_picture_103672.jpg" />
 </div>
 
 

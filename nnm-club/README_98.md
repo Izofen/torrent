@@ -6,7 +6,7 @@ The Midnight Walk (2025) [Ru/Multi] (Build 18854438) Repack Let'sРlay [VR]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2585.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2585.jpgsave_picture_2585.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:B2FD5F8C95056FE3EACD81518A5CA501DDF9BF1F
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2586.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2586.jpgsave_picture_2586.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ PATAPON 1+2 REPLAY (2025) [Ru/Multi] (1.0.7) Repack Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2587.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2587.jpgsave_picture_2587.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:08C9CE409F8A7F49712C7A49AA2275AF74238780
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2588.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2588.jpgsave_picture_2588.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:2D2879B09944C291556B108BBF16A11BE9E049DE
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2589.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2589.jpgsave_picture_2589.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Warhammer 40,000: Rogue Trader (2023) [Ru/Multi] (1.4.1.231/dlc) Repack Wanterlu
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2590.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2590.jpgsave_picture_2590.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:19B9B41FF9FA092E1A886DD991FB8C09D38588EE
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2591.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2591.jpgsave_picture_2591.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:0225CD8646AB4E8C77B455BB35BCB76860BDCDAD
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2592.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2592.jpgsave_picture_2592.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ VA - Ibiza Afterlight - Chillout Soundscapes (2025) [FLAC|Lossless|WEB-DL|tracks
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2593.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2593.jpgsave_picture_2593.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:CA66C4C2B3576EE7AC5406E9C514064EF2E4A459
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2594.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2594.jpgsave_picture_2594.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:B1BA2CFE665E321F3F05B5B862377EEC2494F089
 >>Folk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2595.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2595.jpgsave_picture_2595.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:4DE18957FABDC9399A16B70FE23C4A534E49C658
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2596.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2596.jpgsave_picture_2596.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:ECFF1E462FD3D6A262788FE65063558BF380AA62
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2597.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2597.jpgsave_picture_2597.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:FD760F571E67EBA3A9FD67801629E3DD1A7B58F5
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2598.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2598.jpgsave_picture_2598.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ magnet:?xt=urn:btih:13017941209FD0188E75A1EE4D58D8A5C9D62ADC
 >>Folk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2599.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2599.jpgsave_picture_2599.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Vargas Blues Band - Down Under Blues (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2600.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2600.jpgsave_picture_2600.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ magnet:?xt=urn:btih:AD2B424C2CF34483F144C436C82D8ABAF460C980
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2601.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2601.jpgsave_picture_2601.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Knorkator - Weltherrschaft für alle! (2025) [FLAC|Lossless|WEB-DL|tracks] <Indu
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2602.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2602.jpgsave_picture_2602.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ magnet:?xt=urn:btih:5276CD9E366F69827EBDF348D52AD54D97CFA185
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2603.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2603.jpgsave_picture_2603.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ magnet:?xt=urn:btih:9960D0245AB8EEE3DE6080B7AE9836ED96DFA77E
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2604.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2604.jpgsave_picture_2604.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Dead End Tragedy - Electrical Impulses Of Hate (2025) [FLAC|Lossless|WEB-DL|trac
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2605.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2605.jpgsave_picture_2605.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Taetre - Studio Albums (3 releases) (1997-2002) hand made [restored, declipped] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2606.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2606.jpgsave_picture_2606.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Warren Vache & Bill Charlap - 2gether (2000) 2011, Nagel Heyer Records [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2607.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2607.jpgsave_picture_2607.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Tonix - Santo Domingo (1977) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop, Folk,
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2608.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2608.jpgsave_picture_2608.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Caliban - Studio Albums (16 releases) (1998-2025) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2609.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2609.jpgsave_picture_2609.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ magnet:?xt=urn:btih:44898F5A8576B2844B0872DE6E0C84E71638F224
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2610.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2610.jpgsave_picture_2610.jpg" />
 </div>
 
 

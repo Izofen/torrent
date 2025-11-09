@@ -6,7 +6,7 @@ Children of Morta v1.0.2 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33817.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33817.jpgsave_picture_33817.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ v2rayN 7.4.0 portable pre-release [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33818.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33818.jpgsave_picture_33818.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ v2rayN 7.3.2 portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33819.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33819.jpgsave_picture_33819.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ O&O ShutUp10++ 1.9.1441 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33820.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33820.jpgsave_picture_33820.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ Google Earth Pro 7.3.6.10155 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33821.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33821.jpgsave_picture_33821.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Windows Manager 2.0.9 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33822.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33822.jpgsave_picture_33822.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:BCB842D68983976A28C6AD35071114B4C5FAF904
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33823.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33823.jpgsave_picture_33823.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:8DBE7A965FDC5B0A4900239B255C591BEE708E8A
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33824.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33824.jpgsave_picture_33824.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:DBBF37AAED66286407EE9DC4DB3C0FD98DE7BC75
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33825.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33825.jpgsave_picture_33825.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:66B4E306463A623B7723272F8FCFE1D42553B6B3
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33826.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33826.jpgsave_picture_33826.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:7BCA390ED5319FB7FB99AB82A78A760F8E796508
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33827.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33827.jpgsave_picture_33827.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:220DD2D6F1E3D016AEE285CC0736A9C8AC66BE9B
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33828.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33828.jpgsave_picture_33828.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ YT Downloader 9.11.7 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33829.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33829.jpgsave_picture_33829.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ SpiderWeb Games (Avadon, Avernum, Exile, Geneforge, Nethergate, Subterra) (1995-
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33830.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33830.jpgsave_picture_33830.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ magnet:?xt=urn:btih:4970DCF41F7648E7DCDA3D4ECF75C2632691C6AC
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33831.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33831.jpgsave_picture_33831.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ magnet:?xt=urn:btih:D2B102B9D0F1BEDF8202A186B8688E1281FA9E3E
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33832.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33832.jpgsave_picture_33832.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Adobe After Effects 2025 25.1.0.68 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33833.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33833.jpgsave_picture_33833.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ magnet:?xt=urn:btih:AEECA65020C15EBE3659065CCC2E4B6C339146F2
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33834.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33834.jpgsave_picture_33834.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:5D020F8B1C921DF2C76B67B4D9852A08DEA63496
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33835.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33835.jpgsave_picture_33835.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Blasphemous 2 (2023) [Ru/Multi] (2.2.0-cs57553/dlc) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33836.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33836.jpgsave_picture_33836.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:FCBE417CBE4B9FF21318273F580BC71674270800
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33837.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33837.jpgsave_picture_33837.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ magnet:?xt=urn:btih:FCBE417CBE4B9FF21318273F580BC71674270800
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33838.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33838.jpgsave_picture_33838.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ magnet:?xt=urn:btih:B065F6021B70D7C3D38C89C40BA23639FA696718
 >>Звуковые дорожки и субтитры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33839.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33839.jpgsave_picture_33839.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ magnet:?xt=urn:btih:4EE04C4A4E95435B09A5E6A4BCC006D7231CFD0B
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33840.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33840.jpgsave_picture_33840.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Harold Halibut (2024) [Ru/Multi] (1.1.1) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33841.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33841.jpgsave_picture_33841.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Adobe Photoshop Lightroom Classic 2025 14.1.1.1 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33842.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33842.jpgsave_picture_33842.jpg" />
 </div>
 
 

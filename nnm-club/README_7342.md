@@ -6,7 +6,7 @@ VA - German TOP 100 Single Charts (10.05.2012) [MP3|152-312 кб/с]<Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251135.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251135.jpgsave_picture_251135.jpg" />
 </div>
 
 
@@ -39,7 +39,7 @@ magnet:?xt=urn:btih:20F46FD83F6406C7F4BE4A06A2996CB060B578AA
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251137.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251137.jpgsave_picture_251137.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ magnet:?xt=urn:btih:CE40D4CD86B7C8009218B4BDC5EBF8E950AA1C0C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251138.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251138.jpgsave_picture_251138.jpg" />
 </div>
 
 
@@ -89,7 +89,7 @@ magnet:?xt=urn:btih:A07A808AAE5DBF0D8791089D1E0F5E83FD850B9E
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251139.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251139.jpgsave_picture_251139.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ magnet:?xt=urn:btih:12128E6C9615292B47A03AF8C5458C10D122309A
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251142.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251142.jpgsave_picture_251142.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ VA - Самый Модный Молодежный Хит (2012) [MP3|256 кб/с
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251145.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251145.jpgsave_picture_251145.jpg" />
 </div>
 
 
@@ -172,7 +172,7 @@ Q-Dir 5.081 + Portable 32-bit/64-bit [Мульти,Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251148.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251148.jpgsave_picture_251148.jpg" />
 </div>
 
 
@@ -196,7 +196,7 @@ VA - Продвинутый Клубняк 50+50 (2012) [MP3|320 кб/с]<Pop,Da
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251150.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251150.jpgsave_picture_251150.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ magnet:?xt=urn:btih:E663934BEBBF1F12211133F8213470A91AD11F9D
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251151.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251151.jpgsave_picture_251151.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:E663934BEBBF1F12211133F8213470A91AD11F9D
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251152.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251152.jpgsave_picture_251152.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ Europe - Bag Of Bones (2012) Japan edition [FLAC (tracks+cue)|Lossless]<Melodic 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251159.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251159.jpgsave_picture_251159.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ Europe - Bag Of Bones (2012) Japan edition [FLAC (tracks+cue)|Lossless]<Melodic 
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251160.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251160.jpgsave_picture_251160.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ magnet:?xt=urn:btih:A79FD06A0A6774115F765A194CE3A48DF32044A8
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251161.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251161.jpgsave_picture_251161.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ Fausto Papetti - Grand Collection (1988) [FLAC|Lossless]<Pop, Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251166.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251166.jpgsave_picture_251166.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ Adventures of Robin Hood [En] (RePack) 1992 | Pilotus
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251167.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251167.jpgsave_picture_251167.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ VA - Playbox На Европе Плюс (2012) [MP3|256 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251170.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251170.jpgsave_picture_251170.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ magnet:?xt=urn:btih:340DE51E6C746FFB8F7B82E90E7E8074316EB731
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251171.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251171.jpgsave_picture_251171.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ magnet:?xt=urn:btih:2C83C7B34F314FAD321C454D4C177633BF705CD7
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251172.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251172.jpgsave_picture_251172.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ magnet:?xt=urn:btih:D38C3C4E506F5163183B20A9530EA4FAE270E94D
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251175.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251175.jpgsave_picture_251175.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ magnet:?xt=urn:btih:A571B3A36E7E225574B6F08475851C8314DF4912
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251180.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251180.jpgsave_picture_251180.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ VA - Инструментальная музыка (2012) vol. № 36 [MP3|320 �
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251183.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251183.jpgsave_picture_251183.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ VA - Инструментальная музыка (2012) vol. № 35 [MP3|320 �
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251184.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251184.jpgsave_picture_251184.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ magnet:?xt=urn:btih:3505239F5A0834BFA2C5E41E1547AAEA04FDCEFC
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251188.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251188.jpgsave_picture_251188.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Elijah Prophet - 2 альбома(2006, 2011) [MP3|192 кб/с]<Reggae>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251190.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251190.jpgsave_picture_251190.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ magnet:?xt=urn:btih:485CC3AFEECDF4F59FDC5BD57AECD24B243EC4B4
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251191.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251191.jpgsave_picture_251191.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ magnet:?xt=urn:btih:485CC3AFEECDF4F59FDC5BD57AECD24B243EC4B4
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251193.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251193.jpgsave_picture_251193.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191375.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191375.jpgsave_picture_191375.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:0FB585ADCBF9976949221F9F24F712E7039BA322
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191376.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191376.jpgsave_picture_191376.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Proprofiling, Алексей Филатов | Энциклопедия мани�
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191377.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191377.jpgsave_picture_191377.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:ABEBB0B21FF7205C92D2BD3E9D463794BC0743BE
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_191378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191378.jpgsave_picture_191378.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:D03CE0CFEBFC3905FE2412AE346793ADCDC146FB
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191379.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191379.jpgsave_picture_191379.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:615F2C5470B283CC3B4544631A524E9E68DED8F4
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191380.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191380.jpgsave_picture_191380.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:4A95E6728EC11C5ACB2EFE6C535DC1D18E740053
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191381.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191381.jpgsave_picture_191381.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:038B1CCFB6655219E88C89BC7FF8C3C5FCDAA40A
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_191382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191382.jpgsave_picture_191382.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:8117B2AF1C91662FCDE77DB2B4922197119DE20B
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191383.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191383.jpgsave_picture_191383.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ SketchUp Pro 2023 23.1.315 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191384.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191384.jpgsave_picture_191384.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:A812600F38C480A037DA322622FF6B6923D34964
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191385.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191385.jpgsave_picture_191385.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:1E0741FC9BE5AB2EC3F578389D05EC6D47B700A5
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191386.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191386.jpgsave_picture_191386.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:7FF11CBE6A91A2AE3F532B72CF6308E9429C9B5E
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191387.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191387.jpgsave_picture_191387.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ magnet:?xt=urn:btih:A37190CE1A75E0F19FE7BE2809292555A4BA3136
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191388.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191388.jpgsave_picture_191388.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ magnet:?xt=urn:btih:F7D8385E2266BC0D15A5898C5FA6088B54BDBBF3
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191389.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191389.jpgsave_picture_191389.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ magnet:?xt=urn:btih:520A0E8FAC3C55470D491AD924DB9C208BC6399A
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191390.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191390.jpgsave_picture_191390.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ magnet:?xt=urn:btih:961356AFA70AA15FCA5E95BABEBCD1BF54D349CD
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191391.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191391.jpgsave_picture_191391.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Blue System - Seeds Of Heaven (1991) [OGG Vorbis|480 Kbps] <Electronic, Euro Hou
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191392.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191392.jpgsave_picture_191392.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ magnet:?xt=urn:btih:DBD8BDDA6F9B6E5F0DBDEE3D6B6B946CDED002BF
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191393.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191393.jpgsave_picture_191393.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ Blue System - 21st Century (1994) [OGG Vorbis|480 Kbps] <Electronic, Euro House,
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191394.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191394.jpgsave_picture_191394.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Air: Большой прыжок / Air (2023) BDRip [H.264/1080p] [MVO]
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191395.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191395.jpgsave_picture_191395.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ magnet:?xt=urn:btih:B88B038DCAB7DB1E4F04D8FA7CAF890DAAF37455
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191396.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191396.jpgsave_picture_191396.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ Lord Belial - Rapture (2022) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191397.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191397.jpgsave_picture_191397.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ magnet:?xt=urn:btih:B9946D2843F63EDEF52522E1A1FF406E2B00EF57
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191398.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191398.jpgsave_picture_191398.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ magnet:?xt=urn:btih:39B291418552B9EF4453FDA04A4CD579AD77AD49
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191399.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191399.jpgsave_picture_191399.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ magnet:?xt=urn:btih:21E6CCF52D3B22C819ECD83C881C1FBC98C3F25F
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191400.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191400.jpgsave_picture_191400.jpg" />
 </div>
 
 

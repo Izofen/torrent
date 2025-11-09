@@ -6,7 +6,7 @@
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6501.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6501.jpgsave_picture_6501.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:170A1255D410F71949B190FAC3C29227F5D75D2E
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6502.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6502.jpgsave_picture_6502.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:1DE5C4509E56F13B4E9F170A82F0B30DA5050E54
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6503.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6503.jpgsave_picture_6503.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:F27AAA9F8DDF0470D883221FE9B622612A50D55E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6504.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6504.jpgsave_picture_6504.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Deftones - Studio Albums (12 releases) (1995-2025) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6505.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6505.jpgsave_picture_6505.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Monospaced Lovers (2024) [Ru/Multi] (1.0.5.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6506.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6506.jpgsave_picture_6506.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:AF09464914CF98667F5E04F3A4B1AF859C84D10C
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6507.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6507.jpgsave_picture_6507.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:291D8EF4203C5C2FFE434B5766D66FB6B90771F3
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6508.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6508.jpgsave_picture_6508.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:59C3A2A5AD89304F88C24CDACBC56DFF27FEAD7B
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6509.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6509.jpgsave_picture_6509.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:B9560D0ECD022D339C3ED4DD5829D193EDD2B39F
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6510.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6510.jpgsave_picture_6510.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Adguard 7.21.2 (7.21.5086.0) RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6511.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6511.jpgsave_picture_6511.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ PDF-XChange Editor Plus 10.7.0.398 Portable + RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6512.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6512.jpgsave_picture_6512.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:051EA314E5C2C60A78EC551059E6C4F0AB2AC715
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6513.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6513.jpgsave_picture_6513.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Autorun Organizer 6.20 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6514.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6514.jpgsave_picture_6514.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Capture One 23 Enterprise 16.6.5.3072 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6515.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6515.jpgsave_picture_6515.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ magnet:?xt=urn:btih:D32B28D754CC1F54EAA8ED95952C2F653224220E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6516.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6516.jpgsave_picture_6516.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ magnet:?xt=urn:btih:62EAB5EEB4F6509EDBC816FAE54C8093F766D626
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6517.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6517.jpgsave_picture_6517.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ The Unholy Priest (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6518.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6518.jpgsave_picture_6518.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ magnet:?xt=urn:btih:3D2F67056B21F5225FE26C043E44C0D24CA02A62
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6519.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6519.jpgsave_picture_6519.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ LibreOffice 25.8.0 Stable Portable by FC Portables[Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6520.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6520.jpgsave_picture_6520.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ The Unholy Priest (2025) [Ru/Multi] (1.0) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6521.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6521.jpgsave_picture_6521.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ magnet:?xt=urn:btih:981531DA2A86B0248CBAE06EC9DA8963FBAE8A18
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6522.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6522.jpgsave_picture_6522.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ magnet:?xt=urn:btih:CD7AFAC1A4982B261853FFEF01C72A0B26340C8D
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6523.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6523.jpgsave_picture_6523.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ magnet:?xt=urn:btih:D5D88CB2F6FA75FAD089A94A115D6768244411ED
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6525.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6525.jpgsave_picture_6525.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ magnet:?xt=urn:btih:B3F3F0EE2711B4798FEF8F3A3A6450AF85BF9833
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6526.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6526.jpgsave_picture_6526.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ De’Longhi переименовала кофемашину в компьюте�
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6528.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6528.jpgsave_picture_6528.jpg" />
 </div>
 
 

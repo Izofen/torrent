@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250818.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250818.jpgsave_picture_250818.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Zoe Schwarz and Rob Koral - Colourful House (2025) [FLAC 24/48|Lossless|WEB-DL|t
 >>Blues, Soul (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250819.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250819.jpgsave_picture_250819.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ True Strays - Never Ending Sunset (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Bl
 >>Blues, Soul (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250821.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250821.jpgsave_picture_250821.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:719C072E82631BB86160A6AE9157DC5923840D73
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250822.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250822.jpgsave_picture_250822.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:719C072E82631BB86160A6AE9157DC5923840D73
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250823.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250823.jpgsave_picture_250823.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ The Vibeliners - Strings In Motion (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <S
 >>Jazz (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250825.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250825.jpgsave_picture_250825.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:526E460989A6CC495F1FC76DFD545930B576BF03
 >>Отечественные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250827.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250827.jpgsave_picture_250827.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:92334BAC37D441201FB59023D28FAB9F34DFB8E8
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250828.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250828.jpgsave_picture_250828.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Evanescence (Amy Lee) - 9 Albums + 3 EP's + 2 Lives + 21 Singles + 1 Compilation
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250829.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250829.jpgsave_picture_250829.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ magnet:?xt=urn:btih:AE2F83F09D8ECD2C98B3299F1034E20046A9C230
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250831.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250831.jpgsave_picture_250831.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ magnet:?xt=urn:btih:DB972EA5CFA3BD6B41C14A28EE7907D1BE7B1564
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250832.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250832.jpgsave_picture_250832.jpg" />
 </div>
 
 
@@ -291,7 +291,7 @@ Ashes And Diamonds - Are Forever (2025) [FLAC|Lossless|image + .cue] <Rock, Alte
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250834.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250834.jpgsave_picture_250834.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ magnet:?xt=urn:btih:FE353F70EEC8E56BD69A3C9B096E469592869D9F
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250836.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250836.jpgsave_picture_250836.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Windows 8 Codecs 1.0.8 [Multi/Рус]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250837.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250837.jpgsave_picture_250837.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Windows 8 Codecs - финальный набор кодеков от разра�
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250838.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250838.jpgsave_picture_250838.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Legendary Tales 4: Map of Hope / Легендарные предания 4: Ка
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250839.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250839.jpgsave_picture_250839.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ magnet:?xt=urn:btih:57065886E5A3519DF9187D4EB1AB26C74DA4C2AF
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250843.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250843.jpgsave_picture_250843.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ magnet:?xt=urn:btih:E2382F3EF02326CBF0F630FC407100442F5C6126
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250848.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250848.jpgsave_picture_250848.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ magnet:?xt=urn:btih:E169F921DC7F8DC145FD04DE1DB33360C0C750B8
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250849.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250849.jpgsave_picture_250849.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ VA - 00s Rewind (Warner Music) (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250850.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250850.jpgsave_picture_250850.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ Sugar Ray & The Bluetones - Blues from Sibculo (2025) [FLAC 24/48|Lossless|WEB-D
 >>Blues, Soul (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250851.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250851.jpgsave_picture_250851.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ OneCommander Pro 3.103.0.0 [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250852.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250852.jpgsave_picture_250852.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ magnet:?xt=urn:btih:00FE5A515BD3823933B8D9701A5B2BE2BC039340
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250853.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250853.jpgsave_picture_250853.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Randy Johnston - Rockin' Soul at the Star Tavern (2025) [FLAC 24/48|Lossless|WEB
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250855.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250855.jpgsave_picture_250855.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Mike Bourne Band - Kansas City O'clock (2025) [FLAC 24/44.1|Lossless|WEB-DL|trac
 >>Blues, Soul (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250856.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250856.jpgsave_picture_250856.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ MELL VF - Echoes (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues, Soul>
 >>Blues, Soul (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250858.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250858.jpgsave_picture_250858.jpg" />
 </div>
 
 

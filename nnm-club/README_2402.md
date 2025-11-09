@@ -6,7 +6,7 @@ Kodachi Linux 8.27 [x64] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62819.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62819.jpgsave_picture_62819.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:439B1A185D120E786197A816B477A4E5D2D06FD7
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62820.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62820.jpgsave_picture_62820.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ Melon VPN - Secure Proxy VPN 8.0.002 Mod By FreeApkexe [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62821.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62821.jpgsave_picture_62821.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ magnet:?xt=urn:btih:9066AB74A79EBB83743C39B7BBAB8CC144198443
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62822.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62822.jpgsave_picture_62822.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:830FCA5B4BAF9D2FE3BF8DC3BEB0EAFA26568BD5
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62823.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62823.jpgsave_picture_62823.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:1E4AB06BAB1CC89510D31B5E621B8E80C2C2CB65
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62824.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62824.jpgsave_picture_62824.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:44D6CEA9A181B6E465552D15D9EC1F4B53915ACE
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62825.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62825.jpgsave_picture_62825.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:44D6CEA9A181B6E465552D15D9EC1F4B53915ACE
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62826.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62826.jpgsave_picture_62826.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ magnet:?xt=urn:btih:D8B40ABAE0D6A48135221A1226B015A85E3AB79C
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62827.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62827.jpgsave_picture_62827.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ magnet:?xt=urn:btih:F20C945B606B6EE04A58B70536F92ECC8733BF86
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62828.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62828.jpgsave_picture_62828.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ magnet:?xt=urn:btih:7F93C6ABF54A55C9FC74757948E3328B14A72C6C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62829.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62829.jpgsave_picture_62829.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ AI ChatBot AI Friend Generator v3.0.5.6 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62830.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62830.jpgsave_picture_62830.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ magnet:?xt=urn:btih:2FD3F31D69BE1175747265E10FB40DE627ACA31A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62831.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62831.jpgsave_picture_62831.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Rise of the Tomb Raider (2016) [Ru/Multi] (1.0.1027.0/dlc) Repack Decepticon [20
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62832.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62832.jpgsave_picture_62832.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ magnet:?xt=urn:btih:A3344BAD665AF8D43A366A01886088377CA4906A
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62833.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62833.jpgsave_picture_62833.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Welcome to ParadiZe (2024) [Ru/Multi] (Build Feb 26 2024/dlc) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62834.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62834.jpgsave_picture_62834.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ magnet:?xt=urn:btih:0CB8888438A7DD9859FF0FA721CE19D3ECBF4ECA
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62835.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62835.jpgsave_picture_62835.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ magnet:?xt=urn:btih:0CC423D6C552EC2B68F46A1166A9F7F808AEDC94
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62836.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62836.jpgsave_picture_62836.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ Tomb Raider (2013) [Ru] (1.1.838.0/dlc) Repack Decepticon [Game of The Year Edit
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62837.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62837.jpgsave_picture_62837.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Microcosmum 2 (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62838.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62838.jpgsave_picture_62838.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ AIDA64 Extreme | Engineer | Business Edition | Network Audit 7.20.6802 RePack (&
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62839.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62839.jpgsave_picture_62839.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ magnet:?xt=urn:btih:61B228755BE286170C1F97083B4FD0AD1AE6EED3
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62840.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62840.jpgsave_picture_62840.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ magnet:?xt=urn:btih:E42991EB2320FF7AB0166715F78C223D1F73F65C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62841.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62841.jpgsave_picture_62841.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Udemy, Александр Сокирка | Руководство по WordPress
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62842.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62842.jpgsave_picture_62842.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ magnet:?xt=urn:btih:562FE9FE6F7AAC7B248806D20E46A2391C93A08C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62843.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62843.jpgsave_picture_62843.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ FinePrint Software (FinePrint 11.44 / pdfFactory Pro 8.44) RePack by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62844.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62844.jpgsave_picture_62844.jpg" />
 </div>
 
 

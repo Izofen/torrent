@@ -6,7 +6,7 @@ Luke Morley - Songs From The Blue Room (2023) Japanese Edition [FLAC|Lossless|im
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160626.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160626.jpgsave_picture_160626.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Saboter - Architects Of Evil (2018) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160638.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160638.jpgsave_picture_160638.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Red Harvest - Cold Dark Matter (2000) Promo CD [APE|Lossless|image + .cue] <Indu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160648.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160648.jpgsave_picture_160648.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Dreams - Dreams (1987) 2xCD, Reissue, 2023, Bad Reputation [FLAC|Lossless|image 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160650.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160650.jpgsave_picture_160650.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Angel Dust - Border Of Reality (1998) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160654.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160654.jpgsave_picture_160654.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Aura - Злая магия (2019) [FLAC|Lossless|image + .cue] <Symphonic Gothic
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160658.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160658.jpgsave_picture_160658.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Radioactive - Taken (2005) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160660.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160660.jpgsave_picture_160660.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Degreed - Lost Generation (2019) Japanese Edition [FLAC|Lossless|image + .cue] <
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160661.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160661.jpgsave_picture_160661.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Necrophagia - The Divine Art Of Torture (2003) [APE|Lossless|image + .cue] <Deat
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160662.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160662.jpgsave_picture_160662.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Bethlehem - Lebe Dich Leer (2019) 2CD [FLAC|Lossless|image + .cue] <Dark Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160671.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160671.jpgsave_picture_160671.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:7AF72A738FAB7FBDAAACFBC1EF232F35D7EC4840
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160672.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160672.jpgsave_picture_160672.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Evemaster - MMIV Lacrimae Mundi (2005) [FLAC|Lossless|image + .cue] <Melodic Bla
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160673.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160673.jpgsave_picture_160673.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Darkside of Innocence - Infernum Liberus Est (2010) [FLAC|Lossless|image + .cue]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160675.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160675.jpgsave_picture_160675.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Angel Dust - Of Human Bondage (2002) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160676.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160676.jpgsave_picture_160676.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Angel Dust - Bleed (1999) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160677.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160677.jpgsave_picture_160677.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Asagraum - Veil of Death, Ruptured (2023) [FLAC|Lossless|WEB-DL|tracks] <Black M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160678.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160678.jpgsave_picture_160678.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Zombie Attack - Bonded By Beer (2019) [FLAC|Lossless|image + .cue] <Thrash Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160682.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160682.jpgsave_picture_160682.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Granada - Sincronizado (2017) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160683.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160683.jpgsave_picture_160683.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Angel Dust - Enlighten The Darkness (2000) [FLAC|Lossless|image + .cue] <Heavy M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160684.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160684.jpgsave_picture_160684.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ GrimFaith - Preacher Creature (2013) [FLAC|Lossless|image + .cue] <Gothic Doom M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160685.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160685.jpgsave_picture_160685.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Wizard - Head Of The Deceiver (2001) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160687.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160687.jpgsave_picture_160687.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Prestige - Reveal the Ravage (2021) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160688.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160688.jpgsave_picture_160688.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Saboter - Mankind Is Damned (2016) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160689.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160689.jpgsave_picture_160689.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Celestial Crown - Rebirth (2016) [FLAC|Lossless|image + .cue] <Gothic Metal, Doo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160690.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160690.jpgsave_picture_160690.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ Guillotine - Metal in the Vein (2007) [WavPack|Lossless|image + .cue] <Thrash Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160691.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160691.jpgsave_picture_160691.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ WiszdomStone - Rise (2009) [WavPack|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160692.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160692.jpgsave_picture_160692.jpg" />
 </div>
 
 

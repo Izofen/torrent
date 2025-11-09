@@ -6,7 +6,7 @@ Pantheist - Kings Must Die (2024) [FLAC 24/48; 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113689.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113689.jpgsave_picture_113689.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ George Shearing Trio & Stephane Grappelli - The Reunion (1976) 1987, MPS Records
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113690.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113690.jpgsave_picture_113690.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ FSNotes 6.7.0 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113691.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113691.jpgsave_picture_113691.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Mp3tag 1.8.16 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113692.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113692.jpgsave_picture_113692.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ NoteList 4 v.4.3.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113693.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113693.jpgsave_picture_113693.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ Algebra - Pulse? (2019) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113694.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113694.jpgsave_picture_113694.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ GarageSale 9.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113695.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113695.jpgsave_picture_113695.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ Bike Outliner for Mac 1.18.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113696.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113696.jpgsave_picture_113696.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ Desktop Stickers 2.71 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113697.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113697.jpgsave_picture_113697.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ BetterMouse for Mac 1.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113698.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113698.jpgsave_picture_113698.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ WiFiSpoof 3.9.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113699.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113699.jpgsave_picture_113699.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ magnet:?xt=urn:btih:58647B9F7D53A08D4050986A661DA76BF28D2A19
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113700.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113700.jpgsave_picture_113700.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ Downie 4 v.4.7.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113701.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113701.jpgsave_picture_113701.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ Cardhop 2.2.16 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113702.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113702.jpgsave_picture_113702.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Cookie 7.2.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113703.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113703.jpgsave_picture_113703.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ DaisyDisk 4.26.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113704.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113704.jpgsave_picture_113704.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ VA - Supreme Jazz Chill Lounge Smooth Relaxing Tunes (2024) [FLAC|Lossless|WEB-D
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113705.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113705.jpgsave_picture_113705.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ Cocktail Sonoma Edition  17.1.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113706.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113706.jpgsave_picture_113706.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ VA - Supreme Chill Lounge Instrumentals to Relax (2024) [FLAC|Lossless|WEB-DL|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113707.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113707.jpgsave_picture_113707.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ PDF Squeezer 4 v.4.5.1 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113708.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113708.jpgsave_picture_113708.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Folder-Factory 7.8.0 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113709.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113709.jpgsave_picture_113709.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ OmniFocus Pro 3.15.6 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113710.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113710.jpgsave_picture_113710.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ El Jadida Milano - Symphony Flavours Lounge (2024) [FLAC|Lossless|WEB-DL|tracks]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113711.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113711.jpgsave_picture_113711.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ magnet:?xt=urn:btih:B1206EC32EE35E566DA176A05DA9022DF4B871DF
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113712.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113712.jpgsave_picture_113712.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Airport Passengers - Hangar (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz Fusion>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113713.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113713.jpgsave_picture_113713.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ magnet:?xt=urn:btih:0534FFD781004837D02299ED961DBF7A627902C2
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113714.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113714.jpgsave_picture_113714.jpg" />
 </div>
 
 

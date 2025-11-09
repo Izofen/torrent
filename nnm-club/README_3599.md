@@ -6,7 +6,7 @@ YT Saver Video Downloader & Converter for Mac 7.4.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113949.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113949.jpgsave_picture_113949.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:CCA7CE9397390EF5F05D0DEF4E32B7842A106A52
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113950.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113950.jpgsave_picture_113950.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:5E5A8651CEE213F0F245C70FA65C65C9CA6EFFA0
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113951.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113951.jpgsave_picture_113951.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Kikki (Кикки) - Полуночное солнце (1986) [FLAC 24/192|Lossl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113952.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113952.jpgsave_picture_113952.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Disk Graph 3.0.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113953.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113953.jpgsave_picture_113953.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ Dynamic Wallpaper Engine 17.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113954.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113954.jpgsave_picture_113954.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ ToothFairy 2.8.4 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113955.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113955.jpgsave_picture_113955.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ Navicat Data Modeler Essentials for Mac 3.3.17 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113956.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113956.jpgsave_picture_113956.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ magnet:?xt=urn:btih:A736549B5BA1CDBC400CE36BF0DC1BE4B7DECB98
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113957.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113957.jpgsave_picture_113957.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ Joanna Stingray (Джоанна Стингрэй) - Thinking Till Monday (Дум
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113958.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113958.jpgsave_picture_113958.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ PopChar for Mac 10.0 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113959.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113959.jpgsave_picture_113959.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ magnet:?xt=urn:btih:0574D0FE38096E3A2656181CC43D6A2A8B78F875
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113960.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113960.jpgsave_picture_113960.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ The Count Basie Orchestra - Basie Swings The Blues (2023) Candid [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113961.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113961.jpgsave_picture_113961.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ Dario Margeli - Smooth Jazz Electric Guitar (2024) [FLAC|Lossless|WEB-DL|tracks]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113962.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113962.jpgsave_picture_113962.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Kenny Rogers - Поет Кенни Роджерс (1980) [FLAC 24/192|Lossless|t
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113963.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113963.jpgsave_picture_113963.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ Folder Icons 1.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113964.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113964.jpgsave_picture_113964.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ VA - Classy Hotel - Jazz & Instrumentals (2024) [FLAC|Lossless|WEB-DL|tracks] <J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113965.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113965.jpgsave_picture_113965.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ Toni Germani - Easy Pieces Against War, Virus And Crisis (2024) [FLAC|Lossless|W
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113966.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113966.jpgsave_picture_113966.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ magnet:?xt=urn:btih:CA06812183508FD80B71C3C6037FFF546F7BD75D
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113967.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113967.jpgsave_picture_113967.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ AutoCrypt 2.5.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113968.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113968.jpgsave_picture_113968.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Skeletal Remains - Fragments Of The Ageless (2024) [FLAC|Lossless|WEB-DL|tracks]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113969.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113969.jpgsave_picture_113969.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ magnet:?xt=urn:btih:72E42A01C41B0B7488AB684940FE98AF52BA884D
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113970.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113970.jpgsave_picture_113970.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Chromium 122.0.6261.112 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113971.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113971.jpgsave_picture_113971.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ magnet:?xt=urn:btih:E586C024980A487F1AAE45C880C48CDA9A4524B9
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113972.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113972.jpgsave_picture_113972.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ VA - With love to children (С любовью к детям) (1991) [FLAC 24/192
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113973.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113973.jpgsave_picture_113973.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ magnet:?xt=urn:btih:B6E92DD8AE3F1FDF6C1C9E3E2817F6CB906B86B5
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113974.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113974.jpgsave_picture_113974.jpg" />
 </div>
 
 

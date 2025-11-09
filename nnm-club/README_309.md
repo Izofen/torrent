@@ -6,7 +6,7 @@ Ashampoo WinOptimizer 28.00.13 RePack (& Portable) by elchupacabra [Ru/En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8126.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8126.jpgsave_picture_8126.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:915808C05B5E0C1E174AB916A6675E1906B9097E
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8127.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8127.jpgsave_picture_8127.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:CB8357E666718DE60AFC173DF6B80E4D606F0C79
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8128.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8128.jpgsave_picture_8128.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:809B87AB27A400B0E51AEB16E212B2A108BB0794
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8129.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8129.jpgsave_picture_8129.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ OCCT 14.2.5 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8130.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8130.jpgsave_picture_8130.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:6492AB1C12F30433D2CE5A9C6F04EA13104FC11B
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8131.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8131.jpgsave_picture_8131.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Shields of Loyalty (2021) [Ru/Multi] (1.0) Repack seleZen
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8132.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8132.jpgsave_picture_8132.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Emergency: Fighters for Life (1998) [En] (1.0) License
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8133.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8133.jpgsave_picture_8133.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Boti: Byteland Overclocked (2023) [Ru/Multi] (1.15/dlc) Repack Let'sРlay [Delux
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8134.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8134.jpgsave_picture_8134.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Microsoft Visual Studio 2022 Enterprise 17.14.12 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8135.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8135.jpgsave_picture_8135.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ magnet:?xt=urn:btih:81023662CC2C40AF3220717C2FFB7E5C802D0212
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8136.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8136.jpgsave_picture_8136.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Rise Of The White Sun (2023) [Multi] (1.86) Scene Tenoke
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8137.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8137.jpgsave_picture_8137.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ magnet:?xt=urn:btih:7DA5434BE55857C5368CAF82756559739D622DA0
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8138.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8138.jpgsave_picture_8138.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ magnet:?xt=urn:btih:E5D511D211B71310B03F8432C0CAB6DFB5C8E9CA
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8139.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8139.jpgsave_picture_8139.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ magnet:?xt=urn:btih:C4735574F344619A6A785618E6ACE2EBA8274E04
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8140.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8140.jpgsave_picture_8140.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ magnet:?xt=urn:btih:C4735574F344619A6A785618E6ACE2EBA8274E04
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8141.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8141.jpgsave_picture_8141.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ Office Tool Plus 10.25.54.0 Portable [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8142.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8142.jpgsave_picture_8142.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ Uptooda 1.4.4 Build 5388 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8143.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8143.jpgsave_picture_8143.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ magnet:?xt=urn:btih:59086CFCEB02397CD89C07F28873DA029B0B786C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8144.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8144.jpgsave_picture_8144.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ magnet:?xt=urn:btih:FEBBF4699327DB540222E1C497D90A9D6021B05C
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8145.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8145.jpgsave_picture_8145.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ magnet:?xt=urn:btih:13F9017C833E909A72137721645E9E000745F1A3
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8146.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8146.jpgsave_picture_8146.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ magnet:?xt=urn:btih:13F9017C833E909A72137721645E9E000745F1A3
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8147.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8147.jpgsave_picture_8147.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ MediaHuman YouTube Downloader 3.9.16 (1208) RePack (& Portable) by elchupacabra 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8148.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8148.jpgsave_picture_8148.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ magnet:?xt=urn:btih:D246E1C9AC77C62D4C21473959F5A0957450D402
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8149.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8149.jpgsave_picture_8149.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ ON1 Resize AI 2026 20.0.0.17231 by FC Portables [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8150.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8150.jpgsave_picture_8150.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ TRON: Catalyst (2025) [Ru/Multi] (0.10.7) Repack Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8151.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8151.jpgsave_picture_8151.jpg" />
 </div>
 
 

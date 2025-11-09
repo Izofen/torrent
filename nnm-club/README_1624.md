@@ -6,7 +6,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42581.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42581.jpgsave_picture_42581.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42582.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42582.jpgsave_picture_42582.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ Shy | Стесняшка [2023, TV, 24 эп.] WebRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42583.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42583.jpgsave_picture_42583.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:596B537642A34E5EC9E0E8FB69C0EDA2F2ED10F0
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42584.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42584.jpgsave_picture_42584.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:7F8626A0F6E0DB78513E4E801F5CA5CC030505EB
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42585.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42585.jpgsave_picture_42585.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Isekai Shikkaku / No Longer Allowed in Another World / Потеря челове
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42586.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42586.jpgsave_picture_42586.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:2F26D8C0CFF79C52C4B93194F747BB532418FE78
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42587.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42587.jpgsave_picture_42587.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ Copycat (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42588.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42588.jpgsave_picture_42588.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:C45DB335420E1DC40454C62BE061F22D6273914F
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42589.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42589.jpgsave_picture_42589.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ magnet:?xt=urn:btih:D082255E2A642767121B6CAFBF259B287F66A87F
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42590.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42590.jpgsave_picture_42590.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ magnet:?xt=urn:btih:2F7AA6781E1A73CC8226ED1F2EACC55D86196B8A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42591.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42591.jpgsave_picture_42591.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ magnet:?xt=urn:btih:DF1232BB6B66D0EB1AD54491BF7F2D0EA4C76EE9
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42592.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42592.jpgsave_picture_42592.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ AnyMP4 Video Converter Ultimate 8.5.58 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42593.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42593.jpgsave_picture_42593.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ magnet:?xt=urn:btih:3E19CA49AC6A000467DC122F188D8376A1A76E9F
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42594.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42594.jpgsave_picture_42594.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ magnet:?xt=urn:btih:7EF5AD627C0B83FBC80AF13DD119B026F6946F94
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42595.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42595.jpgsave_picture_42595.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ magnet:?xt=urn:btih:7EF5AD627C0B83FBC80AF13DD119B026F6946F94
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42596.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42596.jpgsave_picture_42596.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ magnet:?xt=urn:btih:8688D0B413668914B626DF3F8E25F1088C6F0F91
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42597.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42597.jpgsave_picture_42597.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ magnet:?xt=urn:btih:2006E8220DBCC936266CD74C625B004959325429
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42598.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42598.jpgsave_picture_42598.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ Katsute Mahou Shoujo to Aku wa Tekitai Shite Ita. | The Magical Girl and the Evi
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42599.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42599.jpgsave_picture_42599.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ magnet:?xt=urn:btih:532DE0FC199E30A53D6A73C100A630C90C2CF230
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42600.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42600.jpgsave_picture_42600.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ magnet:?xt=urn:btih:3389959500C25050CAF04E2F30243BDEDBD5B621
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42601.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42601.jpgsave_picture_42601.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Manu Chao - Viva Tu (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Latin Rock, Regg
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42602.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42602.jpgsave_picture_42602.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:E0A018E5C1B5218DD0872CD7317ABD7E1817E9B1
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42603.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42603.jpgsave_picture_42603.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ RegCool 2.013 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42604.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42604.jpgsave_picture_42604.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ VA - Arabic Ethnic Deep House Mix 2023 [FLAC|Lossless|WEB-DL|tracks] <House, Fol
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42605.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42605.jpgsave_picture_42605.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ magnet:?xt=urn:btih:3459F9FDBE9AA4D8BC9DF7E791CA9CA3E731C05A
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42606.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42606.jpgsave_picture_42606.jpg" />
 </div>
 
 

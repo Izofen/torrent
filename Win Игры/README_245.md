@@ -6,7 +6,7 @@ The Far Kingdoms: Awakening Quest (2023) [En] (1.0) Unofficial
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154071.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154071.jpgsave_picture_154071.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Sally Face (2016) [Ru/Multi] (1.5.05/dlc) Repack Other s [Episode 1-5]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154485.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154485.jpgsave_picture_154485.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Clid the Snail (2021) [Ru/Multi] (1.0.1) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154529.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154529.jpgsave_picture_154529.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Garfield Kart - Furious Racing (2019) [Multi] (20191220) Repack Butter_
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154533.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154533.jpgsave_picture_154533.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Looking for Aliens (2021) [Ru/Multi] (1.0.8) License GOG
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154560.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154560.jpgsave_picture_154560.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Gold Rush: The Game (2017) [Ru/Multi] (1.5.5.13528/dlc) Repack xatab [Collector'
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154569.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154569.jpgsave_picture_154569.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Life Is Strange (2015) [Ru/En] (1.0.0.397609) Repack xatab [Episode 1-5]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154588.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154588.jpgsave_picture_154588.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Vikings - Wolves of Midgard (2017) [Ru/En] (2.1/dlc) Repack xatab
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154649.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154649.jpgsave_picture_154649.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Webbed (2021) [Ru/Multi] (1.04b) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154680.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154680.jpgsave_picture_154680.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Cave Story's Secret Santa (2021) [En] (1.0.0.5) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154752.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154752.jpgsave_picture_154752.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ EMERGENCY 20 (2017) [Ru] (4.1.0) Repack xatab
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154770.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154770.jpgsave_picture_154770.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ BELOW (2018) [Ru/Multi] (1.0.0.30) Repack xatab
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154778.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154778.jpgsave_picture_154778.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Sword of the Stars: The Pit (2013) [En] (1.6.2/dlc) License GOG [Osmium Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154783.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154783.jpgsave_picture_154783.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ BLACKTAIL (2022) [Ru/Multi] (1.3) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154796.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154796.jpgsave_picture_154796.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ State of Survival (2023) [Ru/Multi] (1.20.20.644) License (обновляема�
 >>Online (MMO)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154866.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154866.jpgsave_picture_154866.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Salt and Sacrifice (2023) [Multi] (2.0.0.0a8) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154898.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154898.jpgsave_picture_154898.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Iris.Fall (2018) [Ru/Multi] (1.0.00024) License CODEX
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154918.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154918.jpgsave_picture_154918.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Ceiba (2023) [Ru/En] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154920.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154920.jpgsave_picture_154920.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Sundered (2017) [Ru/Multi] (911) Repack xatab [Eldritch Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155068.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155068.jpgsave_picture_155068.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Christmas Wonderland 9 / Рождество 9. Страна чудес (2018) [R
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155080.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155080.jpgsave_picture_155080.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Remain (2016) [Ru/En] (1.0) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155103.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155103.jpgsave_picture_155103.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Crime O'Clock (2023) [Multi] (1.3.2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155178.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155178.jpgsave_picture_155178.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Millidor (2016) [Ru] (0.9.0.3) License
 >>Online (MMO)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155375.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155375.jpgsave_picture_155375.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Royal Legends: Marshes Curse (2021) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155424.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155424.jpgsave_picture_155424.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Yuletide Legends 3: Who Framed Santa Claus (2018) [En] (1.0) Unofficial [Collect
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155502.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155502.jpgsave_picture_155502.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Test Drive: Ferrari Racing Legends [En] (Lossless Repack) 2012 | R.G. Origami
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155832.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155832.jpgsave_picture_155832.jpg" />
 </div>
 
 

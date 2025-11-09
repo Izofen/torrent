@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47547.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47547.jpgsave_picture_47547.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ SCHiM (2024) [Ru/Multi] (1.0.3.a) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47548.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47548.jpgsave_picture_47548.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Etera (2024) [En] (1.0.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47549.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47549.jpgsave_picture_47549.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:D2F0C95AE0227FC8B51155567B85333F882795DB
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47550.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47550.jpgsave_picture_47550.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:E7465686669E110A3732C332D2C43ECCEA94FC17
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47551.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47551.jpgsave_picture_47551.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:D1EFF9D6DDE40C6628E7F672208DB60DA27CC4B8
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47552.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47552.jpgsave_picture_47552.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:C887985D3DED48E62408112FE58CAB743E2AB1DC
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47553.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47553.jpgsave_picture_47553.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ AOMEI Backupper Technician Plus 7.4.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47554.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47554.jpgsave_picture_47554.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:C3BAF6458497257F57A2B7CD3225DDD0581A1F50
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47555.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47555.jpgsave_picture_47555.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:17B00ED8653148B3FF6BE0FCED30CBBDFF1F3C6B
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47556.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47556.jpgsave_picture_47556.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:B986AB41AF0ED84F4AC6E4C1D89BF9CC3C61F200
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47557.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47557.jpgsave_picture_47557.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Duplicate Cleaner Pro 5.23.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47558.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47558.jpgsave_picture_47558.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Conscript (2024) [Ru/Multi] (1.0.0.2/dlc) Repack FitGirl [Officer Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47559.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47559.jpgsave_picture_47559.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ magnet:?xt=urn:btih:4FB49D72D8D6414099AB5347448EE11BE05B609F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47560.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47560.jpgsave_picture_47560.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ magnet:?xt=urn:btih:4FB49D72D8D6414099AB5347448EE11BE05B609F
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47561.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47561.jpgsave_picture_47561.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ StartAllBack 3.8.2 StartIsBack++ 2.9.20 (2.9.1) StartIsBack + 1.7.6 RePack by Kp
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47562.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47562.jpgsave_picture_47562.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Deer Avenger 4: The Redneck Strikes Back / Месть Оленя 4 (2001) [Ru/En
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47563.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47563.jpgsave_picture_47563.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ magnet:?xt=urn:btih:4CBCD9B9D33E143C355D5D64F85C787149A48BC2
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47564.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47564.jpgsave_picture_47564.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ Media Player Classic - Black Edition (MPC-BE) 1.7.3 Stable + Portable + Standalo
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47565.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47565.jpgsave_picture_47565.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ magnet:?xt=urn:btih:0854F842D05899B48F6496D1CA2F3F29DA5BF70B
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47566.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47566.jpgsave_picture_47566.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ magnet:?xt=urn:btih:6473E224E8035BDC110B035D2694B631B7780B75
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47567.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47567.jpgsave_picture_47567.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ Sylvio: Black Waters (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47568.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47568.jpgsave_picture_47568.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ magnet:?xt=urn:btih:39AB623545994D0EE9382C0349E1221723A2DABA
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47569.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47569.jpgsave_picture_47569.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ LunarLux (2023) [Multi] (1.371) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47570.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47570.jpgsave_picture_47570.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ magnet:?xt=urn:btih:AAD93B1FA9E1ECC009C42CDC1326B0F3FD00DE6E
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47571.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47571.jpgsave_picture_47571.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ Age of Empires IV (4) (2021) [Ru/Multi] (11.0.782/dlc) Scene Rune [Anniversary E
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47572.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47572.jpgsave_picture_47572.jpg" />
 </div>
 
 

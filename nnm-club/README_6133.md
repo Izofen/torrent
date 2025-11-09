@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192836.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192836.jpgsave_picture_192836.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Total Commander 11.01 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192837.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192837.jpgsave_picture_192837.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:F8146A0694363A590EFAC196E178949561D3C35D
 >>Единоборства, Бои без правил
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192838.jpgsave_picture_192838.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ VA - Shazam Хит-парад World Top 200 Август (2023) [MP3|320 Kbps] <
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192839.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192839.jpgsave_picture_192839.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ CrystalDiskInfo 8.17.9 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192840.jpgsave_picture_192840.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:9EDAC03346974BBBDCB1EFB5C2F11BACED8A3B21
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192841.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192841.jpgsave_picture_192841.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ VA - Future Trance Vol.100 (2022) 3CD, Compilation, Mixed, Digipack [MP3|320 Kbp
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192842.jpgsave_picture_192842.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Total Commander Ultima Prime 8.8 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192843.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192843.jpgsave_picture_192843.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ magnet:?xt=urn:btih:99D0BCA67929F7364C9D421273F35B980DF676E3
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192844.jpgsave_picture_192844.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ Nik Collection by DxO 6.3.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192845.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192845.jpgsave_picture_192845.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:BD7D86D13F1BA5D8E07BA40CEB12024F76F65BD3
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192846.jpgsave_picture_192846.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ magnet:?xt=urn:btih:1E85469269D3209E23A24FC85B3C585FC5E264DF
 >>Бокс
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192847.jpgsave_picture_192847.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:2159658B45609ADCFD4FB484341A8A891F544F0D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192848.jpgsave_picture_192848.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ magnet:?xt=urn:btih:DD347B40060E881EF85C67F8F576431374D6A929
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192849.jpgsave_picture_192849.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ magnet:?xt=urn:btih:E4FAD55B8596978B5116039027245C60030CACAA
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192850.jpgsave_picture_192850.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ magnet:?xt=urn:btih:D137FFC2653DCC61E7E74BCA29C7B127B3CBB44B
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192851.jpgsave_picture_192851.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ StartAllBack 3.6.12 StartIsBack++ 2.9.19 (2.9.1) StartIsBack + 1.7.6 RePack by K
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192852.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192852.jpgsave_picture_192852.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ magnet:?xt=urn:btih:7F8F95BABA69166FC3D3A62131594D0EAED30B60
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192853.jpgsave_picture_192853.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ magnet:?xt=urn:btih:98D012E3F69C0F4F989E1B306A7495D2B97FA138
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192854.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192854.jpgsave_picture_192854.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ magnet:?xt=urn:btih:E7522E988A802C81F29153B9B30E942C0FA6060F
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192855.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192855.jpgsave_picture_192855.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ magnet:?xt=urn:btih:33C584F2FE7957D0FBCE15EBC82B39B55B345752
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192856.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192856.jpgsave_picture_192856.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ magnet:?xt=urn:btih:E19755AE98B6B2DAC4AA4DF107DF2BAA53DBC78C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192857.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192857.jpgsave_picture_192857.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ VA - В машине с музыкой Vol.315 (2022) MP3 [320 Kbps] <Pop, Dance
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192858.jpgsave_picture_192858.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ magnet:?xt=urn:btih:FF5AD469EA6808CA479E3DB63C399C611138775B
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192859.jpgsave_picture_192859.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ magnet:?xt=urn:btih:B4F9738617F877530317530976C2A9A06BD41E15
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192860.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192860.jpgsave_picture_192860.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ VA - Italo Club Mixes 2023 (2022) CD, Compilation [MP3|320 Kbps] <Italo-Dance, E
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192861.jpgsave_picture_192861.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_231830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231830.jpgsave_picture_231830.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ FontLab 8 v.8.2.0.8532 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231831.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231831.jpgsave_picture_231831.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Icecream Video Converter Pro 1.31 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231832.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231832.jpgsave_picture_231832.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Noturnall - Cosmic Redemption (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_231833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231833.jpgsave_picture_231833.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:D2360776193CF11AA9C2AD29B88ECD06E8C15875
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231835.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231835.jpgsave_picture_231835.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:7A45AA4FAAC69A895CCE8FC4DF0A08196178A77E
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_231836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231836.jpgsave_picture_231836.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ Art Blakey And The Jazz Messengers - Drum Suite (1957) 2005, Columbia [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231837.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231837.jpgsave_picture_231837.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ Bards of Antiquity - The Paladin (2023) [FLAC 2.0|48/24|WEB-DL|tracks] <Progress
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231839.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231839.jpgsave_picture_231839.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ Glary Disk Cleaner 5.0.1.293 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231840.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231840.jpgsave_picture_231840.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ magnet:?xt=urn:btih:F09FA001458BD4EDF8EAD0A96DDC1D1A898179FC
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231842.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231842.jpgsave_picture_231842.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ Within Temptation - Wireless (2023)  [FLAC 2.0|24/96|WEB-DL|tracks] <Symphonic M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_231843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231843.jpgsave_picture_231843.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ Quidam - Sny Aniołów (Sny Aniolow) (1998) Remaster, 2023, GAD Records [MP3|320
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231844.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231844.jpgsave_picture_231844.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ RegCool 1.340 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231846.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231846.jpgsave_picture_231846.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ magnet:?xt=urn:btih:85E74101944311C3D8397C9E7F6EB05AAB7773E4
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231848.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231848.jpgsave_picture_231848.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ magnet:?xt=urn:btih:E69591A07BE5714DE485668997EFABC36EE9BF58
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231849.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231849.jpgsave_picture_231849.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ EssentialPIM Pro 11.5.3 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_231850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231850.jpgsave_picture_231850.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ YT Downloader 9.1.5 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231851.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231851.jpgsave_picture_231851.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ magnet:?xt=urn:btih:949C494CFCF477A363254457E215055A73B4A843
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231854.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231854.jpgsave_picture_231854.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ QOwnNotes 23.7.2 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231855.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231855.jpgsave_picture_231855.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Ungoogled Chromium 113.0.5672.127-1.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_231858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231858.jpgsave_picture_231858.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ magnet:?xt=urn:btih:BD751478BDBE17F5E6B3201C04F0BE75CA47BF8C
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231859.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231859.jpgsave_picture_231859.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ magnet:?xt=urn:btih:6FE4999573257E83F87E3A77124B0E2A0CDC084F
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231860.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231860.jpgsave_picture_231860.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ The Three Tremors - Guardians of the Void (2021) [FLAC|Lossless|image + .cue] <H
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231861.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231861.jpgsave_picture_231861.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Morguenstern - 2 Albums (2014-2023) [MP3|320 Kbps] <Horror Gothic Metal>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231863.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231863.jpgsave_picture_231863.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ magnet:?xt=urn:btih:3CBC6FA15BC64C3D2CD4261B27BC79A2B5A3B7B6
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_231864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231864.jpgsave_picture_231864.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ magnet:?xt=urn:btih:43F09BCBB299CB338E0C258505C7CEF3EEEAE053
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231865.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231865.jpgsave_picture_231865.jpg" />
 </div>
 
 

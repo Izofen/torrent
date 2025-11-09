@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35507.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35507.jpgsave_picture_35507.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:6A1909E22D02AE92FDDDF1F88F9D73789D7037A9
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35508.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35508.jpgsave_picture_35508.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:F7C7491FDCFEEA97E79B9AA5C13AD509181A41F2
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35509.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35509.jpgsave_picture_35509.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:AD1A7A4329F48B5F810A99F2515203310BD07FDF
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35510.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35510.jpgsave_picture_35510.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Listonic / Список покупок v8.16.1 Mod by NURIK kz [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35511.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35511.jpgsave_picture_35511.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:D3AE9775A78C77798B02A76B6691A464F44AA79D
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35512.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35512.jpgsave_picture_35512.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:35A200A7832B4997E31B41B159852826013A5864
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35513.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35513.jpgsave_picture_35513.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:FA144169BBE2ACA45C6CA1EE77F19FA30AA51765
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35514.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35514.jpgsave_picture_35514.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:72D014F56B2265C64EF0A7AEE8E52E105AEC98AD
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35515.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35515.jpgsave_picture_35515.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ Alphaville - Afternoons in Utopia (1986) Remaster, 2021, WM Germany[FLAC 24/96|L
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35516.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35516.jpgsave_picture_35516.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ magnet:?xt=urn:btih:1912B2D75F611F7DC36B0B66F7A5CE25967602C8
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35517.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35517.jpgsave_picture_35517.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ Patrick Cowley - From Behind (2024) [FLAC|Lossless|WEB-DL|tracks] <Disco, Hi NRG
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35518.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35518.jpgsave_picture_35518.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ Word Learn Languages v5.9 Mod by maxi123444 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35519.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35519.jpgsave_picture_35519.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ magnet:?xt=urn:btih:85DFC6410BFA22AB872D1FD82F10C1680C3F30DC
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35520.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35520.jpgsave_picture_35520.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ magnet:?xt=urn:btih:C9175B728B82BAF4B1CC7403DFD0B44D46DC0D97
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35521.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35521.jpgsave_picture_35521.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ magnet:?xt=urn:btih:1CDF202DD2A76DB540B2D46B2057635043092943
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35522.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35522.jpgsave_picture_35522.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Vivaldi 7.0.3495.20 include standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35523.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35523.jpgsave_picture_35523.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ magnet:?xt=urn:btih:CCB025E6F1547B5B3BE252C7A190318498ACA0FB
 >>История
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35524.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35524.jpgsave_picture_35524.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ magnet:?xt=urn:btih:236EC3AF0B3C3ACAF91E255D632D96D9711CB1B9
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35525.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35525.jpgsave_picture_35525.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ magnet:?xt=urn:btih:CE970959BABD91B35A85911C86B7AB14A84D421C
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35526.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35526.jpgsave_picture_35526.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Notepad++ 8.7.3 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35527.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35527.jpgsave_picture_35527.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Double Commander 1.1.21 gamma  + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35528.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35528.jpgsave_picture_35528.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ Quireboys - HalfPenny Dancer (2009) [FLAC|Lossless]<rock, glam>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35529.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35529.jpgsave_picture_35529.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ Necro Story (2024) [Ru/Multi] (6043) Repack FitGirl [Soundtrack Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35530.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35530.jpgsave_picture_35530.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ Topaz Video AI 5.5.1 Beta [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35531.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35531.jpgsave_picture_35531.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ Jigsawscapes® - Пазлы v1.4.15 Mod by vadj [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35532.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35532.jpgsave_picture_35532.jpg" />
 </div>
 
 

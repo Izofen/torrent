@@ -6,7 +6,7 @@ Farm Manager World (2024) [Ru/Multi] (1.0.20250421.417) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13719.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13719.jpgsave_picture_13719.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Len's Island (2021) [Ru/Multi] (1.0/dlc) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13724.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13724.jpgsave_picture_13724.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Fallout 3 (2009) [Ru] (1.7.0.4/dlc) Repack EXROW [Game of the Year Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13728.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13728.jpgsave_picture_13728.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Snow Plowing Simulator (2024) [Ru/Multi] (1.0) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13736.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13736.jpgsave_picture_13736.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Svarog's Dream (2023) [En] (7.0.6/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13747.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13747.jpgsave_picture_13747.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ High On Life (2022) [Ru/Multi] (Build 12527950/dlc) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13763.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13763.jpgsave_picture_13763.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Void Sails (2025) [En] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13764.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13764.jpgsave_picture_13764.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Augmented Empire (2025) [Multi] (22089) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13765.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13765.jpgsave_picture_13765.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Victoria 3 (2022) [Ru/Multi] (1.9.2/dlc) Repack Other s
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13768.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13768.jpgsave_picture_13768.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Yao-Guai Hunter (2023) [Multi] (1.0.0/dlc) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13770.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13770.jpgsave_picture_13770.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Goat Simulator 3 (2022) [Ru/Multi] (1.1.4.3_410056/dlc) Repack EXROW
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13781.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13781.jpgsave_picture_13781.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Castle of Secrets (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13783.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13783.jpgsave_picture_13783.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Stone 4 Souls (2025) [Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13796.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13796.jpgsave_picture_13796.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Vambrace: Dungeon Monarch (2025) [Multi] (Build 28889904) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13798.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13798.jpgsave_picture_13798.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Reality Rash (2025) [Multi] (1.0.1) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13815.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13815.jpgsave_picture_13815.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Brownie's Adventure (2024) [En] (8.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13818.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13818.jpgsave_picture_13818.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Stray (2022) [Ru/Multi] (1.5#368) Repack EXROW
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13819.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13819.jpgsave_picture_13819.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Grimstar: Crystals are the New Oil! (2025) [Ru/Multi] (1.5.0) Repack FitGirl
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13825.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13825.jpgsave_picture_13825.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Stolen Realm (2021) [Ru/Multi] (1.2.7/dlc) Repack FitGirl [Complete Bundle]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13837.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13837.jpgsave_picture_13837.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Pools (2024) [Ru/Multi] (17.06.2025) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13844.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13844.jpgsave_picture_13844.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Hearts of Iron IV (4) (2016) [Ru/Multi] (1.16.9/dlc) Repack Pioneer [Ultimate Bu
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13859.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13859.jpgsave_picture_13859.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ DARK (2013) [Ru/Multi] (1.1.19.29571/dlc) Scene FAiRLiGHT
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13860.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13860.jpgsave_picture_13860.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Shadows of Doubt (2024) [Ru/Multi] (40.03.1/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13861.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13861.jpgsave_picture_13861.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Masterplan Tycoon (2023) [Ru/Multi] (1.4.200) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13862.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13862.jpgsave_picture_13862.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Drug Dealer Simulator 2 (2024) [Ru/Multi] (1.1/dlc) Repack seleZen
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13898.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13898.jpgsave_picture_13898.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Nine Sols (2024) [Ru/Multi] (202503101827.5035232c.0) Repack EXROW
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13907.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13907.jpgsave_picture_13907.jpg" />
 </div>
 
 

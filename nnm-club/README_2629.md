@@ -6,7 +6,7 @@ Wayne Shorter - Juju (1964) 2024, Universal [FLAC|Lossless|tracks + .cue] <Hard 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69104.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69104.jpgsave_picture_69104.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Bat - Under the Crooked Claw (2024) [FLAC|24/192|image + .cue|Vinyl-Rip]<Heavy, 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69105.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69105.jpgsave_picture_69105.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Celestial Scourge - Observers of the Inevitable (2025) [FLAC|Lossless|WEB-DL|tra
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69106.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69106.jpgsave_picture_69106.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:656051E61E9EA6F9B360416E97632F1A35D69153
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69107.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69107.jpgsave_picture_69107.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ At The Gates - At War With Reality (2014) [FLAC|Lossless|image + .cue] <Melodic 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69108.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69108.jpgsave_picture_69108.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ magnet:?xt=urn:btih:1FD547C183B0A6A1C877E26E2765866AF757658F
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69109.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69109.jpgsave_picture_69109.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ VA - Jazztronical 3 (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Funk, Soul>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69110.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69110.jpgsave_picture_69110.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ magnet:?xt=urn:btih:297E6FB2D6F7BC4D95D273192BC62DD2714722FB
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69111.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69111.jpgsave_picture_69111.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ VA - Jazz House Party Vol. 2 (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Funk, S
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69112.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69112.jpgsave_picture_69112.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ magnet:?xt=urn:btih:000593D56F26FE0519E49CCE87056BC251A72E10
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69113.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69113.jpgsave_picture_69113.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ magnet:?xt=urn:btih:131E5EA2C52410E3B57E9C9483C32AA10C33157F
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69114.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69114.jpgsave_picture_69114.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:6E48F21BE9ABA6DE79A7C041789392E546CC5EFD
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69115.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69115.jpgsave_picture_69115.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:C78FB28F60F57704D5C98BE3D9FF61D348459EC1
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69116.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69116.jpgsave_picture_69116.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Atomic Peat - Demons And Other Friends (2025) [FLAC|Lossless|WEB-DL|tracks] <Hea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69117.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69117.jpgsave_picture_69117.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ magnet:?xt=urn:btih:AB380E237FF6EE7985063452A4EBB0E7F2745088
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69118.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69118.jpgsave_picture_69118.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ magnet:?xt=urn:btih:53B3732E00C161AEE3BE3D6953AABB3C905B89A5
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69119.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69119.jpgsave_picture_69119.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ magnet:?xt=urn:btih:A2DC6F18227348A841A51E33AEE30040D3FE99F1
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69120.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69120.jpgsave_picture_69120.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ Ade - Supplicium (2025) [FLAC|Lossless|WEB-DL|tracks] <Oriental Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69121.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69121.jpgsave_picture_69121.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ Hermyth - Aether (2025) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Doom Metal, D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69122.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69122.jpgsave_picture_69122.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ magnet:?xt=urn:btih:0B260782C23BCF607945276257964AB9BB0C60DE
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69123.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69123.jpgsave_picture_69123.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ GRIMA - Nightside (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Atmospheric Blac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69124.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69124.jpgsave_picture_69124.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Hazel Blackburn - Bajo Presión (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Psyc
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69125.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69125.jpgsave_picture_69125.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ magnet:?xt=urn:btih:08607DE0536232EC300F1D32169C638D76275C0C
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69126.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69126.jpgsave_picture_69126.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Obscura - A Sonication (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69127.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69127.jpgsave_picture_69127.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ The Bleeding (U.K.) - Studio Albums (4 releases) (2013-2023) hand made [restored
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69128.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69128.jpgsave_picture_69128.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ Heathen - Bleed the World (Live) (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Spe
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69129.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69129.jpgsave_picture_69129.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166295.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166295.jpgsave_picture_166295.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Microsoft Office 2013 Professional Plus / Standard + Visio + Project 15.0.5511.1
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166296.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166296.jpgsave_picture_166296.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ WinToUSB Technician 5.0 Release 1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166297.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166297.jpgsave_picture_166297.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:FBE852409BC0159DAC82464399640F67D6E10FD3
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166298.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166298.jpgsave_picture_166298.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:1239044037B4232A87B30031466E72B87AF631B2
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166300.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166300.jpgsave_picture_166300.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:3BC3F3559271AE1B42C44022037D635E24B87657
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166301.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166301.jpgsave_picture_166301.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Ground Control, Casey Faris | Resolve 17: End to End (2022) PCRec [EN]
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166302.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166302.jpgsave_picture_166302.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Wing IDE Pro 9 for Mac 9.1.2.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166303.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166303.jpgsave_picture_166303.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Adobe Dimension 3.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166304.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166304.jpgsave_picture_166304.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Windows 10 32in1 (x86/x64) 20H2 + LTSC +/- Office 2019 by SmokieBlahBlah 13.12.2
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166305.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166305.jpgsave_picture_166305.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:51579EDE4A09F32DF55C1B27F830C138DA83541E
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166306.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166306.jpgsave_picture_166306.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:4A509137A339A873EBC2E4CF4CCFA17D61DC0C19
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166307.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166307.jpgsave_picture_166307.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:E3A668F1E271F209F64415965B8AF5429E15EFD2
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166308.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166308.jpgsave_picture_166308.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Mystery - Redemption (2023) [FLAC|Lossless|image + .cue] <Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166309.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166309.jpgsave_picture_166309.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Wavetale (2022) [Ru/Multi] (1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166310.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166310.jpgsave_picture_166310.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ KRT CLUB ATB 3.1.0.29 RePack v6.21.3 Fix2 [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166311.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166311.jpgsave_picture_166311.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Iron Harvest (2020) [Ru/Multi] (1.3.0.2687/dlc) License GOG [Deluxe Edition]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166312.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166312.jpgsave_picture_166312.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Etcher 1.5.70 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166313.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166313.jpgsave_picture_166313.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ magnet:?xt=urn:btih:953B7F8515B70D1B0EC443436BD9CE039DFDE9B2
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166314.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166314.jpgsave_picture_166314.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ magnet:?xt=urn:btih:20B015395725ABD1AF15E34BDCAC825F411DF05A
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166315.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166315.jpgsave_picture_166315.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ magnet:?xt=urn:btih:97548A81C827E29335E5FB663CE717DAE6C5BA00
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166316.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166316.jpgsave_picture_166316.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ magnet:?xt=urn:btih:CC2BC327ABF9938355FC2CD3A2F856330DC8C502
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166317.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166317.jpgsave_picture_166317.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ Adobe Character Animator 2020 3.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166318.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166318.jpgsave_picture_166318.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Windows 7 SP1 х86-x64 by g0dl1ke 20.12.10 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166319.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166319.jpgsave_picture_166319.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ ESET NOD32 Antivirus / Internet Security / Smart Security Premium 15.0.21.0 RePa
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166320.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166320.jpgsave_picture_166320.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ CCleaner 6.07.10191 Free / Professional / Business / Technician Edition RePack (
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166321.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166321.jpgsave_picture_166321.jpg" />
 </div>
 
 

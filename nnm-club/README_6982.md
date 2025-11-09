@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239689.jpgsave_picture_239689.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ ReVamp - Wild Card (2013) Limited Edition [FLAC|Lossless|image + .cue] <Symphoni
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239690.jpgsave_picture_239690.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:673C3731B47E370ED02A12CDD71483BFA9A6F560
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239691.jpgsave_picture_239691.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Integrity Plus 12.4.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239692.jpgsave_picture_239692.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ VA - Levitated - Trance Essentials Vol. 2 (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239693.jpgsave_picture_239693.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ CyberLink PhotoDirector Ultra 14.4.1606.0 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239694.jpgsave_picture_239694.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ Full Faith & Credit Big Band - FF&C III (1988) TBA Records [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239695.jpgsave_picture_239695.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ magnet:?xt=urn:btih:AED739E2996497E4F3C4A826240EDB850987253A
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239696.jpgsave_picture_239696.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ magnet:?xt=urn:btih:3E45D62D36569C88F17E43B5D467789277B55711
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239697.jpgsave_picture_239697.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ VA - Wine & Sunset Lounge: Chillout Your Mind (2020) [AAC|~323 Kbps] <Downtempo,
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239698.jpgsave_picture_239698.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ magnet:?xt=urn:btih:02D9721057AE692FB17323534C2E980B3A7E6261
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239699.jpgsave_picture_239699.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ Opera 97.0.4719.83 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239700.jpgsave_picture_239700.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ DockView 1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239701.jpgsave_picture_239701.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ The Silent Rage - Nuances Of Life (2023) [MP3|320 Kbps] <Heavy, Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239702.jpgsave_picture_239702.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ magnet:?xt=urn:btih:1556E0AB79E7A1F36FEDD0AC31BD58030328DB50
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239703.jpgsave_picture_239703.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ VA - The Devil's Blues Christmas (2015) [MP3|320 Kbps] <Rock, Blues Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239704.jpgsave_picture_239704.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ TG Pro (Temperature Gauge Pro) 2.79 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239705.jpgsave_picture_239705.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ magnet:?xt=urn:btih:39F4D96C55D4056A539595F80EEB0039094D25C0
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239706.jpgsave_picture_239706.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Pale Moon 32.1.1 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239707.jpgsave_picture_239707.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Bully - Lucky For You (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239708.jpgsave_picture_239708.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ VA - Silent Shore Trance - Essential Classics Vol. 2 (2023) [MP3|320 Kbps] <Tran
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239709.jpgsave_picture_239709.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ magnet:?xt=urn:btih:B4A0BAD6D6F6E30765DA6779D4025AFC74B1F780
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239710.jpgsave_picture_239710.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ VA - Restaurant Lounge: Chillout Your Mind (2020) [AAC|~328 Kbps] <Downtempo, Lo
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239711.jpgsave_picture_239711.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ magnet:?xt=urn:btih:BACE95A95A169FC698C4D355B53A20032A277E9C
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239712.jpgsave_picture_239712.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ magnet:?xt=urn:btih:A7D205BA2F72946D2367F5A2BCF548FE3BFF4E72
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239713.jpgsave_picture_239713.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Romano - Vulkano Romano (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239714.jpgsave_picture_239714.jpg" />
 </div>
 
 

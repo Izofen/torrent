@@ -6,7 +6,7 @@ Foghat - The Best Of Foghat (1989) Compilation, Reissue, Rhino Records [MP3|320 
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152477.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152477.jpgsave_picture_152477.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:93A4CE9394EBA0F0A41DE339162C3A09F91998C5
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152478.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152478.jpgsave_picture_152478.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ magnet:?xt=urn:btih:16517892F0CD507DDCAB086B59611181B53CD848
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152480.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152480.jpgsave_picture_152480.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Color Palette from Image Pro 2.2.1 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152481.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152481.jpgsave_picture_152481.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ VA - 538 - Hitzone - Best Of (2018) [MP3|320 Kbps] <Pop, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152482.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152482.jpgsave_picture_152482.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ PDFpenPro 11.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152484.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152484.jpgsave_picture_152484.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ magnet:?xt=urn:btih:7B389D3E687C73A4E0A1E0B61BF412201ED92CF2
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152488.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152488.jpgsave_picture_152488.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ magnet:?xt=urn:btih:67A2F7346BED200BD15467F32AD486B7DEBB149D
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152489.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152489.jpgsave_picture_152489.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ Display Driver Uninstaller 18.0.4.7 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152490.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152490.jpgsave_picture_152490.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ Larry Clinton & His Orchestra - The Uncollected 1937 - 1938 (1977) Hindsight Rec
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152491.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152491.jpgsave_picture_152491.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ magnet:?xt=urn:btih:FB9E368F0E29A9D9C7A1389B48A623E429341E38
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152492.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152492.jpgsave_picture_152492.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ MediaHuman YouTube to MP3 Converter 3.9.9.87 (1115) RePack (& Portable) by elchu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152493.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152493.jpgsave_picture_152493.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ VA - La Chanson de l'Annee 2018 Vol.2 (2018) [MP3|320 Kbps] <Pop, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152494.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152494.jpgsave_picture_152494.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ Computer Desktop Wallpapers Collection (13.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152495.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152495.jpgsave_picture_152495.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ magnet:?xt=urn:btih:014033C5E688C371DDCB7EC6B8EB7D45994CE40A
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152496.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152496.jpgsave_picture_152496.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ ColorWell 7.1.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152497.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152497.jpgsave_picture_152497.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Wise Disk Cleaner 10.9.7.813 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152499.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152499.jpgsave_picture_152499.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ ASCOMP F-Rename Pro 2.102 RePack (& Portable) by elchupacabra [Ru/En]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152503.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152503.jpgsave_picture_152503.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ magnet:?xt=urn:btih:6FDA455826984C22D8B5E21997448CB76C7A6EDF
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152504.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152504.jpgsave_picture_152504.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Phlebotomized - Deformation Of Humanity (2019) [MP3|320 Kbps] <Progressive Death
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152505.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152505.jpgsave_picture_152505.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ DjVu Reader Pro 2.6.2 [Ru/En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152506.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152506.jpgsave_picture_152506.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ The Piano Guys - Live! (2015) [FLAC|Lossless|WEB-DL|tracks] <Classical Crossover
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152508.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152508.jpgsave_picture_152508.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ VA - The Official UK Top 40 Singles Chart 21.12.2018 [MP3|320 Kbps] <Pop, Dance,
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152509.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152509.jpgsave_picture_152509.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ magnet:?xt=urn:btih:6EFDF29B2E858304FDA0FDA2AFF85B00B2B2215C
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152511.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152511.jpgsave_picture_152511.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Mactracker 7.12.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152512.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152512.jpgsave_picture_152512.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ magnet:?xt=urn:btih:8B0F0FF6E3A3952039C27DD8C2F1F375D24C2485
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152515.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152515.jpgsave_picture_152515.jpg" />
 </div>
 
 

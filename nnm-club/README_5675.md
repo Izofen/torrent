@@ -6,7 +6,7 @@
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174761.jpgsave_picture_174761.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:3EAE76A435028411E3CA0B4C680E0B20F1398B65
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174762.jpgsave_picture_174762.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ The Grief - Crucible (2023) [FLAC|Lossless|WEB-DL|tracks] <Doom, Gothic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174764.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174764.jpgsave_picture_174764.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ magnet:?xt=urn:btih:A2EF430153CF25B5C5792ED932CDB20632D2D0A0
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174765.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174765.jpgsave_picture_174765.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ magnet:?xt=urn:btih:5084094B9E00C541AD83BB21A08A357A59F2454A
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174766.jpgsave_picture_174766.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ magnet:?xt=urn:btih:E4D5D504E8C489BCFA28BF8B8FDA06C00F7B74D8
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174768.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174768.jpgsave_picture_174768.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ Dying Fetus - Make Them Beg For Death (2023) [FLAC|Lossless|WEB-DL|tracks] <Brut
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174769.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174769.jpgsave_picture_174769.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ magnet:?xt=urn:btih:64E1CC78BDFBC92D84E7238BD2F7884981506975
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174771.jpgsave_picture_174771.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ magnet:?xt=urn:btih:02F9A3DA50F2C7CC6662691E947BCD8B89EDC88D
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174772.jpgsave_picture_174772.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ Dopelord - Songs for Satan (2023) [FLAC|Lossless|WEB-DL|tracks] <Stoner Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174773.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174773.jpgsave_picture_174773.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ magnet:?xt=urn:btih:9F002FA314FFD0BA0462EB7555AFA58C6A06E74D
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174774.jpgsave_picture_174774.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ iCalamus 2 v.2.5 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174776.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174776.jpgsave_picture_174776.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ magnet:?xt=urn:btih:7154D620CE39FF42985B7A623C077E6E7C782B34
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174777.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174777.jpgsave_picture_174777.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ magnet:?xt=urn:btih:7326DEBD2D9C329AB01852C7F5D9BD10E25D07FB
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174778.jpgsave_picture_174778.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ Scrivener 3.3.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174780.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174780.jpgsave_picture_174780.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ magnet:?xt=urn:btih:EF60BC6A9C81527E55083FD9AF17A5ABA69DAF3E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174781.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174781.jpgsave_picture_174781.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ magnet:?xt=urn:btih:FABA6A90D605F9BCC394C37A4F1E40176DF4FEFF
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174783.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174783.jpgsave_picture_174783.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ RightFont 8.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174784.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174784.jpgsave_picture_174784.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ magnet:?xt=urn:btih:1FD40BF06D4A149B640C476606A562061FBAD6BE
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174786.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174786.jpgsave_picture_174786.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ magnet:?xt=urn:btih:7CC72D9F04DF356DD2963DA0CA4B413F19D06E58
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174787.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174787.jpgsave_picture_174787.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Tolkovoprod, Анастасия Мазуровская | I am designer. Тари
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174788.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174788.jpgsave_picture_174788.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Udemy, Otto Lai | Intro to Geometry Nodes using Blender 3.3 (2022) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174789.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174789.jpgsave_picture_174789.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ magnet:?xt=urn:btih:CB5A09854054F2E781B9E3ADD0B60EB8A25B8EDE
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174790.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174790.jpgsave_picture_174790.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ magnet:?xt=urn:btih:7DC097CD96C95C0A52FEDB4DCC2B24B34AE889D5
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174792.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174792.jpgsave_picture_174792.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Adobe InDesign 2021 v16.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174793.jpgsave_picture_174793.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ magnet:?xt=urn:btih:6A212555A0B84D30F87FA033817D9A5EFC798A6F
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174795.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174795.jpgsave_picture_174795.jpg" />
 </div>
 
 

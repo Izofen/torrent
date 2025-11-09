@@ -6,7 +6,7 @@ Glenn Hughes & Robin George - Overcome (2023) [FLAC|Lossless|WEB-DL|tracks] <Hea
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135212.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135212.jpgsave_picture_135212.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Necronomicon - Screams (1994) Reissue, 2019, Metal Command Records [FLAC|Lossles
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135214.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135214.jpgsave_picture_135214.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:63484CD495C8A0A5EE75C9F80CA1C41EED8161F7
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135218.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135218.jpgsave_picture_135218.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Vehemence - Helping The World To See (2004) [APE|Lossless|image + .cue] <Metal, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135221.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135221.jpgsave_picture_135221.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Lucky Patcher 11.0.4 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135222.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135222.jpgsave_picture_135222.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ magnet:?xt=urn:btih:6CCF471EACF836A5E484B48ABD4BAD66614267A3
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135223.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135223.jpgsave_picture_135223.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:5168D72D39E4B6CECB531EBF6AC64A3AAF3E2700
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135224.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135224.jpgsave_picture_135224.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ Pan-Pot - Forte (2023) [FLAC|Lossless|WEB-DL|tracks] <Techno, Electronica, Tranc
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135225.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135225.jpgsave_picture_135225.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ magnet:?xt=urn:btih:1461C1CF1457CB483DB48545B62873B12A36466B
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135227.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135227.jpgsave_picture_135227.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ magnet:?xt=urn:btih:FCE15FA3F5913AB2A5D458F729E5C53B68F78595
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135229.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135229.jpgsave_picture_135229.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ magnet:?xt=urn:btih:CAA0E3E959BD4CF18C613FD737F0F87DC7B6FD1E
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135230.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135230.jpgsave_picture_135230.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ Seal 1.11.0 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135231.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135231.jpgsave_picture_135231.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ Super-AI Photo Enlarger for Mac 2.0.0 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135232.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135232.jpgsave_picture_135232.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:F3D73A56437DB22272FDF39821F133FDC440169F
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135234.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135234.jpgsave_picture_135234.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ magnet:?xt=urn:btih:54A775174763C24327561B99FA7D798D986BA175
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135235.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135235.jpgsave_picture_135235.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Spoonful Of Blues - Songs From Notodden Norway (2023) [FLAC|Lossless|WEB-DL|trac
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135237.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135237.jpgsave_picture_135237.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ magnet:?xt=urn:btih:9DB375DEC1C1CCB5CEAFEC7AEB37FFAA0A4EFDE0
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135239.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135239.jpgsave_picture_135239.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ magnet:?xt=urn:btih:088CA6DB92B5CA38B842EA104D8712EF5AF6DF90
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135241.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135241.jpgsave_picture_135241.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ magnet:?xt=urn:btih:0D5A1348C7FA31B383EA8B17DE9FDBD97D3C9E45
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135243.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135243.jpgsave_picture_135243.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ SuperDuper! 3.8 ARM [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135245.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135245.jpgsave_picture_135245.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ magnet:?xt=urn:btih:007A2EA7991FC62280B639488B85797FA2F4957D
 >>Зарубежная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135246.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135246.jpgsave_picture_135246.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Walter Wolfman Washington - Feel So At Home (2023) [FLAC|Lossless|WEB-DL|tracks]
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135247.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135247.jpgsave_picture_135247.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ iToolab FixGo 3.3.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135249.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135249.jpgsave_picture_135249.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Calendar 366 II 2.14.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135251.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135251.jpgsave_picture_135251.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ magnet:?xt=urn:btih:FABC31FF770AF64562C1D522EE724C515C853A4C
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135253.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135253.jpgsave_picture_135253.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ magnet:?xt=urn:btih:5E070865A58D9A3C0CA314C530D4443757E45897
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135254.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135254.jpgsave_picture_135254.jpg" />
 </div>
 
 

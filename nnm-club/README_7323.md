@@ -6,7 +6,7 @@
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250435.jpgsave_picture_250435.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Earth vs Mars (2025) [Ru/Multi] (001.000.4207100) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250436.jpgsave_picture_250436.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ GIGABYTE анонсировали игровой ПК под названием 
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_250437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_250437.jpgsave_picture_250437.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ GIGABYTE анонсировали игровой ПК под названием 
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250438.jpgsave_picture_250438.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:87D3624053325ED450A1F032111FD42137AF09E9
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250439.jpgsave_picture_250439.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:74589A3B0ED9FBBAF23103B988089A94203DF25B
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250440.jpgsave_picture_250440.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ TutorPlace, Наталья Терновская | "1С:Управление на
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250441.jpgsave_picture_250441.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:BCD53ED7AF2DB38C20B7C08C649A7881C0DFF0D6
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250442.jpgsave_picture_250442.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:6CD1815E4221D45B1D579277A7879AF433C56010
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250443.jpgsave_picture_250443.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ magnet:?xt=urn:btih:815DD5F66BFD5CABA9CAF4F967DA001B1C9AB0E2
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250444.jpgsave_picture_250444.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ magnet:?xt=urn:btih:43BC64E09F23A6FEBAEE09C5CF0169D680A87BF4
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250445.jpgsave_picture_250445.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ magnet:?xt=urn:btih:1D21012F04E6AD277298BE53A0F0E04E05CEDA11
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250446.jpgsave_picture_250446.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ magnet:?xt=urn:btih:AD563C055C7838FF16864CA7285B61FA63F21643
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250447.jpgsave_picture_250447.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ magnet:?xt=urn:btih:180F18259DA11B8FD84A042B29DD16CE55199E69
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250448.jpgsave_picture_250448.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ magnet:?xt=urn:btih:A9FD379AA74184B43C5524FDFA829B882E5A63C0
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250449.jpgsave_picture_250449.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ magnet:?xt=urn:btih:CBEA93DDC06ECACB05080B1EC61F8476FD8BDA9A
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250450.jpgsave_picture_250450.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ magnet:?xt=urn:btih:96F14F7E3BAAA3B1A1F013533490ADC4CD01233B
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250451.jpgsave_picture_250451.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ magnet:?xt=urn:btih:023D685E89B77862C6696CD64A0D22F8464B5873
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250452.jpgsave_picture_250452.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ magnet:?xt=urn:btih:BE4A3F47776B5C020D2D432F22685249E7DEF495
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250453.jpgsave_picture_250453.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ magnet:?xt=urn:btih:0A075184F1A759FD24B9266FB97299890E25BAD0
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250454.jpgsave_picture_250454.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ VA - 25 Years Of Anjuna Mixed By Marsh (2025) [MP3|320 Kbps] <Progressive House,
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250455.jpgsave_picture_250455.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Etta Mae Hartwell - Favorites Collection (2025) [MP3|320 Kbps] <Blues, Soul>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250456.jpgsave_picture_250456.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ magnet:?xt=urn:btih:8EB4B3B3BD4BD040526DDF33B3DBAF51A3E5ABEB
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250457.jpgsave_picture_250457.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ magnet:?xt=urn:btih:CEE46A7F8AB81DD2F3ADF8C24CEF2EBE26B81072
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250458.jpgsave_picture_250458.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ magnet:?xt=urn:btih:15EDF0009C7A830AA2E9AD9946DA3E14ED57311A
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250459.jpgsave_picture_250459.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ ArrowDL 4.2.1 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250460.jpgsave_picture_250460.jpg" />
 </div>
 
 

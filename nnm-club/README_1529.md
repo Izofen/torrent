@@ -6,7 +6,7 @@ IPTV Pro v8.2.2 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40110.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40110.jpgsave_picture_40110.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Waveform (2012) [Multi] (1.0/dlc) Scene PROPHET
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40111.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40111.jpgsave_picture_40111.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:9B1E899FF12AD82B4F329B0B1F304F7604E70C70
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40112.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40112.jpgsave_picture_40112.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:72C10BBC5D8105DABD396EAF2A8CD3B0D5555E40
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40113.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40113.jpgsave_picture_40113.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:DEAB84B26BC328A5F0135B1E9427DD0F1E2BCE28
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40114.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40114.jpgsave_picture_40114.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:5462A19A20C80999D80105520AFC4BBF83E99C25
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40115.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40115.jpgsave_picture_40115.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Mylene Farmer - Studio Albums (19 releases) (1986-2024) hand made [restored, dec
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40116.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40116.jpgsave_picture_40116.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:AD270D99E137BE6EF9BE745E37B5BA8A350F1808
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40117.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40117.jpgsave_picture_40117.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ Adobe After Effects 2025 25.0.0.53 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40118.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40118.jpgsave_picture_40118.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ Cobalt Core (2023) [Ru/Multi] (1.2.4) Scene Tenoke
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40119.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40119.jpgsave_picture_40119.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:85AADE39A1F939DED8156BE74AAE02A3DC80A514
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40120.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40120.jpgsave_picture_40120.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Adobe InDesign 2025 20.0.0.95 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40121.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40121.jpgsave_picture_40121.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Adobe Illustrator 2025 29.0.0.186 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40122.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40122.jpgsave_picture_40122.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Adobe Media Encoder 2025 25.0.0.54 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40123.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40123.jpgsave_picture_40123.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ magnet:?xt=urn:btih:27258DB8900D24371016E01ECCDB0801F439AB46
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40124.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40124.jpgsave_picture_40124.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:7DCD40811CFDA1B1C1A057F0F427D792F1E4684D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40125.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40125.jpgsave_picture_40125.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ AkelPad 4.9.9 + Portable + All Plugins
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40126.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40126.jpgsave_picture_40126.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ magnet:?xt=urn:btih:7C9CD8D217300C8AD8FDA022033DE63B2E507ECF
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40127.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40127.jpgsave_picture_40127.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ Notepad++ 8.7.0 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40128.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40128.jpgsave_picture_40128.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ magnet:?xt=urn:btih:5384EDDB2DE3F9D002932E200123CFA67900174F
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40129.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40129.jpgsave_picture_40129.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Glitchpunk (2021) [Ru/Multi] (1.0.7) Scene Rune
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40130.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40130.jpgsave_picture_40130.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Portal with RTX (2022) [Ru/Multi] (Build 14355597) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40131.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40131.jpgsave_picture_40131.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ magnet:?xt=urn:btih:C661DE9D4C44270A61A3CFB21954AE1CB2583164
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40132.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40132.jpgsave_picture_40132.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ magnet:?xt=urn:btih:35BCC545F5D498F8E4445576EEE09732C2FD554A
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40133.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40133.jpgsave_picture_40133.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ The Devil is in the Details (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40134.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40134.jpgsave_picture_40134.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Navicat Premium 17.1.5 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40135.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40135.jpgsave_picture_40135.jpg" />
 </div>
 
 

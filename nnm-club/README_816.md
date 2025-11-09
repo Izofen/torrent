@@ -6,7 +6,7 @@
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21555.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21555.jpgsave_picture_21555.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:1D65B1C0FF3315890393AAAAF450E28A90EF547A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21556.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21556.jpgsave_picture_21556.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:071F2A7F04CC9A208B570A97F1C1EFCB62F8AD38
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21557.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21557.jpgsave_picture_21557.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ Age of Empires IV (4) (2021) [Ru/En] (13.0.4343.0/dlc) Repack seleZen [Anniversa
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21558.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21558.jpgsave_picture_21558.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:713508954C3F3187B6787A00F8D5C2D7CAD8515E
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21559.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21559.jpgsave_picture_21559.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ PROGRESS ORDERS (2025) [Multi] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21560.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21560.jpgsave_picture_21560.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ VA - Весна на Love Radio (2025) [MP3|320 Kbps] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21561.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21561.jpgsave_picture_21561.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:7C5DB04530E7807FCCF568A7E8772E43BE0FF425
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21562.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21562.jpgsave_picture_21562.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:6DD54473F9C2852E353BB5C914629A12CE39887C
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21563.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21563.jpgsave_picture_21563.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ Timer by WolfEywa 1.1 portable [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21564.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21564.jpgsave_picture_21564.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ MyLanViewer 6.3.3 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21565.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21565.jpgsave_picture_21565.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ magnet:?xt=urn:btih:5760CC19BCA14C36A70F5123642C0D72A21AE54C
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21566.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21566.jpgsave_picture_21566.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:DA3C612FC5A4EA2BB28A31211D584802B6624F66
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21567.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21567.jpgsave_picture_21567.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Data mesh в действии | Я. Майхжак, С. Балноян, М. Си
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21568.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21568.jpgsave_picture_21568.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ magnet:?xt=urn:btih:CF1C0093476DA2E7052644A9C49BADA957AEBB6A
 >>Футажи
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21569.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21569.jpgsave_picture_21569.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ magnet:?xt=urn:btih:58C1FC12815C8B1CA161AC3D52D489B7392FD0DC
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21570.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21570.jpgsave_picture_21570.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Xplorer2 Ultimate 6.1.0.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21571.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21571.jpgsave_picture_21571.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ FATE: Reawakened (2025) [Multi] (1.0.0-94fe67e9) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21572.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21572.jpgsave_picture_21572.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ LEGO City Undercover (2017) [Ru/Multi] (1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21573.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21573.jpgsave_picture_21573.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Rogue Loops (2025) [Ru/Multi] (1.0.12) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21574.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21574.jpgsave_picture_21574.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ Rainmeter 4.5.23.3836 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21575.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21575.jpgsave_picture_21575.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ magnet:?xt=urn:btih:1FBA28F91C0B8818EEAF783342EDED96D7403917
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21576.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21576.jpgsave_picture_21576.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:AA5E7136C8ED310CDD01DBF521AE4B82C9A15929
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21577.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21577.jpgsave_picture_21577.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Wigmund (2022) [En] (1.4.5) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21578.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21578.jpgsave_picture_21578.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ magnet:?xt=urn:btih:44EF8A15CD35AECD11ED45E46345831B6EDFDD14
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21579.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21579.jpgsave_picture_21579.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Field of Glory II (2): Medieval (2021) [Multi] (1.05.21/dlc) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21580.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21580.jpgsave_picture_21580.jpg" />
 </div>
 
 

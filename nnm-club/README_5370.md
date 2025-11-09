@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166485.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166485.jpgsave_picture_166485.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:8BF3AE058DB649F992B8BC1E40A6423CC8E4F6A8
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166486.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166486.jpgsave_picture_166486.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:5C42E74D88EBA413A5C7846BEB502355E004E212
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166487.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166487.jpgsave_picture_166487.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Swift Publisher 5 v5.5.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166488.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166488.jpgsave_picture_166488.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Microsoft Windows and Office ISO Download Tool 8.45.0.152 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166489.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166489.jpgsave_picture_166489.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Psiphon 3 build 176 (DC 13.12.2022) Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166490.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166490.jpgsave_picture_166490.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:831C637D41788263523DD4C40C4270C368E28724
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166491.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166491.jpgsave_picture_166491.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ A.C.T - Today's Report (1999) Special Edition [FLAC|Lossless|image + .cue] <Prog
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166492.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166492.jpgsave_picture_166492.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ magnet:?xt=urn:btih:9ED3DB5EB6B40E4D2E0EB039974355A44439C0EF
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166493.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166493.jpgsave_picture_166493.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ magnet:?xt=urn:btih:AC1F0FD0EDC22DFAACACC1842BA29F7281B97DCD
 >>История
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166494.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166494.jpgsave_picture_166494.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ Privatus 6.6.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166495.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166495.jpgsave_picture_166495.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:B2D51D7229F2F27CB991B876C6E20C1483DB1611
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166496.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166496.jpgsave_picture_166496.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Out Of Time (2022) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166497.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166497.jpgsave_picture_166497.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ magnet:?xt=urn:btih:2A0262DD30A93B65CBFFC5F329356D2590AD064D
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166498.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166498.jpgsave_picture_166498.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ magnet:?xt=urn:btih:C42ECF4A280EA05951DAA65F5E770FA959D7CD9D
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166499.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166499.jpgsave_picture_166499.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ magnet:?xt=urn:btih:DDAD936B8ACBFD695427934FAE3D0C35042294F6
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166500.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166500.jpgsave_picture_166500.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ magnet:?xt=urn:btih:F55C2B14AECD1D89D5680C9BA56E99F5F0D0F47B
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166501.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166501.jpgsave_picture_166501.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Viber 19.1.0.0 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166502.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166502.jpgsave_picture_166502.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ Solarstone - . . . - - (2019) [FLAC|Lossless|CD|tracks + .cue] <Trance, Progress
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166503.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166503.jpgsave_picture_166503.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ magnet:?xt=urn:btih:0B58BB145FFEC7577C43A1A41C77CA9CBD5FF589
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166504.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166504.jpgsave_picture_166504.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ magnet:?xt=urn:btih:A707019585C7F89BFB1FC304459EA4F40AF7CD75
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166505.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166505.jpgsave_picture_166505.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ Toshiyuki Miyama And His New Herd - Tribute (1978) 1991, Teichiku Records [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166506.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166506.jpgsave_picture_166506.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ magnet:?xt=urn:btih:09CA420DAF6BD1EBAA6820ECC87327891F9DCD81
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166507.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166507.jpgsave_picture_166507.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ VA - Progressive Nation (Compiled by Liquid Soul & Ace Ventura) (2019) [FLAC|Los
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166508.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166508.jpgsave_picture_166508.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ magnet:?xt=urn:btih:15DBA0ECA10E72C9AD6BD3AC9A17DA662D0462B0
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166509.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166509.jpgsave_picture_166509.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ AAF DCH Optimus Sound 6.0.9279.1 Realtek Mod by AlanFinotty [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166510.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166510.jpgsave_picture_166510.jpg" />
 </div>
 
 

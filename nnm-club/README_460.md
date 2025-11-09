@@ -6,7 +6,7 @@
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12202.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12202.jpgsave_picture_12202.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Motor Town: Behind The Wheel (2021) [Ru/Multi] (0.7.14 b865) Repack Pioneer [Ear
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12203.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12203.jpgsave_picture_12203.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:DE69D248B8970BEE245D04A2FF7D1B4A10A2444D
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12204.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12204.jpgsave_picture_12204.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:890DC47C99FACF4E9985609568B66D7708C8DE8C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12205.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12205.jpgsave_picture_12205.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:D4837807503EAA89788416D760A1C28BE316D861
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12206.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12206.jpgsave_picture_12206.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:D4837807503EAA89788416D760A1C28BE316D861
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12207.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12207.jpgsave_picture_12207.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:D4837807503EAA89788416D760A1C28BE316D861
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12208.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12208.jpgsave_picture_12208.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ EZ CD Audio Converter 12.1.0.1 RePack (& Portable) by elchupacabra (07.07.2025) 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12209.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12209.jpgsave_picture_12209.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:6240203881622F46CF9C47A389A8C18263CD6FFD
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12210.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12210.jpgsave_picture_12210.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Spiritfall (2024) [Ru/Multi] (1.6.27) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12211.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12211.jpgsave_picture_12211.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Mario Nieto - Chord Generator 1.1.0 Standalone, VSTi 3 (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12212.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12212.jpgsave_picture_12212.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Cottonfield Blues - Silent Porch (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12213.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12213.jpgsave_picture_12213.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Mario Nieto - Harmony Bloom 1.3.4 Standalone, VSTi 3 (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12214.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12214.jpgsave_picture_12214.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ magnet:?xt=urn:btih:D554A20A6E7C1F9AA67A2D12F36037BACAA95D28
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12215.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12215.jpgsave_picture_12215.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ magnet:?xt=urn:btih:453A4F3E6B7317E6A3C08E5C09251DE5BA3368CD
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12216.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12216.jpgsave_picture_12216.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Newfangled Audio - Pendulate 1.7.0 VSTi, VSTi 3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12217.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12217.jpgsave_picture_12217.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ magnet:?xt=urn:btih:C8029735FED5DCB1E07C336E3516A880F8D13B33
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12218.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12218.jpgsave_picture_12218.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Dyer Davis - Kiss The Ring (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12219.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12219.jpgsave_picture_12219.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Olav & The Blues Cruise - Fulltime Lover (2025) [FLAC|Lossless|WEB-DL|tracks] <B
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12220.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12220.jpgsave_picture_12220.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Leanne Binder - I Got Something To Say (2025) [FLAC|Lossless|WEB-DL|tracks] <Blu
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12221.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12221.jpgsave_picture_12221.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Nate Hammer - Dirty Pennies (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12222.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12222.jpgsave_picture_12222.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Fearless Scoundrels - Too Damn Blue (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12223.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12223.jpgsave_picture_12223.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ magnet:?xt=urn:btih:6FBAE2792AEC38B1A40153C01CFD97111673A887
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12224.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12224.jpgsave_picture_12224.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Robert Sidney Smith - 12 Bar Bob (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12225.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12225.jpgsave_picture_12225.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Ed Wills - Comin' Home (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12226.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12226.jpgsave_picture_12226.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ Victor Feldman - The Arrival of Victor Feldman (1958) 1998, Original Jazz Classi
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12227.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12227.jpgsave_picture_12227.jpg" />
 </div>
 
 

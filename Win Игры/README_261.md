@@ -6,7 +6,7 @@ Strike Force 3 (2023) [Ru/Multi] (1.0) Scene Tenoke
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187225.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187225.jpgsave_picture_187225.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Horizon Chase 2 (2023) [Ru/Multi] (1.0) Scene Rune
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187230.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187230.jpgsave_picture_187230.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Alder Forge (2023) [En] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187269.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187269.jpgsave_picture_187269.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ EDENGATE: The Edge of Life (2022) [Ru/Multi] (20221004_1217_27401) Repack Other 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187337.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187337.jpgsave_picture_187337.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Twin Mind 4: Nobody's Here (2022) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187475.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187475.jpgsave_picture_187475.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Ugly (2023) [Ru/Multi] (1.0) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187556.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187556.jpgsave_picture_187556.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Boti: Byteland Overclocked (2023) [Multi] (1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187606.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187606.jpgsave_picture_187606.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Steelrising (2022) [Ru/Multi] (Build 9770876/dlc) Repack Other s [Bastille Editi
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187624.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187624.jpgsave_picture_187624.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Sucker for Love: First Date (2022) [Multi] (2.21) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187654.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187654.jpgsave_picture_187654.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Reflections of Life 11: Spindle of Fate / Отражения жизни 11: Ве
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187731.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187731.jpgsave_picture_187731.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Unsolved Case: Fatal Clue (2022) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187747.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187747.jpgsave_picture_187747.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Swords and Fairy 7 (2021) [Multi] (2.1.0/dlc) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187854.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187854.jpgsave_picture_187854.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Ninja Gaiden 4 (2025) [Ru/Multi] (1.0.1.0/dlc) Repack Wanterlude [Deluxe Edition
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187857.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187857.jpgsave_picture_187857.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Warcraft I: Remastered (2024) [Ru/Multi] (1.0.0.2137) Repack Necros
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187858.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187858.jpgsave_picture_187858.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Lords of Ravage (2025) [Ru/Multi] (1.0.1.27) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187941.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187941.jpgsave_picture_187941.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Vampire: The Masquerade - Bloodlines 2 (2025) [Ru/Multi] (46047/dlc) Scene Rune 
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187943.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187943.jpgsave_picture_187943.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Painkiller (2025) [Ru/Multi] (224001/dlc) Scene Rune
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187946.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187946.jpgsave_picture_187946.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ ILA A Frosty Glide (2025) [Ru/Multi] (1.0.0.5) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187961.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187961.jpgsave_picture_187961.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Our Life: Beginnings & Always (2020) [En] (1.7.1.2/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187983.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187983.jpgsave_picture_187983.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Painkiller (2025) [Ru/Multi] (224001/dlc) Repack Wanterlude [Deluxe]
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187993.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187993.jpgsave_picture_187993.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Vampire The Masquerade - Bloodlines 2 (2025) [Ru/Multi] (46047/dlc) Repack Let's
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188092.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188092.jpgsave_picture_188092.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Painkiller (2025) [Ru/Multi] (224001/dlc) Repack Let'sРlay [Deluxe]
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188105.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188105.jpgsave_picture_188105.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Ad Infinitum (2023) [Ru/Multi] (1.0.3.268591) Scene FairLight
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188138.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188138.jpgsave_picture_188138.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ magnet:?xt=urn:btih:38E5A29EE8303E9A1F9A392F404D1162385562F6
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188144.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188144.jpgsave_picture_188144.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Stellar Monarch (2016) [En] (1.48/dlc) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188175.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188175.jpgsave_picture_188175.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Dune: Spice Wars (2023) [Ru/Multi] (1.0.0.28038) Repack Other s
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188293.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188293.jpgsave_picture_188293.jpg" />
 </div>
 
 

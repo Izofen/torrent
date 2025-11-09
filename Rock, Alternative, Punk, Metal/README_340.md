@@ -6,7 +6,7 @@ Clutch - Sunrise on Slaughter Beach (2022) [FLAC|Lossless|tracks + .cue] <Stoner
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_190904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_190904.jpgsave_picture_190904.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Lacrimas Profundere - How to Shroud Yourself with Night (2022) [FLAC|Lossless|tr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_190908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_190908.jpgsave_picture_190908.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Limite Acque Sicure - Limite Acque Sicure (2022) [FLAC|Lossless|WEB-DL|tracks] <
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_190910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_190910.jpgsave_picture_190910.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Burning Sister - Mile High Downer Rock (2022) [FLAC|Lossless|WEB-DL|tracks] <Hea
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_190912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_190912.jpgsave_picture_190912.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Monument of A Memory - Harmony In Absolution (2022) [FLAC|Lossless|WEB-DL|tracks
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_190914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_190914.jpgsave_picture_190914.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Wags Metal Inc. (Wagsmetalinc.) - No Man's Land (2022) [FLAC|Lossless|WEB-DL|tra
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_190916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_190916.jpgsave_picture_190916.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Godbelow - Noogena (2022) [FLAC|Lossless|WEB-DL|tracks] <Pos, Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_190918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_190918.jpgsave_picture_190918.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ magnet:?xt=urn:btih:B1A16DD3D50AD1A79A70F2C1449B7B5A64561D2D
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190935.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190935.jpgsave_picture_190935.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:01F22FBB395E7270812FB47A23037E5182752889
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190947.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190947.jpgsave_picture_190947.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Primal Fear - Code Red (2023) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190967.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190967.jpgsave_picture_190967.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ The Starkillers - Пираты Японского Моря (2023) [FLAC|Lossless
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190974.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190974.jpgsave_picture_190974.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:600791D5A01D866975604A0B8E3BC5969367F316
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190981.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190981.jpgsave_picture_190981.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Ravanna - 2 Albums (2022-2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190982.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190982.jpgsave_picture_190982.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ magnet:?xt=urn:btih:6D844A8714331DF99123B99F2E23E7ED7F227ADD
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190985.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190985.jpgsave_picture_190985.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Alcatrazz - V (2021) Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190988.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190988.jpgsave_picture_190988.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Iced Earth - Hellrider - I Walk Among You (2023) Compilation, Remastered [FLAC|L
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190991.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190991.jpgsave_picture_190991.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ magnet:?xt=urn:btih:4202F1E383E0CA0D393CD2EC69BBE43C711297E0
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_190999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_190999.jpgsave_picture_190999.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ magnet:?xt=urn:btih:02B5501115FA19CAE4D83C0497988D2069C32994
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191000.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191000.jpgsave_picture_191000.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Jag Panzer - Mechanized Warfare (2001) [FLAC|Lossless|image + .cue] <Heavy, Powe
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191003.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191003.jpgsave_picture_191003.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:1CA7E21BEE57226BAAC82257FE5AE703ADBA1F06
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_191004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191004.jpgsave_picture_191004.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Max Shin - 2 Albums (2023) [MP3|320 Kbps] <Punk, Alternative Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191006.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191006.jpgsave_picture_191006.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Stilgar - Живым Или Мёртвым (2023) [FLAC|Lossless|WEB-DL|tracks] 
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191008.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191008.jpgsave_picture_191008.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Blackbird Angels - Solsorte (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Glam Rock
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191011.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191011.jpgsave_picture_191011.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Entrails - An Eternal Time Of Decay (2022) [FLAC|Lossless|image + .cue] <Death M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191012.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191012.jpgsave_picture_191012.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Sorrow - Death Of Sorrow (2023) [FLAC|Lossless|WEB-DL|tracks] <Death, Doom, Thra
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191016.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191016.jpgsave_picture_191016.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ magnet:?xt=urn:btih:CD66BE5B12761F61A00413257C2AD9FE78EBF047
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_191062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191062.jpgsave_picture_191062.jpg" />
 </div>
 
 

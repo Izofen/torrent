@@ -6,7 +6,7 @@ Girl Genius: Adventures In Castle Heterodyne (2023) [Multi] (1.0.3a) Scene Skidr
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189139.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189139.jpgsave_picture_189139.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Little Witch Nobeta (2022) [Ru/Multi] (1.1.0/dlc) Scene Rune
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189958.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189958.jpgsave_picture_189958.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Diary of Lucie (2023) [Multi] (1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190434.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190434.jpgsave_picture_190434.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ The Darkest Tales (2022) [Ru/Multi] (1.05.1) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_191165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191165.jpgsave_picture_191165.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ SIGNALIS (2022) [Ru/Multi] (1.0) License DARKSiDERS
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_191173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191173.jpgsave_picture_191173.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Sackboy: A Big Adventure (2022) [Ru/Multi] (9806667/dlc) Repack DjDI
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192440.jpgsave_picture_192440.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Spelunky (2013) [Multi] (2.1.0.9) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192507.jpgsave_picture_192507.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Hell Pie (2022) [Ru/Multi] (1.1.5) License GOG [18+]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_193045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193045.jpgsave_picture_193045.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Teenage Mutant Ninja Turtles: Shredder's Revenge (2022) [Ru/Multi] (1.0.0.349/dl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193307.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193307.jpgsave_picture_193307.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Castle Crashers (2012) [Ru/En] (3.0/dlc) Repack Necros
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193366.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193366.jpgsave_picture_193366.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Plants vs. Zombies: Replanted (2025) [Multi] (1.2.1173.0) Repack Necros
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193400.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193400.jpgsave_picture_193400.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Zombie Shooting Star (2022) [Multi] (1.1) License GOG [16+]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193979.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193979.jpgsave_picture_193979.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Zombie Shooting Star: ARCADE (2022) [Multi] (1.1) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194087.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194087.jpgsave_picture_194087.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Mail Time (2023) [Multi] (1.00.19) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_194309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_194309.jpgsave_picture_194309.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Pinball FX3 (2017) [Multi] (1.0.26.0/dlc) Scene Skidrow
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194396.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194396.jpgsave_picture_194396.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ TailQuest Defense (2023) [Multi] (1.1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194524.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194524.jpgsave_picture_194524.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ ANVIL (2023) [Multi] (1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194526.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194526.jpgsave_picture_194526.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Ape Out (2019) [Ru/Multi] (1.3) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_195133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195133.jpgsave_picture_195133.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ The Cave (2013) [Multi] (1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195390.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195390.jpgsave_picture_195390.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Fall of Porcupine (2023) [Multi] (1.1.12) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195798.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195798.jpgsave_picture_195798.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Battle Axe (2021) [Multi] (1.0.4) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195826.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195826.jpgsave_picture_195826.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Guilty Gear -Strive- (2021) [Multi] (1.27/dlc) Scene SKiDROW
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196038.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196038.jpgsave_picture_196038.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Voodolls (2023) [Multi] (1.0.4) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_196258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196258.jpgsave_picture_196258.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Fireball Wizard (2023) [Ru/Multi] (1.0.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196534.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196534.jpgsave_picture_196534.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ JYDGE (2017) [Ru/Multi] (1.2.1.4) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196607.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196607.jpgsave_picture_196607.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Tesla vs Lovecraft (2018) [Ru/Multi] (1.0.7/dlc) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196633.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196633.jpgsave_picture_196633.jpg" />
 </div>
 
 

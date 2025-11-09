@@ -6,7 +6,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103252.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103252.jpgsave_picture_103252.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ VA - Trance: The Vocal Session 2025 (2024) [MP3|320 Kbps] <Trance, Vocal Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103253.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103253.jpgsave_picture_103253.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ magnet:?xt=urn:btih:F495FD36B6CE481D43AE40B06F8DEFDD5C48618D
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103254.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103254.jpgsave_picture_103254.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ magnet:?xt=urn:btih:5D84C1EF260CA80F0D293CBD7B98196C3F58EF11
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103255.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103255.jpgsave_picture_103255.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ magnet:?xt=urn:btih:C6B603A7DF7E0314BF5ED17ADBCDE5460E682102
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103256.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103256.jpgsave_picture_103256.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ magnet:?xt=urn:btih:2D44777BFC2D33C4DB1D5AE8045EB89E1619B78C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103257.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103257.jpgsave_picture_103257.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ magnet:?xt=urn:btih:FB818835CD94601098D43CDE40152ACA5B179AAF
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103258.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103258.jpgsave_picture_103258.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ magnet:?xt=urn:btih:58302B78748C73428A8567FE45F252930274E5FF
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103259.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103259.jpgsave_picture_103259.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ magnet:?xt=urn:btih:6157784ED7898986BAB0062A9CC55B11A8FE4462
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103260.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103260.jpgsave_picture_103260.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ VA - It's All About Deep-House, Vol. 3 (2024) [MP3|320 Kbps] <House, Deep House,
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103261.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103261.jpgsave_picture_103261.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ magnet:?xt=urn:btih:3AE5166762DCDAE8DDCAF85A3296BFDF22A77C87
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103262.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103262.jpgsave_picture_103262.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ VA - It's All About Deep-House, Vol. 2 (2024) [MP3|320 Kbps] <House, Deep House,
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103263.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103263.jpgsave_picture_103263.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ VivaVideo Video Editor v9.21.8 Mod by MustHave [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103264.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103264.jpgsave_picture_103264.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ magnet:?xt=urn:btih:8F8A627EC0FAB626642D6297AC92778C1430072D
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103265.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103265.jpgsave_picture_103265.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ magnet:?xt=urn:btih:D19ADD1CD527AF9074ED2CA6D2F5F110CDA72E88
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103266.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103266.jpgsave_picture_103266.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ Davy Knowles - The Invisible Man (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock, Blu
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103267.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103267.jpgsave_picture_103267.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ magnet:?xt=urn:btih:6236163F53A75D0FEF66077DA471975D6426D0C3
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103268.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103268.jpgsave_picture_103268.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Photo Editor v11.0 Pro Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103269.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103269.jpgsave_picture_103269.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ magnet:?xt=urn:btih:697E343CBC847FC28E60A85BD31283F1F9BEE6EC
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103270.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103270.jpgsave_picture_103270.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ Nurcry - Renacer (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103271.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103271.jpgsave_picture_103271.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Anita O'Day - My Funny Valentine: Live (1955 - 1959) 2012, Kayo Stereophonic [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103272.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103272.jpgsave_picture_103272.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ PhotoRoom v5.5.6 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103273.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103273.jpgsave_picture_103273.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ VA - Sun Sand & Spirit, Vol. 2 (Tibetania Records) (2024) [FLAC|Lossless|WEB-DL|
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103274.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103274.jpgsave_picture_103274.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Charlotte Wessels (ex-Delain) - Studio Albums (3 releases) (2021-2024) hand made
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103275.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103275.jpgsave_picture_103275.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Skillet - Revolution (2024) [FLAC|Lossless|tracks + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103276.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103276.jpgsave_picture_103276.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ VA - Techno Club Vol. 73 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103277.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103277.jpgsave_picture_103277.jpg" />
 </div>
 
 

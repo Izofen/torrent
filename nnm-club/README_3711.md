@@ -6,7 +6,7 @@
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116861.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116861.jpgsave_picture_116861.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Die Neue Heartbreakers Vol.3 (1991) [OGG Vorbis|480 Kbps] <Pop, Rock>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116862.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116862.jpgsave_picture_116862.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:6CF1D0CA8298055EC7518EA293073AD495642BB6
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116863.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116863.jpgsave_picture_116863.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ VA - Breakin' News: 10 Years of Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Blue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116864.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116864.jpgsave_picture_116864.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ magnet:?xt=urn:btih:6F17A97FD0C778EAB5D10E035B62480D4AC53F2D
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116865.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116865.jpgsave_picture_116865.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ magnet:?xt=urn:btih:B2BB11E34EB5077AF12154969F2BA067C61B52C2
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116866.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116866.jpgsave_picture_116866.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Heart Line - Rock 'n Roll Queen (2023) [FLAC|Lossless|image + .cue] <Melodic Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116867.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116867.jpgsave_picture_116867.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ iTranslate 1.5.2 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116868.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116868.jpgsave_picture_116868.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Background Instrumental Music Collective - Till Next Summer: Happy Jazz to Keep 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116869.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116869.jpgsave_picture_116869.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ magnet:?xt=urn:btih:9E6D5371AB2DEBCB27D242EEB4AB1A516E8AD243
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116870.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116870.jpgsave_picture_116870.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Sean Ono Lennon - Asterisms (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116871.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116871.jpgsave_picture_116871.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ VA - Blind Raccoon & Nola Blue Collection, Vol. 6 (2024) [FLAC|Lossless|WEB-DL|t
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116872.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116872.jpgsave_picture_116872.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Jennifer Lopez - This Is Me...Now (2024) (Deluxe) [FLAC 24/44.1|Lossless|WEB-DL|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116873.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116873.jpgsave_picture_116873.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ VA - Electronic compilation part 56 (2024) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116874.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116874.jpgsave_picture_116874.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ magnet:?xt=urn:btih:F7C95D3CA21764A159C43F84E36A3A3A6A3B4F79
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116875.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116875.jpgsave_picture_116875.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ magnet:?xt=urn:btih:B032E8CE8A23C7A6E6C939AF432B85203BAE259B
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116876.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116876.jpgsave_picture_116876.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Rhinoceros 8 v.8.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116877.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116877.jpgsave_picture_116877.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ magnet:?xt=urn:btih:00863D02EE80D887BFBD7AF1E5B8A29FC1A7A90A
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116878.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116878.jpgsave_picture_116878.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ magnet:?xt=urn:btih:9F40270D42DB26C754207DE897AC51D0EC6B5C20
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116879.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116879.jpgsave_picture_116879.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ magnet:?xt=urn:btih:F71869AC79FC36B0678581F7558051141DC3D56E
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116880.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116880.jpgsave_picture_116880.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ VA - Bassline Anthems (2024) [MP3|320 Kbps] <DnB, Bassline, Electro>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116881.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116881.jpgsave_picture_116881.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ magnet:?xt=urn:btih:E221916E26438269FDF7FF8E78D7871A3984DAF4
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116882.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116882.jpgsave_picture_116882.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ VA - Best of Chill out Sexy Music (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, 
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116883.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116883.jpgsave_picture_116883.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ Elle & The Pocket Belles - What's a Girl to Do... (2024) [FLAC|Lossless|WEB-DL|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116884.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116884.jpgsave_picture_116884.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ Kanka + Bodewell - Stroboscope (2024) [FLAC|Lossless|WEB-DL|tracks] <EBM, Synthp
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116885.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116885.jpgsave_picture_116885.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ Audio Hijack 4.3.1 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116886.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116886.jpgsave_picture_116886.jpg" />
 </div>
 
 

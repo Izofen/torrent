@@ -6,7 +6,7 @@
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_190899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_190899.jpgsave_picture_190899.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:C0BFF4FD0B6E6271DC3BBB2832057087AA6E9485
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190900.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190900.jpgsave_picture_190900.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Stryper - The Final Battle (2022) [FLAC|Lossless|image + .cue] <Hard Rock, Heavy
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_190901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_190901.jpgsave_picture_190901.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Hinayana - Order Divine (2018) [FLAC|Lossless|image + .cue] <Melodic Death, Doom
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_190902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_190902.jpgsave_picture_190902.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:F0D57EDD236883D9ACCE9E80848E86F808A65A9D
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190903.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190903.jpgsave_picture_190903.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ Clutch - Sunrise on Slaughter Beach (2022) [FLAC|Lossless|tracks + .cue] <Stoner
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_190904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_190904.jpgsave_picture_190904.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ ImgDrive 2.0.7 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190905.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190905.jpgsave_picture_190905.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ Andre Ceccarelli, Pierre-Alain Goualch, Diego Imbert - Porgy & Bess (2021) Trebi
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_190906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_190906.jpgsave_picture_190906.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ magnet:?xt=urn:btih:0E06842676C3982F85D8D466DE12AE9946D15E5B
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190907.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190907.jpgsave_picture_190907.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ Lacrimas Profundere - How to Shroud Yourself with Night (2022) [FLAC|Lossless|tr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_190908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_190908.jpgsave_picture_190908.jpg" />
 </div>
 
 
@@ -262,7 +262,7 @@ magnet:?xt=urn:btih:6A79877CD78ACFE3B9CAC1BF1AEB8B34ADB5B9B4
 >>Старые Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190909.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190909.jpgsave_picture_190909.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ Limite Acque Sicure - Limite Acque Sicure (2022) [FLAC|Lossless|WEB-DL|tracks] <
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_190910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_190910.jpgsave_picture_190910.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ IceCream Ebook Reader Pro 6.35 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190911.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190911.jpgsave_picture_190911.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ Burning Sister - Mile High Downer Rock (2022) [FLAC|Lossless|WEB-DL|tracks] <Hea
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_190912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_190912.jpgsave_picture_190912.jpg" />
 </div>
 
 
@@ -364,7 +364,7 @@ magnet:?xt=urn:btih:1B4B497F325621C0DCF7820EA80B855095040F53
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_190913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_190913.jpgsave_picture_190913.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ Monument of A Memory - Harmony In Absolution (2022) [FLAC|Lossless|WEB-DL|tracks
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_190914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_190914.jpgsave_picture_190914.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ magnet:?xt=urn:btih:23B9DC4C72EF6BF1F83324B2FD03A9F0164C6CC8
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_190915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_190915.jpgsave_picture_190915.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Wags Metal Inc. (Wagsmetalinc.) - No Man's Land (2022) [FLAC|Lossless|WEB-DL|tra
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_190916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_190916.jpgsave_picture_190916.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ magnet:?xt=urn:btih:31A17C6C8F8B0C6AF02BF17BAEC7D7527E368B01
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190917.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190917.jpgsave_picture_190917.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Godbelow - Noogena (2022) [FLAC|Lossless|WEB-DL|tracks] <Pos, Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_190918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_190918.jpgsave_picture_190918.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:B1A16DD3D50AD1A79A70F2C1449B7B5A64561D2D
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190919.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190919.jpgsave_picture_190919.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Calibre 6.26.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190920.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190920.jpgsave_picture_190920.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Plus Messenger (Telegram+) v10.0.5.0 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190921.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190921.jpgsave_picture_190921.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ BloodRayne: Terminal Cut (2020) [Ru/Multi] (1.06) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_190922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_190922.jpgsave_picture_190922.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ OneCommander Pro 3.51.2.0 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190923.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190923.jpgsave_picture_190923.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ magnet:?xt=urn:btih:910EE7836810E94425CA765400B701415CEC0E47
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_190924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_190924.jpgsave_picture_190924.jpg" />
 </div>
 
 

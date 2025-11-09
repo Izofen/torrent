@@ -6,7 +6,7 @@ VA - Music News vol.253 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245306.jpgsave_picture_245306.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - EDC Radio Clubbing Sound (2021) [MP3|320 Kbps] <Club House, Techno, Trance,
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245376.jpgsave_picture_245376.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - Beatport Trance Pack  (07.10.) (2016) [MP3|320 Kbps] <Trance, Melodic, Emot
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245430.jpgsave_picture_245430.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - Clubbing Tech House: November Set (2021) [MP3|320 Kbps] <Tech House, Club, 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245524.jpgsave_picture_245524.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ VA - Traxsource Best Of Ibiza - Hype Chart (2016) [MP3|320 Kbps] <Deep House, Te
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245529.jpgsave_picture_245529.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ VA - Beatport Drum And Bass: Sound Pack #376 (2021) [MP3|320 Kbps] <Drum And Bas
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245531.jpgsave_picture_245531.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ VA - Trance Traveling 81 (Mixed by VNP) (2016) [MP3|320 Kbps] <Trance, Melodic, 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245616.jpgsave_picture_245616.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ VA - Bubblegum Dance (2023) [MP3|320 Kbps] <Europop, Trance, Euro House, Vocal, 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245684.jpgsave_picture_245684.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ VA - Beatport Trance Pack  (01.10.) (2016) [MP3|320 Kbps] <Trance, Melodic, Emot
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245692.jpgsave_picture_245692.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ VA - Beatport Trance: Electro Sound Pack #243 (2021) [MP3|320 Kbps] <Trance, Ele
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245724.jpgsave_picture_245724.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ VA - Beatport Techno Electronic: Electro Sound Pack #241 (2021) [MP3|320 Kbps] <
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245738.jpgsave_picture_245738.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ VA - Sensual Chillout Lounge (2016) [MP3|320 Kbps] <Downtempo, Lounge, Chillout>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245741.jpgsave_picture_245741.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Cinderella - Collection (2022) [MP3|320 Kbps] <Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245764.jpgsave_picture_245764.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ VA - The Best of Trance 49 (2016) [MP3|320 Kbps] <Trance, Melodic, Emotional, En
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245769.jpgsave_picture_245769.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ VA - Elegant New Trance Set (2021) [MP3|320 Kbps] <Trance, Progressive>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245774.jpgsave_picture_245774.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ VA - The Best of Trance 48 (2016) [MP3|320 Kbps] <Trance, Melodic, Emotional, En
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245797.jpgsave_picture_245797.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ VA - Sublime Revelation Melody (2016) [MP3|320 Kbps] <Trance, Melodic, Emotional
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245803.jpgsave_picture_245803.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ VA - В машине с музыкой Vol.329 (2023) [MP3|320 Kbps] <Pop, Dance
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245851.jpgsave_picture_245851.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ VA - Beatport Trance Pack (23.09.) (2016) [MP3|320 Kbps] <Trance, Melodic, Emoti
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245944.jpgsave_picture_245944.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ VA - Like The Old Day (2023) [MP3|320 Kbps] <Disco, Electronic, Synthwave>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245945.jpgsave_picture_245945.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ VA - Ouca Playlist (2021) [MP3|320 Kbps] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246031.jpgsave_picture_246031.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Chicago Blues Radio - Favorites Collection Part 3 (2025) [MP3|320 Kbps] <Blues, 
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246088.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246088.jpgsave_picture_246088.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Anna Zueva - Favorites Collection Part 5 (2025) [MP3|320 Kbps] <Easy Listening, 
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246089.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246089.jpgsave_picture_246089.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Chicago Blues Radio - Favorites Collection Part 4 (2025) [MP3|320 Kbps] <Blues, 
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246090.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246090.jpgsave_picture_246090.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Chicago Blues Radio - Favorites Collection Part 5 (2025) [MP3|320 Kbps] <Blues, 
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246092.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246092.jpgsave_picture_246092.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Chicago Blues Radio - Favorites Collection Part 2 (2025) [MP3|320 Kbps] <Blues, 
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246124.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246124.jpgsave_picture_246124.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Black Pyre - Fall Of The Northern Kingdom (2023) [FLAC|Lossless|WEB-DL|tracks] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142675.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142675.jpgsave_picture_142675.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Подставляйте ладони-я насыплю Вам солнца
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142677.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142677.jpgsave_picture_142677.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:D244B6687C6FBD8F255249090D9777B9AEF80953
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142678.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142678.jpgsave_picture_142678.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ magnet:?xt=urn:btih:4D6FBEF5B4BE66CCDA0A9DA80BB437CFA09DD2A7
 >>Хоккей. Чемпионаты мира
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142680.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142680.jpgsave_picture_142680.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ VA - Новая Русская Дискотека (Лучшие 2) (2016) [MP3|2
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142681.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142681.jpgsave_picture_142681.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Vehemence - God Was Created (2002) [FLAC|Lossless|image + .cue] <Metal, Melodic 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142682.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142682.jpgsave_picture_142682.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ DiskDigger 1.20.8.2677 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142683.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142683.jpgsave_picture_142683.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Intel готовит революционную систему охлажден�
 >>Компьютерные новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142685.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142685.jpgsave_picture_142685.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Intel готовит революционную систему охлажден�
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142686.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142686.jpgsave_picture_142686.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ magnet:?xt=urn:btih:8A1C607159512B31B767D8BBE3A0766BC59AACCF
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142687.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142687.jpgsave_picture_142687.jpg" />
 </div>
 
 
@@ -262,7 +262,7 @@ magnet:?xt=urn:btih:F07676792BA47083A99552151B0318C44F721799
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142688.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142688.jpgsave_picture_142688.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ magnet:?xt=urn:btih:57CB87CE1DC39EFDAEBEA572523447800E4CCD65
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142689.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142689.jpgsave_picture_142689.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ VA - Свежий Русский Хит от ALEXnROCK часть 8 (2021) [MP3|
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142690.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142690.jpgsave_picture_142690.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ magnet:?xt=urn:btih:FE948AD0FC392F4B47A5903135861990D50C17A0
 >>Старые Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142691.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142691.jpgsave_picture_142691.jpg" />
 </div>
 
 
@@ -364,7 +364,7 @@ VA - Acoustic 90's (2016) [MP3|320 Kbps] <Downtempo, Chillout, Instrumental>
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142692.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142692.jpgsave_picture_142692.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ Dropshare 5.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142693.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142693.jpgsave_picture_142693.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ magnet:?xt=urn:btih:E72F0D1EDA31A1C066629F9003B902037CE4612E
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142694.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142694.jpgsave_picture_142694.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ magnet:?xt=urn:btih:5E1671611607EAF5B854C6DC25294E8E310FA982
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142695.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142695.jpgsave_picture_142695.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ magnet:?xt=urn:btih:13E214944925170F36B96DDC104001FE1915C47D
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142696.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142696.jpgsave_picture_142696.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ VA - Подставляйте ладони-я насыплю Вам солнца
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142697.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142697.jpgsave_picture_142697.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ Vehemence - Forward Without Motion (2015) [FLAC|Lossless|tracks + .cue] <Metal, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142698.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142698.jpgsave_picture_142698.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ magnet:?xt=urn:btih:E74F9410BA4D63C29A5DC6CA6E3ABA74AC51B87D
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142700.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142700.jpgsave_picture_142700.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ magnet:?xt=urn:btih:EB7C733821316B7AD9339D27977492C05041D483
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142702.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142702.jpgsave_picture_142702.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ magnet:?xt=urn:btih:3571711971E0476F9C8E46107AEC46D963BBE747
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142703.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142703.jpgsave_picture_142703.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ magnet:?xt=urn:btih:1DCA6B39E84201F6DB4DC91D4146908617D3D82D
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142704.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142704.jpgsave_picture_142704.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ magnet:?xt=urn:btih:14A5C4445E86960C6DF30D824830512C6166EA88
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142706.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142706.jpgsave_picture_142706.jpg" />
 </div>
 
 

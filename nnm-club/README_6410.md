@@ -6,7 +6,7 @@ Adguard 7.12.0 (7.12.4170.0) RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203332.jpgsave_picture_203332.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ The Hurricane Party - Cat. 2 (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203333.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203333.jpgsave_picture_203333.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:8FF31F86211BA7F044CFF4E4DA956F276247D24B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203334.jpgsave_picture_203334.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:2C038F51AC978FEDCFFCCBDF0675D90A15199C55
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203335.jpgsave_picture_203335.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Richard Wilson - Promised Land (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203336.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203336.jpgsave_picture_203336.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ SyncBird Pro 4.0.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203337.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203337.jpgsave_picture_203337.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:EA2E5FB1F1D25AC2955DBC0A29E48A9C8D7F0B64
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203338.jpgsave_picture_203338.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:48316EFBA8A490AD0C395FF02EE8DA0880A75C25
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203339.jpgsave_picture_203339.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:19A3AA4C07BA8C1335AC5568461F85C8A49EAC78
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203340.jpgsave_picture_203340.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:8190E1D63326867384F31988FBBA3C96D99523FA
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203341.jpgsave_picture_203341.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:DC4EF300EC131BA15F5B4C31D3D6DDC377646107
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203342.jpgsave_picture_203342.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:14903A468EF878DA01BF572BDA33E477BA2B8870
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203343.jpgsave_picture_203343.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ magnet:?xt=urn:btih:D0555E54CE4080EFCD79BDFE43DB5F8DDAC9E88C
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203344.jpgsave_picture_203344.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ magnet:?xt=urn:btih:2472B415B801DACC5C1887E24631724B726379BD
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203345.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203345.jpgsave_picture_203345.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ magnet:?xt=urn:btih:086BE825B1A48555BC6C0CC66B24834CB0220949
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203346.jpgsave_picture_203346.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Dynamic Wallpaper Engine 15.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203347.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203347.jpgsave_picture_203347.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Haggard - Studio Albums (3 releases) (2000-2008) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203349.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203349.jpgsave_picture_203349.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ magnet:?xt=urn:btih:797F95D5B116B6390A84A57163CE1955E99D3179
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203350.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203350.jpgsave_picture_203350.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ magnet:?xt=urn:btih:150F40B85DC5CF35F11DCFBFE0E0FD682C573937
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203351.jpgsave_picture_203351.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ AutoHideDesktopIcons 6.06 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203353.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203353.jpgsave_picture_203353.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Azula Queen Quartet - Blues Sem Fronteiras (2023) [MP3|320 Kbps] <Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203354.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203354.jpgsave_picture_203354.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ magnet:?xt=urn:btih:8FA5B3432E2BAE94284DEC7E4986D15225A90185
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203355.jpgsave_picture_203355.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ Firefox Browser 117.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203356.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203356.jpgsave_picture_203356.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ NoMachine 8.3.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203357.jpgsave_picture_203357.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Firefox Browser ESR 115.2.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203358.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203358.jpgsave_picture_203358.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ magnet:?xt=urn:btih:F93F1463D881D8BBB124D5F742B3877C1CFC73E0
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203359.jpgsave_picture_203359.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ VA - DJ Hits Of June'97 (1997) [OGG Vorbis|480 Kbps] <Electronic, Pop, Eurodance
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104177.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104177.jpgsave_picture_104177.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:3D35C73D2F781CB6D1A2F6C025E45A41E0F91B92
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104178.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104178.jpgsave_picture_104178.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Kenny Wayne Shepherd - Dirt On My Diamonds Vol 2 (2024) [FLAC 24/96|Lossless|WEB
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104179.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104179.jpgsave_picture_104179.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Nelly Furtado - 7 (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104180.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104180.jpgsave_picture_104180.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ PDF24 Creator 11.20.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104181.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104181.jpgsave_picture_104181.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ HOFA - Colour Delay 1.0.0 VST 3, AAX (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104182.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104182.jpgsave_picture_104182.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Seether - The Surface Seems So Far (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <P
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104183.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104183.jpgsave_picture_104183.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ magnet:?xt=urn:btih:FE08D2241B2EA9A54D69BD6D559611E702DCECB2
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104184.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104184.jpgsave_picture_104184.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ magnet:?xt=urn:btih:9BDA08AEEAE276C4917D2E24BCC5CACCE6985DBF
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104185.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104185.jpgsave_picture_104185.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ VA - DJ Hits Of October 1997 (1997) [OGG Vorbis|480 Kbps] <Electronic, Pop, Euro
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104186.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104186.jpgsave_picture_104186.jpg" />
 </div>
 
 
@@ -265,7 +265,7 @@ Sweet - Full Circle (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104187.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104187.jpgsave_picture_104187.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ magnet:?xt=urn:btih:EF248D292D9D3DA920D58154EBA0BB990DE1F1FA
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104188.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104188.jpgsave_picture_104188.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Firefox Browser 130.0.1 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104189.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104189.jpgsave_picture_104189.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Secret Garden - Songs In The Circle Of Time (2024) [FLAC 24/96|Lossless|WEB-DL|t
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104190.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104190.jpgsave_picture_104190.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ magnet:?xt=urn:btih:705EFDF10B2E5D40944EFDB16BADADCEA4DFFD5C
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104191.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104191.jpgsave_picture_104191.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Sandboxie 5.69.9 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104192.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104192.jpgsave_picture_104192.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ magnet:?xt=urn:btih:479794D06540FB53A4A99DDD26145C5E04B0D09D
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104193.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104193.jpgsave_picture_104193.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:AC56EAE00790C53E66FFD5D068E8CA2D59E75753
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104194.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104194.jpgsave_picture_104194.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Stan Getz - The Complete Quintet Sessions (1948 - 1952) 1994, Blue Moon [WavPack
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104195.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104195.jpgsave_picture_104195.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Lyle Lovett And His Large Band - Lyle Lovett And His Large Band (1989) [FLAC 2.0
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104196.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104196.jpgsave_picture_104196.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ Eduardo Belo - Belo and the Beasts (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <J
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104197.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104197.jpgsave_picture_104197.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ Bright Eyes - Five Dice, All Threes (2024) [FLAC 24/88.2|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104198.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104198.jpgsave_picture_104198.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ David & The HeartStrings - David & The HeartStrings (2024) [FLAC 24/48|Lossless|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104199.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104199.jpgsave_picture_104199.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ magnet:?xt=urn:btih:EF743B4F1282963941F9D6C244B4BECB6207F02F
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104200.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104200.jpgsave_picture_104200.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ magnet:?xt=urn:btih:E473D67667A68C2DEDB494A5A921106047E17B4D
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104201.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104201.jpgsave_picture_104201.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ magnet:?xt=urn:btih:E02D63319845885CD28749B365B4AC5D97486B83
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104202.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104202.jpgsave_picture_104202.jpg" />
 </div>
 
 

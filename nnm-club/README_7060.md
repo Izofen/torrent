@@ -6,7 +6,7 @@ VA - Top 100 DJs Chart 31-03-2023 [MP3|320 Kbps] <Pop, Dance, Electro, Techno>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241795.jpgsave_picture_241795.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Whipworm - Gozer (2023) [FLAC|Lossless|WEB-DL|tracks] <Modern Death, Thrash Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241796.jpgsave_picture_241796.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:818828F4B9188218D476204245A895D92F1B0E94
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241797.jpgsave_picture_241797.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Tixati 3.17 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241798.jpgsave_picture_241798.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ SQLPro for SQLite 2022.30 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241799.jpgsave_picture_241799.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Viper FTP 6.3.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241800.jpgsave_picture_241800.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ Trope - Eleutheromania (2021) [MP3|320 Kbps] <Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241801.jpgsave_picture_241801.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ magnet:?xt=urn:btih:7B8F9E3F3D16F3F8FEDE3CB8D5FF3315C630DFE8
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241802.jpgsave_picture_241802.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ FlippedNormals, Henning Sanden | Introduction to Sculpting in Blender 2.92 (2021
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241803.jpgsave_picture_241803.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ magnet:?xt=urn:btih:46983DB580E19B2C486A493B744FFF5F3FA23BF8
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241804.jpgsave_picture_241804.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ VideoProc (former MacX Video Converter Pro) 4.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241805.jpgsave_picture_241805.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ Chris Rea - On The Beach (1986) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241806.jpgsave_picture_241806.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ Kaja - Crazy Peoples Right to Speak (1985) [FLAC 2.0|192/24|image + .cue|Vinyl-R
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241807.jpgsave_picture_241807.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ MarkMyWords 2.4.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241808.jpgsave_picture_241808.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ magnet:?xt=urn:btih:64D5729B421DB50BA186B2ED68507E85CCCCDE0B
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241809.jpgsave_picture_241809.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Harry Allen - I Can See Forever (2002) BMG [FLAC|Lossless|image + .cue] <Mainstr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241810.jpgsave_picture_241810.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Elvin Shaad - Live For Love (1978) LP [MP3|320 Kbps] <Electronic, Disco, Funk So
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241811.jpgsave_picture_241811.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ magnet:?xt=urn:btih:65D50A4DAE5E00087DEEE438FEEF9CAA76CBC17D
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241812.jpgsave_picture_241812.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ Brandee Younger - Brand New Life (2023) [FLAC|Lossless|WEB-DL|tracks] <Contempor
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241813.jpgsave_picture_241813.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ magnet:?xt=urn:btih:59FDD4562350F728AA4721143FDD363D3FFFB508
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241814.jpgsave_picture_241814.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Phil Woods & Bill Mays - Woods & Mays (2011) Palmetto [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241815.jpgsave_picture_241815.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Rogue Amoeba Farrago 1.5.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241816.jpgsave_picture_241816.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Blood, Sweat & Tears - Blood, Sweat & Tears (1968) Reissue, 2022,  Columbia - Le
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241817.jpgsave_picture_241817.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Donemax Data Recovery 1.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241818.jpgsave_picture_241818.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Easy Notes 1.1.64.0331 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241819.jpgsave_picture_241819.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ magnet:?xt=urn:btih:156DEA5923372126B1656DDEDCE9026E060B43AF
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241820.jpgsave_picture_241820.jpg" />
 </div>
 
 

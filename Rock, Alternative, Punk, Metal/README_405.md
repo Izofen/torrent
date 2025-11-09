@@ -6,7 +6,7 @@ Moonshine Mojo - Mojolithic Vibrations (2023) [FLAC|Lossless|WEB-DL|tracks] <Hea
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233577.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233577.jpgsave_picture_233577.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Def Leppard, Royal Philharmonic Orchestra - Drastic Symphonies (2023) [FLAC|96/2
 >>Hard Rock (Hi Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233594.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233594.jpgsave_picture_233594.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Oceanlord - Kingdom Cold (2023) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Stone
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233630.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233630.jpgsave_picture_233630.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Wings Of Steel - Gates Of Twilight (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233684.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233684.jpgsave_picture_233684.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Necronomicon Beast - Hell Thrash War (2004) Release 2010, Iron Bonehead Prod. He
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233691.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233691.jpgsave_picture_233691.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Def Leppard with the Royal Philharmonic Orchestra - Drastic Symphonies (2023) [M
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233711.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233711.jpgsave_picture_233711.jpg" />
 </div>
 
 
@@ -170,7 +170,7 @@ Frank Zappa - Funky Nothingness (2023) 3 x CD [FLAC|Lossless|tracks + .cue] <Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233736.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233736.jpgsave_picture_233736.jpg" />
 </div>
 
 
@@ -197,7 +197,7 @@ Aathma - Dust from a Dark Sun (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233748.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233748.jpgsave_picture_233748.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Oh, Sleeper - Bloodied / Unbowed (2019) [FLAC|Lossless|WEB-DL|tracks] <Metalcore
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233756.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233756.jpgsave_picture_233756.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Helgrind - Insurrection (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Thras
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233761.jpgsave_picture_233761.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ Rob Tyner - Blood Brothers (1990) [FLAC|Lossless|tracks] <Rock, Classic Rock, Ha
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233779.jpgsave_picture_233779.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ Samtar - Cryptic Tales From A Vision Obscured (2021) [FLAC|Lossless|WEB-DL|track
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233788.jpgsave_picture_233788.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ magnet:?xt=urn:btih:CC371B22FB17388339E2E7D288DAF6F130118B1C
 >>Русский Рок (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233793.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233793.jpgsave_picture_233793.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ Nazty Habit - Twist of My Soul (2011) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233796.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233796.jpgsave_picture_233796.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ VA - Rock Fun & Happy Songs (2023) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233803.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233803.jpgsave_picture_233803.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ Glacier - The Passing of Time (2020) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233809.jpgsave_picture_233809.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Sacred Outcry - Damned for All Time (2020) [FLAC|Lossless|WEB-DL|tracks] <Heavy,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233814.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233814.jpgsave_picture_233814.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ The Guess Who - Plein D'Amour (2023) [FLAC 2.0|24/44.1|WEB-DL|tracks] <Hard Rock
 >>Hard Rock (Hi Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233818.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233818.jpgsave_picture_233818.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ CEN-ProjekT (Chris Engels) - Pride (2023) [FLAC|Lossless|WEB-DL|tracks] <Progres
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233821.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233821.jpgsave_picture_233821.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ Altaria - The Fallen Empire (2006) Remaster, 2022, Reaper [FLAC|Lossless|WEB-DL|
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233825.jpgsave_picture_233825.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ Tripulante - Lickan Antay (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233826.jpgsave_picture_233826.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ Frank Zappa - Funky Nothingness (2023) 3CD [FLAC|Lossless|WEB-DL|tracks] <Proges
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233827.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233827.jpgsave_picture_233827.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ Simple Plan - Harder Than It Looks (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop Pun
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233834.jpgsave_picture_233834.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ Ghost - Phantomime (2023) EP [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Rock>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233836.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233836.jpgsave_picture_233836.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Frozen Land - Out of the Dark (2023) [MP3|320 Kbps] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233837.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233837.jpgsave_picture_233837.jpg" />
 </div>
 
 
@@ -683,7 +683,7 @@ Eibon - Entering Darkness (2010) [FLAC|Lossless|image + .cue] <Sludge Metal, Doo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233844.jpgsave_picture_233844.jpg" />
 </div>
 
 

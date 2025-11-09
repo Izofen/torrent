@@ -6,7 +6,7 @@ Stardock Groupy 2.1 RePack (& Portable) by xetrin [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192545.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192545.jpgsave_picture_192545.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ All Language Translate App 1.65 Mod by ModdingUnited [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192546.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192546.jpgsave_picture_192546.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:59E5BBF9EBEEBC301E96B781C7793FBDE3DEBC90
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192547.jpgsave_picture_192547.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ AIMP 5.03 Build 2398 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192548.jpgsave_picture_192548.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Steinberg - WaveLab 11 Pro 11.1.20 (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192549.jpgsave_picture_192549.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:7849A443DD81FDF961503CAB630EED3704C570F5
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192550.jpgsave_picture_192550.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:016D5556E2087A90A92DEF3FEF6D09A098D86655
 >>КВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192551.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192551.jpgsave_picture_192551.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Akebi-chan no Sailor Fuku | Akebi's Sailor Uniform | Школьная форма
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192552.jpgsave_picture_192552.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:0D8A26C17CCA7D73FA106A43ACD3DB58F278856C
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192553.jpgsave_picture_192553.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ magnet:?xt=urn:btih:0BD49DA5ACF70041CA5D613D0A65010C03678CA9
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192554.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192554.jpgsave_picture_192554.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ magnet:?xt=urn:btih:CF614079C4629AFA41133C16EA325EEE4DBF90F5
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192555.jpgsave_picture_192555.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ magnet:?xt=urn:btih:7FA049A7829985EBA1C19F9F378FF21C4FA5EF10
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192556.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192556.jpgsave_picture_192556.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ magnet:?xt=urn:btih:562CDA52577D102AE65BB6BA4B2292383DF1CF73
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192557.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192557.jpgsave_picture_192557.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ ZD Soft Screen Recorder 11.6.0 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192558.jpgsave_picture_192558.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ magnet:?xt=urn:btih:BE721F373DEB8B4FCC6430D5BE9C8E6EA8540294
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192559.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192559.jpgsave_picture_192559.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ magnet:?xt=urn:btih:73D1DDA677455679225593F4C52234C4AA7D433C
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192560.jpgsave_picture_192560.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ magnet:?xt=urn:btih:A47F188C4C34556EFE134EFF68400BFDCFDBA2DB
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192561.jpgsave_picture_192561.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ Rainlendar Pro 2.20.1 Build 176 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192562.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192562.jpgsave_picture_192562.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ magnet:?xt=urn:btih:E56A896AD40E386FD33B0EF3167177A7763E69B6
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192563.jpgsave_picture_192563.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ magnet:?xt=urn:btih:EF97D1F2A2294241BEDC73EA1B48FCABA59104E9
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192564.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192564.jpgsave_picture_192564.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:CB1A9BB6899F132B372AAC2AF3511FE46ADA4086
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192565.jpgsave_picture_192565.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ magnet:?xt=urn:btih:3D3298A05E08C924B52D8E662AD3F1E0F7A84578
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192566.jpgsave_picture_192566.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Malwarebytes Free 4.6.1.280 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192567.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192567.jpgsave_picture_192567.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Joanne Shaw Taylor - Nobody's Fool (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192568.jpgsave_picture_192568.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Flibusta Downloader v4.5.1 Test [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192569.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192569.jpgsave_picture_192569.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ magnet:?xt=urn:btih:62E054D3183613EB94209E8E0ADF8B41B6977206
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192570.jpgsave_picture_192570.jpg" />
 </div>
 
 

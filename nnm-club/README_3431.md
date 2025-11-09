@@ -6,7 +6,7 @@ Nino Grandi Band - The Tales of the Wild Cat (2024) [FLAC|Lossless|WEB-DL|tracks
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109567.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109567.jpgsave_picture_109567.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ ManDoki Soulmates - A Memory Of Our Future (2024) [FLAC|Lossless|WEB-DL|tracks] 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109568.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109568.jpgsave_picture_109568.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Rossometile - Gehenna (2024) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal, Got
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109569.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109569.jpgsave_picture_109569.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:8046B98E0A786EDC81956F7F076C649590E0EF2E
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109570.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109570.jpgsave_picture_109570.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Nick Evans Mowery - Midnight Faces (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues R
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109571.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109571.jpgsave_picture_109571.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Larry Sargent - The Mystery of the Vesica Piscis (2024) [FLAC|Lossless|WEB-DL|tr
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109572.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109572.jpgsave_picture_109572.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Baerum (Bærum) Blues Band - Going Wrong (2024) [FLAC|Lossless|WEB-DL|tracks] <B
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109573.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109573.jpgsave_picture_109573.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Big Dave McLean - This Old Life (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109574.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109574.jpgsave_picture_109574.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Maragda - Tyrants (2024) [FLAC|Lossless|WEB-DL|tracks] <progressive rock, psych,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109575.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109575.jpgsave_picture_109575.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ PJ O'Brien - Jefferson Blues (2012) 2024 jefferson records [FLAC|Lossless|WEB-DL
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109576.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109576.jpgsave_picture_109576.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:57361A83F2CB62271B07E1AA0A748685A3E058F4
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109577.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109577.jpgsave_picture_109577.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Cal Harris JR - Bridges (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109578.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109578.jpgsave_picture_109578.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Icecream Screen Recorder Pro 7.41 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109579.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109579.jpgsave_picture_109579.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Haunting Ghosts - Shadow Work (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109580.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109580.jpgsave_picture_109580.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Instrumental Music Ensemble - Smoldering Erotic Jazz (2024) [FLAC 24/44.1|Lossle
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109581.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109581.jpgsave_picture_109581.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Two Lone Swordsmen - Still My World (2024) [FLAC|Lossless|WEB-DL|tracks] <nar ne
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109582.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109582.jpgsave_picture_109582.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ magnet:?xt=urn:btih:0D390B4BB1CF0E181A9F325E3B1B72D0233067C2
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109583.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109583.jpgsave_picture_109583.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Google Chrome 124.0.6367.208 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109584.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109584.jpgsave_picture_109584.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ VA - Шансон премьера 2023 сентябрь (Новые песни.
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109585.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109585.jpgsave_picture_109585.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ magnet:?xt=urn:btih:0E1E2ABE002F4EDA6B4CFE9D41239F4819CB39D7
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109586.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109586.jpgsave_picture_109586.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ VA - Slow Jazz (Smooth Saxophone, Trumpet and Piano) (2024) [FLAC|Lossless|WEB-D
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109587.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109587.jpgsave_picture_109587.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ AirBrush: ИИ Фоторедактор v6.5.3 Mod by PieMods [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109588.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109588.jpgsave_picture_109588.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Xana - The Sex Was Good Until It Wasn't (2024) [FLAC|Lossless|WEB-DL|tracks] <Po
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109589.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109589.jpgsave_picture_109589.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Video Converter Pro 0.2.37 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109590.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109590.jpgsave_picture_109590.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ Firefox Browser 126.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109591.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109591.jpgsave_picture_109591.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ Kings of Leon - Can We Please Have Fun (2024) [FLAC|Lossless|WEB-DL|tracks] <Alt
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109592.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109592.jpgsave_picture_109592.jpg" />
 </div>
 
 

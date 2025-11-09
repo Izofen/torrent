@@ -6,7 +6,7 @@ Tales of Arise (2021) [Ru/Multi] (20231108/dlc) Repack DjDI [Ultimate Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135032.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135032.jpgsave_picture_135032.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ F.E.A.R. 3 [Ru/En/Multi9] (Steam-Rip/16.0.20.1060) 2011 | R.G. GameWorks
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135057.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135057.jpgsave_picture_135057.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ Warhammer 40.000: Space Marine [Ru/En/Multi9] (Steam-Rip/1.0.156.0/13 DLC) 2011 
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135080.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135080.jpgsave_picture_135080.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ I Am Alive [Ru/En] (LossLess RePack/1.01) 2012 | R.G. Revenants
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135483.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135483.jpgsave_picture_135483.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Oddworld.Stranger's Wrath HD [Ru/En/Multi10] (Repack/1.5) 2012 | Fenixx
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135751.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135751.jpgsave_picture_135751.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Renegade Ops [Ru/En/Multi6] (Steam-Rip/13/2 DLC) 2011 | R.G. Игроманы
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135768.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135768.jpgsave_picture_135768.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ The Legacy (2025) [Ru/Multi] (build 20303577) Repack seleZen
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136714.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136714.jpgsave_picture_136714.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ Jump King (2019) [Ru] (Build 14374430) Repack Necros
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136720.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136720.jpgsave_picture_136720.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ Dead Age (2016) [Ru/Multi] (1.12-fix) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136734.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136734.jpgsave_picture_136734.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ Static Dread: The Lighthouse (2025) [Ru/Multi] (2025.10.13.12.03/dlc) Repack Oth
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136844.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136844.jpgsave_picture_136844.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ Project Hunt (2024) [Ru/Multi] (2025-9-25/dlc) Repack seleZen
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136867.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136867.jpgsave_picture_136867.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ Corporeal (2025) [Ru/Multi] (1.0) Repack seleZen
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136874.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136874.jpgsave_picture_136874.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ Corporeal (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136875.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136875.jpgsave_picture_136875.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Bye Sweet Carole (2025) [Ru/Multi] (1.0.2/dlc) Repack Other s
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136895.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136895.jpgsave_picture_136895.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Total War: THREE KINGDOMS (2019) [Ru/En] (1.7.1/dlc) Repack Wanterlude
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136921.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136921.jpgsave_picture_136921.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Baby Steps (2025) [Ru/Multi] (HotFix 2) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136925.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136925.jpgsave_picture_136925.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Resident Evil 3 (2020) [Ru/Multi] (11960962/dlc) Repack Wanterlude
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136928.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136928.jpgsave_picture_136928.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ The Legacy (2025) [Ru/Multi] (0.4971) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136987.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136987.jpgsave_picture_136987.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Dark Light (2020) [Multi] (1.0.6.0) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137012.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137012.jpgsave_picture_137012.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Youropa (2018) [Ru/Multi] (2.0.10) License DOGE
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137013.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137013.jpgsave_picture_137013.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ Pathfinder: Wrath of the Righteous (2021) [Ru/Multi] (1.1.7f.48-1.3.3e.587,1.3.4
 >>Patch/Tweak/Trainer/Other для Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137031.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137031.jpgsave_picture_137031.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ Baldur's Gate: Dark Alliance (2021) [Multi] (1.0.4) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137032.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137032.jpgsave_picture_137032.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Trash Sailors (2021) [Ru/Multi] (1.1.9) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137066.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137066.jpgsave_picture_137066.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ The Expanse: A Telltale Series (2023) [Ru/Multi] (1.0.902523) Repack dixen18 [Ep
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137073.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137073.jpgsave_picture_137073.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ GRID 2 (2013) [Ru/En] (1.0.85.8679/dlc) Repack xatab
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137182.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137182.jpgsave_picture_137182.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Niffelheim (2018) [Ru/Multi] (1.0.12) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137205.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137205.jpgsave_picture_137205.jpg" />
 </div>
 
 

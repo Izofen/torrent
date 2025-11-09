@@ -6,7 +6,7 @@ VA - Fulltime Production Electro 80, Vol. 2 (2013) [FLAC|Lossless|WEB-DL|tracks]
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109099.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109099.jpgsave_picture_109099.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Reach - Prophecy (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Hard Ro
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109100.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109100.jpgsave_picture_109100.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:5E1ECAA804C30AA942A55D6641E6D874DA20142B
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109101.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109101.jpgsave_picture_109101.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Skov-Roar-Rifbjerg Trio - Busy Spectacle (2024) [FLAC 24/44.1|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109102.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109102.jpgsave_picture_109102.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ magnet:?xt=urn:btih:6E2C4180F4CDA1328933554FDCF3EBCCD51C8C2D
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109103.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109103.jpgsave_picture_109103.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ Rare Touch - Rare Touch (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109104.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109104.jpgsave_picture_109104.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Smooth Jazz Music Academy, Background Instrumental Music Collective - The Softne
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109105.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109105.jpgsave_picture_109105.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Morning Giants - Eccentric Beasts (2024) [FLAC|Lossless|WEB-DL|tracks] <Progress
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109106.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109106.jpgsave_picture_109106.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Corey Taylor - CMF2B... or Not 2B (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Ha
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109107.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109107.jpgsave_picture_109107.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Alana Yorke - Destroyer (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Alternative,
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109108.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109108.jpgsave_picture_109108.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Engineered Society Project - Deception (2024) [FLAC 24/96|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109109.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109109.jpgsave_picture_109109.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Microsoft Visual Studio 2022 Enterprise 17.10.0 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109110.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109110.jpgsave_picture_109110.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ magnet:?xt=urn:btih:FA25CDF63FD4C54162E454AED6C223D4BC64924B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109111.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109111.jpgsave_picture_109111.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ magnet:?xt=urn:btih:8D984462DB2DFEA8A9B725154D4928AC0669C2C7
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109112.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109112.jpgsave_picture_109112.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ magnet:?xt=urn:btih:75642A86B45C60A34268FE57E5064635A0C9B160
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109113.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109113.jpgsave_picture_109113.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ magnet:?xt=urn:btih:9288C4A078F7D12168258CF8C62BD9601FACB0BB
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109114.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109114.jpgsave_picture_109114.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ magnet:?xt=urn:btih:273D75EB3D211AE4E1DF9F076B4C6890EC43DD4E
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109115.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109115.jpgsave_picture_109115.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Deep Forest, Olivier Delevingne - Crystal Clear (2024) [FLAC 24/44,1|Lossless|WE
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109116.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109116.jpgsave_picture_109116.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ magnet:?xt=urn:btih:C3FB7C6BCB0B57499AEF42C350DE1E0F18396C1F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109117.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109117.jpgsave_picture_109117.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ magnet:?xt=urn:btih:6EC76C3F9135D95E31E98F29AD1715D77F146BA6
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109118.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109118.jpgsave_picture_109118.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Erik Nieder - Miracle Maker (2024) Devotional Edition [FLAC 24/48|Lossless|WEB-D
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109119.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109119.jpgsave_picture_109119.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ magnet:?xt=urn:btih:D908BB707D4231AEC0288BDFD02CC05D2FE55449
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109120.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109120.jpgsave_picture_109120.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Geezer - Interstellar Cosmic Blues & The Riffalicious Stoner Dudes (2024) [FLAC|
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109121.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109121.jpgsave_picture_109121.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ magnet:?xt=urn:btih:104D8C0D29536ED1C9FB41E827BC305B013EC920
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109122.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109122.jpgsave_picture_109122.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ magnet:?xt=urn:btih:9D85E8CF9DE0105ABF7D1869AC62D3EA4666B401
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109123.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109123.jpgsave_picture_109123.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ magnet:?xt=urn:btih:712D5F942E8292CE799B242D9E43E78DD2FCB327
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109124.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109124.jpgsave_picture_109124.jpg" />
 </div>
 
 

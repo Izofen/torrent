@@ -6,7 +6,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250409.jpgsave_picture_250409.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:A17B8E5AB3B732FA07B4F441921531D23B001E45
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250410.jpgsave_picture_250410.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:7D265618B02871FD231437F7D32525EC3A3CE204
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250411.jpgsave_picture_250411.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:75A5C6101273F5CE3901819044ED7CEEC5649DFF
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250412.jpgsave_picture_250412.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ The Smooth Ballroom Band - Sax & Sex (Compilation) (2025) [MP3|320 Kbps] <Insrum
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250413.jpgsave_picture_250413.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:D49AB3F963F4BEAF4F0202F5EA8602F46B71D520
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250414.jpgsave_picture_250414.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ magnet:?xt=urn:btih:8B0B06D9A5BD9A264BDCEE6B0F97F7E77EB52D67
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250415.jpgsave_picture_250415.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:90C13AA6585BCD65F5C3620406B67457DAD9C8E1
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250416.jpgsave_picture_250416.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:6F87CC5FC018012203CE3450274F1CDF52FEC2FD
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250417.jpgsave_picture_250417.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ magnet:?xt=urn:btih:53591154670F8D2D320EB4E061004C6FE9D5849E
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250418.jpgsave_picture_250418.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ magnet:?xt=urn:btih:4BE198B6DBAAD395F379D027E4EFF4FC5AB4562A
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250419.jpgsave_picture_250419.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ Dogan Ibrahim | LTspice Essentials: An Introduction to Circuit Simulation (2024)
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250420.jpgsave_picture_250420.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ Sons of Ashes - Favorites Collection Part 2 (2025) [MP3|320 Kbps] <Blues, Blues 
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250421.jpgsave_picture_250421.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ Enlly Blue - Favorites Collection Part 2 (2025) [MP3|320 Kbps] <Blues, Blues Roc
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250422.jpgsave_picture_250422.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ magnet:?xt=urn:btih:9FA71E3D169CCC00BAB56E7DFD79E034F5906584
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250423.jpgsave_picture_250423.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ Feduk - Весёлая музыка (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks]
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250424.jpgsave_picture_250424.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Diary of Dreams - Dead End Dreams (Chapter 1) (2025) [FLAC 24/44.1|Lossless|WEB-
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250425.jpgsave_picture_250425.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Farzin Asadi | Circuits Laboratory Manual [4 книги] (2023 - 2024) [PDF] [En
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250426.jpgsave_picture_250426.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ magnet:?xt=urn:btih:A962FD794F73E7371CF8FC29C13C90D40E581763
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250427.jpgsave_picture_250427.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ magnet:?xt=urn:btih:0C7774876927AA96ED2D5EFF397FD4601E0A89A1
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250428.jpgsave_picture_250428.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ HiPER Calc Pro v11.2.8 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250429.jpgsave_picture_250429.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ NokoPrint v5.24.4 Mod by derrin [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250430.jpgsave_picture_250430.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Shotcut 25.10.31 + Portable [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250431.jpgsave_picture_250431.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ magnet:?xt=urn:btih:836FEB6DFEBCD0DC8FB059940E1FB0E37F563F0C
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250432.jpgsave_picture_250432.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ magnet:?xt=urn:btih:9CC9FDCA7588FEC7D822E76C50057F425B79A294
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250433.jpgsave_picture_250433.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ magnet:?xt=urn:btih:05DE6EFAADA343F8088C2604C579F8FCC99876BB
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250434.jpgsave_picture_250434.jpg" />
 </div>
 
 

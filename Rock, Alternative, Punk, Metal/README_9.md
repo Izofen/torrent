@@ -6,7 +6,7 @@ Ulvarg - Ulvarg (2025) [MP3|320 Kbps] <Symphonic Black Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12745.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12745.jpgsave_picture_12745.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Versatile - Les Litanies du Vide (2025) [MP3|320 Kbps] <Black, Industrial Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12748.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12748.jpgsave_picture_12748.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Warfield - With the Old Breed (2025) [MP3|320 Kbps] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12749.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12749.jpgsave_picture_12749.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ MYR - Helvegen (2025) [MP3|320 Kbps] <Black Metal, Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12750.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12750.jpgsave_picture_12750.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Voracite - White Phosphorus (2025) [MP3|320 Kbps] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12751.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12751.jpgsave_picture_12751.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Burnt By Hatred - Myth Or Mortal (2025) [MP3|320 Kbps] <Melodic Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12752.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12752.jpgsave_picture_12752.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Sleep Paralysis - Sleep Paralysis (2025) [FLAC|Lossless|WEB-DL|tracks] <Avant-Ga
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12753.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12753.jpgsave_picture_12753.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Wilco - Being There (1996) Reissue, Remastered, Deluxe Edition, Box Set, 2017, R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12945.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12945.jpgsave_picture_12945.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Transcendence - Nothing Etched in Stone, Part. I (2025) [FLAC|Lossless|WEB-DL|tr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12948.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12948.jpgsave_picture_12948.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Nightingale - Invisible (2004) Reissue, Remastered, 2024, InsideOutMusic [FLAC|L
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12949.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12949.jpgsave_picture_12949.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Circus Of Rock - Hellfire (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12968.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12968.jpgsave_picture_12968.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Queen - Riffs (Remastered 2011) (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock, Pop 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13141.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13141.jpgsave_picture_13141.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Motorhead - The Manticore Tapes (1977) Reissue, Remastered, 2025, Sanctuary Reco
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13244.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13244.jpgsave_picture_13244.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Ploho - Почва (2025) Deluxe Edition [MP3|320 Kbps] <Post Punk, New Wave>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13247.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13247.jpgsave_picture_13247.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Defenders of the Faith - Odes To The Gods (2025) [FLAC|Lossless|WEB-DL|tracks] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13248.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13248.jpgsave_picture_13248.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Jakko Jakszyk - Son Of Glen (2025) [FLAC|Lossless|WEB-DL|tracks] <Progressive Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13258.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13258.jpgsave_picture_13258.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Crystal Viper - The Live Quest (2025) Live [FLAC|Lossless|WEB-DL|tracks] <Heavy 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13261.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13261.jpgsave_picture_13261.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Late Night Savior - Rebirth (2025) [FLAC|Lossless|WEB-DL|tracks] <Alternative Me
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13262.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13262.jpgsave_picture_13262.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Bruce Springsteen - Tracks II: The Lost Albums (2025) [MP3|320 Kbps] <Rock, Folk
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13282.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13282.jpgsave_picture_13282.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:BD36A5AC60F664DDE5E7A8A187C176CFBCDCBAA4
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13284.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13284.jpgsave_picture_13284.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Orianthi - Some Kind of Feeling (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop Rock, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13285.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13285.jpgsave_picture_13285.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Sinphonia - The Divine Disharmony (2002) [FLAC|Lossless|image + .cue] <Prog Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13683.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13683.jpgsave_picture_13683.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Queen - Heavy (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock, Progressive-Rock, Glam
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13799.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13799.jpgsave_picture_13799.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Black Sabbath - Greatest Hits Broadcast Collection: Black Sabbath (2025) [MP3|32
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13923.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13923.jpgsave_picture_13923.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ magnet:?xt=urn:btih:B2180B416EC1B631E74CE2F05A4F09C9F09A7FFD
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14216.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14216.jpgsave_picture_14216.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Volbeat - God of Angels Trust (2025) [FLAC|Lossless|image + .cue] <Heavy Metal, 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14311.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14311.jpgsave_picture_14311.jpg" />
 </div>
 
 

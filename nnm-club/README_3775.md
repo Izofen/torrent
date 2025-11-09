@@ -6,7 +6,7 @@
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118530.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118530.jpgsave_picture_118530.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:8AA2291348BFC620A51EDE242D6902E2E71AE3B6
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118531.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118531.jpgsave_picture_118531.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:2A7B886502CD91044884C4E020C8EC048BE9CB2C
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118532.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118532.jpgsave_picture_118532.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:E2E483C390F822C34577AE4F61B7EA6D60C3E36D
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118533.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118533.jpgsave_picture_118533.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:8D1F9B1509515BE3CD6DF804F84380DEC2962A20
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118534.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118534.jpgsave_picture_118534.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:2BDF0070CF8752BD8341DAA260E48B4CED8E566C
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118535.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118535.jpgsave_picture_118535.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:DF6A4C194CDBDD8FA56590661023854896B07F2E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118536.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118536.jpgsave_picture_118536.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:642CC2FEFFD2FD399BCC43B16C1C34F9AD7352B2
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118537.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118537.jpgsave_picture_118537.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ Doppler for Mac 2.1.18 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118538.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118538.jpgsave_picture_118538.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ File List Export for Mac 2.9.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118539.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118539.jpgsave_picture_118539.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:EB4F5579652F9B91BA9F4B03E42AA9FE55855A66
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118540.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118540.jpgsave_picture_118540.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Text Workflow 1.8.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118541.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118541.jpgsave_picture_118541.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Athentech Perfectly Clear WorkBench for Mac 4.6.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118542.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118542.jpgsave_picture_118542.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Multitouch 1.27.25 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118543.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118543.jpgsave_picture_118543.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ FSNotes 6.6.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118544.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118544.jpgsave_picture_118544.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ VA - Cooperation Trance Selection: Year of the Rabbit (2024) [MP3|320 Kbps] <Tra
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118545.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118545.jpgsave_picture_118545.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Six Foot Six - The End of All (2020) [FLAC|Lossless|WEB-DL|tracks] <Melodic Heav
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118546.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118546.jpgsave_picture_118546.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Note-C 2.5.2 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118547.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118547.jpgsave_picture_118547.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ JetBrains RubyMine for Mac 2023.3.3 Intel/ARM [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118548.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118548.jpgsave_picture_118548.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ LungBurner - Embers (2024) [FLAC|Lossless|WEB-DL|tracks] <Psych, Stoner, Doom>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118549.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118549.jpgsave_picture_118549.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Innerload - Mater Tenebrarum (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Thrash
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118550.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118550.jpgsave_picture_118550.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Weedow - Weedow (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Psych, Stoner, Doom>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118551.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118551.jpgsave_picture_118551.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Multitouch 1.27.26 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118552.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118552.jpgsave_picture_118552.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Syncovery for Mac 10.11.3 Intel [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118553.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118553.jpgsave_picture_118553.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Roland Hanna - Perugia (1974) 1987, Freedom [FLAC|Lossless|tracks + .cue] <Post-
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118554.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118554.jpgsave_picture_118554.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ Dato 5.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118555.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118555.jpgsave_picture_118555.jpg" />
 </div>
 
 

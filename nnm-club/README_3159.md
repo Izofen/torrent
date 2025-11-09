@@ -6,7 +6,7 @@
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101814.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101814.jpgsave_picture_101814.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:7ACC0C6612182FC0D50F8B2DC4267E329BF18E2D
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101816.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101816.jpgsave_picture_101816.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Moonspell - Alpha Noir / Omega White (2012) Limited Edition [MP3|320 кб/с]<Da
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101817.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101817.jpgsave_picture_101817.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:0AE8CFFAE2E60C104913C11F806ED314063A5EA8
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101824.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101824.jpgsave_picture_101824.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:C33671E7DEF2FBD78BBE1B9C9970FD9691F865D1
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101827.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101827.jpgsave_picture_101827.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:3F79C64F811DB938BED0F116BFD769291CB88441
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101834.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101834.jpgsave_picture_101834.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ VA - Песни нашей победы (2010) [MP3|320 kbps]<Военная п�
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101835.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101835.jpgsave_picture_101835.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ magnet:?xt=urn:btih:36BDC8237F31A6A287FC6E8C398DE186B42FCFEB
 >>Космос
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101840.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101840.jpgsave_picture_101840.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Barbra Streisand - A Woman in Love - The Greatest Hits (2012) [MP3|320 кб/с]<
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101841.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101841.jpgsave_picture_101841.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ magnet:?xt=urn:btih:E9504363E507DCD57B18A5FD5EA2564ABD18ED8E
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101842.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101842.jpgsave_picture_101842.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ magnet:?xt=urn:btih:7DFE6A15A95005DDA8AF4676FD0F0656DB33E0C3
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101843.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101843.jpgsave_picture_101843.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:5955706EC4291591F2EFF072DC7064BCDD57F54F
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101845.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101845.jpgsave_picture_101845.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:6203646B61266BB5722D4A486A4131EAA1587379
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101852.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101852.jpgsave_picture_101852.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ The Surprising Adventures of Munchausen / Невероятные Приключ�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101860.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101860.jpgsave_picture_101860.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Dungeons of Dredmor {1.0.10} (P) [En] 2011 | THETA
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101871.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101871.jpgsave_picture_101871.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ magnet:?xt=urn:btih:BC70D42DBEF062BADC20A3088DBF4FA11E9242B2
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101878.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101878.jpgsave_picture_101878.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ magnet:?xt=urn:btih:D79DE0B47B96A1BE17EC519AD9EF936868F5993F
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101879.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101879.jpgsave_picture_101879.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ magnet:?xt=urn:btih:3225143D16A2C60F3460922FA8EF327AD39F1455
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101886.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101886.jpgsave_picture_101886.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ magnet:?xt=urn:btih:D85908A086B1F879D724DE9D25E0521E37F3E88A
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101897.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101897.jpgsave_picture_101897.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ magnet:?xt=urn:btih:3674AEDA6AE6CFB230A01E8953C5CDB021826F2A
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101900.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101900.jpgsave_picture_101900.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ Ubuntu Studio 12.04 LTS [i386, amd64] (2xDVD)
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101903.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101903.jpgsave_picture_101903.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ magnet:?xt=urn:btih:52C55C82796BD9F4E8B841D0A93D17C96EBE7855
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101906.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101906.jpgsave_picture_101906.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ magnet:?xt=urn:btih:180CA63F739FE2F61DB8A737F37BE8EB4E9C0F59
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101908.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101908.jpgsave_picture_101908.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ magnet:?xt=urn:btih:C62D0F9CD83FB5BE837011DF3F9BE6F1A499C544
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101910.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101910.jpgsave_picture_101910.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ Risen 2: Dark Waters / Risen 2: Темные воды {1.0.1168} (RePack) [Ru] 2
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101912.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101912.jpgsave_picture_101912.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ magnet:?xt=urn:btih:405B387039A1312DB84AAAF0570501F7A136DA13
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101913.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101913.jpgsave_picture_101913.jpg" />
 </div>
 
 

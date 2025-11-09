@@ -6,7 +6,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116003.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116003.jpgsave_picture_116003.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Emurasoft EmEditor Professional 23.1.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116004.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116004.jpgsave_picture_116004.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Elsa Esnoult - 7 (2024) [FLAC|Lossless|WEB-DL|tracks] <French Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116005.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116005.jpgsave_picture_116005.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:31CA993C10B4610C608014102672033ADA6043F7
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116006.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116006.jpgsave_picture_116006.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:30CCBB1F4549D00B94D6FAA232E531DBD02A7FBD
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116007.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116007.jpgsave_picture_116007.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ magnet:?xt=urn:btih:610822FF3538511DD9665F13412246E00AF38EC7
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116008.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116008.jpgsave_picture_116008.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ magnet:?xt=urn:btih:12EA10A6E5F4F77223FAA6D1E2EA9D9206FA38B7
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116009.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116009.jpgsave_picture_116009.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ Master of Typing 3 - Practice 15.14.3 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116010.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116010.jpgsave_picture_116010.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ magnet:?xt=urn:btih:B984B66F62EABE5970A396A921EF1390E6C5F966
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116011.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116011.jpgsave_picture_116011.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ VA - Ancient Egypt Seasons - Peret (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116012.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116012.jpgsave_picture_116012.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ VA - Trance Winter 2024 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116013.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116013.jpgsave_picture_116013.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ magnet:?xt=urn:btih:4CCFB166B4F3EC93FDC3DB670535E55B40B6DC73
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116014.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116014.jpgsave_picture_116014.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ VA - Instrumental Jazz Lounge (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116015.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116015.jpgsave_picture_116015.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ Al Corley - Square Rooms (1984) [FLAC|Lossless|WEB-DL|tracks] <Pop, Synth-pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116016.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116016.jpgsave_picture_116016.jpg" />
 </div>
 
 
@@ -364,7 +364,7 @@ Music Collection 3.6.4.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116017.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116017.jpgsave_picture_116017.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ Rod Stewart with Jools Holland - Swing Fever (2024) [FLAC|Lossless|WEB-DL|tracks
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116018.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116018.jpgsave_picture_116018.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ magnet:?xt=urn:btih:346B7E2318A4B807F6ECD46A4AC2F5688374CC82
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116019.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116019.jpgsave_picture_116019.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ magnet:?xt=urn:btih:D623420921D78DC743AE6EEC3B9C9DDC5BEA43CB
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116020.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116020.jpgsave_picture_116020.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ VA - 60 minutes. Old School Dance Music vol.23 (mixed by Dj V) (2024) [MP3|320 K
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116021.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116021.jpgsave_picture_116021.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Rod Stewart with Jools Holland - Swing Fever (2024) [FLAC 24/96|Lossless|WEB-DL|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116022.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116022.jpgsave_picture_116022.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:98495EB0AE47098C1416AA5F14B2C0D13F175E58
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116023.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116023.jpgsave_picture_116023.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ magnet:?xt=urn:btih:AF8C571CE6A10E56C89E87C7BE7232A097010C4C
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116024.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116024.jpgsave_picture_116024.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Moon+ Reader Pro v9.1 (build 901001) Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116025.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116025.jpgsave_picture_116025.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ magnet:?xt=urn:btih:E5F27A828D4D84B31A3B2317EE5EE8D6F4FDA6B5
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116026.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116026.jpgsave_picture_116026.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Brave Browser 1.63.161 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116027.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116027.jpgsave_picture_116027.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ magnet:?xt=urn:btih:6F01CC4194CB4B1CD5987B630949B9741DDA0449
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116028.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116028.jpgsave_picture_116028.jpg" />
 </div>
 
 

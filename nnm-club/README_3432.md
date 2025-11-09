@@ -6,7 +6,7 @@ Pixolor - Живая Пипетка / Pixolor - Live Color Picker 1.4.19 Mod by 
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109593.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109593.jpgsave_picture_109593.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ GeoGebra 6.0.841.0 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109594.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109594.jpgsave_picture_109594.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Bazaart: Photo Editor & Graphic Design v2.5.3 Mod by youarefinished [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109595.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109595.jpgsave_picture_109595.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:18F5642AA5890AB914C1DDB656B85E2041474B62
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109596.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109596.jpgsave_picture_109596.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:FCE0C511C2E07F27B2C45A66DF37C9450CA7D730
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109597.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109597.jpgsave_picture_109597.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ VA - Instrumental Jazz Music (Smooth Saxophone) (2024) [FLAC 24/44.1|Lossless|WE
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109598.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109598.jpgsave_picture_109598.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ Google Chrome 124.0.6367.208 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109599.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109599.jpgsave_picture_109599.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:723BF1986CEB834877327A57D8FD0B61D3D0B06B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109600.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109600.jpgsave_picture_109600.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ Mark Ashley - Instrumentals Vol. 3 (2024) [MP3|320 Kbps] <Instrumental Pop>
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109601.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109601.jpgsave_picture_109601.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ Radio Vampire - Transmissions From Hell (2024) [FLAC|Lossless|WEB-DL|tracks] <EB
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109602.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109602.jpgsave_picture_109602.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ magnet:?xt=urn:btih:7859DD260CF08474C66DAA789453CE592014AD67
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109603.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109603.jpgsave_picture_109603.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ Mark Ashley - Instrumentals Vol. 2 (2024) [MP3|320 Kbps] <Instrumental Pop>
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109604.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109604.jpgsave_picture_109604.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ magnet:?xt=urn:btih:9942F2D9C91A584A05F6BCDF6B2C378D82C02815
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109605.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109605.jpgsave_picture_109605.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ VA - The Best of Italo Disco, Vol. 2 (2010) [FLAC|Lossless|WEB-DL|tracks] <Disco
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109606.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109606.jpgsave_picture_109606.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ VA - The Best of Italo Disco, Vol. 4 (2011) [FLAC|Lossless|WEB-DL|tracks] <Disco
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109607.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109607.jpgsave_picture_109607.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ magnet:?xt=urn:btih:1AC4F0B8A6417CFA091AFCC3141DD388D022A733
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109608.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109608.jpgsave_picture_109608.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ magnet:?xt=urn:btih:539124E9F39542FA14287DA4D75104CB73C38B5B
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109609.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109609.jpgsave_picture_109609.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ magnet:?xt=urn:btih:C5138CB1484EEC25CCDB3CE98398FF3E2B9418A2
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109610.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109610.jpgsave_picture_109610.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ FBackup 9.9.895 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109611.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109611.jpgsave_picture_109611.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Fishing Knots Pro / Рыбацкие узлы Pro v8.6.38 Paid [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109612.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109612.jpgsave_picture_109612.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Extra Terra - Accelerate or Die (2024) [FLAC|Lossless|WEB-DL|tracks] <Synthwave,
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109613.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109613.jpgsave_picture_109613.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ magnet:?xt=urn:btih:80355C9300E928EDD522E38792CE8F43548A9590
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109614.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109614.jpgsave_picture_109614.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Alex Voysey - Blues In Isolation (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Roc
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109615.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109615.jpgsave_picture_109615.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Al Lerman - Country-Fried Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109616.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109616.jpgsave_picture_109616.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ VA - Delightful Cozy Smooth Inviting Jazz Playlist (2024) [FLAC|Lossless|WEB-DL|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109617.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109617.jpgsave_picture_109617.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Kingston Wall - III - Tri - Logy (1994) Mix, 2024, Warner Music Finland [FLAC|Lo
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109618.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109618.jpgsave_picture_109618.jpg" />
 </div>
 
 

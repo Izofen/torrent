@@ -6,7 +6,7 @@ Sarah Vaughan - In The Land Of Hi-Fi (1955) 2001, Universal [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39355.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39355.jpgsave_picture_39355.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Sarah Vaughan - The Singles Sessions (1990) Capitol [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39356.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39356.jpgsave_picture_39356.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ PhotoRoom v5.5.2 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39357.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39357.jpgsave_picture_39357.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:283C98A8472D76E2DB44F535C49EC0AA49568BB6
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39358.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39358.jpgsave_picture_39358.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Sarah Vaughan - The Many Moods Of Sarah Vaughan (1961) 1998, Ember Records [FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39359.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39359.jpgsave_picture_39359.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ magnet:?xt=urn:btih:4611E7048B170DFB2FC0EBB5AD6DA58E858A27BD
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39360.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39360.jpgsave_picture_39360.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ Mad Alice Productions - Latin Electro Swing (2024) [FLAC|Lossless|WEB-DL|tracks]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39361.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39361.jpgsave_picture_39361.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ magnet:?xt=urn:btih:1171CD4F8E784F34FAEBB90BE177D6C0B661549B
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39362.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39362.jpgsave_picture_39362.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ Hey Alan! - Electro Swing Sugar (2024) [FLAC|Lossless|WEB-DL|tracks] <Electro Sw
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39363.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39363.jpgsave_picture_39363.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ Ani ni Tsukeru Kusuri wa Nai! 5 | В случае с братом медицин
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39364.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39364.jpgsave_picture_39364.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ Kiko Loureiro - Theory of Mind (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39365.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39365.jpgsave_picture_39365.jpg" />
 </div>
 
 
@@ -290,7 +290,7 @@ magnet:?xt=urn:btih:A060EA721B326331B4C6C08D514F74BA2A068542
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39366.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39366.jpgsave_picture_39366.jpg" />
 </div>
 
 
@@ -314,7 +314,7 @@ Behemoth - XXX Years Ov Blasphemy (2024) Live [FLAC 24/44.1|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39367.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39367.jpgsave_picture_39367.jpg" />
 </div>
 
 
@@ -341,7 +341,7 @@ Behemoth - XXX Years Ov Blasphemy (2024) Live [FLAC|Lossless|WEB-DL|tracks] <Bla
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39368.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39368.jpgsave_picture_39368.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ Joseph Capalbo, Vincent Nicotina, Kristin Chambers - Electro Swing 2 (2024) [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39369.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39369.jpgsave_picture_39369.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ magnet:?xt=urn:btih:1F0AE986D0799A97763276CECAA41C8ABE2E1959
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39370.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39370.jpgsave_picture_39370.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ magnet:?xt=urn:btih:3308660FFF3C8ED7AFDB96148B68798D1E849771
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39371.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39371.jpgsave_picture_39371.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ Balduin - Electro Swing Instrumentals 2 (2024) [FLAC|Lossless|WEB-DL|tracks] <El
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39372.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39372.jpgsave_picture_39372.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ magnet:?xt=urn:btih:C1DDDA53FFB75CB504650627025EC06901B9E0F3
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39373.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39373.jpgsave_picture_39373.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Vivaldi 7.0.3495.6 include standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39374.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39374.jpgsave_picture_39374.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ magnet:?xt=urn:btih:8986B1B518DE0421253D78857B5690A0E584B302
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39375.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39375.jpgsave_picture_39375.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ magnet:?xt=urn:btih:097E7CB892450F4252794C982EF3883A8605D11D
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39376.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39376.jpgsave_picture_39376.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Magic Eraser / Магический ластик v2.11.1 Mod by vadj [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39377.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39377.jpgsave_picture_39377.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ VA - musical kaleidoscope part 8  Electronic,  Easy listening (2024) [MP3|320 Kb
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39378.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39378.jpgsave_picture_39378.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ Smokie - Диско 80-х (2007) [OGG Vorbis|480 Kbps] <Pop Rock, Rock, Soft Roc
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39379.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39379.jpgsave_picture_39379.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ WizTree Enterprise 4.21 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39380.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39380.jpgsave_picture_39380.jpg" />
 </div>
 
 

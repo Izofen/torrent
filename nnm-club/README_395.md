@@ -6,7 +6,7 @@
 >>Отечественные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10442.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10442.jpgsave_picture_10442.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:F062D57A558EF843DFE212393807F5E846454F9F
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10444.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10444.jpgsave_picture_10444.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:C0F928669BBC041500FB8EEAD9963512E81B9F9B
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10445.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10445.jpgsave_picture_10445.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:351F27DC5079D5AF717FF5C71DFE8DF24DC02E9D
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10446.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10446.jpgsave_picture_10446.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:351F27DC5079D5AF717FF5C71DFE8DF24DC02E9D
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10448.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10448.jpgsave_picture_10448.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ WUCHANG: Fallen Feathers (2025) [Ru/Multi] (178067/dlc) Repack FitGirl [Deluxe E
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10449.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10449.jpgsave_picture_10449.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:750052CA41368826EF079C8F995F72DCBB42638C
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10450.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10450.jpgsave_picture_10450.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:2F4AA4D23F2523960D322BF3C7338FF514A31A85
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10451.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10451.jpgsave_picture_10451.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:647B5AB6C51166BF2CA9B98771BA1562256591E7
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10452.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10452.jpgsave_picture_10452.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ magnet:?xt=urn:btih:3771F15E6AF644B92FC2393DD4E2974A266CCAA0
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10453.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10453.jpgsave_picture_10453.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ magnet:?xt=urn:btih:D67AB19601EF44A3135746FD7838303BB997756F
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10454.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10454.jpgsave_picture_10454.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Killing Floor 3 (2025) [Ru/Multi] (build 19273238/dlc) Repack seleZen [Elite Nig
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10455.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10455.jpgsave_picture_10455.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ WUCHANG: Fallen Feathers (2025) [Ru/Multi] (178067) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10456.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10456.jpgsave_picture_10456.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Giorgio Moroder - Extended Versions 2025 (2025) [FLAC 24/44.1|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10457.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10457.jpgsave_picture_10457.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ magnet:?xt=urn:btih:0F4BA39D966BA4F254AA173AD58F0E3D7DC1092E
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10458.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10458.jpgsave_picture_10458.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ magnet:?xt=urn:btih:A7B2DCF88ED42E91AD1610DF0082A48A6A89D926
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10459.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10459.jpgsave_picture_10459.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ GPU-Z 2.67.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10460.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10460.jpgsave_picture_10460.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ magnet:?xt=urn:btih:7D9BF728BC8B3B5C62E94C0ECECC482301F5C598
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10461.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10461.jpgsave_picture_10461.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:E1CEE731025FBA35040B4D9B563F1BAC59C2DB3E
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10462.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10462.jpgsave_picture_10462.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Ozzy Osbourne - Mama I'm Coming Home (1991) (EP) [WavPack|32/192|image + .cue|Vi
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10463.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10463.jpgsave_picture_10463.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ Strava: бег, велоезда, хайкинг v421.4 Mod by PieMods [Ru/Multi
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10464.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10464.jpgsave_picture_10464.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ magnet:?xt=urn:btih:668191079E745141EE0DF38237B8D01BB7FAADCA
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10465.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10465.jpgsave_picture_10465.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ SOS (1973) DVDRip
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10466.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10466.jpgsave_picture_10466.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ magnet:?xt=urn:btih:175CF8A1B186EFCA1B81F758F482E5523A70FC36
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10467.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10467.jpgsave_picture_10467.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ magnet:?xt=urn:btih:950414E66A6A79534BD1EE5EA59566302D10A563
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10468.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10468.jpgsave_picture_10468.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ magnet:?xt=urn:btih:786F44742054E8F62EAD21807B52FC6D3FB8D573
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10469.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10469.jpgsave_picture_10469.jpg" />
 </div>
 
 

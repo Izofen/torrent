@@ -6,7 +6,7 @@ The Washing Machine Cie - Ladies and Gentlemen (2024) [FLAC|Lossless|WEB-DL|trac
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100682.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100682.jpgsave_picture_100682.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Time Fjord - And My Hand Holds The Jug (2024) [FLAC|Lossless|WEB-DL|tracks] <Blu
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100683.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100683.jpgsave_picture_100683.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - Reason II Rise Best Of 2024 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100684.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100684.jpgsave_picture_100684.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Vintage Culture - Live @ Ushuaïa Closing Pre-Party: The Last dANTS, Cafe Mambo 
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100685.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100685.jpgsave_picture_100685.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ VA - Coldharbour Reflections 2024 (2024) [MP3|320 Kbps] <Trance, Vocal Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100686.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100686.jpgsave_picture_100686.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Southernman Robbie - Back to the Roots (2024) [FLAC|Lossless|WEB-DL|tracks] <Blu
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100687.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100687.jpgsave_picture_100687.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ VA - Reason II Rise: Realms Best Of 2024 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100688.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100688.jpgsave_picture_100688.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ The Creaking Floorboards - Treading Lightly (2024) [FLAC|Lossless|WEB-DL|tracks]
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100689.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100689.jpgsave_picture_100689.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Mike Gannon - Every day I have the Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <B
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100690.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100690.jpgsave_picture_100690.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:6AC3AEB45BE195A26CE3E9941026655E4F214BBC
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100691.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100691.jpgsave_picture_100691.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Scraptones - Truth and Bones (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100692.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100692.jpgsave_picture_100692.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Mick Clarke - Singles (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100693.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100693.jpgsave_picture_100693.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ The Hornets - Giorgio's Crawdaddy (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100694.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100694.jpgsave_picture_100694.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ magnet:?xt=urn:btih:54D24A7D72DF43584C2C343C57B4C0CB76F70077
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100695.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100695.jpgsave_picture_100695.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ magnet:?xt=urn:btih:52F7E6320F2E20319CCEE74B2722FEB748CD44CA
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100696.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100696.jpgsave_picture_100696.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ magnet:?xt=urn:btih:3859F8C57130F1780D434C814173C39C164B3D5D
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100697.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100697.jpgsave_picture_100697.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ VA - Armin van Buuren - A State Of Trance 1205 (Yearmix 2024) (2024) [MP3|320 Kb
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100698.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100698.jpgsave_picture_100698.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ magnet:?xt=urn:btih:B9F6832E889DA61620036E613C2772BEFFE1FE8C
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100699.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100699.jpgsave_picture_100699.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ magnet:?xt=urn:btih:CF023D1078857AAE7876B4820D600E5995858A35
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100700.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100700.jpgsave_picture_100700.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ magnet:?xt=urn:btih:8278CE16BAB0CED80412B9FB92D5559BE362EC5B
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100701.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100701.jpgsave_picture_100701.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Adrian von Ziegler - Of the Old World (2024) [FLAC|Lossless|WEB-DL|tracks] <Celt
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100702.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100702.jpgsave_picture_100702.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ magnet:?xt=urn:btih:FE56AAFFBA20E239610FB8447A7CFEA1701E40A6
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100703.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100703.jpgsave_picture_100703.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ magnet:?xt=urn:btih:C5F1153A17C88785B083112B087F8071903789F6
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100704.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100704.jpgsave_picture_100704.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Empty Mirror - 2 Albums (2022-2024) [FLAC|Lossless|WEB-DL|tracks] <Sympho Doom, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100705.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100705.jpgsave_picture_100705.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ VA - Interplay Highlights 2024 (2024) [MP3|320 Kbps] <Trance, Progressive, Elect
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100706.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100706.jpgsave_picture_100706.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ magnet:?xt=urn:btih:CB9F9773EA9DA878B64171D0777ED919F4D6F764
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100707.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100707.jpgsave_picture_100707.jpg" />
 </div>
 
 

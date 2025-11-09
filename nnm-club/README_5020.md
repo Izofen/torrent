@@ -6,7 +6,7 @@ Cyberfox 43.0.2 for AMD + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156907.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156907.jpgsave_picture_156907.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:DFDE445150D27E07B8DBD0E7B463C02A79BB12C7
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156908.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156908.jpgsave_picture_156908.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:8E27309B34AD91BBAEDA1026354D4C15AAF7EF81
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156909.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156909.jpgsave_picture_156909.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:BB2229F0A0F740260007278766B56CFAEC144EDA
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156910.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156910.jpgsave_picture_156910.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:FBD9D63BB844AB63DD09505160A4C72C26EA5195
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156911.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156911.jpgsave_picture_156911.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Boom Library - Cinematic Strikes Designed [WAV]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156914.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156914.jpgsave_picture_156914.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - Мастера блюза 4: Большая машина (1990) [FLAC 2.0 2
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156915.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156915.jpgsave_picture_156915.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:667B6BE0C921CB732F2219A6EBE948D81DA623B5
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156916.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156916.jpgsave_picture_156916.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ Sidify Apple Music Converter 1.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156917.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156917.jpgsave_picture_156917.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ Skillbox, Анна Шепелева, Нина Олейникова  | Анали
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156918.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156918.jpgsave_picture_156918.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ Rautu - Sphere (2017) IMMINENT [FLAC 2.0|44.1/24|tracks|WEB-DL] <Future Garage, 
 >>Dubstep, Future Garage, Bass Music, UK Garage (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156919.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156919.jpgsave_picture_156919.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ magnet:?xt=urn:btih:9F889B05C26BCE365D2E41D820FE92792EE0C780
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156920.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156920.jpgsave_picture_156920.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ magnet:?xt=urn:btih:05CAE297B6A409E07AF28DC4B44B8C57849D3E03
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156921.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156921.jpgsave_picture_156921.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ magnet:?xt=urn:btih:9FA88A1564535753B479BFBF20269CF8A059A108
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156923.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156923.jpgsave_picture_156923.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Royal Hunt - 15 Albums, 3 Compilations, 5 Lives, 6 Singles & EP (1992-2020) 36CD
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156924.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156924.jpgsave_picture_156924.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ magnet:?xt=urn:btih:9CDAA78BD7DBC94416718E88A4164CFABC7382B1
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156926.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156926.jpgsave_picture_156926.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ Later - Create Quick Reminders With Presets 1.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156928.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156928.jpgsave_picture_156928.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ magnet:?xt=urn:btih:CC70CD2205454F494443641DCF7CCD8810B69D0D
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156929.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156929.jpgsave_picture_156929.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ Sonic Academy - ANA 2 Slate Bundle 2.0.94 VSTi, AAX (x86/x64) RePack by VR [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156931.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156931.jpgsave_picture_156931.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Learn Squared, Steven Cormann | 3D Matte Painting (2019) WEB-DLRip [RU, EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156932.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156932.jpgsave_picture_156932.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ magnet:?xt=urn:btih:C8F1AE5A8C1131CC31E9F0D598937B6D6F1BCCE8
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156933.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156933.jpgsave_picture_156933.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ magnet:?xt=urn:btih:CC473AEFF7654E8D62CE6A14337169AED8A7CBF7
 >>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156934.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156934.jpgsave_picture_156934.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ magnet:?xt=urn:btih:25439FED8AE1157DAA0D83107AC4C2902B5F537B
 >>Мобильное Видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156935.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156935.jpgsave_picture_156935.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ The Game - Jesus Piece (2012) (Deluxe Edition) [MP3|320 кб/с]<Rap, Hip-Hop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156937.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156937.jpgsave_picture_156937.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ magnet:?xt=urn:btih:BDAF3B24F5496B2AA28814EE5CADC48C15DB4E26
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156938.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156938.jpgsave_picture_156938.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Psycho Attack Over Europe! (3CD set) (1991-1994) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156942.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156942.jpgsave_picture_156942.jpg" />
 </div>
 
 

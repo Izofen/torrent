@@ -6,7 +6,7 @@ Gary Moore - Wild Frontier (1987) Japanese Edition, Reissue, 2023, Universal [FL
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239847.jpgsave_picture_239847.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:029B9485A5AA1BE762190C7781B2D2DF247C0D43
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239848.jpgsave_picture_239848.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Röyksopp (Royksopp) - Profound Mysteries II (2022) [FLAC|Lossless|tracks + .cue
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239849.jpgsave_picture_239849.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:3AFA076A5B53FB0B703D6A2B484E07DEF0B1F3F6
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239850.jpgsave_picture_239850.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Terence Blanchard - Terence Blanchard (1991) Columbia [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239851.jpgsave_picture_239851.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ magnet:?xt=urn:btih:068729168D780F391DE4706DC5B53257D52DA9FD
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239852.jpgsave_picture_239852.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ Max Roach - Deeds, Not Words (1958) 1987, Original Jazz Classics [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239853.jpgsave_picture_239853.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ magnet:?xt=urn:btih:2B1659B165DE88CACB900E2896229964103A00E8
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239854.jpgsave_picture_239854.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ magnet:?xt=urn:btih:E9AF09D94A0B967364089D33F63FFB3A6802FC93
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239855.jpgsave_picture_239855.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ magnet:?xt=urn:btih:C7C62EBFD7484F4EB849B0A08B35D179DA633CEE
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239856.jpgsave_picture_239856.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ Bai Bang - Sha Na Na Na (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Glam Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239857.jpgsave_picture_239857.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ Dorothy - Gifts From The Holy Ghost (2022) [FLAC|Lossless|tracks + .cue] <Classi
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239858.jpgsave_picture_239858.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ magnet:?xt=urn:btih:DCA272841C9628E624B7198642ECD5876D910C6A
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239859.jpgsave_picture_239859.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ Resistance - Skulls Of My Enemy (2022) [MP3|320 Kbps] <Power, Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239860.jpgsave_picture_239860.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ Topaz Video AI 3.2.1 (x64) RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239861.jpgsave_picture_239861.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ Imperium - Never Surrender (2023) [FLAC|Lossless|image + .cue] <Melodic Hard Roc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239862.jpgsave_picture_239862.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ magnet:?xt=urn:btih:69805CC727CF34981E96D282E07593366E20A0A4
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239863.jpgsave_picture_239863.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ magnet:?xt=urn:btih:3A495E0E1760C2BDF866894BA1B4C06A4055E9B9
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239864.jpgsave_picture_239864.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Ne Obliviscaris - Collection (2012 - 2017) 5 CD [FLAC|Lossless|tracks + .cue] <P
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239865.jpgsave_picture_239865.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ iCompta 6 v6.0.46 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239866.jpgsave_picture_239866.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ Vandhali - Fever Dream (2022) [MP3|320 Kbps] <Heavy Rock, Psych, Stoner>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239867.jpgsave_picture_239867.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Jason Marsalis - Live (2017) 2020, Basin Street Records [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239868.jpgsave_picture_239868.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ magnet:?xt=urn:btih:51394BA44D2FAE50ADE249BD4118A825ACA241E5
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239869.jpgsave_picture_239869.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ YT Downloader 7.25.5 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239870.jpgsave_picture_239870.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ RTG. Подземный мир хребта Азиш-Тау (2013) HDTV [H.264/1
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239871.jpgsave_picture_239871.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ VA - Rock Classics (2022) [MP3|320 Kbps] <Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239872.jpgsave_picture_239872.jpg" />
 </div>
 
 

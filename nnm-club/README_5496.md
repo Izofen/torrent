@@ -6,7 +6,7 @@ Dari Veter (Дари Ветер) - Времена Года Сего (2022) [FLAC
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169849.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169849.jpgsave_picture_169849.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:E52197C819A9B6425EF2A13017AA5989A162B96F
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169850.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169850.jpgsave_picture_169850.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:99E457A0EDF35BC29C4AE0AD601B88177EC8DEEE
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169851.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169851.jpgsave_picture_169851.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:4B1409A8EE8DE863CC51733E135B149910035432
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169852.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169852.jpgsave_picture_169852.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ magnet:?xt=urn:btih:530DC5AC8A98A46182AF880EDE7BAB2E23521190
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169853.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169853.jpgsave_picture_169853.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ VA - Purified Chronicles 2022 (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hous
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169854.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169854.jpgsave_picture_169854.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ magnet:?xt=urn:btih:AA57C91B11FA55BC2F54E3905776BA25680B896C
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169855.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169855.jpgsave_picture_169855.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ magnet:?xt=urn:btih:673E7B49722F1F17D360589B89F0973D0EE8CFCA
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169856.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169856.jpgsave_picture_169856.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ R-Studio Network  9.3 Build 191251 (x64) RePack (& Portable) by TryRooM [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169857.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169857.jpgsave_picture_169857.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Disk Space Analyzer Pro 4.1.7 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169858.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169858.jpgsave_picture_169858.jpg" />
 </div>
 
 
@@ -265,7 +265,7 @@ Rome - Hegemonikon - A Journey to the End of Light (2022) [FLAC|Lossless|WEB-DL|
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169859.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169859.jpgsave_picture_169859.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Street Outlaws 2: Winner Takes All (2021) [En] (7729942) License CODEX
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169860.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169860.jpgsave_picture_169860.jpg" />
 </div>
 
 
@@ -316,7 +316,7 @@ magnet:?xt=urn:btih:303AEAB5B39249E16DA612FB54E88B361C82C252
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169861.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169861.jpgsave_picture_169861.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ magnet:?xt=urn:btih:470BFC74DCF572519FE552B390498363E97D8DC2
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169862.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169862.jpgsave_picture_169862.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ magnet:?xt=urn:btih:36A0955C7513E50A2E9B70CA924BA29E1FBC83D4
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169863.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169863.jpgsave_picture_169863.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ magnet:?xt=urn:btih:CA7316CFEA18A6AEE35496803ED322DCD8FFA77E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169864.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169864.jpgsave_picture_169864.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ magnet:?xt=urn:btih:3F45FBD7E1CAB45A504897C208618025AB2067AD
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169865.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169865.jpgsave_picture_169865.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ WinCatalog 2020.2.4.1210 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169867.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169867.jpgsave_picture_169867.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Journey - Live in Concert at Lollapalooza (2022) [FLAC|Lossless|WEB-DL|tracks] <
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169868.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169868.jpgsave_picture_169868.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ magnet:?xt=urn:btih:84236113C072A1B19A2F0E07C1BCA9D7949ABAB3
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169869.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169869.jpgsave_picture_169869.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:89F2590F05C5C9C4CA10A6EA4DFEBA1C34BEEBD1
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169870.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169870.jpgsave_picture_169870.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ magnet:?xt=urn:btih:A7C75B7A0EB782264BD2C0D14A7D4F92E007C5C6
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169871.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169871.jpgsave_picture_169871.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Rob Moratti - Epical (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock, AOR>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169872.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169872.jpgsave_picture_169872.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Auslogics File Recovery 11.0.0.5 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169873.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169873.jpgsave_picture_169873.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ magnet:?xt=urn:btih:467A6E4E2B5E0F4F8664829E545699E83BCBA83B
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169874.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169874.jpgsave_picture_169874.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ The Last Bear Ender - The Second Year Ender (2022) [FLAC|Lossless|WEB-DL|tracks]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169875.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169875.jpgsave_picture_169875.jpg" />
 </div>
 
 

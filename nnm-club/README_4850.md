@@ -6,7 +6,7 @@
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151739.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151739.jpgsave_picture_151739.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:364ED7AE36AFAE52717D9134FB50C987006D4700
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151740.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151740.jpgsave_picture_151740.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Phil Woods Septet - Pairing Off (1956) Remaster, 2013, Universal[FLAC|tracks+.cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151741.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151741.jpgsave_picture_151741.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ VA - Workout Body Fitness 2018 (2018) [MP3|320 Kbps] <Dance>
 >>Eurodance, Euro-House, Technopop
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151743.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151743.jpgsave_picture_151743.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:7DD20328D84C6416767195EC6C049F27D92C6690
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151744.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151744.jpgsave_picture_151744.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:21FE2AF237AD8EF7FB95B4A68B6034B07CAE98A3
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151745.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151745.jpgsave_picture_151745.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ WinToHDD 5.9 Technician RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151747.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151747.jpgsave_picture_151747.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - Taj Mah Lounge, Ambient Grooves, Vol. 2 (2021) [AAC|~335 Kbps] <Lounge, Chi
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151748.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151748.jpgsave_picture_151748.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:436B2DCDA23A287632D7782A9C15C885DB4AC376
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151749.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151749.jpgsave_picture_151749.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ The Australian Jazz Quintet - In Free Style (1958) Remaster, 2014, Solid Records
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151751.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151751.jpgsave_picture_151751.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ magnet:?xt=urn:btih:1B0969400B2499A7369DC391948B51E8FEAA9955
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151752.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151752.jpgsave_picture_151752.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ magnet:?xt=urn:btih:632838CB0D6B9A712468B9F9BAB0E210FCABC617
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151754.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151754.jpgsave_picture_151754.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ Prince of Persia (2008) [En] (License GOG) [macOS WineSkin]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151755.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151755.jpgsave_picture_151755.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:961B5BC2020D931230F6D31AC967958C438EF98F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151756.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151756.jpgsave_picture_151756.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ magnet:?xt=urn:btih:4E1DE6E5E95309F59D0B3163482BD3CDFF6BCC29
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151757.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151757.jpgsave_picture_151757.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ magnet:?xt=urn:btih:C3F74A722DBCC64D7253DB9AFCDB0F269A6FE77A
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151758.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151758.jpgsave_picture_151758.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ VA - White Clouds Vol. 5 (Mixed by Manuel Rocca) (2015) [MP3|320 кб/с] <Tranc
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151759.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151759.jpgsave_picture_151759.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ magnet:?xt=urn:btih:BE97C96A16A7F99A29A84CF5D605A4A272A4F7F6
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151760.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151760.jpgsave_picture_151760.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Uma Mohan - Sounds of Harmony (2005) [FLAC|Lossless|tracks + .cue] <Mantras, Ved
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151762.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151762.jpgsave_picture_151762.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Seishun Buta Yarou wa Bunny Girl Senpai no Yume o Minai | Негодник, ко
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151763.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151763.jpgsave_picture_151763.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ AirFoil+Airfoil Satellite 5.10.0 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151764.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151764.jpgsave_picture_151764.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ magnet:?xt=urn:btih:AF66FD774366EA718FA63B4AAFB95BF7E2B4BAFC
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151766.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151766.jpgsave_picture_151766.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ magnet:?xt=urn:btih:524210D5C5B4BDF4C18B75964CD42DE361B96F42
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151767.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151767.jpgsave_picture_151767.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ magnet:?xt=urn:btih:524210D5C5B4BDF4C18B75964CD42DE361B96F42
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151768.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151768.jpgsave_picture_151768.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Ceremonial Castings - Salem 1692 (2020) MMXX [FLAC|Lossless|image + .cue] <Symph
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151769.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151769.jpgsave_picture_151769.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ Coral Island (2023) [Multi] (1.0/dlc) Scene Rune
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151770.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151770.jpgsave_picture_151770.jpg" />
 </div>
 
 

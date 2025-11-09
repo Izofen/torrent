@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121074.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121074.jpgsave_picture_121074.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:6D3D20B33F41DCA49A614636F934D360A2C059AF
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121075.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121075.jpgsave_picture_121075.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:809820D4F4BF899D1EB829278018B697BB47825F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121076.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121076.jpgsave_picture_121076.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:86E28F605C889A2FCD78FAB687C7135A3DCF0FD1
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121077.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121077.jpgsave_picture_121077.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:93F34BE9C36A7829702D1B3E23F0B2BD8A626000
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121078.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121078.jpgsave_picture_121078.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:AEF7738EFEF00C73B92E80831290192D380C2059
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121079.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121079.jpgsave_picture_121079.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:F957170374E41837D83118FA1D8AE66E2296257A
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121080.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121080.jpgsave_picture_121080.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:1B3FDC10D7EB6621378344EB34DF2C9B477C42C0
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121081.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121081.jpgsave_picture_121081.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:8455184B8E909DAC90850058D1641D9A1916392A
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121082.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121082.jpgsave_picture_121082.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:90592C022B82BED86184152CB1A8984ECDA8A1D1
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121083.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121083.jpgsave_picture_121083.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ doubleTake 2.6.12 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121084.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121084.jpgsave_picture_121084.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:C930A17A3A5130B68911B72FD68BFF125FEBBEEA
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121085.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121085.jpgsave_picture_121085.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Cyrus Chestnut - My Father's Hands (2022) HighNote Records [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121086.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121086.jpgsave_picture_121086.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Kenny Hughes - Born & Raised (2024) [FLAC|Lossless|WEB-DL|tracks] <Electric Blue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121087.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121087.jpgsave_picture_121087.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ magnet:?xt=urn:btih:4738ACDA4DA67CFA5EA82A6061416B32A5707E1A
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121088.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121088.jpgsave_picture_121088.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ magnet:?xt=urn:btih:C3EBF9D55C9B6783D05DCD65060E1FB3C2C2A0FA
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121089.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121089.jpgsave_picture_121089.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Seven Spires - Gods Of Debauchery (2021) [FLAC|Lossless|image + .cue] <Symphonic
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121090.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121090.jpgsave_picture_121090.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Unclutter 2.2.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121091.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121091.jpgsave_picture_121091.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ File Juicer 4.99 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121092.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121092.jpgsave_picture_121092.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ magnet:?xt=urn:btih:576B4E3468F3BF19CEB1BC933D10AC86FA20C78C
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121093.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121093.jpgsave_picture_121093.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ magnet:?xt=urn:btih:2BEDB9EE1A2CFF736A95FFC14CC9946972F65B7D
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121094.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121094.jpgsave_picture_121094.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Toshiyuki Miyama & New Herd - Misty (1982) 1985, SMS Records [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121095.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121095.jpgsave_picture_121095.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Electric Wizard - Wizard Bloody Wizard (2017) [FLAC|Lossless|image + .cue] <Doom
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121096.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121096.jpgsave_picture_121096.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Notebooks – Write and Organize 3.3.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121097.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121097.jpgsave_picture_121097.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Askon - Sacred Silence (2023) [FLAC|Lossless|WEB-DL|tracks] <Black, Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121098.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121098.jpgsave_picture_121098.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Aberratio - Thanatos (2024) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121099.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121099.jpgsave_picture_121099.jpg" />
 </div>
 
 

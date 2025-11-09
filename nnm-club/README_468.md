@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12411.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12411.jpgsave_picture_12411.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Everspace 2 (2021) [Ru/Multi] (1.4.48188/dlc) Repack Let'sРlay [Complete Editio
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12412.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12412.jpgsave_picture_12412.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ The Essence - Есенин (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12414.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12414.jpgsave_picture_12414.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:4EADE0E737E5EE04AAF26E85C86FA7AF37C0E0D5
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12415.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12415.jpgsave_picture_12415.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:8A0E5759FEF663513EFFDDEF2A49360B97A068CE
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12416.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12416.jpgsave_picture_12416.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:C609788495751CE65F348E40E01909385F07C7A0
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12417.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12417.jpgsave_picture_12417.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Studio Ghibli - Studio Ghibli Songs (2001) [FLAC 2.0|48/24|image +.cue|MC-Rip] <
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12418.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12418.jpgsave_picture_12418.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:A7F131B968D96B719760A18DCDED3DE1FC0687B2
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12419.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12419.jpgsave_picture_12419.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ AirBrush: ИИ Фоторедактор v7.10.0 Mod by PieMods [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12420.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12420.jpgsave_picture_12420.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:CB2A2516AA4B1A26D80A285F9C0D681973A18CEC
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12421.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12421.jpgsave_picture_12421.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ The Essence - Есенин (2025) [MP3|320 Kbps] <Pop Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12422.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12422.jpgsave_picture_12422.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ magnet:?xt=urn:btih:38AA5A1E7758155A42C4E845353D959FC0547AED
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12423.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12423.jpgsave_picture_12423.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:069EF9D30B6EB10397B2FD1971D2CFD553B0A5EA
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12424.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12424.jpgsave_picture_12424.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ magnet:?xt=urn:btih:4EF4D7A7737D595DD363B8B93E86909AC9CAEF7D
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12425.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12425.jpgsave_picture_12425.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ VA - Classical Music Golden Age (2025) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12426.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12426.jpgsave_picture_12426.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ magnet:?xt=urn:btih:1494993B7E5051742F64A65DF4164F7ED9533BDD
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12427.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12427.jpgsave_picture_12427.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ City Enigma (2025) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12428.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12428.jpgsave_picture_12428.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ VA - Music News For Forum vol.108 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12429.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12429.jpgsave_picture_12429.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ magnet:?xt=urn:btih:DDC982FE3BF77AF0EF9A15F0F37FFA49F016F32D
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12430.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12430.jpgsave_picture_12430.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Marc de Loutchek - 2 Albums (2007,2010) [FLAC|Lossless|WEB-DL|tracks] <Русс�
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12431.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12431.jpgsave_picture_12431.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ magnet:?xt=urn:btih:37D8802054DE82324C72886456870C003408493A
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12432.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12432.jpgsave_picture_12432.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ magnet:?xt=urn:btih:401A3A6DF32251F214AB17DF1EC0234D0907FEEB
 >>Бокс
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12433.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12433.jpgsave_picture_12433.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ magnet:?xt=urn:btih:81C86974EBA308AE31822BAF80CA24831D6B3EDF
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12434.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12434.jpgsave_picture_12434.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ Happy Color® – игра раскраска v2.19.4 Mod by vadj [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12435.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12435.jpgsave_picture_12435.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ Accentize - Chameleon 2 2.1.5 VST 3, AAX (x64) RePack by R2R [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12436.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12436.jpgsave_picture_12436.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ VA - Dance Report, Vol. 1 (2025) [MP3|320 Kbps] <Dance, Club, House, Electronic>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12437.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12437.jpgsave_picture_12437.jpg" />
 </div>
 
 

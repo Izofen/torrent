@@ -6,7 +6,7 @@ XnView Classic 2.51.4 (Minimal-Standard-Extended) + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191163.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191163.jpgsave_picture_191163.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:3043B2429D3250A129C810B992D934D167D132E3
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_191164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191164.jpgsave_picture_191164.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ The Darkest Tales (2022) [Ru/Multi] (1.05.1) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_191165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191165.jpgsave_picture_191165.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Advanced SystemCare Pro 16.6.0.259 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191166.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191166.jpgsave_picture_191166.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:8F450587FE5EC70CA10AABA11E00CACD218A8484
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_191167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191167.jpgsave_picture_191167.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:099E7D0A74C8C5B910EF278A1430F2EE1100DD30
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191168.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191168.jpgsave_picture_191168.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Lovecraft's Untold Stories 2 (2022) [Ru/Multi] (0.9.049b) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_191169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191169.jpgsave_picture_191169.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:329C3C79331B2BA90D8872D568261D0E86FC225C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191170.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191170.jpgsave_picture_191170.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:C3F4853B06FB312760F705AFA395D3F43D108349
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_191171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191171.jpgsave_picture_191171.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Discovery: Последние тайны "Титаника" / Last Mysteries of 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191172.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191172.jpgsave_picture_191172.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ SIGNALIS (2022) [Ru/Multi] (1.0) License DARKSiDERS
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_191173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191173.jpgsave_picture_191173.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ magnet:?xt=urn:btih:B289F5F351A668178E41A7D4518E15CD196E60A3
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191174.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191174.jpgsave_picture_191174.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ ACDSee Photo Studio Ultimate 2023 16.0.3.3188 Lite RePack by MKN [Ru/En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_191175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191175.jpgsave_picture_191175.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ XnView Shell Extension 4.1.9  + Standalone  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191176.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191176.jpgsave_picture_191176.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ magnet:?xt=urn:btih:9A8DD0D85573A019CEE94C0B68400C628BC25859
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_191177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191177.jpgsave_picture_191177.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ magnet:?xt=urn:btih:E78901AA390F7031F12C318A0F83E400906911F9
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191178.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191178.jpgsave_picture_191178.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ Sonic Frontiers (2022) [Switch] [US] 14.1.2 [eShop] [Ru/Multi]
 >>Switch
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_191179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191179.jpgsave_picture_191179.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ magnet:?xt=urn:btih:54FE847C30C26890144500DA64558FB195F756C4
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191180.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191180.jpgsave_picture_191180.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ magnet:?xt=urn:btih:46A1506A15A7FAE6374C7A8A4A98C9C42DEA889F
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191181.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191181.jpgsave_picture_191181.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Alfred Hitchcock: Vertigo (2021) [Ru/Multi] (2022093001/dlc) License GOG [Digita
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_191182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191182.jpgsave_picture_191182.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ magnet:?xt=urn:btih:66F07DE408657593D2B3BE324E3E1613EB7EDC93
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_191183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191183.jpgsave_picture_191183.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ magnet:?xt=urn:btih:B29B1279325E310DA7140087927DD76ED2E40A49
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191184.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191184.jpgsave_picture_191184.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ magnet:?xt=urn:btih:3710ACA5BAA2F32E5AC4B5E7603707526428CCC1
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191185.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191185.jpgsave_picture_191185.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ magnet:?xt=urn:btih:C5CB979C0A523D1269364FF4D688AD82B3E7008F
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_191187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191187.jpgsave_picture_191187.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ magnet:?xt=urn:btih:A900B3AD717C72EEC6DE7715D2E261B47523E257
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191188.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191188.jpgsave_picture_191188.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Diablo: Hellfire - The Hell 2 (2019) [En] (1.2504) Mod
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_191189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191189.jpgsave_picture_191189.jpg" />
 </div>
 
 

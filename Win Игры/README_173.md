@@ -6,7 +6,7 @@ SlavicPunk: Oldtimer (2023) [Ru/Multi] (1.3.0) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51145.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51145.jpgsave_picture_51145.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ FlashBack 2 (2023) [Multi] (20240521) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51146.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51146.jpgsave_picture_51146.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Good Company (2020) [Ru/Multi] (1.1.01/dlc) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51150.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51150.jpgsave_picture_51150.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ KUNAI (2020) [Ru/Multi] (1.0.4) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51151.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51151.jpgsave_picture_51151.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Winkeltje: The Little Shop (2022) [Ru/Multi] (10793/dlc) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51152.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51152.jpgsave_picture_51152.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ IXION (2022) [Ru/Multi] (1.0.7.0) License GOG
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51155.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51155.jpgsave_picture_51155.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Stray Gods: The Roleplaying Musical (2023) [Multi] (8863.1/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51156.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51156.jpgsave_picture_51156.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Doodle Adventure of Chameleon (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51194.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51194.jpgsave_picture_51194.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Crab God (2024) [Ru/Multi] (1.0.24) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51208.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51208.jpgsave_picture_51208.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Supreme Ruler 2030 (2023) [Multi] (1303/dlc) Scene Tenoke
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51209.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51209.jpgsave_picture_51209.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ STUFFED (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51212.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51212.jpgsave_picture_51212.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Mushoku Tensei: Jobless Reincarnation Quest of Memories (2024) [Multi] (1.0.3) R
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51215.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51215.jpgsave_picture_51215.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ New Yankee 13: Mary's Dark Side / Янки 13: Темная сторона Мэ�
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51309.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51309.jpgsave_picture_51309.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ magnet:?xt=urn:btih:75ABA1DCF8EB3C6323563B4187027E3BF362D282
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51324.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51324.jpgsave_picture_51324.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Train Life A Railway Simulator (2021) [Ru/Multi] (28790/dlc) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51326.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51326.jpgsave_picture_51326.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ SPY×ANYA: Operation Memories (2024) [Multi] (1.0.5/dlc) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51327.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51327.jpgsave_picture_51327.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Astrox Imperium (2019) [En] (b0.0144) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51335.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51335.jpgsave_picture_51335.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Thief Simulator 2 (2023) [Ru/Multi] (1.27c) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51337.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51337.jpgsave_picture_51337.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ GASPING.2 (2024) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51342.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51342.jpgsave_picture_51342.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Windstorm: Start of a Great Friendship - Remastered (2024) [Multi] (0.7.3) Repac
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51345.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51345.jpgsave_picture_51345.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Ludus Mortis (2024) [Multi] (1.0.8) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51355.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51355.jpgsave_picture_51355.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Chornobyl Liquidators (2024) [Ru/Multi] (0.9.1) Scene FairLight
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51357.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51357.jpgsave_picture_51357.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Nightshade Mysteries: Eternal Moon (2024) [En] (1.0) Unofficial [Collector's Edi
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51401.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51401.jpgsave_picture_51401.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ New Yankee 14: Through the History Mirror / Янки 14: Сквозь зерка
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51455.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51455.jpgsave_picture_51455.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Undeadly (2024) [En] (1.0) Repack FitGirl
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51456.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51456.jpgsave_picture_51456.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Alaskan Road Truckers (2023) [Ru/Multi] (1.5/dlc) Repack Decepticon [Trucking He
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51464.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51464.jpgsave_picture_51464.jpg" />
 </div>
 
 

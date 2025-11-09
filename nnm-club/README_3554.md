@@ -6,7 +6,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112779.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112779.jpgsave_picture_112779.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Wynton Marsalis Septet - Citi Movement (1993) 2CD, Columbia [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112780.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112780.jpgsave_picture_112780.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Night Crowned - Tales (2023) [FLAC|Lossless|image + .cue] <Melodic Black, Death 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112781.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112781.jpgsave_picture_112781.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Hellfueled - Volume One (2004) Reissue, 2005, Art Music Group [APE|Lossless|imag
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112782.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112782.jpgsave_picture_112782.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Hellfueled - Emission of Sins (2009) [APE|Lossless|tracks + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112783.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112783.jpgsave_picture_112783.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Hellfueled - Born II Rock (2005) Reissue, 2006, Art Music Group [FLAC|Lossless|i
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112784.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112784.jpgsave_picture_112784.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Night Crowned - Hadanfard (2021) [FLAC|Lossless|image + .cue] <Melodic Black, De
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112785.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112785.jpgsave_picture_112785.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Night Crowned - Impius Viam (2020) [FLAC|Lossless|WEB-DL|tracks] <Melodic Black,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112786.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112786.jpgsave_picture_112786.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Hellfueled - Memories in Black (2007) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112787.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112787.jpgsave_picture_112787.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Necrosanct - Desolate (1993) Reissue, 2013, Abhorrent Productions [FLAC|Lossless
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112788.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112788.jpgsave_picture_112788.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ VA - Balance pres: Dave Seaman & Quivver (Mixed) - 2024 [FLAC|Lossless|WEB-DL|tr
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112789.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112789.jpgsave_picture_112789.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ magnet:?xt=urn:btih:9C51EAF8C830638C61E2624A2FBF4298C047C84B
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112790.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112790.jpgsave_picture_112790.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ QOwnNotes 24.3.5 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112791.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112791.jpgsave_picture_112791.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ VA - Chillout Music 2024 (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112792.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112792.jpgsave_picture_112792.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ VA - Driving USA (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112793.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112793.jpgsave_picture_112793.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ ANTARCTIC - Культура, Часть 1 (2024) [MP3|320 Kbps] <Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112794.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112794.jpgsave_picture_112794.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Ocenaudio 3.13.6 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112795.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112795.jpgsave_picture_112795.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ magnet:?xt=urn:btih:D06AE07539ECAB179FF6DFBBFF8E1DB3326397D5
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112796.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112796.jpgsave_picture_112796.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ VA - Ultimate Chill Lounge Pleasure Relaxing Playlist (2024) [FLAC|Lossless|WEB-
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112797.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112797.jpgsave_picture_112797.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ MotoGP. Этап 02 из 22. Гран-при Португалии. Гонка (2
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112798.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112798.jpgsave_picture_112798.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ VA - Supreme Pure Pleasure Relaxing Jazz Playlist (2024) [FLAC|Lossless|WEB-DL|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112799.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112799.jpgsave_picture_112799.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Elbow - Audio Vertigo (Extended Edition) (2024) [FLAC|Lossless|WEB-DL|tracks] <A
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112800.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112800.jpgsave_picture_112800.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ magnet:?xt=urn:btih:6C814C796BC6229252C1EAE8670721DCD3D03402
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112801.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112801.jpgsave_picture_112801.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ magnet:?xt=urn:btih:9CF7EEF628D0C8018D023AA9DD68EAFC0F324F29
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112802.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112802.jpgsave_picture_112802.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ Oakfarm - Oakfarm (2024) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Rock, Blues>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112803.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112803.jpgsave_picture_112803.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ Sons of Morpheus - Fruits (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112804.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112804.jpgsave_picture_112804.jpg" />
 </div>
 
 

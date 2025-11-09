@@ -6,7 +6,7 @@
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70820.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70820.jpgsave_picture_70820.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:DC5297EA64F1DF3E63051544609822946FC5B305
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70821.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70821.jpgsave_picture_70821.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:EEA675D1676F89E77E23D2C3D847D338EDDFB3BD
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70822.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70822.jpgsave_picture_70822.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:CCE86EFD6ABC75EA7E36B5A38572EF9718BE6ABC
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70823.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70823.jpgsave_picture_70823.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:68176993333486B5EDD4BB247DE17E866512F7ED
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70824.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70824.jpgsave_picture_70824.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Bad Omens - Сollection (2016-2022) [FLAC|Lossless|tracks + .cue] <Metalcore, Po
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70825.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70825.jpgsave_picture_70825.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:D41E86088C28D31C05CCA1F140274D60603B8446
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70826.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70826.jpgsave_picture_70826.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ magnet:?xt=urn:btih:15FEAE6A1837D1135A1B2F39FBA4C5B91C381B09
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70827.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70827.jpgsave_picture_70827.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ magnet:?xt=urn:btih:A1C144C2B7DA612281CF50061A5097470D6C4C5B
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70828.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70828.jpgsave_picture_70828.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ PhotoDirector v19.11.0 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70829.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70829.jpgsave_picture_70829.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ VA - Love and Peace, Lounge & Chill Out, Vol. 1 (2025) [FLAC|Lossless|WEB-DL|tra
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70830.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70830.jpgsave_picture_70830.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ magnet:?xt=urn:btih:961329DE6F8E7A203D7A3AAACD9F040F4003CA35
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70831.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70831.jpgsave_picture_70831.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ magnet:?xt=urn:btih:C1462D60A7250969728DC70EF93D5CC7D9B3302D
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70832.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70832.jpgsave_picture_70832.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ Distain! - Homesick Alien (1998) [FLAC|Lossless|tracks + .cue] <Electronic, Synt
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70833.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70833.jpgsave_picture_70833.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ VA - Jazz for a Crime vol. 1-3 (2024) Signora Ward Records [FLAC|Lossless|Web-DL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70834.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70834.jpgsave_picture_70834.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ Balabolka 2.15.0.887 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70835.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70835.jpgsave_picture_70835.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ magnet:?xt=urn:btih:5738FF7895A47978C8AF5BD10A81801ED1DDF4FF
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70836.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70836.jpgsave_picture_70836.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ magnet:?xt=urn:btih:8D6370FB2C9AB3C25CDEA8E9FC76D97C205671D7
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70837.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70837.jpgsave_picture_70837.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ magnet:?xt=urn:btih:4021FF402AD2680CA9CF20253EBC91409196D401
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70838.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70838.jpgsave_picture_70838.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Perfectly Clear WorkBench 4.6.1.2717 RePack (& Portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70839.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70839.jpgsave_picture_70839.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Desktop Calendar 3.21.222.6986 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70840.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70840.jpgsave_picture_70840.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ magnet:?xt=urn:btih:990F77685526AC9C0DBDDCEAD09D2C7D3D3DEAC7
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70841.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70841.jpgsave_picture_70841.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ magnet:?xt=urn:btih:DA3D4B44DC98B5539B01AB5925784444DD8EEB9F
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70842.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70842.jpgsave_picture_70842.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ PrivaZer Pro 4.0.98 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70843.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70843.jpgsave_picture_70843.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Wise Disk Cleaner 11.2.0.837 RePack (& portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70844.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70844.jpgsave_picture_70844.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ magnet:?xt=urn:btih:7EF71D6E23B50D94F98694E4CE8CBD5AF0722769
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70845.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70845.jpgsave_picture_70845.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154724.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154724.jpgsave_picture_154724.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:6774D64646CB08CA219B79234E3284A50C120F6B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154725.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154725.jpgsave_picture_154725.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Madison - Best In Show (1986) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154726.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154726.jpgsave_picture_154726.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Isekai Shokudou 2 | Restaurant to Another World 2 | Кафе из другого
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154727.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154727.jpgsave_picture_154727.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:F992BC5F37506DDAB8215CD7F257679F068D017B
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154728.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154728.jpgsave_picture_154728.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:D3B6F271B213687D4F935CA6DABB00A2881D61FA
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154729.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154729.jpgsave_picture_154729.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ magnet:?xt=urn:btih:3621C14941B23B55AE07F95A78916DCD0EBB1C02
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154730.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154730.jpgsave_picture_154730.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:29BF92FCC3F5539045D53B3CA13BDDA303B8CEB9
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154731.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154731.jpgsave_picture_154731.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ VideoSolo Screen Recorder For Mac 2.0.28 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154732.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154732.jpgsave_picture_154732.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ VA - A Merry Jazzmas (1992) [FLAC|Lossless|image + .cue] <Jazz, Christmas>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154733.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154733.jpgsave_picture_154733.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ Wowza Streaming Engine (linux) 4.7.8 [x64] (run)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154734.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154734.jpgsave_picture_154734.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ magnet:?xt=urn:btih:8657B7568D4CB4E181F64E874CF1C4B60B684B48
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154735.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154735.jpgsave_picture_154735.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ VMware Workstation 14 Pro 14.1.0 Build 7370693 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154736.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154736.jpgsave_picture_154736.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ magnet:?xt=urn:btih:9023EDFA66A09FDCBF0F67A15745A9C8C02C6058
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154737.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154737.jpgsave_picture_154737.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ magnet:?xt=urn:btih:02D48FEBC49FE3BD4BEF094448EB390F97D2CD43
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154738.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154738.jpgsave_picture_154738.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ magnet:?xt=urn:btih:0CBD9AAA1093AA02C217415B1F929437B74424F4
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154739.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154739.jpgsave_picture_154739.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ magnet:?xt=urn:btih:F327E60CC07D52B4358FAD28C8C1A372A67EA22F
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154742.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154742.jpgsave_picture_154742.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ magnet:?xt=urn:btih:3155B0F0F4D660E2EA7C7158ACF83616FA2B2D50
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154743.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154743.jpgsave_picture_154743.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ magnet:?xt=urn:btih:9272F45411958795330A1F5EE5263147CF4E9DF2
 >>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154744.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154744.jpgsave_picture_154744.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ magnet:?xt=urn:btih:6FBF2A9CDDAE9A82801D675A3649EE258BCAAE57
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154745.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154745.jpgsave_picture_154745.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ magnet:?xt=urn:btih:F98ADDB32BE4C642B5217EA90C3F18166DCFC3D1
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154746.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154746.jpgsave_picture_154746.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ magnet:?xt=urn:btih:385B6110A6AF6CB4C30768CC09AD499FEC25FC49
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154747.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154747.jpgsave_picture_154747.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ magnet:?xt=urn:btih:21C83F75511BF7FA99CF94DAFC7E7A172F1B461E
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154748.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154748.jpgsave_picture_154748.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ ATOM RPG: Post-apocalyptic indie game (2018) [Ru/En] (1.0) License SKIDROW
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154749.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154749.jpgsave_picture_154749.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ magnet:?xt=urn:btih:AA31048406C01F4C4E9BD745113EA54D3FAD4CE4
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154750.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154750.jpgsave_picture_154750.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ Cave Story's Secret Santa (2021) [En] (1.0.0.5) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154752.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154752.jpgsave_picture_154752.jpg" />
 </div>
 
 

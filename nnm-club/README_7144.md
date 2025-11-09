@@ -6,7 +6,7 @@ Amplifier - Hologram (2023) [MP3|320 Kbps] <Psychedelic, Space Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244691.jpgsave_picture_244691.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Pink Floyd - The Dark Side Of The Moon (Live at Wembley 1974) (2023) [FLAC|Lossl
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244692.jpgsave_picture_244692.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - Time For Chillout Vol.2 (2016) [MP3|320 Kbps] <Balearic, Downtempo>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244693.jpgsave_picture_244693.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ In The Space - Escape Room (2022) [Ru/Multi] (1.0) License DARKSiDERS
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244694.jpgsave_picture_244694.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ magnet:?xt=urn:btih:6AFFE75CDBF14597BC8502879555B484D25F9297
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244695.jpgsave_picture_244695.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ magnet:?xt=urn:btih:E63CAF5DE5D0CBE19CA2E524711D591A9CBE274D
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244696.jpgsave_picture_244696.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ Movavi Video Suite 22.2.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244697.jpgsave_picture_244697.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ Photo Supreme 2023.1.1.4854 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244698.jpgsave_picture_244698.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ magnet:?xt=urn:btih:4C34BBCB81A916BAF491E62B73FB7EDC84144615
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244699.jpgsave_picture_244699.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ UnHackMe 14.0.2022.0727 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244700.jpgsave_picture_244700.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ VA - Finding Around Happiness (Energy Tech Trance) 010 (2016) [MP3|320 Kbps] <Tr
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244701.jpgsave_picture_244701.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ Princess Connect! Re:Dive 2 / PriConne 2 / Связь принцесс! Ново
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244702.jpgsave_picture_244702.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ Psycho Hill - Psycho Hill (2023) [MP3|320 Kbps] <Melodic Metalcore>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244703.jpgsave_picture_244703.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ MediaHuman YouTube Downloader 3.9.9.81 (2503) RePack (& Portable) by TryRooM [Mu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244704.jpgsave_picture_244704.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ Kenny Loggins - Playing with the Boys (1986) US 12" Single [MP3|320 Kbps] <Pop R
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244705.jpgsave_picture_244705.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ magnet:?xt=urn:btih:06AD15E9D7ED8EA8F63C164E7734E252F8C8003A
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244706.jpgsave_picture_244706.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ magnet:?xt=urn:btih:2EEB326C5A9887736F5947ACBFDBE00AC94C2C28
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244707.jpgsave_picture_244707.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ magnet:?xt=urn:btih:F21B5074D7E5849F7F1210C764BDA39356960FC0
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244708.jpgsave_picture_244708.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ magnet:?xt=urn:btih:90C40A4AE304C6F55F8FAD4251F3684F03445B2E
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244709.jpgsave_picture_244709.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Ally Venable - Real Gone (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244710.jpgsave_picture_244710.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ Windows 10 (v21h2) x64 PRO by KulHunter v9 (esd) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244711.jpgsave_picture_244711.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ magnet:?xt=urn:btih:C209AA286523F84B752E37E928F5EF0FD00A8A69
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244712.jpgsave_picture_244712.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ VA - Lounge Future: Sunrise (2016) [MP3|320 Kbps] <Balearic, Downtempo>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244713.jpgsave_picture_244713.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ magnet:?xt=urn:btih:0308EC845DE6B056DA94C59DAA14E9790EE80CF5
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244714.jpgsave_picture_244714.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Clouds Taste Satanic - 2 Albums (2021-2023) 3CD [FLAC|Lossless|WEB-DL|tracks] <D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244715.jpgsave_picture_244715.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ One Commander Pro 3.38.0.0 + Portable  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244716.jpgsave_picture_244716.jpg" />
 </div>
 
 

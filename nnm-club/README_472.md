@@ -6,7 +6,7 @@ Blackmagic Design DaVinci Resolve Studio 20.0.1 Build 6 RePack by KpoJIuK [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12516.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12516.jpgsave_picture_12516.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Milla Jovovich - The Divine Comedy (1993) [FLAC|Lossless]<Folk-rock, soft-rock>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12517.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12517.jpgsave_picture_12517.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ Deep Rock Galactic (2020) [Ru/Multi] (1.39.120236.0/dlc) Repack Pioneer
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12518.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12518.jpgsave_picture_12518.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Warkings - Studio Albums (5 releases) (2018-2025) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12519.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12519.jpgsave_picture_12519.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ magnet:?xt=urn:btih:CC843D52C0EFCBF0CFBE4110AC37BE23A0C64BEC
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12520.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12520.jpgsave_picture_12520.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Native Instruments - Kontakt 8.5.0 STANDALONE, VSTi, VSTi 3, AAX (x64) Portable 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12521.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12521.jpgsave_picture_12521.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ magnet:?xt=urn:btih:C4AD2D95357D7AD297020075D16E1154726AB9FB
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12522.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12522.jpgsave_picture_12522.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ magnet:?xt=urn:btih:D5E494DA665D5678E4812607CD73CA980941AC96
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12523.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12523.jpgsave_picture_12523.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ magnet:?xt=urn:btih:32482A7C629737D5B3AEF53AA308CDAC5D9AAAB2
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12524.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12524.jpgsave_picture_12524.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ magnet:?xt=urn:btih:197E6CC6C4FA8A86E752D62EFB1BF58A4F5A0E42
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12525.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12525.jpgsave_picture_12525.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ magnet:?xt=urn:btih:7C1BC304FDEBAFC41665C42B5511B7CFD37FF3FF
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12526.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12526.jpgsave_picture_12526.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ magnet:?xt=urn:btih:B747EB9CA8217AD8F4A346EB403CEE998E86B619
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12527.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12527.jpgsave_picture_12527.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ VA - Summer Dance Hits 2025 (2025) [MP3|320 Kbps] <Dance, Club, House, Electroni
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12528.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12528.jpgsave_picture_12528.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ magnet:?xt=urn:btih:E1F528EE77BF0F48A1D9A36DFD6E64E3B7A5D88A
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12529.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12529.jpgsave_picture_12529.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ magnet:?xt=urn:btih:656188FB407488DC410CD3192BA206D405D39230
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12530.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12530.jpgsave_picture_12530.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ magnet:?xt=urn:btih:C4A0FE3446BCC297145F06ADA4644A532D15F678
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12531.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12531.jpgsave_picture_12531.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ magnet:?xt=urn:btih:B1B113D726C53F30DCAA81B4F9B74C07036EB4C4
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12532.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12532.jpgsave_picture_12532.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ magnet:?xt=urn:btih:ECAD9878B14A7ADD3ACD0B5DAC10860036F4B5CA
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12533.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12533.jpgsave_picture_12533.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ magnet:?xt=urn:btih:BB8EAA3F8CACAD8276E69919CD649BEF91C86A23
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12534.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12534.jpgsave_picture_12534.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ VA - Armada Electronic Elements presents Timeless (Extended Versions) (2025) [MP
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12535.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12535.jpgsave_picture_12535.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ magnet:?xt=urn:btih:63150310DC960016FB672DF51887E3FE9FF835C9
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12536.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12536.jpgsave_picture_12536.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ magnet:?xt=urn:btih:961BFAF42E79A61637602A64F65E71252DC0CB85
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12537.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12537.jpgsave_picture_12537.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ magnet:?xt=urn:btih:EF023A42265B4D2033F0C026A9AEB5BF0F417AD7
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12538.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12538.jpgsave_picture_12538.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Polyverse Music - Filterverse 1.2.0 VST, VST 3, AAX (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12539.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12539.jpgsave_picture_12539.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Megami no Cafe Terrace II | The Cafe Terrace and Its Goddesses II | Богини
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12540.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12540.jpgsave_picture_12540.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ magnet:?xt=urn:btih:BB31FA13539407F4DAD351159B8878CB04150812
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12541.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12541.jpgsave_picture_12541.jpg" />
 </div>
 
 

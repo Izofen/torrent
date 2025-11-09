@@ -6,7 +6,7 @@ Soffía Björg - Soffía Björg (2017) [MP3|320 Kbps] <Alternative Rock, America
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187137.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187137.jpgsave_picture_187137.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Twisted Rose - Cherry Tales (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Fem
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187144.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187144.jpgsave_picture_187144.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Filter - The Algorithm (2023) [FLAC|Lossless|WEB-DL|tracks] <Alt. Rock, Alt. Met
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187171.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187171.jpgsave_picture_187171.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:89C9D29E3A43A54527F0C37556551AAAD5A95280
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187173.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187173.jpgsave_picture_187173.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ The Pulse Theory - Coming Back Home (2023) [FLAC|Lossless|WEB-DL|tracks] <Progre
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187175.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187175.jpgsave_picture_187175.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ magnet:?xt=urn:btih:F7B9D8CB08286ED1CCAE001DDB7FEA2699E9B024
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187187.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187187.jpgsave_picture_187187.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Baroness - Stone (2023) 2 x CD [FLAC|Lossless|tracks + .cue] <Progressive Metal,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187190.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187190.jpgsave_picture_187190.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Iron Allies - Blood In Blood Out (2022) [FLAC|Lossless|image + .cue] <Heavy Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187196.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187196.jpgsave_picture_187196.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Saint Asonia - Extrovert (2022) EP [FLAC|Lossless|WEB-DL|tracks] <Alt.Metal, Pos
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187198.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187198.jpgsave_picture_187198.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Trance - Metal Forces (2021) [FLAC|Lossless|image + .cue] <Heavy Metal, Hard Roc
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187199.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187199.jpgsave_picture_187199.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Devin Townsend - Lightwork (2022) 2xCD [FLAC|Lossless|image + .cue] <Progressive
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187204.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187204.jpgsave_picture_187204.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Rock-сказка - Часы весны I - III (2020-2022) 3 EP [FLAC|Lossless|
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187206.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187206.jpgsave_picture_187206.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Wildness - Resurrection (2022) Japanese Edition [FLAC|Lossless|image + .cue] <Me
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187208.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187208.jpgsave_picture_187208.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ magnet:?xt=urn:btih:1E0AE155E06BB1687CD2D6937E538C7BA12F4735
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187214.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187214.jpgsave_picture_187214.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ magnet:?xt=urn:btih:7001BFC3D19FF7B0F4C25FD9146715ABCA94DF65
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187222.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187222.jpgsave_picture_187222.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Satin - Appetition (2022) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187231.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187231.jpgsave_picture_187231.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Killer Kings - Burn For Love (2022) [FLAC|Lossless|image + .cue] <Melodic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187234.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187234.jpgsave_picture_187234.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Threshold - Dividing Lines (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187236.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187236.jpgsave_picture_187236.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Miseration - Black Miracles and Dark Wonders (2022) [FLAC|Lossless|image + .cue]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187241.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187241.jpgsave_picture_187241.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Enemy Eyes - History's Hand (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Power 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187244.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187244.jpgsave_picture_187244.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Witchfinder - Forgotten Mansion (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Psyc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187247.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187247.jpgsave_picture_187247.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Rising Steel - Beyond The Gates Of Hell (2022) [FLAC|Lossless|WEB-DL|tracks] <He
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187248.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187248.jpgsave_picture_187248.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Doctor Doom - A Shadow Called Danger (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187251.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187251.jpgsave_picture_187251.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Vault - The Perfect Truth (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187252.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187252.jpgsave_picture_187252.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Amon Acid - Cosmogony (2022) [FLAC|Lossless|WEB-DL|tracks] <Psych, Doom, Stoner>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187254.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187254.jpgsave_picture_187254.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Roadhog - Gates to Madness (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187255.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187255.jpgsave_picture_187255.jpg" />
 </div>
 
 

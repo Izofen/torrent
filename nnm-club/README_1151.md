@@ -6,7 +6,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30281.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30281.jpgsave_picture_30281.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Grand Secret, Максим Волков, Виктория Жихарева, Ма
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30282.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30282.jpgsave_picture_30282.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:2948E5EE6224D7C510D622D2A0749ECB272072EB
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30283.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30283.jpgsave_picture_30283.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:7B337D1F589E3B61ACBAFFE326A620CDF13E8023
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30284.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30284.jpgsave_picture_30284.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:21E7BE398916E23F6ADBE75EB1D94E0BC9D61451
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30285.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30285.jpgsave_picture_30285.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Microsoft Windows 10 [10.0.19045.5371], Version 22H2 (Updated January 2025) - О
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30286.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30286.jpgsave_picture_30286.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:AE8F38F8498A8CECB62AA0568B86BBD6F449486A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30287.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30287.jpgsave_picture_30287.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:5A4D98DBE08E50EEB3779C1AEF2813CF3BF25EF7
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30288.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30288.jpgsave_picture_30288.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:5A4D98DBE08E50EEB3779C1AEF2813CF3BF25EF7
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30289.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30289.jpgsave_picture_30289.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:F172672BFE61C3ACED1F2A5C423F9D5B959C852F
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30290.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30290.jpgsave_picture_30290.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:04E9EA146980DF550B2B804B7CF1C513B1DBC815
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30291.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30291.jpgsave_picture_30291.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Final Fantasy VII Remake Intergrade (2021) [Ru/Multi] (1.005/dlc) Repack Wanterl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30292.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30292.jpgsave_picture_30292.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:CDE2EFFE873B1B96102259E597C01330E38F444E
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30293.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30293.jpgsave_picture_30293.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Windows 11 PRO 24H2 26100.2894 Update 11 by Ghost Spectre [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30294.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30294.jpgsave_picture_30294.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ HTML Academy | Профессия «Javascript-разработчик». Тар�
 >>Образование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30295.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30295.jpgsave_picture_30295.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Windows Server 2025 LTSC [10.0.26100.2894], Version 24H2 (Updated January 2025) 
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30296.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30296.jpgsave_picture_30296.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Windows Server 2022 LTSC [10.0.20348.3091], Version 21H2 (Updated January 2025) 
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30297.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30297.jpgsave_picture_30297.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ magnet:?xt=urn:btih:9C590B37FD63B2EC298B375E817E8688C109688B
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30298.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30298.jpgsave_picture_30298.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ magnet:?xt=urn:btih:5442F3E79E4906A0F65D87BEA5D4AEA1FCC0B26D
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30299.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30299.jpgsave_picture_30299.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ magnet:?xt=urn:btih:EB1CBC1875D967A5F4590012ACA0345B567D7515
 >>Медитации (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30300.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30300.jpgsave_picture_30300.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ magnet:?xt=urn:btih:E0B7C00A82067BF5FD3010A6D20962C594DF1551
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30301.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30301.jpgsave_picture_30301.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ magnet:?xt=urn:btih:AA126A3DEA794ADEBB73F5AC50B2390FFDB6343C
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30302.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30302.jpgsave_picture_30302.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ magnet:?xt=urn:btih:DCCA8DE6D3B636F3DB678EF70E4E9D0839D50EF8
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30303.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30303.jpgsave_picture_30303.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Detective Club: Missing in the Fog (2025) [Multi] (1.0) Unofficial [Collector's 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30304.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30304.jpgsave_picture_30304.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ V.A. - Lounge & Wine, Vol. 3 (2025) [FLAC|Lossless|WEB-DL|tracks] <Electronic, L
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30305.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30305.jpgsave_picture_30305.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ magnet:?xt=urn:btih:A391B6452CA0FC8B75CFC6EB2A73982488C8A2B8
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30306.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30306.jpgsave_picture_30306.jpg" />
 </div>
 
 

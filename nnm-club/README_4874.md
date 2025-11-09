@@ -6,7 +6,7 @@
 >>Титры (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152516.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152516.jpgsave_picture_152516.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:B985C108B0B4221F48C2B95212287240CB8CE547
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152519.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152519.jpgsave_picture_152519.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:4FA04F822F29AF63577D3F726BCB49AED3894F48
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152520.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152520.jpgsave_picture_152520.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:6F83714125C8DFE616252E86CD9216839CD54689
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152521.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152521.jpgsave_picture_152521.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:8B3987246F4550992070E6AC44766D7A3E405D22
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152523.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152523.jpgsave_picture_152523.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Google Chrome 25.0.1359.3 Dev [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152524.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152524.jpgsave_picture_152524.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Google Chrome 25.0.1359.3 Dev [MULTi / Русский]
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152525.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152525.jpgsave_picture_152525.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Laura Pausini - Laura Xmas (2016) [FLAC|Lossless|WEB-DL|tracks] <Christmas, Pop,
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152526.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152526.jpgsave_picture_152526.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:858D7FCED3F761CA8834A5C5605F2FBE1F85E77A
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152527.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152527.jpgsave_picture_152527.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:8C59BFF8332677C1C4DB3CC4111A3DA3465E8B63
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152528.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152528.jpgsave_picture_152528.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:4E2F08AE32B9273F3E025CE452B044553C767DA7
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152529.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152529.jpgsave_picture_152529.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:313273A5D9DB7DF39C7A502E0F6F78CA70C5EC6A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152530.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152530.jpgsave_picture_152530.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:78BE290F87AC501417391F37EDB648A0DCB681C4
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152532.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152532.jpgsave_picture_152532.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ magnet:?xt=urn:btih:04627DD9AF5BAD8F1DECCD952838DE40CFB513D1
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152534.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152534.jpgsave_picture_152534.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Privacy Eraser Free 5.31.2 Build 4408 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152535.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152535.jpgsave_picture_152535.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ magnet:?xt=urn:btih:BBC4F346A2628313B81FEE96143A37E4FDB0F981
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152537.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152537.jpgsave_picture_152537.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ magnet:?xt=urn:btih:5E6B70EDCC4E012553627889FBE1A218EB67FD46
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152538.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152538.jpgsave_picture_152538.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ magnet:?xt=urn:btih:02F1A6847C9B46ABE5A10BB667EC4B46B616AE88
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152539.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152539.jpgsave_picture_152539.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ VA - Зимний марафон № 214: Дискотека Уходящего 
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152540.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152540.jpgsave_picture_152540.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Thomas Anders - Christmas For You (2012) Deluxe Edition [APE|Lossless|image + .c
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152543.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152543.jpgsave_picture_152543.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ magnet:?xt=urn:btih:D6324DC15277BDEEB8E6E0CD46D4CA1D6A2B633F
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152545.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152545.jpgsave_picture_152545.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ OCCT 10.0.5 Final Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152547.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152547.jpgsave_picture_152547.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ VA - Christmas Pop (2016) [FLAC|Lossless|WEB-DL|tracks] <Pop, Christmas, Funk & 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152548.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152548.jpgsave_picture_152548.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ magnet:?xt=urn:btih:0FDD4CB2F88F1D51E5650D75C087CC83EB599436
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152549.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152549.jpgsave_picture_152549.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ Julio Iglesias - Crazy (1994) Reissue, 2015, Sony Music [OGG Vorbis|480 Kbps] <R
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152550.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152550.jpgsave_picture_152550.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ magnet:?xt=urn:btih:87D54D6EEE0BB23B512925D3CE12DDB25D7C66D6
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152553.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152553.jpgsave_picture_152553.jpg" />
 </div>
 
 

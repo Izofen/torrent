@@ -6,7 +6,7 @@ Dominance - Slaughter of Human Offerings in the New Age Of Pan (2023) [MP3|320 K
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172642.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172642.jpgsave_picture_172642.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Ronnie Atkins - Trinity (2023) [FLAC|Lossless|image + .cue] <Hard Rock, Melodic 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172643.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172643.jpgsave_picture_172643.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:D54B61640ED213AB2E4FD53369104590C7FD11D0
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172653.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172653.jpgsave_picture_172653.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - All Out Rock Hits (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172655.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172655.jpgsave_picture_172655.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Antagonist - Damned And Cursed…To Life On Earth (Compilation) (2016) Compilati
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172658.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172658.jpgsave_picture_172658.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Theocracy - Ghost Ship (2016) [FLAC|Lossless|image + .cue] <Progressive Power Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172669.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172669.jpgsave_picture_172669.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Decembre Noir - Your Sunset | My Sunrise (2023) [MP3|320 Kbps] <Melodic Doom, De
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172672.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172672.jpgsave_picture_172672.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Crocodile - The Tale of Otter, Thorn Eater, And the Colored Coyotes of Hidden Ci
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172674.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172674.jpgsave_picture_172674.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Highway - Viral (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172678.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172678.jpgsave_picture_172678.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Nox Sinister - Knight Terrors (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Thras
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172679.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172679.jpgsave_picture_172679.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Birth Asphyxia - Human Obelisk (2012) [MP3|320 Kbps] <Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172680.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172680.jpgsave_picture_172680.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Permutation - Transience (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death, Bl
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172685.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172685.jpgsave_picture_172685.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Profanatica - Crux Simplex (2023) [FLAC|Lossless|WEB-DL|tracks] <Black, Death Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172686.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172686.jpgsave_picture_172686.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ magnet:?xt=urn:btih:6F67A43933790B74F0CA062C4D7CB03521F6D10C
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172833.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172833.jpgsave_picture_172833.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ magnet:?xt=urn:btih:C6BAE301F09D057F4D54790E7BA8C16C07FA414B
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172843.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172843.jpgsave_picture_172843.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Evanescence - Going Under (2003) Single, Remastered, 2023, Craft Recordings [FLA
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172849.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172849.jpgsave_picture_172849.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ magnet:?xt=urn:btih:297BBC6540F904CCC26C9F6987514FA5B5F5CE02
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172861.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172861.jpgsave_picture_172861.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ magnet:?xt=urn:btih:4EAC91981D7823B8B965B8917CC5F3A8EC059628
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172863.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172863.jpgsave_picture_172863.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Corey Taylor - CMF2 (2023) [FLAC|Lossless|tracks + .cue] <Alt.Metal, Hard Rock>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172868.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172868.jpgsave_picture_172868.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Tajiq - Аль монах (2023) [MP3|320 Kbps] <Alternative, Art Rock, Experime
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172997.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172997.jpgsave_picture_172997.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Ringo Starr - Rewind Forward (2023) EP [FLAC|Lossless|WEB-DL|tracks] <Pop Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173004.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173004.jpgsave_picture_173004.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Gory Blister - Reborn From Hatred (2023) [FLAC|Lossless|WEB-DL|tracks] <Technica
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173007.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173007.jpgsave_picture_173007.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ magnet:?xt=urn:btih:FA84E605F5385DF47C345825FE30E97BD30BE4EC
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173008.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173008.jpgsave_picture_173008.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ magnet:?xt=urn:btih:1972E135250D76378D34B154F1F3247A5606C81F
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173015.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173015.jpgsave_picture_173015.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ Megadeth - Unplugged In Boston (2006) (Reissued-2021) [FLAC|Lossless|image + .cu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173016.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173016.jpgsave_picture_173016.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ Mitchell's Kiss Of The Gypsy - Unfinished Business (2022) [FLAC|Lossless|image +
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173017.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173017.jpgsave_picture_173017.jpg" />
 </div>
 
 

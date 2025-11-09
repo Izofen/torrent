@@ -6,7 +6,7 @@ Happy Color® – игра раскраска v2.17.7 Mod by vadj [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71028.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71028.jpgsave_picture_71028.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Firefox Browser 135.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71029.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71029.jpgsave_picture_71029.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Dana Fuchs - 7 Albums (2003 - 2022) [FLAC|Lossless|tracks + .cue|image + .cue] <
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71030.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71030.jpgsave_picture_71030.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Sante DICOM Editor 10.1.1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71031.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71031.jpgsave_picture_71031.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:4C38660AC4B789AA759A6C8A0D838E56CB7211AC
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71032.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71032.jpgsave_picture_71032.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Sante DICOM Viewer Pro 14.1.1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71033.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71033.jpgsave_picture_71033.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Topaz Gigapixel AI Pro 8.2.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71034.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71034.jpgsave_picture_71034.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Firefox Browser ESR 115.20.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71035.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71035.jpgsave_picture_71035.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ EF Commander 25.02 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71036.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71036.jpgsave_picture_71036.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:06D3B484A31C7A881315BFF30FE0A0889ECD67D4
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71037.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71037.jpgsave_picture_71037.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:DDD2B9BD2682CD3884F7C6DFB85DCEF5A7B3736D
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71038.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71038.jpgsave_picture_71038.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Crypt of the Necrodancer (2014) [Ru/Multi] (4.1.1 b5457/dlc) Repack Let'sРlay [
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71039.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71039.jpgsave_picture_71039.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:2C42074EF9B0D8F29664CE781BA37617FF8DA662
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71040.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71040.jpgsave_picture_71040.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ magnet:?xt=urn:btih:2135874F5AC87F8E295B62E76898CB36629DE02D
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71041.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71041.jpgsave_picture_71041.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ magnet:?xt=urn:btih:A0481EB3524DFF254783F1ED589217475F1A1CD0
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71042.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71042.jpgsave_picture_71042.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ magnet:?xt=urn:btih:5AFF1124278CEBA9AE5DCC8B7ECE55BC17028FB2
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71043.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71043.jpgsave_picture_71043.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ magnet:?xt=urn:btih:58ECB29E18849A1DD44E5CF32C681639DC8C3284
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71044.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71044.jpgsave_picture_71044.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ magnet:?xt=urn:btih:2D1C30EBEDEDC0D2301B0611099ECBF390BC8A1B
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71045.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71045.jpgsave_picture_71045.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ magnet:?xt=urn:btih:25416C29CAF8581631C72B9DC561AD21057BC7D5
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71046.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71046.jpgsave_picture_71046.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ magnet:?xt=urn:btih:E4658F6982F58DC99D1D418B232AB8B7771012B3
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71047.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71047.jpgsave_picture_71047.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ magnet:?xt=urn:btih:4C5427EEABD98B8F7F538794950EC3DF72CE2049
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71048.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71048.jpgsave_picture_71048.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ magnet:?xt=urn:btih:1E23B0985E238672C126EC7453CFC03E7483ED56
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71049.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71049.jpgsave_picture_71049.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ magnet:?xt=urn:btih:3F18CB071D94127C755DEBB84FF2986434F77ADA
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71050.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71050.jpgsave_picture_71050.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ magnet:?xt=urn:btih:F41FD714512BAF715BAF2D238BBE9956BCCD6FA6
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71051.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71051.jpgsave_picture_71051.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ magnet:?xt=urn:btih:CA61163F3065DE58A844A01B8C053D8C94F77A33
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71052.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71052.jpgsave_picture_71052.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Leaf Hound - Once Bitten (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71053.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71053.jpgsave_picture_71053.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8762.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8762.jpgsave_picture_8762.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:5DBE44DC80E9BCB30AEEDD243E0108A639D6C6DB
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8763.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8763.jpgsave_picture_8763.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:68A982E7F5111792D3D7006DC4AFC29342E53A94
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8764.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8764.jpgsave_picture_8764.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:356A4ADD608A3E5074EF50F4F50FFA1A7A05EC47
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8766.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8766.jpgsave_picture_8766.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:E34173B0995B0F868FA45BA5227509AD0EABFC40
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8767.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8767.jpgsave_picture_8767.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:E34173B0995B0F868FA45BA5227509AD0EABFC40
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8768.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8768.jpgsave_picture_8768.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:EC83FC44B407D513B5172D4DFFE234C9C8A2DB60
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8769.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8769.jpgsave_picture_8769.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:209F516051C89223FEE51546335028CC9E458F2C
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8770.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8770.jpgsave_picture_8770.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:BAA33F371F7D8A51E30A4A61A86109684796373D
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8771.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8771.jpgsave_picture_8771.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ magnet:?xt=urn:btih:5F726995B58B03981C918CFDDF1D9C37CE4A40E4
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8772.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8772.jpgsave_picture_8772.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ magnet:?xt=urn:btih:5C9FE740636F76CD03C858C0568FA0C561E31274
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8773.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8773.jpgsave_picture_8773.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ magnet:?xt=urn:btih:80261153249DB9AEB9089837B870F72B0E0F905B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8774.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8774.jpgsave_picture_8774.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:80261153249DB9AEB9089837B870F72B0E0F905B
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8775.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8775.jpgsave_picture_8775.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ magnet:?xt=urn:btih:AC9268101BF1C04E98800C331D2A70C76681C321
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8776.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8776.jpgsave_picture_8776.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ magnet:?xt=urn:btih:E0E717D844115547BA9DE756B63D8EA6726AD7FB
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8777.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8777.jpgsave_picture_8777.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Calibre 8.8.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8778.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8778.jpgsave_picture_8778.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ magnet:?xt=urn:btih:86EE2B6EC94BB7570858B72E5ABEB225A2946F82
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8779.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8779.jpgsave_picture_8779.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ magnet:?xt=urn:btih:F874F2B8C420241FF13614C8A1E78554FD3F8395
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8780.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8780.jpgsave_picture_8780.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ magnet:?xt=urn:btih:FC757AA6C1CB70261AAE3D6CE3F230965688CA0C
 >>Сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8781.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8781.jpgsave_picture_8781.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ VA - Compilation Part 181 Electronic, Vocal (2025) [MP3|320 Kbps] <Electronic, V
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8782.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8782.jpgsave_picture_8782.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ SnapEdit - AI photo editor v7.6.5 Mod by Alex.alex1928 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8783.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8783.jpgsave_picture_8783.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Presto Ballet - Studio Albums (7 releases) (2005-2025) hand made [restored, decl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8784.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8784.jpgsave_picture_8784.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ magnet:?xt=urn:btih:CA23955C9229958F8F94D6C8E3BB1722BC335FC0
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8785.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8785.jpgsave_picture_8785.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Queen - Rock N Roll (2025) Remastered, 2011 [FLAC|Lossless|WEB-DL|tracks] <Rock,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8786.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8786.jpgsave_picture_8786.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ magnet:?xt=urn:btih:584DF16A0A0129F69203E37DDC03876F9FDFE745
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8787.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8787.jpgsave_picture_8787.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ magnet:?xt=urn:btih:5181D1C4DD1BB9E321B9E57DA21F1F308284C111
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8788.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8788.jpgsave_picture_8788.jpg" />
 </div>
 
 

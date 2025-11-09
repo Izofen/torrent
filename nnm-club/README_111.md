@@ -6,7 +6,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2926.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2926.jpgsave_picture_2926.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:EDEAC901E2BB65A95F864C89FA2D173AE97F683F
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2927.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2927.jpgsave_picture_2927.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ Paris Kis - BLUES 6 (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2928.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2928.jpgsave_picture_2928.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ magnet:?xt=urn:btih:5D104211A4BB592142088D1A105276F572211E74
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2929.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2929.jpgsave_picture_2929.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ magnet:?xt=urn:btih:1E5A5801D2353046A41748DDD2FC4EFE44939691
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2930.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2930.jpgsave_picture_2930.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ Papik - Cocktail Sanremo, Vol. 1 (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2931.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2931.jpgsave_picture_2931.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ Sheena Easton - The Definitive 12" Singles, 1983-1987 (2025) [MP3|320 Kbps] <Pop
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2932.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2932.jpgsave_picture_2932.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ VA - Transorica Trance Dreams (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2933.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2933.jpgsave_picture_2933.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ magnet:?xt=urn:btih:BDD83A0D474CB891C41996AABB6C1AA87DDBEC23
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2934.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2934.jpgsave_picture_2934.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ VA - 25 Years Of Anjuna Mixed By Martin Roth (2025) [MP3|320 Kbps] <Progressive 
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2935.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2935.jpgsave_picture_2935.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ VA - Trance Fusion, Vol. 13 (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2936.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2936.jpgsave_picture_2936.jpg" />
 </div>
 
 
@@ -291,7 +291,7 @@ RG1 Project - Bourbon & Blues (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2937.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2937.jpgsave_picture_2937.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Kyle Culkin - Shades of Trouble (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2938.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2938.jpgsave_picture_2938.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ magnet:?xt=urn:btih:5C6AF1C22350608BFF0CEAC1D183FC44855B4B65
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2939.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2939.jpgsave_picture_2939.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ magnet:?xt=urn:btih:8A7AC03E951DCDF4F39608B1ACCD9727F719931B
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2940.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2940.jpgsave_picture_2940.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ Knightmare-Ds - Twisted Love (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2941.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2941.jpgsave_picture_2941.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ magnet:?xt=urn:btih:7673E7EBDDC1DDD669CBB020AD77930FDBDECE61
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2942.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2942.jpgsave_picture_2942.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ magnet:?xt=urn:btih:D1B9F178D85DDEBDCD00F368FD5DF02890A02A6E
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2943.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2943.jpgsave_picture_2943.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ magnet:?xt=urn:btih:3934810439D6853BD43CE1EB6D6B056152EB5A47
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2944.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2944.jpgsave_picture_2944.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Ice Cube - Man Up (2025) [FLAC|Lossless|WEB-DL|tracks] <Rap, Hip-Hop>
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2945.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2945.jpgsave_picture_2945.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ magnet:?xt=urn:btih:7033697B6BB1D5C75FE32577111511CE9DC0CD9E
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2946.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2946.jpgsave_picture_2946.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ magnet:?xt=urn:btih:5EB0B71971B91EF4AEF49BA96F8C86A9ABCD69BA
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2947.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2947.jpgsave_picture_2947.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ magnet:?xt=urn:btih:C49F2B3581FA836ABD9F58A0E12D654F1129D8E0
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2948.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2948.jpgsave_picture_2948.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ magnet:?xt=urn:btih:2BA85989B82D0979873D40E73E890E0FEAB04F41
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2949.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2949.jpgsave_picture_2949.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ PowerDirector – Video Editor v15.7.0 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2950.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2950.jpgsave_picture_2950.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ magnet:?xt=urn:btih:7BF2C6F091E8026A29211DAFCA22CF4514E014FF
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2951.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2951.jpgsave_picture_2951.jpg" />
 </div>
 
 

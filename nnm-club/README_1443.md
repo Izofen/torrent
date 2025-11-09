@@ -6,7 +6,7 @@ Third Party - Live @ Ministry Of Sound London, United Kingdom (2024-10-04) [MP3|
 >>Downtempo, Trip-Hop, Lounge
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37873.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37873.jpgsave_picture_37873.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:3EB71B49876F6077E8F70452FA7A69D0DEE17A84
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37874.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37874.jpgsave_picture_37874.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ Diego Galloso, Noam Garcia, Tibetania - Eastern Sun (Tibetania Records) (2024) [
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37875.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37875.jpgsave_picture_37875.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ Markus Schulz - Global DJ Broadcast World Tour: ADE 2024 in Amsterdam (2024-11-0
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37876.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37876.jpgsave_picture_37876.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Neal Morse - No Hill For A Climber (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <P
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37877.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37877.jpgsave_picture_37877.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ VA - Armin van Buuren - A State Of Trance 1198 (2024) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37878.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37878.jpgsave_picture_37878.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Gerry Mulligan with Jane Duboc - Paraiso: Jazz Brazil (2013) First Impression Mu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37879.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37879.jpgsave_picture_37879.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Racey - The Best Of (1993) (Australia) [FLAC|Lossless|tracks + .cue] <Pop-Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37880.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37880.jpgsave_picture_37880.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ magnet:?xt=urn:btih:41BD365D81168E566A9FE392362055C14E62BD88
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37881.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37881.jpgsave_picture_37881.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ magnet:?xt=urn:btih:6D0F2DE905C5B39DA029B2519EE4B5A50BDA0108
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37882.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37882.jpgsave_picture_37882.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ magnet:?xt=urn:btih:CEFE25AB27235306B3651B24C6DC97E1D0FF7511
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37883.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37883.jpgsave_picture_37883.jpg" />
 </div>
 
 
@@ -290,7 +290,7 @@ magnet:?xt=urn:btih:B99A61C306C681D9389CA4756FB347A9C2874155
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37884.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37884.jpgsave_picture_37884.jpg" />
 </div>
 
 
@@ -317,7 +317,7 @@ VA - Musical kaleidoscope part 11 (2024) [MP3|320 Kbps] <Electronic, Instrumenta
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37885.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37885.jpgsave_picture_37885.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ magnet:?xt=urn:btih:DCCD19C1E855081325931287EF344339518744D6
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37886.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37886.jpgsave_picture_37886.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ magnet:?xt=urn:btih:9F8012035C36FB910073FF46CC5198C5554BB64F
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37887.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37887.jpgsave_picture_37887.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ Bonnie Tyler - The Best (1993) (Austria) [FLAC|Lossless|tracks + .cue] <Pop-Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37888.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37888.jpgsave_picture_37888.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ magnet:?xt=urn:btih:0583506224CEF5C9B7D0361884FE25D5DD54D3B4
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37889.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37889.jpgsave_picture_37889.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ Speedtest от Ookla 5.5.0 Lite-Mod by Balatan [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37890.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37890.jpgsave_picture_37890.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ VA - Compilation part 129 Electronic (2024) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37891.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37891.jpgsave_picture_37891.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ magnet:?xt=urn:btih:AE1C949DB1382611E279512EB2E59D2F7A667FF1
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37892.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37892.jpgsave_picture_37892.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ VA - Music News For Forum vol.040 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37893.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37893.jpgsave_picture_37893.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ magnet:?xt=urn:btih:B8372B15C940F2A8992E8EC7288E81ECDA9B1163
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37894.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37894.jpgsave_picture_37894.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ VA - Compilation part 130 Electronic (2024) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37895.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37895.jpgsave_picture_37895.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ magnet:?xt=urn:btih:4AC6D527CA48B77E57BD31178390283D7E04122A
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37896.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37896.jpgsave_picture_37896.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ magnet:?xt=urn:btih:FD2F562762DF56D4606B7DD564C84E47E6A86F84
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37897.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37897.jpgsave_picture_37897.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ magnet:?xt=urn:btih:08D3EE98A379C138AFCF53667C594E4F9A5D92D8
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37898.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37898.jpgsave_picture_37898.jpg" />
 </div>
 
 

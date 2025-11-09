@@ -6,7 +6,7 @@ Sleazy Sweet - Sleazy Party (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Glam Met
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91157.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91157.jpgsave_picture_91157.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Elisabeth Elektra - Hypersigil (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Syn
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91158.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91158.jpgsave_picture_91158.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:82981C5124CACCCCBB38EC0E497664D4ACACCE95
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91159.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91159.jpgsave_picture_91159.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:FD88E2D6CDCB2E81D07BA297F2699EB2AE22415D
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91160.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91160.jpgsave_picture_91160.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ magnet:?xt=urn:btih:E1E93DB10F8AFD7E2F98B64218E18007CFC9468C
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91161.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91161.jpgsave_picture_91161.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Shabake | Мирские стремления [2025, TV, 1 из 12 эп.] WEBRip
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91162.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91162.jpgsave_picture_91162.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ magnet:?xt=urn:btih:C422F1B324E1DE3FC91BCD1E9798C7BA7AAB6E2A
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91163.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91163.jpgsave_picture_91163.jpg" />
 </div>
 
 
@@ -187,7 +187,7 @@ magnet:?xt=urn:btih:0576E187FB1B3C8CC58DF474D03F55857D4652C1
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91164.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91164.jpgsave_picture_91164.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ magnet:?xt=urn:btih:276F3ED6D3767EB6D50624D7DB66DBBD00C6C9C9
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91165.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91165.jpgsave_picture_91165.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ magnet:?xt=urn:btih:FACB9D32E1B967508600312E74A3105F6AFDB96B
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91166.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91166.jpgsave_picture_91166.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ Heartbeat in Thailand / Сердцебиение в Таиланде (2025) [Ru/
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91167.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91167.jpgsave_picture_91167.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ magnet:?xt=urn:btih:21D1907856B102ADFDA8806E49F8586DC6C2FD07
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91168.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91168.jpgsave_picture_91168.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ GPS АнтиРадар v51.0 Mod by Slavatv5 [Ru]
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91169.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91169.jpgsave_picture_91169.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ magnet:?xt=urn:btih:B3A38CA1FC66EB1F5ED50EAD79D867751484E177
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91170.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91170.jpgsave_picture_91170.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ Mary’s recipes: рецепты, меню v6.2.0 Mod by Alex.Strannik [Ru/Multi
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91171.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91171.jpgsave_picture_91171.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ magnet:?xt=urn:btih:BAA9F295203AD72B28B4AAFFED75D1459BBDD627
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91172.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91172.jpgsave_picture_91172.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ magnet:?xt=urn:btih:2384571D6330FDC938C1CC0BB83D3AE48F6202B2
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91173.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91173.jpgsave_picture_91173.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ MotoGP. Этап 18 из 22. Гран-при Индонезии. Спринт (0
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91174.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91174.jpgsave_picture_91174.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ magnet:?xt=urn:btih:C58A403E09607948155F04C7D1643E12478A9885
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91175.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91175.jpgsave_picture_91175.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ magnet:?xt=urn:btih:80248430DAC9D3A3D90AE436BE329D17F61AAE47
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91176.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91176.jpgsave_picture_91176.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ magnet:?xt=urn:btih:E25F73F4D512F1F654F7124DF12164E88C61C853
 >>Элементы (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91177.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91177.jpgsave_picture_91177.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ magnet:?xt=urn:btih:E43E5D4719D6D66C931A47A1E74E40B4ABB5ADB1
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91178.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91178.jpgsave_picture_91178.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ magnet:?xt=urn:btih:AE5F0923829ADA52C4576844BA643DB39A6F46AF
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91179.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91179.jpgsave_picture_91179.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ magnet:?xt=urn:btih:5DF88C2456A805267F8880BFBCF5EB9AB9890CB2
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91180.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91180.jpgsave_picture_91180.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Bryan Adams - Roll With The Punches (2025) 3 x CD, Deluxe Edition, Limited Editi
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91181.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91181.jpgsave_picture_91181.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Audified - MixChecker Ultra 1.0.2 VST 3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91182.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91182.jpgsave_picture_91182.jpg" />
 </div>
 
 

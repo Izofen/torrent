@@ -6,7 +6,7 @@ Chanto Suenai Kyuuketsuki-chan / Li'l Miss Vampire Can't Suck Right / Вампи
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126108.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126108.jpgsave_picture_126108.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Telegram Desktop 6.2.3 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126109.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126109.jpgsave_picture_126109.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:6DE248794C6DF04873D92713CF10EF09210233C3
 >>Сериалы DC Comics
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126110.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126110.jpgsave_picture_126110.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:75432FB43B44F6A1E3483E5EDF622F6C2B6752BC
 >>Отечественные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126111.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126111.jpgsave_picture_126111.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:CCC65FEBCD64DB6C38434DB1863712D43D1DD11D
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126112.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126112.jpgsave_picture_126112.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ VA - The Orient Collective: Desert Tones (2025) [FLAC|Lossless|WEB-DL|tracks] <W
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126113.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126113.jpgsave_picture_126113.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:EA81BF075B1E4AD45AEFA5D3BB0A5102A8BBEF35
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126114.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126114.jpgsave_picture_126114.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:760586AB5F7DB724A1BFCC4CB2B0BBEB0BAFF83A
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126115.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126115.jpgsave_picture_126115.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:A50D59015F41C2D560DF3A540E966EA65C04FD09
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126116.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126116.jpgsave_picture_126116.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ Download Master 7.2.2.1739 RePack (&Portable) by elchupacabra [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126117.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126117.jpgsave_picture_126117.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ GoodSync Enterprise 12.9.9.10 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126118.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126118.jpgsave_picture_126118.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ One Read / Все Документы Читатель - Офис v1.2.6 Mod by v
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126119.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126119.jpgsave_picture_126119.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:2598F5B16796D83BCDDE808F0441AB9A2335F0CB
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126120.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126120.jpgsave_picture_126120.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ magnet:?xt=urn:btih:5879891745344662CE74C28F80FA3DDA0506687B
 >>Картинки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126121.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126121.jpgsave_picture_126121.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ VA - Relaxed & Refined (The Chillout Experience) (2025) [FLAC|Lossless|WEB-DL|tr
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126122.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126122.jpgsave_picture_126122.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ magnet:?xt=urn:btih:6DF1F61301DD455F296B61E90153BE635FDEADD5
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126123.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126123.jpgsave_picture_126123.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ VA - Massage Music (Soothing Vibes for Massage Bliss, Bodywork, and Total Relaxa
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126124.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126124.jpgsave_picture_126124.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ magnet:?xt=urn:btih:65FBEE45F15301833ED0C1C209E80F4D937BF0FD
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126125.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126125.jpgsave_picture_126125.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Magic Eraser / Магический ластик v2.23.22 Mod by Maximoff⁠ [Ru
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126126.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126126.jpgsave_picture_126126.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Process Lasso Pro 16.0.3.1 Beta RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126127.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126127.jpgsave_picture_126127.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ magnet:?xt=urn:btih:3CCA7781D26ED62DF12E9F799C59066D26C8F82F
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126128.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126128.jpgsave_picture_126128.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ magnet:?xt=urn:btih:837FF7D93CD1BCD532D92D43ED7B2ACFAC9C7DBF
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126129.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126129.jpgsave_picture_126129.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ magnet:?xt=urn:btih:F0919B38A10FED536F81EA3CD435FB5D5A71BCCC
 >>Кинолетопись Страны Советской
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126130.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126130.jpgsave_picture_126130.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ Udemy, Oner Oncer | 3ds Max + Corona Render Photorealistic 3D Rendering Course (
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126131.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126131.jpgsave_picture_126131.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ magnet:?xt=urn:btih:89DBDE9CE0CFA8D264CB417281EB7CD94D754EF3
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126133.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126133.jpgsave_picture_126133.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ Bandicam 7.0.2.2138 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126134.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126134.jpgsave_picture_126134.jpg" />
 </div>
 
 

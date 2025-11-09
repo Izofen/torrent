@@ -6,7 +6,7 @@ Royale Lynn - Black Magic (2025) [FLAC|Lossless|WEB-DL|tracks] <Alternative Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12020.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12020.jpgsave_picture_12020.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ PowerDirector – Video Editor v15.4.5 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12021.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12021.jpgsave_picture_12021.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:354F352F9FC37569002F30CC9E3C04D270A0ED6E
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12022.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12022.jpgsave_picture_12022.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:BED570502471D0649A140F813C3FE3FBBD5E8524
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12023.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12023.jpgsave_picture_12023.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ John William Gordon - John William Gordon (2005) CD, Album [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12024.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12024.jpgsave_picture_12024.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ VA - 101 Greatest Country Hits - Vol. Two: Country Sunshine (1994) [FLAC|Lossles
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12025.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12025.jpgsave_picture_12025.jpg" />
 </div>
 
 
@@ -161,7 +161,7 @@ Manic Depression - Escapade (2025) [MP3|320 Kbps] <Thrash Metal>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12026.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12026.jpgsave_picture_12026.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ magnet:?xt=urn:btih:7883D2F7394E30762A6D63C0E9A0F8C27F810A78
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12027.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12027.jpgsave_picture_12027.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Joan Baez - Gone From Danger (1997) CD, Album [FLAC|Lossless|tracks + .cue] <Pop
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12028.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12028.jpgsave_picture_12028.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Mark Murphy - Four Classic Albums (1956 - 1961) 2CD, 2022, Avid Jazz [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12029.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12029.jpgsave_picture_12029.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Device Info / Информация об устройстве v3.3.9.7 Mod by Bal
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12030.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12030.jpgsave_picture_12030.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ magnet:?xt=urn:btih:B45C2405F45DF14619FB7771CE249F252B2B9F92
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12031.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12031.jpgsave_picture_12031.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ VA - Midnight Whiskey Blues (2025) [MP3|320 Kbps] <Blues>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12032.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12032.jpgsave_picture_12032.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Ozzy Osbourne - Night Terrors (2024) [FLAC|24/96|image + .cue|Vinyl-Rip] <Heavy 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12033.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12033.jpgsave_picture_12033.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ magnet:?xt=urn:btih:6F0F2142130DC3800D13C567AC2C80EC241EAF30
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12034.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12034.jpgsave_picture_12034.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ magnet:?xt=urn:btih:666CCB2FD4C28E622A8F1C5D474C4A4ABF5164A2
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12035.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12035.jpgsave_picture_12035.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ Telegram Desktop 5.16.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12036.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12036.jpgsave_picture_12036.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ magnet:?xt=urn:btih:4DB06AC58ECB3BC895D52E7584C4C6CEDB0E01CF
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12037.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12037.jpgsave_picture_12037.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Wise Care 365 Pro 7.2.7.706 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12038.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12038.jpgsave_picture_12038.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ magnet:?xt=urn:btih:EE6054AC76CEA90921D0CFC3538DC857BAE7738B
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12039.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12039.jpgsave_picture_12039.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Purvpn 7.8 [En/Farsi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12040.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12040.jpgsave_picture_12040.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Google Chrome 138.0.7204.101 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12041.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12041.jpgsave_picture_12041.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ magnet:?xt=urn:btih:0ABAF14A8971DB715E0B404BB06F37F5995F9A4B
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12042.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12042.jpgsave_picture_12042.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ MediaHuman YouTube Downloader 3.9.14 (0807) RePack (& Portable) by Dodakaedr [Mu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12043.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12043.jpgsave_picture_12043.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ magnet:?xt=urn:btih:35E2D485776544F682A5FDC0EE468C51DFE6DE05
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12044.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12044.jpgsave_picture_12044.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ magnet:?xt=urn:btih:3DDCE5A6187F0E505E48C4D45C0B36DDCEC4C283
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12045.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12045.jpgsave_picture_12045.jpg" />
 </div>
 
 

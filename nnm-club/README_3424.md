@@ -6,7 +6,7 @@ VA - Danse d'ete 2024: la meilleure musique Dance pour votre ete par Hoop Record
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109385.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109385.jpgsave_picture_109385.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Soul Browser 1.4.20 Mod by derrin [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109386.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109386.jpgsave_picture_109386.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Niel De One - People Are People (2024) [FLAC|Lossless|WEB-DL|tracks] <House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109387.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109387.jpgsave_picture_109387.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ magnet:?xt=urn:btih:A283DBC1622EAF92D0525579AE32CE20D46B8BE2
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109388.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109388.jpgsave_picture_109388.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Hiroyuki Kubota - launch vehicle (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jaz
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109389.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109389.jpgsave_picture_109389.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ Bat - Under The Crooked Claw (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Speed 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109390.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109390.jpgsave_picture_109390.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ VA - Metal Massacre 04 (1983) [FLAC|24/192|image + .cue|Vinyl-Rip] <Heavy Metal,
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109391.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109391.jpgsave_picture_109391.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Elvellon - Ascending in Synergy (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Sy
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109392.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109392.jpgsave_picture_109392.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ VA - Metal Massacre 03 (1983) [FLAC|24/192|image + .cue|Vinyl-Rip] <Heavy Metal,
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109393.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109393.jpgsave_picture_109393.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Eddy Sloof - Ed's Groove Jazz Songs (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109394.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109394.jpgsave_picture_109394.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Combichrist - No Redemption (Official DMC Devil May Cry Soundtrack) (2013) [FLAC
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109395.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109395.jpgsave_picture_109395.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:E506487F985029777EA8C5E09A68CDC61A5EB00A
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109396.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109396.jpgsave_picture_109396.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ magnet:?xt=urn:btih:553C67D0005B8AB1DBEE5800C10B69FA9F3148A2
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109397.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109397.jpgsave_picture_109397.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Kerry King (Slayer) - From Hell I Rise (2024) [FLAC 24/48|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109398.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109398.jpgsave_picture_109398.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Slash - Orgy of the Damned (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues Roc
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109399.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109399.jpgsave_picture_109399.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Eat Defeat - My Money's On Me (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative,
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109400.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109400.jpgsave_picture_109400.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ magnet:?xt=urn:btih:EC6598C977FB9399E74B30639CCE5944B814F046
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109401.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109401.jpgsave_picture_109401.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Dino MC47 - Вне Номинаций (2008) [WavPack|Lossless|image + .cue] <Ja
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109402.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109402.jpgsave_picture_109402.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Niel De One - People Are People (The Remixes) (2024) [FLAC|Lossless|WEB-DL|track
 >>Dubstep, Future Garage, Bass Music, UK Garage (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109403.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109403.jpgsave_picture_109403.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ FIZICA - Что, если…? – Часть 1 (2024) [MP3|320 Kbps] <Pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109404.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109404.jpgsave_picture_109404.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ magnet:?xt=urn:btih:9B96BA902DF97217A98BFB3ECBF28CC932C2D717
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109405.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109405.jpgsave_picture_109405.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Corey Taylor - CMF2B... or Not 2B (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109406.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109406.jpgsave_picture_109406.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Beth Gibbons - Lives Outgrown (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Altern
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109407.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109407.jpgsave_picture_109407.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ magnet:?xt=urn:btih:D950045256EE027411C5DFFA187C928AE248D235
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109408.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109408.jpgsave_picture_109408.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ VA - Black Hole House Music 05-24 (2024) [MP3|320 Kbps] <House, Progressive Hous
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109409.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109409.jpgsave_picture_109409.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ Sun Moon Holy Cult - Sun Moon Holy Cult (2024) [FLAC|Lossless|WEB-DL|tracks] <st
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109410.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109410.jpgsave_picture_109410.jpg" />
 </div>
 
 

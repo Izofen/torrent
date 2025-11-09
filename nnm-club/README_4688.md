@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146750.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146750.jpgsave_picture_146750.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146751.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146751.jpgsave_picture_146751.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:6211A814C9E92F6F29D992B195617E1FDE2BC154
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146752.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146752.jpgsave_picture_146752.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:4394C3AF547B3D2FE7FCDEB45436EDB789091DA0
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146754.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146754.jpgsave_picture_146754.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:0A1C161632AD0A6048BC6BC8BED30D17AE9C92C1
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146755.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146755.jpgsave_picture_146755.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Neurotech - Symphonies (2016) [MP3|320 Kbps] <Industrial Metal, Symphonic Metal,
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146756.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146756.jpgsave_picture_146756.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ magnet:?xt=urn:btih:F8B5F2D8C6F200F28EF39D61C4C78FCB364B32BE
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146757.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146757.jpgsave_picture_146757.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:D2202CBF617744FAA2693DB855B1879B75505738
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146758.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146758.jpgsave_picture_146758.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:A895A129D7A029750CEB08D72628A02A4E98AB79
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146760.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146760.jpgsave_picture_146760.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:6EF0D6012FE4116900AEC82FA62308A2D2E5EA4D
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146761.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146761.jpgsave_picture_146761.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Aiseesoft Video Converter Ultimate 9.0.16 Portable by poni-koni [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146762.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146762.jpgsave_picture_146762.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ magnet:?xt=urn:btih:226A3D8866198F5129DD59EC0BABD433B6A09240
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146764.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146764.jpgsave_picture_146764.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ magnet:?xt=urn:btih:B54EC27723CE4A66879DE3D6CB4F7663BA8900AA
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146765.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146765.jpgsave_picture_146765.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ magnet:?xt=urn:btih:18280E2F657F65FD748A8CC6CDC2142BDCD2E9D2
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146766.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146766.jpgsave_picture_146766.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ magnet:?xt=urn:btih:31FB15BC1769D30B48B65F4E4EE7A02C6952068E
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146767.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146767.jpgsave_picture_146767.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ ProfiMail Go Full 4.19.24 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146768.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146768.jpgsave_picture_146768.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Movavi Screen Recorder 22.1.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146769.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146769.jpgsave_picture_146769.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Wondershare UniConverter 15.0.6.19 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146770.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146770.jpgsave_picture_146770.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ magnet:?xt=urn:btih:8A38D88CE17E7B8FB805E539851211A662C509DB
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146772.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146772.jpgsave_picture_146772.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ magnet:?xt=urn:btih:6825D9045F5BDBB6EC457B7D6CDF559CBB285596
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146773.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146773.jpgsave_picture_146773.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ magnet:?xt=urn:btih:99CCF574FF2F40B5E6A43C7AA0F7D8F4B338BC71
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146774.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146774.jpgsave_picture_146774.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ magnet:?xt=urn:btih:068341E7D002E372CE85E9EA78A7A6712B67168D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146775.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146775.jpgsave_picture_146775.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ magnet:?xt=urn:btih:EA19FED89CC2AE4B98AE9E5E2F0A1FD1661CC59F
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146777.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146777.jpgsave_picture_146777.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ magnet:?xt=urn:btih:EE232226B4FBD074E4ECB6D1BF44BFBBC9919E63
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146778.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146778.jpgsave_picture_146778.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ Big Pig - Bonk (1988) [MP3|320 Kbps] <Electronic Pop Rock, Synthpop, Funk>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146779.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146779.jpgsave_picture_146779.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ magnet:?xt=urn:btih:2A730AAAEF075076F90E4AF5A03CBF7DE393E446
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146781.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146781.jpgsave_picture_146781.jpg" />
 </div>
 
 

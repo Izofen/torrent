@@ -6,7 +6,7 @@
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66062.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66062.jpgsave_picture_66062.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Deadcode - Nothing And Nowhere (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66063.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66063.jpgsave_picture_66063.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Greye - VII (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66064.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66064.jpgsave_picture_66064.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ North Mississippi Allstars - Still Shakin' (2025) [FLAC 24/96|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66065.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66065.jpgsave_picture_66065.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Khold - Du Dommes Til Dod (2024) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66066.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66066.jpgsave_picture_66066.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Toad the Wet Sprocket - Fear (1991) [FLAC|Lossless|tracks + .cue] <Rock, Alterna
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66067.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66067.jpgsave_picture_66067.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ SM Society - Conster(nation) (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Ro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66068.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66068.jpgsave_picture_66068.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Pleasure Business - Pleasure Business (2025) [FLAC 24/88.2|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66069.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66069.jpgsave_picture_66069.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Nostrum - Infernal Tomb (2017) [FLAC|Lossless|WEB-DL|tracks] <Death, Doom, Sludg
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66070.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66070.jpgsave_picture_66070.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ KinKobra - Kobra's Forever (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66071.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66071.jpgsave_picture_66071.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Little Barrie & Malcolm Catto - Electric War (2025) [FLAC 24/48|Lossless|WEB-DL|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66072.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66072.jpgsave_picture_66072.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:4C235038F9E5F989C6D9C17CC4DCF123A2CCDEC8
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66073.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66073.jpgsave_picture_66073.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ magnet:?xt=urn:btih:95ACCA2E9E4C6E9F2C76777BF90D2B28F1A00493
 >>Старые Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66074.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66074.jpgsave_picture_66074.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ The Kinks - Come Dancing With The Kinks: The Best of The Kinks 1977–1986 (1986
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66075.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66075.jpgsave_picture_66075.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ magnet:?xt=urn:btih:76E6BFAA4E860A87419132C974E64912741C820B
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66076.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66076.jpgsave_picture_66076.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ magnet:?xt=urn:btih:A3023290AF6BC9EE1AF868D277CEC8FD111F5068
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66077.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66077.jpgsave_picture_66077.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ RPS - Annihilation (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66078.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66078.jpgsave_picture_66078.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ Ritos Paganos - Eternal Hate (2025) [MP3|320 Kbps] <Death, Thrash Metal, Hardcor
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66079.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66079.jpgsave_picture_66079.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ magnet:?xt=urn:btih:C522D9ED996E78344C918DFE318B217B1DF3A671
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66080.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66080.jpgsave_picture_66080.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Duran & Aytek - In Sight E.P. (2005) [FLAC|Lossless|WEB-DL|tracks] <Progressive 
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66081.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66081.jpgsave_picture_66081.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ magnet:?xt=urn:btih:F0B6B93153E47ED9C46A226FE393C294B72F6584
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66082.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66082.jpgsave_picture_66082.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Sabbrabells - Sabbrabells Complete Box (2018) Japanese Edition, Box Set, 9XCD, C
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66083.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66083.jpgsave_picture_66083.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Van Morrison - Remembering Now (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66084.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66084.jpgsave_picture_66084.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Tres Pistoleros e Dona Kay - On another level (2025) [FLAC 24/44.1|Lossless|WEB-
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66085.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66085.jpgsave_picture_66085.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Van Morrison & The Chieftains - Irish Heartbeat (1988) CD, Album [FLAC|Lossless|
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66086.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66086.jpgsave_picture_66086.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ magnet:?xt=urn:btih:2689FFC7BFC786A5832CCD905593CE567ED7490E
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66087.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66087.jpgsave_picture_66087.jpg" />
 </div>
 
 

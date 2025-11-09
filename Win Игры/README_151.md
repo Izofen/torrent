@@ -6,7 +6,7 @@ Corruption 2029 (2020) [Ru/Multi] (1.03) Scene Tenoke
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44273.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44273.jpgsave_picture_44273.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Don't Stare (2024) [En] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44289.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44289.jpgsave_picture_44289.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Perennial Order (2024) [Ru/Multi] (1.0) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44309.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44309.jpgsave_picture_44309.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Forklift Simulator (2024) [Ru/Multi] (1.0.6) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44316.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44316.jpgsave_picture_44316.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ CODE VEIN (2019) [Ru/Multi] (1.53.61787/dlc) Repack FitGirl [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44326.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44326.jpgsave_picture_44326.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Shadow of the Ninja Reborn (2024) [Multi] (1.0) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44331.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44331.jpgsave_picture_44331.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ WARCANA (2024) [Multi] (15354714) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44332.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44332.jpgsave_picture_44332.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Dungeons of Sundaria (2023) [Ru/Multi] (1.0.0.53803) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44339.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44339.jpgsave_picture_44339.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Selfloss (2024) [Ru/Multi] (1.0) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44344.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44344.jpgsave_picture_44344.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Skoof Simulator / Симулятор Скуфа (2024) [Ru/En] (1.0) Scene Tenok
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44348.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44348.jpgsave_picture_44348.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Three Kingdoms: The Last Warlord / Три королевства: Последн
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44355.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44355.jpgsave_picture_44355.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Punch Club 2: Fast Forward (2023) [Ru/Multi] (1.106/dlc) License GOG
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44367.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44367.jpgsave_picture_44367.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Chornobyl Liquidators (2024) [Ru/Multi] (1.02.18/dlc) Repack Decepticon
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44382.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44382.jpgsave_picture_44382.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Motel Manager Simulator (2024) [Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44421.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44421.jpgsave_picture_44421.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Survival: Fountain of Youth (2024) [Ru/Multi] (1648/dlc) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44455.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44455.jpgsave_picture_44455.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Corruption 2029 (2020) [Ru/Multi] (1.03) Repack FitGirl
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44463.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44463.jpgsave_picture_44463.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Resident Evil 3 (2020) [Ru/Multi] (1.07/dlc) Repack Decepticon
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44471.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44471.jpgsave_picture_44471.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Warhammer 40,000: Space Marine 2 (2024) [Ru/Multi] (Build 15521170/dlc) Repack F
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44478.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44478.jpgsave_picture_44478.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Lone Fungus (2022) [En] (1.1.14) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44516.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44516.jpgsave_picture_44516.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Kamikaze Lassplanes (2024) [Multi] (1.1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44525.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44525.jpgsave_picture_44525.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Kamikaze Lassplanes (2024) [Multi] (1.1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44541.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44541.jpgsave_picture_44541.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Why don't they laugh? (2024) [Ru/Multi] (1.08) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44543.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44543.jpgsave_picture_44543.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ GUNDAM BREAKER 4 (2024) [Multi] (1.0/dlc) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44551.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44551.jpgsave_picture_44551.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ The Casting of Frank Stone (2024) [Ru/Multi] (Build 15473676/dlc) Repack DjDI [D
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44557.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44557.jpgsave_picture_44557.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Sentinel Girls2: Snezhinka (2024) [Multi] (1.1.1) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44560.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44560.jpgsave_picture_44560.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Sunset Hills (2024) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44624.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44624.jpgsave_picture_44624.jpg" />
 </div>
 
 

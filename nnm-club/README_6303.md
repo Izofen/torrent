@@ -6,7 +6,7 @@
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_197485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197485.jpgsave_picture_197485.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:FDCB9E76F445AEA29BBA020161E88AD1B15C8396
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197486.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197486.jpgsave_picture_197486.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:DE48669A8CE4256AA6D5FC968F59526CD8810F8F
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197487.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197487.jpgsave_picture_197487.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ VA - Music News vol.269 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197488.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197488.jpgsave_picture_197488.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:84F0E5D3413250D1B1252A90174444B1460D9569
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197489.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197489.jpgsave_picture_197489.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Google Chrome 114.0.5735.110 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197490.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197490.jpgsave_picture_197490.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ OpenVMS 9.2 [amd64] 1xDVD
 >>Другие ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197492.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197492.jpgsave_picture_197492.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:180B6565999E79085109B281B64CC9972BDC0C26
 >>Морская полиция / Navy NCIS; Военно-юридическая служба / JAG
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_197493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197493.jpgsave_picture_197493.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Shestov Systems, Михаил Шестов | Английские глаголы
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197494.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197494.jpgsave_picture_197494.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Megacubo 17.0.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197495.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197495.jpgsave_picture_197495.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ IPTV Pro v7.0.6 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_197496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197496.jpgsave_picture_197496.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ New Guru, Елена Милгред | Согласование Времен. П�
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197497.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197497.jpgsave_picture_197497.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:E3C365D05F64EBE06C4B3F9B84EEB403BCC5B8DE
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197498.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197498.jpgsave_picture_197498.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:7182B1F78AE9260B8919A7D59B64E1A257F022A2
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197499.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197499.jpgsave_picture_197499.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ magnet:?xt=urn:btih:AE395F8EFD97F2E7453C9CBF3F3E06B05386C319
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197500.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197500.jpgsave_picture_197500.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:0F72CC7FCC76236E52D9820918876C0758396CAE
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197501.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197501.jpgsave_picture_197501.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ magnet:?xt=urn:btih:17F0A86F5690CB96156757DC35352E28793EE87A
 >>Футажи
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_197502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197502.jpgsave_picture_197502.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ magnet:?xt=urn:btih:FDB365EED91FBEFBE594A03BC475451A5F5089DC
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197503.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197503.jpgsave_picture_197503.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ magnet:?xt=urn:btih:2E41B75758BC18832A73D81BA9F8A934F9047F2C
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_197504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197504.jpgsave_picture_197504.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ No Man's Sky v4.25 (2023) [Multi/Ru] [macOS Native game]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197505.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197505.jpgsave_picture_197505.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ Internet Download Manager 6.41 Build 14 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197506.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197506.jpgsave_picture_197506.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ Reg Organizer 9.20 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197507.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197507.jpgsave_picture_197507.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ magnet:?xt=urn:btih:FB8E33104A8B00B15BA2B5B7F45AB56883682F0E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197508.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197508.jpgsave_picture_197508.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ magnet:?xt=urn:btih:58CB85062B7CF328846624CB6F7E3436AC397A02
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197509.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197509.jpgsave_picture_197509.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ magnet:?xt=urn:btih:25041796A14E2880B48B1DC9F00B6A95660CAB35
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197510.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197510.jpgsave_picture_197510.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ magnet:?xt=urn:btih:57D43AE69D28B9AED661D5A0F17D2ABFF7566240
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197511.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197511.jpgsave_picture_197511.jpg" />
 </div>
 
 

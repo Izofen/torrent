@@ -6,7 +6,7 @@ Europa (2024) [Ru/Multi] (build 16022486) Repack dixen18
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39606.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39606.jpgsave_picture_39606.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Road 96: Mile 0 (2023) [Ru/Multi] (1.2.04) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39626.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39626.jpgsave_picture_39626.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Ereban: Shadow Legacy (2024) [Ru/Multi] (1.2.12) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39724.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39724.jpgsave_picture_39724.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Epstein 2 (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39729.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39729.jpgsave_picture_39729.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ The Talos Principle II (2) (2023) [Ru/Multi] (2.2.0/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39732.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39732.jpgsave_picture_39732.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Unknown 9: Awakening (2024) [Ru/Multi] (Build 16069251/dlc) Repack FitGirl [Delu
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39826.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39826.jpgsave_picture_39826.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Arsene Lupin - Once a Thief (2024) [Ru/Multi] (1.02) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39845.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39845.jpgsave_picture_39845.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Arsene Lupin - Once a Thief (2024) [Ru/Multi] (1.02) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39878.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39878.jpgsave_picture_39878.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ A Quiet Place: The Road Ahead (2024) (1.0.0/dlc) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39879.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39879.jpgsave_picture_39879.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ The Holy Gosh Darn (2024) [Ru/Multi] (1.1.1) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39881.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39881.jpgsave_picture_39881.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Unknown 9: Awakening (2024) [Ru/Multi] (build 16069251) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39896.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39896.jpgsave_picture_39896.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ A Quiet Place: The Road Ahead (2024) (1.0.0) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39904.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39904.jpgsave_picture_39904.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Arsene Lupin - Once a Thief (2024) [Ru/Multi] (1.02) Scene FAiRLiGHT
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39921.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39921.jpgsave_picture_39921.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Neva (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40106.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40106.jpgsave_picture_40106.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ The Devil is in the Details (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40134.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40134.jpgsave_picture_40134.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ The Will of Arthur Flabbington (2023) [Multi] (2.1.2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40519.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40519.jpgsave_picture_40519.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Master Detective Archives: RAIN CODE Plus (2024) [Multi] (1.0) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40525.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40525.jpgsave_picture_40525.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ The Talos Principle 2 (2023) [Ru/Multi] (2.2.0/dlc) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40540.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40540.jpgsave_picture_40540.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Europa (2024) [Multi] (1.0) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40633.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40633.jpgsave_picture_40633.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ The Holy Gosh Darn (2024) [Ru/Multi] (1.1.1) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40693.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40693.jpgsave_picture_40693.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ The Forest (2018) [Ru/Multi] (1.12) Repack Pioneer
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40723.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40723.jpgsave_picture_40723.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ The Dark Pictures Anthology: The Devil in Me (2022) [Ru/Multi] (build 11855829/d
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40730.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40730.jpgsave_picture_40730.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Medieval Delivery (2023) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40736.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40736.jpgsave_picture_40736.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Arctico (2022) [Ru/Multi] (2.2a) Repack Pioneer
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40877.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40877.jpgsave_picture_40877.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Silent Hill 2 Remake (2024) [Ru/Multi] (1.1.236.114/dlc) Repack FitGirl [Digital
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41208.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41208.jpgsave_picture_41208.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Silent Hill 2 Remake (2024) [Ru/Multi] (1.1.236.114/dlc) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41218.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41218.jpgsave_picture_41218.jpg" />
 </div>
 
 

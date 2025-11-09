@@ -6,7 +6,7 @@ VA - Русский Avto Club (2012) [MP3|320 kbps]<Club | Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98204.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98204.jpgsave_picture_98204.jpg" />
 </div>
 
 
@@ -39,7 +39,7 @@ VA - Водочку пьём! Баллады любимому напитку (20
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98212.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98212.jpgsave_picture_98212.jpg" />
 </div>
 
 
@@ -72,7 +72,7 @@ VA - Party Hits (2012) [MP3|320 кб/с]<Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98224.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98224.jpgsave_picture_98224.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ VA - Сборник лучших REMIXов - Mix рандеву 2CD (2012) [MP3|
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98227.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98227.jpgsave_picture_98227.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ VA - Весенние Новинки Русского Радио (2012) [MP3|256
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98244.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98244.jpgsave_picture_98244.jpg" />
 </div>
 
 
@@ -171,7 +171,7 @@ VA - MAXI. Романтика Русского Рока (2012) [MP3|320 кб/с]
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98256.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98256.jpgsave_picture_98256.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ VA - Disco Stars (2012) [MP3|320 kbps]<Pop | Italo-Disco>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98262.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98262.jpgsave_picture_98262.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ VA - Дискотека "Наступает Ночь" (2012) [MP3|256 kbps]<Disc
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98273.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98273.jpgsave_picture_98273.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ VA - Erotic Feelings: 30 Sexy Lounge Tracks For Passionated Moments (2012) [MP3|
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98280.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98280.jpgsave_picture_98280.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ VA - 20 Progressive House Tunes Vol.2 (2012) [MP3|320 кб/с]<House, Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98285.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98285.jpgsave_picture_98285.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ VA - Trance Maniacs Party: Progressive Session #35 (2012) [MP3|320 кб/с]<Tran
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98292.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98292.jpgsave_picture_98292.jpg" />
 </div>
 
 
@@ -365,7 +365,7 @@ VA - Trance Ministry 2CD (2012) [MP3|320 кб/с]<Trance, Hard Trance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98294.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98294.jpgsave_picture_98294.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ VA - Avto Club April (2012) [MP3|320 kbps]<Club | Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98308.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98308.jpgsave_picture_98308.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ VA - Klubnye novinki Vol.58 from AGR (2012) [MP3|320 кб/с]<Club, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98317.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98317.jpgsave_picture_98317.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ VA - Head Over Dancing (27.03.2012) [MP3|~200-320 кб/с]<Dance, House>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98321.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98321.jpgsave_picture_98321.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ VA - Mega Dance Spring 2012 Top 100 (2012) [MP3|217-281 kbps]<Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98353.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98353.jpgsave_picture_98353.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ VA - Энергетик Бум!!! Зарубежный (2012) [MP3|256 kbps]<Pop
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98407.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98407.jpgsave_picture_98407.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ VA - Союз Хитовый Часть 2 (2012) [MP3|256-320 kbps]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98453.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98453.jpgsave_picture_98453.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ VA - MAXI. Новое на MTV (2012) [MP3|256-320 kbps]<Pop | Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98457.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98457.jpgsave_picture_98457.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ VA - Граммофон Рекордс (2012) [MP3|256 kbps]<Pop | Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98480.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98480.jpgsave_picture_98480.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ VA - Club Mix (2012) [MP3|256 kbps]<Club | Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98526.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98526.jpgsave_picture_98526.jpg" />
 </div>
 
 
@@ -695,7 +695,7 @@ VA - Муз-прорыв Record 50/50 (2012) [MP3|160-320 кб/с]<Club>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98533.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98533.jpgsave_picture_98533.jpg" />
 </div>
 
 
@@ -728,7 +728,7 @@ VA - Танцевальный клубный поп хит vol.4 (2012) [MP3|256
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98542.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98542.jpgsave_picture_98542.jpg" />
 </div>
 
 
@@ -761,7 +761,7 @@ VA - XXXL зарубежный (2012) [MP3|192-256 кб/с]<Pop ,Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98546.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98546.jpgsave_picture_98546.jpg" />
 </div>
 
 
@@ -794,7 +794,7 @@ Various Artists - Tranceffect 16 (2012) [MP3|320 кб/с]<Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98558.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98558.jpgsave_picture_98558.jpg" />
 </div>
 
 
@@ -827,7 +827,7 @@ VA - Весенний Кураж Европы Плюс (2012) [MP3|256 кб/с]<
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98608.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98608.jpgsave_picture_98608.jpg" />
 </div>
 
 

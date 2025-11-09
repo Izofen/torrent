@@ -6,7 +6,7 @@ Wise Disk Cleaner 11.1.5.831 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105251.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105251.jpgsave_picture_105251.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:8F6EDADECDCE95C23DA27EF54B69148028564ACA
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105252.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105252.jpgsave_picture_105252.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:01A3852F0A6EBE62B4AFDE6BCF53DA572B221966
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105253.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105253.jpgsave_picture_105253.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ Avidemux 2.8.2 Nightly (r240811) + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105254.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105254.jpgsave_picture_105254.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:1F47505494B3B345F2EEA44A4555652CE4EFF6CB
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105255.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105255.jpgsave_picture_105255.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Bloodcrown - Sound of Flesh and Bone (2024) [FLAC|Lossless|WEB-DL|tracks] <Death
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105256.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105256.jpgsave_picture_105256.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ Cognitive Dissonance - Return To The Flame (2022) [FLAC|Lossless|WEB-DL|tracks] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105257.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105257.jpgsave_picture_105257.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ magnet:?xt=urn:btih:F5153F163D38E683C19535BF1F5AE6B921AC87B8
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105258.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105258.jpgsave_picture_105258.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ magnet:?xt=urn:btih:4AE6336808DF50F3CEF5A3014C5DB200A7AF5FA9
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105259.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105259.jpgsave_picture_105259.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ magnet:?xt=urn:btih:748EED0506138EB6277061D9B66948BA2FC7B441
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105260.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105260.jpgsave_picture_105260.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ magnet:?xt=urn:btih:64282E72B0995B55059CF8BF8A9A240E9086501E
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105261.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105261.jpgsave_picture_105261.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ VA - Trance Summer 2024 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105262.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105262.jpgsave_picture_105262.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ Fontaines D.C. - Romance (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105263.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105263.jpgsave_picture_105263.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ Devon Allman - Miami Moon (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues, Blues Roc
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105264.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105264.jpgsave_picture_105264.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ magnet:?xt=urn:btih:E7C459F283E406B5ED80E5F6E00E0BEACADE24B3
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105265.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105265.jpgsave_picture_105265.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ magnet:?xt=urn:btih:6BC9D15592C5FA6CA8D299BEC8C720993E7110DC
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105266.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105266.jpgsave_picture_105266.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ Virgin Steele - Guardians Of The Flame (1983) Reissue, Remastered, 2024, Steamha
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105267.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105267.jpgsave_picture_105267.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Nighthawk - Midnight Hunter (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105268.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105268.jpgsave_picture_105268.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Simone Simons - Vermillion (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Modern Me
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105269.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105269.jpgsave_picture_105269.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ magnet:?xt=urn:btih:E7F2137F579B1298A10682B9CED46A18727F7938
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105270.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105270.jpgsave_picture_105270.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Virgin Steele - Virgin Steele I (1982) Reissue, Remastered, 2024, Steamhammer, T
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105271.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105271.jpgsave_picture_105271.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ magnet:?xt=urn:btih:46E00A0B1131FF7C9EA8170E9BEC2F694F5C1F4D
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105272.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105272.jpgsave_picture_105272.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ magnet:?xt=urn:btih:A2028D2FC53D777372DE9C1C1E3AC71913FCFFDE
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105273.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105273.jpgsave_picture_105273.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ VA - Top July 2024 Uplifting Trance (2024) [MP3|320 Kbps] <Trance, Uplifting Tra
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105274.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105274.jpgsave_picture_105274.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ magnet:?xt=urn:btih:1784E41B9A4565D879A56080F9EA4C88596BBCDB
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105275.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105275.jpgsave_picture_105275.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ Fleshgod Apocalypse - Opera (2024) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Deat
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105276.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105276.jpgsave_picture_105276.jpg" />
 </div>
 
 

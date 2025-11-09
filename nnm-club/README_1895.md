@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49627.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49627.jpgsave_picture_49627.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:08AEE975EADC561DC6EAFCD487B606A1F711DDE3
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49628.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49628.jpgsave_picture_49628.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ ISO Workshop 13.0 Pro RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49629.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49629.jpgsave_picture_49629.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ OCCT 13.1.1 Final Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49630.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49630.jpgsave_picture_49630.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Love Music Zone, Smooth Jazz Music Ensemble - Charming Nights: Sensual Collectio
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49631.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49631.jpgsave_picture_49631.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:438604DD7F02ACBA8D54221A9F340BC39379C4E4
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49632.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49632.jpgsave_picture_49632.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:F734DBA2B2C5E532E2E90E202D7669D6D448217F
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49633.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49633.jpgsave_picture_49633.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:96EAF8E428DD5A27DB74B5AB74F9A9FA90E7842E
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49634.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49634.jpgsave_picture_49634.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ R-Studio Network 9.4 Build 191338 (x64) RePack (& Portable) by TryRooM [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49635.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49635.jpgsave_picture_49635.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:D7F0BEAFAF19C6ED4B2024A6F7E739DE4E7126AD
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49636.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49636.jpgsave_picture_49636.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:5B05A2FA547A9C1572937E626FBAED480071EF96
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49637.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49637.jpgsave_picture_49637.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Adobe Animate 2024 24.0.4.28 (x64) Portable by 7997 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49638.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49638.jpgsave_picture_49638.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:805E47AC664838A4251C54A502498B75C460BF90
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49639.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49639.jpgsave_picture_49639.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ magnet:?xt=urn:btih:6A4F84BE9A2983C02726468C36E609A10D1D19E6
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49640.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49640.jpgsave_picture_49640.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ TeleMorpher (2024) [Multi] (1.0) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49641.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49641.jpgsave_picture_49641.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ magnet:?xt=urn:btih:AE97129A141D899B9992FBE84851A4513D7C7125
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49642.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49642.jpgsave_picture_49642.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ Grouls (2024) [En] (0.5) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49643.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49643.jpgsave_picture_49643.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ magnet:?xt=urn:btih:54E22F9DDABE903E479B87BAF0FC080F5DA551DB
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49644.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49644.jpgsave_picture_49644.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ O&O DeskInfo 1.3.1347 Portable [Multi]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49645.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49645.jpgsave_picture_49645.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ magnet:?xt=urn:btih:1451A6FF05F0113AA52E9E9314B0C9E31121B02D
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49646.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49646.jpgsave_picture_49646.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Auslogics Driver Updater 1.26.0.2 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49647.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49647.jpgsave_picture_49647.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:517F6F9359F38DC5F066BFF231FCBB7615055926
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49648.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49648.jpgsave_picture_49648.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ WinX HD Video Converter Deluxe 5.18.1 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49649.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49649.jpgsave_picture_49649.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Ladder it Up! (2024) [En] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49650.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49650.jpgsave_picture_49650.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ magnet:?xt=urn:btih:FBFB28B6674683741DC91B642C31B99348047CAC
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49651.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49651.jpgsave_picture_49651.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ NetBalancer 12.4.1.3834 RePack by elchupacabra [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49652.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49652.jpgsave_picture_49652.jpg" />
 </div>
 
 

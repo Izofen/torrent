@@ -6,7 +6,7 @@ VA - Звездная Дискотека Хит FM (2012) [MP3|256 кб/с]<Ро
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90580.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90580.jpgsave_picture_90580.jpg" />
 </div>
 
 
@@ -39,7 +39,7 @@ magnet:?xt=urn:btih:05961F8BAB9552341B1A5D72E3A5A81809D5FF61
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90581.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90581.jpgsave_picture_90581.jpg" />
 </div>
 
 
@@ -71,7 +71,7 @@ Bebo Best & Super Lounge Orchestra - Saronno On The Rocks (2011) [FLAC|Lossless]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90582.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90582.jpgsave_picture_90582.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ Europe - Bag Of Bones [Japanese Edition] (2012) [MP3|192 кб/с]<Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90584.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90584.jpgsave_picture_90584.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ magnet:?xt=urn:btih:481A922A167C08A76FBE865B396E2AF8D2B279A7
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90587.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90587.jpgsave_picture_90587.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ magnet:?xt=urn:btih:9ACC8FCE57AF0E9E3EEBE56CE7E33E84FC368F0F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90594.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90594.jpgsave_picture_90594.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Sunmonx - Power Salad (2012) [FLAC|Lossless]<Dub , Downtempo , Ambient>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90595.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90595.jpgsave_picture_90595.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Sunmonx - Power Salad (2012)
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90596.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90596.jpgsave_picture_90596.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ magnet:?xt=urn:btih:401000A65DD4214E41341B86F2B9FD3BB89960A2
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90600.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90600.jpgsave_picture_90600.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ magnet:?xt=urn:btih:ECF463D780950317FACA8C34238E6E3A9CBFF8EC
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90601.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90601.jpgsave_picture_90601.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ magnet:?xt=urn:btih:28EE4555436C76B5243479BCAED07B889DC80E30
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90602.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90602.jpgsave_picture_90602.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ VA - В Машину! Клубный Vol.2 (2012) [MP3|192 кб/с]<Dance, Club>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90604.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90604.jpgsave_picture_90604.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ Tor Even Mathisen - Aurora Borealis (Релакс) (2012) HDRip [H.264/720p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90607.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90607.jpgsave_picture_90607.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ magnet:?xt=urn:btih:883EF7624EC2A09DAC657C7E475E2E646AA51DBE
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90608.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90608.jpgsave_picture_90608.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ magnet:?xt=urn:btih:427916202D26C39A423C425BCB9CA6804A1327E5
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90609.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90609.jpgsave_picture_90609.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Tor Even Mathisen - Novemberfrost (Релакс) (2012) HDRip [H.264/720p]
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90610.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90610.jpgsave_picture_90610.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ VA - Планета детства (1997) [MP3|320 кб/с]<Pop, песни дл
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90611.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90611.jpgsave_picture_90611.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ VA - Electro Life 17 (by ZiP) (2012) [MP3|320 kbps]<Electro House, Progressive H
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90612.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90612.jpgsave_picture_90612.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ magnet:?xt=urn:btih:DF77C12B41A68AB19B75E25831C3D32624F65F31
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90615.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90615.jpgsave_picture_90615.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ magnet:?xt=urn:btih:DF77C12B41A68AB19B75E25831C3D32624F65F31
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90616.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90616.jpgsave_picture_90616.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Asbaar - 2 albums (2010) [FLAC|Lossless] <Dark Ambient, Drone Ambient>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90617.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90617.jpgsave_picture_90617.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Nu:Tone - Beliefs / Beatnik (2007) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90620.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90620.jpgsave_picture_90620.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ Nu:Tone - Beliefs / Beatnik (2007) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90621.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90621.jpgsave_picture_90621.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ magnet:?xt=urn:btih:5F3A858D6E5014088CEACD2F29C74797B0C3578B
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90622.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90622.jpgsave_picture_90622.jpg" />
 </div>
 
 
@@ -685,7 +685,7 @@ magnet:?xt=urn:btih:A9CF23BF5110B62DE2CAB7842CA5D1A15C4F8597
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90624.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90624.jpgsave_picture_90624.jpg" />
 </div>
 
 
@@ -709,7 +709,7 @@ magnet:?xt=urn:btih:A9CF23BF5110B62DE2CAB7842CA5D1A15C4F8597
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90626.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90626.jpgsave_picture_90626.jpg" />
 </div>
 
 

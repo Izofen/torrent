@@ -6,7 +6,7 @@
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53199.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53199.jpgsave_picture_53199.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:1027491647BD0E856F39AFD89951C55ACA801548
 >>Футбол. Чемпионаты Европы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53200.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53200.jpgsave_picture_53200.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:EBD79F8D08FEE470BDF54599C3158DE35E047EFD
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53201.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53201.jpgsave_picture_53201.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ Seal - Seal (1994) Deluxe Edition, 2024, Warner Records Inc.[FLAC 24/44.1|Lossle
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53202.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53202.jpgsave_picture_53202.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ magnet:?xt=urn:btih:F913CAA91E895445C395875422EAAF102D9751C9
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53203.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53203.jpgsave_picture_53203.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ magnet:?xt=urn:btih:9FDC7D2B9740DC7C1242C4412589C0D0229664D6
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53204.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53204.jpgsave_picture_53204.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ magnet:?xt=urn:btih:9FDC7D2B9740DC7C1242C4412589C0D0229664D6
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53205.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53205.jpgsave_picture_53205.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:1CC05E107833BE903521B8A6C97080B9863F38D2
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53206.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53206.jpgsave_picture_53206.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ magnet:?xt=urn:btih:3FA4477947F4E756C6C4365C25E67ACC2A5A2A5D
 >>Футбол. Чемпионаты Европы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53207.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53207.jpgsave_picture_53207.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ magnet:?xt=urn:btih:0F608190BAE0DF130C932B604290F2B7D61E90A5
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53208.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53208.jpgsave_picture_53208.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ magnet:?xt=urn:btih:0F608190BAE0DF130C932B604290F2B7D61E90A5
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53209.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53209.jpgsave_picture_53209.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ JetBrains RubyMine 2024.1.3 Repack by Sitego [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53210.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53210.jpgsave_picture_53210.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ magnet:?xt=urn:btih:DA62D965B7A295C4C8B37170AC5E10AAB4CD0028
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53211.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53211.jpgsave_picture_53211.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ Internet Download Manager 6.42 Build 11 RePack by elchupacabra (15.06.2024) [Mul
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53212.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53212.jpgsave_picture_53212.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ magnet:?xt=urn:btih:F0809D0357A3E6A591615B519132B18006A84912
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53213.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53213.jpgsave_picture_53213.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ magnet:?xt=urn:btih:2D2E4DB6134D580D415417138A0495536DA3EDDE
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53214.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53214.jpgsave_picture_53214.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ magnet:?xt=urn:btih:998928F4381F998F9E5AFAF245C1F5A14C2E30D3
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53215.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53215.jpgsave_picture_53215.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ magnet:?xt=urn:btih:290ECE62FFBBA91EACBFB0F610E0432DBFD29229
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53216.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53216.jpgsave_picture_53216.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ JetBrains Rider 2024.1.3 Repack by Sitego [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53217.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53217.jpgsave_picture_53217.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ magnet:?xt=urn:btih:783FB75DC824F9B29CDEE9DC7DC59B43C032A9FF
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53218.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53218.jpgsave_picture_53218.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ magnet:?xt=urn:btih:1549654F104E9B99001963FA3A869AAEF5012FB3
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53219.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53219.jpgsave_picture_53219.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Viber 22.9.0.2 (x64) RePack (Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53220.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53220.jpgsave_picture_53220.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ magnet:?xt=urn:btih:C01DD474772996105265304F506EA8E4747B0656
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53221.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53221.jpgsave_picture_53221.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ VA - Sabadell Sound 2 - The Ultimate Collection (2024) 2xCD, Compilation [FLAC|L
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53222.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53222.jpgsave_picture_53222.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ magnet:?xt=urn:btih:26716355D07E25FFF794440A0D512BA1CFC2F602
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53223.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53223.jpgsave_picture_53223.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ magnet:?xt=urn:btih:3B9A5AA7FCA8C2D9DFA3DF3DC22FEB4302076031
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53224.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53224.jpgsave_picture_53224.jpg" />
 </div>
 
 

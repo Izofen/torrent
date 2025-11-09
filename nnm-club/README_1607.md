@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42139.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42139.jpgsave_picture_42139.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ IObit Driver Booster Pro 12.0.0.354 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42140.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42140.jpgsave_picture_42140.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:5E59046A100578E3F5ED87504F71BCF2C9A725BE
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42141.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42141.jpgsave_picture_42141.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Iron Meat (2024) [Ru/Multi] (1.0.2) Scene SKIDROW
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42142.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42142.jpgsave_picture_42142.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:75A27A9EB562F3094152C395D92CDF67F40D5017
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42143.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42143.jpgsave_picture_42143.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:75A27A9EB562F3094152C395D92CDF67F40D5017
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42144.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42144.jpgsave_picture_42144.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Bjork / Greatest Hits: Volumen 1993-2003 (2003) DVD
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42145.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42145.jpgsave_picture_42145.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:E9754CF82EBC7F7636502D148FE74F970ABDD05C
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42146.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42146.jpgsave_picture_42146.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Frontier Hunter: Erza's Wheel of Fortune / Пограничный охотник
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42147.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42147.jpgsave_picture_42147.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ VA - Дискотека 2024 Dance Club Vol. 225 от NNNB [MP3|320 Kbps] <Pop, 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42148.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42148.jpgsave_picture_42148.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:AC5110D83C570E9664A71FAB5D5C60A14922EDB2
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42149.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42149.jpgsave_picture_42149.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ magnet:?xt=urn:btih:70FACDB1E7E3B41624EB84D6A86B4E3492FC8D32
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42150.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42150.jpgsave_picture_42150.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:C0EF23BBA08B3291875DE3475A0D73D091434E36
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42151.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42151.jpgsave_picture_42151.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Creatures of Ava (2024) [Ru/Multi] (1.0.2.2/dlc) License GOG [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42152.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42152.jpgsave_picture_42152.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ magnet:?xt=urn:btih:C3A2C149EF1CEC21B3A39400AF6C5A91ADC0265E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42153.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42153.jpgsave_picture_42153.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:F54CE28C356ADE970E5960975950BDA0A676CCF9
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42154.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42154.jpgsave_picture_42154.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ magnet:?xt=urn:btih:F322A0559B5533A424C10A72F4FAAAD03F72E2AE
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42155.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42155.jpgsave_picture_42155.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ Kono Sekai wa Fukanzen Sugiru | Quality Assurance in Another World | Этот м
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42156.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42156.jpgsave_picture_42156.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:B045172778AA135E26C0C064A9F68FD5CB28534C
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42157.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42157.jpgsave_picture_42157.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Last Epoch (2024) [Ru/Multi] (1.1.7.4/dlc) Repack Wanterlude
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42158.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42158.jpgsave_picture_42158.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Mechabellum (2023) [Ru/Multi] (1.0.0.4.1366) Scene Rune
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42159.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42159.jpgsave_picture_42159.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Naze Boku no Sekai o Dare mo Oboeteinai no ka? / Why Does Nobody Remember Me in 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42160.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42160.jpgsave_picture_42160.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ magnet:?xt=urn:btih:811BCB8873439FCC1A6AFDEF260FC49F9A212E5E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42161.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42161.jpgsave_picture_42161.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ magnet:?xt=urn:btih:F14A0AC23D69D511798C8BF8D16DC6750EB3544C
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42162.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42162.jpgsave_picture_42162.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ magnet:?xt=urn:btih:5037A0ED58E360A9CBF7E14E07FA7F6AEBAC9931
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42163.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42163.jpgsave_picture_42163.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ magnet:?xt=urn:btih:0D0557459B7A0767B38F7D785CC3F73C26A51327
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42164.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42164.jpgsave_picture_42164.jpg" />
 </div>
 
 

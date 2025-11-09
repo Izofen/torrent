@@ -6,7 +6,7 @@
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141244.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141244.jpgsave_picture_141244.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ George Moller | 100+ React Infographics (2023) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141375.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141375.jpgsave_picture_141375.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Amigoscode, Nelson | Microservices and Distributed Systems Updated 3 (2022) WEB-
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141398.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141398.jpgsave_picture_141398.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:6B76C8D7ABF59C7995A877A80112DBD40DA6B85C
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141505.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141505.jpgsave_picture_141505.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ Lynda.com | CSS: Gradients (2013) PCRec [H.264/720p-LQ]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141633.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141633.jpgsave_picture_141633.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ hamedbahram.io, Hamed Bahram | The Ultimate NextJs Course (2023) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141649.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141649.jpgsave_picture_141649.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ magnet:?xt=urn:btih:318B1500B9146381ACE700356D2A87F9391B9EE6
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142396.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142396.jpgsave_picture_142396.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ SuperHi, Lawrence Gosset, Rik Lomas | WordPress (2021) WEB-DL [En / En Sub]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143041.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143041.jpgsave_picture_143041.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ Dean Davis | UnixCBT Sol11x Edition (2015) WEB-DL [H.264] [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143166.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143166.jpgsave_picture_143166.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ Udemy, Lazy Programmer Team | Financial Engineering and Artificial Intelligence 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143647.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143647.jpgsave_picture_143647.jpg" />
 </div>
 
 
@@ -262,7 +262,7 @@ magnet:?xt=urn:btih:B1AD0188A0DBC5B81AD4FFC282169673F023131F
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143780.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143780.jpgsave_picture_143780.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ magnet:?xt=urn:btih:5448FCB78C792EC6DCFF93B3BE32EC55DD6B57EF
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144032.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144032.jpgsave_picture_144032.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Udemy, Dzianis Matveyenka | Java для начинающих. Level 1 (2021) WEB
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144192.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144192.jpgsave_picture_144192.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Udemy, Oleksiy Atroshchenko | Сети с нуля. Просто - о сложн
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144205.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144205.jpgsave_picture_144205.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Udemy, Sergei Semenov | Cypress на Реальном Проекте для На
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144391.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144391.jpgsave_picture_144391.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Udemy, Илья Фофанов | Архитектура ПО: Meta и SOLID пр
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144412.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144412.jpgsave_picture_144412.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ Udemy, Roman Trukhtanov | CSS – Как анимировать интерфей
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144664.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144664.jpgsave_picture_144664.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ Udemy, Hussein Nasser | Fundamentals of Database Engineering (2021) WEB-DL [En /
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144786.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144786.jpgsave_picture_144786.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Geekbrains | Frontend-разработчик. Часть 2 из 5 (2020) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144877.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144877.jpgsave_picture_144877.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ Udemy, Kazi Ariyan и др. | Laravel 8. PHP Фреймворк от А до Я 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144890.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144890.jpgsave_picture_144890.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ SmartData | Конференция по инженерии данных (2023) W
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145094.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145094.jpgsave_picture_145094.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ Udemy, Holczer Balazs | Параллелизм, многопоточность �
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145400.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145400.jpgsave_picture_145400.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Udemy, Clyde Matthew | *NEW* DOM 2020 Build Dynamic Websites with JavaScript Par
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145566.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145566.jpgsave_picture_145566.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Udemy, Clyde Matthew | *NEW* JavaScript Complete Grandmaster 2020. Ongoing Updat
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145824.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145824.jpgsave_picture_145824.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ YO DO, Кирилл Семаев | Курс Linux v 2.0. От 0 до Linux Ад�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146076.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146076.jpgsave_picture_146076.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ magnet:?xt=urn:btih:524AAB92776D9775814F88957CB6139629ABCC4D
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146381.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146381.jpgsave_picture_146381.jpg" />
 </div>
 
 

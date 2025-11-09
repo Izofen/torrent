@@ -6,7 +6,7 @@ Topaz Video AI 3.5.4 (x64) Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172982.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172982.jpgsave_picture_172982.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Nitro PDF Pro 14.13.0.7 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172983.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172983.jpgsave_picture_172983.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Dict Box - Английский словарь v8.8.1 Mod by Alex.Strannik [Ru/M
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172984.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172984.jpgsave_picture_172984.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ SplitCam 10.7.20 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172985.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172985.jpgsave_picture_172985.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Luminar Neo 1.14.1.12230 (x64) Portable by 7997 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172986.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172986.jpgsave_picture_172986.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:78448501C3546406A52BEA87253ED651A8A14D7B
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172987.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172987.jpgsave_picture_172987.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:C53B6D72DD2C2D6E1F5D65A6BAD1A7133E6B8671
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172988.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172988.jpgsave_picture_172988.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:E075AF59C2D00BB8B2FA63A828FFBB376CF8BB60
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172989.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172989.jpgsave_picture_172989.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ VA - Music News vol.306 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172990.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172990.jpgsave_picture_172990.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:7BE211073E1F3D05E773B9041EB76E4935E4B1D2
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172991.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172991.jpgsave_picture_172991.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:B855572761C31CA74DC18EF942CEBD88FDB511E1
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172992.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172992.jpgsave_picture_172992.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ DxO PhotoLab Elite 7.0.1 build 76 Portable by 7997 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172993.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172993.jpgsave_picture_172993.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Attribute Changer 11.30 + Portable [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172994.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172994.jpgsave_picture_172994.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ JRiver Media Center 31.0.69 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172995.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172995.jpgsave_picture_172995.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ magnet:?xt=urn:btih:230336492EDB658B863F978A0E1C4C65DE04EE3A
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172996.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172996.jpgsave_picture_172996.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Tajiq - Аль монах (2023) [MP3|320 Kbps] <Alternative, Art Rock, Experime
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172997.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172997.jpgsave_picture_172997.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Rick Astley - Are We There Yet? (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172998.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172998.jpgsave_picture_172998.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Mirror for Android TV 2.8 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172999.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172999.jpgsave_picture_172999.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ magnet:?xt=urn:btih:A4AD5E9B5D08963E83623041E86161145D309B4A
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173000.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173000.jpgsave_picture_173000.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Icecream Screen Recorder Pro 7.30 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173001.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173001.jpgsave_picture_173001.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Meduza - Meduza (2023) 2CD [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electronic, Da
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173002.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173002.jpgsave_picture_173002.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ The Who - Who’s Next (1971) Steven Wilson remix, 2023, UMC [FLAC 24/96|Lossles
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173003.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173003.jpgsave_picture_173003.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Ringo Starr - Rewind Forward (2023) EP [FLAC|Lossless|WEB-DL|tracks] <Pop Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173004.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173004.jpgsave_picture_173004.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Ashampoo Photo Optimizer 9.4.7.36 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173005.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173005.jpgsave_picture_173005.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ Wondershare PDFelement Pro OCR 10.0.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173006.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173006.jpgsave_picture_173006.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Gory Blister - Reborn From Hatred (2023) [FLAC|Lossless|WEB-DL|tracks] <Technica
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173007.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173007.jpgsave_picture_173007.jpg" />
 </div>
 
 

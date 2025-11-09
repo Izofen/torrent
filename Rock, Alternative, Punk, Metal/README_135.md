@@ -6,7 +6,7 @@ Kingston Wall - III - Tri - Logy (1994) Mix, 2024, Warner Music Finland [FLAC|Lo
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109618.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109618.jpgsave_picture_109618.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ El Moono - The Waking Sun (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109619.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109619.jpgsave_picture_109619.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Bal-Sagoth - The Chthonic Chronicles (2006) [FLAC|Lossless|image + .cue] <Sympho
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109621.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109621.jpgsave_picture_109621.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Sails of Serenity - Eternal Echoes (2024) [FLAC|Lossless|WEB-DL|tracks] <Progres
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109622.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109622.jpgsave_picture_109622.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Cats And Cats And Cats - Sweet Drunk Everyone (2006) ReMaster, 2024, Robot Needs
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109627.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109627.jpgsave_picture_109627.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Kanatami - Зависимость (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternat
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109631.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109631.jpgsave_picture_109631.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Incubus - Morning View XXIII (2001) Remastered, 2024, Incubus [FLAC|Lossless|WEB
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109633.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109633.jpgsave_picture_109633.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Rainbow Kitten Surprise - Love Hate Music Box (2024) [FLAC|Lossless|WEB-DL|track
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109634.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109634.jpgsave_picture_109634.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Sublime with Rome - Sublime with Rome (2024) [FLAC|Lossless|WEB-DL|tracks] <Regg
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109635.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109635.jpgsave_picture_109635.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Avrora - Любовь через провода (2014) [WavPack|Lossless|image +
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109637.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109637.jpgsave_picture_109637.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Fivebyfive - Phuck Around Phind Out (2024) [FLAC|Lossless|WEB-DL|tracks] <Rapcor
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109638.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109638.jpgsave_picture_109638.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Hot Water Music - VOWS (2024) [FLAC|Lossless|WEB-DL|tracks] <Alt. Rock, Punk Roc
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109639.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109639.jpgsave_picture_109639.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Metal Riot - Birth of Terror (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109642.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109642.jpgsave_picture_109642.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ MAMA RUSSIA - Любовь, комсомол и роботы (2024) [FLAC|Lossle
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109645.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109645.jpgsave_picture_109645.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Burial Rot - Do Not Desecrate the Sleep of the Dead (2020) [FLAC|Lossless|image 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109666.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109666.jpgsave_picture_109666.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ The Hazytones - Wild Fever (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard-Rock, ston
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109668.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109668.jpgsave_picture_109668.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Southwicked - Death's Crown (2012) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109673.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109673.jpgsave_picture_109673.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Soziedad Alkoholika - Confrontación (2024) [FLAC|Lossless|WEB-DL|tracks] <Thras
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109689.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109689.jpgsave_picture_109689.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Refestramus - Intouríst (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock,
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109715.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109715.jpgsave_picture_109715.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ In Flames - Colony (1999) [FLAC|Lossless|image + .cue] <Melodic Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109718.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109718.jpgsave_picture_109718.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Burden of Oath - Shattered Realms (2024) [FLAC|Lossless|WEB-DL|tracks] <Power, T
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109720.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109720.jpgsave_picture_109720.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Fjordheksa - Ashlad (2024) [FLAC|Lossless|WEB-DL|tracks] <Stoner, Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109721.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109721.jpgsave_picture_109721.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Fange - Perdition (2024) [FLAC|Lossless|WEB-DL|tracks] <industrial, sludge, doom
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109722.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109722.jpgsave_picture_109722.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Demersal - Demersal (2024) [FLAC|Lossless|WEB-DL|tracks] <Emotional Hardcore, Sc
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109726.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109726.jpgsave_picture_109726.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ VA - Junk Boat Rock (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109727.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109727.jpgsave_picture_109727.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ magnet:?xt=urn:btih:FA4EFAE6092AD68C70FF3D4A3DF41C67239877F8
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109729.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109729.jpgsave_picture_109729.jpg" />
 </div>
 
 

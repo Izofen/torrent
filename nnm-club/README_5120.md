@@ -6,7 +6,7 @@
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159846.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159846.jpgsave_picture_159846.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:FAA5D18AAA3334E35CC1924CEEE739080DB503FC
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159847.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159847.jpgsave_picture_159847.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ CyberLink AudioDirector Ultra 14.0.3503.11 (x64) Portable by 7997 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159848.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159848.jpgsave_picture_159848.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:0CCF27B57A546081528A21741DD33FD9CA57E23C
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159849.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159849.jpgsave_picture_159849.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ James Blunt - Who We Used To Be (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Po
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159850.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159850.jpgsave_picture_159850.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:3524940E2773CC9148E3F7190D46B7F2F0EBF226
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159851.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159851.jpgsave_picture_159851.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ magnet:?xt=urn:btih:F7DA21CD3E804BC1B7EC1D5A7A0C5B029418A087
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159852.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159852.jpgsave_picture_159852.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:579D48A4218B484E511C6F51F8435E7CC2870FA3
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159853.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159853.jpgsave_picture_159853.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ WinCatalog 2024.3.4.1023 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159854.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159854.jpgsave_picture_159854.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ magnet:?xt=urn:btih:C7C231C02D4AB03477CF035433CFF146241C666B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159855.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159855.jpgsave_picture_159855.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ magnet:?xt=urn:btih:E3EE00DD2EF1ED83FE04460EE0C115B638F9E873
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159856.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159856.jpgsave_picture_159856.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ VA - Broken Beat & Nu Disco The Best Of (2022) CD, Compilation [MP3|320 Kbps] <S
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159857.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159857.jpgsave_picture_159857.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ magnet:?xt=urn:btih:A0D8DD1412BD6003FA612254572B57A54CC3FD5C
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159858.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159858.jpgsave_picture_159858.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ magnet:?xt=urn:btih:EF188E3CC11FE95FDFDF34C28B71958BBD491532
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159859.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159859.jpgsave_picture_159859.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ AI Transcription 2.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159860.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159860.jpgsave_picture_159860.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Runelord - Doomsday Script (2022) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159861.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159861.jpgsave_picture_159861.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ VA - Sweet Soulful: Chillout Your Mind (2023) [FLAC|Lossless|WEB-DL|tracks] <Bal
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159862.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159862.jpgsave_picture_159862.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ magnet:?xt=urn:btih:7D987330D4C108A857F8F6B621FEBEF8EDD08DB0
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159863.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159863.jpgsave_picture_159863.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ Butcher Babies - Studio Albums (5 releases) (2013-2023) hand made [restored, dec
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159864.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159864.jpgsave_picture_159864.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ magnet:?xt=urn:btih:0DA661C389E4F781C2601AB5481DEC028227949A
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159865.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159865.jpgsave_picture_159865.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ Skype 8.108.0.205 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159866.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159866.jpgsave_picture_159866.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Cabernet Deneuve - Смерти нет (2022) [MP3|320 Kbps] <Ska>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159867.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159867.jpgsave_picture_159867.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ magnet:?xt=urn:btih:A7890C7F2BC9175D6114CB69D8F4EFF70BD2550C
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159868.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159868.jpgsave_picture_159868.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ iMedia Cutter 5.6.7 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159869.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159869.jpgsave_picture_159869.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ magnet:?xt=urn:btih:EEB24B9F7B97C4D86534A2FB382959858E3DCD4C
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159870.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159870.jpgsave_picture_159870.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ magnet:?xt=urn:btih:0149B5490860B4B2A2218FDE7A402461A5CE31A3
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159871.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159871.jpgsave_picture_159871.jpg" />
 </div>
 
 

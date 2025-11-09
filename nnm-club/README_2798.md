@@ -6,7 +6,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79803.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79803.jpgsave_picture_79803.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79805.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79805.jpgsave_picture_79805.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ Kaspersky World 1.3.0.13 [Multi / Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79807.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79807.jpgsave_picture_79807.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ Kaspersky World – это комплексное решение для рабо
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79812.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79812.jpgsave_picture_79812.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ Eloy - 18 альбомов (1971-2009) Not Remastered [FLAC|Lossless|image + .cu
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79825.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79825.jpgsave_picture_79825.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ Eloy - 18 альбомов (1971-2009) Not Remastered [FLAC|Lossless|image + .cu
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79842.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79842.jpgsave_picture_79842.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ Eloy - 18 альбомов (1971-2009) Not Remastered [FLAC|Lossless|image + .cu
 >>PSP
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79844.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79844.jpgsave_picture_79844.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:7E31E47F8B4384F51D9DE9D065E4DBA800FA38DE
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79845.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79845.jpgsave_picture_79845.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ magnet:?xt=urn:btih:D207104463D95A2069543EDA9E2F4C3CC374BE48
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79858.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79858.jpgsave_picture_79858.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ magnet:?xt=urn:btih:D207104463D95A2069543EDA9E2F4C3CC374BE48
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79859.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79859.jpgsave_picture_79859.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ magnet:?xt=urn:btih:E842AECA27E0D97F3A49AF9C85EC4A39BE178F27
 >>Отечественные Мультфильмы 21-го века (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79865.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79865.jpgsave_picture_79865.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ magnet:?xt=urn:btih:49703EBF4B9B146847FA962852A9122EB8861230
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79870.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79870.jpgsave_picture_79870.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:623355D1F08C402FA13097526E67ED1F13E0CB70
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79885.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79885.jpgsave_picture_79885.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ magnet:?xt=urn:btih:623355D1F08C402FA13097526E67ED1F13E0CB70
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79892.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79892.jpgsave_picture_79892.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Deep Black Reloaded [Multi6/+] (L/1.2) 2012 | THETA
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79895.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79895.jpgsave_picture_79895.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Deep Black Reloaded [Multi6/+] (L/1.2) 2012 | THETA
 >>Драйверы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79901.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79901.jpgsave_picture_79901.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Mario Party 9 [Wii] [PAL] [Multi 5] (2012)
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79905.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79905.jpgsave_picture_79905.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Kaspersky Trial Reset 1.40 [Русский]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79906.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79906.jpgsave_picture_79906.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ Simatic Step 7 v5.5 SP2 (Multi)
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79907.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79907.jpgsave_picture_79907.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ STEP 7 - это базовый пакет программ, включающий
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79909.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79909.jpgsave_picture_79909.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ LG Electronics | Сборник схем и сервис-мануалов по �
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79913.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79913.jpgsave_picture_79913.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ LG Electronics | Сборник схем и сервис-мануалов по �
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79914.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79914.jpgsave_picture_79914.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ magnet:?xt=urn:btih:9407D36EB44EEA15049145B8B95E5D8CD101772F
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79925.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79925.jpgsave_picture_79925.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ VA - Club Trance vol.5 (2cd) (1997) [FLAC|Lossless]<Trance, Psy-Trance, Hard Tra
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79926.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79926.jpgsave_picture_79926.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ VA - Club Trance vol.5 (2cd) (1997) [FLAC|Lossless]<Trance, Psy-Trance, Hard Tra
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79927.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79927.jpgsave_picture_79927.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ magnet:?xt=urn:btih:BD4BB4D493B74C47D2E02EB164CA500417F9D77D
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79929.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79929.jpgsave_picture_79929.jpg" />
 </div>
 
 

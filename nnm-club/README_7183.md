@@ -6,7 +6,7 @@
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245711.jpgsave_picture_245711.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Memory PLUS 2.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245712.jpgsave_picture_245712.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:605BDB2A7791AF1BA694CE2BE98101D527820271
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245713.jpgsave_picture_245713.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:149476C2169C898AAF10879D91507A789DF37098
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245714.jpgsave_picture_245714.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Defleshed - Under the Blade (1997) Reissue 2000 [FLAC|Lossless|image + .cue] <Th
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245715.jpgsave_picture_245715.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ VA - The Rock Collection: Rock The World (1992) 2CD Compilation [FLAC|Lossless|t
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245716.jpgsave_picture_245716.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:16861D9146C64B5A73AAE66D05F7E9531AA674E4
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245717.jpgsave_picture_245717.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:649182F13488E10DD6925B27F558C225131D8F05
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245718.jpgsave_picture_245718.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ The Ray Camacho Band - Reach Out! (1980) 2016, PMG [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245719.jpgsave_picture_245719.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ Lord Mountain - The Oath (2023) [FLAC|Lossless|WEB-DL|tracks] <Stoner, Heavy, Do
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245720.jpgsave_picture_245720.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ magnet:?xt=urn:btih:E3EAD2439ED93977DAC9DC1AA0A31775ECA3166C
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245721.jpgsave_picture_245721.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ Firefox Browser 111.0.1 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245722.jpgsave_picture_245722.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ magnet:?xt=urn:btih:B45BADD4B3BFEC6DA0224031F42E3EA5017FE31E
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245723.jpgsave_picture_245723.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ VA - Beatport Trance: Electro Sound Pack #243 (2021) [MP3|320 Kbps] <Trance, Ele
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245724.jpgsave_picture_245724.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ magnet:?xt=urn:btih:B228E4FB0D0D5E9F7DE8DD8E7A305E7BA8C8F951
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245725.jpgsave_picture_245725.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ Mask of Prospero - Hiraeth (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive-Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245726.jpgsave_picture_245726.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ Camille Bertault - Bonjour mon amour (2023) [FLAC|Lossless|WEB-DL|tracks] <Conte
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245727.jpgsave_picture_245727.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Aiseesoft Video Converter Ultimate 10.6.22 RePack (& Portable) by TryRooM [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245728.jpgsave_picture_245728.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Internet Download Manager 6.41 Build 8 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245729.jpgsave_picture_245729.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ magnet:?xt=urn:btih:7083999EFE8A416E344F862E30DF05A663465778
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245730.jpgsave_picture_245730.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ VA - Lovely001 (2020) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245731.jpgsave_picture_245731.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ VA - Aimée Sol presents Lounge Attitudes, Vol. 1 (2021) [AAC|~321 Kbps] <Lounge
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245732.jpgsave_picture_245732.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ magnet:?xt=urn:btih:F26CFC9CCA8702EF90309F88D68ED240A9846602
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245733.jpgsave_picture_245733.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Nar Mattaru - Ancient Atomic Warfare (2015) [FLAC|Lossless|image + .cue] <Death 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245734.jpgsave_picture_245734.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Geekbench 6.0.1 Pro RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245735.jpgsave_picture_245735.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Velian - Godless (2019) [FLAC|Lossless|WEB-DL|tracks] <Melodic Gothic, Death Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245736.jpgsave_picture_245736.jpg" />
 </div>
 
 

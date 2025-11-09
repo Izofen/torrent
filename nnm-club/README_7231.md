@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247250.jpgsave_picture_247250.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:883EE2863CC34149DC5CC39F9F72FABD793F83D9
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247251.jpgsave_picture_247251.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:A7F564FE951E2DF7BA3BEECC97A37E0C70EC667D
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247252.jpgsave_picture_247252.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:56BDBE76D2484D9A241982DCC4BAC2C8F0735F0E
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247253.jpgsave_picture_247253.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:18C56F3E380ACB0DCEF4EEE8C28E38A95A3A5054
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247255.jpgsave_picture_247255.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:10707C9F6AC54D127F26DFF99EC9EBD9BCB89D7D
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247256.jpgsave_picture_247256.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Windows 10 Pro 22H2 19045.3086 x64 by SanLex [Lightweight] [Ru/En] (2023.06.29)
 >>10
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247257.jpgsave_picture_247257.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:C717C50E2D8BF36DEC20B2E73E4E1A99E700C1C4
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247258.jpgsave_picture_247258.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:3DF63762AF114B5780BEF1DB0D3950FDAA1E7BE7
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247259.jpgsave_picture_247259.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:A8C2D560F43E6877B55ED5CF0396B400EBA966B8
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247260.jpgsave_picture_247260.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ magnet:?xt=urn:btih:7848D13C1070238DEB73C039D14D281A3A532845
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247261.jpgsave_picture_247261.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ magnet:?xt=urn:btih:D2FAABB21D4C7DF479069EF1658B036BACF069B8
 >>Менталист / The Mentalist; Теория Лжи / Lie To Me
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247262.jpgsave_picture_247262.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ magnet:?xt=urn:btih:A8D5D099F8F5E61658BB1BB4A2EF5228FA4E3CB5
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247263.jpgsave_picture_247263.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Dead Cells v.1.24.4 DLC (2018) [Multi/Ru] [macOS Native game]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247264.jpgsave_picture_247264.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ magnet:?xt=urn:btih:1C84CE12E74DE7342CE5F1849517CC9A3B3CC9C1
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247265.jpgsave_picture_247265.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ magnet:?xt=urn:btih:0D13E9124A6C91C04A4FC05127C685A4A349559A
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247266.jpgsave_picture_247266.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ magnet:?xt=urn:btih:97E8B84A3A0A1A7F750309EBC3A52926539762DB
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247267.jpgsave_picture_247267.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ magnet:?xt=urn:btih:F3D2890629DD50F5B3ED85634C43875A5B8356EA
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247268.jpgsave_picture_247268.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ GoodbyeDPI 0.2.2. Launcher 6.0.0 [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247269.jpgsave_picture_247269.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ magnet:?xt=urn:btih:890DA5BF38CBAD707EE2D5437F128099770198EF
 >>Сериалы DC Comics
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247270.jpgsave_picture_247270.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ magnet:?xt=urn:btih:91B552801E46C61C863D480043EC858641E1D84D
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247271.jpgsave_picture_247271.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ magnet:?xt=urn:btih:043E98B3258D9F3C72E6BEABEFF4F9C800C03260
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247272.jpgsave_picture_247272.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ The Bookwalker: Thief of Tales (2023) [Ru/Multi] (23.6.10) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247273.jpgsave_picture_247273.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ magnet:?xt=urn:btih:E3068FFC1868BEF2DCB9F28A99EFC25AAD414441
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247274.jpgsave_picture_247274.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ magnet:?xt=urn:btih:E9DF3B2D0CA1C1F6E03C9EA7BD33C717A18A8ADC
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247275.jpgsave_picture_247275.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ magnet:?xt=urn:btih:F7C63F12007EC8C909740D3CB0B0E8A287245BFE
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247276.jpgsave_picture_247276.jpg" />
 </div>
 
 

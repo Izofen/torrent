@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197241.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197241.jpgsave_picture_197241.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ MCS Drivers Disk 23.5.14.2080 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197242.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197242.jpgsave_picture_197242.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:774849A187716476C23F00E28974C80ED907178B
 >>Экстрим
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197243.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197243.jpgsave_picture_197243.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:9DFE1805A5831C726EF65B388B684887A8AB32A9
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197245.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197245.jpgsave_picture_197245.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:046791F38D624A18ADB3853A732DFB1C7F41CF01
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197246.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197246.jpgsave_picture_197246.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:19110480230C9DAFFF1FE9643F7409C6A28E478C
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197247.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197247.jpgsave_picture_197247.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Tor Browser Bundle 12.0.7 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197248.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197248.jpgsave_picture_197248.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ NG. Первый император: секреты китайской гроб�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197249.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197249.jpgsave_picture_197249.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Reg Organizer 9.21 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197250.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197250.jpgsave_picture_197250.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:365BFE863EAEE64A7192438BF88C2B4F9291D8E5
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197251.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197251.jpgsave_picture_197251.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ magnet:?xt=urn:btih:950C5E828909A4FDB6B452F6A6C71C6DCF76487D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197252.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197252.jpgsave_picture_197252.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ magnet:?xt=urn:btih:07C85A146242982C60D135C32C2BD637CCCB4A9C
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197253.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197253.jpgsave_picture_197253.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ ON1 Sky Swap AI 2023.5 v.17.5.1.14028 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197255.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197255.jpgsave_picture_197255.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ IObit Driver Booster Pro 10.5.0.139 RePack (& Portable) by elchupacabra [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197256.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197256.jpgsave_picture_197256.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ magnet:?xt=urn:btih:A53036045C5630F90FEBEA6A0F6D275B64FDA973
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_197257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197257.jpgsave_picture_197257.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ Loop8: Summer of Gods (2023) [Multi] (1.0.2/dlc) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197258.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197258.jpgsave_picture_197258.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ VA - Chillhop Essentials Summer (2023) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, C
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197259.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197259.jpgsave_picture_197259.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ magnet:?xt=urn:btih:7B7BFD808F60F8BAE8B0637A31BEDDF160EFC49C
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197260.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197260.jpgsave_picture_197260.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ magnet:?xt=urn:btih:57A355DA6E37694A6881A5B6E7525E9E4B099FC7
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197261.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197261.jpgsave_picture_197261.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Scorn (2022) [Ru/Multi] (1.2.2.0) Repack dixen18
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197262.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197262.jpgsave_picture_197262.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ magnet:?xt=urn:btih:1323E14E52F8B0B1492265CBF13DD57900A4221C
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197263.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197263.jpgsave_picture_197263.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Audacity 3.3.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197264.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197264.jpgsave_picture_197264.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Analog '82 - Sunsets and Memories (2022) [FLAC|Lossless|WEB-DL|tracks] <Synthwav
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197265.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197265.jpgsave_picture_197265.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ magnet:?xt=urn:btih:3AB1225F06451D3A5D056A69FCFD9257F2BBE770
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197266.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197266.jpgsave_picture_197266.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ IObit Uninstaller Pro 12.5.0.2 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197267.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197267.jpgsave_picture_197267.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ magnet:?xt=urn:btih:C8B9D9E1E3F68AB16FF7252893597660A51B8106
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197268.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197268.jpgsave_picture_197268.jpg" />
 </div>
 
 

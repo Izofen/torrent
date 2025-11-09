@@ -6,7 +6,7 @@
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172042.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172042.jpgsave_picture_172042.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:016A891A7913FD0E01F920FFA404E38CAAD4C8E0
 >>Теория Большого Взрыва / The Big Bang Theory; Детство Шелдона / Young Sheldon
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172043.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172043.jpgsave_picture_172043.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Serif Affinity Photo 2.2.1.2075 (x64) Portable by 7997 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172044.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172044.jpgsave_picture_172044.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Canary Mail 4.25 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172045.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172045.jpgsave_picture_172045.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Windows Firewall Control 6.9.7.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172046.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172046.jpgsave_picture_172046.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:13798B1B925248571AB0191A40A1DF3AA7CAD16C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172047.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172047.jpgsave_picture_172047.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:9F66A1103DF12E613062D91A37B5DBFB4E7B8ADA
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172048.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172048.jpgsave_picture_172048.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Enhance it v4.1.7 Mod by derrin [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172049.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172049.jpgsave_picture_172049.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:C1018D3B30B908C4BD0B5C0949A7D5CC2D9D2385
 >>Теория Большого Взрыва / The Big Bang Theory; Детство Шелдона / Young Sheldon
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172050.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172050.jpgsave_picture_172050.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:438DBD1627AD70B68E0ADF75269DCBB0F6A6DB8B
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172051.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172051.jpgsave_picture_172051.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ SoundSource 5.6.3 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172052.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172052.jpgsave_picture_172052.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Universal USB Installer 2.0.2.0 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172053.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172053.jpgsave_picture_172053.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Soft Organizer Pro 9.42 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172054.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172054.jpgsave_picture_172054.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ LDPlayer 9.0.61 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172055.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172055.jpgsave_picture_172055.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Paranormal Files: Silent Willow 9 / Паранормальные явления 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172056.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172056.jpgsave_picture_172056.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ Serif Affinity Publisher 2.2.1.2075 (x64) Portable by 7997 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172057.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172057.jpgsave_picture_172057.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ Beyond Compare Pro 4.4.7.28397 RePack (& Portable) by TryRooM [Ru/En]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172058.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172058.jpgsave_picture_172058.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ Process Lasso Pro 12.4.1.10 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172059.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172059.jpgsave_picture_172059.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Sufyan bin Uzayr | CSS Frameworks: The Ultimate Guide (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172060.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172060.jpgsave_picture_172060.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ magnet:?xt=urn:btih:7A4018E30E50912CAACC96A32638D7DFED3EEF45
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172061.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172061.jpgsave_picture_172061.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ magnet:?xt=urn:btih:7A4018E30E50912CAACC96A32638D7DFED3EEF45
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172062.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172062.jpgsave_picture_172062.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ Stefan Baumgartner | TypeScript Cookbook (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172063.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172063.jpgsave_picture_172063.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ magnet:?xt=urn:btih:BA596FA006C184DDC6904545868E51150DB6E3A5
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172064.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172064.jpgsave_picture_172064.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ magnet:?xt=urn:btih:496B4F029BC0B3AAC317EF4B7D5430F68B55686E
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172065.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172065.jpgsave_picture_172065.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ magnet:?xt=urn:btih:9A15437F7203E32F183F98D49319C1C52E5BEF39
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172066.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172066.jpgsave_picture_172066.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Babymetal - Babymetal Begins - The Other One - Black Night & Clear Night (2023) 
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172067.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172067.jpgsave_picture_172067.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Xojo IDE RAD 2016r4.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152880.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152880.jpgsave_picture_152880.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ UltraDefrag 7.0.0 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152881.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152881.jpgsave_picture_152881.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ Waterfox Current G4.0.5.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152882.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152882.jpgsave_picture_152882.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ K-Lite Codec Pack Update 17.9.6 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152883.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152883.jpgsave_picture_152883.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:A9DA99650BA9885CBD1274798AEF592CF33294A8
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152884.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152884.jpgsave_picture_152884.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:79B8A1BC813B11B288CE2190DF268F8A7B4A16D2
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152885.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152885.jpgsave_picture_152885.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Howard Rumsey’s Lighthouse All Stars - Sunday Jazz a la Lighthouse (1953) 2007
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152886.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152886.jpgsave_picture_152886.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:3E3DB9F92B4FFED8AAA1E07D8D99AECD4B929348
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152888.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152888.jpgsave_picture_152888.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Violina Petrychenko - Winter Whispers: Ukrainian Piano Tales (2023) [FLAC|Lossle
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152890.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152890.jpgsave_picture_152890.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ magnet:?xt=urn:btih:101EC89FAA883BF50146C76595D8F53052882AFE
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152891.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152891.jpgsave_picture_152891.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ magnet:?xt=urn:btih:02A41E1E995870E179C26BC590BF3E59E08F33BD
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152892.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152892.jpgsave_picture_152892.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ magnet:?xt=urn:btih:F067BAA1F1BC925D825D7B029B6E040A0058E454
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152893.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152893.jpgsave_picture_152893.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:F067BAA1F1BC925D825D7B029B6E040A0058E454
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152894.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152894.jpgsave_picture_152894.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ magnet:?xt=urn:btih:296F6FF444CA1E5A1DBE70CEE5FAF79FBA0C63A3
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152895.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152895.jpgsave_picture_152895.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ magnet:?xt=urn:btih:3017CD99239381DCC7C6875AFE0843616753513F
 >>Старые Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152896.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152896.jpgsave_picture_152896.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ magnet:?xt=urn:btih:7B425F94AF8FA2BD40A8B8675E45346450A87C73
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152897.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152897.jpgsave_picture_152897.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ magnet:?xt=urn:btih:C1DAD775BA8544EB5430932CDDEBADE379FC6953
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152900.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152900.jpgsave_picture_152900.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ magnet:?xt=urn:btih:FAEFA9B719FCAB9B8D741A3D639B5FA250345292
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152901.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152901.jpgsave_picture_152901.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Dream Theater - When Dream And Day Reunite (2004) Reissue, Remastered, 2021, Son
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152902.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152902.jpgsave_picture_152902.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ magnet:?xt=urn:btih:95E4940B83544C733F759D6EA1DDC41AE7AFBB1E
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152903.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152903.jpgsave_picture_152903.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ magnet:?xt=urn:btih:666524FD7E026EC32E9F1BAA289C60646D87962E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152904.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152904.jpgsave_picture_152904.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ magnet:?xt=urn:btih:92D931F464F302A26E84CB6BDEE2A45497AF911F
 >>Звуковые дорожки и субтитры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152905.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152905.jpgsave_picture_152905.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ magnet:?xt=urn:btih:64FFF4F6950178530AF13388BFE74CB32767CD2B
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152906.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152906.jpgsave_picture_152906.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ magnet:?xt=urn:btih:A1D99BD5BFD15065A03E9408A45FECA6390E2D7E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152907.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152907.jpgsave_picture_152907.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ magnet:?xt=urn:btih:A1D99BD5BFD15065A03E9408A45FECA6390E2D7E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152908.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152908.jpgsave_picture_152908.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ magnet:?xt=urn:btih:D1824C90CBE3D4981744CB95AC26272B61383388
 >>Native *Nix Games
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152909.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152909.jpgsave_picture_152909.jpg" />
 </div>
 
 

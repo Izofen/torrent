@@ -6,7 +6,7 @@
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161192.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161192.jpgsave_picture_161192.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:6B0F824048917A00A40494534645CF41A3B0EF5D
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161193.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161193.jpgsave_picture_161193.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Mp3tag 3.23 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161194.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161194.jpgsave_picture_161194.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:EC5E8CA7A7310EF8190001E3BCA60F2B467E037A
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161195.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161195.jpgsave_picture_161195.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Erroll Garner - 1949-1950 (2001) Classics [FLAC|Lossless|tracks + .cue] <Swing, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161196.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161196.jpgsave_picture_161196.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:733F049A45A60085DC6D0DA08134DC1641290F4C
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161197.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161197.jpgsave_picture_161197.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ magnet:?xt=urn:btih:576CB1C3A5D475D8C0536A5DAD1B458B79068B0B
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161198.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161198.jpgsave_picture_161198.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ Akroasis - Ilion (2021) [FLAC|Lossless|image + .cue] <Thrash, MDM>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161199.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161199.jpgsave_picture_161199.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ Icecream Slideshow Maker Pro 5.04 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161200.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161200.jpgsave_picture_161200.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ VA - Zumba Beats Strong 2021 (2020) [MP3|320 Kbps] <Electro Pop, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161201.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161201.jpgsave_picture_161201.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ Author 8.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161202.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161202.jpgsave_picture_161202.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ magnet:?xt=urn:btih:D5257EBCEE70AA33E200782454D9473043609560
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161203.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161203.jpgsave_picture_161203.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ Pixelmator Pro 3.2.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161204.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161204.jpgsave_picture_161204.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ magnet:?xt=urn:btih:6920EC6F44940C2E9B723170547CE8083FD58E34
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161205.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161205.jpgsave_picture_161205.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Caps Lock Tone v1.72 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161206.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161206.jpgsave_picture_161206.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ magnet:?xt=urn:btih:D2519F69F80D91B2D0A496CE91B955B87A3297EF
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161207.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161207.jpgsave_picture_161207.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ magnet:?xt=urn:btih:D377228D1ED0481B9145CE245B0AA5BCD87E55D8
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161208.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161208.jpgsave_picture_161208.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ magnet:?xt=urn:btih:24665C978E1A406900D65AC7F4DA7475FA68D887
 >>Прочие зимние виды спорта
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161209.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161209.jpgsave_picture_161209.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ magnet:?xt=urn:btih:CC92621A2951DF34FD5D52DFEF5E86B1BD0F9141
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161210.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161210.jpgsave_picture_161210.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ GOM Mix Pro 2.0.5.6.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161211.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161211.jpgsave_picture_161211.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ magnet:?xt=urn:btih:26A1A89436D626D235A009E55B535B432E710C50
 >>Прочие зимние виды спорта
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161212.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161212.jpgsave_picture_161212.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ ZartSchool, Павел Зубов, Татьяна Зубова | Море на �
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161213.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161213.jpgsave_picture_161213.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ magnet:?xt=urn:btih:76130F69A18897C12C6F2A7018D9AED94332D377
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161214.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161214.jpgsave_picture_161214.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ magnet:?xt=urn:btih:736CBD90376F46ACDC37208EEA71E541C97F97C0
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161215.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161215.jpgsave_picture_161215.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Microsoft Windows 11 [10.0.22000.1335], Version 21H2 (Updated December 2022) - �
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161216.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161216.jpgsave_picture_161216.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ magnet:?xt=urn:btih:28BB9E48E0386AE8408995ADB547AFBB23836526
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161217.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161217.jpgsave_picture_161217.jpg" />
 </div>
 
 

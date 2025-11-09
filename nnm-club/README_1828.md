@@ -6,7 +6,7 @@
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47885.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47885.jpgsave_picture_47885.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:3F702C638F3195E7A09CFE0D66C878A5F8FD392B
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47886.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47886.jpgsave_picture_47886.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:DA41DF4AB5A8357EE8121C40DA3BEDEFCE6E00B3
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47887.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47887.jpgsave_picture_47887.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:0C2A03210397F9CABC8B993FD5454B636C3746C6
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47888.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47888.jpgsave_picture_47888.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:03070FAE31B9BAF5A2475C955900E3C134F8CEF8
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47889.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47889.jpgsave_picture_47889.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ The Mortuary Assistant (2022) [Multi] (3.0.0) Repack Other s [Definitive Edition
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47890.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47890.jpgsave_picture_47890.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Chicken Game (2024) [Multi] (1.0.0) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47891.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47891.jpgsave_picture_47891.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:1F50E128D2938919A72A1C204C1109610276B261
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47892.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47892.jpgsave_picture_47892.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:A0D094E4FCDA02FFBD1A92FCB231003F960F1544
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47893.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47893.jpgsave_picture_47893.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ ElevenClock 4.4.1.1 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47894.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47894.jpgsave_picture_47894.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ magnet:?xt=urn:btih:CE7E473283C9E639AD79D0A39FA3390420B30E56
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47895.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47895.jpgsave_picture_47895.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ magnet:?xt=urn:btih:CE7E473283C9E639AD79D0A39FA3390420B30E56
 >>Экранки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47896.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47896.jpgsave_picture_47896.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ magnet:?xt=urn:btih:4779488DBE2AE138A89A65DFF42DDE4AFA854F22
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47897.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47897.jpgsave_picture_47897.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ VA - Остров Сокровищ. По Другому! от Arhangel Music (20
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47898.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47898.jpgsave_picture_47898.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ magnet:?xt=urn:btih:E8150643928E958009D3B75148F29D9509AA504D
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47899.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47899.jpgsave_picture_47899.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ magnet:?xt=urn:btih:308B141966365D335D9954226956F17D1C5DB933
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47900.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47900.jpgsave_picture_47900.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ magnet:?xt=urn:btih:1A57B85C0CBD6849F6999264ED9BD5560024C453
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47901.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47901.jpgsave_picture_47901.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ magnet:?xt=urn:btih:DD4A43D665B79E60EA302187C672D5C19D877276
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47902.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47902.jpgsave_picture_47902.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:7CEE7442C722E10EB6A78C29D8CC41285D573ADA
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47903.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47903.jpgsave_picture_47903.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ magnet:?xt=urn:btih:2A3FAAD275785193306ACE64470BB4FEF275CD6F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47904.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47904.jpgsave_picture_47904.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:6FD29526ADBAB14F4F7F51E82B9EB31EE7A39FAC
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47905.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47905.jpgsave_picture_47905.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ magnet:?xt=urn:btih:2CF1F18BDC1E4601B390EC58D4D22014A31D9D95
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47906.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47906.jpgsave_picture_47906.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ magnet:?xt=urn:btih:F4FC0FD7E7E167D6CC8333B47A6C1AEF46610BC3
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47907.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47907.jpgsave_picture_47907.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ magnet:?xt=urn:btih:5C9B13199CCFE64387C4D761448A42EE6959F899
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47908.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47908.jpgsave_picture_47908.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ DAISY THE SWIMMER (2024) [Ru/Multi] (1.0.4) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47909.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47909.jpgsave_picture_47909.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Sousou no Frieren | Frieren: Beyond Journey's End | Провожающая в п
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47910.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47910.jpgsave_picture_47910.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_183506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183506.jpgsave_picture_183506.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:595346FA802E8BD143863B75725B6F117AE9E447
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_183509.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_183509.jpgsave_picture_183509.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Chillson, Marc Hartman - Little Bit of Jazz (2020) [AAC|~322 Kbps] <Chillout, Tr
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_183510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183510.jpgsave_picture_183510.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:3078CFCAF78DEDBB5628A05A28F852255AD905FD
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183511.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183511.jpgsave_picture_183511.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Sodom - Genesis XIX (2020) [AAC|~333 Kbps] <Thrash Metal>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_183514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183514.jpgsave_picture_183514.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Blender Studio, Simon Thommes | Geometry Nodes from Scratch (2022) PCRec [EN / E
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183515.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183515.jpgsave_picture_183515.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ MacGourmet Deluxe 4.3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_183518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183518.jpgsave_picture_183518.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:668E79FB6D12A5E4DC7B8C4071B11A39DBCD994D
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183519.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183519.jpgsave_picture_183519.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ magnet:?xt=urn:btih:50D463A7D1E9FD0DB3267C407A40CB64A06DAA3C
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183520.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183520.jpgsave_picture_183520.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ Rebelway, Saber Jlassi | Introduction to Houdini For FX Weeks 1 – 6 (2018) WEB
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183523.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183523.jpgsave_picture_183523.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ VA - Blue Notes & Jazzy Grooves (2020) [AAC|~319 Kbps] <Chillout, Trip-hop, Loun
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_183524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183524.jpgsave_picture_183524.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ magnet:?xt=urn:btih:DEC377D2903850BF24B4F43E503AE5E57EC2C039
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183525.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183525.jpgsave_picture_183525.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ Capture One 23 Enterprise 16.0.1.20 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183527.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183527.jpgsave_picture_183527.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ Snappy Driver Installer Origin R757 | Драйверпаки 23.09.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183529.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183529.jpgsave_picture_183529.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ VA - Echelon, vol. 1 (2020) [AAC|~291 Kbps] <Rap, Hip Hop>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_183530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183530.jpgsave_picture_183530.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ magnet:?xt=urn:btih:DFB5051E6E690452F3F6F37F79CE0CAFEDCAF947
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183533.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183533.jpgsave_picture_183533.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ magnet:?xt=urn:btih:596830D4AB76CBDA7EB97450EEF0C7CA89262C53
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183534.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183534.jpgsave_picture_183534.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ The Smashing Pumpkins - CYR (2020) [AAC|~318 Kbps] <Alternative, Rock>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_183535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183535.jpgsave_picture_183535.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ Athlantis - 02.02.2020 (2020) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_183537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183537.jpgsave_picture_183537.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ magnet:?xt=urn:btih:DF04C774B4A908385CC464E6078AD140F4AB6EB5
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_183539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183539.jpgsave_picture_183539.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ magnet:?xt=urn:btih:5FBB1AC27E13914D2A0B61E53B17078C03C94539
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183540.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183540.jpgsave_picture_183540.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ SideNotes 1.2.7 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_183542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183542.jpgsave_picture_183542.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ magnet:?xt=urn:btih:E1858A4F7BF0D3FEB7F6D0D35CD3A779E0803EF9
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183544.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183544.jpgsave_picture_183544.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ magnet:?xt=urn:btih:EB14D2BF3044BA486B0D5DF5BEBD093877CFDB01
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183545.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183545.jpgsave_picture_183545.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ magnet:?xt=urn:btih:5F75A5A7ED44A69C5112FDDFF228EBBC36D29685
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183547.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183547.jpgsave_picture_183547.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ magnet:?xt=urn:btih:947643177BEC0F5661DF7BCF3E835DAD42B6F53E
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183548.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183548.jpgsave_picture_183548.jpg" />
 </div>
 
 

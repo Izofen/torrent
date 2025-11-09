@@ -6,7 +6,7 @@ VA - Anything and everything assorted part 10 (2025) [MP3|320 Kbps] <Electronic,
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205640.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205640.jpgsave_picture_205640.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Anything and everything assorted part 9 (2025) [MP3|320 Kbps] <Electronic, 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205705.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205705.jpgsave_picture_205705.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Romantic Dreams - Favorites Collection Part 6 (2025) [MP3|320 Kbps] <Italodisco,
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205740.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205740.jpgsave_picture_205740.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - Music News vol.291 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205753.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205753.jpgsave_picture_205753.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ VA - German Top 100 Single Charts 18.08.2023 [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205857.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205857.jpgsave_picture_205857.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Oliver Shanti - Beating Heart (2023) [MP3|320 Kbps] <Electronic, Lounge, Relax, 
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205963.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205963.jpgsave_picture_205963.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Karunesh - Heart To Heart (2023) [MP3|320 Kbps] <Electronic, Lounge, Relax, Medi
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205972.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205972.jpgsave_picture_205972.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ VA - Music News vol.290 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206043.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206043.jpgsave_picture_206043.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ VA - Music News vol.289 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206397.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206397.jpgsave_picture_206397.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ VA - Trance In Motion Vol.363 (2023) [MP3|320 Kbps|image + .cue] <Trance, Uplift
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206401.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206401.jpgsave_picture_206401.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ VA - Summer tracks on repeat... (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206452.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206452.jpgsave_picture_206452.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Blues Delight - Nothing Special But The Blues (2023) Compilation [MP3|320 Kbps] 
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206463.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206463.jpgsave_picture_206463.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ VA - Calm and Relaxed (2023) [MP3|320 Kbps] <Electronic, Lounge, Relax, Meditati
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206518.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206518.jpgsave_picture_206518.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ VA - Electronica 2023: Best Dance Music (2023) [MP3|320 Kbps] <Electro Pop, Danc
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206610.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206610.jpgsave_picture_206610.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ VA - Best of Electro Pop 2023 (2023) [MP3|320 Kbps] <Electro Pop, Dance, Club, P
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206621.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206621.jpgsave_picture_206621.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ VA - Music News vol.288 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206731.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206731.jpgsave_picture_206731.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ VA - Lo-Fi Chill - Relaxing Beats (2023) [MP3|320 Kbps] <Lounge, Downtempo, Lo F
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206757.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206757.jpgsave_picture_206757.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ VA - Summer House 2023 [MP3|320 Kbps] <House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207169.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207169.jpgsave_picture_207169.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ VA - Yacht Rock (2023) [MP3|320 Kbps] <Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207225.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207225.jpgsave_picture_207225.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ VA - Music News vol.286 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207290.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207290.jpgsave_picture_207290.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ VA - Trance Energy 2023: New Tracks July [MP3|320 Kbps] <Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207355.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207355.jpgsave_picture_207355.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ VA - The Official UK Top 100 Singles Chart 28.07.2023 [MP3|320 Kbps] <Pop, Dance
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207566.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207566.jpgsave_picture_207566.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ VA - Music News vol.285 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207599.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207599.jpgsave_picture_207599.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ VA - Summer Light Deep 2023 [MP3|320 Kbps] <Deep House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207795.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207795.jpgsave_picture_207795.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Sinead O'Connor - How Nice A Woman Can Be (2023) 2 CD Compilation  [MP3|320 Kbps
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207811.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207811.jpgsave_picture_207811.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ VA - Music News vol.283 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208296.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208296.jpgsave_picture_208296.jpg" />
 </div>
 
 

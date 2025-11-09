@@ -6,7 +6,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242388.jpgsave_picture_242388.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:37E4C66EB760F601E2AC98131AF98935A5C0F362
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242389.jpgsave_picture_242389.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ One Commander Pro 3.39.0.0 Portable  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242390.jpgsave_picture_242390.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Electric Huldra - Electric Huldra (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Roc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242391.jpgsave_picture_242391.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:B38DF71BF984D0D626F7623DC2FE76BE454252B7
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242392.jpgsave_picture_242392.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ VA - Chilled & Timeless Vol.2 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242393.jpgsave_picture_242393.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:B2437885A31FA0F71C3540000DC4A6EEDABBA55A
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242394.jpgsave_picture_242394.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ Sandrider - Enveletration (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Ston
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242395.jpgsave_picture_242395.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ magnet:?xt=urn:btih:A07C01C09139B786BB15C9F0AB0474D277562D24
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242396.jpgsave_picture_242396.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ magnet:?xt=urn:btih:5EBBEAA2491CA40A0982ADF12832958526CFABD7
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242397.jpgsave_picture_242397.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ Lalo Schifrin - There's A Whole Lalo Schifrin Goin' On (1968) 2013, Universal [F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242398.jpgsave_picture_242398.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ magnet:?xt=urn:btih:4FB2CA65D7C773C91E4B1997FA8C1792FB2FC5C0
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242399.jpgsave_picture_242399.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ GrimCurse - Serpent God (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242400.jpgsave_picture_242400.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ magnet:?xt=urn:btih:15A1329FCD207F06B62D2C8082C85193D49171BC
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242401.jpgsave_picture_242401.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ Freemake Video Converter 4.1.13.126 RePack (& Portable) by elchupacabra [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242402.jpgsave_picture_242402.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ doPDF 11.8.398 Free [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242403.jpgsave_picture_242403.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ magnet:?xt=urn:btih:E31CD98DBA762ADD6457346A7CB3B90614F49C84
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242404.jpgsave_picture_242404.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Sonny Rollins - Sunny Days, Starry Nights (1984) Milestone[FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242405.jpgsave_picture_242405.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ NetWorker Pro 7.2.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242406.jpgsave_picture_242406.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ magnet:?xt=urn:btih:CBA594015FB01FE2D486F2903A802FE07B820CF9
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242407.jpgsave_picture_242407.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ magnet:?xt=urn:btih:311DCD80C17FA81700C8F7D54244D7317F470D88
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242408.jpgsave_picture_242408.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ PhotoLine 23.53 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242409.jpgsave_picture_242409.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ magnet:?xt=urn:btih:E40259A2CAED82C44E9ED62DA79A6188EE2E090F
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242410.jpgsave_picture_242410.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Dinah Washington - The Jazz Biography (2005) United Audio [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242411.jpgsave_picture_242411.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ The Violent Inzident - This is Nu Metal! (2022) [FLAC|Lossless|WEB-DL|tracks] <N
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242412.jpgsave_picture_242412.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Hanebado! | Бадминтон Ханэсаки [2018, TV, 13 эп.] BDRip 1080p
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242413.jpgsave_picture_242413.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ VA - Relaxation Hub, Vol 2 (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill O
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71756.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71756.jpgsave_picture_71756.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Black - Wonderful Life (1987) [MP3|320 Kbps] <Pop, New Wave>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71757.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71757.jpgsave_picture_71757.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Marius M.21 - The Album (2010) [MP3|320 Kbps] <Italo-Disco, Instrumental>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71758.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71758.jpgsave_picture_71758.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - Alternative EDM Party 2025 (2025) [MP3|320 Kbps] <Dance, Club, House, Elect
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71759.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71759.jpgsave_picture_71759.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Cosmic Ally - Twin Sun (2005) [MP3|320 Kbps] <Synthpop>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71760.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71760.jpgsave_picture_71760.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Paper Lace - The Best Of Paper Lace (1974) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71761.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71761.jpgsave_picture_71761.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ The Smoothies - Head to Christmas: A Soulful Christmas (2024) [FLAC 24/48|Lossle
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71762.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71762.jpgsave_picture_71762.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Elyose - Évidence (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Symphonic Metal
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71763.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71763.jpgsave_picture_71763.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:9B8037750E7B7488E3F5225A3FDD75E30F0155D8
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71764.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71764.jpgsave_picture_71764.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ magnet:?xt=urn:btih:DF3F3D2B2E91C3536BCAD41D3ADEE92BEEA2243E
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71765.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71765.jpgsave_picture_71765.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Magnum - Live At KK's Steel Mill (2025) Live [FLAC|Lossless|WEB-DL|tracks] <Prog
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71766.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71766.jpgsave_picture_71766.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Masque of Art - Masquerade (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71767.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71767.jpgsave_picture_71767.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Magnum - Live At KK's Steel Mill (2025) (Live) [FLAC 24/48|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71768.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71768.jpgsave_picture_71768.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Vampires Everywhere - The Devil Made Me Do It (2025) [FLAC 24/44.1|Lossless|WEB-
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71769.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71769.jpgsave_picture_71769.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ MAW - The Humble Collapse (2025) [FLAC|Lossless|WEB-DL|tracks] <Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71770.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71770.jpgsave_picture_71770.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ magnet:?xt=urn:btih:39F66ADB58FC34062765893E8C80B7F3177F4F1D
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71771.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71771.jpgsave_picture_71771.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ magnet:?xt=urn:btih:ADAF130367693F4A7481C8C470CEA5AE88931368
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71772.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71772.jpgsave_picture_71772.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ VA - Grand Prix 70's (2010) [AAC|320 Kbps] <Electronic, Italo-Disco, Disco>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71773.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71773.jpgsave_picture_71773.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ magnet:?xt=urn:btih:57D78AB5A80CC05917AC0BC0E72C6940D39E8701
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71774.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71774.jpgsave_picture_71774.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ VA - Winter Deep House Hits 2025 (2025) [MP3|320 Kbps] <House, Deep House, Dance
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71775.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71775.jpgsave_picture_71775.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Martin Garrix - Tomorrowland Friendship Mix (2025-01-09) [MP3|320 Kbps] <Dance, 
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71776.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71776.jpgsave_picture_71776.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ magnet:?xt=urn:btih:564EE437BC5B4E070C0B57A6700839BE37A9B33E
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71777.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71777.jpgsave_picture_71777.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ magnet:?xt=urn:btih:233AB18B5ABBFF08023CDA931375AD7537094D28
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71778.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71778.jpgsave_picture_71778.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Eguana - Destiny, Vol. 4 (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Ambient |
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71779.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71779.jpgsave_picture_71779.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ The Smoothies - Winter Chill (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71780.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71780.jpgsave_picture_71780.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ VA - Nipper's Greatest Hits - The 60's Volume 2 (1988) [OGG Vorbis|480 Kbps] <Ro
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71781.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71781.jpgsave_picture_71781.jpg" />
 </div>
 
 

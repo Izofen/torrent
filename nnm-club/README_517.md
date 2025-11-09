@@ -6,7 +6,7 @@ Wondershare PDFelement 11.4.22.3582 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13721.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13721.jpgsave_picture_13721.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:3717AF763CF0A1C9F4F9D3A0D25955CBE630CF12
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13722.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13722.jpgsave_picture_13722.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:2A099CE1C8B4093750E8AC44B7F8EFF087A46BFD
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13723.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13723.jpgsave_picture_13723.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Len's Island (2021) [Ru/Multi] (1.0/dlc) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13724.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13724.jpgsave_picture_13724.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:21851684A33D1467F231F5D57A04E2739CF20DD6
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13725.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13725.jpgsave_picture_13725.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:916FC16633F478488EF0201DA83E34F1B4C696D7
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13726.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13726.jpgsave_picture_13726.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:2A5F6FCA9A6602C22B854A0C463491A519B6C343
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13727.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13727.jpgsave_picture_13727.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Fallout 3 (2009) [Ru] (1.7.0.4/dlc) Repack EXROW [Game of the Year Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13728.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13728.jpgsave_picture_13728.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:F23881582348D54682E5AAB3DEDAF9EA12E95B88
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13729.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13729.jpgsave_picture_13729.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ magnet:?xt=urn:btih:3C62E60A40930C81738A20A5BEA6B013F834EFF2
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13731.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13731.jpgsave_picture_13731.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ magnet:?xt=urn:btih:3C62E60A40930C81738A20A5BEA6B013F834EFF2
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13732.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13732.jpgsave_picture_13732.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ VueScan Pro 9.8.46.11 RePack (& Portable) by elchupacabra (DC 20.06.2025) [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13733.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13733.jpgsave_picture_13733.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ magnet:?xt=urn:btih:3D69E68F6E2EFB78B3E1BCB4A44413EB9EE91C4E
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13734.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13734.jpgsave_picture_13734.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ magnet:?xt=urn:btih:BAA8C42DF8E58BF46500873C918BA209DAAC7D71
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13735.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13735.jpgsave_picture_13735.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ Snow Plowing Simulator (2024) [Ru/Multi] (1.0) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13736.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13736.jpgsave_picture_13736.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ qBittorrent 5.1.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13737.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13737.jpgsave_picture_13737.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ magnet:?xt=urn:btih:27E710CE2CD021C75A0FDC4D1E52426F32289DFE
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13738.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13738.jpgsave_picture_13738.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ magnet:?xt=urn:btih:5A0FF49C878B9410328ABFE54BD7251C4F1B915E
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13739.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13739.jpgsave_picture_13739.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ magnet:?xt=urn:btih:7ECD9530C08C0CA4E9CE368FE67602A7801CAB78
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13740.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13740.jpgsave_picture_13740.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Gorilla no Kami kara Kago Sareta Reijou wa Ouritsu Kishidan de Kawaigarareru | T
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13741.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13741.jpgsave_picture_13741.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ magnet:?xt=urn:btih:7E1035425815B72A8FC557734B7C4FB7A7440572
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13742.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13742.jpgsave_picture_13742.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ Zatsu Tabi: That's Journey / Это путешествие [2025, TV, 12] WEBRip
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13743.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13743.jpgsave_picture_13743.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ magnet:?xt=urn:btih:B921443C8CF0AD16CB1FAD4BDB08A0AD013FAC8F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13744.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13744.jpgsave_picture_13744.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ magnet:?xt=urn:btih:B6A8E3D6579916442A5C9729AA7126113CDDB249
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13745.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13745.jpgsave_picture_13745.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Svarog's Dream (2023) [En] (7.0.6/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13747.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13747.jpgsave_picture_13747.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ magnet:?xt=urn:btih:649061F0C31A4D244EFD4C3AC767B4D08440521E
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13748.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13748.jpgsave_picture_13748.jpg" />
 </div>
 
 

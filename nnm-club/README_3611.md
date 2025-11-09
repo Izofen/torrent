@@ -6,7 +6,7 @@ Ableton - Live 12 Suite 12.0 (x64) (R2R) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114261.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114261.jpgsave_picture_114261.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:A1E0C6BD9CCD8666A36815ED2CB6CA47B19522EF
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114262.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114262.jpgsave_picture_114262.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ KMS Tools Portable by Ratiborus 05.03.2024 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114263.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114263.jpgsave_picture_114263.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ True Stalker (2023) [Ru/Multi] (1.5) Repack/Mod AP-PRO Team
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114264.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114264.jpgsave_picture_114264.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Adobe Photoshop 2024 25.5.1.408 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114265.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114265.jpgsave_picture_114265.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ The Witcher 3: Wild Hunt / Ведьмак 3: Дикая Охота (2015) [Ru/Mu
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114266.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114266.jpgsave_picture_114266.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:0BCE6041222655554FC6A7A901BEF384FD9EB4CF
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114267.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114267.jpgsave_picture_114267.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:02E080E3F20F22E0368932AB4D81420DA7AFAEBC
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114268.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114268.jpgsave_picture_114268.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:84C53E7A3D0067B34155B4A969CB9C4BACB4C356
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114269.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114269.jpgsave_picture_114269.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:1EF1D9633FA300E1606C5EB4173A5B7C6E7E62D6
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114270.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114270.jpgsave_picture_114270.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ The Mobius Machine (2024) [Multi] (1.0) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114271.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114271.jpgsave_picture_114271.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:EE79CD013EEB9FF18208576F263993C5A335AD14
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114272.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114272.jpgsave_picture_114272.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:EE79CD013EEB9FF18208576F263993C5A335AD14
 >>Отечественное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114273.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114273.jpgsave_picture_114273.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ magnet:?xt=urn:btih:EF11EEC9E3E6835B535DC1C103B03393929F0FEA
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114274.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114274.jpgsave_picture_114274.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Adobe Photoshop for Mac 2024 v.25.5.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114275.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114275.jpgsave_picture_114275.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Kali Linux 2024.1 [amd64, i386, arm64] 11xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114276.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114276.jpgsave_picture_114276.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ magnet:?xt=urn:btih:5CF77367F0E6AC10018F09E7B004AE75534A7945
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114277.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114277.jpgsave_picture_114277.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ magnet:?xt=urn:btih:03964E1C755A17359F2B7987DBE9C9D395E49075
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114278.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114278.jpgsave_picture_114278.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ magnet:?xt=urn:btih:F6B6D22B3F1B830ABD3B5DA624C5F0E048E7EC33
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114279.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114279.jpgsave_picture_114279.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ magnet:?xt=urn:btih:7CEAEE78DEFB2D6ACAD66D33467533F03545D172
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114280.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114280.jpgsave_picture_114280.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Classified: France '44 (2024) [Multi] (1.0/dlc) Repack FitGirl
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114281.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114281.jpgsave_picture_114281.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ magnet:?xt=urn:btih:C795B8E38AA4297CFBB1EA3902D83A5215E24DB0
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114282.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114282.jpgsave_picture_114282.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Max Magro and the Wolfgang - Commit a Crime (2024) [FLAC 24/48|Lossless|WEB-DL|t
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114283.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114283.jpgsave_picture_114283.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ GroupsPro 5.5.1 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114284.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114284.jpgsave_picture_114284.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ OmniReader Pro for Mac 2.7.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114285.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114285.jpgsave_picture_114285.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Cedar Walton - Composer (1996) Astor Place [FLAC|Lossless|tracks + .cue] <Hard B
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114286.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114286.jpgsave_picture_114286.jpg" />
 </div>
 
 

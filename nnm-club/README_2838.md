@@ -6,7 +6,7 @@ Gerald Albright - New Beginnings (2006) [FLAC|Lossless]<Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82382.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82382.jpgsave_picture_82382.jpg" />
 </div>
 
 
@@ -39,7 +39,7 @@ Gerald Albright - New Beginnings (2006) [FLAC|Lossless]<Smooth Jazz>
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82384.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82384.jpgsave_picture_82384.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ magnet:?xt=urn:btih:A557A48D7E8DBB04D3C6BC01F0DE7382A27B4DA0
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82385.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82385.jpgsave_picture_82385.jpg" />
 </div>
 
 
@@ -91,7 +91,7 @@ Club Des Belugas - Forward (2012) [MP3|~245 кб/с (V0)]<Electronic, Nu Jazz, N
 >>Jazz
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82386.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82386.jpgsave_picture_82386.jpg" />
 </div>
 
 
@@ -124,7 +124,7 @@ magnet:?xt=urn:btih:5BE53CDEDE37381C67923FC770FEFCCC06756C3D
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82387.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82387.jpgsave_picture_82387.jpg" />
 </div>
 
 
@@ -149,7 +149,7 @@ magnet:?xt=urn:btih:9D313313658525CE12433DDBB08C8F63D8A37B7C
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82388.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82388.jpgsave_picture_82388.jpg" />
 </div>
 
 
@@ -173,7 +173,7 @@ magnet:?xt=urn:btih:1BC88D6AA59F684622ADD3A1BE2A00559FD9668A
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82391.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82391.jpgsave_picture_82391.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:FFAF1272CDBE02CAA215360C37630D3B833E55B9
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82393.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82393.jpgsave_picture_82393.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Devil's Train - Devil's Train (2012) [FLAC|Lossless]<Hard Rock>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82394.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82394.jpgsave_picture_82394.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ Devil's Train - Devil's Train (2012) [FLAC|Lossless]<Hard Rock>
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82395.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82395.jpgsave_picture_82395.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ magnet:?xt=urn:btih:B7A40BDAA8E2990BB5AA30968BC6F49A96BE7E85
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82399.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82399.jpgsave_picture_82399.jpg" />
 </div>
 
 
@@ -314,7 +314,7 @@ magnet:?xt=urn:btih:B7A40BDAA8E2990BB5AA30968BC6F49A96BE7E85
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82400.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82400.jpgsave_picture_82400.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ magnet:?xt=urn:btih:26AAEC4EA09A98CDB32E9BF30FC161919C02EAD6
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82403.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82403.jpgsave_picture_82403.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ magnet:?xt=urn:btih:8515322FE95110655123B803E63D9485A959E32A
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82404.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82404.jpgsave_picture_82404.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ magnet:?xt=urn:btih:B6F4981633E2C855261911F1A5C527FDE24BD656
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82405.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82405.jpgsave_picture_82405.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ magnet:?xt=urn:btih:66E84E677104CBE49DA5DECA5AEBB6810683F750
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82406.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82406.jpgsave_picture_82406.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ magnet:?xt=urn:btih:0C0CFE9610F74EF08EDBC92AC2D413B51D52DCD1
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82407.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82407.jpgsave_picture_82407.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ magnet:?xt=urn:btih:0C0CFE9610F74EF08EDBC92AC2D413B51D52DCD1
 >>Зарубежная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82408.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82408.jpgsave_picture_82408.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ magnet:?xt=urn:btih:924DA02348A2E39EA398818917CFEF0C44673C82
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82410.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82410.jpgsave_picture_82410.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Selfplayers - Vibrations (2012) [MP3|320 кб/с]<reggae, ragga-jungle, electron
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82412.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82412.jpgsave_picture_82412.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ magnet:?xt=urn:btih:C9DD169EBAE9760D81CB69D983C062C9C99A5213
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82413.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82413.jpgsave_picture_82413.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ Saori Yano - BeBop at The Savoy (2010) [FLAC|Lossless]<Jazz,  Be Bop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82414.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82414.jpgsave_picture_82414.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Mozilla Firefox 12.0  Beta 1 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82417.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82417.jpgsave_picture_82417.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Mozilla Firefox - очень быстро работающий браузер, �
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82420.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82420.jpgsave_picture_82420.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ magnet:?xt=urn:btih:5B10AC2D9F8CE4A69878869C2043A939C9F0D547
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82424.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82424.jpgsave_picture_82424.jpg" />
 </div>
 
 
@@ -683,7 +683,7 @@ magnet:?xt=urn:btih:9E7D1EB771C9BF2A492637D0EDA765E859A3FC63
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82426.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82426.jpgsave_picture_82426.jpg" />
 </div>
 
 

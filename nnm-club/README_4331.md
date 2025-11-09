@@ -6,7 +6,7 @@ Magic Cutter - MP3 Editor for Mac 1.9 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134602.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134602.jpgsave_picture_134602.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Nova Skellis - Life Amongst the Damned (2023) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134604.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134604.jpgsave_picture_134604.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Word Count Popup 2.56 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134605.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134605.jpgsave_picture_134605.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ magnet:?xt=urn:btih:218A8D0D709947092D23E2412ADFAEE187D76194
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134606.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134606.jpgsave_picture_134606.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Unite 5.1.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134607.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134607.jpgsave_picture_134607.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ Dropover for Mac 4.12 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134608.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134608.jpgsave_picture_134608.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ magnet:?xt=urn:btih:8E1EF9A07BC0ACCB5CC6E9C55A1E53D304CC72AB
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134609.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134609.jpgsave_picture_134609.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ The Hedrons - Tired of Taking (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock, 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134611.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134611.jpgsave_picture_134611.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ magnet:?xt=urn:btih:02433A9DEB681810549AD4DF62CD7A5C319C9E5A
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134613.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134613.jpgsave_picture_134613.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ Cisdem OCRWizard 5.1.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134615.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134615.jpgsave_picture_134615.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ Yate 6.17.2.1 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134617.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134617.jpgsave_picture_134617.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ MindLight - N.A.M.I. (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal, He
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134619.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134619.jpgsave_picture_134619.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ magnet:?xt=urn:btih:18BFD522C8003AF940B58E22098D8566089899B8
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134620.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134620.jpgsave_picture_134620.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ Convusic for Mac 1.17 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134621.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134621.jpgsave_picture_134621.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ Christopher Island - Шутка (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressiv
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134623.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134623.jpgsave_picture_134623.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ magnet:?xt=urn:btih:BE5E3378724EB967704168598A13B6B4B8506195
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134624.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134624.jpgsave_picture_134624.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Bike Outliner for Mac 1.17.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134625.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134625.jpgsave_picture_134625.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Silverbones - Brethren Of The Coast (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134627.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134627.jpgsave_picture_134627.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ magnet:?xt=urn:btih:69A67B9052020B0019F24D7B365D18015210A346
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134628.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134628.jpgsave_picture_134628.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ Cisdem ContactsMate 6 v.6.7.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134629.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134629.jpgsave_picture_134629.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ magnet:?xt=urn:btih:805BF495DC154D57BC6E5F07641C8EB5823FA3E8
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134630.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134630.jpgsave_picture_134630.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ ZoneClock for Mac 3.65 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134631.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134631.jpgsave_picture_134631.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Arturo O'Farrill - Legacies (2023) Blue Note [FLAC|Lossless|tracks + .cue] <Post
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134633.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134633.jpgsave_picture_134633.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Of Darkness - Missa Tridentina (2023) [FLAC|Lossless|WEB-DL|tracks] <Funeral Doo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134634.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134634.jpgsave_picture_134634.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ magnet:?xt=urn:btih:7338A9061CADD692D65B007020C1D2DA9A6268E9
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134635.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134635.jpgsave_picture_134635.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ magnet:?xt=urn:btih:E764300FC8D3A6A98DFB5DAB95ABF1E84B907753
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134639.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134639.jpgsave_picture_134639.jpg" />
 </div>
 
 

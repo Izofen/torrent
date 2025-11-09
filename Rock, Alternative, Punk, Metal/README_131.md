@@ -6,7 +6,7 @@ Echo The Beyond - Ambient Noise (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock,
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108904.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108904.jpgsave_picture_108904.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Remedy - Pleasure Beats The Pain (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108907.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108907.jpgsave_picture_108907.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ Rotting Christ - Pro Xristou (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Black
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108916.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108916.jpgsave_picture_108916.jpg" />
 </div>
 
 
@@ -89,7 +89,7 @@ Thola - Unseen (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108920.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108920.jpgsave_picture_108920.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ Antennaes - She's A Winner... (2024) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108935.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108935.jpgsave_picture_108935.jpg" />
 </div>
 
 
@@ -143,7 +143,7 @@ The Beach Boys - The Beach Boys: Music From The Documentary (2024) [FLAC|Lossles
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108948.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108948.jpgsave_picture_108948.jpg" />
 </div>
 
 
@@ -170,7 +170,7 @@ Sun of Sensei - S.O.S. (2024) [MP3|320 Kbps] <Hard Rock, Blues Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108957.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108957.jpgsave_picture_108957.jpg" />
 </div>
 
 
@@ -197,7 +197,7 @@ Mud - 6 Albums (1974-1983) Collection [MP3|320 Kbps] <Rock, Pop Rock, Glam>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108962.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108962.jpgsave_picture_108962.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Evildead - Toxic Grace (2024) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108976.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108976.jpgsave_picture_108976.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Knights Of The Realm - Darker Than Leather (2024) [FLAC|Lossless|WEB-DL|tracks] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108977.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108977.jpgsave_picture_108977.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ Skeletal Throne - Barbaric Torment (2023) [MP3|320 Kbps] <Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108979.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108979.jpgsave_picture_108979.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ Cypecore - Innocent (2008) [FLAC|Lossless|image + .cue] <Melodic Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108984.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108984.jpgsave_picture_108984.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ magnet:?xt=urn:btih:68142C362FDDF4746530D48520C2336D602139F6
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108985.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108985.jpgsave_picture_108985.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ Battle Symphony - The Empire Of God (2024) [MP3|~245 Kbps (V0)] <Symphonic Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108987.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108987.jpgsave_picture_108987.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ Night Laser - Call Me What You Want (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108988.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108988.jpgsave_picture_108988.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ Arrows - First Hit (1976) Reissue CD, 2000, Repertoire Records [MP3|320 Kbps] <P
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108992.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108992.jpgsave_picture_108992.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ magnet:?xt=urn:btih:E056576D320A97AE7AF6AD3C39416628DD3AD061
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109000.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109000.jpgsave_picture_109000.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Sound on Purpose - 2 Albums (2023-2024) [FLAC|Lossless|WEB-DL|tracks] <Progressi
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109002.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109002.jpgsave_picture_109002.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Domination - Echoes Of Persecution (2024) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109004.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109004.jpgsave_picture_109004.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ Green Grey - The Best (2024) Remastered 2024 [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109014.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109014.jpgsave_picture_109014.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ Bloodorn - Let the Fury Rise (2024) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109041.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109041.jpgsave_picture_109041.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ Lenny Kravitz - Blue Electric Light (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109073.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109073.jpgsave_picture_109073.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ Reach - Prophecy (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Hard Ro
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109100.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109100.jpgsave_picture_109100.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ Rare Touch - Rare Touch (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109104.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109104.jpgsave_picture_109104.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Morning Giants - Eccentric Beasts (2024) [FLAC|Lossless|WEB-DL|tracks] <Progress
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109106.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109106.jpgsave_picture_109106.jpg" />
 </div>
 
 
@@ -683,7 +683,7 @@ Andy Samford - The Eternal Illusion (2024) [MP3|320 Kbps] <Classic Rock, Psyched
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109145.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109145.jpgsave_picture_109145.jpg" />
 </div>
 
 

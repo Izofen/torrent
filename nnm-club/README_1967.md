@@ -6,7 +6,7 @@ Battery One: Батарея 1.8.0 Lite-Mod by NURIK [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51499.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51499.jpgsave_picture_51499.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ VidCoder 10.14 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51500.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51500.jpgsave_picture_51500.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ VA - German Top 100 Single Charts 28.06.2024 [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51501.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51501.jpgsave_picture_51501.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:855F142C2AA24D5AD9349C9286A682D42A4F6F7F
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51502.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51502.jpgsave_picture_51502.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:BD8D75F00D7D120271DA06B6D7F8CC209BF016BC
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51503.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51503.jpgsave_picture_51503.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ Fae Farm (2023) [Multi] (20240620/dlc) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51504.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51504.jpgsave_picture_51504.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ Dystopika (2024) [Multi] (1.0) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51505.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51505.jpgsave_picture_51505.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ Chocolate Factory (2024) [Ru/Multi] (1.006) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51506.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51506.jpgsave_picture_51506.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:C03665AAD8C994555AF27784C38FA622EE1EC313
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51507.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51507.jpgsave_picture_51507.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:F2142AA849AFC982431BCF0250A97C82C7577E62
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51508.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51508.jpgsave_picture_51508.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:775DD1CADFA58396DD2F884CB644E7882A89B229
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51509.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51509.jpgsave_picture_51509.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ Ashampoo WinOptimizer 27.00.03 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51510.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51510.jpgsave_picture_51510.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Hibike! Euphonium 3 | Sound! Euphonium 3 | Играй, эуфониум! [ТВ-3
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51511.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51511.jpgsave_picture_51511.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ magnet:?xt=urn:btih:59AB288178AE6EE707EF4443DDC7B2AAB121E420
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51512.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51512.jpgsave_picture_51512.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ magnet:?xt=urn:btih:7EF2FA5037DF8653C7F7DD5A03C59346D30C6B5A
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51513.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51513.jpgsave_picture_51513.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ magnet:?xt=urn:btih:4748799D569DABF2569180488FBA2F6D983AE10C
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51514.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51514.jpgsave_picture_51514.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ magnet:?xt=urn:btih:D316BA930F18F539EB81AB5BD1BBED16C3F85272
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51515.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51515.jpgsave_picture_51515.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ magnet:?xt=urn:btih:EB7D559B4F8926A0799E67BD80FB22C843759DF9
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51516.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51516.jpgsave_picture_51516.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ SPY×ANYA: Operation Memories (2024) [Multi] (1.0.5/dlc) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51517.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51517.jpgsave_picture_51517.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Fix it - The Handyman Simulator (2024) [Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51518.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51518.jpgsave_picture_51518.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ magnet:?xt=urn:btih:49F4246A2222FAC4E87FA3AA9F91FA205BDA36CC
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51519.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51519.jpgsave_picture_51519.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:6DFFDD7022EA3270AA5B62FDBA2061723D256C3F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51520.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51520.jpgsave_picture_51520.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ magnet:?xt=urn:btih:6DFFDD7022EA3270AA5B62FDBA2061723D256C3F
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51521.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51521.jpgsave_picture_51521.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ magnet:?xt=urn:btih:921DDB7B15158305454D9DFBA54E808BA066CB7E
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51522.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51522.jpgsave_picture_51522.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Klaus | Авторский курс "Зеркало Интернета 3. Моб
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51523.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51523.jpgsave_picture_51523.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ magnet:?xt=urn:btih:5B58DD035FD41689F119B07D98665EA7FF85D0F3
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51524.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51524.jpgsave_picture_51524.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247495.jpgsave_picture_247495.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:8A7E45DC0A3490DDAE8384E0B64298D79436B26E
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247496.jpgsave_picture_247496.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Windows 10 Pro 22H2 19045.3086 x64 by SanLex [Lightweight] [Ru/En] (2023.06.17)
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247497.jpgsave_picture_247497.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:FD7ACFC9122CF58563E04C5A79D12A2E26883AD8
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247498.jpgsave_picture_247498.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Chasm: The Rift (2022) [Ru/Multi] (1.0.22) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247499.jpgsave_picture_247499.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:A555C95F7DD26F77AD2350F1FD6148D654B792A3
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247500.jpgsave_picture_247500.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:20013E5980C38060A698275BBA07CAD8F14C7BE6
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247501.jpgsave_picture_247501.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:4A88FDC2B883FE98F45A19E124E1FDEA852748DA
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247502.jpgsave_picture_247502.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ Microsoft Office LTSC 2021 Professional Plus / Standard + Visio + Project 16.0.1
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247503.jpgsave_picture_247503.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ magnet:?xt=urn:btih:C2A0A9640BD7FDE833C67879FB043D1D4510CDBA
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247504.jpgsave_picture_247504.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ magnet:?xt=urn:btih:2AC9908B03622857B288975C9EF24AFA13561FF8
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247505.jpgsave_picture_247505.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ magnet:?xt=urn:btih:370A76ED2D8CA4617618ED8AB3982E808861B48B
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247506.jpgsave_picture_247506.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ magnet:?xt=urn:btih:2DC2A0EBBF13D199FC1B909F0BEED500A9A3BAE2
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247507.jpgsave_picture_247507.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ magnet:?xt=urn:btih:9B837554E66BD0258951B170149674AA9BD67C7F
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247508.jpgsave_picture_247508.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ magnet:?xt=urn:btih:CC10FA2515D8D624812BF972A37946C2A11369B9
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247509.jpgsave_picture_247509.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ magnet:?xt=urn:btih:92B145DB0A3D87D509C598B000D7E47A50648FAC
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247510.jpgsave_picture_247510.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ magnet:?xt=urn:btih:059B2E3B2259C2A1138E476A08DAA26A026CC8D8
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247511.jpgsave_picture_247511.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ magnet:?xt=urn:btih:F4661667A9E887D939C7A1D8CE819391318AA5BB
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247512.jpgsave_picture_247512.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ magnet:?xt=urn:btih:39EF79C4CDAEE4047A89AEF92F2FD587DE7040B2
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247513.jpgsave_picture_247513.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ magnet:?xt=urn:btih:FB41A10FDD8F9BA9495F582A08BC4E1ED98EB6E5
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247514.jpgsave_picture_247514.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ magnet:?xt=urn:btih:89AF0A8D551ADC614263477BDFB9A8B60E6385FB
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247515.jpgsave_picture_247515.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ magnet:?xt=urn:btih:22DC616625F5275EAB9C9BFAA73721C273958BEB
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247516.jpgsave_picture_247516.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ magnet:?xt=urn:btih:F375D3EDA65AF162CAD198111AEF84BCFC4206A2
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247517.jpgsave_picture_247517.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Microsoft® Windows® 7 Максимальная Ru x86-x64 w.BootMenu by OVGors
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247519.jpgsave_picture_247519.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Crying Suns (2019) [Ru/Multi] (3.0.1) License GOG
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247520.jpgsave_picture_247520.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ magnet:?xt=urn:btih:FFB9E47D7366B608FEC70620399172093340F4A9
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247521.jpgsave_picture_247521.jpg" />
 </div>
 
 

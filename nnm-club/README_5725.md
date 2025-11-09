@@ -6,7 +6,7 @@ Carey Bell - 15 Albums (1969 - 2007) [FLAC|Lossless|image + .cue|tracks + .cue] 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_176540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176540.jpgsave_picture_176540.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:977558ACE816A97C9084CEB7C50E698E189C72D4
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_176541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176541.jpgsave_picture_176541.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:889A2E1B7B1E833229C1747D95AE1ECCDFD52E01
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176542.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176542.jpgsave_picture_176542.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:DE2FB059083C01D64A619EEC133A688EE238224A
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176544.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176544.jpgsave_picture_176544.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:9489E0FFB69C6D768934267A1094746D756EE76F
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176545.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176545.jpgsave_picture_176545.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Miguel Montalban - And The Southern Vultures (2020) [FLAC|Lossless|WEB-DL|tracks
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_176546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176546.jpgsave_picture_176546.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:F4EABFEBDB1C9A7CE32D3E6FC74DF5ACB19A58B7
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176548.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176548.jpgsave_picture_176548.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:A404265D904E1FAC4EDCF3D793E3C70A700A224C
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_176549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176549.jpgsave_picture_176549.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ Google Chrome 108.0.5359.95 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176550.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176550.jpgsave_picture_176550.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ App Builder 2023.61 (x64) Portable by FC Portables [En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176552.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176552.jpgsave_picture_176552.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ magnet:?xt=urn:btih:88497EBC1F2F4E287E90F3CE102EC22BA88CFD15
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_176553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176553.jpgsave_picture_176553.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ magnet:?xt=urn:btih:D172F6D851C681CCBE5A15FA9372B1EA2C3CBBF8
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176554.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176554.jpgsave_picture_176554.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Hidden Cats in Paris (2022) [En] (11956959) Scene Tenoke
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176556.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176556.jpgsave_picture_176556.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ magnet:?xt=urn:btih:74CC68A262A15A738F83F92BCC79DAA4763B501C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176557.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176557.jpgsave_picture_176557.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ magnet:?xt=urn:btih:E60DD7A5227755CB4A68731F480F8F42BF1DDB68
 >>Экстрим
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_176558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176558.jpgsave_picture_176558.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ magnet:?xt=urn:btih:43DF6B83862C7697E95198EAA40C42A2BD8105CE
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176560.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176560.jpgsave_picture_176560.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ magnet:?xt=urn:btih:F0575BC4ADEEE4D1344B2E48BE51CA0B708C4DDF
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176562.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176562.jpgsave_picture_176562.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Toji no Miko: Kizamishi Issen no Tomoshibi | Жрицы с мечами: Раз�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_176563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176563.jpgsave_picture_176563.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ magnet:?xt=urn:btih:2ED349B80F1BC7256CED9305AEBDFC0542BF86AA
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_176566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176566.jpgsave_picture_176566.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ DP Animation Maker 3.5.13 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176567.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176567.jpgsave_picture_176567.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Bilkins Folly (2023) [En] (1.0.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176568.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176568.jpgsave_picture_176568.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ magnet:?xt=urn:btih:4B966CD760E6CA5FFAB4579506E4D2D457B9E127
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176570.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176570.jpgsave_picture_176570.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ magnet:?xt=urn:btih:78F495448AE193B44E4F7091553C40B776CD7CA7
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176571.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176571.jpgsave_picture_176571.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ magnet:?xt=urn:btih:6C93BC12220272F00CB0F2AF4B548DF4C25258CE
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_176572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176572.jpgsave_picture_176572.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ RAR for Android v6.23 build 119 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176574.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176574.jpgsave_picture_176574.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ magnet:?xt=urn:btih:5807FD4A102E727136F9CFFD1E012EB832D908D5
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176575.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176575.jpgsave_picture_176575.jpg" />
 </div>
 
 

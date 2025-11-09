@@ -6,7 +6,7 @@ Slipknot - Slipknot (1999) 25th Anniversary Edition, 2025, Roadrunner Records [F
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4289.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4289.jpgsave_picture_4289.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Chillhop Essentials Fall (2025) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Chi
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4290.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4290.jpgsave_picture_4290.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ FM - Brotherhood (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4291.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4291.jpgsave_picture_4291.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Primal Fear - Domination (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy, Po
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4292.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4292.jpgsave_picture_4292.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ magnet:?xt=urn:btih:645889080E8A2C6727F713F7998093D8D26743A9
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4293.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4293.jpgsave_picture_4293.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ magnet:?xt=urn:btih:A041212EBA29E0320C219124C90853E0F815E145
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4294.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4294.jpgsave_picture_4294.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Cat Stevens (Yusuf) - On The Road To Findout: Greatest Hits (Deluxe) (2025) [FLA
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4295.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4295.jpgsave_picture_4295.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Julien-K - DRK|MODE (2025) [MP3|320 Kbps] <electronic rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4296.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4296.jpgsave_picture_4296.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ VA - Armin van Buuren - A State Of Trance 1241 (2025) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4297.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4297.jpgsave_picture_4297.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ magnet:?xt=urn:btih:9956DE26982E5AD3726EE5FF22CDBD79810B345C
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4298.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4298.jpgsave_picture_4298.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ magnet:?xt=urn:btih:0D9F1B3B628DF8F00BA5FA12C750A453B2CEC018
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4299.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4299.jpgsave_picture_4299.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Primal Fear (& Ralf Scheepers) - Studio Albums (19 releases) (1998-2025) hand ma
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4300.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4300.jpgsave_picture_4300.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Auslogics BoostSpeed 14.1.0.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4301.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4301.jpgsave_picture_4301.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Hollow Knight: Silksong (2025) [Ru/Multi] (1.0.28324) Repack seleZen
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4302.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4302.jpgsave_picture_4302.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ Reyvi - Favorites Collection Part 2 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4303.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4303.jpgsave_picture_4303.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ magnet:?xt=urn:btih:7A3C96500EE2A7241E96742C90B1ECDEA91EF65C
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4304.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4304.jpgsave_picture_4304.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ magnet:?xt=urn:btih:9D8CC34A32877981C2D0CD3E17F5B624EED1C2E8
 >>Сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4305.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4305.jpgsave_picture_4305.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ Auslogics BoostSpeed 14.1.0.0 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4306.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4306.jpgsave_picture_4306.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ magnet:?xt=urn:btih:79FF75A7CAF8866F4101ACB7F8032BF41DB17B29
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4307.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4307.jpgsave_picture_4307.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ Auslogics BoostSpeed 14.1.0.0 RePack (& Portable) by KpoJIuK [Ru/En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4308.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4308.jpgsave_picture_4308.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Auslogics Disk Defrag Pro 12.1.0.0 + Portable [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4309.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4309.jpgsave_picture_4309.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ magnet:?xt=urn:btih:F934E17772ECFD9FBA7F976C41BC834AA92CDDBC
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4310.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4310.jpgsave_picture_4310.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Auslogics Disk Defrag Pro 12.1.0.0 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4311.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4311.jpgsave_picture_4311.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ VA - Miss Monique & her friends (2025) [MP3|320 Kbps] <Progressive House, Melodi
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4312.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4312.jpgsave_picture_4312.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ magnet:?xt=urn:btih:2C0A904EB693EB221A74EDFE7F8312C15F58843A
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4313.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4313.jpgsave_picture_4313.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Process Lasso Pro 16.0.2.10 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4314.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4314.jpgsave_picture_4314.jpg" />
 </div>
 
 

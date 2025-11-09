@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61389.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61389.jpgsave_picture_61389.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61390.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61390.jpgsave_picture_61390.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ De-Phazz - Pit Sounds (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Nu Jazz, Tri
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61391.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61391.jpgsave_picture_61391.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Exif Pilot 6.23.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61392.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61392.jpgsave_picture_61392.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Sheryl Crow - Evolution (2024) Deluxe [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop R
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61393.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61393.jpgsave_picture_61393.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Excite Audio - Bloom Drum Breaks 1.0.1 STANTALONE, VSTi, VSTi 3, AAX (x86/x64) [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61394.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61394.jpgsave_picture_61394.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ V.A. - Vintage Cafe: Lounge and Jazz Blends, Vol. 23 (2024) [FLAC|Lossless|WEB-D
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61395.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61395.jpgsave_picture_61395.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:A6E0ED7DED040F18868E1258262DF7EEF6AA6496
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61396.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61396.jpgsave_picture_61396.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ Rage - Afterlifelines (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Power M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61397.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61397.jpgsave_picture_61397.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ magnet:?xt=urn:btih:E5EE251907C1BC6B2A9D7AE072D40F08D43E06BF
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61398.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61398.jpgsave_picture_61398.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ magnet:?xt=urn:btih:E5EE251907C1BC6B2A9D7AE072D40F08D43E06BF
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61399.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61399.jpgsave_picture_61399.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ magnet:?xt=urn:btih:E5EE251907C1BC6B2A9D7AE072D40F08D43E06BF
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61400.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61400.jpgsave_picture_61400.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ magnet:?xt=urn:btih:B87ACAE0CD8036579C967708C95E8CB32AE7F7CB
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61401.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61401.jpgsave_picture_61401.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Deep Purple - Machine Head (Super Deluxe) (2024) [FLAC 24/96.0, 48.0, 44.1 kHz|L
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61402.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61402.jpgsave_picture_61402.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ magnet:?xt=urn:btih:5934A58F57BC3540433E2AB22754E044F56D9F4E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61403.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61403.jpgsave_picture_61403.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Microsoft Visual Studio 2022 Enterprise 17.9.5 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61404.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61404.jpgsave_picture_61404.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ X-Disk for Mac 1.0.6 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61405.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61405.jpgsave_picture_61405.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Native Instruments - Kontakt 7.9.0 STANDALONE, VSTi, VSTi 3, AAX (x64) Portable 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61406.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61406.jpgsave_picture_61406.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ magnet:?xt=urn:btih:2153F562B02E5035EB078C9AF513D315BC18F7B5
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61407.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61407.jpgsave_picture_61407.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ magnet:?xt=urn:btih:2FF3BAF48B5368F8D41DB78693CB569B1D90433C
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61408.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61408.jpgsave_picture_61408.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ magnet:?xt=urn:btih:311DFB8FECB83FBC9D9341668DDA9B3CC138CB92
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61409.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61409.jpgsave_picture_61409.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ magnet:?xt=urn:btih:30B226E6CE0197AD375DD478CCACE9B1AB806014
 >>Классическая поэзия и проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61410.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61410.jpgsave_picture_61410.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ magnet:?xt=urn:btih:516B52580D28BF16E4FAEC6C4D3EB60835B64D1B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61411.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61411.jpgsave_picture_61411.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Topaz Gigapixel AI 7.0.5 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61412.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61412.jpgsave_picture_61412.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ Wondershare PDFelement 10.3.5.2707 + OCR Plugin (x64) Portable by 7997 [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61413.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61413.jpgsave_picture_61413.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ magnet:?xt=urn:btih:CAB2E1C97AD34A429A952823C6C1567EA8BF4750
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61414.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61414.jpgsave_picture_61414.jpg" />
 </div>
 
 

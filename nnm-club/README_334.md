@@ -6,7 +6,7 @@ VRadio - Online Radio App v2.8.6 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8789.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8789.jpgsave_picture_8789.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Blur Text - скрыть данные v3.0.2 Mod by FeralFox [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8790.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8790.jpgsave_picture_8790.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Relaxing Time 3: Enchanting France / Время отдыха 3: Чарующая
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8791.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8791.jpgsave_picture_8791.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:3B5C84C387B14F4F49431F3B809D82E8774A5DD1
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8792.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8792.jpgsave_picture_8792.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ VA - Music News For Forum vol.123 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8793.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8793.jpgsave_picture_8793.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ magnet:?xt=urn:btih:FB73C8C56C798601142FB299E1BDC74DD6830ACF
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8794.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8794.jpgsave_picture_8794.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ magnet:?xt=urn:btih:092264F5677F926EE270647EC527501AF85FAE03
 >>Разное (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8795.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8795.jpgsave_picture_8795.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:DFC4EE6E4753860B34B9CD223417AAB6F5817477
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8796.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8796.jpgsave_picture_8796.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ magnet:?xt=urn:btih:ACA3B4B655647A419131AA60B9590BCDBA9A0F98
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8797.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8797.jpgsave_picture_8797.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ VA - Compilation Part 182 Electronic (2025) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8798.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8798.jpgsave_picture_8798.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ magnet:?xt=urn:btih:55316FC8F2D0DB91132D190A8983EEDF1B24D519
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8799.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8799.jpgsave_picture_8799.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ MiniMeters 1.0.7 STANDALONE, VST 3, CLAP (x64) RePack [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8800.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8800.jpgsave_picture_8800.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ magnet:?xt=urn:btih:4C04CDB80F7128CF033A6243844580DDCE5F232C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8801.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8801.jpgsave_picture_8801.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ magnet:?xt=urn:btih:F13C2B6F11013B8AD5A37F1CB401A7A65DD115C9
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8802.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8802.jpgsave_picture_8802.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ magnet:?xt=urn:btih:1DE463323147E31FF4783014D5BBCB9EF97928CD
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8803.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8803.jpgsave_picture_8803.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ magnet:?xt=urn:btih:FEA7975FC555B04E9B253311992288E5B2C3402F
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8804.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8804.jpgsave_picture_8804.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ magnet:?xt=urn:btih:47119CB58DE8B0B8BDA8B210A859D405EAEB260D
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8805.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8805.jpgsave_picture_8805.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ magnet:?xt=urn:btih:E4841D4689847399D1D7D81D346164ABAB690FE3
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8806.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8806.jpgsave_picture_8806.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ magnet:?xt=urn:btih:220BD3F2E9045246A82E803BA59CC62B00ECEADA
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8807.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8807.jpgsave_picture_8807.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Waves Complete V16 2025.08.06 VST 3, AAX, STANDALONE (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8808.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8808.jpgsave_picture_8808.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Koboo: The Tree Spirit (2024) [En] (1.02) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8809.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8809.jpgsave_picture_8809.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ magnet:?xt=urn:btih:6A6000ADAA4E6FA4CFD8CD4D5FE23B48DCA0D975
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8810.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8810.jpgsave_picture_8810.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ magnet:?xt=urn:btih:53519EA30FAC2D930CC5B31C8B404BF79EA65B29
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8811.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8811.jpgsave_picture_8811.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ magnet:?xt=urn:btih:CE207E4767D09EB0E4BDBA0E3648A047718B9148
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8812.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8812.jpgsave_picture_8812.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ magnet:?xt=urn:btih:C43B5D531E052233457ADDB37CFC7A95034F220E
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8813.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8813.jpgsave_picture_8813.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ Moon+ Reader Pro v10.1 (b1001001) Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8814.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8814.jpgsave_picture_8814.jpg" />
 </div>
 
 

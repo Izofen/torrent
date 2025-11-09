@@ -6,7 +6,7 @@ VA - Chillout & Lounge Moods (2025) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69806.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69806.jpgsave_picture_69806.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:0697BAD9124EC25BF6166BD77FB135741479CD72
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69807.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69807.jpgsave_picture_69807.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ VA - One Shot '80 Volume 15 (2003) 2 CD [OGGVorbis|480 Kbps] <Electronic, Pop, I
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69808.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69808.jpgsave_picture_69808.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ VA - Dream Lounge: Chillout Your Mind (2025) [FLAC|Lossless|WEB-DL|tracks] <Bale
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69809.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69809.jpgsave_picture_69809.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Adam F - Colours Revisited (2025) [FLAC|Lossless|WEB-DL|tracks] <Breaks, Drum'n'
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69810.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69810.jpgsave_picture_69810.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ VA - One Shot '80 Volume 13 (2002) [OGG Vorbis|480 Kbps] <Rock, Pop, Pop Rock, S
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69811.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69811.jpgsave_picture_69811.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ magnet:?xt=urn:btih:8ED1B517309557FE5AE2FCA4C920E38C8A6D7F74
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69812.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69812.jpgsave_picture_69812.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ magnet:?xt=urn:btih:BDA0B82C1DA75C16A48297545FB0B20BEBB4D77C
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69813.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69813.jpgsave_picture_69813.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ magnet:?xt=urn:btih:31C3607C9B86244E06D5A013485B1DDCF3334169
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69814.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69814.jpgsave_picture_69814.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ VA - One Shot '80 Volume 14 (2002) [OGG Vorbis|480 Kbps] <Electronic, Rock, Pop 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69815.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69815.jpgsave_picture_69815.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ magnet:?xt=urn:btih:ABD646E1E6FB8ADBF539EB7AB025220F44E0D26D
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69816.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69816.jpgsave_picture_69816.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ LP Giobbi - Dotr (2024) Remixes, 2025, Counter Records [FLAC|Lossless|WEB-DL|tra
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69817.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69817.jpgsave_picture_69817.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ VA - Elliptical Sun Miami Sampler 2025 (2025) [MP3|320 Kbps] <Trance, Progressiv
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69818.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69818.jpgsave_picture_69818.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ magnet:?xt=urn:btih:E09B3B29368B5BE78829D82FA4AFEE36F8DC54CF
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69819.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69819.jpgsave_picture_69819.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Oscar Peterson Trio - The Complete Tokyo Concert (1964) 2CD, 2008, Jazz Lips [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69820.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69820.jpgsave_picture_69820.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Mercury Tide - Walls Of Confusion (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69821.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69821.jpgsave_picture_69821.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Bill Evans - In Norway: The Kongsberg Concert (1970) 2024, Elemental Music [FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69822.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69822.jpgsave_picture_69822.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ magnet:?xt=urn:btih:3D3DB17F0B682C669D81921FF1B346415753FC6E
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69823.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69823.jpgsave_picture_69823.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Morlas Memoria - Adieu (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Symphonic Met
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69824.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69824.jpgsave_picture_69824.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Art Pepper & Zoot Sims All Stars - Art & Zoot (1981) 1991, West Wind [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69825.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69825.jpgsave_picture_69825.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ magnet:?xt=urn:btih:A8FC079057C1DC13E1064DD4F2BF68FC789B7A53
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69826.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69826.jpgsave_picture_69826.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ magnet:?xt=urn:btih:4B97D301BA8FBBFDFE89FE8FDBCD8EA1BF6D170E
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69827.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69827.jpgsave_picture_69827.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ VA - Italian Dining Jazz (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69828.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69828.jpgsave_picture_69828.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ magnet:?xt=urn:btih:82C9C3BC53FA10B250865C05993C0FC32C00EED5
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69829.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69829.jpgsave_picture_69829.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ magnet:?xt=urn:btih:CC20CCEE27864C61B28602DFE53A03A0AC41FA0B
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69830.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69830.jpgsave_picture_69830.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ magnet:?xt=urn:btih:AA5F429F05CE5D4154E90EFDC0A8B40819AF8803
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69831.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69831.jpgsave_picture_69831.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ VA - Rock and a Hard Place (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues, Country,
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240865.jpgsave_picture_240865.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Dan Croll - Fools (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop>
 >>Pop (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240866.jpgsave_picture_240866.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:59245B2F3B142E1F7D1CFDDA4D892FF5861C9A12
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240867.jpgsave_picture_240867.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Invent Animate - Heavener (2023) [FLAC|Lossless|WEB-DL|tracks] <Metalcore>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240868.jpgsave_picture_240868.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ magnet:?xt=urn:btih:9AAB3CB28B6F6BFFAEE02753891FE595D11FDAFE
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240869.jpgsave_picture_240869.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ magnet:?xt=urn:btih:DB05924C2DBC5C146028CECAFACE41057C8FE567
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240870.jpgsave_picture_240870.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ VA - 6 Years Label Anniversary, Pt. 2 (2023) [MP3|320 Kbps] <Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240871.jpgsave_picture_240871.jpg" />
 </div>
 
 
@@ -187,7 +187,7 @@ Hazel 5.0.6 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240872.jpgsave_picture_240872.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ The Gathering - Interference (2022) EP [FLAC|Lossless|WEB-DL|tracks] <Atmospheri
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240873.jpgsave_picture_240873.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ Crystal Tears - Generation X (2010) [WavPack|Lossless|image + .cue] <Heavy Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240874.jpgsave_picture_240874.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ magnet:?xt=urn:btih:4072A9C91A8492D788322EEA5424A22AB68B7A8F
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240875.jpgsave_picture_240875.jpg" />
 </div>
 
 
@@ -289,7 +289,7 @@ magnet:?xt=urn:btih:057D2DDC5B83AAB9776727A707350BBB613D462B
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240876.jpgsave_picture_240876.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ Glary Utilities Pro 5.205.0.234 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240877.jpgsave_picture_240877.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ Julius Project - Cut The Tongue (2020) [FLAC|Lossless|image + .cue] <Progressive
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240878.jpgsave_picture_240878.jpg" />
 </div>
 
 
@@ -364,7 +364,7 @@ Samarithan - Tales Of Doom (2022) [MP3|320 Kbps] <Heavy Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240879.jpgsave_picture_240879.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ magnet:?xt=urn:btih:D70C2139C803BF5A8EF21FDF4600C8588B24A09C
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240880.jpgsave_picture_240880.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ Irvue 2.7.11 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240882.jpgsave_picture_240882.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Invisible - Heavy Metal (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Hard 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240883.jpgsave_picture_240883.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ magnet:?xt=urn:btih:869C51234B797AA541E46C830466D54859DF19AE
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240884.jpgsave_picture_240884.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ magnet:?xt=urn:btih:C3FA9A4A6F742DD2F7C9CE662A31444CC2579C06
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240885.jpgsave_picture_240885.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ VA - Trancebargitha (2017) [MP3|320 Kbps] <Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240887.jpgsave_picture_240887.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ magnet:?xt=urn:btih:7489F75AD4FE45662072278DA4E3789F639C20EC
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240888.jpgsave_picture_240888.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ magnet:?xt=urn:btih:17368E2C66E5EF372AFCA1028100BEEB0C331AAE
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240889.jpgsave_picture_240889.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ magnet:?xt=urn:btih:9ECE9960FB1DE476AFD2681936557ED63BD49F79
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240890.jpgsave_picture_240890.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Alexey Amusin - The Rocker (2020) [MP3|320 Kbps] <Hard Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240891.jpgsave_picture_240891.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ magnet:?xt=urn:btih:198F50A3EB73C306CD332816C1E9AFFFD5624937
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240892.jpgsave_picture_240892.jpg" />
 </div>
 
 

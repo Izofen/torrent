@@ -6,7 +6,7 @@
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12620.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12620.jpgsave_picture_12620.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Lonely Mountains: Snow Riders (2025) [Ru/Multi] (1.2.101/dlc) Repack Let'sРlay
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12621.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12621.jpgsave_picture_12621.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:85AB2FFCE694D910FDF67C77781580B02F56F632
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12622.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12622.jpgsave_picture_12622.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:32F144CAA5FCBCD2E15F07B76B6BA674B56127C4
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12623.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12623.jpgsave_picture_12623.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:EE6A664A774EA72993029F197742AD9B3CD79B65
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12624.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12624.jpgsave_picture_12624.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:E60B59526507FAF0AA4680FC799AF355814E6739
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12625.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12625.jpgsave_picture_12625.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:2C339A86505EC689DFBC9D5058FFEADC3E90149F
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12626.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12626.jpgsave_picture_12626.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:075E172D52D3F1D67BFA8E49388ECA19590D651B
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12627.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12627.jpgsave_picture_12627.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:78B3F01FCF9837689F53C87E08EA16234D76D9DF
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12628.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12628.jpgsave_picture_12628.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Notification Widget v1.5.182 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12629.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12629.jpgsave_picture_12629.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ magnet:?xt=urn:btih:7ECEF7BD0E9D81FD544A83F0069D9077C232067E
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12630.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12630.jpgsave_picture_12630.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Smart AudioBook Player Pro v11.4.9 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12631.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12631.jpgsave_picture_12631.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ magnet:?xt=urn:btih:EEE6C2264FC96391968391FC64E57D62F981854D
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12632.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12632.jpgsave_picture_12632.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ magnet:?xt=urn:btih:6AA44466684B61B6C2C56F9F26630F5944A4FCC5
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12633.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12633.jpgsave_picture_12633.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ D16 Group - SilverLine Collection 2025.6 VST, VST 3, AAX (X86/X64) RePack by TCD
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12634.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12634.jpgsave_picture_12634.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ LANDR - Mastering Plugin Pro 1.1.34 VST 3, AAX (x64) RePack by R2R [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12635.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12635.jpgsave_picture_12635.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ iZotope - Tonal Balance Control 2 2.10.0 VST3, AAX (x64) RePack by R2R [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12636.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12636.jpgsave_picture_12636.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ magnet:?xt=urn:btih:68B7AA067E7DA29118A32CD79D3A912A4CAD6799
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12637.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12637.jpgsave_picture_12637.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ magnet:?xt=urn:btih:7DAE907593338CC540BAE5AE54C2110A61BF2BEB
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12638.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12638.jpgsave_picture_12638.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Notification Dots v1.2.68 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12639.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12639.jpgsave_picture_12639.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ magnet:?xt=urn:btih:995DC28B0F560F6D5D4DE3AFB144C59882895331
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12640.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12640.jpgsave_picture_12640.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ magnet:?xt=urn:btih:F8ABE5DFE9B8DCA0AD87F73A1D6B85B185E13D53
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12641.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12641.jpgsave_picture_12641.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ KORG - ARP 2600 1.1.5 Standalone, VSTi 3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12642.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12642.jpgsave_picture_12642.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ KORG - Modwave Native 1.3.5 Standalone, VSTi 3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12643.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12643.jpgsave_picture_12643.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ magnet:?xt=urn:btih:7B0715F986D17192C438BD30D4C7BF775789D881
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12644.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12644.jpgsave_picture_12644.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ magnet:?xt=urn:btih:E6D3B383106B5757779E8120B23BF1F22B9AF978
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12645.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12645.jpgsave_picture_12645.jpg" />
 </div>
 
 

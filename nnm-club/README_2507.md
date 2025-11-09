@@ -6,7 +6,7 @@ Kiss - Love Gun (1977) Remastered, 2014, UMe Direct 2 [FLAC 24/192|Lossless|WEB-
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65932.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65932.jpgsave_picture_65932.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:773D635F7705AC1D61FD3B6D3FB1D18C0986B5F9
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65933.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65933.jpgsave_picture_65933.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ magnet:?xt=urn:btih:A6DE65C1F229F2148C25964FA2E524EC74DF64C1
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65934.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65934.jpgsave_picture_65934.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:57ACF6603B61895CCEF9D169327BD611BBFB0566
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65935.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65935.jpgsave_picture_65935.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ TikTok Private Plus v40.5.5 Mod by TikTok + Plugin Update 2.8 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65936.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65936.jpgsave_picture_65936.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ magnet:?xt=urn:btih:07E5D6822C9F95CC7F51F703F8E41773F815BC4E
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65937.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65937.jpgsave_picture_65937.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ magnet:?xt=urn:btih:DA90C47F3F48194D16EB362A916C25B3F6906DCB
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65938.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65938.jpgsave_picture_65938.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ Itinerum - Resurgence (2025) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65939.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65939.jpgsave_picture_65939.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ Caravan Palace - Dusty House Mix (Mixed) (2025) [FLAC|Lossless|WEB-DL|tracks] <E
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65940.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65940.jpgsave_picture_65940.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ GoGo Penguin - Necessary Fictions (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Ja
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65941.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65941.jpgsave_picture_65941.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ magnet:?xt=urn:btih:4CBABF1F57FDFE1121D108FC48475C2A8C8F4808
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65942.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65942.jpgsave_picture_65942.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ magnet:?xt=urn:btih:B8B46F0A25284C7EB67579051DF0A5E52638E7EF
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65943.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65943.jpgsave_picture_65943.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ VA - Ori Uplift - Uplifting Only Episode 645 (2025) [MP3|320 Kbps] <Trance, Upli
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65944.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65944.jpgsave_picture_65944.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ SanMinor - Шаг вперед (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65945.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65945.jpgsave_picture_65945.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ Last Grasp - Southern Malaise (2025) [FLAC|Lossless|WEB-DL|tracks] <Darkwave, Po
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65946.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65946.jpgsave_picture_65946.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Alestorm - The Thunderfist Chronicles (2025) Deluxe Version, 3CD, Napalm Records
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65947.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65947.jpgsave_picture_65947.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ Imperial Triumphant - Alphaville (2020) [FLAC|Lossless|image + .cue] <Black Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65948.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65948.jpgsave_picture_65948.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ Me'Shell NdegеOcello - Cookie: The Anthropological Mixtape (2002) [FLAC|Lossles
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65949.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65949.jpgsave_picture_65949.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Sonata Arctica - Silence (2001) Released, 2017, Spinefarm Records [FLAC|24/192|i
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65950.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65950.jpgsave_picture_65950.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ Leverage - Gravity (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Power Metal>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65951.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65951.jpgsave_picture_65951.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ Selvforakt - Ormstukken (2025) [MP3|320 Kbps] <Black, Sludge Metal, Crust>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65952.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65952.jpgsave_picture_65952.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Revelation - Inner Harbor (2012) [FLAC|Lossless|WEB-DL|tracks] <Progressive, Doo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65953.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65953.jpgsave_picture_65953.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ magnet:?xt=urn:btih:DC7D2F415FC08C746BCA7156715E78AD8FD1A73E
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65954.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65954.jpgsave_picture_65954.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ magnet:?xt=urn:btih:C870A97AA75A1E0DDDB5C06D733A08B8A79066A1
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65955.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65955.jpgsave_picture_65955.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ VA - Armin van Buuren - A State Of Trance 1230 (2025) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65956.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65956.jpgsave_picture_65956.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Haim - I quit (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Indie Pop>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65957.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65957.jpgsave_picture_65957.jpg" />
 </div>
 
 

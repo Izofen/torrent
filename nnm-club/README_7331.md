@@ -6,7 +6,7 @@
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250647.jpgsave_picture_250647.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250650.jpgsave_picture_250650.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250653.jpgsave_picture_250653.jpg" />
 </div>
 
 
@@ -89,7 +89,7 @@ magnet:?xt=urn:btih:F057434F057F677D8107B69F24090CEB80D64192
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250654.jpgsave_picture_250654.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ magnet:?xt=urn:btih:F057434F057F677D8107B69F24090CEB80D64192
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250657.jpgsave_picture_250657.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ HEAVEN IS A PLACE ON EARTH / Gekijouban Hayate no Gotoku! Heaven is a Place on E
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250658.jpgsave_picture_250658.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ IBM SPSS Statistics v20 Multilingual-32bit + Fix Pack 1 20.0.0.1 [Многояз
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250662.jpgsave_picture_250662.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ WinDoZa Live & Boot by Core-2 v.2.5.9 [Русский и английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250665.jpgsave_picture_250665.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ Deep Purple - 19 Альбомов (1968 - 2011) /1986 -2011, Harvest, EMI Record
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250669.jpgsave_picture_250669.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ THW-Simulator 2012 [Ger] (L) 2012 | ALiAS
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250670.jpgsave_picture_250670.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Nik Software Complete Collection 2012 [Eng]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250671.jpgsave_picture_250671.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Complete Collection — это наиболее полная коллекция 
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250677.jpgsave_picture_250677.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Complete Collection — это наиболее полная коллекция 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250678.jpgsave_picture_250678.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ magnet:?xt=urn:btih:A162F77C2116F20B03C071DD3792CA245712FD65
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250679.jpgsave_picture_250679.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ magnet:?xt=urn:btih:A162F77C2116F20B03C071DD3792CA245712FD65
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250681.jpgsave_picture_250681.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ magnet:?xt=urn:btih:66655213FCB476E3DEF06C601C9D1300E4172178
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250682.jpgsave_picture_250682.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ magnet:?xt=urn:btih:04753697563AA8E2BEF5590F3841CFE5A887B4A5
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250684.jpgsave_picture_250684.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ Big Hassla - Первый Здесь (2012) [MP3|320 кб/с]<Rap, Hip-Hop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250685.jpgsave_picture_250685.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ magnet:?xt=urn:btih:2F33CB8F8A4116221ECCA24C904762B6333349A4
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250687.jpgsave_picture_250687.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ magnet:?xt=urn:btih:0BD76F5731B35AE9AADE74685A1B04BE428A41F1
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250689.jpgsave_picture_250689.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ magnet:?xt=urn:btih:47CB6E16A5744DA2CFBE21A31746560A57F47385
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250692.jpgsave_picture_250692.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Arcana Imperia - Новые миры (2012) [MP3|224 кб/с]<Melodic Death Meta
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250693.jpgsave_picture_250693.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ magnet:?xt=urn:btih:0740BB12137EA04035120516C1A4327A4BBA7294
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250695.jpgsave_picture_250695.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ magnet:?xt=urn:btih:1761DA2293DE12739170A79251CA9FCACFDB4FE9
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250698.jpgsave_picture_250698.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ magnet:?xt=urn:btih:8794751C58A44DF92E3EAB3AF62D27F94EFEB627
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250699.jpgsave_picture_250699.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ magnet:?xt=urn:btih:9E060BE9A4F4F3189DA4D6C25D13164CF49BBA78
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250700.jpgsave_picture_250700.jpg" />
 </div>
 
 

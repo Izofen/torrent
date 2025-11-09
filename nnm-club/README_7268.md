@@ -6,7 +6,7 @@
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248623.jpgsave_picture_248623.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:CFDDDC890A86B9186384E6E5570F0E41E4A04C96
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248624.jpgsave_picture_248624.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ magnet:?xt=urn:btih:FC45C4E431A695EAE6F757F0E13FE347617C5824
 >>Картинки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248629.jpgsave_picture_248629.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ Philip Morgan Lewis - Under The East End Sky (2025) [FLAC|Lossless|WEB-DL|tracks
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248630.jpgsave_picture_248630.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ Paul Filipowicz - Breakwater (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248631.jpgsave_picture_248631.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ magnet:?xt=urn:btih:DDEB146D56ACBC78229116224A071F9EF9F51826
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248632.jpgsave_picture_248632.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ Lyre Luciano - Music For Your Grand Daddy: The Book Of Valentino Slim (2025) [FL
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248633.jpgsave_picture_248633.jpg" />
 </div>
 
 
@@ -187,7 +187,7 @@ magnet:?xt=urn:btih:A60AB799583299E8376857ACF85B649DB648DBCA
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248634.jpgsave_picture_248634.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ magnet:?xt=urn:btih:141D7BFA8E464756440EA84E948CD543799AD295
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248635.jpgsave_picture_248635.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ magnet:?xt=urn:btih:1FC4CC79579D2E6580E2A7637BE8FB84704B31F9
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248636.jpgsave_picture_248636.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ magnet:?xt=urn:btih:E4E2FEBD2FF91FFE6C24CF982C677285FDF07705
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248637.jpgsave_picture_248637.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ magnet:?xt=urn:btih:5F745056C85B5DE88DA5CB649EBF3C9B578FD797
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248639.jpgsave_picture_248639.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ magnet:?xt=urn:btih:07C06B0220996D282BC7BDA694282053C3D9F547
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_248640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_248640.jpgsave_picture_248640.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ Risen 2: Dark Waters строится вокруг пиратской темат
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248641.jpgsave_picture_248641.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ magnet:?xt=urn:btih:503027055645F07281C15FAC9AB3E7E8856DE242
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_248642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_248642.jpgsave_picture_248642.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ OnOne Perfect Photo Suite 6.1 [Eng]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_248643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_248643.jpgsave_picture_248643.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Microsoft Process Monitor 3.01 [Eng & Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_248644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_248644.jpgsave_picture_248644.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Microsoft Process Monitor 3.01 [Eng & Rus]
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_248645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_248645.jpgsave_picture_248645.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Insanely Twisted Shadow Planet [Ru] (RePack/1.0r9) 2012 l Fenixx
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248649.jpgsave_picture_248649.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ VMware Workstation 8.0.3 Build 703057 Lite by qazwsxe [Eng/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_248652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_248652.jpgsave_picture_248652.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ VMware Workstation — известная программа для виртуа
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248653.jpgsave_picture_248653.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Digital Juice - Ready2Go: Collection 11 (AE) (.djprojects)
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248654.jpgsave_picture_248654.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ magnet:?xt=urn:btih:228DBBF0EC1ED91AF2350494F3E04252FE732919
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_248655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_248655.jpgsave_picture_248655.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ magnet:?xt=urn:btih:228DBBF0EC1ED91AF2350494F3E04252FE732919
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_248657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_248657.jpgsave_picture_248657.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ magnet:?xt=urn:btih:228DBBF0EC1ED91AF2350494F3E04252FE732919
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_248658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_248658.jpgsave_picture_248658.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ magnet:?xt=urn:btih:228DBBF0EC1ED91AF2350494F3E04252FE732919
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248659.jpgsave_picture_248659.jpg" />
 </div>
 
 

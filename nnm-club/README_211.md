@@ -6,7 +6,7 @@ Ithya: Magic Studies / Итийя: Волшебные занятия (2025) [Ru/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5554.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5554.jpgsave_picture_5554.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:B3FD555508CC65259DBAA081AD52B84505913312
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5555.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5555.jpgsave_picture_5555.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:013E9ED9BA74D7E40690C62C0FD386BF3FCF9AC5
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5556.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5556.jpgsave_picture_5556.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:1FF1DEF6D72D8A8F3C02DFE978160665255BC238
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5557.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5557.jpgsave_picture_5557.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:97FD7E446FB7069B21954A64E2E8810B61CCD652
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5558.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5558.jpgsave_picture_5558.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:C80463EE5C0481527F83D9BDB83C08758785CA04
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5559.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5559.jpgsave_picture_5559.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Tomb Raider I-III Remastered Starring Lara Croft (2024) [Switch] [EUR] 18.1.0, A
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5560.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5560.jpgsave_picture_5560.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Cocoon (2023) [Switch] [EUR] 16.1.0, Atmosphere 1.5.5 [License] [Ru/Multi]
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5561.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5561.jpgsave_picture_5561.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Vivaldi 7.5.3735.66 include standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5562.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5562.jpgsave_picture_5562.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:99E70F417D2C52D956EB19E9FBA0EC3AFC0B2AC2
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5563.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5563.jpgsave_picture_5563.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:162A2C949F785274D9330B0FCF91E4F096289A38
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5564.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5564.jpgsave_picture_5564.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Shotcut 25.08.16 + Portable [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5565.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5565.jpgsave_picture_5565.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:038B74B8AF094A4EDC20CA293B18366DF44AED3D
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5566.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5566.jpgsave_picture_5566.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ magnet:?xt=urn:btih:0CE7B09D10CDEE2286AB77132A2951BE659A4135
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5567.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5567.jpgsave_picture_5567.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Stranded: Alien Dawn (2022) [Ru/Multi] (build 18840735) Repack seleZen
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5568.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5568.jpgsave_picture_5568.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Whitney Houston - Концерт в Южной Африке / Whitney Houston - 
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5569.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5569.jpgsave_picture_5569.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ magnet:?xt=urn:btih:C8F0EA4A996212D8984AFD7002E91BC75D9AF597
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5570.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5570.jpgsave_picture_5570.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ magnet:?xt=urn:btih:DC8EF27B0D68F5E0E9AACF4F500FCD73CD0B1EA3
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5571.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5571.jpgsave_picture_5571.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ magnet:?xt=urn:btih:97EF8C2CBA750B71DA3411FFEF0A08872E4B2CAD
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5572.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5572.jpgsave_picture_5572.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ magnet:?xt=urn:btih:DEC3D481DA5F62F420185B4470E511BBC3B1A1D9
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5573.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5573.jpgsave_picture_5573.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Relic Hunters Legend (2023) [Ru/Multi] (1.0) Repack seleZen
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5574.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5574.jpgsave_picture_5574.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Lanpirot | Собрание произведений [2 книги] (2022-2025) 
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5575.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5575.jpgsave_picture_5575.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ Frozenheim (2022) [Ru/Multi] (1.4.10.3) Repack Let'sРlay [Deluxe Edition]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5576.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5576.jpgsave_picture_5576.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Yield! Fall of Rome (2025) [Ru/Multi] (1.0.1.3/dlc) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5577.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5577.jpgsave_picture_5577.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Prince of Persia The Lost Crown (2024) [Switch] [EUR] 17.0.1, Atmosphere 1.6.2 [
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5578.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5578.jpgsave_picture_5578.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ magnet:?xt=urn:btih:3539FE15846F75D52C639D2BD555FB5FD3B65D49
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5579.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5579.jpgsave_picture_5579.jpg" />
 </div>
 
 

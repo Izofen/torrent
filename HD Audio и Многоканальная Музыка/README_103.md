@@ -6,7 +6,7 @@ Aaron Parks - Little Big III (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103470.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103470.jpgsave_picture_103470.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Mariama Ndure - Rituals (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Vocal Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103472.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103472.jpgsave_picture_103472.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Nitrogods - Valley Of The Gods (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Heavy
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103473.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103473.jpgsave_picture_103473.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ The C.Zek Band - Agarthi (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103474.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103474.jpgsave_picture_103474.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Roy Waade - Playground (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz Fusion
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103475.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103475.jpgsave_picture_103475.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Zooloo / The Seaweeds - Black Pearls (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103480.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103480.jpgsave_picture_103480.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Mary Coughlan - Repeat Rewind (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blue
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103484.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103484.jpgsave_picture_103484.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Todd Partridge - Desert Fox Blues (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Bl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103485.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103485.jpgsave_picture_103485.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ Gillian Welch & David Rawlings - Woodland (2024) [FLAC 24/192|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103489.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103489.jpgsave_picture_103489.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Malabari - Down The Maelstrom (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard R
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103490.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103490.jpgsave_picture_103490.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Casandra's Crossing - Garden Of Earthly Delights (2024) [FLAC 24/96|Lossless|WEB
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103491.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103491.jpgsave_picture_103491.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ The Grammers - Rockfield (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103492.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103492.jpgsave_picture_103492.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ NRBQ - Brass Tacks (2014) 10th Anniversary Edition, 2024, Omnivore Recordings [F
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103509.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103509.jpgsave_picture_103509.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Smash Atoms - Smash Atoms (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Roc
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103510.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103510.jpgsave_picture_103510.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Malakye Grind - Dystopian Dream (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103511.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103511.jpgsave_picture_103511.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Flamy Grant - CHURCH (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues, Folk>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103512.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103512.jpgsave_picture_103512.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ Heather Pierson - Back To The Light (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103514.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103514.jpgsave_picture_103514.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Burna - Live Forever (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103515.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103515.jpgsave_picture_103515.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ magnet:?xt=urn:btih:C71D204D727CEAF61DAAD354317956268C7C2C4D
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103516.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103516.jpgsave_picture_103516.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Fate - Reconnect 'N' Ignite (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Hard Roc
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103517.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103517.jpgsave_picture_103517.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ Eric Bibb - In The Real World (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103518.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103518.jpgsave_picture_103518.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Stan Silver and the Brave Puppies - All In (2024) [FLAC 24/44.1|Lossless|WEB-DL|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103519.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103519.jpgsave_picture_103519.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ Killagodzilla - Синхродавинчи (2024) [FLAC 24/44.1|Lossless|WEB-DL|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103523.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103523.jpgsave_picture_103523.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ Riot V - Mean Streets (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Metal,
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103524.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103524.jpgsave_picture_103524.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ Cloudscape - Studio Albums (5 releases) (2005-2016) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103528.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103528.jpgsave_picture_103528.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ Fantastic Negrito - Son of a Broken Man (2024) [FLAC 24/48|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103530.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103530.jpgsave_picture_103530.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Autumns Eyes - Grimoire Of Oak & Shadow (2024) [FLAC|Lossless|WEB-DL|tracks] <Go
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105927.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105927.jpgsave_picture_105927.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Howard Rumsey's Lighthouse All-Stars - Sunday Jazz A La Lighthouse, Vol.1 (1953)
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105928.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105928.jpgsave_picture_105928.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ In Other Climes - Spreading Chaos (Since 2004) (2024) [FLAC|Lossless|WEB-DL|trac
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105929.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105929.jpgsave_picture_105929.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Mechanyzed - Ivy King (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105930.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105930.jpgsave_picture_105930.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Sandboxie 5.69.6 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105931.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105931.jpgsave_picture_105931.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ magnet:?xt=urn:btih:0B28CF1441E5AB101EDCC88F83656ABE40C26B0D
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105932.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105932.jpgsave_picture_105932.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ magnet:?xt=urn:btih:73E9C6DE892D1DA0951A2C6EFDC56150C3D93963
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105933.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105933.jpgsave_picture_105933.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ magnet:?xt=urn:btih:ACF071A3F3376B80FBB55789ACEBC48405A70E99
 >>Авторская и Военная песня (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105934.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105934.jpgsave_picture_105934.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ VA - Uplifting & Progressive Trance 2024 Vol. 1 (2024) [MP3|320 Kbps] <Trance, U
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105935.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105935.jpgsave_picture_105935.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ magnet:?xt=urn:btih:24EDAC12B142BF58DC5821106F353A5A6284738D
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105936.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105936.jpgsave_picture_105936.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ magnet:?xt=urn:btih:9DAC2FA9DD518FBEE170C55EB4BABC1358570FC5
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105937.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105937.jpgsave_picture_105937.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ GeoGebra 6.0.850.0 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105938.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105938.jpgsave_picture_105938.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ VA - Двойное удовольствие - 2 (2024) [FLAC|Lossless|WEB-DL|tr
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105939.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105939.jpgsave_picture_105939.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ John Lee Hooker - Collection (Золотая серия) (2006) [WavPack|Lossles
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105940.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105940.jpgsave_picture_105940.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ magnet:?xt=urn:btih:446A40A3DB23EF3E52A879945E2A4084EFA40704
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105941.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105941.jpgsave_picture_105941.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ Cherry Bomb - Sunset BLVD (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105942.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105942.jpgsave_picture_105942.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ Duran Duran - Do You Believe in Shame? (1989) Remaster, 2024, Rhino [FLAC|Lossle
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105943.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105943.jpgsave_picture_105943.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ magnet:?xt=urn:btih:D36C012A74DDBA8B4C448D0602ADBCBB30FE5403
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105944.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105944.jpgsave_picture_105944.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ magnet:?xt=urn:btih:5071FF3B31719DD66E2F496261DA74A0BA1DEBC9
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105945.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105945.jpgsave_picture_105945.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Jasmin - Тебе Понравится (2005) [WavPack|Lossless|image + .cue] <P
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105946.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105946.jpgsave_picture_105946.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ Paul Di'Anno's Warhorse - Paul Di'Anno's Warhorse (2024) [FLAC|Lossless|image + 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105947.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105947.jpgsave_picture_105947.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ VA - Nothing But... Trancetopia Vol. 17 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105948.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105948.jpgsave_picture_105948.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ magnet:?xt=urn:btih:7F9E85DA0D96A5F6DA49C20E948A1D7F2A7D73CA
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105949.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105949.jpgsave_picture_105949.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Happy Sovok - Happy Sovok (2009) [WavPack|Lossless|image + .cue] <Pop, Folk, Sta
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105950.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105950.jpgsave_picture_105950.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ magnet:?xt=urn:btih:76B12D3FA93F70BE155C33CC1943AE4F9A563247
 >>Космос
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105951.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105951.jpgsave_picture_105951.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ magnet:?xt=urn:btih:FEFCB138A9BDAA25E5DFEC8B379EB881CE3A419B
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105952.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105952.jpgsave_picture_105952.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ FBackup 9.8.740 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241212.jpgsave_picture_241212.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:5ECAF99F5EB2E814F33BDE9BBFF784CADDB3D699
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241213.jpgsave_picture_241213.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Maxthon Browser 7.0.2.1200 Beta + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241214.jpgsave_picture_241214.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:3973099F548351FB6480525E46789E3F90DE36AD
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241215.jpgsave_picture_241215.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Cigarette Vagina - Cosmic Empathy (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241216.jpgsave_picture_241216.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:957AF7570A82C378DABDF2C5728E8020E66F7A0A
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241217.jpgsave_picture_241217.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ Cursebinder - Drifting (2023) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241218.jpgsave_picture_241218.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:09E210AE9D44E47794F31DE5990CDE1C0ADE732E
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241219.jpgsave_picture_241219.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ magnet:?xt=urn:btih:AFF9071EDD51D66B93F10E23D44B0E516900D26F
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241221.jpgsave_picture_241221.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ Viasat Nature: Самые ядовитые животные мира / World's M
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241222.jpgsave_picture_241222.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ magnet:?xt=urn:btih:C031AC66134DEBB16F79EF77B13D9C7DC0E234DD
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241223.jpgsave_picture_241223.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ Cleo Laine - Portrait Of A Song Stylist (1989) The Harmony Collection [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241224.jpgsave_picture_241224.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ VA - Дискотека 2022 Dance Club Vol. 211 от NNNB [MP3|320 Kbps] <Pop, 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241225.jpgsave_picture_241225.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ Rencontre Nocturne - Journey to Paradise Again (2022) [MP3|320 Kbps] <Progressiv
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241226.jpgsave_picture_241226.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ magnet:?xt=urn:btih:669CF685A43C25C4D2CB31E72B1D0F7B61E82CE7
 >>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241227.jpgsave_picture_241227.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ Barons Court - A Descent Into Madness (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241228.jpgsave_picture_241228.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ Michael Davis & Bill Reichenbach - Bonetown (1999) Hip-Bone Music [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241229.jpgsave_picture_241229.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ QOwnNotes 23.4.2 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241230.jpgsave_picture_241230.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Syd.31 - Machine Ready (2021) [MP3|320 Kbps] <Industrial Metal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241231.jpgsave_picture_241231.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ The Beau Brummels - Triangle (1967) Reissue, 1993, Warner Bros. [FLAC|Lossless|t
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241233.jpgsave_picture_241233.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ magnet:?xt=urn:btih:CF7BD8098B1531D7CC7531ED96311E321F786BC7
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241234.jpgsave_picture_241234.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ magnet:?xt=urn:btih:B1BD906370B8179D507B80326398C631AE922B5E
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241235.jpgsave_picture_241235.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ VA - Easy Going Light Jazz Instrumentals to Chill and Relax (2023) [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241236.jpgsave_picture_241236.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Ringo Starr - La De Da (1998) Single [FLAC|Lossless|image + .cue] <Classic Rock,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241237.jpgsave_picture_241237.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ magnet:?xt=urn:btih:F8BC491C796873EBE9AF38AF1FA4EDE49B204992
 >>Рыбалка и Охота
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241238.jpgsave_picture_241238.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ TinkerTool System 5.30 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241239.jpgsave_picture_241239.jpg" />
 </div>
 
 

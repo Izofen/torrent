@@ -6,7 +6,7 @@ Theragon - Where The Stories Begin (2020) [FLAC|Lossless|image + .cue] <Power Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115314.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115314.jpgsave_picture_115314.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Vircolac - Veneration (2024) [FLAC|Lossless|WEB-DL|tracks] <Black, Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115315.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115315.jpgsave_picture_115315.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Accept - Humanoid (2024) Single [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115317.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115317.jpgsave_picture_115317.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ The Samurai Of Prog Featuring Marco Grieco - A Quiet Town (2024) [FLAC|Lossless|
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115321.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115321.jpgsave_picture_115321.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ VA - 100% Rock - Rock Hits - From Classic Rock To Metal (2024) [MP3|320 Kbps] <R
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115383.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115383.jpgsave_picture_115383.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Funeral Winds - 333 (2024) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115456.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115456.jpgsave_picture_115456.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Dissolving of Prodigy - Louceni se svetem pozemskym (2002) [FLAC|Lossless|image 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115457.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115457.jpgsave_picture_115457.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Funeral Winds - Godslayer Xul (1998) Reissue, 2003, Death To Mankind [FLAC|Lossl
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115458.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115458.jpgsave_picture_115458.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Dissolving of Prodigy - Louceni se svetem pozemskym (2002) Reissue, 2023, Pařá
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115459.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115459.jpgsave_picture_115459.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Eternal Storm - Come the Tide (2019) [FLAC|Lossless|image + .cue] <Progressive, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115460.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115460.jpgsave_picture_115460.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Funeral Winds - The Unheavenly Saviour (2019) Compilation [FLAC|Lossless|image +
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115461.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115461.jpgsave_picture_115461.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Dissolving of Prodigy - Stvanice (2008) [FLAC|Lossless|image + .cue] <Doom, Deat
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115462.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115462.jpgsave_picture_115462.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Far Beyond - The End of My Road (2024) [FLAC|Lossless|WEB-DL|tracks] <Symphonic 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115464.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115464.jpgsave_picture_115464.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Eternal Storm - From the Ashes (2013) EP [FLAC|Lossless|WEB-DL|tracks] <Progress
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115465.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115465.jpgsave_picture_115465.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Oathbringer - Tales Of Valor (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115467.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115467.jpgsave_picture_115467.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Dissolving Of Prodigy & Bigotry - Lamentations of Innocents & Step to the Grave 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115468.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115468.jpgsave_picture_115468.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Joe Lamont - Secrets You Keep (1985) Reissue, Sony Music, 2010 [FLAC|Lossless|WE
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115469.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115469.jpgsave_picture_115469.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Sons of Liberty - The Detail Is In The Devil (2024) [FLAC|Lossless|WEB-DL|tracks
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115471.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115471.jpgsave_picture_115471.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Funeral Winds - Nexion Xul - The Cursed Bloodline (2007) [APE|Lossless|image + .
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115473.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115473.jpgsave_picture_115473.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Bessemer Saints - This Is BS Too (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115474.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115474.jpgsave_picture_115474.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Eternal Storm - A Giant Bound to Fall (2024) [FLAC|Lossless|WEB-DL|tracks] <Prog
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115475.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115475.jpgsave_picture_115475.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Oroborus - Family Friendly Wall Of Death (2024) [FLAC|Lossless|WEB-DL|tracks] <P
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115477.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115477.jpgsave_picture_115477.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ James Mastro - Dawn of a New Error (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115478.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115478.jpgsave_picture_115478.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Dissolving of Prodigy - Gallileous & Wijlen Wij & Dissolving of Prodigy & Panthe
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115479.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115479.jpgsave_picture_115479.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ Funeral Winds - Sinister Creed (2018) [FLAC|Lossless|WEB-DL|tracks] <Black Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115480.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115480.jpgsave_picture_115480.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ Dreamstreet - Dreamstreet 2.0 (2023) [FLAC|Lossless|WEB-DL|tracks] <AOR>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115481.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115481.jpgsave_picture_115481.jpg" />
 </div>
 
 

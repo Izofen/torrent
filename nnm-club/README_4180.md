@@ -6,7 +6,7 @@ Marc Hartman (Chillson, Marco Moli, Red Chameleon, Solar Music Club, The Soul Cr
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129413.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129413.jpgsave_picture_129413.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Marc Hartman (Chillson, Marco Moli, Red Chameleon, Solar Music Club, The Soul Cr
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129415.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129415.jpgsave_picture_129415.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Marc Hartman (Chillson, Marco Moli, Red Chameleon, Solar Music Club, The Soul Cr
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129417.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129417.jpgsave_picture_129417.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ Marc Hartman (Chillson, Marco Moli, Red Chameleon, Solar Music Club, The Soul Cr
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129418.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129418.jpgsave_picture_129418.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ Marc Hartman (Chillson, Marco Moli, Red Chameleon, Solar Music Club, The Soul Cr
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129419.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129419.jpgsave_picture_129419.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Marc Hartman (Chillson, Marco Moli, Red Chameleon, Solar Music Club, The Soul Cr
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129420.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129420.jpgsave_picture_129420.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ Rick Wade - Never Ending Reflections (2011) [MP3|~245 кб/с (V0)]<Deep House, 
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129421.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129421.jpgsave_picture_129421.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ VA - Русские Новинки Vol.47 from AGR (2012) [MP3|320 кб/с]<Pop>
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129423.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129423.jpgsave_picture_129423.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ VA - Русские Новинки Vol.47 from AGR (2012) [MP3|320 кб/с]<Pop>
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129424.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129424.jpgsave_picture_129424.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ VA - Русские Новинки Vol.47 from AGR (2012) [MP3|320 кб/с]<Pop>
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129426.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129426.jpgsave_picture_129426.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ VA - Русские Новинки Vol.47 from AGR (2012) [MP3|320 кб/с]<Pop>
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129428.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129428.jpgsave_picture_129428.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Nero Burning ROM & Nero Express 2021 23.0.1.20 RePack by rjkzy [Multi/Ru]
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129429.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129429.jpgsave_picture_129429.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Nero Burning ROM — передовое программное обеспече�
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129430.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129430.jpgsave_picture_129430.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Windows 8.1 6.3 (Build 9600.20246) (24in2) x86/x64 by Sergei Strelec [Ru]
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129431.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129431.jpgsave_picture_129431.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Carly v48.02 Premium [Ru] - OBD2 car scanner (обновляемая)
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129432.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129432.jpgsave_picture_129432.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Carly v48.02 Premium [Ru] - OBD2 car scanner (обновляемая)
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129433.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129433.jpgsave_picture_129433.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Carly v48.02 Premium [Ru] - OBD2 car scanner (обновляемая)
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129434.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129434.jpgsave_picture_129434.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Carly v48.02 Premium [Ru] - OBD2 car scanner (обновляемая)
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129435.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129435.jpgsave_picture_129435.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ Carly v48.02 Premium [Ru] - OBD2 car scanner (обновляемая)
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129437.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129437.jpgsave_picture_129437.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Carly v48.02 Premium [Ru] - OBD2 car scanner (обновляемая)
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129439.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129439.jpgsave_picture_129439.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ Carly v48.02 Premium [Ru] - OBD2 car scanner (обновляемая)
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129441.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129441.jpgsave_picture_129441.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ Carly v48.02 Premium [Ru] - OBD2 car scanner (обновляемая)
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129443.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129443.jpgsave_picture_129443.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Carly v48.02 Premium [Ru] - OBD2 car scanner (обновляемая)
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129444.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129444.jpgsave_picture_129444.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ VA - Клубные Новинки Vol.67 from AGR (2012) [MP3|320 кб/с]<Club
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129445.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129445.jpgsave_picture_129445.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ VA - Клубные Новинки Vol.67 from AGR (2012) [MP3|320 кб/с]<Club
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129447.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129447.jpgsave_picture_129447.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ VA - Клубные Новинки Vol.67 from AGR (2012) [MP3|320 кб/с]<Club
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129448.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129448.jpgsave_picture_129448.jpg" />
 </div>
 
 

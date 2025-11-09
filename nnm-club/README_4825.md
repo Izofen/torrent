@@ -6,7 +6,7 @@ Monster Jam Steel Titans (2019) [Ru/Multi] (1.1.0/dlc) Repack R.G. Catalyst
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150945.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150945.jpgsave_picture_150945.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:5A6A4B1AAE393163523FE481F52180138EBA4A13
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150946.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150946.jpgsave_picture_150946.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Maxine Sullivan - Great Songs From The Cotton Club (1984) 1987, Sepan Milan [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150947.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150947.jpgsave_picture_150947.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:A2E4CCC0550F241B8789172A77B48963CD1C5C39
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150950.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150950.jpgsave_picture_150950.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:F2436BA473B82878691C480CBF377E4E3C26F145
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150952.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150952.jpgsave_picture_150952.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:A74B961FDE4A095BABAB7ED85DB9DED76BE11A1F
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150953.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150953.jpgsave_picture_150953.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Sensei 1.5.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150954.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150954.jpgsave_picture_150954.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:22EA9B31D89E0FFEBE8CA1412F1094BD83C3EA17
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150955.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150955.jpgsave_picture_150955.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:4E505C08A0F7698C928288F7E75E8112EE54FEFE
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150957.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150957.jpgsave_picture_150957.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ O'Reilly | Head First Сборник [18 книг] (2008-2016) [PDF]
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150958.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150958.jpgsave_picture_150958.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:5AFA92175155B7E5B888D72DD84F6ADE74E2C544
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150960.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150960.jpgsave_picture_150960.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ Metaline - Hidden Hand (2022) EP [FLAC|Lossless|WEB-DL|tracks] <Alternative Meta
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150961.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150961.jpgsave_picture_150961.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ Aiseesoft Video Converter Ultimate 9.0.16 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150963.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150963.jpgsave_picture_150963.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ magnet:?xt=urn:btih:FAB17E5329A6EEA48C984C978698E8F29D279ECC
 >>Футажи
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150964.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150964.jpgsave_picture_150964.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ magnet:?xt=urn:btih:CE3C55F10E6D08D5EB4A2FB4F33CEEBBECA7780A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150965.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150965.jpgsave_picture_150965.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ magnet:?xt=urn:btih:492CFE1102900F45E5F4143D3B22135172E1C7ED
 >>Игра престолов / Game of Thrones
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150966.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150966.jpgsave_picture_150966.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ magnet:?xt=urn:btih:E52AC9368CED9237A7D7C8769725DDC04C14444D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150967.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150967.jpgsave_picture_150967.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Disney Infinity 3.0 (2016) [Multi] (1.0.3/upd1) License PLAZA [Gold Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150968.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150968.jpgsave_picture_150968.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Firefox Browser 144.0 Portable by PortableApps [Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150969.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150969.jpgsave_picture_150969.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Lara Fabian - Lockdown Sessions (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150971.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150971.jpgsave_picture_150971.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ magnet:?xt=urn:btih:464ECE385D5C3693AEA93F2E5AB8AFAAD30483B3
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150972.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150972.jpgsave_picture_150972.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ In Depth Of My Mind - Reflection of Self-Destruction (2022) 2CD [FLAC|Lossless|W
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150974.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150974.jpgsave_picture_150974.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ magnet:?xt=urn:btih:42EC5FBFB0648E6B043885665E2DE897DADD1329
 >>Игра престолов / Game of Thrones
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150975.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150975.jpgsave_picture_150975.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ magnet:?xt=urn:btih:FFF9737964219C51BF91F740DCF8C84097206AE8
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150976.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150976.jpgsave_picture_150976.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ Firefox Browser 144.0 [Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150977.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150977.jpgsave_picture_150977.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ Microsoft Windows 10.0.17763.194 Version 1809 (December 2018 Update) - Ориг�
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150978.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150978.jpgsave_picture_150978.jpg" />
 </div>
 
 

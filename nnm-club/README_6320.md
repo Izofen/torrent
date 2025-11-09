@@ -6,7 +6,7 @@ Phase One Capture One 23 Enterprise 16.2.1.1384 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197949.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197949.jpgsave_picture_197949.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ UncomOS 2023.03.13-desktop [x64] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_197950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197950.jpgsave_picture_197950.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:98480C85897EB96820784EADD31AE61917F5104B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197951.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197951.jpgsave_picture_197951.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:37F875A2289877CB82648BDC9DF78A2BC20A48F0
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_197952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197952.jpgsave_picture_197952.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Skillbox, М. Овчинников, С. Корниенко и др. | Веб-в�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_197953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197953.jpgsave_picture_197953.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:A95721B00D0CC2AB7BEDEC4D7D4A657BD2121F10
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197954.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197954.jpgsave_picture_197954.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:C3520EAFC84C37A838FA6F9359A8662A033D92AB
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197955.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197955.jpgsave_picture_197955.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ Total Commander 10.52 Extended 23.5 Full / Lite RePack (& Portable) by BurSoft [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_197956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197956.jpgsave_picture_197956.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:6D3F7ED07F1B2159DD1851562B7E7B409D0912C8
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_197957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197957.jpgsave_picture_197957.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ DOA: Живой или мертвый / DOA: Dead or Alive (2006)  BDRemux [H.26
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_197958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197958.jpgsave_picture_197958.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:B30796312916BFD0813CA4F0A9F85E289B5BC746
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197959.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197959.jpgsave_picture_197959.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ magnet:?xt=urn:btih:C8B1CF6B0777679A5261840258D1C87C5C7DEA2D
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_197960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197960.jpgsave_picture_197960.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ magnet:?xt=urn:btih:10E662591278C6CA476EA95F5ABA03F87860E707
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197961.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197961.jpgsave_picture_197961.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ magnet:?xt=urn:btih:5BC6F0ECC05C49AEEDBEEA45EB141204224E3B4E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_197962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197962.jpgsave_picture_197962.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ VA - Лучшие песни русского радио 21 Альбом (2000 -
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_197963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197963.jpgsave_picture_197963.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ magnet:?xt=urn:btih:87E5AE8DF3A67942B81BACC880C2D8EE810B69F5
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197964.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197964.jpgsave_picture_197964.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ magnet:?xt=urn:btih:17B041DCDDE7E37544478E7C1C88850351CF1F9E
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197965.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197965.jpgsave_picture_197965.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Foxit PDF Editor Pro 2023.1.0.15510 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_197966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197966.jpgsave_picture_197966.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ magnet:?xt=urn:btih:033BF9D35115FBC8D2E5C4D395BCA7CCDD74902C
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197967.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197967.jpgsave_picture_197967.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ magnet:?xt=urn:btih:6E68185492B3BA28E1DC95E5ED35753891628089
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_197968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197968.jpgsave_picture_197968.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ Piriform Recuva 1.53.2095 All Editions RePack (& Portable) by Dodakaedr [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197969.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197969.jpgsave_picture_197969.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ magnet:?xt=urn:btih:2D843E4E134327A629DADE2743412BC5F39D379F
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_197970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197970.jpgsave_picture_197970.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ Android Studio Flamingo 2022.2.1 Patch 2 Build #AI-222.4459.24.2221.10121639 + P
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197971.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197971.jpgsave_picture_197971.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:8C85E671914F284594A90E74838BD5B6CA86F23F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_197972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197972.jpgsave_picture_197972.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Topaz Photo AI 1.3.6 (x64) RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197973.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197973.jpgsave_picture_197973.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Changellenge, Денис Хайретдинов, Георгий Пащенко |
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_197974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197974.jpgsave_picture_197974.jpg" />
 </div>
 
 

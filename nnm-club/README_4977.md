@@ -6,7 +6,7 @@ DjVu Reader Pro 2.3.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155498.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155498.jpgsave_picture_155498.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:99AA01DDECC1184EB52AC00DFC2EB67B25ED90C6
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155499.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155499.jpgsave_picture_155499.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ Windows 8 Professional VL x64 Optim [русский]
 >>38
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155501.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155501.jpgsave_picture_155501.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ Yuletide Legends 3: Who Framed Santa Claus (2018) [En] (1.0) Unofficial [Collect
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155502.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155502.jpgsave_picture_155502.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ magnet:?xt=urn:btih:F6A9E2D67D1532AC33EFAEE8C1983FD1FE68C350
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155503.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155503.jpgsave_picture_155503.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ magnet:?xt=urn:btih:7043C46507E01E285A7BAB3C0E8D8168D8106745
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155504.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155504.jpgsave_picture_155504.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ magnet:?xt=urn:btih:7A826007197A71E822E36D00E140BE6460CC9A2C
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155505.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155505.jpgsave_picture_155505.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ VA - Music News vol.314 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155506.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155506.jpgsave_picture_155506.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ VA - Christmassy Car Songs (2017) [MP3|192-320 Kbps] <Pop, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155509.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155509.jpgsave_picture_155509.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ magnet:?xt=urn:btih:FFB1BA3E1CC6186DB11EFD60C644D22E46AA7154
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155510.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155510.jpgsave_picture_155510.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ magnet:?xt=urn:btih:01EE41539A8B749D566940597818FF441E1BEFC0
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155511.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155511.jpgsave_picture_155511.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ VueScan Pro 9.7.96 RePack (& Portable) by elchupacabra (DC 27.12.2022) [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155512.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155512.jpgsave_picture_155512.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ magnet:?xt=urn:btih:CA8E450AE951C83CF25ACFC6F8B9EAA8F369BD35
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155513.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155513.jpgsave_picture_155513.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Windows 8.1 x64 Professional NVDA для незрячих. 2015.12.12 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155514.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155514.jpgsave_picture_155514.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ magnet:?xt=urn:btih:DA3A49E780098C3D5512C523B9EEB322898CEB3C
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155515.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155515.jpgsave_picture_155515.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Tonikaku Kawaii: Fly Me to the Moon / Tonikawa: Over the Moon for You / Крас
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155516.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155516.jpgsave_picture_155516.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ magnet:?xt=urn:btih:FCE009AB6AACF44CDB023AEC8A4E7DEDCC843EA8
 >>9
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155517.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155517.jpgsave_picture_155517.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ KeyKey 2.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155518.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155518.jpgsave_picture_155518.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ magnet:?xt=urn:btih:2BB15C43014122E97024B0A01E3DFF48C011A634
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155519.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155519.jpgsave_picture_155519.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ CrystalDiskInfo 8.13.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155520.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155520.jpgsave_picture_155520.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ magnet:?xt=urn:btih:7B966B04799084C08BAA0E114BCA092D4E951638
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155521.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155521.jpgsave_picture_155521.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ magnet:?xt=urn:btih:DC8F765D4A7DAE5A8A21EA73F927171C3742830A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155522.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155522.jpgsave_picture_155522.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ magnet:?xt=urn:btih:96173440818210D855786E0A0911DA3F14DC8B90
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155524.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155524.jpgsave_picture_155524.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Microsoft Windows Home Server 2011 Russian Activated
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155525.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155525.jpgsave_picture_155525.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ magnet:?xt=urn:btih:37AB5E41E11AC57AF7633CE15CA46D7873268F10
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155527.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155527.jpgsave_picture_155527.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ The Chainsmokers - Sick Boy (2018) [MP3|320 Kbps] <Electro, Electronic, Pop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155528.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155528.jpgsave_picture_155528.jpg" />
 </div>
 
 

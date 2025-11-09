@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132309.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132309.jpgsave_picture_132309.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:5EB6E50940EB26EB6470DFD9BA5CD644C718BFC7
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132310.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132310.jpgsave_picture_132310.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Topaz Video AI 4.0.6 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132311.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132311.jpgsave_picture_132311.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ VA - Aropa Records - Best Of 2012 (2012) [MP3|320 kbps]<Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132312.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132312.jpgsave_picture_132312.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ Fitify: Фитнес тренировки дома 1.61.1 Mod by Balatan [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132313.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132313.jpgsave_picture_132313.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ magnet:?xt=urn:btih:380306BBDD634D173D54BAA708C94617654D7217
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132314.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132314.jpgsave_picture_132314.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Animal Wallpapers (28.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132315.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132315.jpgsave_picture_132315.jpg" />
 </div>
 
 
@@ -187,7 +187,7 @@ VA - Planet Love Records: Best Of 2012 (2012) [MP3|320 kbps]<Trance, House>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132316.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132316.jpgsave_picture_132316.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ magnet:?xt=urn:btih:70AA7ED9E3BCE4097E958615DC3CE326ABA2FAD7
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132317.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132317.jpgsave_picture_132317.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Andrew Lu - Club Universe Radioshow 053 (27.12.2012) [MP3|320 кб/с]<Trance, P
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132320.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132320.jpgsave_picture_132320.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ OCCT 12.1.12 Final Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132322.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132322.jpgsave_picture_132322.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ magnet:?xt=urn:btih:7ED2796801C10C939D7176276E265CFB901C454E
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132324.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132324.jpgsave_picture_132324.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ Miami Guns | Пушки Майами [2000, TV, 13 из 13] DVDRip 576p 10-bit r
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132326.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132326.jpgsave_picture_132326.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ magnet:?xt=urn:btih:109DC7A1E7B19BBEDD28D1877AD30DD206F369D4
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132328.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132328.jpgsave_picture_132328.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Christmas Wonderland 14 (2023) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132330.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132330.jpgsave_picture_132330.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ magnet:?xt=urn:btih:98826ACB6C83F243557EE3E7802FFDB27E0A2DFF
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132332.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132332.jpgsave_picture_132332.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ magnet:?xt=urn:btih:18904D2565F85E74CFDC5C285956B670E5734DF4
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132334.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132334.jpgsave_picture_132334.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ magnet:?xt=urn:btih:3D3FF290DA765ABBD1EB7CBA3605AB160F23B84F
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132335.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132335.jpgsave_picture_132335.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ K-Lite Codec Pack Update 17.9.9 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132336.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132336.jpgsave_picture_132336.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Topaz Photo AI 2.1.4 (x64) Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132337.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132337.jpgsave_picture_132337.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ magnet:?xt=urn:btih:D5E803F305963643E16513BE6684254E43A54FA5
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132338.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132338.jpgsave_picture_132338.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ VA - Night Rider 7 (2023) [MP3|320 Kbps] <House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132339.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132339.jpgsave_picture_132339.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ NIUBI Partition Editor 9.9.0 Pro / Unlimited / Technician Edition RePack (& Port
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132340.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132340.jpgsave_picture_132340.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ magnet:?xt=urn:btih:662A38A16A7411EE94093F49339830C2E19027F4
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132341.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132341.jpgsave_picture_132341.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ magnet:?xt=urn:btih:662A38A16A7411EE94093F49339830C2E19027F4
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132342.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132342.jpgsave_picture_132342.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ Till Lindemann - Zunge (2023) [FLAC|Lossless|image + .cue] <Industrial Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132344.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132344.jpgsave_picture_132344.jpg" />
 </div>
 
 

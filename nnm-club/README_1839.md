@@ -6,7 +6,7 @@ Dark Chisme - Dark Chisme (2024) [FLAC|Lossless|WEB-DL|tracks] <Darkpop, Darkwav
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48171.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48171.jpgsave_picture_48171.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Vaylon - A Different Void Of Silence (2024) [FLAC|Lossless|WEB-DL|tracks] <Synth
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48172.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48172.jpgsave_picture_48172.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Krachtek Elektronik - Oslo Syndrome (2024) [FLAC|Lossless|WEB-DL|tracks] <Synthp
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48173.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48173.jpgsave_picture_48173.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ DailyArt - Daily Dose of Art v3.3.0 Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48174.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48174.jpgsave_picture_48174.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Kazaky - Like It (Part I) (2014) [WavPack|Lossless|image + .cue] <Synth-pop, Ele
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48175.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48175.jpgsave_picture_48175.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ VA - Uplifting Only Top 15: August 2024 (Extended Mixes) (2024) [MP3|320 Kbps] <
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48176.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48176.jpgsave_picture_48176.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ VA - Arabian Miriage (2024) [MP3|320 Kbps] <Instrumental Pop, World>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48177.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48177.jpgsave_picture_48177.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ StartAllBack 3.8.0 StartIsBack++ 2.9.20 (2.9.1) StartIsBack + 1.7.6 RePack by Kp
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48178.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48178.jpgsave_picture_48178.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ magnet:?xt=urn:btih:3ED86CD945FF9948DF294E5050BCA2F57120F45E
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48179.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48179.jpgsave_picture_48179.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ magnet:?xt=urn:btih:462814F71E12FB63CE79A0851C57A31448B51487
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48180.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48180.jpgsave_picture_48180.jpg" />
 </div>
 
 
@@ -265,7 +265,7 @@ magnet:?xt=urn:btih:89653F8357470E069AF6D000FDA3AF5099E4B4DC
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48181.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48181.jpgsave_picture_48181.jpg" />
 </div>
 
 
@@ -289,7 +289,7 @@ StartAllBack 3.8.0 StartIsBack++ 2.9.20 (2.9.1 for 1607) StartIsBack+ 1.7.6 Star
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48182.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48182.jpgsave_picture_48182.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ magnet:?xt=urn:btih:9A75E613A592B41D04A18CDD5A1D4140EC433E20
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48183.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48183.jpgsave_picture_48183.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ Spirit Island (2020) [En] (1.0/dlc) Scene TiNYiSO
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48184.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48184.jpgsave_picture_48184.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ magnet:?xt=urn:btih:0319D2D4AF27F08696939E3B8F6BA94F1CD3F554
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48185.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48185.jpgsave_picture_48185.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ magnet:?xt=urn:btih:2CB0376203F6708E1C7E7E43433E86766E57BCA9
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48186.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48186.jpgsave_picture_48186.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ magnet:?xt=urn:btih:C3965F2BD94B916E43C59CCAFF9C07B2397DADEB
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48187.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48187.jpgsave_picture_48187.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ magnet:?xt=urn:btih:4E2BFD1702053E586B630E556F763ADBD32FFEB8
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48188.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48188.jpgsave_picture_48188.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ magnet:?xt=urn:btih:00832DAF0312DDF299D6DD36786C33D1DA0F4036
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48189.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48189.jpgsave_picture_48189.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ magnet:?xt=urn:btih:32A15BA40F2C0ED29EDC6175519AC83F4D7F8C7B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48190.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48190.jpgsave_picture_48190.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ VA - compilation  part 108 Instrumental  Saxophone (2024) [MP3|320 Kbps] <Instru
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48191.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48191.jpgsave_picture_48191.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ magnet:?xt=urn:btih:7BB2820C60389EBC100C8FA88A8E545D891F22BA
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48192.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48192.jpgsave_picture_48192.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ magnet:?xt=urn:btih:C84F4188524D5833841E05D47C757AB504ED037E
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48193.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48193.jpgsave_picture_48193.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ magnet:?xt=urn:btih:8B99517A1DB8CBAA760A1355436EC757BDB19A95
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48194.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48194.jpgsave_picture_48194.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ VA - compilation  part 106 Instrumental  Saxophone (2024) [MP3|320 Kbps] <Instru
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48195.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48195.jpgsave_picture_48195.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ VA - compilation  part 107 Instrumental  Saxophone (2024) [MP3|320 Kbps] <Instru
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48196.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48196.jpgsave_picture_48196.jpg" />
 </div>
 
 

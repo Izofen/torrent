@@ -6,7 +6,7 @@ Goose - Shenanigans Nite Club (2021) [FLAC|Lossless|WEB-DL|tracks] <Alternative 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67284.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67284.jpgsave_picture_67284.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Avenger of Blood - Revenge Is My Name (2025) EP [FLAC|Lossless|WEB-DL|tracks] <T
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67285.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67285.jpgsave_picture_67285.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:10285EF24CE3832C260DEE7A53C23B5D2FDBBA61
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67286.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67286.jpgsave_picture_67286.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Larry Vuckovich - City Sounds, Village Voices (1981) 2003, Quicksilver Records [
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67287.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67287.jpgsave_picture_67287.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Soulfallen - Studio Albums (3 releases) (2007-2012) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67288.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67288.jpgsave_picture_67288.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Theocracy - Theocracy (2003) Reissue, Remastered, 2013, Ulterium Records [FLAC|L
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67289.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67289.jpgsave_picture_67289.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ magnet:?xt=urn:btih:6D7966805043BF9795DD12E9B7F838D9D4F43D98
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67290.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67290.jpgsave_picture_67290.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Amy Ryan Band - Brighter and Brighter (2025) [FLAC|Lossless|WEB-DL|tracks] <Blue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67291.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67291.jpgsave_picture_67291.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ magnet:?xt=urn:btih:874CAA5A557997C9ECD4CB805A949D9C6FEB4F30
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67292.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67292.jpgsave_picture_67292.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ magnet:?xt=urn:btih:7C11855915542DE148F73AABC65BEED9C7781893
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67293.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67293.jpgsave_picture_67293.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ magnet:?xt=urn:btih:B88AAF5569232BBFD11AA018A5D7549542491376
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67294.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67294.jpgsave_picture_67294.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ magnet:?xt=urn:btih:064BD4E32FBAC72510319045A14741DE71B6AE9C
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67295.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67295.jpgsave_picture_67295.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ magnet:?xt=urn:btih:CF37C8C19FB9C90A82741A7F0FE898BF1F42E8AC
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67296.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67296.jpgsave_picture_67296.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ magnet:?xt=urn:btih:65F165BBC530B1099CC23A41FC8F2244D7A6B7C3
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67297.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67297.jpgsave_picture_67297.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ Chasin' the Train - Signals (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67298.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67298.jpgsave_picture_67298.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ magnet:?xt=urn:btih:6D8EBFDFF9EBF2316CD2C1071EB70685F25F844A
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67299.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67299.jpgsave_picture_67299.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ magnet:?xt=urn:btih:B0A8959CCFC9CB8932194EE48CD0D973631F9042
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67300.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67300.jpgsave_picture_67300.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ magnet:?xt=urn:btih:7D11E16E27F038796DF38E5BBD8FA6FF84EB0879
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67301.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67301.jpgsave_picture_67301.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ magnet:?xt=urn:btih:25BEBD5C3E524122292C1D87965F21D362DD9634
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67302.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67302.jpgsave_picture_67302.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ magnet:?xt=urn:btih:9FAFA4F14CF34D15C9D66003D37971DAD6E0843B
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67303.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67303.jpgsave_picture_67303.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ magnet:?xt=urn:btih:9E265F426A8E1998C2F77CD9D5CE557C35415037
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67304.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67304.jpgsave_picture_67304.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ magnet:?xt=urn:btih:6E28232ADC16268ACCF49FA7E9B80BA88F39B2E2
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67305.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67305.jpgsave_picture_67305.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Andrew Duncanson - California Trap (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67306.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67306.jpgsave_picture_67306.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ magnet:?xt=urn:btih:96DF046B296E08F3C74068DBF2F7CCA062AF6A65
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67307.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67307.jpgsave_picture_67307.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ magnet:?xt=urn:btih:9D089BD939031A33C4BFF3A497B9E281A397F96C
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67308.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67308.jpgsave_picture_67308.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ The Weepies - Hideaway (2008) [FLAC|Lossless|tracks + .cue] <Acoustic, Indie Roc
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67309.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67309.jpgsave_picture_67309.jpg" />
 </div>
 
 

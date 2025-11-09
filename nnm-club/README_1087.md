@@ -6,7 +6,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28614.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28614.jpgsave_picture_28614.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28615.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28615.jpgsave_picture_28615.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:2D765DACF4DECC05FF5B37CDEC0ED0E9C61DCCF1
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28617.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28617.jpgsave_picture_28617.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:C82D4AFC7095BEE677232237C34BF7C7F24EDF36
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28618.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28618.jpgsave_picture_28618.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:C82D4AFC7095BEE677232237C34BF7C7F24EDF36
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28619.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28619.jpgsave_picture_28619.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:B0F31CF68FFDD6421C45906AE1A050B3F5703C04
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28620.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28620.jpgsave_picture_28620.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ BBC. Операция Стоунхендж: Тайна, скрытая под к
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28621.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28621.jpgsave_picture_28621.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:177E4086CF75306E2B96EEB6FD70F22410F4F535
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28622.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28622.jpgsave_picture_28622.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:177E4086CF75306E2B96EEB6FD70F22410F4F535
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28623.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28623.jpgsave_picture_28623.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ magnet:?xt=urn:btih:93E7513BFB48D44E413CF9634C7D18D20B481025
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28624.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28624.jpgsave_picture_28624.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Movavi Video Editor 25.3.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28625.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28625.jpgsave_picture_28625.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ magnet:?xt=urn:btih:DB9A564BAAD534C52EFCD35BAC10A18649FD5D34
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28626.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28626.jpgsave_picture_28626.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ magnet:?xt=urn:btih:43F6CDFBAAD3E766755996D9E7578FE65FA63125
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28627.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28627.jpgsave_picture_28627.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Industry Giant 4.0 (2024) [Ru/Multi] (0.4.2) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28629.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28629.jpgsave_picture_28629.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ The Sims 2 (2025) [Ru/Multi] (Build 17175009/dlc) Scene Tenoke [Legacy Collectio
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28630.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28630.jpgsave_picture_28630.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ magnet:?xt=urn:btih:4C0EB4868652F86FD1AB274ED236C865E1163094
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28631.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28631.jpgsave_picture_28631.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ WinPE 11-10 Sergei Strelec (x64) 2025.02.05 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28632.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28632.jpgsave_picture_28632.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ magnet:?xt=urn:btih:E4880E03855925D01C8015AA5E313BBD990F5F3E
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28633.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28633.jpgsave_picture_28633.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ magnet:?xt=urn:btih:D3E856CD863BFA71D3A31881655CCEF0D0401592
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28634.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28634.jpgsave_picture_28634.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ magnet:?xt=urn:btih:F2501C31640A19A0592E9BA35BCBAC8D777265D7
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28635.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28635.jpgsave_picture_28635.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ magnet:?xt=urn:btih:1DCEBECB2248F727584EE296F4E79DACA49FCECF
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28636.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28636.jpgsave_picture_28636.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ BBС. Внутренняя вселенная: Тайная жизнь клет�
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28637.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28637.jpgsave_picture_28637.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ BBC: Плотоядные. Касатка  / Wildlife Specials. Killer Whale (20
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28638.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28638.jpgsave_picture_28638.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ magnet:?xt=urn:btih:9320239F8A0C443D43583CE8AB8F742ECCC82EA8
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28639.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28639.jpgsave_picture_28639.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ magnet:?xt=urn:btih:165CCAA757E489CF9C073F4D375FD1B0A71292E5
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28640.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28640.jpgsave_picture_28640.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ magnet:?xt=urn:btih:165CCAA757E489CF9C073F4D375FD1B0A71292E5
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28641.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28641.jpgsave_picture_28641.jpg" />
 </div>
 
 

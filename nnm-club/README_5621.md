@@ -6,7 +6,7 @@ Microsoft Edge 118.0.2088.46 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173138.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173138.jpgsave_picture_173138.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ macOS 14 Sonoma 14.014 (Installer) [Multi/Ru]
 >>macOS (Apple)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173139.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173139.jpgsave_picture_173139.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:7FCB13446903CC35782CF291FB3C834CEF31C0DD
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173140.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173140.jpgsave_picture_173140.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Psiphon 3 build 180 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173141.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173141.jpgsave_picture_173141.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:E7B5E8DA18C72CB400C7BDEE7B8DF373533DF822
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173142.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173142.jpgsave_picture_173142.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Monolith (2023) [Multi] (1.0.1.3) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173143.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173143.jpgsave_picture_173143.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:6C04506F6978C8AEB676518B7B56D02FD9A9D4D5
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173144.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173144.jpgsave_picture_173144.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:4A85C1E8E4F44E6244A3FD817B9489B38ACA380C
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173145.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173145.jpgsave_picture_173145.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:20A7B8054B23E22DD9928B96C8E48CFD8E5EDAEE
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173146.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173146.jpgsave_picture_173146.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ eM Client Pro 9.2.2157.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173147.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173147.jpgsave_picture_173147.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ SuperАлиби 2 / Alibi.com 2 (2023) BDRemux [H.264/1080p] [MVO]
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173148.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173148.jpgsave_picture_173148.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:08E1CB2A38BA2B1F5638BDC1813C6E11330DF356
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173149.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173149.jpgsave_picture_173149.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Microsoft Edge WebView2 Runtime 1.3.177.11 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173150.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173150.jpgsave_picture_173150.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ magnet:?xt=urn:btih:0A246AE85D6BBE43CB538BB6A0CEB0C490524F9F
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173151.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173151.jpgsave_picture_173151.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ magnet:?xt=urn:btih:64403AB1BF53241505EFA90A266E8D0F8A5A1531
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173152.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173152.jpgsave_picture_173152.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ DC League of Super-Pets: The Adventures of Krypto and Ace (2022) [PS4] [USA] 9.0
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173153.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173153.jpgsave_picture_173153.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ magnet:?xt=urn:btih:4655A027664B5B889127C45B3EDB0B81E0DFDBEC
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173154.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173154.jpgsave_picture_173154.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ magnet:?xt=urn:btih:4655A027664B5B889127C45B3EDB0B81E0DFDBEC
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173155.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173155.jpgsave_picture_173155.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ magnet:?xt=urn:btih:ED07B2888476E5662CE5A7A86F9DBD89F0ED334E
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173156.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173156.jpgsave_picture_173156.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ magnet:?xt=urn:btih:260B78CB95E97445DC777A2F1AEA7FB9FA7978D8
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173157.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173157.jpgsave_picture_173157.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ magnet:?xt=urn:btih:FDA7A9E39E24D7EFA36DAC5E11C54A17B2BC4677
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173158.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173158.jpgsave_picture_173158.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ magnet:?xt=urn:btih:AB4724A2FA33A00446023BDB66A453CAD1C0EBD3
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173159.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173159.jpgsave_picture_173159.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ Mullvad Browser 13.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173160.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173160.jpgsave_picture_173160.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ Epic Pen Pro 3.12.36 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173161.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173161.jpgsave_picture_173161.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ magnet:?xt=urn:btih:BF60EB1FF7591EFF58526065890A6E2302F05995
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173162.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173162.jpgsave_picture_173162.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ David Canton Nadales | Build Your Own Metaverse with Unity (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173163.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173163.jpgsave_picture_173163.jpg" />
 </div>
 
 

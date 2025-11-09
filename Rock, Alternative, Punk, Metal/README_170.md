@@ -6,7 +6,7 @@
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117635.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117635.jpgsave_picture_117635.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Bernie Torme - Die Pretty Die Young (1987) Remaster, 2024, Cherry Red Records [F
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117658.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117658.jpgsave_picture_117658.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Witchflame - Omen (2023) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117661.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117661.jpgsave_picture_117661.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Bear Ghost - Jiminy (2023) [MP3|320 Kbps] <Alternative Rock, Art Rock, Progressi
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117674.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117674.jpgsave_picture_117674.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Black Sabbath - Vienna 1989 (2020) 2 x CD, Japanese Edition, Remastered [FLAC|Lo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117680.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117680.jpgsave_picture_117680.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ magnet:?xt=urn:btih:63FA2323658087F641CDF986795E0E015EBA5E3E
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117689.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117689.jpgsave_picture_117689.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ The Funeral Procession - In Still Silence (2024) [FLAC|Lossless|WEB-DL|tracks] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117767.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117767.jpgsave_picture_117767.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Topor - Wieczna kazn (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash, Speed Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117768.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117768.jpgsave_picture_117768.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Vintlechkeit - Alt har en ende... (2021) Demo [FLAC|Lossless|image + .cue] <Blac
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117770.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117770.jpgsave_picture_117770.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Miguel Angel Torres - Opera Eneida (2024) [MP3|320 Kbps] <Progressive Rock, Heav
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117777.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117777.jpgsave_picture_117777.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Topor - Wieczna kazn (2023) [MP3|320 Kbps] <Thrash, Speed Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117782.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117782.jpgsave_picture_117782.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Torchia - The Coven (2020) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117783.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117783.jpgsave_picture_117783.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Grateful Dead - It Must Have Been the Roses (2024) [FLAC|Lossless|WEB-DL|tracks]
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117809.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117809.jpgsave_picture_117809.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Mass - When 2 Worlds Collide (2018) Reissue, 2024, Escape Music Ltd [FLAC|Lossle
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117917.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117917.jpgsave_picture_117917.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Soren Andersen - City of Angels (2019) Single [FLAC|Lossless|WEB-DL|tracks] <Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117925.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117925.jpgsave_picture_117925.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ Ossian - Angyalok es Emberek (2024) [FLAC|Lossless|WEB-DL|tracks] <Power Metal, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117927.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117927.jpgsave_picture_117927.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ The Funeral Procession - In Still Silence (2024) [MP3|320 Kbps] <Progressive Dea
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117929.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117929.jpgsave_picture_117929.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ Strider - Dominion Of Steel (2019) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117931.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117931.jpgsave_picture_117931.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ Terminal Carnage - Feast upon the River Styx (2023) [MP3|320 Kbps] <Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117945.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117945.jpgsave_picture_117945.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ Terminal Carnage - Feast upon the River Styx (2023) [FLAC|Lossless|WEB-DL|tracks
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117951.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117951.jpgsave_picture_117951.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Soren Andersen - Skybar (2019) Single [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117952.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117952.jpgsave_picture_117952.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Metallica - Metallica (1991) Reissue, Remastered, 2010, Vertigo [OGG Vorbis|480 
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117955.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117955.jpgsave_picture_117955.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Black Sabbath - Live In Boston 1992 (2020) 2 x CD, Japanese Edition [FLAC|Lossle
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117960.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117960.jpgsave_picture_117960.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ August Burns Red - Twenty Year Tour Live (2024) [FLAC|Lossless|WEB-DL|tracks] <M
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117965.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117965.jpgsave_picture_117965.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ Stranger Vision - Wasteland (2022) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118078.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118078.jpgsave_picture_118078.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ Sovereign - Altered Realities (2024) [FLAC|Lossless|WEB-DL|tracks] <Death, Thras
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118083.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118083.jpgsave_picture_118083.jpg" />
 </div>
 
 

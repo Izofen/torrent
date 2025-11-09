@@ -6,7 +6,7 @@
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81521.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81521.jpgsave_picture_81521.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:F955412E1FA7EE8684690539196BFD675E1F890E
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81522.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81522.jpgsave_picture_81522.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ S.T.A.L.K.E.R. Source [Ru] (RePack) 2012 | [Freedom]_killer
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81524.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81524.jpgsave_picture_81524.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:C489B619A8C4E1C4AA6B7D5BDC9BE2D669B909ED
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81525.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81525.jpgsave_picture_81525.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:5977D559689D0D54AA9B58AE164E7115DD13A9F8
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81527.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81527.jpgsave_picture_81527.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:5977D559689D0D54AA9B58AE164E7115DD13A9F8
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81532.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81532.jpgsave_picture_81532.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:5735A39A363335B6722FB92F58AE8B41B304FA42
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81533.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81533.jpgsave_picture_81533.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:8ED4B75457B84C4071823F702C37DA4C3F038173
 >>Музыка (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81535.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81535.jpgsave_picture_81535.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ magnet:?xt=urn:btih:E36B1A0FF9918A9BBDD5EBAC0544ACB9BDBE5F38
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81538.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81538.jpgsave_picture_81538.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ magnet:?xt=urn:btih:1BD689B5996C12B0B14E10F5E4A668E244C63D34
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81539.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81539.jpgsave_picture_81539.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ magnet:?xt=urn:btih:F0AD6E5693935E8343B0CA8A163D47EEE760A387
 >>11
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81540.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81540.jpgsave_picture_81540.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ RAMDisk "Enterprise" 5.3.2.13 [Russian]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81542.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81542.jpgsave_picture_81542.jpg" />
 </div>
 
 
@@ -314,7 +314,7 @@ RAMDisk "Enterprise" основан на проверенной технолог
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81543.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81543.jpgsave_picture_81543.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ Borland InterBase 7.5.1 SP1 [English]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81545.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81545.jpgsave_picture_81545.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Borland InterBase 7.5 - высокопроизводительный, эконо
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81548.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81548.jpgsave_picture_81548.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Borland InterBase 7.5 - высокопроизводительный, эконо
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81554.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81554.jpgsave_picture_81554.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Borland InterBase 7.5 - высокопроизводительный, эконо
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81558.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81558.jpgsave_picture_81558.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Raise Data Recovery for NTFS 5.2 NTFS RePack + Portable by Boomer [Русски�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81561.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81561.jpgsave_picture_81561.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Raise Data Recovery for NTFS - программа предназначеная �
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81564.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81564.jpgsave_picture_81564.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ magnet:?xt=urn:btih:7091742BA8C4FE3EF2052092F179702DBE91343C
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81565.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81565.jpgsave_picture_81565.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ magnet:?xt=urn:btih:7091742BA8C4FE3EF2052092F179702DBE91343C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81567.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81567.jpgsave_picture_81567.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ magnet:?xt=urn:btih:7DCEE9A5DBD6D0A90D91352182375A644BEBCCC1
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81568.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81568.jpgsave_picture_81568.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ magnet:?xt=urn:btih:750F3E163A5EEEECCD5E18C2EC8BAB27138F697D
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81569.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81569.jpgsave_picture_81569.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ magnet:?xt=urn:btih:750F3E163A5EEEECCD5E18C2EC8BAB27138F697D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81570.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81570.jpgsave_picture_81570.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ magnet:?xt=urn:btih:C5FF71E51E739F632F80E73A6EE36C01685F0658
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81572.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81572.jpgsave_picture_81572.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ magnet:?xt=urn:btih:51A7E004CFC1CDD5E821DA959C1D5E0F4ED1601B
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81573.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81573.jpgsave_picture_81573.jpg" />
 </div>
 
 

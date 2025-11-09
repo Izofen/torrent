@@ -6,7 +6,7 @@ Byron Nemeth - Greatest Hits (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104861.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104861.jpgsave_picture_104861.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Wall - Brick by Brick (2024) [MP3|320 Kbps] <Sludge Rock, Sludge Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104862.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104862.jpgsave_picture_104862.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ F.O.R. - Love (2024) [MP3|320 Kbps] <Gothic Metal, Alternative Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104863.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104863.jpgsave_picture_104863.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:9E9E6FE0B7D821906C332F776D796449422F1C14
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104864.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104864.jpgsave_picture_104864.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ magnet:?xt=urn:btih:BAFE39EC251E6A9ABD74A66C3F86032834CE4D48
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104865.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104865.jpgsave_picture_104865.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ magnet:?xt=urn:btih:60633D4439AA9230D1D99B14482D4046D49BC052
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104866.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104866.jpgsave_picture_104866.jpg" />
 </div>
 
 
@@ -161,7 +161,7 @@ GeoGebra 6.0.853.0 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104867.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104867.jpgsave_picture_104867.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ magnet:?xt=urn:btih:10A799E3854BB450E0B7AB9292FEEB898E0CEBBA
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104868.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104868.jpgsave_picture_104868.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ VA - Ibiza XXL - Best Of Summer 2024 (2024) [MP3|320 Kbps] <Dance, Club, House, 
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104869.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104869.jpgsave_picture_104869.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ magnet:?xt=urn:btih:DD49C72B27FE675C12E732689D3FB9CFB7B8A4D4
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104870.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104870.jpgsave_picture_104870.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ VA - Free To Dance, Vol. 1 (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104871.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104871.jpgsave_picture_104871.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ VA - Bodrum Summer Festival (Club Edition) (2024) [MP3|320 Kbps] <Trance, Progre
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104872.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104872.jpgsave_picture_104872.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ magnet:?xt=urn:btih:F52D244597F6D4742F12258CF29D69C3ED332027
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104873.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104873.jpgsave_picture_104873.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ VA - Armin van Buuren - A State Of Trance 1188 (2024) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104874.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104874.jpgsave_picture_104874.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ magnet:?xt=urn:btih:77505A38EE4983D24A306934952CDB55282A13B8
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104875.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104875.jpgsave_picture_104875.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ magnet:?xt=urn:btih:2CCCDB331F3E9C0A9E367D3DD0E43B822EC31524
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104876.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104876.jpgsave_picture_104876.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ Palace - Reckless Heart (2024) Japanese Edition [FLAC|Lossless|image + .cue] <Me
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104877.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104877.jpgsave_picture_104877.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ Saint - Immortalizer (2024) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104878.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104878.jpgsave_picture_104878.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ magnet:?xt=urn:btih:AF0C7FA3C593C1EED006849E3C7AF2FDF8DAFE8F
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104879.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104879.jpgsave_picture_104879.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ magnet:?xt=urn:btih:DD01585942624EE00181A7563FCA184F8EBCF24F
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104880.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104880.jpgsave_picture_104880.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ magnet:?xt=urn:btih:0EAF2EC1BE6C734CF097BC14D6122733FADFEFA9
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104881.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104881.jpgsave_picture_104881.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ magnet:?xt=urn:btih:C15C6A5185C4F599AF8EFFBC50C33A6E167147BA
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104882.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104882.jpgsave_picture_104882.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ magnet:?xt=urn:btih:3BA5FC30B7B67FADEE12FFDB19421EBEA43A427F
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104883.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104883.jpgsave_picture_104883.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ magnet:?xt=urn:btih:1FACC4115A291E033A2F6E4643BE1A0C1CCE756C
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104884.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104884.jpgsave_picture_104884.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ MotoGP. Этап 12 из 20. Гран-при Арагона. Квалифика�
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104885.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104885.jpgsave_picture_104885.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ magnet:?xt=urn:btih:7D52B02B90DA466B07DDF5F5DBBCBAD6A235F0D8
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104886.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104886.jpgsave_picture_104886.jpg" />
 </div>
 
 

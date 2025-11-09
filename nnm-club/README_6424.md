@@ -6,7 +6,7 @@ Date a Live III | Рандеву с жизнью [ТВ-3] [2019, TV, 12 из 12]
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203706.jpgsave_picture_203706.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Gekijouban Date a Live: Mayuri Judgement | Рандеву с жизнью (фи�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203707.jpgsave_picture_203707.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ Enrico Pieranunzi & Marc Johnson - The Dream Before Us (1990) 1992, IDA Records 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203708.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203708.jpgsave_picture_203708.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ Everything Everything - Man Alive (2010) 2CD, Deluxe Edition, 2023, Universal Mu
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203709.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203709.jpgsave_picture_203709.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ magnet:?xt=urn:btih:2239E389297FDAD189D5C08681D99ABD484B7B78
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203710.jpgsave_picture_203710.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ Sons of Ragnar - Echoes over Valsgarde (2023) [FLAC|Lossless|WEB-DL|tracks] <Mel
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203711.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203711.jpgsave_picture_203711.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ magnet:?xt=urn:btih:D6E7F6E0575122A595A9126237483EFF4D114990
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203712.jpgsave_picture_203712.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ MediaInfo for Mac 23.07 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203713.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203713.jpgsave_picture_203713.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ magnet:?xt=urn:btih:7A8023D8AF7F9059F552385B3BA74929CE6F9246
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203714.jpgsave_picture_203714.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ JixiPix Artista Impresso Pro 1.8.20 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203715.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203715.jpgsave_picture_203715.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ magnet:?xt=urn:btih:F7B57BF552190BCB4C3B983F06CE332D78676656
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203716.jpgsave_picture_203716.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ Softorino YouTube Converter PRO for Mac 5.1.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203717.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203717.jpgsave_picture_203717.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ magnet:?xt=urn:btih:8BABFB0EC19CC453E988C1EDEC1E4D41B882692A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203718.jpgsave_picture_203718.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:C8B83BA34E77C839F35BC3383830B2002603CE8A
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203719.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203719.jpgsave_picture_203719.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Pro-Infografika, Ариадна Юсупова, Мурад Юсупов | Про
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203720.jpgsave_picture_203720.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Moon Coven - Sun King (2023) [FLAC|Lossless|WEB-DL|tracks] <Psych, Stoner, Doom 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203721.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203721.jpgsave_picture_203721.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ magnet:?xt=urn:btih:B6A34B425DB92C2E1893F155DA02831E9A54A4BD
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203722.jpgsave_picture_203722.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ Hephaistos - Medusa (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203723.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203723.jpgsave_picture_203723.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ Topaz Gigapixel AI 6.3.3 (x64) RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203724.jpgsave_picture_203724.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ Aether - 2 Releases (2022-2023) [FLAC|Lossless|WEB-DL|tracks] <Psych, Stoner, Sl
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203725.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203725.jpgsave_picture_203725.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ magnet:?xt=urn:btih:B47B58429289071916F14819D57DE45F4418D0A6
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203726.jpgsave_picture_203726.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ GrandTotal 8.1.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203727.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203727.jpgsave_picture_203727.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ CrystalDiskInfo 8.17.14 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203728.jpgsave_picture_203728.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Lutalo - Again (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203729.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203729.jpgsave_picture_203729.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ magnet:?xt=urn:btih:0588FA72DE72143DA6D84FFECB8E151A590FC5C4
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203731.jpgsave_picture_203731.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ PlainPad 1.3.1 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203732.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203732.jpgsave_picture_203732.jpg" />
 </div>
 
 

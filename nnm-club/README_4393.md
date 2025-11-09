@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137271.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137271.jpgsave_picture_137271.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:5E6F525021875B0F86A36A228051705A086F687C
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137272.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137272.jpgsave_picture_137272.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:531AE857BD02CC38B5796A8060B6A1964386AEF3
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137273.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137273.jpgsave_picture_137273.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Adobe Photoshop Touch 1.7.7 [Ru/Multi] - Фотошоп для планшето�
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137275.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137275.jpgsave_picture_137275.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:A534CBAF7AFEA89DFEE5E08A80E0BEE53CACDF6C
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137276.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137276.jpgsave_picture_137276.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:FE95E01B718221CF45A70280275464D89A9407BD
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137277.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137277.jpgsave_picture_137277.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Vaccine Rebirth (2023) [Multi] (1.3.4) Repack dixen18
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137278.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137278.jpgsave_picture_137278.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:C77C7F6F6E6BCB41DB713C4363CC3D926C32DFFA
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137279.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137279.jpgsave_picture_137279.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:301B1B779A36D64CF20B6BDBC64DDC7C86D7209F
 >>КВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137280.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137280.jpgsave_picture_137280.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:2A330853C7EF8D8356C7FA5DEE4DFB3E47D7AE13
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137281.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137281.jpgsave_picture_137281.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ magnet:?xt=urn:btih:BBECEFE492A447AFF1062364454EA776795D7988
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137282.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137282.jpgsave_picture_137282.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ VA - District of Trance Vol. 2 (Compiled & Mixed by Lazyra, Pilligrim & Deeper) 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137283.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137283.jpgsave_picture_137283.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ magnet:?xt=urn:btih:68F3C037623534BEACC0608FABD344DD3751C083
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137284.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137284.jpgsave_picture_137284.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ magnet:?xt=urn:btih:07E116B1D7472FD5D6205A2ABC7CB246CE15CA9A
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137285.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137285.jpgsave_picture_137285.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ KMS Tools Portable 31.12.2016 by Ratiborus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137286.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137286.jpgsave_picture_137286.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ magnet:?xt=urn:btih:0961F7BC60F216F55FCE7799CC34B1274BBF7BB7
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137287.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137287.jpgsave_picture_137287.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Ant Download Manager Pro 2.9.1 Build 83632 RePack (& Portable) by xetrin [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137288.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137288.jpgsave_picture_137288.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ magnet:?xt=urn:btih:A2064E99B875A94A9B2672663A2D05F9CE150476
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137289.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137289.jpgsave_picture_137289.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ magnet:?xt=urn:btih:FB51C90C3BFE99B7BDAEECA3503B1D20C6F34834
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137290.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137290.jpgsave_picture_137290.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ magnet:?xt=urn:btih:A19486277E74AC0B14EE16E6571B563AD79B4B7F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137292.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137292.jpgsave_picture_137292.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ magnet:?xt=urn:btih:A9CBDC717CB689C6B88204936A2C238F0C692DF5
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137293.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137293.jpgsave_picture_137293.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Cramped Room of Death (2023) [Multi] (1.0.0) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137294.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137294.jpgsave_picture_137294.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ magnet:?xt=urn:btih:23D02EF1BE30C0BEB76A688FCAE309C211D3CC0A
 >>Хоккей. Чемпионаты мира
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137295.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137295.jpgsave_picture_137295.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ magnet:?xt=urn:btih:0559A32819D8FC2A2F639EB21D414DFAC2EDAD12
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137296.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137296.jpgsave_picture_137296.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ magnet:?xt=urn:btih:925C8C80C8422FBB616BCBC981DCA9CEEFE1F026
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137297.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137297.jpgsave_picture_137297.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ magnet:?xt=urn:btih:2BE1423053690DE9A95F4BD618E5350A98A5DC71
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137298.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137298.jpgsave_picture_137298.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Stepik | Терминал Linux. Основы работы в командной
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118374.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118374.jpgsave_picture_118374.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:38C8CF895D08733FC77646A24D5EF37FC80875F4
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118375.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118375.jpgsave_picture_118375.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ FL Studio Producer Edition 21.2.3 Build 4004 + FLEX Extensions +Addons RePack by
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118376.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118376.jpgsave_picture_118376.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ The Inquisitor (2024) [Ru/Multi] (13389755/dlc) Repack DjDI [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118377.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118377.jpgsave_picture_118377.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:6F6823D379EC4FA3371EFFE781E39D253EBFCE1C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118378.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118378.jpgsave_picture_118378.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:DF3D6D01978A357F47B6EF82FDE268C0E8869BB7
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118379.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118379.jpgsave_picture_118379.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ Heretic HD PBR (2023) [Ru/Multi] (1.2) Repack/Mod Other s
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118380.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118380.jpgsave_picture_118380.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ Weird West (2022) [Ru/Multi] (1.78819/dlc) Repack Decepticon [Definitive Edition
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118381.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118381.jpgsave_picture_118381.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:8E03A15415E0391995A75CA45006F7B94802422C
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118382.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118382.jpgsave_picture_118382.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ Lizards Must Die / Русы против ящеров (2023) [Ru/En] (20240204/d
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118383.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118383.jpgsave_picture_118383.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ macOS 14 Sonoma 14.3.1 (Installer) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118384.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118384.jpgsave_picture_118384.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Dungeons 4 (2023) [Ru/Multi] (1.3/dlc) Scene Tenoke [Deluxe Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118385.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118385.jpgsave_picture_118385.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:D560DAD87DF86418A5B52119111A37BEF7EF50DC
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118386.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118386.jpgsave_picture_118386.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:8B3EBFD7E8F5104AA84180B316AE9413755F7EA1
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118387.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118387.jpgsave_picture_118387.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ magnet:?xt=urn:btih:EFA5ACEF87743E8FC308353ABAC799581A787191
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118388.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118388.jpgsave_picture_118388.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ magnet:?xt=urn:btih:4F6B070DB334F9E0016A0E704B8626BA8BF15C61
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118389.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118389.jpgsave_picture_118389.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ magnet:?xt=urn:btih:F105D4B15E2E49970860E3ADF3D0FCF213C55DEB
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118390.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118390.jpgsave_picture_118390.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ magnet:?xt=urn:btih:B01D22D357B8C7A9BE9E62EFDE6EEF9175D1C8BB
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118391.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118391.jpgsave_picture_118391.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ magnet:?xt=urn:btih:6FC0F0F5CC4C2FE2ADC486FF307DFF2C26910422
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118392.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118392.jpgsave_picture_118392.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ FL Studio Producer Edition 21.2.3.4004 - All Plugins Edition [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118393.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118393.jpgsave_picture_118393.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ magnet:?xt=urn:btih:1CA791C7ACC3E52D72424560CD64B3013105E754
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118394.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118394.jpgsave_picture_118394.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ Lacuna Coil - Karmacode (2006) [WavPack|32/384|image + .cue|Vinyl-Rip] <Gothic M
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118395.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118395.jpgsave_picture_118395.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ Permute 3 v.3.11.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118396.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118396.jpgsave_picture_118396.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Clipboard Manager 2.5.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118397.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118397.jpgsave_picture_118397.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ magnet:?xt=urn:btih:E2B5AAF03D3B91DE22DF7CF2FEDFF080E4C992C9
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118398.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118398.jpgsave_picture_118398.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ Mimestream 1.2.6 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118399.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118399.jpgsave_picture_118399.jpg" />
 </div>
 
 

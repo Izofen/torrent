@@ -6,7 +6,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_197379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197379.jpgsave_picture_197379.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:AEC23B480619AF2E902A3406A0716C07B58432FA
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197380.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197380.jpgsave_picture_197380.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:4C2E23224EE9095A97172DC583658758BABDC9E1
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_197381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197381.jpgsave_picture_197381.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:59EC67601965DAE2C6D3553F1F709BE00097CA94
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197382.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197382.jpgsave_picture_197382.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Apeiron, Алексей Арестович | Семинар «Сила наме�
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197383.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197383.jpgsave_picture_197383.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:35E4ED524388AC5A072AF28D8C8AA4A393F86C62
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197384.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197384.jpgsave_picture_197384.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ An Elder Scrolls Legend: Battlespire (1997) [En] (1.5) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197385.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197385.jpgsave_picture_197385.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:5BC7F1592FA46A071F0523C6A78DC4E377C1D6D5
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197386.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197386.jpgsave_picture_197386.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:EB900908EF704FFD5DCFCCB51327270B59EFF45F
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197387.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197387.jpgsave_picture_197387.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ IceCream Ebook Reader Pro 6.32 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197388.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197388.jpgsave_picture_197388.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:34839E9F7FADC50D3678FF44A8F46E991B0DA8EA
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_197389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197389.jpgsave_picture_197389.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Radiant Photo 1.1.2.281 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197390.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197390.jpgsave_picture_197390.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:05F9C2E2F8F320E5ED265E8942B4800029DF3AFB
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197391.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197391.jpgsave_picture_197391.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ DxO PureRAW 3.3.0 build 12 RePack by KpoJIuK [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197392.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197392.jpgsave_picture_197392.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ magnet:?xt=urn:btih:7670A0E407BFD9574ED094C092D1790273692A6A
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197393.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197393.jpgsave_picture_197393.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Reg Organizer 9.21 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197394.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197394.jpgsave_picture_197394.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ magnet:?xt=urn:btih:6793D0D6E4A216B43D5B36AA574CD6F998A8D7FE
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197396.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197396.jpgsave_picture_197396.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Wondershare UniConverter 14.1.19.209 (х64) Repack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197397.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197397.jpgsave_picture_197397.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Serato DJ Pro Suite 3.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197398.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197398.jpgsave_picture_197398.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ magnet:?xt=urn:btih:624E99648851DF972FCDB25826D8F8B54A988147
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197399.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197399.jpgsave_picture_197399.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Ashampoo Photo Optimizer 9.3.4.32 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197400.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197400.jpgsave_picture_197400.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ Summer Trip Cruise (2023) [Ru/Multi] (05.29.23.1/dlc) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197401.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197401.jpgsave_picture_197401.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Warhammer 40,000: Chaos Gate (1998) [En] (1.2hf3) License GOG
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197402.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197402.jpgsave_picture_197402.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ magnet:?xt=urn:btih:66DA4327C2E06DCE431EC86164C5A932FEF8493F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197403.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197403.jpgsave_picture_197403.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ UnHackMe 14.90.2023.0426 (акция Comss) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197404.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197404.jpgsave_picture_197404.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ magnet:?xt=urn:btih:7C38C80CAD44D1B72DC56BE360E654F275DFE9C1
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197405.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197405.jpgsave_picture_197405.jpg" />
 </div>
 
 

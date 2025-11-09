@@ -6,7 +6,7 @@ Resource Hacker 5.2.8.448 Portable by alexalsp
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25439.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25439.jpgsave_picture_25439.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:6EFA621503583080A1284851E481C80DBA357155
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25440.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25440.jpgsave_picture_25440.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Thomas Anders - … Sings Modern Talking: The 1st Album (2025) [FLAC 24/44.1|Los
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25441.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25441.jpgsave_picture_25441.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:D0F62621328F85598126B53BD82AB381CB1453B1
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25442.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25442.jpgsave_picture_25442.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:DF1468956D3881B720307EDD040CABA5E81E8264
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25443.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25443.jpgsave_picture_25443.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:8052AF4CE7C5142F8D12E846FA989FFBF1415072
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25444.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25444.jpgsave_picture_25444.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Trailmakers (2019) [Ru/Multi] (2.0.1.65085/dlc) Repack FitGirl [Ultimate Edition
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25445.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25445.jpgsave_picture_25445.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:9C84E902CBE327095C9A4ABFE42B80C605372207
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25446.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25446.jpgsave_picture_25446.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ ULTRAKILL (2020) [En] (Patch 16c) Repack Other s [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25447.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25447.jpgsave_picture_25447.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:02B17E817CFF15487C623C35218E80B6B08CA3BB
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25448.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25448.jpgsave_picture_25448.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ IceCream Ebook Reader Pro 6.52 [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25449.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25449.jpgsave_picture_25449.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:2957F0135AF1F4E3D003B7616188A99126876414
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25450.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25450.jpgsave_picture_25450.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Grand Theft Auto V Enhanced (2025) [Ru/Multi] (1.0.811.14) Repack dixen18
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25451.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25451.jpgsave_picture_25451.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Thomas Anders - … Sings Modern Talking: The 1st Album (2025) [FLAC|Lossless|WE
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25452.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25452.jpgsave_picture_25452.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ magnet:?xt=urn:btih:572336475C4FF564D75F11BF0957A47DC9262176
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25453.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25453.jpgsave_picture_25453.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Metallica - Compilation (1983-2024) [MP3|320 Kbps] <Metal, Hard rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25454.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25454.jpgsave_picture_25454.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ magnet:?xt=urn:btih:CE5DF9A7D9BAECD6D9F290C6A1DC993C177D3FD9
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25455.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25455.jpgsave_picture_25455.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ magnet:?xt=urn:btih:B5BF4BDD1FE132B07B64658C7F3DFC6012F6A175
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25456.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25456.jpgsave_picture_25456.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Hundred Days - Winemaking Simulator (2021) [Ru/Multi] (1.8.0w1/dlc) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25457.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25457.jpgsave_picture_25457.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ Memory Lost (2025) [Ru/Multi] (1.0) Repack Let'sРlay
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25458.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25458.jpgsave_picture_25458.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ Warhammer 40,000: Space Marine (2011) [Ru/Multi] (1.0.1) Repack Decepticon [Anni
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25459.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25459.jpgsave_picture_25459.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ magnet:?xt=urn:btih:8CA75088F7EC42E4696EDAE65F9B2FA0651CEA82
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25460.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25460.jpgsave_picture_25460.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ PowerWash Simulator (2022) [Ru/Multi] (1.10.0/dlc) Repack FitGirl [Ultimate Sati
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25461.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25461.jpgsave_picture_25461.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ magnet:?xt=urn:btih:FA33108196B0014A17707DC476426194A1EA5D25
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25462.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25462.jpgsave_picture_25462.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ magnet:?xt=urn:btih:85A78F78BAF4404E2E913391062791A324CDF43A
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25463.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25463.jpgsave_picture_25463.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ magnet:?xt=urn:btih:E9CC79F20AD7B663028B7E13F28069DF7420C7CE
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25464.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25464.jpgsave_picture_25464.jpg" />
 </div>
 
 

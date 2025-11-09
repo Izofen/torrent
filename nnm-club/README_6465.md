@@ -6,7 +6,7 @@ Battery HD Pro 1.99.01 (Google Play) [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204794.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204794.jpgsave_picture_204794.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Google Chrome 116.0.5845.111 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204795.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204795.jpgsave_picture_204795.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:73F8F3E244879586D42F7AAEB98923C16ABE6E8F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204796.jpgsave_picture_204796.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:F05CF19D12E1FA99386BFE39398EC51CF9D23FCF
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204797.jpgsave_picture_204797.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:03C93891FDB6506E8914CDBA263ECF29B1F0C81D
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204798.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204798.jpgsave_picture_204798.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:FBDA1021EFBB638E7D0D1E28388C223BD441ECCF
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204799.jpgsave_picture_204799.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:DD654D531921A4AF24D2D41E3FD43D5FB3E4BC66
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204800.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204800.jpgsave_picture_204800.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:0322E811E6F2BE843D9B8889143671BBE37C62AB
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204801.jpgsave_picture_204801.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ One Shield Plus 2.7 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204802.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204802.jpgsave_picture_204802.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:20CA0C2CCAEF4EAFAED40769D18802A7455F831D
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204803.jpgsave_picture_204803.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:93C9EF7C9707CB565EFC3F27ADDF5C0FAE19D651
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204804.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204804.jpgsave_picture_204804.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ magnet:?xt=urn:btih:2A3FD2060B59DA357C8B4A5A2C25609EBEA40A77
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204805.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204805.jpgsave_picture_204805.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ magnet:?xt=urn:btih:81EF1D696E86A27EC5C82CAE076233742161C843
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204806.jpgsave_picture_204806.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ magnet:?xt=urn:btih:CBE16BC0D83A677706EBB85248629A831826679B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204807.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204807.jpgsave_picture_204807.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ magnet:?xt=urn:btih:D1CF0BD3C4E06B08A4F472859C2A51335AC4A340
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204808.jpgsave_picture_204808.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ PDF Extra: сканер и редактор 10.5.2108 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204809.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204809.jpgsave_picture_204809.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ magnet:?xt=urn:btih:B44A78CD6BF087E3674572649F2492A2187D8686
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204810.jpgsave_picture_204810.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ Lucky Patcher 10.8.6 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204811.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204811.jpgsave_picture_204811.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ magnet:?xt=urn:btih:6FA7C7D5FC5911B14F1176FF2588ADDED682413A
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204812.jpgsave_picture_204812.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ magnet:?xt=urn:btih:89FEB97BFC0C86210DD3C3EB1AE94FA8A205E2B9
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204813.jpgsave_picture_204813.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ EZ CD Audio Converter 10.2.1.1 (25.10.2022) RePack (& Portable) by KpoJIuK [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204814.jpgsave_picture_204814.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ magnet:?xt=urn:btih:A48855B662D02A8A64EF6D9A63070BB05BDAF8AC
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204815.jpgsave_picture_204815.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Red Button 5.94 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204816.jpgsave_picture_204816.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Joe Bonamassa - Road To Redemption (2022) EP [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204817.jpgsave_picture_204817.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ magnet:?xt=urn:btih:AE720DD77E2242EA03A13ED30C7F37E482BA7792
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204818.jpgsave_picture_204818.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ magnet:?xt=urn:btih:E466C96A2141A7CD933AC80C780B5185C70D4A6B
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204819.jpgsave_picture_204819.jpg" />
 </div>
 
 

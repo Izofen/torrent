@@ -6,7 +6,7 @@ Odean Pope - Plant Life (2008) Porter Records [FLAC|Lossless|tracks + .cue] <Ava
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232498.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232498.jpgsave_picture_232498.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:2A389C71BDA4D3B44CFFCEB91A4A81E732FEDD4E
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232499.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232499.jpgsave_picture_232499.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ magnet:?xt=urn:btih:36FAB65C4C92C6C84F5C9028329E5989ED29C92F
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232501.jpgsave_picture_232501.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ Dead Gallery - Dead Man's Theme (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Blue
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232503.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232503.jpgsave_picture_232503.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ Stan Getz - Four Classic Albums: Fourth Set (1957, 1962) 2CD, 2020, Avid Jazz [F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232504.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232504.jpgsave_picture_232504.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ The Infamists - Live Evil (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Psyc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232506.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232506.jpgsave_picture_232506.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ magnet:?xt=urn:btih:6EA21BF96AD9885280D4DA8EC706FC4970A7C75F
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232507.jpgsave_picture_232507.jpg" />
 </div>
 
 
@@ -187,7 +187,7 @@ Putrefactum - Unsere Wahrheit (2023) [MP3|320 Kbps] <Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232509.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232509.jpgsave_picture_232509.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Athentech Perfectly Clear WorkBench for Mac 4.5.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232510.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232510.jpgsave_picture_232510.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ Stray Gods - Storm the Walls (2022) [MP3|320 Kbps] <Heavy, Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232511.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232511.jpgsave_picture_232511.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Photo Album GPS Mapping Tool 2.8.4.777 [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232513.jpgsave_picture_232513.jpg" />
 </div>
 
 
@@ -290,7 +290,7 @@ YT Downloader 9.1.1 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232515.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232515.jpgsave_picture_232515.jpg" />
 </div>
 
 
@@ -314,7 +314,7 @@ Athentech Perfectly Clear Video for Mac 4.5.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232516.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232516.jpgsave_picture_232516.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ Il Cerchio d'Oro - Pangea e Le Tre Lune (2023) [FLAC|Lossless|WEB-DL|tracks] <Pr
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232517.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232517.jpgsave_picture_232517.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ The Neal Morse Band - An Evening of Innocence & Danger: Live In Hamburg (2023) [
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232519.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232519.jpgsave_picture_232519.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ magnet:?xt=urn:btih:0ADE2DF77B4A09D8EBAADDD5654401F3ECE9E717
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232520.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232520.jpgsave_picture_232520.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ Findroid | Избранник Башни (Книга 4). Tower Edition (2023) [M
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232521.jpgsave_picture_232521.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ RightFont 8.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232523.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232523.jpgsave_picture_232523.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ magnet:?xt=urn:btih:84CA328EF04CA73354D90E1EF64036DA15E52D35
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232527.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232527.jpgsave_picture_232527.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Edge of Paradise - Hologram (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232528.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232528.jpgsave_picture_232528.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ YT Saver Video Downloader & Converter for Mac 7.0.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232529.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232529.jpgsave_picture_232529.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ magnet:?xt=urn:btih:7B5B410846200FFADACE14CDBC71585D23CA06EC
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232530.jpgsave_picture_232530.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Indefinite Decorum - Débutant (2023) [MP3|320 Kbps] <Symphonic Dark Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232533.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232533.jpgsave_picture_232533.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ GeoGebra 6.0.790.0 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232535.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232535.jpgsave_picture_232535.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ magnet:?xt=urn:btih:75331EAB05C8DECA41741B1259EB6FB3EF2A02D2
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232536.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232536.jpgsave_picture_232536.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ VA - Summer Pop Party (2023) [MP3|320 Kbps] <Dance, Synthpop, Electro House, Sof
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232537.jpgsave_picture_232537.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165149.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165149.jpgsave_picture_165149.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ WinTools.net Premium 23.11.1 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165150.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165150.jpgsave_picture_165150.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:C52746DC3F0D701D6C1FE6B648EDF095CDB41B38
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165151.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165151.jpgsave_picture_165151.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:F7A6526C5F2C3E2B97573CC06A7163F598FD6595
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165152.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165152.jpgsave_picture_165152.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:29C1427E3B4C7A450B8A012D2EA30DAA0803573A
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165153.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165153.jpgsave_picture_165153.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:491DCBCF936CABC39DD4233BF3F905E72B94036B
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165154.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165154.jpgsave_picture_165154.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:F05C70E35A79DEDD7F100BE3D0DC2227F809A8B5
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165155.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165155.jpgsave_picture_165155.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ Vanden Plas - The Ghost Xperiment - Awakening (2019) [FLAC|Lossless|tracks + .cu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165156.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165156.jpgsave_picture_165156.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ JetBrains GoLand for Mac 2023.2.3 Intel/ARM  [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165157.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165157.jpgsave_picture_165157.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ magnet:?xt=urn:btih:BF5E01EE9C291727C7890E88936A6BE79EE88C65
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165158.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165158.jpgsave_picture_165158.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:19728B12F6064A4AD289868B3F8B06EB5A0146D2
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165159.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165159.jpgsave_picture_165159.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ Lacey Free Music & Video Downloader 2.49 RePack (& Portable) by elchupacabra [Mu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165160.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165160.jpgsave_picture_165160.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ magnet:?xt=urn:btih:DB36D7E3BF938417ABCD1F8C97A99582DE78CCD2
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165161.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165161.jpgsave_picture_165161.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Sopor Aeternus & The Ensemble Of Shadows - ALONE AT SAM’s - An Evening with...
 >>Industrial, EBM, Dark Electro
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165162.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165162.jpgsave_picture_165162.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ One Chat Pro - All In One Messenger 4.9.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165163.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165163.jpgsave_picture_165163.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Autorun Organizer 5.0 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165164.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165164.jpgsave_picture_165164.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ magnet:?xt=urn:btih:3903550E6926EE64056DAD43BB9EA11BD526A8F5
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165165.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165165.jpgsave_picture_165165.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ MuseScore 3.5.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165166.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165166.jpgsave_picture_165166.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ magnet:?xt=urn:btih:CCC07ABF297FE249D3EE01A23CAD503A56E13444
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165167.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165167.jpgsave_picture_165167.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ VA - FSOE 750 - Kings & Queens (2022) [MP3|320 Kbps] <Trance, Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165168.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165168.jpgsave_picture_165168.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ magnet:?xt=urn:btih:51A7BC560EBC2AA5E97CE798A088E8AE3663C475
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165169.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165169.jpgsave_picture_165169.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ magnet:?xt=urn:btih:FD0B6894DDAA3D2D6753BA28AA2C6FA1C9FFFB79
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165170.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165170.jpgsave_picture_165170.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ magnet:?xt=urn:btih:2AB687C2C16BE5E7186FB14DDD28C01A1EE6783C
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165171.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165171.jpgsave_picture_165171.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:91D6EAF76EE2DC8EAE3B9F001D26F71C71F25816
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165172.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165172.jpgsave_picture_165172.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ magnet:?xt=urn:btih:51882002DF2ECFFA12EC257A80814AB04726A21A
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165173.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165173.jpgsave_picture_165173.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Sideburn - Fired Up (2022) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165174.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165174.jpgsave_picture_165174.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Ui Kits - UI8 - Lumen Loops [SVG, WEBM, MP4, FIG]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_793.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_793.jpgsave_picture_793.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Ui Kits - UI8 - Virtual Brain | AI Chatbot App UI Kit [FIG]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_795.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_795.jpgsave_picture_795.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ Ui Kits - UI8 - Marz - Crypto Wallet App UI Kit [FIG]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1309.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1309.jpgsave_picture_1309.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Ui Kits - UI8 - Oxtopus - Web3 Wallet Mobile App [FIG]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1422.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1422.jpgsave_picture_1422.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ magnet:?xt=urn:btih:2B53DB5D590FA73A6AF16E667FBD275A254752AD
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1455.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1455.jpgsave_picture_1455.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ Ui Kits - UI8 - Travela - Travel & Booking Mobile App UI Kit [FIG]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1570.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1570.jpgsave_picture_1570.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ Ui Kits - UI8 - Farmiant - Farming Assistant App UI Kit [FIG]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1975.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1975.jpgsave_picture_1975.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ Ui Kits - UI8 - HotelQu - Booking Hotel Mobile App [FIG]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2320.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2320.jpgsave_picture_2320.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Ui Kits - UI8 - FRQNCY STUDIO [FIG]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2444.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2444.jpgsave_picture_2444.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ Ui Kits - UI8 - Lodgify - Hotel Booking Mobile App UI Kit [FIG]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2776.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2776.jpgsave_picture_2776.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ Ui Kits - UI8 - NutriMart - Grocery Shopping App UI Kit [FIG, XD, SKETCH]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3130.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3130.jpgsave_picture_3130.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ Ui Kits - UI8 - Akshan - Furniture E-Commerce UI Kit [FIG]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4107.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4107.jpgsave_picture_4107.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ Ui Kits - UI8 - UI KIT | AI Art Generator App - bento & glassmorphism style [FIG
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4479.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4479.jpgsave_picture_4479.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Ui Kits - UI8 - Dolphin VPN - VPN Mobile Mobile App UI Kits [FIG]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4578.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4578.jpgsave_picture_4578.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Ui Kits - UI8 - Lumine - Minimalistic Brand Guidelines [FIG]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5213.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5213.jpgsave_picture_5213.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Ui Kits - UI8 -  ANXOE.AI – AI Personal Assistant Dashboard UI Kit [FIG]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7096.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7096.jpgsave_picture_7096.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ WordPress plugin - Elementor PRO 3.21.3 [PHP, SVG, CSS, JS]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8194.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8194.jpgsave_picture_8194.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Ui Kits - UI8 - Synapz - AI Task Collaboration App UI KIT [FIG]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9101.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9101.jpgsave_picture_9101.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Ui Kits - UI8 - Fodidi - Food Ordering Apps For UI Kits [FIG]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9214.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9214.jpgsave_picture_9214.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Ui Kits - UI8 - Core - Dashboard Builder [XD, FIG, SKETCH, HTML, CSS]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9335.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9335.jpgsave_picture_9335.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Ui Kits - UI8 - Landing page Bundle [FIG]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9832.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9832.jpgsave_picture_9832.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Ui Kits - UI8 - SkrinUI - 1000+ Screen UI All Purpose [FIG]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9839.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9839.jpgsave_picture_9839.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Ui Kits - Creative Market - Buttons and Switches - Mega UI V1 - 291442093 [PSD]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10890.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10890.jpgsave_picture_10890.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ magnet:?xt=urn:btih:A20F79D707B94479253A8C9A828B5E674283C259
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12544.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12544.jpgsave_picture_12544.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ magnet:?xt=urn:btih:BF931FFC7BE8367EDDFC8D1A182C434B4CF787C8
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12554.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12554.jpgsave_picture_12554.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ magnet:?xt=urn:btih:700A71017A9CA251A3C204CDEEF7A3C5DF10B99B
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12560.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12560.jpgsave_picture_12560.jpg" />
 </div>
 
 

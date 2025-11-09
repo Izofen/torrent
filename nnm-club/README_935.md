@@ -6,7 +6,7 @@ Colt Canyon (2020) [Ru/Multi] (1.3.1.3-8) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24649.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24649.jpgsave_picture_24649.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:DE105CB2C2C1979A8E109F6567AC3DFCBC34DD46
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24650.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24650.jpgsave_picture_24650.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:608158C11D77614BD70C6E9DA840BD1D722F34DC
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24651.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24651.jpgsave_picture_24651.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:0ACC9A962A2B3C281B7A7CAFF95A452CC0314A44
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24652.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24652.jpgsave_picture_24652.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Worldless (2023) [Ru/Multi] (1.3.5) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24653.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24653.jpgsave_picture_24653.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:255991C54752E4084B5ACD0E61B10417FBF177F6
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24654.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24654.jpgsave_picture_24654.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Shadowgate 2 (II) (2025) [Multi] (1.0.7) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24655.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24655.jpgsave_picture_24655.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:4D09EF799F3537E2C779433C2D0C3BE28F0A12E5
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24656.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24656.jpgsave_picture_24656.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:91715410FBD3958160A4AF22C82608B5405454E7
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24657.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24657.jpgsave_picture_24657.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ magnet:?xt=urn:btih:E587CBB01DFE797498CB3FC46566F040B60007AA
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24658.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24658.jpgsave_picture_24658.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ magnet:?xt=urn:btih:0495ECE5D154E369E0AC31ED4E2B57D391AC3688
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24659.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24659.jpgsave_picture_24659.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Eiyuden Chronicle: Hundred Heroes (2024) [Ru/Multi] (1.0.5-p.27.1/dlc) Repack Le
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24660.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24660.jpgsave_picture_24660.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ OTUS | Solidity Developer (2024) WEB-DLRip [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24661.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24661.jpgsave_picture_24661.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ magnet:?xt=urn:btih:581595E1ED685C142154E21DBB60FF1FB72B3A56
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24662.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24662.jpgsave_picture_24662.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ magnet:?xt=urn:btih:DE465925C438CF914576C9ADF41C86B2AAA3BE56
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24663.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24663.jpgsave_picture_24663.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ magnet:?xt=urn:btih:91533B2CB96FA2B26F3D5C8082E02885539545FA
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24664.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24664.jpgsave_picture_24664.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ magnet:?xt=urn:btih:BF4F1AD128555BE1B5A5CF93341692894C5FF6C1
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24665.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24665.jpgsave_picture_24665.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ magnet:?xt=urn:btih:DFBE4B4455D67A37EDBE773C37F8D3DB67FAC5F9
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24666.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24666.jpgsave_picture_24666.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Wise Care 365 Pro 7.2.3.696 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24667.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24667.jpgsave_picture_24667.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ magnet:?xt=urn:btih:DAE67FD76EF681A3E5550AE4921953D0BD204C6A
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24668.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24668.jpgsave_picture_24668.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ IPTV Pro v9.0.7 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24669.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24669.jpgsave_picture_24669.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ magnet:?xt=urn:btih:41DE3BEF7243BF37B77AF07E04240A1C6FD368D0
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24670.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24670.jpgsave_picture_24670.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ magnet:?xt=urn:btih:89C151736DC7F6C5C5BE4DF55DDFA5DCE32DBDB5
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24671.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24671.jpgsave_picture_24671.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ METRO QUESTER: OSAKA (2024) [Multi] (1.0.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24672.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24672.jpgsave_picture_24672.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Gone Rogue (2023) [Ru/Multi] (1.18) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24673.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24673.jpgsave_picture_24673.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Psiphon 3 build 185 RePack (& Portable) by elchupacabra (DC 10.03.2025) [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24674.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24674.jpgsave_picture_24674.jpg" />
 </div>
 
 

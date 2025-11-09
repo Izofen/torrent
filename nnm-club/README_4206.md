@@ -6,7 +6,7 @@ Decoy - 2 Альбома (2006-2007) [FLAC|Lossless]<Psychedelic / Progressive, 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130295.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130295.jpgsave_picture_130295.jpg" />
 </div>
 
 
@@ -38,7 +38,7 @@ SnapMotion Unlimited 5.0.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130296.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130296.jpgsave_picture_130296.jpg" />
 </div>
 
 
@@ -65,7 +65,7 @@ Michael Simon - Salama (2022) [AAC|~311 Kbps] <Deep House, Organic House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130298.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130298.jpgsave_picture_130298.jpg" />
 </div>
 
 
@@ -92,7 +92,7 @@ Music Tag Editor Pro 5.10.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130300.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130300.jpgsave_picture_130300.jpg" />
 </div>
 
 
@@ -118,7 +118,7 @@ Askold Buk - Askold Buk (1999) [FLAC|Lossless]<Fusion, Crossover Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130301.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130301.jpgsave_picture_130301.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - Soul Food Chillout (2022) [AAC|~288 Kbps] <Lounge, Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130302.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130302.jpgsave_picture_130302.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:C7A7A913535EB446D460FBA34480A98231B4195A
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130303.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130303.jpgsave_picture_130303.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ Transfer 2.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130304.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130304.jpgsave_picture_130304.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ ProFind 1.9.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130306.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130306.jpgsave_picture_130306.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ VA - Pure Deluxe 2 (2014) [AAC|~311 Kbps] <Lounge, Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130308.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130308.jpgsave_picture_130308.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ magnet:?xt=urn:btih:B7F43EEBA90950C06BD59FA24528C2D7229E3C19
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130309.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130309.jpgsave_picture_130309.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ VA - Sun & Chill, Vol. 1 (2012) [AAC|~326 Kbps] <Lounge, Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130310.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130310.jpgsave_picture_130310.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ VA - Pure Deluxe 1 (2014) [AAC|~310 Kbps] <Lounge, Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130312.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130312.jpgsave_picture_130312.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ Excelsis - Kurt Of Koppigen (1998) [MP3|320 кб/с]<Dark Power Metal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130313.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130313.jpgsave_picture_130313.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ magnet:?xt=urn:btih:2FEF820F27EB770EE70E0CC9BC2C6B8A51D4E34F
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130314.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130314.jpgsave_picture_130314.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ VA - Pure Deluxe 4 (2014) [AAC|~308 Kbps] <Lounge, Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130315.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130315.jpgsave_picture_130315.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ magnet:?xt=urn:btih:E98F00CBECAB742218D18C45131A77CE60119DE1
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130317.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130317.jpgsave_picture_130317.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ PDF Reader Pro Edition 2.8.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130318.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130318.jpgsave_picture_130318.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ VA - Oriental Lounge Affair (Exotic Arabian and Indian Moods) (2022) [AAC|~335 K
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130319.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130319.jpgsave_picture_130319.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ magnet:?xt=urn:btih:199452276BFC100B31F7270A9B94683003A9078E
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130320.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130320.jpgsave_picture_130320.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ magnet:?xt=urn:btih:B50485FB1FC2F3083BE0F9DEB9CDE2C0D50A3613
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130321.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130321.jpgsave_picture_130321.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ magnet:?xt=urn:btih:9496138982305628F5D84BD9EEA024DE61E495F6
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130322.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130322.jpgsave_picture_130322.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ VA - Moonlight Lounge (Mediterranean Roots), Vol. 2 (2022) [AAC|~336 Kbps] <Loun
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130323.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130323.jpgsave_picture_130323.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ VideoSolo Screen Recorder For Mac 2.0.50 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130324.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130324.jpgsave_picture_130324.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ magnet:?xt=urn:btih:84C1F18271E2226F6EC869ACEA8BC9D586C47853
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130325.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130325.jpgsave_picture_130325.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ magnet:?xt=urn:btih:7BBA4BF230FCF8B1241D062C2DEFC484C7BC6F13
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130326.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130326.jpgsave_picture_130326.jpg" />
 </div>
 
 

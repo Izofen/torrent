@@ -6,7 +6,7 @@ Space Clash: The last frontier / Космические войны: Послед
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147974.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147974.jpgsave_picture_147974.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Homeworld: Deserts of Kharak (2016) [Ru/Multi] (1.3.0/dlc) Repack xatab
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150886.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150886.jpgsave_picture_150886.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ StarCraft: Remastered (2017) [Ru/Multi] (1.23.10.12409) Repack Necros
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151076.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151076.jpgsave_picture_151076.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Warcraft Trilogy (1994-2002) [Ru/En] (1.2/2.02/1.26a/dlc) Repack Necros
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151566.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151566.jpgsave_picture_151566.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Imperialism (1997) [Multi] (1.1) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152279.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152279.jpgsave_picture_152279.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Dune 2000: Long Live the Fighters! (1998) [Ru/En] (1.06/1.02 RUS) Repack Necros
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152345.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152345.jpgsave_picture_152345.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Homeworld: Deserts of Kharak (2016) [Ru/Multi] (1.3.0/dlc) License RELOADED
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152923.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152923.jpgsave_picture_152923.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Legions of Ashworld (2014) [En] (1.0.2) Repack dark_elf2
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153439.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153439.jpgsave_picture_153439.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Submarine Titans / Морские Титаны: Зов Глубин (2000) [En] 
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154585.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154585.jpgsave_picture_154585.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Disciples 2 Gold (2005) [En] (2.02/dlc) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155095.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155095.jpgsave_picture_155095.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Civilization 2: Test of Time [Ru] (P) 1999
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155945.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155945.jpgsave_picture_155945.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Age of Empires II HD (2013) [Ru/Multi] (5.0.1/dlc) License RELOADED
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157244.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157244.jpgsave_picture_157244.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Disciples Sacred Lands (1999) [Ru/En] (1.1) License GOG [Gold Edition]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157499.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157499.jpgsave_picture_157499.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Desperados III (3) (2020) [Ru/Multi] (1.7/1.5.8/dlc) License GOG [Digital Deluxe
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161498.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161498.jpgsave_picture_161498.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ StarCraft (1998) [Ru/En] (1.16.1/dlc) Repack Necros
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162256.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162256.jpgsave_picture_162256.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Druidstone: The Secret of the Menhir Forest (2019) [Ru] (1.2.12) Repack Other s
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177541.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177541.jpgsave_picture_177541.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Space Rangers 2: Reboot / Космические рейнджеры 2: Доми�
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184050.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184050.jpgsave_picture_184050.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Star Wolves 2 (2006) [Multi] (1.01pl) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184096.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184096.jpgsave_picture_184096.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Warcraft 3 (III) (2002) [Ru] (1.26.0.6401/dlc) Unofficial
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184719.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184719.jpgsave_picture_184719.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Warcraft I: Remastered (2024) [Ru/Multi] (1.0.0.2137) Repack Necros
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187858.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187858.jpgsave_picture_187858.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Stellar Monarch (2016) [En] (1.48/dlc) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188175.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188175.jpgsave_picture_188175.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Warcraft II: Remastered (2024) [Ru/Multi] (1.0.0.2157) Repack Necros
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193368.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193368.jpgsave_picture_193368.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Total War: Rome II (2) (2014) [Ru/En] (2.4.0.11535779/dlc) Repack dixen18 [Emper
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195561.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195561.jpgsave_picture_195561.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Total War: Shogun 2 (2011) [Ru/Multi] (1.1.0.6262.2931569/dlc) Repack dixen18
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195581.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195581.jpgsave_picture_195581.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Total War: Attila (2015) [Ru/En] (1.6.0/dlc) Repack dixen18
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195939.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195939.jpgsave_picture_195939.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Warhammer 40,000: Dawn of War Soulstorm (2008) [Ru] (1.2) Repack Necros
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_200011.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_200011.jpgsave_picture_200011.jpg" />
 </div>
 
 

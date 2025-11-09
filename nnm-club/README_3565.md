@@ -6,7 +6,7 @@ Selmi - Last Dream (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113065.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113065.jpgsave_picture_113065.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Cryin' Out Loud - Play Loud & Smoke Often (2024) [FLAC|Lossless|WEB-DL|tracks] <
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113066.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113066.jpgsave_picture_113066.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ PopClip 2024.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113067.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113067.jpgsave_picture_113067.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Five Dollar Shake - Bigger Heart (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Roc
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113068.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113068.jpgsave_picture_113068.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ magnet:?xt=urn:btih:A14C536CAA0BD1073097D4B4DCA8B72051F5158B
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113069.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113069.jpgsave_picture_113069.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ KA & The Blue Devils - Anywhere (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113070.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113070.jpgsave_picture_113070.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ magnet:?xt=urn:btih:1339C29ACC4A19D9DDFE3C2820D6B8F80A51FEAF
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113071.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113071.jpgsave_picture_113071.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Ash Bucher Blue Combo - Clear Cut (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113072.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113072.jpgsave_picture_113072.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ magnet:?xt=urn:btih:EDEC9F003232E7BBDAE8AA14CAD118EC36897E5D
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113073.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113073.jpgsave_picture_113073.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ magnet:?xt=urn:btih:DCF69E7E60AD2D671FFF0025570499355DE7EBFF
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113074.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113074.jpgsave_picture_113074.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Doppler for Mac 2.1.20 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113075.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113075.jpgsave_picture_113075.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ HWiNFO 7.73 Build 5390 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113076.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113076.jpgsave_picture_113076.jpg" />
 </div>
 
 
@@ -317,7 +317,7 @@ PixelSnap 2 for Mac v.2.5.4 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113077.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113077.jpgsave_picture_113077.jpg" />
 </div>
 
 
@@ -341,7 +341,7 @@ Rockets - Wonderland (2019) [FLAC 24/96|Lossless|tracks] <Synth-pop, Space-rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113078.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113078.jpgsave_picture_113078.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ magnet:?xt=urn:btih:4FDAD33AEFCFBD821CB7FCDEFEA566B5D52613F0
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113079.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113079.jpgsave_picture_113079.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ magnet:?xt=urn:btih:2EE325E67FAED24E8A5BB6E303F94E30B55E60B7
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113080.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113080.jpgsave_picture_113080.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ VA - Travel & Living Lounge, Vol. 1: Traveling Chillout Moods (2024) [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113081.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113081.jpgsave_picture_113081.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ Hype 4 Pro v.4.1.16 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113082.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113082.jpgsave_picture_113082.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ magnet:?xt=urn:btih:292662FFB5E897BABC4D1F369D479567C5E8B7F2
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113083.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113083.jpgsave_picture_113083.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ VA - Эстрадное обозрение (2 серия) (1961) [FLAC 24/96|Los
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113084.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113084.jpgsave_picture_113084.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:FFB07C7B253ABCCEF05875B1FD89FDF0DAEF454A
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113085.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113085.jpgsave_picture_113085.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ EdgeView 4 v.4.6.2 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113086.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113086.jpgsave_picture_113086.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ GeoGebra 6.0.832.0 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113087.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113087.jpgsave_picture_113087.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Stone Temple Pilots - Studio Albums (10 releases) (1992-2020) hand made [restore
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113088.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113088.jpgsave_picture_113088.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ magnet:?xt=urn:btih:873AC5D9FB44DF74F8E3CDFAE423AC243C4ADCA4
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113089.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113089.jpgsave_picture_113089.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ VA - Blueberry Cafe 2024 Soulful House Mood (2024) [FLAC|Lossless|WEB-DL|tracks]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113090.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113090.jpgsave_picture_113090.jpg" />
 </div>
 
 

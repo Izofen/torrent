@@ -6,7 +6,7 @@ Udemy, Dzianis Matveyenka | JUnit 5 (2022) WEB-DL [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_193044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193044.jpgsave_picture_193044.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Adrian Cantrill | AWS Certified SysOps Administrator - Associate [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_193064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193064.jpgsave_picture_193064.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Academind Pro, Udemy, Maximilian Schwarzmüller | GitHub Actions - The Complete 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_193089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193089.jpgsave_picture_193089.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Adrian Cantrill | AWS Certified Advanced Networking - Specialty (2022) WEB-DL [E
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_193092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193092.jpgsave_picture_193092.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ magnet:?xt=urn:btih:FDD63C232CF0B83BA17FD785DAB5A66BDB80DBF0
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_193141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193141.jpgsave_picture_193141.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Udemy, Sebastian Glöckner | Der Komplette Excel Kurs - Vom Anfänger zum Profi 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193225.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193225.jpgsave_picture_193225.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Stepik, Павел Коган | Google-таблицы. от А до Я (2023) WE
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193472.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193472.jpgsave_picture_193472.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ magnet:?xt=urn:btih:B6273EA12166CAAA24B1446784C1CE34536ADC9C
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194159.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194159.jpgsave_picture_194159.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ Infostart, Николай Бондаренко | Видеокурс «1C - Пр�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194268.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194268.jpgsave_picture_194268.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Andrii Piatakha | Software Architecture and Clean Code Design in OOP (2022) WEBR
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194269.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194269.jpgsave_picture_194269.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Stepik, Илья Фофанов | React - Полное руководство (2
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194313.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194313.jpgsave_picture_194313.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Stepik, Shultais Education, Никита Шультайс | Проектиров
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194493.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194493.jpgsave_picture_194493.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Udemy, Richard Chesterwood | Istio Hands-On for Kubernetes (2023) WEB-DL  [EN / 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194529.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194529.jpgsave_picture_194529.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Abbas Masri | Mastering Android App Development with Kotlin [XML +COMPOSE] (2023
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194586.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194586.jpgsave_picture_194586.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Udemy, Richard Chesterwood | Kubernetes Hands-On - Deploy Microservices to the A
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194627.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194627.jpgsave_picture_194627.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Abbas Masri | The Complete Android 14 Developer Course - Build 100 Apps (2022) W
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194882.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194882.jpgsave_picture_194882.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ SD.CODE, Сергей Дмитриевский | Мышление Програм
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194955.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194955.jpgsave_picture_194955.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ Udemy, Nikita Sergeev | Excel: основное для работы с масс�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194974.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194974.jpgsave_picture_194974.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ Podlodka Crew | Записи Go Crew #1 - «Внутренний тулинг» 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195063.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195063.jpgsave_picture_195063.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Podlodka Crew | Записи Java Crew #2 «Микросервисная арх�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195373.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195373.jpgsave_picture_195373.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Udemy, Ali Gelenler | Event-Driven Microservices: Spring Boot, Kafka and Elastic
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195381.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195381.jpgsave_picture_195381.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Udemy, Ali Gelenler | Microservices: Clean Architecture, DDD, SAGA, Outbox & Kaf
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195448.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195448.jpgsave_picture_195448.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ FrontendMasters, Jen Kramer | Practical CSS Layouts (2023) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195527.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195527.jpgsave_picture_195527.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ leerob | Mastering Next.js (2023) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195539.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195539.jpgsave_picture_195539.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ JUG Ru Group | HolyJS 2023 Spring. Конференция для JavaScript - р
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195576.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195576.jpgsave_picture_195576.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ magnet:?xt=urn:btih:85E9191DC0B1C01A6300219684A1457C2E842992
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195579.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195579.jpgsave_picture_195579.jpg" />
 </div>
 
 

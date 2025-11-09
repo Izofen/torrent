@@ -6,7 +6,7 @@ Memento Database + ключ активации 5.4.3 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106239.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106239.jpgsave_picture_106239.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:2ABA71CA2522DACBA9B5789230A58B7C1D676A15
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106240.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106240.jpgsave_picture_106240.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ IObit Smart Defrag Pro 10.0.0.374 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106241.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106241.jpgsave_picture_106241.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Nick Charles - Further Down the Line (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106242.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106242.jpgsave_picture_106242.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Romi Mayes - Small Victories (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106243.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106243.jpgsave_picture_106243.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Inner Strength - Daydreaming In Moonlight (2024) [FLAC|Lossless|WEB-DL|tracks] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106244.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106244.jpgsave_picture_106244.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ Eden Brent - Getaway Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106245.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106245.jpgsave_picture_106245.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ Gary Harvey - Outta My Head (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106246.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106246.jpgsave_picture_106246.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ Johnny Pallari - Second Coming (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106247.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106247.jpgsave_picture_106247.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Toshiyuki Miyama & The New Herd - The Essence (1964 - 1971) 2CD, 2023, Nippon Cr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106248.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106248.jpgsave_picture_106248.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Powersection - Losing My Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106249.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106249.jpgsave_picture_106249.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ magnet:?xt=urn:btih:6232EFC600D6EE7CF4F21BB26140AABB2516C520
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106250.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106250.jpgsave_picture_106250.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Mr Tchang Bluz Explosion - Time To Move (2024) [FLAC|Lossless|WEB-DL|tracks] <Bl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106251.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106251.jpgsave_picture_106251.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Federico Verteramo - In My Own Time (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106252.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106252.jpgsave_picture_106252.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Mean Old Fireman - Rescue 3 (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106253.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106253.jpgsave_picture_106253.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Neil Sadler - Past to Present (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106254.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106254.jpgsave_picture_106254.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Incantation - Sect Of Vile Divinities (2020) [FLAC|Lossless|image + .cue] <Death
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106255.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106255.jpgsave_picture_106255.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Voidlung - Maledictus Rex (2024) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106256.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106256.jpgsave_picture_106256.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Sandboxie 5.69.5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106257.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106257.jpgsave_picture_106257.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ IObit Smart Defrag Pro 10.0.0.374 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106258.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106258.jpgsave_picture_106258.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Feddy on Guitar - Give Me One More Chance (2024) [FLAC|Lossless|WEB-DL|tracks] <
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106259.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106259.jpgsave_picture_106259.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Perfectly Clear WorkBench 4.6.1.2679 RePack (& Portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106260.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106260.jpgsave_picture_106260.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ magnet:?xt=urn:btih:28B45F534D9445D6370ADDF6E7F0A320DFBA4BD7
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106261.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106261.jpgsave_picture_106261.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ magnet:?xt=urn:btih:09691C3EC9534673C2518DEB415954068F1A4F47
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106262.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106262.jpgsave_picture_106262.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ magnet:?xt=urn:btih:226320DABCA22DCC2624A0CCA762E9E22B8523EB
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106263.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106263.jpgsave_picture_106263.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ magnet:?xt=urn:btih:3890C8501533469C5C28E6AB6DB989BA9A449E77
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106264.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106264.jpgsave_picture_106264.jpg" />
 </div>
 
 

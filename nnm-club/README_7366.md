@@ -6,7 +6,7 @@ Windows 10/11 PE (x86/x64) by Ratiborus v.8.2023 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252007.jpgsave_picture_252007.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:7E9CDB53835C8D43D15B57171DB8058104597ED2
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252008.jpgsave_picture_252008.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:701769F577C99C4A81480254831A826F7DA4D0A5
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252009.jpgsave_picture_252009.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:6608406465F2B6380EAA0803B1BA80F225BFD5C6
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252010.jpgsave_picture_252010.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:CE18C9B492489F107CAB2396C90E9D3F5A4ED959
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252011.jpgsave_picture_252011.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:8961A2AF2CCF882297044C1E15B49813F8851EF0
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252012.jpgsave_picture_252012.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:08F4DD5EED389EAE2663ECCF45DD0FBFEBA1EB41
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252013.jpgsave_picture_252013.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ Wild West Dynasty (2023) [Ru/Multi] (0.1.8238) License GOG [Early Access]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252014.jpgsave_picture_252014.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:194B85461E925754C71C2F5E6AE2976EAFE9A601
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252015.jpgsave_picture_252015.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ magnet:?xt=urn:btih:6B2E29CA84BCE6935B574290D6B48A92749E5F47
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252016.jpgsave_picture_252016.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ magnet:?xt=urn:btih:2F910E102896DC8F5C4E8EC6A131ED59A744CACA
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252017.jpgsave_picture_252017.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ magnet:?xt=urn:btih:9C410584D89C6F36097C138F319257087D0878B4
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252018.jpgsave_picture_252018.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ magnet:?xt=urn:btih:B92E844D50C4F850CC982539BB0A992BC67F8362
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252019.jpgsave_picture_252019.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ magnet:?xt=urn:btih:5179C58B0A5879555F91D7DD15EF04F0F8B3C194
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252020.jpgsave_picture_252020.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ magnet:?xt=urn:btih:B5E3502A888E31C0FFD9D15EDBFD5FAD6B782A12
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252021.jpgsave_picture_252021.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ Mathworks Matlab R2023a (9.14) + Update1+ Update2 + Addon Packages [x64] (iso)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252022.jpgsave_picture_252022.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ Star Trek: Resurgence (2023) [Multi] (1.0) Repack DjDI
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252023.jpgsave_picture_252023.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ magnet:?xt=urn:btih:AFEE4D098E120D5EAC70C04998A38039C1846D5E
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252024.jpgsave_picture_252024.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ magnet:?xt=urn:btih:181E9AC51CD35B8A8A2CB2F2D308294577C17E32
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252025.jpgsave_picture_252025.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ magnet:?xt=urn:btih:EF3133FC1D79263C81748D9AD3FF55DE6C0F96AF
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252026.jpgsave_picture_252026.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ magnet:?xt=urn:btih:9F0811332081403995CF1A5DA1AD7E935B140667
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252027.jpgsave_picture_252027.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ magnet:?xt=urn:btih:852731013CE2E03065F0A7466EE5F19818C9CBAD
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252028.jpgsave_picture_252028.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ magnet:?xt=urn:btih:EB88A2BD55AB27507132AAE63E90DCF3A67B811A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252029.jpgsave_picture_252029.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ magnet:?xt=urn:btih:606DB2F0B5A19D7686A165F8ECC2B661C7FEE320
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252030.jpgsave_picture_252030.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ magnet:?xt=urn:btih:6CC26F8EFA5872B866B765B230812E24A5311F4C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252031.jpgsave_picture_252031.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ magnet:?xt=urn:btih:5A12812651DA0846A0DF6FD9DC709C2D33B38D4B
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252032.jpgsave_picture_252032.jpg" />
 </div>
 
 

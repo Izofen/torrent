@@ -6,7 +6,7 @@ Oasis - Time Flies… (1994 - 2009) (2010) Remastered, 2025, Big Brother Recordi
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66166.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66166.jpgsave_picture_66166.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Keep It Trance Vol. 29 (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66167.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66167.jpgsave_picture_66167.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - Chillhop Essentials Summer (2025) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, C
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66168.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66168.jpgsave_picture_66168.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Volen Sentir - The Book of Wisdom (2025) [FLAC|Lossless|WEB-DL|tracks] <Tech hou
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66169.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66169.jpgsave_picture_66169.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ The B-52's - Good Stuff (1992) CD, Album, Club Edition, Denon Pressing [FLAC|Los
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66170.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66170.jpgsave_picture_66170.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ VA - Навстречу любви (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop, Ch
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66171.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66171.jpgsave_picture_66171.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ magnet:?xt=urn:btih:30EB179BEE037E4FC691B01BF9AAEE2D5D0C4DA1
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66172.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66172.jpgsave_picture_66172.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Shack - Suitcase Full of Songs (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66173.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66173.jpgsave_picture_66173.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ The Exies - Head for the Door (2004) [FLAC|Lossless|tracks + .cue] <Alternative 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66174.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66174.jpgsave_picture_66174.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ magnet:?xt=urn:btih:5275267691C5FC739AF49D7311E33B7D90F114CA
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66175.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66175.jpgsave_picture_66175.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Bluedog - we keep the fire burning (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66176.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66176.jpgsave_picture_66176.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ John Haydock - Thunder on the Outskirts of Town (2025) [FLAC|Lossless|WEB-DL|tra
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66177.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66177.jpgsave_picture_66177.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Josh Harp - Chicago Sessions V.1 (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66178.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66178.jpgsave_picture_66178.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Barrel Dawg - Howlin' Good Times (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66179.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66179.jpgsave_picture_66179.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ magnet:?xt=urn:btih:914AD11C55FE8AB0132CE57E868EC7F305434D5B
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66180.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66180.jpgsave_picture_66180.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Rhian Elin - Better Late Than Never (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66181.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66181.jpgsave_picture_66181.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Andy Whatley & Co. - Call It What You Want (2025) [FLAC|Lossless|WEB-DL|tracks] 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66182.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66182.jpgsave_picture_66182.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ magnet:?xt=urn:btih:66877B23AC3695F230862663099A5D10848AD267
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66183.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66183.jpgsave_picture_66183.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ magnet:?xt=urn:btih:ADF204C25EAE4520606E564D12553B619A676E7E
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66184.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66184.jpgsave_picture_66184.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Kim & Buran - MAMA (2025) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Space disco, 
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66185.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66185.jpgsave_picture_66185.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ VA - Навстречу любви (2025) [MP3|320 Kbps] <Pop, Chanson>
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66186.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66186.jpgsave_picture_66186.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ The Cure - Mixes Of A Lost World (2025) [MP3|320 Kbps] <Alternative Rock, Pop Ro
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66187.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66187.jpgsave_picture_66187.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ magnet:?xt=urn:btih:9234C2D5E70BA5048BF619A8D77F82E5A903A569
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66188.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66188.jpgsave_picture_66188.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ VA - National Pop Dance Music Vol.108 (2025) [MP3|320 Kbps] <Pop, Folk, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66189.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66189.jpgsave_picture_66189.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ V.A. - Cafe del Mar Ibiza Chillout Mix V (DJ Mix) (2025) [FLAC|Lossless|WEB-DL|t
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66190.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66190.jpgsave_picture_66190.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ Display Tester v5.35.5 Mod by Balatan [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66191.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66191.jpgsave_picture_66191.jpg" />
 </div>
 
 

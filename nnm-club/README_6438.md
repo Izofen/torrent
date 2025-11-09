@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204079.jpgsave_picture_204079.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ QOwnNotes 23.8.2 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204080.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204080.jpgsave_picture_204080.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:4F07D14663D95A2A9588729CEC30E2F9A8C9A2DF
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204081.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204081.jpgsave_picture_204081.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:09F44DD03A0147ABA063206F21E3CED7CC7ADB3E
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204082.jpgsave_picture_204082.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:14B237500B757F7729BFD5B79656D462276A2928
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204083.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204083.jpgsave_picture_204083.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:FE0D025186FD2620B3430C7E32EA6A795F7441D0
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204084.jpgsave_picture_204084.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ Ghost Hounds - First Last Time (2023) [FLAC|Lossless|WEB-DL|tracks] <blues-rock,
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204085.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204085.jpgsave_picture_204085.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ AIDA64 Extreme Edition  6.85.6318 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204086.jpgsave_picture_204086.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ magnet:?xt=urn:btih:C54039EC8AF8AC4FE99B00A57F4B5EABE52B83E0
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204087.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204087.jpgsave_picture_204087.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ magnet:?xt=urn:btih:C50AD89877D4BCDE273F7164044B5364F5CC87E0
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204088.jpgsave_picture_204088.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:2925E8095B9E80849EFC1EE621093AEA81A8F799
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204089.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204089.jpgsave_picture_204089.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:6E0C5F37F59CAE68CCCF5FEB77C7B0EFEC40B612
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204090.jpgsave_picture_204090.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ magnet:?xt=urn:btih:0307650C8CF426D88431BA4C50650C771CAD92FE
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204091.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204091.jpgsave_picture_204091.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ magnet:?xt=urn:btih:0994C6CF759A8E28DFDEBAA9A978B99DF0AE9B52
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204092.jpgsave_picture_204092.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ magnet:?xt=urn:btih:B1A5B985B63CCD1701052AAE96AEBAC79A724883
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204093.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204093.jpgsave_picture_204093.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Unforeseen Incidents (2018) [Ru/Multi] (1.0.9.1) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204094.jpgsave_picture_204094.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ magnet:?xt=urn:btih:1AF94693D525A61E945D5501C4AEA7CF7677A48F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204095.jpgsave_picture_204095.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ magnet:?xt=urn:btih:7D795D7D45EECE2C371A098637994244DB967A87
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204096.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204096.jpgsave_picture_204096.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ magnet:?xt=urn:btih:9553A2AE45AFDA9F2D3EFF4138CE2A1AC758E83F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204097.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204097.jpgsave_picture_204097.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ BBC. Изумительный мистер Фейнман / The Fantastic Mr Fey
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204098.jpgsave_picture_204098.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ magnet:?xt=urn:btih:017F994ABA039598FBFFC33285FAC7A98B84ECB2
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204100.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204100.jpgsave_picture_204100.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Kaspersky Small Office Security 21.8.5.452 Online Installer [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204101.jpgsave_picture_204101.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Metallica - Park City, UT - January 25 live (2006) [FLAC|Lossless|tracks] <Thras
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204102.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204102.jpgsave_picture_204102.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ magnet:?xt=urn:btih:844CE1F010DECB26244D3B0921BBEE695C1413DB
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204103.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204103.jpgsave_picture_204103.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Artstation, Tyler Smith | Intro to UE4 lighting Exterior and Interior (2020) PCR
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204104.jpgsave_picture_204104.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Bandicam 6.0.6.2034 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204105.jpgsave_picture_204105.jpg" />
 </div>
 
 

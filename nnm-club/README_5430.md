@@ -6,7 +6,7 @@ OmniFocus Pro 3.15.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168084.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168084.jpgsave_picture_168084.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Ultimate Spider-Man (2005) [PS2] [NTSC] [Unofficial] [Ru/En]
 >>PS2
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168085.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168085.jpgsave_picture_168085.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:64EBEAC0236D2E2C16F35CEB4AA90633C6A42D53
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168086.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168086.jpgsave_picture_168086.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Multitouch 1.21 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168087.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168087.jpgsave_picture_168087.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ Death - Symbolic (1995) [FLAC|24/96|tracks|Vinyl-Rip] <Death Metal, Progressive 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168088.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168088.jpgsave_picture_168088.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ magnet:?xt=urn:btih:EECD267AEBFBE2A091DB17592F7B7E116F9CE14B
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168089.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168089.jpgsave_picture_168089.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ magnet:?xt=urn:btih:A474C58C754586693641578261331BB2C75BCB8F
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168090.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168090.jpgsave_picture_168090.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ FinePrint 11.33 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168091.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168091.jpgsave_picture_168091.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:F7131B423B1ECE22E970AC9200499B3EEA18D08D
 >>Трейлеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168092.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168092.jpgsave_picture_168092.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ magnet:?xt=urn:btih:BB0123698C9D73ADB888F86AD56736C4638AB06C
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168093.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168093.jpgsave_picture_168093.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ magnet:?xt=urn:btih:A6E5669D16C37FD95869B58A47843E98A60C7DDB
 >>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168094.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168094.jpgsave_picture_168094.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ magnet:?xt=urn:btih:DC16088FDE4A3A6947280EFD732DB90AC9233416
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168095.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168095.jpgsave_picture_168095.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ HitmanPro 3.8.23 Build 318 RePack by Umbrella Corporation [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168096.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168096.jpgsave_picture_168096.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ magnet:?xt=urn:btih:B7F595C6F40F3FEB4C17387B9C1E354B0B8830FE
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168097.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168097.jpgsave_picture_168097.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ VA - 15 Workout Psy Jams (2019) [MP3|320 Kbps] <Psy-Trance, Goa-Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168098.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168098.jpgsave_picture_168098.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ magnet:?xt=urn:btih:C8ECDBE6F5B8DA75B0826DA3485366CF9E4191D3
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168099.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168099.jpgsave_picture_168099.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Spider-Man 2 (2004) [PS2] [NTSC] [Unofficial] [Ru/En]
 >>PS2
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168100.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168100.jpgsave_picture_168100.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Magnus Karlsson's Free Fall - Hunt The Flame (2023) Japanese Edition [FLAC|Lossl
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168101.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168101.jpgsave_picture_168101.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ Diablo: The Hell 2 (2020) [En] (1.0638) Mod Mordor_XP & ТН team
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168102.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168102.jpgsave_picture_168102.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ magnet:?xt=urn:btih:495BFA08ADEA3762E7936EDAE20A394FEB91BC71
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168103.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168103.jpgsave_picture_168103.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ magnet:?xt=urn:btih:0BDDA4E6F055EC5B5DA1EFD91BB118EC1BF3B127
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168104.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168104.jpgsave_picture_168104.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ magnet:?xt=urn:btih:CAE5388E07D3496EF2D18EB7B1B4EC6ECE9BE03F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168105.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168105.jpgsave_picture_168105.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Microsoft® Windows® 10 Enterprise LTSC 2019 x86-x64 1809 RU by OVGorskiy 10.20
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168106.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168106.jpgsave_picture_168106.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Opera 65.0.3467.72 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168107.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168107.jpgsave_picture_168107.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ ZEDGE 8.19.2-beta Mod by derrin [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168108.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168108.jpgsave_picture_168108.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ magnet:?xt=urn:btih:F08FD05AAEBFFFE8DE70697EBB6071D9A8AE1C59
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168109.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168109.jpgsave_picture_168109.jpg" />
 </div>
 
 

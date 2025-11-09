@@ -6,7 +6,7 @@ Ultros (2024) [Multi] (20240403) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50435.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50435.jpgsave_picture_50435.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Murders on the Yangtze River (2024) [Multi] (1.4.17) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50452.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50452.jpgsave_picture_50452.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:347AAE75FD28BD8FC53900AB7F00A457C99CDBAC
 >>Языковые пакеты для Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50471.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50471.jpgsave_picture_50471.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Amnesia: The Bunker (2023) [Ru/Multi] (1.9) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50518.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50518.jpgsave_picture_50518.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ HITMAN 3 (III) (2021) [Ru/Multi] (3.190/dlc) Scene Razor 1911 [Deluxe Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50529.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50529.jpgsave_picture_50529.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Chained Together (2024) [En] (1.7.9) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50582.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50582.jpgsave_picture_50582.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Myst (2021) [Ru/Multi] (1.8.7) Repack dixen18 [VR]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50583.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50583.jpgsave_picture_50583.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Eyes of Destiny (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50596.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50596.jpgsave_picture_50596.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ City Bus Manager (2024) [Ru/Multi] (2.0.16/dlc) Repack FitGirl [Deluxe Bundle]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50607.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50607.jpgsave_picture_50607.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Shrot (2024) [Multi] (1.2) Repack FitGirl
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50614.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50614.jpgsave_picture_50614.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ We Happy Few (2018) [Ru/Multi] (1.9.88966/dlc) Repack R.G. Catalyst
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50623.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50623.jpgsave_picture_50623.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Splatter - Zombiecalypse Now (2024) [Ru/Multi] (1.2_gog) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50635.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50635.jpgsave_picture_50635.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Godrop (2024) [Ru/Multi] (1.34/dlc) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50682.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50682.jpgsave_picture_50682.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ REVEIL (2024) [Ru/Multi] (1.1.1/dlc) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50690.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50690.jpgsave_picture_50690.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ The Leviathan's Fantasy (2023) [Multi] (2.1.4/dlc) Scene Tenoke [Ultimate Editio
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50702.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50702.jpgsave_picture_50702.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Islands of the Caliph (2023) [En] (1.2.8) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50709.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50709.jpgsave_picture_50709.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Sand Land (2024) [Multi] (1.0.5/dlc) Scene Tenoke [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50720.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50720.jpgsave_picture_50720.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Scythe (2018) [Ru/Multi] (2.1.0/dlc) License GOG [Digital Edition]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50728.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50728.jpgsave_picture_50728.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Stranded Sails Explorers of the Cursed Islands (2019) [Ru/Multi] (1.4.8) License
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50730.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50730.jpgsave_picture_50730.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Digimon Survive (2022) [Multi] (1.0) Scene SKIDROW
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50806.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50806.jpgsave_picture_50806.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Drakkar Crew (2023) [Ru/En] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50811.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50811.jpgsave_picture_50811.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Young Hearts (2024) [Ru/En] (1.0) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50824.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50824.jpgsave_picture_50824.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ The Oregon Trail (2022) [Ru/Multi] (1.0.31.23/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50847.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50847.jpgsave_picture_50847.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Frozen Synapse (2011) [En] (35/dlc) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50854.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50854.jpgsave_picture_50854.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ The Legend of Nayuta: Boundless Trails (2021) [Multi] (1.0.7) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50860.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50860.jpgsave_picture_50860.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ TOEM: A Photo Adventure (2021) [Ru/Multi] (3.0.10) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50863.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50863.jpgsave_picture_50863.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Ayreon - Universal Migrator Part 2-Flight of the Migrator (2000) [FLAC|24/192|im
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128544.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128544.jpgsave_picture_128544.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:EDA58600C7A0A869A21F41F7C0F800DCD50D342F
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128545.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128545.jpgsave_picture_128545.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ The Unknown - Big Dreams (1989) Reissue, 2023, FnA Records [FLAC|Lossless|image 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128546.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128546.jpgsave_picture_128546.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Ancient Ceremony - Studio Albums (6 releases) (1995-2004) hand made [restored, d
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128547.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128547.jpgsave_picture_128547.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Temperance - Hermitage - Daruma's Eyes Pt. 2 (2023) [FLAC|Lossless|image + .cue]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128548.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128548.jpgsave_picture_128548.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Care Of Night - Reconnected (2023) Japanese Edition [FLAC|Lossless|image + .cue]
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128549.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128549.jpgsave_picture_128549.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Jessica Williams - Arrival (1994) Jazz Focus [FLAC|Lossless|tracks + .cue] <Post
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128550.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128550.jpgsave_picture_128550.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ magnet:?xt=urn:btih:0DBF64D4866689EAB0D02D63D55148A1A5A9ECD1
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128551.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128551.jpgsave_picture_128551.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Revlin Project - Beyond The Dreams (2023) [FLAC|Lossless|image + .cue] <Melodic 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128552.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128552.jpgsave_picture_128552.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Blacksilver - Blacksilver (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Ro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128553.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128553.jpgsave_picture_128553.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Terri Lyne Carrington - Money Jungle: Provocative In Blue (2013) Concord Jazz [F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128554.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128554.jpgsave_picture_128554.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:BBE0315A946F64F0ED0B666CBB33FE7B421EE687
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128555.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128555.jpgsave_picture_128555.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Crazer - ФАКты (2022) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128556.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128556.jpgsave_picture_128556.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Rubicon - Aliapolis (2023) [FLAC|Lossless|image + .cue] <Heavy Metal, Power Meta
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128557.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128557.jpgsave_picture_128557.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Lisa Hilton - Paradise Cove (2022) Ruby Slippers Productions [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128558.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128558.jpgsave_picture_128558.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ magnet:?xt=urn:btih:18459E336D4E663D71969075CDCCACD2EA12DEB4
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128560.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128560.jpgsave_picture_128560.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Trials Rising (2019) [Ru/Multi] (Build 10831717) Scene Rune
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128562.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128562.jpgsave_picture_128562.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ magnet:?xt=urn:btih:C8F492BA1851B493E569E1CDEF570F34159D81EE
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128563.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128563.jpgsave_picture_128563.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Revo Uninstaller Pro 5.4.3 + Portable [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128564.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128564.jpgsave_picture_128564.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ magnet:?xt=urn:btih:9A6A9A418C837E3B06BBCCABB5B82A12083654F1
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128565.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128565.jpgsave_picture_128565.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ HWiNFO 8.32 Build 5840 + Portable [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128566.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128566.jpgsave_picture_128566.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ Revo Uninstaller Pro 5.4.3 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128567.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128567.jpgsave_picture_128567.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ magnet:?xt=urn:btih:7809B7FF7CFB352F7318BF8DD04B2F251DBF6BBE
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128568.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128568.jpgsave_picture_128568.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ magnet:?xt=urn:btih:F0EA8619424E58E7E62CDBD40D3287125B99AEAF
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128569.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128569.jpgsave_picture_128569.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ magnet:?xt=urn:btih:7605B5E7BC4E52E8C75128F1519BE69EB428EBFE
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128570.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128570.jpgsave_picture_128570.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ magnet:?xt=urn:btih:4A430A27B22EFB150E3E4F7AE217B8E3D7D47291
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128571.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128571.jpgsave_picture_128571.jpg" />
 </div>
 
 

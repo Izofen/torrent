@@ -6,7 +6,7 @@ Magic Hat - Get Off My Lawn (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53616.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53616.jpgsave_picture_53616.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Royal Rage - Evolve (2024) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53619.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53619.jpgsave_picture_53619.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Vredehammer - God Slayer (2024) [FLAC|Lossless|WEB-DL|tracks] <Black Metal, Deat
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53620.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53620.jpgsave_picture_53620.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Weedevil - Profane Smoke Ritual (2024) [FLAC|Lossless|WEB-DL|tracks] <Occult Doo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53622.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53622.jpgsave_picture_53622.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Horrified - Crematorium Mist (2022) [FLAC|Lossless|image + .cue] <Death Metal, G
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53624.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53624.jpgsave_picture_53624.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Thronehammer - Incantation Rites (2021) [FLAC|Lossless|WEB-DL|tracks] <Doom Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53626.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53626.jpgsave_picture_53626.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ VA - Митьки. 8 Альбомов (1995-2023) [MP3|320 Kbps] <Rock, Folk>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53629.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53629.jpgsave_picture_53629.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ VA - Митьки. 3 Альбома (1996-2002) [FLAC|Lossless|tracks + .cue] <R
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53642.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53642.jpgsave_picture_53642.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Gone til Winter - Hiding from the Sun (2024) [MP3|320 Kbps] <Gothic Metal, Rock>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53733.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53733.jpgsave_picture_53733.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ The Serious Men - M.I.R. (Made In Russia) (2020) [FLAC|Lossless|WEB-DL|tracks] <
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54026.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54026.jpgsave_picture_54026.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ Marilyn Manson - Sweet Dreams Baby (2000) 2024, Smokin' [FLAC|Lossless|WEB-DL|tr
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54028.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54028.jpgsave_picture_54028.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ Severe Torture - Torn From The Jaws Of Death (2024) [FLAC|Lossless|WEB-DL|tracks
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54048.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54048.jpgsave_picture_54048.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ VA - Константин Ступин. Трибьют. Часть 1 (2024) [MP3
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54063.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54063.jpgsave_picture_54063.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ Holy Mother - Rise (2024) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54137.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54137.jpgsave_picture_54137.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ Issa - Another World (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54138.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54138.jpgsave_picture_54138.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Dyscordia - The Road to Oblivion (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54143.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54143.jpgsave_picture_54143.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Holycide - Towards Idiocracy (2024) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54144.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54144.jpgsave_picture_54144.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Dyscordia - Words In Ruin (2016) [FLAC|Lossless|WEB-DL|tracks] <Progressive, Pow
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54146.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54146.jpgsave_picture_54146.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Dyscordia - Delete / Rewrite (2020) [FLAC|Lossless|WEB-DL|tracks] <Progressive, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54149.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54149.jpgsave_picture_54149.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Dyscordia - Twin Symbiosis (2013) [FLAC|Lossless|WEB-DL|tracks] <Progressive, Po
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54151.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54151.jpgsave_picture_54151.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ Eggs of Gomorrh - Outpregnate (2019) EP [FLAC|Lossless|image + .cue] <Black, Dea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54152.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54152.jpgsave_picture_54152.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ Apocalyptica - Plays Metallica, Vol. 2 (2024) [FLAC|Lossless|WEB-DL|tracks] <Sym
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54164.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54164.jpgsave_picture_54164.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ Kid Rock - Rock N Roll Jesus (2007) [FLAC|Lossless|image + .cue] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54168.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54168.jpgsave_picture_54168.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ Black Sabbath - Anno Domini (1989-1995) Reissue, Remastered, 2024, BMG [FLAC|Los
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54186.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54186.jpgsave_picture_54186.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ Black Sabbath - Anno Domini (1989-1995) Box Set, Reissue, Remastered, 2024, BMG 
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54189.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54189.jpgsave_picture_54189.jpg" />
 </div>
 
 
@@ -682,7 +682,7 @@ Paralandra - The Body Electric (2024) [FLAC|Lossless|WEB-DL|tracks] <Modern Hard
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54257.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54257.jpgsave_picture_54257.jpg" />
 </div>
 
 

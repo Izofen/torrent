@@ -6,7 +6,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16513.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16513.jpgsave_picture_16513.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:70BC910C32D3D1A087B2452DD3E2379E634CEAD7
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16514.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16514.jpgsave_picture_16514.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:74FC8ED170AB94F6115FB7B85B4BF20CDB16DEFE
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16515.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16515.jpgsave_picture_16515.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:C1A5EAF665BF10026B2ADA023D9E42A785B35C60
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16516.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16516.jpgsave_picture_16516.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:AE780AED4C12E6509BA33142234BF6A5BF4CD223
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16517.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16517.jpgsave_picture_16517.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:BC26F4360E7ED3E7AF447DA9E6E996747C67EC01
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16518.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16518.jpgsave_picture_16518.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:813494B8CD9ED902A4BDD966158FD2647F1D53FE
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16519.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16519.jpgsave_picture_16519.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:9F1575EE781500A6B0D934316B36432513E2F57C
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16520.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16520.jpgsave_picture_16520.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ Suzi Quatro - If You Knew Suzi… (1978) 2017 Remaster, Chrysalis Records [FLAC|
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16521.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16521.jpgsave_picture_16521.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ magnet:?xt=urn:btih:5E2FDA79CADCCE598F6A8B9D55D3C0A1F9E9A8DB
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16522.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16522.jpgsave_picture_16522.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ Earmake - Cosmic Hero 4 (2025) [FLAC|Lossless|WEB-DL|tracks] <RetroWave, Synthpo
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16523.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16523.jpgsave_picture_16523.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ magnet:?xt=urn:btih:84D3D3E0324258C195573ADCE3144C9086C5A649
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16524.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16524.jpgsave_picture_16524.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ Southbound Snake Charmers - Bonnie vs Clyde (2025) [FLAC 24/48|Lossless|WEB-DL|t
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16525.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16525.jpgsave_picture_16525.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ Early Times & the High Rollers - Fallen Angels (2025) [FLAC 24/48|Lossless|WEB-D
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16526.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16526.jpgsave_picture_16526.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ Duke Ellington - Ellington Uptown / The Liberian Suite / Masterpieces By Ellingt
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16527.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16527.jpgsave_picture_16527.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ magnet:?xt=urn:btih:56146571442DF973359DD15FFB7F893CAA947851
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16528.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16528.jpgsave_picture_16528.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ Wreckless James - Train of hurt (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Bl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16529.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16529.jpgsave_picture_16529.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ magnet:?xt=urn:btih:90E14D45267A4763743705C0255FF4F3790A67B2
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16530.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16530.jpgsave_picture_16530.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Matt Schofield Trio - Many Moons, Vol. 1 (2025) [FLAC 24/48|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16531.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16531.jpgsave_picture_16531.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ The Mat Day Band - The Mat Day Band (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16532.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16532.jpgsave_picture_16532.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Richard Cagle & the Voodoo Choir - Zia Blues (2025) [FLAC 24/44.1|Lossless|WEB-D
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16533.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16533.jpgsave_picture_16533.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Henrik Sundqvist - Thoughts Of Sand (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16534.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16534.jpgsave_picture_16534.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Radio One Experience - Free Spirit (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16535.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16535.jpgsave_picture_16535.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Atrophy - Socialized Hate, Violent By Nature (2022) 2 x CD, Compilation, Remaste
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16536.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16536.jpgsave_picture_16536.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Pepe Bueno & os Estranhos - Confissoes e Outros Blues (2025) [FLAC 24/48|Lossles
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16537.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16537.jpgsave_picture_16537.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Jeff McMillan - Being Bad Feels So Good (2025) [FLAC 24/44.1|Lossless|WEB-DL|tra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16538.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16538.jpgsave_picture_16538.jpg" />
 </div>
 
 

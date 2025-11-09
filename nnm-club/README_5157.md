@@ -6,7 +6,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160823.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160823.jpgsave_picture_160823.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ VA - Restaurant & Bar Best Ambience Music (2023) [MP3|320 Kbps] <Lounge, Chillou
 >>Downtempo, Trip-Hop, Lounge
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160824.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160824.jpgsave_picture_160824.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ VA - Liquicity Autumn (2023) [FLAC|Lossless|WEB-DL|tracks] <Drum & Base>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160825.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160825.jpgsave_picture_160825.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ Shihaisha no Tasogare | Twilight of the Dark Master | Сумерки Повел�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160826.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160826.jpgsave_picture_160826.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Darude - Together (2023) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Trance, Danc
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160827.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160827.jpgsave_picture_160827.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ magnet:?xt=urn:btih:99BECBC5C0F18C7916E5ECE30F264E12AF952308
 >>Старые Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160828.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160828.jpgsave_picture_160828.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ TapinRadio 2.15.96.8 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160829.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160829.jpgsave_picture_160829.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ VA - Kontor Top of the Clubs Vol. 98 (2023) [MP3|~266 Kbps (V0)] <Electronic, Da
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160830.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160830.jpgsave_picture_160830.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ magnet:?xt=urn:btih:B7C9B8E41F2484BA76C1DC3A47749CCDAA8C4724
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160831.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160831.jpgsave_picture_160831.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ HDCleaner 2.060 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160832.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160832.jpgsave_picture_160832.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ magnet:?xt=urn:btih:D49B74C03091AAAE93CAEA54FC8FD6CC321E126B
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160833.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160833.jpgsave_picture_160833.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ VA - Electro Jazz Inspiration And Improvisation (2023) [MP3|320 Kbps] <Jazz, Smo
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160834.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160834.jpgsave_picture_160834.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ David Coverdale - Whitesnake (1977) Japan Edition [FLAC|24/192|image + .cue|Viny
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160835.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160835.jpgsave_picture_160835.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ InShot - Фото и видеоредактор v1.982.1424 Mod by maxi123444 [R
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160836.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160836.jpgsave_picture_160836.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ Living Wallpaper HD & Weather 5.6.0 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160837.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160837.jpgsave_picture_160837.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ magnet:?xt=urn:btih:C4604D0A562C39FC5799B15106B1687F8BA33ADA
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160838.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160838.jpgsave_picture_160838.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ David Coverdale - Snakebite (1978) [WavPack|24/192|image + .cue|Vinyl-Rip] <Blue
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160839.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160839.jpgsave_picture_160839.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ VA - Magical & Mellow, Poetic, Sensual & Relaxing Instrumentals (2023) [MP3|320 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160840.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160840.jpgsave_picture_160840.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ Earthshaker - Back to Nexus (2010) [WavPack|Lossless|image + .cue] <Heavy Metal>
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160841.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160841.jpgsave_picture_160841.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ magnet:?xt=urn:btih:DBE12654780E59245707BA32BE46FB20830B244F
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160842.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160842.jpgsave_picture_160842.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ VA - Autumn Vibes Kolibri Selection (2023) [MP3|320 Kbps] <Downtempo, Chillout, 
 >>Downtempo, Trip-Hop, Lounge
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160843.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160843.jpgsave_picture_160843.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ VA - This Is Lounge Jazz (2023) [FLAC|Lossless|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160844.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160844.jpgsave_picture_160844.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ VA - Solarstone Presents Pure Trance 10 (Mixed By Solarstone) (2023) [MP3|320 Kb
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160845.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160845.jpgsave_picture_160845.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ magnet:?xt=urn:btih:0C6956C98BDB4DF98739D23D760C863D43EC4FCB
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160846.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160846.jpgsave_picture_160846.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ BuhoCleaner for Mac 1.10.1 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160847.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160847.jpgsave_picture_160847.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ RegCool 1.346 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160848.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160848.jpgsave_picture_160848.jpg" />
 </div>
 
 

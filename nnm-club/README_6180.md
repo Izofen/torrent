@@ -6,7 +6,7 @@ Within Temptation - Bleed Out (2023) [MP3|320 Kbps] <Symphonic-Rock, Symphonic-M
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194113.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194113.jpgsave_picture_194113.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:05547A28B07B3CF44F44954832DC0223410E1268
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194114.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194114.jpgsave_picture_194114.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ YouTube ReVanced Extended 18.32.37 (RVP v2.188.1) Mod by YT-Advanced + Micro G [
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194115.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194115.jpgsave_picture_194115.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:FB0095A70757E08DA62FE5B8BE463C188773335A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194116.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194116.jpgsave_picture_194116.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Udemy, Yusuf Katı | Improve English by Movies (2022) WEB-DL [AD] [EN / EN Sub]
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194117.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194117.jpgsave_picture_194117.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:8728BC0533419B8295780D12796924CF1623F6BB
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194118.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194118.jpgsave_picture_194118.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ Truecaller: определитель номера 13.29.6 Mod by youarefinished 
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194119.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194119.jpgsave_picture_194119.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Truecaller BETA: определитель номера 13.30.5 Mod by LITEAPKS [
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194120.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194120.jpgsave_picture_194120.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:E79EF863C29D9864C38154ED66608D1437DA437A
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_194121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_194121.jpgsave_picture_194121.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ Ashampoo WinOptimizer 26.00.13 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194122.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194122.jpgsave_picture_194122.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:A4173D5844FB276D27529E52A42A4C680F95CC9E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194124.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194124.jpgsave_picture_194124.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Caramba Switcher Lab 2023.08.15 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194125.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194125.jpgsave_picture_194125.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:1EDBE700CF4D1BA6B31ED160E625E05091245800
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_194127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_194127.jpgsave_picture_194127.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:35BBE814BE5CFE60A99093AC13BA2F8DC302A85B
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194128.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194128.jpgsave_picture_194128.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ magnet:?xt=urn:btih:195D666213DF02FB3D2F80E9CA73E3B8D2C0939D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194129.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194129.jpgsave_picture_194129.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:247F1D51C763F1F99D75A4D8A209797B14C2EB68
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194130.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194130.jpgsave_picture_194130.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ magnet:?xt=urn:btih:0671860F9A28EE641D2F7BE46A4253428F57EA96
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_194131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_194131.jpgsave_picture_194131.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ magnet:?xt=urn:btih:BFC164C69345CCEFD93C7D121986C1B5E267CA10
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194132.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194132.jpgsave_picture_194132.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:6B1DB1C1590302F3630DA0F68E1396926AF1223E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194133.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194133.jpgsave_picture_194133.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ magnet:?xt=urn:btih:AEEDD8F8E4A1F0AD5AD30535040BB775C45880DC
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_194135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_194135.jpgsave_picture_194135.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Incredi Beachvolleyball / Улётный пляжный волейбол (2008) 
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194136.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194136.jpgsave_picture_194136.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Gregory Walters | Python GUI Programming with PAGE (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194138.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194138.jpgsave_picture_194138.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ magnet:?xt=urn:btih:D1F84DF5354D4A642935390EFCA2A041C4E9DF44
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194139.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194139.jpgsave_picture_194139.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ magnet:?xt=urn:btih:3F3F1B1156F3270B2DBDE70DDC733C2A26D4B115
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194140.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194140.jpgsave_picture_194140.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ magnet:?xt=urn:btih:E0DAC83F432C9BCA822F481B1EE0CFCBB6015017
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194141.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194141.jpgsave_picture_194141.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Optimizer 15.7 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194142.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194142.jpgsave_picture_194142.jpg" />
 </div>
 
 

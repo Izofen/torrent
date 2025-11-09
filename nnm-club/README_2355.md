@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61597.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61597.jpgsave_picture_61597.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ LDPlayer 9.0.68 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61598.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61598.jpgsave_picture_61598.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ VA - Love Symphony (2024) [MP3|320 Kbps] <Pop, Rock, Ballad, Lyric>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61599.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61599.jpgsave_picture_61599.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:2EE5C610B5FD233147D0C73CEA591FFE63D53B9C
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61600.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61600.jpgsave_picture_61600.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ Tantric Sex Background Music Experts - Entrance to Sex (2024) [FLAC|Lossless|WEB
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61601.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61601.jpgsave_picture_61601.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ magnet:?xt=urn:btih:06E83186511F0CAED67BDF861DD3C0E066AAF3DA
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61602.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61602.jpgsave_picture_61602.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ Living Legends 11: The Red Trace / Живые легенды 11: Красный 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61603.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61603.jpgsave_picture_61603.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ XviD4PSP 8.1.70 Pro (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61604.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61604.jpgsave_picture_61604.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ VA - Russian Indie (2024) [MP3|320 Kbps] <Rock, Alternative Rock, Indie Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61605.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61605.jpgsave_picture_61605.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ Adobe Bridge 2024 14.0.3.200 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61606.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61606.jpgsave_picture_61606.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ Google Chrome 123.0.6312.86 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61607.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61607.jpgsave_picture_61607.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ Wins for Mac 1.6.6 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61608.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61608.jpgsave_picture_61608.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ magnet:?xt=urn:btih:67D19A951EC7AE6CF6A93A097C2BE2F65E3FE130
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61609.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61609.jpgsave_picture_61609.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Between Horizons (2024) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61610.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61610.jpgsave_picture_61610.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ magnet:?xt=urn:btih:60770B373DD42F21A395FB8FFAADB42B349FC0B8
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61611.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61611.jpgsave_picture_61611.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Boom 3D 2.1.1 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61612.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61612.jpgsave_picture_61612.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ magnet:?xt=urn:btih:170D4213E2D910EA231A1D191FE36141009A1F97
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61613.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61613.jpgsave_picture_61613.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ magnet:?xt=urn:btih:170D4213E2D910EA231A1D191FE36141009A1F97
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61614.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61614.jpgsave_picture_61614.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ magnet:?xt=urn:btih:13FEF7A088487ADAC5AEA74FFE4FF049E57E2263
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61615.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61615.jpgsave_picture_61615.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ magnet:?xt=urn:btih:A306B4D626D54A63C91EBFEE2F0ACB45D647DD81
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61616.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61616.jpgsave_picture_61616.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ Adobe Illustrator 2024 28.4.0.82 + Plug-ins (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61617.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61617.jpgsave_picture_61617.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ magnet:?xt=urn:btih:689A83ABF79D1B63FA64A1BADF799D6FE63077F1
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61618.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61618.jpgsave_picture_61618.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ Min-Yih Hsu | LLVM Techniques, Tips, and Best Practices Clang and Middle-End Lib
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61619.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61619.jpgsave_picture_61619.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ magnet:?xt=urn:btih:B1E78513FE93BF7459A1DE58CD0B17052C5633AF
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61620.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61620.jpgsave_picture_61620.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Adobe Animate 2024 24.0.1.329 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61621.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61621.jpgsave_picture_61621.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ magnet:?xt=urn:btih:3B1F09A87FA08F971148EC2BD3B7E1951E0211DA
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61622.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61622.jpgsave_picture_61622.jpg" />
 </div>
 
 

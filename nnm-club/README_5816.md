@@ -6,7 +6,7 @@
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181851.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181851.jpgsave_picture_181851.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:523CFC5761EBE91E309D6680C7A3F465604FBB8C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181853.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181853.jpgsave_picture_181853.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Ruthie Foster - Healing Time (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues, R&B, S
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181854.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181854.jpgsave_picture_181854.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:45FD970AC7E4902ED5BDB5FE5BB3DD44CA1D054D
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181859.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181859.jpgsave_picture_181859.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:1AB846A5A4FC78BB23D3BA52C46F6C5A90063EF3
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181863.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181863.jpgsave_picture_181863.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:FC4B973DDAD400537F21BCD5A7FADD771B6D8262
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181864.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181864.jpgsave_picture_181864.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ Erich Lindenthaler - 4u Some Blues Music (2022) [FLAC|Lossless|WEB-DL|tracks] <B
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181867.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181867.jpgsave_picture_181867.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:9AA3C2C6058177320C15171A41AD4E9FAE1CCEFE
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_181869.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_181869.jpgsave_picture_181869.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ magnet:?xt=urn:btih:EC60CE7FD82CBAC46E2619DBD24A77DF08BB1812
 >>История
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181871.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181871.jpgsave_picture_181871.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ Berlin - Count Three & Pray (1986) [OGG Vorbis|480 Kbps] <Electronic, Rock, Soft
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181873.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181873.jpgsave_picture_181873.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ magnet:?xt=urn:btih:24A89E52E127756C910F4F2C572AA7DD8A2E2C65
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_181875.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_181875.jpgsave_picture_181875.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ magnet:?xt=urn:btih:6E6172398D48F30B70007297D1F755248FB26441
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181877.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181877.jpgsave_picture_181877.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ magnet:?xt=urn:btih:AC4582952B4229A306F03D43688118F0DD6322FA
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181878.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181878.jpgsave_picture_181878.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ magnet:?xt=urn:btih:EB4E4991D0B45FF6B078942AAC38A6EA5F01DA51
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181880.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181880.jpgsave_picture_181880.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ magnet:?xt=urn:btih:0C711923636B992CA09CBD654E8C84AEED8C7327
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181881.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181881.jpgsave_picture_181881.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ magnet:?xt=urn:btih:3CED3CC15C21CFAE16ADE8BBE56222467303CB09
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181883.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181883.jpgsave_picture_181883.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Firewind - Firewind (2020) Japanese Edition [FLAC|Lossless|image + .cue] <Power 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181884.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181884.jpgsave_picture_181884.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ BIT.TRIP RERUNNER (2023) [Multi] (20230927) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181886.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181886.jpgsave_picture_181886.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Katie Franke - Third Space (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181888.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181888.jpgsave_picture_181888.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ magnet:?xt=urn:btih:68737F28F32A69ABC487C948BF333D2872415199
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181892.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181892.jpgsave_picture_181892.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ magnet:?xt=urn:btih:D326962F0BB30379BFA97F3848D1B640CEB19B70
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181893.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181893.jpgsave_picture_181893.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Magnus Karlsson's Free Fall - We Are The Night (2020) Japanese Edition [FLAC|Los
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181894.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181894.jpgsave_picture_181894.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ magnet:?xt=urn:btih:AF5D9F1D899FC2E0913BD75176B8F9A2FB1D334C
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181896.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181896.jpgsave_picture_181896.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ Kozmik Landing - Wanderer (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181901.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181901.jpgsave_picture_181901.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ MobaXterm 23.3 build 5142 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181902.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181902.jpgsave_picture_181902.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ Tor Browser Bundle 12.5.6 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181904.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181904.jpgsave_picture_181904.jpg" />
 </div>
 
 

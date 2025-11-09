@@ -6,7 +6,7 @@ Mac FoneLab iOS Unlocker 1.0.38 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211172.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211172.jpgsave_picture_211172.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Exif Pilot 6.19.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211175.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211175.jpgsave_picture_211175.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ EF Commander 2023.06 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211178.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211178.jpgsave_picture_211178.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ IceCream Ebook Reader Pro 6.32 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211181.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211181.jpgsave_picture_211181.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ VA - Record Super Chart 17.06.2023 [MP3|320 Kbps] <Pop, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211183.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211183.jpgsave_picture_211183.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:D4943FCD819C542AA61BC94CB266C850A22E1E5E
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211185.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211185.jpgsave_picture_211185.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ PicPick Free+Pro 7.2.0 + portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211187.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211187.jpgsave_picture_211187.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ VA - Детская площадка (2008) 5CD [FLAC|Lossless|image + .cue] <Д
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211189.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211189.jpgsave_picture_211189.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:CBB801DED8F5AC1F858339CA5E1DA26DCBA974C3
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211190.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211190.jpgsave_picture_211190.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Unsolved Case 2: Murderous Script / Нераскрытое дело 2: Сцен�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211192.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211192.jpgsave_picture_211192.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Pet Shop Boys - SMASH – The Singles 1985 – 2020 (2023) 3CD, 2023, Remaster, 
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211195.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211195.jpgsave_picture_211195.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:D26022E45278D6927CCF746A0F4EA2695A113CEF
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211197.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211197.jpgsave_picture_211197.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Joplin 2.10.19 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211199.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211199.jpgsave_picture_211199.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ magnet:?xt=urn:btih:DC382110501E3015DC4BE5BBE4C677904881C22B
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211200.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211200.jpgsave_picture_211200.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ magnet:?xt=urn:btih:ED48A46AF84287589E129DB9371754933055E4B6
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211202.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211202.jpgsave_picture_211202.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ magnet:?xt=urn:btih:77B9CAEDF41E0152594DDE985519967AC94B4688
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211203.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211203.jpgsave_picture_211203.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ VA - On The Radio - 00s (2023) [MP3|320 Kbps] <Synthpop, R&B, Rhythm & Blues, Ro
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211207.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211207.jpgsave_picture_211207.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ magnet:?xt=urn:btih:5BC076C8A5ADEECBCAD1C33BF867F014CA9E0330
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211209.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211209.jpgsave_picture_211209.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ magnet:?xt=urn:btih:162CA9AF365E98282178B1EE8BD6B33E5EE4FEF9
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211210.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211210.jpgsave_picture_211210.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Music Collection 3.5.9.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211213.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211213.jpgsave_picture_211213.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ KStars 3.6.5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211214.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211214.jpgsave_picture_211214.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ BitComet 2.01 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211216.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211216.jpgsave_picture_211216.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ Pineapple Pictures 0.7.0 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211219.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211219.jpgsave_picture_211219.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ Texas - The Very Best Of 1989 – 2023 (2023) [FLAC|Lossless|WEB-DL|tracks] <Alt
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211221.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211221.jpgsave_picture_211221.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ magnet:?xt=urn:btih:7DE6D1B7B25C8D54E9502F9FEBBBFFCEEED3FFEB
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211223.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211223.jpgsave_picture_211223.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ Freeplane 1.11.4 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211224.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211224.jpgsave_picture_211224.jpg" />
 </div>
 
 

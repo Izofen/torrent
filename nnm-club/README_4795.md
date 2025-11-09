@@ -6,7 +6,7 @@
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150055.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150055.jpgsave_picture_150055.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:BDA6159542EF17BEAA51B37509EAE89D35DEF08C
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150056.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150056.jpgsave_picture_150056.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:21E089DFC78FCA729A8E23017E060D3696CC79F2
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150057.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150057.jpgsave_picture_150057.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ King 810 - La Petite Mort Or A Conversation With God (2016) [MP3|320 Kbps] <Nu-M
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150058.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150058.jpgsave_picture_150058.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:1D23C0C5A8A2D60D72D255D43F7D38A45E1D029C
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150059.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150059.jpgsave_picture_150059.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:1D9E740EA088CB492ADAF871DB25062891086632
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150060.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150060.jpgsave_picture_150060.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ DJ Kevlar - You Gots T'Challa (The Best of 2018 Mix) (2018) Mixtape [FLAC|Lossle
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150062.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150062.jpgsave_picture_150062.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ David Arkenstone - Ambient World (2011) 2CD [FLAC|Lossless]<New Age, Ambient>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150063.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150063.jpgsave_picture_150063.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:81B6C19357E0AF89DB23037D13D23F8844DBEFC4
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150064.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150064.jpgsave_picture_150064.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ magnet:?xt=urn:btih:C5E6300A3470A6A29C3AF67FEED4DFE9F783DE8E
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150065.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150065.jpgsave_picture_150065.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ magnet:?xt=urn:btih:BA1D5562487059AD2A4A17B30A53A6CDA5F0299C
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150067.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150067.jpgsave_picture_150067.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ Led Zeppelin - Лестница на небеса (1988) [FLAC 2.0 192/24|traсk
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150068.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150068.jpgsave_picture_150068.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ magnet:?xt=urn:btih:2635FBB11C59E8582BA1C4589DF339FA580C5069
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150069.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150069.jpgsave_picture_150069.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ magnet:?xt=urn:btih:A6D0A10FCAB87CD0695CEC22F314F0E662462718
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150071.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150071.jpgsave_picture_150071.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ magnet:?xt=urn:btih:80A9D6552F3E23B070DD41872B144A56D8C44CE9
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150072.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150072.jpgsave_picture_150072.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ Microsoft Windows 11 [10.0.22000.376], Version 21H2 (Updated December 2021) - О
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150073.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150073.jpgsave_picture_150073.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ magnet:?xt=urn:btih:853408AFA2702B12F2DB2318F06CB4B735E0847C
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150074.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150074.jpgsave_picture_150074.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ magnet:?xt=urn:btih:48693FFA2CF14DA2859478EC4C7035A3F59AB49E
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150075.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150075.jpgsave_picture_150075.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ magnet:?xt=urn:btih:EA3138D6AFBE88D78BE9453DF60F1DBDC65F8B6E
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150076.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150076.jpgsave_picture_150076.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ magnet:?xt=urn:btih:252F68E3CE7427B0FDF6806CC8E1C2FDD6557C19
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150077.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150077.jpgsave_picture_150077.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ V.A. - Electro Swing Elite Compilation (2016) [FLAC|Lossless|WEB-DL|tracks] <Ele
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150079.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150079.jpgsave_picture_150079.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ AusLogics BoostSpeed 5.5.0.0 [Rus/Eng] RePack by D!akov
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150080.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150080.jpgsave_picture_150080.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ iFlicks 2 v2.4.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150081.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150081.jpgsave_picture_150081.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Windows 7/10/11 Pro х86-x64 by systemp 21.12.15 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150083.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150083.jpgsave_picture_150083.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Memory Clean 2 1.8 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150084.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150084.jpgsave_picture_150084.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ Luminar Neo 1.16.0.12503 Repack (& Portable) by elchupacabra [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150085.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150085.jpgsave_picture_150085.jpg" />
 </div>
 
 

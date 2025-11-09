@@ -6,7 +6,7 @@ BlackSun - Karma Somnium (2025) [FLAC|Lossless|WEB-DL|tracks] <Melodic Heavy, Po
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71782.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71782.jpgsave_picture_71782.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:F1FB3C83E3C67531554DE609BBBCCD8455C861F5
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71783.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71783.jpgsave_picture_71783.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ magnet:?xt=urn:btih:7B8CF10E7DF327BDFDE06530C5935BF221E2A85A
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71784.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71784.jpgsave_picture_71784.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ VA - Find Your Harmony 2024 Part III - METROPOLIS (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71785.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71785.jpgsave_picture_71785.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Sacred - Fire to Ice (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Power Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71786.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71786.jpgsave_picture_71786.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Garden Of Stone - The Grave Mistake (2025) [MP3|320 Kbps] <Melodic Death, Heavy 
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71787.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71787.jpgsave_picture_71787.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ magnet:?xt=urn:btih:50CB724AAFB5C916694AF8DD6650CE0F1D14B610
 >>Баскетбол, Волейбол, Гандбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71788.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71788.jpgsave_picture_71788.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Beriedir - Liminal Spaces (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progress
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71789.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71789.jpgsave_picture_71789.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ magnet:?xt=urn:btih:B7C07A5A953A6917B57D0B47CD6FB9B7594B49E3
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71790.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71790.jpgsave_picture_71790.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Asphyx - Studio Albums (10 releases) (1991-2021) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71791.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71791.jpgsave_picture_71791.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ magnet:?xt=urn:btih:D258F60699F0E93AFC8E2E0FA36E43C2B2B2238E
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71792.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71792.jpgsave_picture_71792.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ magnet:?xt=urn:btih:C6261C12D345031B1E22F4827C3C6AAC4E3DDB51
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71793.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71793.jpgsave_picture_71793.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Imperial Measures - The Promise of Morning (2025) [FLAC|Lossless|WEB-DL|tracks] 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71794.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71794.jpgsave_picture_71794.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ magnet:?xt=urn:btih:5746BD5CB1D12EC1DC135454851F3391E7FCA3F0
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71795.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71795.jpgsave_picture_71795.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Guy Verlinde & Tom Eylenbosch - Promised Land Blues (2025) [FLAC 24/96|Lossless|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71796.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71796.jpgsave_picture_71796.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ magnet:?xt=urn:btih:06DF7F31E36478F196DA04A01E6093805372D78C
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71797.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71797.jpgsave_picture_71797.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Too Close for Comfort - I'm Not Alone Anymore (2024) [FLAC 24/44.1|Lossless|WEB-
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71798.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71798.jpgsave_picture_71798.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Tobin Mueller - Fragments (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71799.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71799.jpgsave_picture_71799.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Too Close for Comfort - I'm Not Alone Anymore (2024) [FLAC|Lossless|WEB-DL|track
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71800.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71800.jpgsave_picture_71800.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Enrico Pieranunzi & Marc Johnson - Yellow & Blue Suites (1990) 2008, Challenge J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71801.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71801.jpgsave_picture_71801.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ magnet:?xt=urn:btih:6F3275B52B820C7B00767A44D57C2CFE7837B813
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71802.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71802.jpgsave_picture_71802.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ magnet:?xt=urn:btih:51BCD78CDB150E45971E00EA12BEB8A3BEF27D43
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71803.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71803.jpgsave_picture_71803.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Jamaican Jazz Orchestra - All For A Reason (2025) [FLAC 24/96|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71804.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71804.jpgsave_picture_71804.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ magnet:?xt=urn:btih:6ABEB48FA6D39921B7D180874623CC5F6DF5E361
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71805.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71805.jpgsave_picture_71805.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ John Skelley - Dusk 'Til Dawn (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71806.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71806.jpgsave_picture_71806.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ magnet:?xt=urn:btih:5708763E06A1A105D4D50D458953AA70364F1FC3
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71807.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71807.jpgsave_picture_71807.jpg" />
 </div>
 
 

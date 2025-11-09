@@ -6,7 +6,7 @@ Ring van Mobius - Commissioned Works Pt II - Six Drops Of Poison (2023) [FLAC|Lo
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232014.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232014.jpgsave_picture_232014.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ MelloW - Полураспад (2023) [MP3|320 Kbps] <Nu-Metalcore>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232015.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232015.jpgsave_picture_232015.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ TuneIn Radio 31.9.2 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232016.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232016.jpgsave_picture_232016.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ magnet:?xt=urn:btih:2D8AED25CA65975BBC59E20BB93774B539E1811C
 >>Религии и культы (Док/TV)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232017.jpgsave_picture_232017.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Todd La Torre - Rejoice in the Suffering (2021) [FLAC|Lossless|image + .cue] <He
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232020.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232020.jpgsave_picture_232020.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ VA - Музыка для машины Vol.21 (2023) [MP3|320 Kbps] <Pop, Dance, 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232021.jpgsave_picture_232021.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ magnet:?xt=urn:btih:E4A8798138D3727D6A064F206FDEDD30FA97FEC5
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232023.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232023.jpgsave_picture_232023.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Noed - No One Escapes Death (2023) [MP3|320 Kbps] <Strong Metal>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232025.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232025.jpgsave_picture_232025.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ The Cedar Walton / Hank Mobley Quintet - Breakthrough! (1972) 1999, 32 Jazz [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232026.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232026.jpgsave_picture_232026.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ magnet:?xt=urn:btih:AD131085F770ECAEED246B3EEDF1290F6AC6B755
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232029.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232029.jpgsave_picture_232029.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Ulfud - Of Existential Distortion (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232031.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232031.jpgsave_picture_232031.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ magnet:?xt=urn:btih:27702179EAA985FFECBFBAD88D85E8CC1A0768AC
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232032.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232032.jpgsave_picture_232032.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ magnet:?xt=urn:btih:296BDD1DDED29C2154700AE0F74C1CC150D7A983
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232034.jpgsave_picture_232034.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ magnet:?xt=urn:btih:48AC6B8A085D240D4EDA4BB3D1C2DB4689BB0FB0
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232035.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232035.jpgsave_picture_232035.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ magnet:?xt=urn:btih:13B7B2D3F640BB40481B1453811A3687C3458A4E
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232037.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232037.jpgsave_picture_232037.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ Unborn Prophecy - Waking Our Ancient Memories (2023) [FLAC|Lossless|WEB-DL|track
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232038.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232038.jpgsave_picture_232038.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Topaz Photo AI 1.3.5 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232040.jpgsave_picture_232040.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ magnet:?xt=urn:btih:47998380D851D4D764C6772A9EA16CB94F0864F4
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232041.jpgsave_picture_232041.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Unchosen Ones - Sorrow Turns to Dust (2023) [FLAC|Lossless|WEB-DL|tracks] <Melod
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232043.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232043.jpgsave_picture_232043.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ Sorcier des Glaces - Sous la lune noire (2023) Compilation [FLAC|Lossless|WEB-DL
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232044.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232044.jpgsave_picture_232044.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ Athentech Perfectly Clear WorkBench for Mac 4.5.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232046.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232046.jpgsave_picture_232046.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ PC HelpSoft Driver Updater 6.4.970 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232047.jpgsave_picture_232047.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:619BE85198AA5B047BFB9E1713692D886B7AB4C8
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232048.jpgsave_picture_232048.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Unborn Prophecy - Waking Our Ancient Memories (2023) [MP3|320 Kbps] <Progressive
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232049.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232049.jpgsave_picture_232049.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Blackscape - Suffocated By The Sun (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232052.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232052.jpgsave_picture_232052.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ Sparks - The Girl Is Crying In Her Latte (2023) [FLAC|Lossless|image + .cue] <Ne
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232053.jpgsave_picture_232053.jpg" />
 </div>
 
 

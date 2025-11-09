@@ -6,7 +6,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140579.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140579.jpgsave_picture_140579.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Hitten - While Passion Lasts (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140580.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140580.jpgsave_picture_140580.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Winter Sports 2011: Go for Gold (2010) [PS3] [EUR] 3.50 [Cobra ODE / E3 ODE PRO 
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140582.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140582.jpgsave_picture_140582.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:E8233ADA9988A7544F270C5E82BCE77FC22C4146
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140583.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140583.jpgsave_picture_140583.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:BA835D144373CE13DEF78DB4BF9B63D4DA203D06
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140585.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140585.jpgsave_picture_140585.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:8368BB5EB3ED3E1B86C4496D9566152F5F179071
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140586.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140586.jpgsave_picture_140586.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ VA - Новогодняя Дискотека. Выпуск 1 (1998) [FLAC 2.0|48
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140587.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140587.jpgsave_picture_140587.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - 20 Winter Trance Tunes 2012 (2012) [MP3|320 кб/с]<Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140588.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140588.jpgsave_picture_140588.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ magnet:?xt=urn:btih:A59D9873E21CA1B8FD66D96137436B043465030D
 >>Титры (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140589.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140589.jpgsave_picture_140589.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ magnet:?xt=urn:btih:D2E22318F4C992CEAF806F9048651D0050E8040E
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140590.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140590.jpgsave_picture_140590.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ Final Strike - Finding Pieces (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Power 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140591.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140591.jpgsave_picture_140591.jpg" />
 </div>
 
 
@@ -291,7 +291,7 @@ magnet:?xt=urn:btih:6375584D82F30A947C3F2662B07BE92F425D583C
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140592.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140592.jpgsave_picture_140592.jpg" />
 </div>
 
 
@@ -315,7 +315,7 @@ magnet:?xt=urn:btih:C1B176971BD805D4EA6E41DF13638B8A924A81FA
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140595.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140595.jpgsave_picture_140595.jpg" />
 </div>
 
 
@@ -340,7 +340,7 @@ magnet:?xt=urn:btih:47F812E3A2FCA21EDF93F3E79FD9202B3065236F
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140596.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140596.jpgsave_picture_140596.jpg" />
 </div>
 
 
@@ -365,7 +365,7 @@ magnet:?xt=urn:btih:B7F8F49D136F1830C694ED0D4BBB1D4C321F8E02
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140597.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140597.jpgsave_picture_140597.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ magnet:?xt=urn:btih:A74903D938628FBA03A7FD56BE97C4823F92DEA3
 >>История
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140598.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140598.jpgsave_picture_140598.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ Opeth - Blackwater Park (2001) Reissue, 2010, Music On Vinyl,  Sony Music Entert
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140599.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140599.jpgsave_picture_140599.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ VA - Новогоднее настроение в СССР (2CD) (1956-1991) о�
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140600.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140600.jpgsave_picture_140600.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Space Wallpapers (16.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140601.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140601.jpgsave_picture_140601.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Grant Warwick | Mastering Lighting Lessons 1-4 (2016) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140602.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140602.jpgsave_picture_140602.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ Greta Van Fleet - Anthem Of The Peaceful Army (2018) [AAC|~340 Kbps] <Rock>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140605.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140605.jpgsave_picture_140605.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ VA - Blackout - Best Of 2016 (Mixed By Black Sun Empire) (2016) [MP3|320 Kbps] <
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140606.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140606.jpgsave_picture_140606.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ magnet:?xt=urn:btih:DF6120AAB738FC9DBD370057D90A035144B55C89
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140607.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140607.jpgsave_picture_140607.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Udemy | Администрирование Azure Active Directory (2019) PCRec [
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140608.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140608.jpgsave_picture_140608.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ magnet:?xt=urn:btih:C21616B9DD169CD2D39CB6E97C6FF5ACB922CA5C
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140609.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140609.jpgsave_picture_140609.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ magnet:?xt=urn:btih:0DF8597FDE882FAC1BA9936ABEB9C98532683B45
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140610.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140610.jpgsave_picture_140610.jpg" />
 </div>
 
 

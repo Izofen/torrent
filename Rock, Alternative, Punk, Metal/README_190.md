@@ -6,7 +6,7 @@
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124668.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124668.jpgsave_picture_124668.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Stray - About Time (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124676.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124676.jpgsave_picture_124676.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Sakis Tolis (Χ Ξ Σ) - The Seven Seals Of The Apocalypse ​-​ (​Revelatio
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124677.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124677.jpgsave_picture_124677.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Bruce Springsteen - Japanese Singles Collection - Greatest Hits (2023) 2xCD, Jap
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124696.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124696.jpgsave_picture_124696.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Sam Higham - Jam Fish (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Progres
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124759.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124759.jpgsave_picture_124759.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ magnet:?xt=urn:btih:091ABD2C3F6585C7D9E604ABBAECDEA3ECE0F06F
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124760.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124760.jpgsave_picture_124760.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Lilly Beth - Бездарность (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop Ro
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124761.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124761.jpgsave_picture_124761.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Demon - Hold On To The Dream (1991) Japanese Edition, Reissue, Remastered, 2020,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124764.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124764.jpgsave_picture_124764.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Evidence One - Tattooed Heart (2004) [APE|Lossless|image + .cue] <Melodic Heavy 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124765.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124765.jpgsave_picture_124765.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Evidence One - The Sky Is the Limit (2007) [APE|Lossless|image + .cue] <Melodic 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124766.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124766.jpgsave_picture_124766.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Evidence One - Criticize the Truth (2002) Re-Release,  2007, AFM Records [APE|Lo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124767.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124767.jpgsave_picture_124767.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Hazzerd - Delirium (2020) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124768.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124768.jpgsave_picture_124768.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Evidence - Spiral (2002) Reissue, 2003, Irond [FLAC|Lossless|image + .cue] <Melo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124769.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124769.jpgsave_picture_124769.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ VA - Rock 2024 (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124770.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124770.jpgsave_picture_124770.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ magnet:?xt=urn:btih:FB0D8E81088F1DF9DE59024AC1E94ACBA05EA871
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124778.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124778.jpgsave_picture_124778.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ magnet:?xt=urn:btih:FB36C8C937B2A33F911A741D25EBBFDAA8758D38
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124782.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124782.jpgsave_picture_124782.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Todd Grubbs - Inside Your Brain (2024) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124783.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124783.jpgsave_picture_124783.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Chase The Bear - Honey (2023) [FLAC|Lossless|WEB-DL|tracks] <Glam Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124787.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124787.jpgsave_picture_124787.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ VA - Полигон Records. Лучшее 2023 [MP3|320 Kbps] <Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124805.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124805.jpgsave_picture_124805.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:E1EBD7719755D8580D0A3D7A96E2484343D37796
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124851.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124851.jpgsave_picture_124851.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ SkyEye - Digital God (2018) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124852.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124852.jpgsave_picture_124852.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:9667DC99491248FAE3FB9BEBA036AB6B4F842351
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124855.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124855.jpgsave_picture_124855.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Head East - Full Circle (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard-Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124857.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124857.jpgsave_picture_124857.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ The Fusion Syndicate - Beautiful Horizon (2023) [FLAC|Lossless|WEB-DL|tracks] <F
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124860.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124860.jpgsave_picture_124860.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ magnet:?xt=urn:btih:7B2B695F04614B64BD86ACABAB09CEECABEAA444
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124864.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124864.jpgsave_picture_124864.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Haunter - Tales of the Seven Seas (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy, P
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124867.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124867.jpgsave_picture_124867.jpg" />
 </div>
 
 

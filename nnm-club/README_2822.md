@@ -6,7 +6,7 @@
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81574.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81574.jpgsave_picture_81574.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:61F9FB5617B7CCBEEAD2055732140005089BE5D3
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81575.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81575.jpgsave_picture_81575.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ magnet:?xt=urn:btih:59ADD7A54E13CCD47F94BD3262024DDEF969A337
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81578.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81578.jpgsave_picture_81578.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:C2F1E7EBF06CF600F4B075E0465379EA243255F5
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81581.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81581.jpgsave_picture_81581.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:0C1F30250229AFCCDFFAAADAFB2B98B5F76FEEE3
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81583.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81583.jpgsave_picture_81583.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ Acoustic Mood Orchestra - Songs from the Heart of Love (2001) [FLAC|Lossless]<Vo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81585.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81585.jpgsave_picture_81585.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Acoustic Mood Orchestra - Songs from the Heart of Love (2001) [FLAC|Lossless]<Vo
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81586.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81586.jpgsave_picture_81586.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ magnet:?xt=urn:btih:F46FE9EE5B0E7D0FE5262B63E777114260B191C0
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81588.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81588.jpgsave_picture_81588.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ magnet:?xt=urn:btih:803457E69B548E4F1C5E9DCF144954BE3FFFC1FE
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81592.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81592.jpgsave_picture_81592.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Install Monitor 1.1.89.0 [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81594.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81594.jpgsave_picture_81594.jpg" />
 </div>
 
 
@@ -265,7 +265,7 @@ Install Monitor – это простая в освоении утилита д�
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81597.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81597.jpgsave_picture_81597.jpg" />
 </div>
 
 
@@ -290,7 +290,7 @@ magnet:?xt=urn:btih:F74A0740B929ABDE5FDAAE099DEEC86054C033C3
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81601.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81601.jpgsave_picture_81601.jpg" />
 </div>
 
 
@@ -314,7 +314,7 @@ magnet:?xt=urn:btih:F74A0740B929ABDE5FDAAE099DEEC86054C033C3
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81602.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81602.jpgsave_picture_81602.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ magnet:?xt=urn:btih:C32717E9F22A6986932A11CC1A11C16BEF02E533
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81604.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81604.jpgsave_picture_81604.jpg" />
 </div>
 
 
@@ -364,7 +364,7 @@ magnet:?xt=urn:btih:C32717E9F22A6986932A11CC1A11C16BEF02E533
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81605.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81605.jpgsave_picture_81605.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ magnet:?xt=urn:btih:C32717E9F22A6986932A11CC1A11C16BEF02E533
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81606.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81606.jpgsave_picture_81606.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ magnet:?xt=urn:btih:C32717E9F22A6986932A11CC1A11C16BEF02E533
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81607.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81607.jpgsave_picture_81607.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ magnet:?xt=urn:btih:C32717E9F22A6986932A11CC1A11C16BEF02E533
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81608.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81608.jpgsave_picture_81608.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ magnet:?xt=urn:btih:021A5DE68478DC95F69F0BD1E49109C576B68BBE
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81610.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81610.jpgsave_picture_81610.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ magnet:?xt=urn:btih:5883199C0BB5579DE97D83ECAB2EDC3EBB1CE601
 >>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81612.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81612.jpgsave_picture_81612.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ VA - Dubstep Metal 2 (2011) [MP3|320 кб/с]<Dubstep\Metal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81613.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81613.jpgsave_picture_81613.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:CF3EC982A1F959FB07FD5572EBA5E298614CBE8E
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81615.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81615.jpgsave_picture_81615.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ magnet:?xt=urn:btih:3459BC86159C00AFCE7C84C025954D04D13CCF89
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81616.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81616.jpgsave_picture_81616.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ magnet:?xt=urn:btih:E66BFA6C0A9F69BE20115BAD420F0126329365DE
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81619.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81619.jpgsave_picture_81619.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ magnet:?xt=urn:btih:F27104997D410F268B1D7AA2B4372025FB244327
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81620.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81620.jpgsave_picture_81620.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ magnet:?xt=urn:btih:F27104997D410F268B1D7AA2B4372025FB244327
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81621.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81621.jpgsave_picture_81621.jpg" />
 </div>
 
 

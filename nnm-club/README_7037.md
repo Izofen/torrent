@@ -6,7 +6,7 @@
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241153.jpgsave_picture_241153.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Skype 8.95.0.408 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241154.jpgsave_picture_241154.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ VA - We Chill del Mar, Vol. 6 (2017) [AAC|~329 Kbps] <Lounge, Chill Out, Downtem
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241155.jpgsave_picture_241155.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ VA - Шансон Лето 2022 [MP3|320 Kbps] <Шансон>
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241156.jpgsave_picture_241156.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ WinX DVD Ripper for Mac 6.5.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241157.jpgsave_picture_241157.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ The Alan Parsons Project - I Robot (1977) (2022) [DSD 128|image+.cue|Vinyl-Rip] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241158.jpgsave_picture_241158.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:540B7805436D59B21B712C6A8EF19504A106173B
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241159.jpgsave_picture_241159.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ Daddy Cruel - Let's They Rot (2022) [FLAC|Lossless|WEB-DL|tracks] <Death 'n' Rol
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241160.jpgsave_picture_241160.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ VA - Best of Deep-House. Volume 3. The Strong Rhythm [Compiled by Firstlast] (20
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241162.jpgsave_picture_241162.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ Discovery: Сибирь. ДНК Ледникового периода / Lost Bea
 >>История
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241163.jpgsave_picture_241163.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ FreeTube 0.17.1 Beta + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241164.jpgsave_picture_241164.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ magnet:?xt=urn:btih:40CAD3D997EE1EA0053EB2D4D2C996E1E005F2BA
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241165.jpgsave_picture_241165.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ ToothFairy 2.7.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241166.jpgsave_picture_241166.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ magnet:?xt=urn:btih:32E436CB886AC8A3430C048F2A6601F25B1A4314
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241167.jpgsave_picture_241167.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ Any Media Info 2.1.2 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241168.jpgsave_picture_241168.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ McCoy Tyner - Best Of Big Band (1991, 1993) 2002, Dreyfus Jazz [FLAC|Lossless|im
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241169.jpgsave_picture_241169.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ magnet:?xt=urn:btih:70370642359DB2FB5CB6F60A59DE49AB85EBC2C9
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241171.jpgsave_picture_241171.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ magnet:?xt=urn:btih:512CD9ACD8AF064C423CE27434DE94CA9A6ABEBE
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241172.jpgsave_picture_241172.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ PDFpen Pro 12 v12.2.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241173.jpgsave_picture_241173.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Fort Firewall 3.8.6 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241174.jpgsave_picture_241174.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ PrivaZer 4.0.68 Free + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241175.jpgsave_picture_241175.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ VA - Cigar Lounge Beats, Vol. 1 (2016) [AAC|~304 Kbps] <Lounge, Chill Out, Downt
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241176.jpgsave_picture_241176.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ magnet:?xt=urn:btih:73681B1E252ECA8A4538485254FD9CD2D09C7098
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241177.jpgsave_picture_241177.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ The Jelly Jam - Profit (2016) [FLAC|Lossless|tracks + .cue] <Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241179.jpgsave_picture_241179.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ NeoFinder Business 8.1.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241180.jpgsave_picture_241180.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ Sumatra PDF 3.5.15480 (x64) Pre-release + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241181.jpgsave_picture_241181.jpg" />
 </div>
 
 

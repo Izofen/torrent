@@ -6,7 +6,7 @@ Colorfy PLUS - Coloring Book v3.19 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237508.jpgsave_picture_237508.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Magnifier Plus with Flashlight 4.5.3 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237744.jpgsave_picture_237744.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:878537276714A4C9D772A42D8D3A6E1DBDC0EE2B
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238528.jpgsave_picture_238528.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ AntiBAG Тахограф 2.0.108 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238863.jpgsave_picture_238863.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Learn English - 6000 Essential Words 4.1.1 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238896.jpgsave_picture_238896.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ CamSam PLUS v3.7.7 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239625.jpgsave_picture_239625.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ ReVanced YouTube Music 5.17.51 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240089.jpgsave_picture_240089.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ FullReader - читалка всех форматов книг v4.3.4 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241262.jpgsave_picture_241262.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:CE5774CFFD74FBDE088943EAB117E23675716F10
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241609.jpgsave_picture_241609.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ GPS Waypoints Navigator v9.24 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241889.jpgsave_picture_241889.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:3FAC1096D93002AC4A01EE017B1866DF381F0CB3
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242224.jpgsave_picture_242224.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ Camera Pro 3.4.0 Mod by vitaxa978 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242560.jpgsave_picture_242560.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Joy Walls - 4k Wallpapers App v1.8 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243216.jpgsave_picture_243216.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Aurora Store 4.1.1 Mod by Kirlif' [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243350.jpgsave_picture_243350.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ KinoHome 1.7.0 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243903.jpgsave_picture_243903.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Xmind: Mind Map & Brainstorm 1.9.7 Mod by youarefinished [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244143.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244143.jpgsave_picture_244143.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ magnet:?xt=urn:btih:ED2B10C298F77C3A8EDFA6EEEF7F5EA9292A4D04
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244447.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244447.jpgsave_picture_244447.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Wall Factory v2.1.1 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244666.jpgsave_picture_244666.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Strava: бег и велоспорт 264.11 Lite-Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245298.jpgsave_picture_245298.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Colorize Images v4.0.27 Mod by Timozhai [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245815.jpgsave_picture_245815.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ Hawk Map Pro v2.2.1 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246909.jpgsave_picture_246909.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ GPS АнтиРадар v37.0  [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246953.jpgsave_picture_246953.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ magnet:?xt=urn:btih:C4CF45E744D24A0F0406455EBE4BBA17253EF56A
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246967.jpgsave_picture_246967.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Kinoplay - просмотр фильмов онлайн 0.1.6 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247335.jpgsave_picture_247335.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ magnet:?xt=urn:btih:4763AD780FDD7C04157DD3EEB52FB282BCCAECC6
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247381.jpgsave_picture_247381.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ magnet:?xt=urn:btih:32DC2DE2795BED842E384B7B7E92027277514DF8
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247438.jpgsave_picture_247438.jpg" />
 </div>
 
 

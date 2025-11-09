@@ -6,7 +6,7 @@ Truecaller: AI Call Blocker / Oпределитель номера v14.32.8 Gold
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35559.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35559.jpgsave_picture_35559.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:A9A6C99FBF04D3AF92BE632C9F96F8611C4268FC
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35560.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35560.jpgsave_picture_35560.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:C59CB9A9943CB93854F96FDCDC98B12E925175B8
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35561.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35561.jpgsave_picture_35561.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:FF5B29E0994429D83C88D29F432E28CFE866294A
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35562.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35562.jpgsave_picture_35562.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:F3CD2ECF7A92362EF9687C46E8705D6AB0E8B906
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35563.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35563.jpgsave_picture_35563.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Necroking (2024) [Ru/Multi] (1.5.2rc) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35564.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35564.jpgsave_picture_35564.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ PrivaZer Pro 4.0.96 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35565.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35565.jpgsave_picture_35565.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Macrorit Partition Expert 8.4.0 Technician Edition RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35566.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35566.jpgsave_picture_35566.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:AE7032C2821D210C59187AD1CC7DC19DCD98D850
 >>Ноты и обучение музыке
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35567.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35567.jpgsave_picture_35567.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Brian Johnson - Brian Johnson & Geordie & AC/DC (2007) [FLAC|Lossless]<Hard Rock
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35568.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35568.jpgsave_picture_35568.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:7EAEF15921D6FC921579631ADD39F98B562B2381
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35569.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35569.jpgsave_picture_35569.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:74B4D14B64CFDC20728804EDCF3BAF12BFF574B1
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35570.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35570.jpgsave_picture_35570.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:4893E6008B241560AC52A9141DE5991272C4E26B
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35571.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35571.jpgsave_picture_35571.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ magnet:?xt=urn:btih:659EE9E641BAFBFED15BBE7110090A2EC38FFE93
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35572.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35572.jpgsave_picture_35572.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ The Beatles - Hot As Sun (2010) Bootleg [FLAC|Lossless]<Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35573.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35573.jpgsave_picture_35573.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:F4EF75D8A4B21EBDF77E75697552E8938D285443
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35574.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35574.jpgsave_picture_35574.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Cinderella - Live At The Mohegan Sun (2010) [FLAC|Lossless]<Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35575.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35575.jpgsave_picture_35575.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Welcome to ParadiZe (2024) [Ru/Multi] (Build Oct 11 2024/dlc) Repack Let'sРlay 
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35576.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35576.jpgsave_picture_35576.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ magnet:?xt=urn:btih:AB38E86AE3D1FA7D0A764FB4297CCBC93438717D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35577.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35577.jpgsave_picture_35577.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ MXGP 24: The Official Game (2024) [Ru/Multi] (1.0/dlc) Repack FitGirl [Fox Holes
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35578.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35578.jpgsave_picture_35578.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ magnet:?xt=urn:btih:9A19E6AB2982B8542FF3935AE161E416A0513450
 >>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35579.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35579.jpgsave_picture_35579.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:E9A996419F71E750EBD31BA5E98D43AAE1BBFE4D
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35580.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35580.jpgsave_picture_35580.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ magnet:?xt=urn:btih:AB081B3BB8B137F4DB8B4CD13DEC96876B201230
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35581.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35581.jpgsave_picture_35581.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Electric Light Orchestra - Definitive Collection (1992) [FLAC|Lossless]<Art-Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35582.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35582.jpgsave_picture_35582.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ magnet:?xt=urn:btih:91553E1F32F07ED43B89AAB52269CA23E0D9D121
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35583.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35583.jpgsave_picture_35583.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ MediaMonkey Gold 5.0.5.2695 + Portable [Multi/Ru]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35584.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35584.jpgsave_picture_35584.jpg" />
 </div>
 
 

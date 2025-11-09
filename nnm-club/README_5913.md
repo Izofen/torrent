@@ -6,7 +6,7 @@ Nitrogenium - Игра Теней (2023) [FLAC|Lossless|WEB-DL|tracks] <Gothic R
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186276.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186276.jpgsave_picture_186276.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Joel Hoekstra's 13 - Crash Of Life (2023) Japanese Edition [FLAC|Lossless|image 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186277.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186277.jpgsave_picture_186277.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:11C8821E6716164E64C3F95E9CC1FB4FB4C617D9
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186278.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186278.jpgsave_picture_186278.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Frozen Tears - Brazen Whisper (2021) [FLAC|Lossless|image + .cue] <Melodic Hard 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186279.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186279.jpgsave_picture_186279.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Flat Worms - Witness Marks (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Roc
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186280.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186280.jpgsave_picture_186280.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ I Spy - While The War Began (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186281.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186281.jpgsave_picture_186281.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Emotional Fire - Will You Be There (2023) EP [FLAC|Lossless|image + .cue] <Melod
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186282.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186282.jpgsave_picture_186282.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Big Mouthers - New Now (2023) [FLAC|Lossless|image + .cue] <Melodic Hard Rock, A
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186283.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186283.jpgsave_picture_186283.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Sarayasign - Throne Of Gold (2022) Japanese Edition [FLAC|Lossless|image + .cue]
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186284.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186284.jpgsave_picture_186284.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Departure - Departure (1998) Japanese Edition [FLAC|Lossless|image + .cue] <Melo
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186285.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186285.jpgsave_picture_186285.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:BA67B15856C6AEBCE77DF43473423F9F03EF5D0D
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186286.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186286.jpgsave_picture_186286.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ West Alley - A Night To Remember (2023) [FLAC|Lossless|image + .cue] <Melodic Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186287.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186287.jpgsave_picture_186287.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Phil Martin's Drive - Days Like These (2021) EP [FLAC|Lossless|image + .cue] <Me
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186288.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186288.jpgsave_picture_186288.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Aneurisma - Carodatavermibus (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186289.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186289.jpgsave_picture_186289.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Yawning Man - Pot Head (2016) Reissue, Remastered, 2023, Ripple Music [FLAC|Loss
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186290.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186290.jpgsave_picture_186290.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ The Moth - Frost (2023) [FLAC|Lossless|WEB-DL|tracks] <Sludge Metal, Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186291.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186291.jpgsave_picture_186291.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Chaver - Of Gloom (2023) [FLAC|Lossless|WEB-DL|tracks] <Hardcore, Metalcore, Mel
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186292.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186292.jpgsave_picture_186292.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Aeons Of Ashes - The Wasteland Chronicles (2023) [FLAC|Lossless|WEB-DL|tracks] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186293.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186293.jpgsave_picture_186293.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Rebaelliun - Under The Sign Of Rebellion (2023) [FLAC|Lossless|WEB-DL|tracks] <D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186294.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186294.jpgsave_picture_186294.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Roy Eldridge & Coleman Hawkins - Just You, Just Me (1959) 1990, Stash Records [F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186296.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186296.jpgsave_picture_186296.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ magnet:?xt=urn:btih:566BE6F51C26325AE787C3EE56EE95DD0CF36691
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186299.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186299.jpgsave_picture_186299.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ magnet:?xt=urn:btih:E2EE00DB6C6426E3EA173C78AC977FDB8ED936BF
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186303.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186303.jpgsave_picture_186303.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ magnet:?xt=urn:btih:B0A4022F4C073034EB4D56DCB1DB0DA9DB4E91EB
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186305.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186305.jpgsave_picture_186305.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Lv1 Maou to One Room Yuusha | Level 1 Demon Lord and One Room Hero | Влады�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186306.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186306.jpgsave_picture_186306.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ magnet:?xt=urn:btih:E0F929D7B14F8B03A9EFDCBC326B12BF8A3FEB21
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186307.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186307.jpgsave_picture_186307.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ KMSAuto++ Portable 1.8.3 by Ratiborus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186308.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186308.jpgsave_picture_186308.jpg" />
 </div>
 
 

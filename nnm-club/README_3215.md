@@ -6,7 +6,7 @@ Midnight Force - Severan (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103941.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103941.jpgsave_picture_103941.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:D167C6698B9DBEB6CEF8C7ED1DBD3F79394A1A7B
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103942.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103942.jpgsave_picture_103942.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:4F31F0480A90B885BF79A39E298A132E51F757F9
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103943.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103943.jpgsave_picture_103943.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ Jimi Jamison - Jimmy Wayne Jamison (2024) [FLAC|Lossless|image + .cue] <Melodic 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103944.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103944.jpgsave_picture_103944.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ magnet:?xt=urn:btih:ECF13A8C35EB2AA8F5577D12D648F80DB1307BB1
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103945.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103945.jpgsave_picture_103945.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ magnet:?xt=urn:btih:27410205BC67AFA8F14D5A5D0068CA9F6AA056A6
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103946.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103946.jpgsave_picture_103946.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ MotoGP. Этап 15 из 20. Гран-при Индонезии. Гонка (29.
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103947.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103947.jpgsave_picture_103947.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ Kreator - Hordes Of Chaos (2009) Reissue, Remastered, 2024, Nuclear Blast [FLAC 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103948.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103948.jpgsave_picture_103948.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ magnet:?xt=urn:btih:DE89A919C6BEBFCA300CB89E9566A96DFE41C768
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103949.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103949.jpgsave_picture_103949.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ magnet:?xt=urn:btih:76429CB7CD54D38114CE59C6789F78F38E5B1FAA
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103950.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103950.jpgsave_picture_103950.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ Serious Black - Studio Albums (7 releases) (2015-2024) hand made [restored, decl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103951.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103951.jpgsave_picture_103951.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ magnet:?xt=urn:btih:EF8A42B3E4B7A4262DCEF53C4D3A491DDEA4AEEF
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103952.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103952.jpgsave_picture_103952.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ Mike Tramp - Songs Of White Lion Vol. II (2024) Japanese Edition [FLAC|Lossless|
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103953.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103953.jpgsave_picture_103953.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ magnet:?xt=urn:btih:F8BFCD01FB984C8D3C13AED273B41DF4D58ABE47
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103954.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103954.jpgsave_picture_103954.jpg" />
 </div>
 
 
@@ -365,7 +365,7 @@ magnet:?xt=urn:btih:1226F17E492DF31233B6A1D922770138C9731414
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103955.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103955.jpgsave_picture_103955.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ magnet:?xt=urn:btih:B6CB5ABD0069FF1CACED60DAE76658E06BD940D0
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103956.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103956.jpgsave_picture_103956.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ The Gapp Project - 'Atmos Sphere' (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Ja
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103957.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103957.jpgsave_picture_103957.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ magnet:?xt=urn:btih:220520DEA1A799D62B183785F74645CF0000FB96
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103958.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103958.jpgsave_picture_103958.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ VA - It's All About Deep-House, Vol. 1 (2024) [MP3|320 Kbps] <House, Deep House,
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103959.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103959.jpgsave_picture_103959.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Nuno Mindelis - Brazilian Blues (2013) 2CD [MP3|320 Kbps] <Blues, Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103960.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103960.jpgsave_picture_103960.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:072B88442B08F047C4ADEAB231D55307D832243C
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103961.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103961.jpgsave_picture_103961.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ magnet:?xt=urn:btih:E413DF38272781BEF057EA1DE2D27F98D3248E22
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103962.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103962.jpgsave_picture_103962.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ magnet:?xt=urn:btih:917C38D072ABD56AF1678EB672C08EAD768C2BFD
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103963.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103963.jpgsave_picture_103963.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ magnet:?xt=urn:btih:1BA29D44A4C9A36021F998CEE807568B27F266F1
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103964.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103964.jpgsave_picture_103964.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ magnet:?xt=urn:btih:F79B42F8AC4DE981ECCE19DC54F5CD8035A74B03
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103965.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103965.jpgsave_picture_103965.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ magnet:?xt=urn:btih:B8A701808D72933626483D259EF53E4434505D26
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103966.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103966.jpgsave_picture_103966.jpg" />
 </div>
 
 

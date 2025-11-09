@@ -6,7 +6,7 @@
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244875.jpgsave_picture_244875.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:B3EF0C23D60A4DCC537ADBD5FCE242E8CCD2864E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244876.jpgsave_picture_244876.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Children Of The Reptile - Heavy Is The Head (2023) [FLAC|Lossless|WEB-DL|tracks]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244877.jpgsave_picture_244877.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ IT - Live At ProgDreams VIII (2021) [MP3|320 Kbps] <Neo Prog>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244878.jpgsave_picture_244878.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Output FX Plug-ins 03.2023 VST, VST3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244879.jpgsave_picture_244879.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ Dead Girls Rock: Оглядываясь назад на «Мертвых дев�
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244880.jpgsave_picture_244880.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ VA - Best Chillout Vol.19 (2016) [MP3|192-320 Kbps] <Downtempo, Chillout, Lounge
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244881.jpgsave_picture_244881.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ R-Studio Network 9.2 Build 191140 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244882.jpgsave_picture_244882.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ Hardline - Double Eclipse (1992) Japan [FLAC|Lossless|image + .cue] <Melodic Har
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244883.jpgsave_picture_244883.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ magnet:?xt=urn:btih:0FC170A5415B44029E90A400EFCE681BF63BFC96
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244884.jpgsave_picture_244884.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ magnet:?xt=urn:btih:DEDA21EC48B0C62F6C57905C829EF63F10E23425
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244885.jpgsave_picture_244885.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ magnet:?xt=urn:btih:0812D268F1A8919C052370500778441F987E5FCE
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244886.jpgsave_picture_244886.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ magnet:?xt=urn:btih:5B402D113CAC67368AE259D13EBA54814F9B68F1
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244887.jpgsave_picture_244887.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ VA - Trance Collection Vol.53 (2016) [MP3|320 Kbps] <Trance, Progressive Trance,
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244888.jpgsave_picture_244888.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ VA - Ambient Oceania (2021) [MP3|320 Kbps] <Ambient, Downtempo, Meditation, New 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244889.jpgsave_picture_244889.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ magnet:?xt=urn:btih:8AD87B449A086169C118CCFF39FBC69E42D875F1
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244890.jpgsave_picture_244890.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ VA - Back to Earth #05 (2022) [AAC|~327 Kbps] <House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244891.jpgsave_picture_244891.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Extreme Picture Finder 3.64.0.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244892.jpgsave_picture_244892.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ magnet:?xt=urn:btih:BB9994B76C5A92BDA327431E8E0C99E92A1B9510
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244893.jpgsave_picture_244893.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ magnet:?xt=urn:btih:9EE653CB1C428DE86235CC4D94C1FD3274570025
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244894.jpgsave_picture_244894.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ magnet:?xt=urn:btih:5064891AC9550F35843264DDBBBD2061023F69CE
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244895.jpgsave_picture_244895.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Europe - Collection (2022) [MP3|320 Kbps] <Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244896.jpgsave_picture_244896.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ VA - Sunrise Meditation, Vol. 04 (2020) [AAC|~311 Kbps] <Lounge, Lo-Fi, Ambient,
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244897.jpgsave_picture_244897.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ VA - The Sound of 2023 Mix 1: Hong Kong (2023) [MP3|320 Kbps] <Trance, Progressi
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244898.jpgsave_picture_244898.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ Art Pepper - Neon Art: Volume Three (1981) 2015, Omnivore Recordings [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244899.jpgsave_picture_244899.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ magnet:?xt=urn:btih:D7FD68F794A7BFD80DEB54A889F4736848C7549E
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244900.jpgsave_picture_244900.jpg" />
 </div>
 
 

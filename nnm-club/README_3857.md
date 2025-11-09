@@ -6,7 +6,7 @@
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120697.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120697.jpgsave_picture_120697.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ SuperАлиби 2 / Alibi.com 2 (2023) BDRip [H.264] [UKR звук с ТS] [AD]
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120698.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120698.jpgsave_picture_120698.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Mp3tag 3.24 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120699.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120699.jpgsave_picture_120699.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:106C0C228C20A5DDC9BAE2E5438B0300C766DF98
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120700.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120700.jpgsave_picture_120700.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Death of Marionette (2024) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120701.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120701.jpgsave_picture_120701.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:C7AB006F4C170792CB92DAB503323727B1F2C34E
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120702.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120702.jpgsave_picture_120702.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:FFD18BF07A1AB036F0D58D648753DACD567CE06E
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120703.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120703.jpgsave_picture_120703.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ VA - Hard Rock 70’s 80’ What does he look like (2024) [MP3|320 Kbps] <Hard R
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120704.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120704.jpgsave_picture_120704.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:6A41E78C5B5F2F8B44D59C52231A6D823B0DA1FC
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120705.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120705.jpgsave_picture_120705.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ magnet:?xt=urn:btih:5887B344B1AD29740487C16FA5E0F9DF443850FF
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120707.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120707.jpgsave_picture_120707.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:5B8BEB948C7CCEB4F8B24034E45D96D27826D53E
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120708.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120708.jpgsave_picture_120708.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ magnet:?xt=urn:btih:69CEA133FEF08DEBAEBD4F79E3E5B7D6C71D7A54
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120709.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120709.jpgsave_picture_120709.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ magnet:?xt=urn:btih:6BEE965EA26F99CC8236D96CB63E006FDB410FE6
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120710.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120710.jpgsave_picture_120710.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Multi Commander Full Edition 13.5 Build 2983 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120711.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120711.jpgsave_picture_120711.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ SuperАлиби 2 / Alibi.com 2 (2023) BDRip [H.264/1080p] [UKR звук с ТS]
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120712.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120712.jpgsave_picture_120712.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ magnet:?xt=urn:btih:A1C057A237023DEE19FE1482380BCE359CA03175
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120713.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120713.jpgsave_picture_120713.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ MasterClass, Marques Brownlee | Make Compelling Videos That Go Viral (2022) WEB-
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120714.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120714.jpgsave_picture_120714.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ magnet:?xt=urn:btih:6F9DDBADD4782250129A8523B0E5045E0232419D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120715.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120715.jpgsave_picture_120715.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ magnet:?xt=urn:btih:82706C009B9A8334D54CC722826B98E9E2A85652
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120716.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120716.jpgsave_picture_120716.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ magnet:?xt=urn:btih:B80F322E940A2FEC0F97787E90158871BDCAAB56
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120717.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120717.jpgsave_picture_120717.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ magnet:?xt=urn:btih:A45D21F67293F86FA2D3CA4FCDB1B9EA93904C07
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120718.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120718.jpgsave_picture_120718.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ magnet:?xt=urn:btih:1BC263A01171A6F1049D6DF6A23C879E48DE05CA
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120719.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120719.jpgsave_picture_120719.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ magnet:?xt=urn:btih:B3B2EF15433C92380E0A044215C31D0A7E167660
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120721.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120721.jpgsave_picture_120721.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:0EFEEE22AD4B6535C83D0F318887239B4F7B827D
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120722.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120722.jpgsave_picture_120722.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ magnet:?xt=urn:btih:C61108727763AD91607E5A0F12A3309FB3FE8118
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120723.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120723.jpgsave_picture_120723.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Ardan Labs, Bill Kennedy | Ultimate Go: Software Design with Kubernetes (2023) W
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120724.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120724.jpgsave_picture_120724.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Better Trash 1.6.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243900.jpgsave_picture_243900.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Zombie Riot - World Epitaph (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243901.jpgsave_picture_243901.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:145797BF4BD729C0ED8400B79418A3097F68E9BF
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243902.jpgsave_picture_243902.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ KinoHome 1.7.0 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243903.jpgsave_picture_243903.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ VA - Лучшая Discoteka 80-х...90-х (2004) [FLAC|Lossless|tracks + .cue] <
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243904.jpgsave_picture_243904.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:FD6D8AC6154494B29A17C6AA30F782FE77C0BA92
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243905.jpgsave_picture_243905.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ VA - Hangover Lounge Grooves, Vol. 7 (2014) [AAC|~311 Kbps] <Lounge, Chill Out, 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243906.jpgsave_picture_243906.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ Luciana Souza - Speaking In Tongues (2015) [FLAC|Lossless|tracks + .cue] <Vocal 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243907.jpgsave_picture_243907.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ Blender 3.2.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243908.jpgsave_picture_243908.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ DevilDriver - Dealing with Demons Vol. II (2023) [FLAC|Lossless|WEB-DL|tracks] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243909.jpgsave_picture_243909.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ magnet:?xt=urn:btih:5A5B0C46484DAF4FB052E4EEEECDE61DAA9AF465
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243910.jpgsave_picture_243910.jpg" />
 </div>
 
 
@@ -291,7 +291,7 @@ magnet:?xt=urn:btih:6CEC7F237C0C67EEA74021D9A892068553D8AE35
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243911.jpgsave_picture_243911.jpg" />
 </div>
 
 
@@ -316,7 +316,7 @@ O&O ShutUp10 1.9.1429 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243912.jpgsave_picture_243912.jpg" />
 </div>
 
 
@@ -340,7 +340,7 @@ iCollections 6 v6.8.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243913.jpgsave_picture_243913.jpg" />
 </div>
 
 
@@ -364,7 +364,7 @@ OCCT 11.0.11 Final Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243914.jpgsave_picture_243914.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ Lyre le temps - Clock Master (2019) [AAC|~333 Kbps] <Electro Swing, Hip Hop>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243915.jpgsave_picture_243915.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ magnet:?xt=urn:btih:A69A93AA9B0614272430B05DA83DA648E335AC42
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243916.jpgsave_picture_243916.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ magnet:?xt=urn:btih:A8E46404B2DB60A8224EC9D6F55A37901531783D
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243917.jpgsave_picture_243917.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ magnet:?xt=urn:btih:F582AA0E77F7C0047D78E4153FFEA23BFC97808C
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243918.jpgsave_picture_243918.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ magnet:?xt=urn:btih:C4F9A653313473652D0A569BA402B4FA1A2B967C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243919.jpgsave_picture_243919.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ magnet:?xt=urn:btih:D283FEE331B21CC98EE19682F094AEF8B124C357
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243920.jpgsave_picture_243920.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ VA - Hangover Lounge Grooves, Vol. 4 (2013) [AAC|~312 Kbps] <Lounge, Chill Out, 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243921.jpgsave_picture_243921.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Witchmaster - Kaźń (2022) [FLAC|Lossless|WEB-DL|tracks] <Black, Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243922.jpgsave_picture_243922.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ WhatsApp 2.2226.6 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243923.jpgsave_picture_243923.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ magnet:?xt=urn:btih:AD0B31F1444D2D2BAEDD8AF5A2A4356A468083CC
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243924.jpgsave_picture_243924.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ AIDA64 Extreme | Engineer | Business Edition | Network Audit 6.88.6400 RePack (&
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243925.jpgsave_picture_243925.jpg" />
 </div>
 
 

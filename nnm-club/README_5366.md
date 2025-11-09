@@ -6,7 +6,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166379.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166379.jpgsave_picture_166379.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:11E209EE73DC3C280ABF80BCE8D9AE1C138190AE
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166380.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166380.jpgsave_picture_166380.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:820AEB9ABFAC33CF67DDEA37E330EEEBE66B0BF9
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166381.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166381.jpgsave_picture_166381.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Autopsy - Ashes, Organs, Blood And Crypts (2023) [MP3|320 Kbps] <Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166382.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166382.jpgsave_picture_166382.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:86FFDA1E4F5F726BCA16A08AFC04808AB63E4574
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166383.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166383.jpgsave_picture_166383.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:0FBC8FD1FD0396B84EE6AA62D369564DE6961E08
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166384.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166384.jpgsave_picture_166384.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ Zemana AntiMalware Premium 3.2.28.0 RePack by Umbrella Corporation [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166385.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166385.jpgsave_picture_166385.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:6B59CD7D78A36E8E862844FC9FFDB7DAF5E4F7D8
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166386.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166386.jpgsave_picture_166386.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ GIFfun - Video,Photos to GIF 9.8.7 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166387.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166387.jpgsave_picture_166387.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ NG. Суперсооружения Третьего рейха / Nazi Megastruct
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166388.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166388.jpgsave_picture_166388.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:1083640D698EC7FB53A1C9C0CA675C5C4632C38B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166389.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166389.jpgsave_picture_166389.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:122ECBA93C879B8CD1D4A08686E4ECBC3B752F0D
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166390.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166390.jpgsave_picture_166390.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ BMW ISTA-D Rheingold 4.32.20 (2021) [Multi/Ru]
 >>Автомобильные программы и навигаторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166391.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166391.jpgsave_picture_166391.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Live Wallpaper & Themes 4K Pro for Mac 18.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166392.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166392.jpgsave_picture_166392.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Garden Of Delight - Darkest Hour (2007) [FLAC|Lossless|image + .cue] <Gothic Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166393.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166393.jpgsave_picture_166393.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ NG. Суперсооружения Третьего рейха - 7 / Nazi Megast
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166394.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166394.jpgsave_picture_166394.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ magnet:?xt=urn:btih:6CEA7CCF20AE1EB4305DC4727B216C162DEA89A2
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166395.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166395.jpgsave_picture_166395.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ magnet:?xt=urn:btih:C1D6A6E35369AE89C156E57C0A3CA74A0303F320
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166396.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166396.jpgsave_picture_166396.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ magnet:?xt=urn:btih:47F686FE269A8ACB30C03A37E68FE16BF5C0175C
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166397.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166397.jpgsave_picture_166397.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ magnet:?xt=urn:btih:D9D1B4A9F80D37654D4774237F4F215FA54CAAD2
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166398.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166398.jpgsave_picture_166398.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ magnet:?xt=urn:btih:DCBD519D78013AB5D36E48318CEFF859177D2F2D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166399.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166399.jpgsave_picture_166399.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:D7DE046B57047B76163FB635BEFE6C8FB3950A76
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166400.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166400.jpgsave_picture_166400.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ AOMEI Backupper Technician Plus 7.1.2 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166401.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166401.jpgsave_picture_166401.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Data Guardian 7 v.7.6.6 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166402.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166402.jpgsave_picture_166402.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ magnet:?xt=urn:btih:D7C26DDF4E4ABFA06D0BC252DDA7FC0B7EB1AF6F
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166403.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166403.jpgsave_picture_166403.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Debookee v.8.1.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166404.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166404.jpgsave_picture_166404.jpg" />
 </div>
 
 

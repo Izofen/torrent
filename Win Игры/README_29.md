@@ -6,7 +6,7 @@ Chip ‘n Clawz vs. The Brainioids (2025) [Ru/Multi] (1.0.23477) Repack Let'sРl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8592.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8592.jpgsave_picture_8592.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Static Dread: The Lighthouse (2025) [Ru/Multi] (2025.08.06.18.12/dlc) Repack Fit
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8700.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8700.jpgsave_picture_8700.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ RAILGRADE (2023) [Ru/Multi] (7.3.63.1) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8718.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8718.jpgsave_picture_8718.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Nordic Ashes: Survivors of Ragnarok (2024) [Ru/Multi] (2.0.5.2/dlc) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8720.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8720.jpgsave_picture_8720.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Eriksholm: The Stolen Dream (2025) [Ru/Multi] (1.3) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8722.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8722.jpgsave_picture_8722.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ The RPG (2025) [Ru/Multi] (1.001/1.004) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8726.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8726.jpgsave_picture_8726.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Hell Clock (2025) [Ru/Multi] (1.0.0/dlc) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8728.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8728.jpgsave_picture_8728.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Iron Core: Mech Survivor (2025) [Ru/Multi] (3.0.2) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8734.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8734.jpgsave_picture_8734.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Runa Illustra (2025) [Ru/Multi] (1.0.1) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8737.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8737.jpgsave_picture_8737.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Forgotten 23 (2025) [Multi] (1.0.5) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8753.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8753.jpgsave_picture_8753.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Relaxing Time 3: Enchanting France / Время отдыха 3: Чарующая
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8791.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8791.jpgsave_picture_8791.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Koboo: The Tree Spirit (2024) [En] (1.02) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8809.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8809.jpgsave_picture_8809.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Terra Nil (2023) [Ru/Multi] (1.2.2_92.3d163d7) Repack Other s [Deluxe Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8816.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8816.jpgsave_picture_8816.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ RIPOUT (2024) [Ru/Multi] (1.41:01) Repack seleZen
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8830.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8830.jpgsave_picture_8830.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Yomi 2 (2023) [Ru/Multi] (2841/dlc) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8835.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8835.jpgsave_picture_8835.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ The Count of Monte Clicker (2025) [En] (1.0) Scene Tenoke
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8839.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8839.jpgsave_picture_8839.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Digger: Galactic Treasures (2025) [Ru/Multi] (1.05.1) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8844.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8844.jpgsave_picture_8844.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Le Mans Ultimate (2024) [Multi] (1.0) Scene Rune [VR]
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8845.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8845.jpgsave_picture_8845.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Iron Core: Mech Survivor (2025) [Ru/Multi] (build 19526651) Repack seleZen
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8846.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8846.jpgsave_picture_8846.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ MX vs ATV Legends (2022) [Ru/Multi] (4.06/dlc) Repack seleZen
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8858.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8858.jpgsave_picture_8858.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ The House of the Dead 2: Remake (2025) [Multi] (1.0) Scene FairLight
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8871.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8871.jpgsave_picture_8871.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ MX vs ATV Legends (2022) [Ru/Multi] (4.06/dlc) Repack FitGirl [Deluxe Edition]
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8875.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8875.jpgsave_picture_8875.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Grand Emprise 2: Portals Apart (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8881.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8881.jpgsave_picture_8881.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Satisfactory (2019) [Ru/Multi] (1.1.1.2 CL#424353) Repack seleZen
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8890.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8890.jpgsave_picture_8890.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Grim Chronicles: Superior Sorcery (2025) [En] (1.0) Unofficial [Collector's Edit
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8897.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8897.jpgsave_picture_8897.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Hidden Portals: Eternal Balance / Скрытые порталы: Вечный б
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8927.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8927.jpgsave_picture_8927.jpg" />
 </div>
 
 

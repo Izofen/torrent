@@ -6,7 +6,7 @@ Bloodstained: Ritual of the Night (2019) [Ru/Multi] (1.5/dlc) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48585.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48585.jpgsave_picture_48585.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Suppress Academician (2024) [Multi] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48653.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48653.jpgsave_picture_48653.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Weko The Mask Gatherer (2024) [Multi] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48663.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48663.jpgsave_picture_48663.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Our Adventurer Guild (2024) [En] (1.24) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48679.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48679.jpgsave_picture_48679.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Frontier Hunter: Erza's Wheel of Fortune / Пограничный охотник
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48680.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48680.jpgsave_picture_48680.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Esports Godfather (2024) [Multi] (1.3.21) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48694.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48694.jpgsave_picture_48694.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Dungeons of Hinterberg (2024) [Multi] (1.0.2) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48710.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48710.jpgsave_picture_48710.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ The Legend of Heroes: Trails through Daybreak (2023) [Multi] (1.3.5/dlc) License
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48728.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48728.jpgsave_picture_48728.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Riviera: The Promised Land (2024) [Multi] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48894.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48894.jpgsave_picture_48894.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Serpent in the Staglands (2015) [En] (19) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49268.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49268.jpgsave_picture_49268.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ USC: Counterforce (2023) [Multi] (1.0) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49326.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49326.jpgsave_picture_49326.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Stories from the Outbreak (2024) [En] (1.1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49361.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49361.jpgsave_picture_49361.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Dragon Chronicles: Black Tears (2024) [Multi] (1.0) Scene SKIDROW
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49419.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49419.jpgsave_picture_49419.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Minecraft Dungeons (2020) [Ru/Multi] (1.17.0.0/dlc) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49437.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49437.jpgsave_picture_49437.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Flintlock: The Siege of Dawn (2024) [Ru/Multi] (1.1.52-267364) Repack Other s [D
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49450.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49450.jpgsave_picture_49450.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ The Thaumaturge (2024) [Ru/Multi] (73424/dlc) License GOG [Digital Deluxe Editio
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49477.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49477.jpgsave_picture_49477.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Zero Division (2024) [Multi] (1.01f HotFix) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49665.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49665.jpgsave_picture_49665.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Dark Envoy (2023) [Ru/Multi] (1.5.2.73561) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49975.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49975.jpgsave_picture_49975.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Clash II (2) (2022) [Multi] (497) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50208.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50208.jpgsave_picture_50208.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ SaGa Emerald Beyond (2024) [Multi] (1.0.2/dlc) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50286.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50286.jpgsave_picture_50286.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Mushoku Tensei: Jobless Reincarnation Quest of Memories (2024) [Multi] (14569299
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50297.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50297.jpgsave_picture_50297.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Baten Kaitos I & II HD Remaster (2024) [Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50367.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50367.jpgsave_picture_50367.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Demeo (2021) [Multi] (1.36.256496) Scene Tenoke [VR]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50372.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50372.jpgsave_picture_50372.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Robin Hood: Sherwood Builders (2024) [Ru/Multi] (2.01.31.01) Scene DINOByTES
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50420.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50420.jpgsave_picture_50420.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ The Leviathan's Fantasy (2023) [Multi] (2.1.4/dlc) Scene Tenoke [Ultimate Editio
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50702.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50702.jpgsave_picture_50702.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Islands of the Caliph (2023) [En] (1.2.8) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50709.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50709.jpgsave_picture_50709.jpg" />
 </div>
 
 

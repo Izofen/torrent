@@ -6,7 +6,7 @@ VA - Autumn Grooves (The Lounge & Chill out Deluxe Collection), Vol. 1 (2020) [A
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241012.jpgsave_picture_241012.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:3B274E741FDD55FA3878ED21C997326CDB8BB12D
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241014.jpgsave_picture_241014.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ VA - Keep It Trance Vol. 11 (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241015.jpgsave_picture_241015.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Crashdiet - Automaton (2022) [MP3|320 Kbps] <Hard Rock, Glam Metal>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241016.jpgsave_picture_241016.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ magnet:?xt=urn:btih:EF0E7C0F98471A80A9EDE2A1116A7CFFEC721FD7
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241017.jpgsave_picture_241017.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ VA - Ресторан Кураж от радио Шансон выпуск № 1
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241018.jpgsave_picture_241018.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ magnet:?xt=urn:btih:96D5DE05D395401AC9368596FA755C293D72D39C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241020.jpgsave_picture_241020.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ magnet:?xt=urn:btih:A3767BDE17A4A57A4DEA922C280D206DCA3DF5D1
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241024.jpgsave_picture_241024.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ VA - Rock Classics (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241025.jpgsave_picture_241025.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ magnet:?xt=urn:btih:22A8665F98B605362BD2D5430B90D3EC6CAEA515
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241027.jpgsave_picture_241027.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ magnet:?xt=urn:btih:36FE8B749FF562C0023DED5A63703DE92A71AE15
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241028.jpgsave_picture_241028.jpg" />
 </div>
 
 
@@ -291,7 +291,7 @@ Savage Grace - Sign Of The Cross (2023) [FLAC|Lossless|WEB-DL|tracks] <Power, Sp
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241029.jpgsave_picture_241029.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Adobe Photoshop Lightroom Classic 11.3.0.9 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241030.jpgsave_picture_241030.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ NetLimiter 5.2.4.0 (x64) RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241031.jpgsave_picture_241031.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ DjVu Reader Pro 2.4.8 [Ru/En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241032.jpgsave_picture_241032.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ magnet:?xt=urn:btih:E1EF645C9700B344839D38D6BA51D3DA56ED553B
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241033.jpgsave_picture_241033.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ Sparks - Balls (2000) Deluxe Edition, Remastered, 2022, BMG [MP3|320 Kbps] <Pop,
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241034.jpgsave_picture_241034.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ magnet:?xt=urn:btih:C128D432CF93F74E9075CD36581B278BE9A676A1
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241035.jpgsave_picture_241035.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ VA - 70s Lost & Found (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock, Pop>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241036.jpgsave_picture_241036.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Necronomicon - Constant To Death (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241038.jpgsave_picture_241038.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ VA - Вечеринка на радио Шансон выпуск № 8 (2017) [
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241039.jpgsave_picture_241039.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ magnet:?xt=urn:btih:2DA0E9CF8D14AD318374FAFE01267565D241AEAE
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241040.jpgsave_picture_241040.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ magnet:?xt=urn:btih:C806FABF3C49D8ED77671958F244F8A8D51AE722
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241041.jpgsave_picture_241041.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ MailWasher Pro 7.12.130 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241042.jpgsave_picture_241042.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ magnet:?xt=urn:btih:DD03B60C5738928F7EBED0680C65F839D88ACB6D
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241043.jpgsave_picture_241043.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ Artstudio Pro 4.0.12 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241044.jpgsave_picture_241044.jpg" />
 </div>
 
 

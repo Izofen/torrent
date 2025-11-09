@@ -6,7 +6,7 @@
 >>Морская полиция / Navy NCIS; Военно-юридическая служба / JAG
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251307.jpgsave_picture_251307.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Solar Fields - 11 Альбомов  (2001-2012) [FLAC|Lossless]<Ambient, Downtem
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251309.jpgsave_picture_251309.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Solar Fields - 11 Альбомов (2001-2012)
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251311.jpgsave_picture_251311.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ Solar Fields - 11 Альбомов (2001-2012)
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251312.jpgsave_picture_251312.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:64A6C4A2BC7D889B43A3603B5AC6A595ADFF95EF
 >>Изобразительное искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251313.jpgsave_picture_251313.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ magnet:?xt=urn:btih:60D840A68AA7D43ADD1D4492D90DDE300F8CDE26
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251314.jpgsave_picture_251314.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ magnet:?xt=urn:btih:A5CACB0BF686D5DFE1CB11908DB8C47EDE638716
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251315.jpgsave_picture_251315.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Skrillex & Damian Marley - Make it Bun Dem (Digital Single) (2012) [FLAC|Lossles
 >>Dubstep, Future Garage, Bass Music, UK Garage (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251320.jpgsave_picture_251320.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ The Millennium Collection - The Best Pop Music Of The 20th Century (1950-1998 20
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251321.jpgsave_picture_251321.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ magnet:?xt=urn:btih:0F33B83391209D011945CB6A19A22128CE6E45B4
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251323.jpgsave_picture_251323.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ magnet:?xt=urn:btih:C37AEA3664C12AC5B983F0943E527D8DF271B2F1
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251324.jpgsave_picture_251324.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ magnet:?xt=urn:btih:8B5D29894F08E035D10E480890FF00424EC548A9
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251325.jpgsave_picture_251325.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ magnet:?xt=urn:btih:F0150154E48538D3A6E94F1A400E4B2D9DE5116B
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251326.jpgsave_picture_251326.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ magnet:?xt=urn:btih:F0150154E48538D3A6E94F1A400E4B2D9DE5116B
 >>14
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251328.jpgsave_picture_251328.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Mac OS X Lion 10.7.4 (11E53) [Multi/Ru] (Installer)
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251329.jpgsave_picture_251329.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ Max Payne 3 [XBOX360] [Ru] [Region Free] [XGD3] [LT+3.0] (2012)
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251330.jpgsave_picture_251330.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ magnet:?xt=urn:btih:167B092A085882D9A880D1D29A3E5B501195A993
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251332.jpgsave_picture_251332.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Windows7 Firewall Control v5.0.0.15 RePack by Kyvaldiys [русский]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251333.jpgsave_picture_251333.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Windows7 Firewall Control - это программа,которая защищ�
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251337.jpgsave_picture_251337.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ magnet:?xt=urn:btih:E45D7251ED00A3334150B31E9A3BACE8649957B8
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251338.jpgsave_picture_251338.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ magnet:?xt=urn:btih:E45D7251ED00A3334150B31E9A3BACE8649957B8
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251339.jpgsave_picture_251339.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ magnet:?xt=urn:btih:87E31ED3ECBABF6FE78C16E9504A2380422FE03A
 >>Отечественное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251340.jpgsave_picture_251340.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Ubuntu 12.04 LTS [amd64] (1xDVD)
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251342.jpgsave_picture_251342.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ King Arthur 2: The Role-Playing Wargame / Король Артур 2 + DLC [Ru] (
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251346.jpgsave_picture_251346.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ King Arthur 2: The Role-Playing Wargame / Король Артур 2 + DLC [Ru] (
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251347.jpgsave_picture_251347.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ VA - Молодежный Хит №2 from AGR (2012) [MP3|320 кб/с]<Pop, Clu
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251349.jpgsave_picture_251349.jpg" />
 </div>
 
 

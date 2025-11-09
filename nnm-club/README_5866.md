@@ -6,7 +6,7 @@ Wirecast Pro 14.0.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184302.jpgsave_picture_184302.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:5BE962403625F974478F6DBC5B1398D2CA8ACEE9
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184305.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184305.jpgsave_picture_184305.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Mastering The Mix Collection 2022.11 STANDALONE, VST, VST3, AAX (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184306.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184306.jpgsave_picture_184306.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:25CF4C75985963100918552A20E4C52DCD3E1051
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184307.jpgsave_picture_184307.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ magnet:?xt=urn:btih:2D870BDA512A2A4E8AC61E9215383C73525451C0
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184309.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184309.jpgsave_picture_184309.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ magnet:?xt=urn:btih:B9AEB1A2D0FD2158248C8755E4E4CD05BF427E11
 >>Единоборства, Бои без правил
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184310.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184310.jpgsave_picture_184310.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ The Smashing Pumpkins - CYR (2020) [FLAC|Lossless|WEB-DL|tracks] <Alternative Ro
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184312.jpgsave_picture_184312.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ Wayne Static - Pighammer (2011) [AAC|~344 Kbps] <Industrial>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184314.jpgsave_picture_184314.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Boinx FotoMagico Pro 5 v5.6.14 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184316.jpgsave_picture_184316.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ CrystalMaker X 10.5.5 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184318.jpgsave_picture_184318.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ Sodom - Genesis XIX (2020) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal, Speed Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184320.jpgsave_picture_184320.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ magnet:?xt=urn:btih:0DC715F87306DEC537D75DE88956F71A81777138
 >>Футбол
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184322.jpgsave_picture_184322.jpg" />
 </div>
 
 
@@ -314,7 +314,7 @@ magnet:?xt=urn:btih:8928A4F8F655021DA49AB2963889C3C48BEFC3A3
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_184325.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_184325.jpgsave_picture_184325.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ Ola Hakansson (pre Secret Service) - 3 Albums (1976-1979) LP [MP3|320 Kbps] <Pop
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184326.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184326.jpgsave_picture_184326.jpg" />
 </div>
 
 
@@ -365,7 +365,7 @@ magnet:?xt=urn:btih:1C62D4FB13C311F2ADA17E7D547EE76B28C4D1DA
 >>Футбол
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184327.jpgsave_picture_184327.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ Extreme Picture Finder 3.63.1.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184329.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184329.jpgsave_picture_184329.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ Clip Studio Paint EX 2.2.0 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184330.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184330.jpgsave_picture_184330.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ FxSound Pro 1.1.20.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184332.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184332.jpgsave_picture_184332.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Purple Disco Machine - Club Exotica (2021) [FLAC|Lossless|WEB-DL|tracks] <EDM, N
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184333.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184333.jpgsave_picture_184333.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ CyberLink AudioDirector Ultra 13.0.2309.0 (x64) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184334.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184334.jpgsave_picture_184334.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ magnet:?xt=urn:btih:D8A252246D6599164CDAEA533A498C0AFAB347FD
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184336.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184336.jpgsave_picture_184336.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ magnet:?xt=urn:btih:F4029C02DE7F1FB0191ABFEAAB9EDA65BADFA08F
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184338.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184338.jpgsave_picture_184338.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Windows 11 Manager 1.3.1 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184339.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184339.jpgsave_picture_184339.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ magnet:?xt=urn:btih:C0D1C60FB8D78C45C3C514F1A9C13ACA7DCE88A6
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184341.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184341.jpgsave_picture_184341.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ magnet:?xt=urn:btih:D326E6E2A5C2EA39D1BADC76A408D620B2598816
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184342.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184342.jpgsave_picture_184342.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ magnet:?xt=urn:btih:B4CC3C46DF4C22391280ED9E4FA22755BDF6BADF
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184345.jpgsave_picture_184345.jpg" />
 </div>
 
 

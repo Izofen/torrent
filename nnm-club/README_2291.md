@@ -6,7 +6,7 @@ Topaz Photo AI 3.0.0 (x64) RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59933.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59933.jpgsave_picture_59933.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:728FA7DF9FFD7B1AE55E64A8D7944E90DE2962BF
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59934.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59934.jpgsave_picture_59934.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:39F92330EC263FB3C4AD4FFAC78688C92105AC8B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59935.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59935.jpgsave_picture_59935.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Filmora - Редактор видео с AI 13.2.00 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59936.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59936.jpgsave_picture_59936.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:48C66FAC7E7893724EB3C7ABB8F1007B3D28138E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59937.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59937.jpgsave_picture_59937.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Children of the Sun (2024) [Ru/Multi] (13997895) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59938.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59938.jpgsave_picture_59938.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:AC592AFE0E50BAE512D2194BAE20FED5FB031B46
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59939.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59939.jpgsave_picture_59939.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ WinPaletter 1.0.9.2 Standalone [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59940.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59940.jpgsave_picture_59940.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ PIDKey Lite 1.64.4 b42 Portable by Ratiborus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59941.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59941.jpgsave_picture_59941.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:7982A5A5B0C2492D3DF0D2BC0E4C90C3A6640B40
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59942.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59942.jpgsave_picture_59942.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ magnet:?xt=urn:btih:B46E85C81997ABDFD27978E71FF154F04022CC08
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59943.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59943.jpgsave_picture_59943.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ magnet:?xt=urn:btih:B46E85C81997ABDFD27978E71FF154F04022CC08
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59944.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59944.jpgsave_picture_59944.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ magnet:?xt=urn:btih:B46E85C81997ABDFD27978E71FF154F04022CC08
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59945.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59945.jpgsave_picture_59945.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ VA - Live @ Tomorrowland Winter, France (2024) [MP3|320 Kbps] <Trance, Techno, M
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59946.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59946.jpgsave_picture_59946.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ ImgDrive Pro 2.1.5 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59947.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59947.jpgsave_picture_59947.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ Frogmonster (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59948.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59948.jpgsave_picture_59948.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ magnet:?xt=urn:btih:E78B39EAC229F92910B5CDA804453FD84C1E7BA2
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59949.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59949.jpgsave_picture_59949.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ magnet:?xt=urn:btih:67C902E894736F0492EC5CA64C5020545FD83783
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59950.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59950.jpgsave_picture_59950.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Adobe Acrobat Pro 2024.002.20687 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59951.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59951.jpgsave_picture_59951.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ The Black Keys - 19 albums, 21 CD (2002-2024) [FLAC|Lossless|image + .cue | trac
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59952.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59952.jpgsave_picture_59952.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ magnet:?xt=urn:btih:688C2963AED351582AD3B7D5138B10AC22A65B1F
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59953.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59953.jpgsave_picture_59953.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ magnet:?xt=urn:btih:60AA12F69F6363DD3B1FF0B4D2968C2C6F8F6EEF
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59954.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59954.jpgsave_picture_59954.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Yet Another Fantasy Title (2024) [Ru/Multi] (1.0hf) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59955.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59955.jpgsave_picture_59955.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ magnet:?xt=urn:btih:A25A87391E7628283DDFF241CB08700DA775B104
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59956.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59956.jpgsave_picture_59956.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ The Planet Crafter (2022) [Ru/Multi] (1.0) Scene Rune
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59957.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59957.jpgsave_picture_59957.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Ereban: Shadow Legacy (2024) [Ru/Multi] (1.1.14) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59958.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59958.jpgsave_picture_59958.jpg" />
 </div>
 
 

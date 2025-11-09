@@ -6,7 +6,7 @@ Reign Of Glory - Slingshot (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65282.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65282.jpgsave_picture_65282.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:400E7182541074F39E483C4F9B8ACF75EB09BCE7
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65283.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65283.jpgsave_picture_65283.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Boneshakers - Live To Be This (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blue
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65284.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65284.jpgsave_picture_65284.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:AAB2550F840495FF10FE53755F47A9CD8DFA3FC8
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65285.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65285.jpgsave_picture_65285.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:8B850CA8B38983E115B34628B5A20D57D1D71342
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65286.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65286.jpgsave_picture_65286.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:5E00CFC549E7F5E214AF2FA8442A7F1902086C8E
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65287.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65287.jpgsave_picture_65287.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ Anapilin - Dezintegracija (2021) [MP3|320 Kbps] <Black Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65288.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65288.jpgsave_picture_65288.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ Motorjesus - Streets of Fire (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard 'n
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65289.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65289.jpgsave_picture_65289.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ Fallujah - Xenotaph (2025) [FLAC|Lossless|image + .cue] <Technical Death Metal, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65290.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65290.jpgsave_picture_65290.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ Cryptopsy - An Insatiable Violence (2025) [FLAC|Lossless|image + .cue] <Technica
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65291.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65291.jpgsave_picture_65291.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ Upon A Burning Body - 6 Albums (2010-2022) [FLAC|Lossless|WEB-DL|tracks] <Altern
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65292.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65292.jpgsave_picture_65292.jpg" />
 </div>
 
 
@@ -291,7 +291,7 @@ Catapulta Airlines - Бирбоинг (2025) [FLAC 24/48|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65293.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65293.jpgsave_picture_65293.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Yelawolf & Michael Phillips - Whiskey & Roses (2025) [FLAC 24/48|Lossless|WEB-DL
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65294.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65294.jpgsave_picture_65294.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ magnet:?xt=urn:btih:B60A26B2CAD901C44AD854178F106CBFFB32C804
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65295.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65295.jpgsave_picture_65295.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ Alice Cooper - Up All Night (2025) EP [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard-
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65296.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65296.jpgsave_picture_65296.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ magnet:?xt=urn:btih:8F4A54A2B9A2E08B8CB9D722DC556DD809373840
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65297.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65297.jpgsave_picture_65297.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ magnet:?xt=urn:btih:9F49DCD924087555C370BE4ABD4E8D3731447BE7
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65298.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65298.jpgsave_picture_65298.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ Slaughter to Prevail - Grizzly (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Dea
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65299.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65299.jpgsave_picture_65299.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ magnet:?xt=urn:btih:F00526CA1FDDEDA86D49BCFEFF952D48B0EBCD6B
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65300.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65300.jpgsave_picture_65300.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ The Unarchiver - Unzip RAR ZIP 3.3.9 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65301.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65301.jpgsave_picture_65301.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Super Grup Electrecord - Slagare, Slagare, Slagare (1977) [FLAC 2.0|192/24|image
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65302.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65302.jpgsave_picture_65302.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ Kerosin - Через тернии к монстрам (2025) [FLAC|Lossless|WEB-
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65303.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65303.jpgsave_picture_65303.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Ramonda - The Walls Are Crumbling Down (2025) [FLAC 24/44.1|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65304.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65304.jpgsave_picture_65304.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ magnet:?xt=urn:btih:5D819253BD699E66D9B97A8B23D2E226F4451C37
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65305.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65305.jpgsave_picture_65305.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ magnet:?xt=urn:btih:A8B0DE9B8C368DAFB954618799F32718E36C20F1
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65306.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65306.jpgsave_picture_65306.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ Scardust - Souls (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Progressive Symphon
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65307.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65307.jpgsave_picture_65307.jpg" />
 </div>
 
 

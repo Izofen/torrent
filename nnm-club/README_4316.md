@@ -6,7 +6,7 @@
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134062.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134062.jpgsave_picture_134062.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ The Closing Shift (2022) [Multi] (1.10) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134063.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134063.jpgsave_picture_134063.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:A87068EEE56E49D7F4CD929437A6D3A8C9520332
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134064.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134064.jpgsave_picture_134064.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ FBReader Premium v3.5.4 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134065.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134065.jpgsave_picture_134065.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:99A23B3A862E4123B6C5E16FE2EBBB7A4F117201
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134066.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134066.jpgsave_picture_134066.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:2710095E44D90EAA8461F060B0A31AA6B11EF3FF
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134067.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134067.jpgsave_picture_134067.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Jacintha - 7 Альбомов (1999 - 2007) [MP3|320 кб/с]<Vocal Jazz>
 >>Jazz
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134069.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134069.jpgsave_picture_134069.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ Jacintha - 7 Альбомов (1999 - 2007) [MP3|320 кб/с]<Vocal Jazz>
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134072.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134072.jpgsave_picture_134072.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ YouTube ReVanced Extended 18.45.41 (RVP v2.199.1) Mod by Number one' + Micro G [
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134073.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134073.jpgsave_picture_134073.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ magnet:?xt=urn:btih:213C2FEDE54959E980096B539028622CF77D429C
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134075.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134075.jpgsave_picture_134075.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ SlimPDF Reader 1.0.1.12 [English]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134076.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134076.jpgsave_picture_134076.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ qBittorrent 4.6.2 (x64) RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134077.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134077.jpgsave_picture_134077.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ magnet:?xt=urn:btih:BDD3CEFBC3A1D91C220734A8B7F252771671263D
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134078.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134078.jpgsave_picture_134078.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ magnet:?xt=urn:btih:CD67F8288C1E9D0C52C2E8BA76D07865E0AB05AC
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134079.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134079.jpgsave_picture_134079.jpg" />
 </div>
 
 
@@ -364,7 +364,7 @@ magnet:?xt=urn:btih:D8D9ACC0DECEF662BE30280FA522BF4F3CDB1282
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134080.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134080.jpgsave_picture_134080.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ ArtStation, Florian Neumann | Post Apocalyptic Knife - Game Asset Tutorial (2022
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134081.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134081.jpgsave_picture_134081.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ Antenna Magus 2024.1 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134083.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134083.jpgsave_picture_134083.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ CST Studio Suite 2024.01 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134085.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134085.jpgsave_picture_134085.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Midori Browser 11.1.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134087.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134087.jpgsave_picture_134087.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ magnet:?xt=urn:btih:1260AA4F051A38EBF9A4200B3D30F2E42CA61FA5
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134088.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134088.jpgsave_picture_134088.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ Nik Collection by DxO 6.5.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134089.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134089.jpgsave_picture_134089.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Chromium-Gost 119.0.6045.199 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134091.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134091.jpgsave_picture_134091.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Hudozhnik Online, Полина Абдулаева | Практическая и�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134093.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134093.jpgsave_picture_134093.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Simoni Racing. Sexy Vision Calendar 2013
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134094.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134094.jpgsave_picture_134094.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Super S10 Launcher 5.1 Mod by Oflarm [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134095.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134095.jpgsave_picture_134095.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ magnet:?xt=urn:btih:F2596B5929DAEE76BF5222E1DEBF5739C9CFA15B
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134096.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134096.jpgsave_picture_134096.jpg" />
 </div>
 
 

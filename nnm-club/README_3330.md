@@ -6,7 +6,7 @@ Triddana - Breaking From The Fold (2024) [MP3|320 Kbps] <Celtic Folk, Power Meta
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106941.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106941.jpgsave_picture_106941.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Duran Duran - Meet El Presidente (1987) Remaster, 2024, Parlophone Records [FLAC
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106942.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106942.jpgsave_picture_106942.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Nitetime Drive - NTD 2 (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106943.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106943.jpgsave_picture_106943.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Count Pariah - Count Pariah (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106944.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106944.jpgsave_picture_106944.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Duel - Breakfast (with) Death (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106945.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106945.jpgsave_picture_106945.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ The Dreaded Laramie - Princess Feedback (2024) [FLAC 24/96|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106946.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106946.jpgsave_picture_106946.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ magnet:?xt=urn:btih:BEC0F2529569D63712245364F706C16989963D47
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106947.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106947.jpgsave_picture_106947.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Yellow House - Psalms of Yellow House (2024) [FLAC 24/44.1|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106948.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106948.jpgsave_picture_106948.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ magnet:?xt=urn:btih:66E015BBE2873F581FCDFA0E0467BC096529C79E
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106949.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106949.jpgsave_picture_106949.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Faber - Addio (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Indie Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106950.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106950.jpgsave_picture_106950.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Shrine of Insanabilis - Disciples of the Void (2015) Released, 2016, Fallen Empi
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106951.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106951.jpgsave_picture_106951.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Shrine of Insanabilis - Tombs Opened by Fervent Tongues... Earth's Final Necropo
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106952.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106952.jpgsave_picture_106952.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ MotoGP. Этап 09 из 20. Гран-при Германии. Гонка (07.07
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106953.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106953.jpgsave_picture_106953.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ magnet:?xt=urn:btih:54CDC00DEB71C3F93CF90C77EA09671440BD251E
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106954.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106954.jpgsave_picture_106954.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ VA - Afrobeat Vol. 3 (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Downtempo, So
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106955.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106955.jpgsave_picture_106955.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ magnet:?xt=urn:btih:4D3E2E0FD18684504CD140747CF9868C134942C6
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106956.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106956.jpgsave_picture_106956.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Amongst Liars - By Design (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative Meta
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106957.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106957.jpgsave_picture_106957.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ MotoGP. Этап 09 из 20. Гран-при Германии. Спринт (06.
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106958.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106958.jpgsave_picture_106958.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Young Medicine - Cold Blooded (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106959.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106959.jpgsave_picture_106959.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ The Rumours - Kill Or Be Killed (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock,
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106960.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106960.jpgsave_picture_106960.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Fink - Beauty In Your Wake (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Indie Fol
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106961.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106961.jpgsave_picture_106961.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Pretty Lights - 2 Albums (2013-2014) [FLAC|Lossless|WEB-DL|tracks] <Trip Hop, Du
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106962.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106962.jpgsave_picture_106962.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Born to Rise - Along for the Ride (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Roc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106963.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106963.jpgsave_picture_106963.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Mystery - Mind Pollution (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106964.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106964.jpgsave_picture_106964.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ Normal Like Us - The Devil and the Whipping Post (2024) [FLAC|Lossless|WEB-DL|tr
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106965.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106965.jpgsave_picture_106965.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ Scarlet Bandit - Lose Your Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternati
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106966.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106966.jpgsave_picture_106966.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Cookie 7.1.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168320.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168320.jpgsave_picture_168320.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ SILKYPIX Developer Studio Pro 11E v.11.0.7.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168321.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168321.jpgsave_picture_168321.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:C0AC3D4E724B2969DCDAA41F58251531C739B1D8
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168322.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168322.jpgsave_picture_168322.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ NGW: Скрытые чудеса Африки / Africa's Hidden Wonders (2020) W
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168323.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168323.jpgsave_picture_168323.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Destroyer 666 - Defiance (2009) [FLAC|Lossless|image + .cue] <Black, Thrash Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168324.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168324.jpgsave_picture_168324.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:F71BDFED6991D5CDB7C2A06AD099FE04C0323D67
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168325.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168325.jpgsave_picture_168325.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:736A00B8F33ED7E9699E9BDD9069870A4F07C245
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168326.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168326.jpgsave_picture_168326.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:B8914A3A4E5F95B86EF05FAA88CAA788837F6AD6
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168327.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168327.jpgsave_picture_168327.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:173401662DE601F15627F930C282B7E5454BEEEE
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168328.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168328.jpgsave_picture_168328.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:95D3DFAC3C9C9774331999F49ADE1BEF1E3A97E9
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168329.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168329.jpgsave_picture_168329.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:4FD6B525F4B02F60745807E9FC8311F6E3D590EC
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168330.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168330.jpgsave_picture_168330.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:37AA50ACD465A3A9C54E540414A3FA02242A740E
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168331.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168331.jpgsave_picture_168331.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:B4217DA5B3C41A2D50987332F458B1068EA4EB8F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168332.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168332.jpgsave_picture_168332.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Kiwi for Gmail 2.0.31 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168333.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168333.jpgsave_picture_168333.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ magnet:?xt=urn:btih:C871CEF5952589BBE9D6DC453438A27CAC75EDDA
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168334.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168334.jpgsave_picture_168334.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Peggy Lee - That Old Feeling & You Go To My Head 1944 - 1953 (2001) 2CD, Past Pe
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168336.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168336.jpgsave_picture_168336.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ TogetherShare Data Recovery Professional for Mac 8.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168337.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168337.jpgsave_picture_168337.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Podlodka QA Crew | Сезон 2. Мобильное тестирование и 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168338.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168338.jpgsave_picture_168338.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ SILKYPIX JPEG Photography 11E v.11.2.7.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168339.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168339.jpgsave_picture_168339.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Chronicle Pro 14.3.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168340.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168340.jpgsave_picture_168340.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ BELOFF [dp] 2021.12
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168341.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168341.jpgsave_picture_168341.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ Wattagio 1.4.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168342.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168342.jpgsave_picture_168342.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:011868686C61CB21386B59AF1CC6AA561789BA13
 >>Кинолетопись Страны Советской
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168343.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168343.jpgsave_picture_168343.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Shadow Warrior - Return Of The Shadow Warrior (2019) Japanese Edition, EP [FLAC|
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168344.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168344.jpgsave_picture_168344.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ magnet:?xt=urn:btih:942D7D475F17B343D28074FF1CBFA025A5F3B948
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168345.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168345.jpgsave_picture_168345.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Viogression - 3rd Stage of Decay (2022) [FLAC|Lossless|image + .cue] <Death Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168346.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168346.jpgsave_picture_168346.jpg" />
 </div>
 
 

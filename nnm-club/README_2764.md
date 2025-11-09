@@ -6,7 +6,7 @@
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76267.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76267.jpgsave_picture_76267.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:8828002ACBA3D10535A7203118161AFA581AB032
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76276.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76276.jpgsave_picture_76276.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Glastonbury Festival 2011- Featuring Beyonce (Day 3) (2011) HDTV [H.264]
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76286.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76286.jpgsave_picture_76286.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Vegas Movie Studio HD Platinum 11.0.295 + Portable by BALISTA  ML/Rus
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76289.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76289.jpgsave_picture_76289.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Vegas Movie Studio HD Platinum – видеоредактор, включающ�
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76293.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76293.jpgsave_picture_76293.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:61663526F6CF7417A7195A49E64666D50A72125C
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76298.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76298.jpgsave_picture_76298.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:61663526F6CF7417A7195A49E64666D50A72125C
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76301.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76301.jpgsave_picture_76301.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ CCEnhancer 2.5.1 [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76314.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76314.jpgsave_picture_76314.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ VA - К 80-ти летию В. Шаинского. Когда мои друзь�
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76315.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76315.jpgsave_picture_76315.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ London Symphony Orchestra - Classic Rock II: The Collector's Edition [4CD Box Se
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76318.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76318.jpgsave_picture_76318.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ London Symphony Orchestra - Classic Rock II: The Collector's Edition [4CD Box Se
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76321.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76321.jpgsave_picture_76321.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ magnet:?xt=urn:btih:E059A77079E2D5DE8DD7D111264E268AB5A530BC
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76324.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76324.jpgsave_picture_76324.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ magnet:?xt=urn:btih:345ED1A6B33F775DDAECE4757B83763BB068DBA4
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76327.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76327.jpgsave_picture_76327.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:944E405A25C7181D83D2D790C05D9FFC7F9AD95A
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76334.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76334.jpgsave_picture_76334.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ magnet:?xt=urn:btih:A0C342FE4FC90CB97D895A1E1B8957F90A80F6B3
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76341.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76341.jpgsave_picture_76341.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ magnet:?xt=urn:btih:2D9A8A135D43D4FFB1CDD1E1958CF88D82C36C16
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76346.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76346.jpgsave_picture_76346.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ magnet:?xt=urn:btih:2D9A8A135D43D4FFB1CDD1E1958CF88D82C36C16
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76350.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76350.jpgsave_picture_76350.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Sony Vegas Movie Studio HD 11.0.42 ML/Rus
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76355.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76355.jpgsave_picture_76355.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ Vegas Movie Studio HD – видеоредактор, включающий в с
 >>PS2
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76358.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76358.jpgsave_picture_76358.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ magnet:?xt=urn:btih:EB1165E7BFA9DD62F9F4D3B5B94F63EB9222D956
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76360.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76360.jpgsave_picture_76360.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Penthouse - приносит вам наши собственные обжига
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76363.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76363.jpgsave_picture_76363.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ magnet:?xt=urn:btih:CD425B9ACE05243BDE07AC694BA04AE11F1483D7
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76368.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76368.jpgsave_picture_76368.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ magnet:?xt=urn:btih:D92B562C6A8747350B6D71D019C5B14ACF407A0F
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76371.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76371.jpgsave_picture_76371.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ magnet:?xt=urn:btih:01BA43F4850AFA66D4A44324EEF9D3CEF993B56B
 >>Иностранные языки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76380.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76380.jpgsave_picture_76380.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ magnet:?xt=urn:btih:AB6624F53A017DE26EBF12DA793D7F936184C656
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76383.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76383.jpgsave_picture_76383.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ magnet:?xt=urn:btih:AB6624F53A017DE26EBF12DA793D7F936184C656
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76386.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76386.jpgsave_picture_76386.jpg" />
 </div>
 
 

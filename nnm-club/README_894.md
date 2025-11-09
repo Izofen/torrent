@@ -6,7 +6,7 @@ Urban Jungle (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23583.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23583.jpgsave_picture_23583.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Armored Core VI Fires of Rubicon (2023) [Ru/Multi] (1.08.1/dlc) Repack Wanterlud
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23584.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23584.jpgsave_picture_23584.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Need for Speed: Жажда скорости / Need for Speed (2014) WEB-DLRip [A
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23585.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23585.jpgsave_picture_23585.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Topaz Gigapixel AI Pro 8.3.3 RC [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23586.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23586.jpgsave_picture_23586.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Internet Download Manager 6.42 Build 28 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23587.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23587.jpgsave_picture_23587.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ ES File Explorer File Manager v4.4.2.22 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23588.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23588.jpgsave_picture_23588.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:AA22D2067C45782FC513D41A20F29179E6C944EF
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23589.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23589.jpgsave_picture_23589.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:BD5D41B7375435E90C3F7CBC20D48D08BB4382CB
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23590.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23590.jpgsave_picture_23590.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:0B5CA6C60A3C48E5CEB9752F1C8D13A1F39BD57A
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23591.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23591.jpgsave_picture_23591.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Autodesk AutoCAD 2026 [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23592.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23592.jpgsave_picture_23592.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Easy Red 2 (2020) [Ru/Multi] (1.5.0/dlc) Scene Tenoke
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23593.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23593.jpgsave_picture_23593.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ VA - Мелодии для успокоения и пробуждения мал
 >>Классика для мам и малышей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23594.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23594.jpgsave_picture_23594.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ magnet:?xt=urn:btih:F209DE8E614715A35F9B97265E64720CB2813F6C
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23595.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23595.jpgsave_picture_23595.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ magnet:?xt=urn:btih:F4EF7EEFE34B351A0F7C5D441541683BB97D6BB8
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23596.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23596.jpgsave_picture_23596.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ VA - Workout Motivation ( #GHouse Edition)[Mixed by Sergey Sychev] (2018-2025) [
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23597.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23597.jpgsave_picture_23597.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ magnet:?xt=urn:btih:D7A6A23E15951D8F6C8225650991B901B0AD5EFE
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23598.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23598.jpgsave_picture_23598.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ magnet:?xt=urn:btih:BC7BEFFA90A15A0742BFEC880AC59864E2476023
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23599.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23599.jpgsave_picture_23599.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ HEU KMS Activator 60.0.0 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23600.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23600.jpgsave_picture_23600.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ magnet:?xt=urn:btih:F4FCD88D336C76FA424921DAF5E2AB00F84A8BF9
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23601.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23601.jpgsave_picture_23601.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ magnet:?xt=urn:btih:615A6987E25687471EC68A9DD4E10591EEC5BCF3
 >>Компьютерные новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23602.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23602.jpgsave_picture_23602.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ ROBOBEAT (2024) [Ru/Multi] (1.3.10) Repack FitGirl [Deluxe Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23603.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23603.jpgsave_picture_23603.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ magnet:?xt=urn:btih:3B862F0E1FAC44AE9E925779AC13F72427CDD46A
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23604.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23604.jpgsave_picture_23604.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ magnet:?xt=urn:btih:C9491A4A204C31473B6E2542FFF326FF4B95CF42
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23605.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23605.jpgsave_picture_23605.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ MAGIX Vegas Pro 22.0 Build 239 (x64) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23606.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23606.jpgsave_picture_23606.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Youkai Gakkou no Sensei Hajimemashita! | A Terrified Teacher at Ghoul School! | 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23607.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23607.jpgsave_picture_23607.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ magnet:?xt=urn:btih:F2B0C8358E2B68A6BAF1F9B019AAE91EED546FED
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23608.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23608.jpgsave_picture_23608.jpg" />
 </div>
 
 

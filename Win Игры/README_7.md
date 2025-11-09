@@ -6,7 +6,7 @@ Daemon X Machina (2020) [Ru/Multi] (1.0.6/dlc) Repack Let'sРlay [Complete]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2238.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2238.jpgsave_picture_2238.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Formula Legends (2025) [Multi] (1.0) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2243.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2243.jpgsave_picture_2243.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ NODE: The Last Favor of the Antarii (2025) [Ru/Multi] (1.0.7) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2246.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2246.jpgsave_picture_2246.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ S.T.A.L.K.E.R.: Clear Sky (2008) [Ru/Multi] (1.10.0.26261) Repack Let'sРlay [En
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2248.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2248.jpgsave_picture_2248.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Shape of Dreams (2025) [Ru/Multi] (r.1.0.6.2_s) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2250.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2250.jpgsave_picture_2250.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Rising Lords (2020) [Multi] (1.3.5) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2259.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2259.jpgsave_picture_2259.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ The Precursors / Предтечи (2009) [Ru] (2.2) Repack Foxx [ReBuild]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2261.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2261.jpgsave_picture_2261.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ The Plucky Squire / Отважный паж (2024) [Ru/Multi] (1.50.18) Repack d
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2262.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2262.jpgsave_picture_2262.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Ammo and Oxygen (2025) [Ru/Multi] (1.2) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2263.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2263.jpgsave_picture_2263.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Stronghold Crusader: Definitive Edition (2025) [Ru/Multi] (1.05) Repack Let'sРl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2268.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2268.jpgsave_picture_2268.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ TerraScape (2024) [Ru/Multi] (1.2.0.8) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2269.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2269.jpgsave_picture_2269.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Terra Nil (2023) [Ru/Multi] (1.2.10) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2270.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2270.jpgsave_picture_2270.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Door Kickers 2: Task Force North (2025) [Ru/Multi] (1.12) Repack Let'sРlay
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2272.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2272.jpgsave_picture_2272.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Shadow Empire (2020) [En] (1.27.00/dlc) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2274.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2274.jpgsave_picture_2274.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Frostpunk 2 (2024) [Ru/Multi] (1.4.0-552065/dlc) Repack LetsPlay [Deluxe Edition
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2276.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2276.jpgsave_picture_2276.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Songs of Silence (2024) [Ru/Multi] (1.4.5-d.8740/dlc) Repack Let'sРlay [Support
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2277.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2277.jpgsave_picture_2277.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Jotunnslayer Hordes of Hel (2025) [Ru/Multi] (1.0.2.88095/dlc) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2279.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2279.jpgsave_picture_2279.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ The Mildew Children / Дети Плесени (2024) [Ru/Multi] (1.4.4) License 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2280.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2280.jpgsave_picture_2280.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ S.T.A.L.K.E.R.: Call of Prypiat (2010) [Ru/Multi] (1.10.0.26261) Repack Let'sРl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2282.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2282.jpgsave_picture_2282.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ RoadCraft (2025) [Ru/Multi] (4.0/dlc) Repack seleZen [Rebuild Edition]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2335.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2335.jpgsave_picture_2335.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Cat Quest (2017) [Ru/Multi] (1.2.10.2) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2355.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2355.jpgsave_picture_2355.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ X4: Foundations (2018) [Ru/Multi] (8.00/dlc) Repack FitGirl [Community of Planet
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2387.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2387.jpgsave_picture_2387.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Steel Division 2 (2019) [Ru/Multi] (165547/dlc) Repack FitGirl [Total Conflict E
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2389.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2389.jpgsave_picture_2389.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Jotunnslayer: Hordes of Hel (2025) [Ru/Multi] (1.0.0.87582) Repack FitGirl [Coll
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2398.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2398.jpgsave_picture_2398.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Cronos: The New Dawn (2025) [Ru/Multi] (20250908_2250-323631/dlc) Repack Other s
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2404.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2404.jpgsave_picture_2404.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ American Truck Simulator (2016) [Ru/Multi] (1.56.1.0s/dlc) Repack dixen18
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2416.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2416.jpgsave_picture_2416.jpg" />
 </div>
 
 

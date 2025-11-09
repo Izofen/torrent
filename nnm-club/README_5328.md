@@ -6,7 +6,7 @@ Adobe Photoshop 2020 21.0.2.57 x64 Lite Portable by punsh (with Plugins) [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165357.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165357.jpgsave_picture_165357.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Electric Sun - Earthquake (1979) [FLAC|24/192|image + .cue|Vinyl-Rip] <Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165358.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165358.jpgsave_picture_165358.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:EA8C75D52A4E3CE89DB5FF78902F2D5749B6C8CA
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165359.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165359.jpgsave_picture_165359.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:5B53521F6E30982D06F0F8BB7E47FE7BC048273D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165360.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165360.jpgsave_picture_165360.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:826EC20387709F6B446C0849B3BA750241C24ACD
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165361.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165361.jpgsave_picture_165361.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:97A8EE5BA57DB93BCC85778C9B3FCC62C85D699C
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165362.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165362.jpgsave_picture_165362.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:FE5D77DCE8EFD394F820CA275CEDDE38AF9588FF
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165363.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165363.jpgsave_picture_165363.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ Ecclesia - De Ecclesiae Universalis (2020) [MP3|320 Kbps] <Doom-Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165364.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165364.jpgsave_picture_165364.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ magnet:?xt=urn:btih:BA3AB9738857ED218CA93116D3A2621C5C7ACE7B
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165366.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165366.jpgsave_picture_165366.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ magnet:?xt=urn:btih:09E47307270D290A56B64F09F953FB46F9118DAA
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165367.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165367.jpgsave_picture_165367.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ magnet:?xt=urn:btih:E3AD9A63C62E6C728243C3511C83F99A779AC710
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165368.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165368.jpgsave_picture_165368.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ A Better Finder Rename 11 v11.55 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165369.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165369.jpgsave_picture_165369.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ Cleaner-App Pro 8.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165370.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165370.jpgsave_picture_165370.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ VA - Erotica, Vol. 5 (2020) [AAC|~314 Kbps] <Electronic, Chill Out, Lounge>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165371.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165371.jpgsave_picture_165371.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ magnet:?xt=urn:btih:41A27BD138EBF8FB675D43E04926E0D837E9AA8C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165372.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165372.jpgsave_picture_165372.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Jimmy Greene - While Looking Up (2020) Mack Avenue [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165373.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165373.jpgsave_picture_165373.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Integrity Pro 12.6.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165374.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165374.jpgsave_picture_165374.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ magnet:?xt=urn:btih:31679FA54019C3D7905EB1B973962ECF13FD7691
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165375.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165375.jpgsave_picture_165375.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ magnet:?xt=urn:btih:FC23322D17766691E5AA5B52E81A7EEF3290F5CC
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165376.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165376.jpgsave_picture_165376.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ Integrity Plus 12.6.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165377.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165377.jpgsave_picture_165377.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ magnet:?xt=urn:btih:2FBD013BBB6C475921993AABDFA328FAE9C39507
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165378.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165378.jpgsave_picture_165378.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ magnet:?xt=urn:btih:5C1FD09556B05F91176D6CA1A16250457E688F43
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165380.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165380.jpgsave_picture_165380.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ magnet:?xt=urn:btih:9DF58ED6F4E2E4DF449B51075D6B8BFECEB17A73
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165381.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165381.jpgsave_picture_165381.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ magnet:?xt=urn:btih:7E3786531BE4A5C359CAACED47B5A49560B9AB37
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165382.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165382.jpgsave_picture_165382.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ VA - Erotica, Vol. 1 (2014) [AAC|~326 Kbps] <Electronic, Chill Out, Lounge>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165383.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165383.jpgsave_picture_165383.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ magnet:?xt=urn:btih:720A87CCC4F78870BB7D9577176399D192DDED88
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165384.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165384.jpgsave_picture_165384.jpg" />
 </div>
 
 

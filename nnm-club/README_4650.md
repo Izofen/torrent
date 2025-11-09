@@ -6,7 +6,7 @@ VA - Best Of Disco House 2021 [Disco Balls Records] (2021) [MP3|320 Kbps] <Disco
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145559.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145559.jpgsave_picture_145559.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:568BEB7FCE892D136B07ED3611C8BE8B0D127D02
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145560.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145560.jpgsave_picture_145560.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:7432C48E3A06948C33A43E27E888FCFDA20220ED
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145561.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145561.jpgsave_picture_145561.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:7432C48E3A06948C33A43E27E888FCFDA20220ED
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145562.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145562.jpgsave_picture_145562.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:D2908195B35D72B609C60D603E205BD0E79FC8EF
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145564.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145564.jpgsave_picture_145564.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ Trans-Siberian Orchestra - The Ghosts of Christmas Eve (2016) The Complete Narra
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145565.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145565.jpgsave_picture_145565.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ Udemy, Clyde Matthew | *NEW* DOM 2020 Build Dynamic Websites with JavaScript Par
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145566.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145566.jpgsave_picture_145566.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ Wintersun - Wintersun (Japanese Edition) (2004) [FLAC|Lossless]<Epic Metal, Melo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145567.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145567.jpgsave_picture_145567.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Wintersun - Wintersun (Japanese Edition) (2004) [FLAC|Lossless]<Epic Metal, Melo
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145568.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145568.jpgsave_picture_145568.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ magnet:?xt=urn:btih:9CD03BFDEF9CECBD545831F73D09A95F7FCC3A86
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145569.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145569.jpgsave_picture_145569.jpg" />
 </div>
 
 
@@ -265,7 +265,7 @@ magnet:?xt=urn:btih:D1D7D0A15D75E5B564E4462DCDEFBD7AE9E8D901
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145570.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145570.jpgsave_picture_145570.jpg" />
 </div>
 
 
@@ -289,7 +289,7 @@ Tower Hunter: Erza's Trial (2019) [Ru/Multi] (2019.1.12) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145572.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145572.jpgsave_picture_145572.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ magnet:?xt=urn:btih:B30F9EB7BAF90CFC9CFE1630A59160600DB702BB
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145573.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145573.jpgsave_picture_145573.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ magnet:?xt=urn:btih:ACF9A6EB3796CB6A0E5B24451DD498F28C3978C2
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145574.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145574.jpgsave_picture_145574.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ Soft Organizer Pro 8.18 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145575.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145575.jpgsave_picture_145575.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ magnet:?xt=urn:btih:DA9BF87D684EFCA0876D84A77B2839E55D00A756
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145576.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145576.jpgsave_picture_145576.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Call of Duty: Black Ops (2010) [Ru] (0.305-05) Repack xatab [Collection Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145577.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145577.jpgsave_picture_145577.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ Parallels Desktop for Mac Business Edition 15.1.2 + Toolbox 3.7.0  [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145578.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145578.jpgsave_picture_145578.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ magnet:?xt=urn:btih:903FB40E28ED2B0D5CD98FB3E49FD0AB6A899171
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145580.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145580.jpgsave_picture_145580.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ VA - Space Odyssey: New Year's Voyage 2019 (2018) 2CD [FLAC|Lossless|WEB-DL|trac
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145581.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145581.jpgsave_picture_145581.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ RegCool 1.301 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145582.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145582.jpgsave_picture_145582.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Harvard Business Review | Как стать эффективным руково�
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145583.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145583.jpgsave_picture_145583.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Kerish Doctor 2020 4.80 [DC 01.10 upd 26.12.2020] RePack (& Portable) by elchupa
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145584.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145584.jpgsave_picture_145584.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Incubite - Collision Course (EP) (2012) [MP3|320 kbps] <Dark Electro / Industria
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145585.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145585.jpgsave_picture_145585.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ AnyDesk 3.0.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145587.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145587.jpgsave_picture_145587.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ magnet:?xt=urn:btih:4BE91FF6405F8DE5B647A2C79BFDB8F996B42F01
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145588.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145588.jpgsave_picture_145588.jpg" />
 </div>
 
 

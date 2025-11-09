@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188693.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188693.jpgsave_picture_188693.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:B6D46DF03B904337B7867137FA9ADBF5C9811E16
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188694.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188694.jpgsave_picture_188694.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:516D196365E2C541B77963196A70EDCEF7CE8324
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188695.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188695.jpgsave_picture_188695.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:516D196365E2C541B77963196A70EDCEF7CE8324
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188696.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188696.jpgsave_picture_188696.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Tavernacle! (2023) [Ru/Multi] (1.0.1) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188697.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188697.jpgsave_picture_188697.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:5145399FDD56A1BDF15FBD9DCDFECF751A7EDC3A
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188698.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188698.jpgsave_picture_188698.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Babok-school, Анна Вичугова | Разработка ТЗ на инф�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188699.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188699.jpgsave_picture_188699.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:88269D8B761E32E575AE3BDC0C2AAC5B49C4238E
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188700.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188700.jpgsave_picture_188700.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ Simple Sticky Notes 5.8.0.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188701.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188701.jpgsave_picture_188701.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ magnet:?xt=urn:btih:ABDD0B3BF68F64B7CDC353711E914CAD7D8F6C42
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188702.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188702.jpgsave_picture_188702.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Auslogics BoostSpeed 13.0.0.1 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188703.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188703.jpgsave_picture_188703.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ magnet:?xt=urn:btih:6D549BC627AC5BB01DCD8D3DD8969BF2F7250EE1
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188704.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188704.jpgsave_picture_188704.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ magnet:?xt=urn:btih:C928C21FCCB40A54C17A7030218F840C8D89CBF7
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188705.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188705.jpgsave_picture_188705.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ magnet:?xt=urn:btih:F4D096D7D00858AF4F9B2727A890226766165B51
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188706.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188706.jpgsave_picture_188706.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ magnet:?xt=urn:btih:66A4B602FFED025D138630D9B59B7CD788847769
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188707.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188707.jpgsave_picture_188707.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Antivirus Removal Tool 2022.11 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188709.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188709.jpgsave_picture_188709.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ magnet:?xt=urn:btih:C50BB830C9DBA956CADA9AC1E77A78831977D4D5
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188710.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188710.jpgsave_picture_188710.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ magnet:?xt=urn:btih:D4A7AE0643DA7E9246D726A7CB2F12393BA2BD0E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188711.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188711.jpgsave_picture_188711.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ magnet:?xt=urn:btih:D4A7AE0643DA7E9246D726A7CB2F12393BA2BD0E
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188712.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188712.jpgsave_picture_188712.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ magnet:?xt=urn:btih:6A41583E3B1130B3251FB13B9F3D8F4999C677DA
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188713.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188713.jpgsave_picture_188713.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ magnet:?xt=urn:btih:8F9B28B169DAD668A90BC9DDC0BD552098C1C1B5
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188714.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188714.jpgsave_picture_188714.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ iZotope - Neutron 4 4.5.0 VST 3, AAX (x64) RePack by R2R [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188715.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188715.jpgsave_picture_188715.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Prison City (2023) [Multi] (1.0) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188716.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188716.jpgsave_picture_188716.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ magnet:?xt=urn:btih:8FB8ABACB6F6B40103B2BD6C8E5836965106FB06
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188717.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188717.jpgsave_picture_188717.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Microsoft Visual Studio 2022 Enterprise 17.7.4 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188718.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188718.jpgsave_picture_188718.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ magnet:?xt=urn:btih:70EBD00A1C9D9820755C6655E6C408D5B11C350B
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188719.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188719.jpgsave_picture_188719.jpg" />
 </div>
 
 

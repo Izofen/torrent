@@ -6,7 +6,7 @@ VA - The Forest Chill Lounge, Vol. 11 (2017) [AAC|~313 Kbps] <Chillout, Lounge, 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173868.jpgsave_picture_173868.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:F3B54577E7C5B6A91B04EAAFBA94F5B690F016AF
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173869.jpgsave_picture_173869.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:AB4A706072A75219FD02CF3F46698E88AA51AB84
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173870.jpgsave_picture_173870.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ VA - Blues Sweet Sadness (2023) [MP3|320 Kbps] <Blues, Blues Rock>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173871.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173871.jpgsave_picture_173871.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Tarja Turunen - Best of: Living the Dream (2022) [FLAC|Lossless|WEB-DL|tracks] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_173872.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_173872.jpgsave_picture_173872.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ magnet:?xt=urn:btih:DD4A2F5E3F9C2E736D2551F21938ABAE2717386D
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173874.jpgsave_picture_173874.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ VA - Rave Party (2023) [MP3|320 Kbps] <Club, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173875.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173875.jpgsave_picture_173875.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ Half-Life 2 & Episode 1 & Episode 2 v1.7.4.5010 (2004-2007) [En/Ru] [macOS Nativ
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173876.jpgsave_picture_173876.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ magnet:?xt=urn:btih:DB2788E901E05A74ECB0EEB5686D827A2F5C9134
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_173877.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_173877.jpgsave_picture_173877.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ Edie Daponte - Young At Heart (2015) [FLAC|Lossless|image + .cue] <Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173878.jpgsave_picture_173878.jpg" />
 </div>
 
 
@@ -262,7 +262,7 @@ magnet:?xt=urn:btih:4003B9DC8ADA0C8DE1EF5DBA50DC355B829F5A1F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173880.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173880.jpgsave_picture_173880.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ magnet:?xt=urn:btih:11AEE353B56CF43519B1CB41E6A9FA6D1DAD7A5B
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173881.jpgsave_picture_173881.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ History Channel: Злой гений / Evil Genius (2016-2017) HDTVRip (8 сер
 >>History Channel
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173882.jpgsave_picture_173882.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ VA - Spacedance, Vol. 5 (2023) [FLAC|Lossless|WEB-DL|tracks] <Spacedance, Spaces
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173883.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173883.jpgsave_picture_173883.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ NAMO 1.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173884.jpgsave_picture_173884.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ Gene Krupa - Dejavu Retro: Gold Collection (1928-1963) 2CD /2002, Recording Arts
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173885.jpgsave_picture_173885.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ magnet:?xt=urn:btih:2A2C9E2E7A2623C56A221145494C304B17DC7869
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173887.jpgsave_picture_173887.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ Sproingg - Clam (2020) [MP3|320 Kbps] <Progressive Rock, Eclectic Prog, Instrume
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173888.jpgsave_picture_173888.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ magnet:?xt=urn:btih:B706889E84AB2932CDC0E66BDB4BAECDF75981DA
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173889.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173889.jpgsave_picture_173889.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ magnet:?xt=urn:btih:DFF50347A4EBEF4F6881530AD04D43986FC84D14
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_173890.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_173890.jpgsave_picture_173890.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ Apowersoft Screen Capture Pro 1.5.2.0 RePack (& Portable) by elchupacabra [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173892.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173892.jpgsave_picture_173892.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ VA - The Forest Chill Lounge, Vol. 9 (2016) [AAC|~323 Kbps] <Chillout, Lounge, D
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173893.jpgsave_picture_173893.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ magnet:?xt=urn:btih:BF0602DD2E7503D76CB1C67E65DA0EA2F2AF15CB
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173894.jpgsave_picture_173894.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ magnet:?xt=urn:btih:764026DFA8DFF863166199FD85012829F4A8FDCF
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_173895.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_173895.jpgsave_picture_173895.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Diablo Swing Orchestra - Swagger & Stroll Down the Rabbit Hole (2021) [FLAC|Loss
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173896.jpgsave_picture_173896.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ magnet:?xt=urn:btih:DC7A8000E0BFBF4F6AF76EFCD2AD70D721EA42A5
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_173897.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_173897.jpgsave_picture_173897.jpg" />
 </div>
 
 

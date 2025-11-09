@@ -6,7 +6,7 @@ Faded Remembrance - 2 Albums (2023-2024) [MP3|320 Kbps] <Gothic, Doom, Death-Met
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101460.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101460.jpgsave_picture_101460.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Pat Benatar - Gravity’s Rainbow (1993) CD, Album, Club Edition [FLAC|Lossless|
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101468.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101468.jpgsave_picture_101468.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Neon Rider - Destination Unknown (2024) [FLAC|Lossless|image + .cue] <Melodic Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101487.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101487.jpgsave_picture_101487.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Cory Marks - Sorry For Nothing (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101489.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101489.jpgsave_picture_101489.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Holler - Reborn (2024) [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101495.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101495.jpgsave_picture_101495.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ magnet:?xt=urn:btih:ACE78CEEDE7FF2D427296127112311FA01D183EB
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101511.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101511.jpgsave_picture_101511.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Fighter V - Heart Of The Young (2024) Japanese Edition [FLAC|Lossless|image + .c
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101516.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101516.jpgsave_picture_101516.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Fate - Reconnect 'n Ignite (2024) Japanese Edition [FLAC|Lossless|image + .cue] 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101517.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101517.jpgsave_picture_101517.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Scarred For Life - Scarred For Life (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard R
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101530.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101530.jpgsave_picture_101530.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:AB1E8CC8BE6FB3A41DA8DD0674A9D4C8B260C3CA
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101535.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101535.jpgsave_picture_101535.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Swallow The Sun - Shining (2024) [FLAC|Lossless|image + .cue] <Gothic, Doom Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101539.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101539.jpgsave_picture_101539.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Saltatio Mortis - Finsterwacht (Feuer und Erz Edition) (2024) [FLAC|Lossless|WEB
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101548.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101548.jpgsave_picture_101548.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Tarja - Rocking Heels: Live at Hellfest (2024) [FLAC|Lossless|WEB-DL|tracks] <Sy
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101558.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101558.jpgsave_picture_101558.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Skunk Anansie - Post Orgasmic Chill (25th Anniversary Expanded Edition) (1999) R
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101562.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101562.jpgsave_picture_101562.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Cat-X - Trapped State (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101566.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101566.jpgsave_picture_101566.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Impellitteri - War Machine (2024) 2 x CD, Japanese Edition, Deluxe Edition, Limi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101567.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101567.jpgsave_picture_101567.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Dance Gavin Dance - Pantheon (2025) [FLAC|Lossless|tracks + .cue] <Post-Hardcore
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101572.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101572.jpgsave_picture_101572.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Aversed - Erasure Of Color (2025) [FLAC|Lossless|image + .cue] <Melodic Death Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101625.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101625.jpgsave_picture_101625.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Hot Rod Frankie - Stitched together (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101711.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101711.jpgsave_picture_101711.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Mare Incognitum - Тени грехов (2025) [MP3|320 Kbps] <Doom Metal>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101713.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101713.jpgsave_picture_101713.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Ultra Raptor - Fossilized (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Speed Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101720.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101720.jpgsave_picture_101720.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Creedence Clearwater Revival - Bad Moon Rising: Shadows on the Bayou (2025) [FLA
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101729.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101729.jpgsave_picture_101729.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Moonspell - Alpha Noir / Omega White (2012) Limited Edition [MP3|320 кб/с]<Da
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101817.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101817.jpgsave_picture_101817.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Snow Patrol - Fallen Empires (2011) [MP3|320 кб/с]<Alternative>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102393.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102393.jpgsave_picture_102393.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ Mystery Blue - Night Demon (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102716.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102716.jpgsave_picture_102716.jpg" />
 </div>
 
 
@@ -684,7 +684,7 @@ White Tower - Night Hunters (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102717.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102717.jpgsave_picture_102717.jpg" />
 </div>
 
 

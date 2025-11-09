@@ -6,7 +6,7 @@ The Crowsroads - Spaceship (2024) [FLAC|Lossless|WEB-DL|tracks] <Folk, Blues, Ro
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121999.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121999.jpgsave_picture_121999.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Ruth Price - Sings With Johnny Smith (1956) 2002, Toshiba-EMI [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122000.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122000.jpgsave_picture_122000.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Lazarus Dream - Imaginary Life (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122001.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122001.jpgsave_picture_122001.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Richard Santos - Playing the Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122002.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122002.jpgsave_picture_122002.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Dred Buffalo - The Dark Age (2022) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Roc
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122003.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122003.jpgsave_picture_122003.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Wonderful Bluffer - Torn By Reflection (2024) [FLAC|Lossless|WEB-DL|tracks] <Pro
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122004.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122004.jpgsave_picture_122004.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Aasymar - Corona de Escamas (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Heav
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122005.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122005.jpgsave_picture_122005.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Master - Saints Dispelled (2024) [FLAC|Lossless|WEB-DL|tracks] <Death, Thrash Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122006.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122006.jpgsave_picture_122006.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Revolution Saints - Against The Winds (2024) [FLAC 24/44.1|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122007.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122007.jpgsave_picture_122007.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ ASP - Horrors  A Collection of Gothic Novellas (2023) [FLAC|Lossless|WEB-DL|trac
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122008.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122008.jpgsave_picture_122008.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:1FB57F361791B79823C50908845388CF78A2CF82
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122009.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122009.jpgsave_picture_122009.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Food For Fish - Ещё не старый (2024) [FLAC|Lossless|WEB-DL|tracks] <P
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122010.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122010.jpgsave_picture_122010.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Craig Soderberg - Are You OK?! (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122011.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122011.jpgsave_picture_122011.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Catfish John Tisdell - Sinkin' Down (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122012.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122012.jpgsave_picture_122012.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ CobraKill - Serpent’s Kiss (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122013.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122013.jpgsave_picture_122013.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Dolly Parton - Rockstar (Deluxe) (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122014.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122014.jpgsave_picture_122014.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ magnet:?xt=urn:btih:A7232AD7F8FFE72537ADB3F6E871CFAEBE87ED4C
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122015.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122015.jpgsave_picture_122015.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ magnet:?xt=urn:btih:33AB83C512E9DEE626B322E3236716E321B421C2
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122016.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122016.jpgsave_picture_122016.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ FanControl V179 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122017.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122017.jpgsave_picture_122017.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ VidCoder 9.18 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122018.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122018.jpgsave_picture_122018.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Beyond Compare 5 for Mac 5.0 beta [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122019.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122019.jpgsave_picture_122019.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ magnet:?xt=urn:btih:F6E8188F0A0948E245308CB8EFE9DF18805F0EA7
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122020.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122020.jpgsave_picture_122020.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ magnet:?xt=urn:btih:5D7E821CF22F035504DB0DA5749B2B5AAC525438
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122021.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122021.jpgsave_picture_122021.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Opera Crypto Browser 106.0.4998.52 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122022.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122022.jpgsave_picture_122022.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ magnet:?xt=urn:btih:0CE1E862BA1363D217E1071D939F28C6590834B6
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122023.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122023.jpgsave_picture_122023.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ magnet:?xt=urn:btih:F51C610F540E3C7A41C90BF85BC16E9DF86F78CC
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122024.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122024.jpgsave_picture_122024.jpg" />
 </div>
 
 

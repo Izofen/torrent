@@ -6,7 +6,7 @@ DxO PhotoLab Elite 5.5.0 build 4770 RePack by KpoJIuK [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235214.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235214.jpgsave_picture_235214.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:23A47D251827B777E1DCE2B0CFEE39EC5BCDC9A0
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235215.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235215.jpgsave_picture_235215.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Wardress - Metal 'Til The End (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235217.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235217.jpgsave_picture_235217.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ GoodNotes 5 v5.6.52 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235219.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235219.jpgsave_picture_235219.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:AAE948C9CB83216A238A507D75E60188025AC5E0
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235220.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235220.jpgsave_picture_235220.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:BBBFA98652C72EF84DD1ED6D5FE8ABB0C1E41064
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235222.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235222.jpgsave_picture_235222.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ Loengreen - Огненные цветы (2023) [FLAC|Lossless|WEB-DL|tracks] <Po
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235223.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235223.jpgsave_picture_235223.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ Dato 2.6.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235225.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235225.jpgsave_picture_235225.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ Black & White (2001) [Ru] [macOS WineSkin]
 >>Strategy, RPG для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235226.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235226.jpgsave_picture_235226.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ magnet:?xt=urn:btih:3A04D25DA793EB7694D453B451D5F1E137E1C6F7
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235229.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235229.jpgsave_picture_235229.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ XnViewMP 1.4.5 (x64) + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235230.jpgsave_picture_235230.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ magnet:?xt=urn:btih:E2FA08EDCDDC1D5611E4F88F69E62B650311E5BB
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235231.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235231.jpgsave_picture_235231.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ GarageSale 8 v8.3.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235232.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235232.jpgsave_picture_235232.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ magnet:?xt=urn:btih:7B2E9A074CDD0119D2E80875F667F6A9EC92A3BB
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235233.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235233.jpgsave_picture_235233.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Skype 8.97.0.404 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235234.jpgsave_picture_235234.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Frozen Tears - Mysterious Time (2000) [WavPack|Lossless|image + .cue] <Heavy Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235235.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235235.jpgsave_picture_235235.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ magnet:?xt=urn:btih:FF29C22CC82DD014CD481130A6A528996A6C3FFD
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235236.jpgsave_picture_235236.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ magnet:?xt=urn:btih:11C4D198494DEC7FB6CCFF2E892DFC037FDA6936
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235237.jpgsave_picture_235237.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Udemy, Дмитрий Читалов | Создаем Telegram бот - мага
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235238.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235238.jpgsave_picture_235238.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Permute 3 v3.6.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235239.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235239.jpgsave_picture_235239.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ VideoSolo Video Converter Ultimate 2.3.10 RePack (& Portable) by TryRooM [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235240.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235240.jpgsave_picture_235240.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ magnet:?xt=urn:btih:131AA029B15B53BB9D7437095F35A00630169092
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235241.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235241.jpgsave_picture_235241.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ Night Demon - Outsider (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235242.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235242.jpgsave_picture_235242.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ magnet:?xt=urn:btih:5F1DA2AA77798FF47979E6F74B91FC89C2DE7D9F
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235243.jpgsave_picture_235243.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ Topaz Video AI 3.2.5 (x64) Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235244.jpgsave_picture_235244.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ magnet:?xt=urn:btih:4FAAAC498505F13835F13FA26B23F29688ADD31D
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235245.jpgsave_picture_235245.jpg" />
 </div>
 
 

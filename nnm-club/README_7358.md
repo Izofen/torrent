@@ -6,7 +6,7 @@ Syberia - Remastered (2025) [Ru/Multi] (Build 20668622) Repack Other s
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_251799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251799.jpgsave_picture_251799.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:F86766D85D2A2A5BCFCBC2B0ED8DD95EC766C479
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_251800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251800.jpgsave_picture_251800.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ PDF-XChange PRO 10.7.5.403 RePack by KpoJIuK [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_251801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251801.jpgsave_picture_251801.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:8172E8C735759662D3B34D26D6F6E7A2EBA45B65
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_251802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251802.jpgsave_picture_251802.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Artista Impresso v1.3.58 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_251803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251803.jpgsave_picture_251803.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:7ABDC19EF6C58B060403E4FE4D695E8B1F8C72D3
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_251804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251804.jpgsave_picture_251804.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:7ABDC19EF6C58B060403E4FE4D695E8B1F8C72D3
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_251805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251805.jpgsave_picture_251805.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:445950F491749F962BCD32152D25BB36A9E3CB4C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_251806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251806.jpgsave_picture_251806.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:81DBC74968961FB2B09100673461D8FF267FA7CF
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_251807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251807.jpgsave_picture_251807.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:92CF7D4F5A354250C1E3D9AF14FC673D8D1F32DB
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_251808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251808.jpgsave_picture_251808.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ magnet:?xt=urn:btih:424501B8B5D5AA754E85049409FCBF8450CE2A01
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_251809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251809.jpgsave_picture_251809.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ magnet:?xt=urn:btih:1E30E7C741D600B79A0E1AE79A31B846FEB1D98E
 >>Новости P2P, Копирайт, Блокировки, Цензура
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_251810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251810.jpgsave_picture_251810.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Skillbox, Е. Брызгалина, А. Кузнецов, Н. Клюева | Ф�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_251811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251811.jpgsave_picture_251811.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Dmitry Spirin (ex-Тараканы) - Live in Belgrade (2025) [MP3|320 Kbps] <Ro
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_251812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251812.jpgsave_picture_251812.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Vectorworks 2025 Update 7 (Build 828783) [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_251813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251813.jpgsave_picture_251813.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ God of War (2022) [Ru/En] (1.0.13 Build 11168363) Repack Other s
 >>26
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_251814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251814.jpgsave_picture_251814.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ magnet:?xt=urn:btih:8A33C0DAF4CE048C7956327B55D6330069A147F2
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_251815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251815.jpgsave_picture_251815.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ magnet:?xt=urn:btih:798184436F94B41D4BA7E52102D04464C4F9F03F
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_251816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251816.jpgsave_picture_251816.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ Windows 11 22H2 Professional [22621.1702] Mod 8 (10.05.2023) by bulygin-dima [Ru
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_251817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251817.jpgsave_picture_251817.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ magnet:?xt=urn:btih:D5A9FD3A2BE1C5555641890F421B0FA16BF80B94
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_251818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251818.jpgsave_picture_251818.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:775BF8F78B3F163394AEDFD24A6D9A238FFD4E58
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_251819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251819.jpgsave_picture_251819.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ magnet:?xt=urn:btih:DC5F21F800175BD1CC374C6A522C6F7FDB5DE3F7
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_251820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251820.jpgsave_picture_251820.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ magnet:?xt=urn:btih:9EFD88D4ACDEBAD82ECAF1E82E3AD7E84924448E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_251821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251821.jpgsave_picture_251821.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ magnet:?xt=urn:btih:9218253522C81237F9CD5B3E009E6A5F2F0B5B45
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_251822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251822.jpgsave_picture_251822.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ magnet:?xt=urn:btih:F4C4F9C6E14D40C47E5F9324A9041B00B05DFFBE
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_251823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251823.jpgsave_picture_251823.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Astra Linux Special Edition 1.7.4 [amd64] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_251824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251824.jpgsave_picture_251824.jpg" />
 </div>
 
 

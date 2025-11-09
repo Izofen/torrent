@@ -6,7 +6,7 @@ Display Driver Uninstaller 15.7.2.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158219.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158219.jpgsave_picture_158219.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:8E6585F6CF173BE0BB27000B4464C61621819E2F
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158220.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158220.jpgsave_picture_158220.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:EC9FD3092DBCDC6AAC7ABDDC3B37427B0421DC76
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158221.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158221.jpgsave_picture_158221.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:4E35ED07B93F11FA4991807D6B01AA72F6B810FE
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158222.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158222.jpgsave_picture_158222.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ David Arkenstone - Native Dreams (2015) [MP3|320 кб/с] <Native american, Ethn
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158223.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158223.jpgsave_picture_158223.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:74120E850B00DAAECF2958497499CBCA4B5FB72C
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158224.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158224.jpgsave_picture_158224.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ Bon Jovi - Crush (2000) [FLAC|Lossless|tracks + .cue] <Pop Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158225.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158225.jpgsave_picture_158225.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ CoolUtils Total Image Converter 5.1.100 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158226.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158226.jpgsave_picture_158226.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:23430684E39DD1788F9FEBE0423E6779B24DD96A
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158227.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158227.jpgsave_picture_158227.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ magnet:?xt=urn:btih:11DB0A6FE7457A974EB2E22A561D9B73F164E69C
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158229.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158229.jpgsave_picture_158229.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ Phantasmat 5: Behind The Mask (2015) [En] Unofficial [Collector's Edition / Ко
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158230.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158230.jpgsave_picture_158230.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ Enigma Dubz - The Journey So Far/Part One (2015) [FLAC|Lossless|WEB-DL|tracks] <
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158231.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158231.jpgsave_picture_158231.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ Nemo & Jaymon - Wanderings (2015) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Dub Te
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158232.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158232.jpgsave_picture_158232.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ magnet:?xt=urn:btih:F0F445A093AD8AA31E4870942426DF43A7FB36C2
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158233.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158233.jpgsave_picture_158233.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Ennio Morricone - The Man And His Music (2002) 2CD, 2005, Warner Classics [MP3|3
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158234.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158234.jpgsave_picture_158234.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Christmas Stories 4: Puss in Boots (2015) [En] Unofficial [Collector's Edition /
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158235.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158235.jpgsave_picture_158235.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ magnet:?xt=urn:btih:DFA417895F99F0916B818FB98CE88DA2CD91446F
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158236.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158236.jpgsave_picture_158236.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ magnet:?xt=urn:btih:CEC94D7C9BF4B9D777B49945270E27DA2376BF0B
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158237.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158237.jpgsave_picture_158237.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ magnet:?xt=urn:btih:AF3E529E6BA9761FF8D984492D197C6003ABB76F
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158238.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158238.jpgsave_picture_158238.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ magnet:?xt=urn:btih:2438FE339E7C08CBB5A4AE78BA51DD401C108AEA
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158239.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158239.jpgsave_picture_158239.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ magnet:?xt=urn:btih:D3D2753C8C5DEE52FAFAD5257F926664F2194321
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158240.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158240.jpgsave_picture_158240.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Elvis Presley - Elvis 56 (1996) Compilation, Remastered [FLAC|Lossless|tracks + 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158241.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158241.jpgsave_picture_158241.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ magnet:?xt=urn:btih:88098D7637002AEF00C7C2B0B15C99A3658FCE38
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158242.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158242.jpgsave_picture_158242.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ magnet:?xt=urn:btih:42CFE81D941AFE9AB40BF2FEF0FDFFE8BB05D47E
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158243.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158243.jpgsave_picture_158243.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ magnet:?xt=urn:btih:0823B34F4FEB7F8564C69D295FC55E95F5E03056
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158244.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158244.jpgsave_picture_158244.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ VA - The Silence Was Warm, Vol. 2 (2008) [FLAC|Lossless|tracks + .cue] <Ambient,
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158245.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158245.jpgsave_picture_158245.jpg" />
 </div>
 
 

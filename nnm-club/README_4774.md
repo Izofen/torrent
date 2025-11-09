@@ -6,7 +6,7 @@
 >>Детские (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149398.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149398.jpgsave_picture_149398.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:8EDF87B7C78A2BE11FE8CE29482FB810735C088E
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149399.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149399.jpgsave_picture_149399.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:2CC342EC572E9127299EEEF9A2446A2F2737765D
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149401.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149401.jpgsave_picture_149401.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ VA - Hit News Vol. 10 (1995) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Ital
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149402.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149402.jpgsave_picture_149402.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:2F1E2307261FE56DB0F3BC20655D17FBB08F113E
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149404.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149404.jpgsave_picture_149404.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Andy Lindquist - Stone in the Blood (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149405.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149405.jpgsave_picture_149405.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:1EBD0A36FD4832E9B357BA354A700F8E70ADD0BA
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149406.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149406.jpgsave_picture_149406.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ magnet:?xt=urn:btih:ED885CDA70FAC5468E7B4F79AA3B08BD87AFCFBE
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149407.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149407.jpgsave_picture_149407.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Wondershare Filmora Х v10.7.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149409.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149409.jpgsave_picture_149409.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ VA - Euphoric Emotions 2012 (New Year's Eve Special) (2012) [MP3|320 кб/с]<Tr
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149410.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149410.jpgsave_picture_149410.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ magnet:?xt=urn:btih:B357A91D2C70ACCB020B0D519CCFF0528FC756F9
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149411.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149411.jpgsave_picture_149411.jpg" />
 </div>
 
 
@@ -290,7 +290,7 @@ magnet:?xt=urn:btih:938DB9F08AB50FD207732A44201BFE32ED6AB5F2
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149412.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149412.jpgsave_picture_149412.jpg" />
 </div>
 
 
@@ -314,7 +314,7 @@ Symphony of Unity - Live @ Atmosphere Stage, Tomorrowland, Belgium (2023-07-29) 
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149413.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149413.jpgsave_picture_149413.jpg" />
 </div>
 
 
@@ -341,7 +341,7 @@ magnet:?xt=urn:btih:1822EC4997EC58B910FC45694CF2222F7C66EE04
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149414.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149414.jpgsave_picture_149414.jpg" />
 </div>
 
 
@@ -365,7 +365,7 @@ magnet:?xt=urn:btih:C5C5E1E27956F0FAD75DA1736D77874989999B65
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149415.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149415.jpgsave_picture_149415.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ magnet:?xt=urn:btih:29DE8EF8E3102850B54C93D92A11FC11967D64B3
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149416.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149416.jpgsave_picture_149416.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ magnet:?xt=urn:btih:CC845B06248BBAC78F1224BCCFEC8D4D98EFD5E4
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149417.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149417.jpgsave_picture_149417.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ VueScan Pro 9.7.38 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149418.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149418.jpgsave_picture_149418.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ magnet:?xt=urn:btih:FDEAA3B73D09607E90A81B8D2CF9A9FB3C7C6D59
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149419.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149419.jpgsave_picture_149419.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ Morgan Giosa - Feelin' Fine Today (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149420.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149420.jpgsave_picture_149420.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ magnet:?xt=urn:btih:2B78681B297675E52C07670174873E8938591C9F
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149423.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149423.jpgsave_picture_149423.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ magnet:?xt=urn:btih:5897FA353AA8FB922DAFC0C9439C24B007F19E5B
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149424.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149424.jpgsave_picture_149424.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ magnet:?xt=urn:btih:C44CFFBC2ACE07699AEA3316985CFC03A3AF16B4
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149425.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149425.jpgsave_picture_149425.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ magnet:?xt=urn:btih:966FC75A866D193D86B0BD12DB05EBF6DA0C476E
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149426.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149426.jpgsave_picture_149426.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Bon Jovi - Have A Nice Day (2005) [FLAC|Lossless|tracks + .cue] <Pop Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149427.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149427.jpgsave_picture_149427.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ magnet:?xt=urn:btih:B827FEED63FAE47AE1DC2B090720C12E7556ABF9
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149429.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149429.jpgsave_picture_149429.jpg" />
 </div>
 
 

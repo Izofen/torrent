@@ -6,7 +6,7 @@
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_196640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196640.jpgsave_picture_196640.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Jimmy Barnes - 23 Albums (1984 - 2022) 33 CD [FLAC|Lossless|image + .cue|tracks 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_196641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196641.jpgsave_picture_196641.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Birdie Wing: Golf Girls' Story (2023) | История гольфисток [Т�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_196642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196642.jpgsave_picture_196642.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:7E51C9D0E2D98C7E8AEE5C79973C642E882DC3E6
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_196643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196643.jpgsave_picture_196643.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Yakuza Kiwami 2 (2019) [Multi] (1.004a/dlc) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196644.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196644.jpgsave_picture_196644.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:253EF4DF246D0942B5B4D0589BDFCA10D7FA5219
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196645.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196645.jpgsave_picture_196645.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Yakuza 3 Remastered (2021) [Multi] (1.005a) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196646.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196646.jpgsave_picture_196646.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Kaspersky Plus Web installer 21.13.5.506 [Ru]
 >>Комплексные системы защиты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196647.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196647.jpgsave_picture_196647.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:4A2FF4DC03EA498B595A2125658ED8ED8A2A0D5E
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196648.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196648.jpgsave_picture_196648.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:F2E5B497837D5A5993589741192825EFC4D87DAC
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196649.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196649.jpgsave_picture_196649.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:89B6E4DA8A24803FA47D7747F744A1ED9A2B71D3
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196650.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196650.jpgsave_picture_196650.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:AC85F2058687065C89F91BE399262E0B66C36A5D
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196651.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196651.jpgsave_picture_196651.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:E137E6CF0F5385CF1B31915878A15E5887F1C85A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196652.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196652.jpgsave_picture_196652.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ magnet:?xt=urn:btih:657FB391A68361DD9D895FF7ACB1471F92A70490
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196653.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196653.jpgsave_picture_196653.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ magnet:?xt=urn:btih:F7E68791396D941128CD86F462D1BF30DAC15C77
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196654.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196654.jpgsave_picture_196654.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ Adobe Media Encoder 2023 23.5.0.51 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196655.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196655.jpgsave_picture_196655.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ magnet:?xt=urn:btih:A857DC2069F8E02E1D0B755D7593EF251CD65FC5
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196656.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196656.jpgsave_picture_196656.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ magnet:?xt=urn:btih:A6AA3A59567FD85C0DE5E944F4497A973793B866
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196657.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196657.jpgsave_picture_196657.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ magnet:?xt=urn:btih:18D198FE3013D34DE91181ED112706CE24023AEE
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196658.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196658.jpgsave_picture_196658.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ magnet:?xt=urn:btih:66DF5670BFF0752764D6A5F00639565CE07D33F0
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_196659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196659.jpgsave_picture_196659.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Yakuza 4 Remastered (2021) [Multi] (1.003a) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196660.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196660.jpgsave_picture_196660.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ magnet:?xt=urn:btih:44C681C14B025CA8DC68F776DB0C9849EB907C2E
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196661.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196661.jpgsave_picture_196661.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Adobe Audition 2023 23.5.0.48 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196662.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196662.jpgsave_picture_196662.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ magnet:?xt=urn:btih:28DCC08D02A0DBF2BF9AD6C2B1C503064C60BABC
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196663.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196663.jpgsave_picture_196663.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ magnet:?xt=urn:btih:A8B52BDDE8F90DA1E9B4849CC4DC86D436604905
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196664.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196664.jpgsave_picture_196664.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ magnet:?xt=urn:btih:857114FBFBBE68F34082F2609F0D497C8B73CF6C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196665.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196665.jpgsave_picture_196665.jpg" />
 </div>
 
 

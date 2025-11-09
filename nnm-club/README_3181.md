@@ -6,7 +6,7 @@ The San Pedro Allstars feat. Reed Turchi, Austin White, Marlon Patton & Eric Bur
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103044.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103044.jpgsave_picture_103044.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Wako - Evig liv, perfekt orden (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Conte
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103045.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103045.jpgsave_picture_103045.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Marco Grompi & Michele Fortis - WINTERFLOWERS (2024) [FLAC 24/44.1|Lossless|WEB-
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103046.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103046.jpgsave_picture_103046.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Accuser - Rebirthless (2024) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103047.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103047.jpgsave_picture_103047.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Juan Raul Rosero - Everything is Possible (2024) [FLAC 24/44.1|Lossless|WEB-DL|t
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103048.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103048.jpgsave_picture_103048.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ magnet:?xt=urn:btih:E9DDC0DD71B609B6221C27DB8B91B54F9C85113A
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103049.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103049.jpgsave_picture_103049.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Sylvaine - Silent Chamber, Noisy Heart (2014) Remasteredб 2024, Eisenwald [FLAC
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103050.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103050.jpgsave_picture_103050.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Suat Ernur Bilge - Troubled Sadness (2024) [FLAC 24/192|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103051.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103051.jpgsave_picture_103051.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Eve 6 - It’s All in Your Head (2003) [FLAC|Lossless|tracks + .cue] <Rock, Alte
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103052.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103052.jpgsave_picture_103052.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ About Us - Take A Piece (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103053.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103053.jpgsave_picture_103053.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Infanticide - Extinction Scheme (2007) [FLAC|Lossless|image + .cue] <Grindcore>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103054.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103054.jpgsave_picture_103054.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Nile - The Underworld Awaits Us All (2024) [FLAC|Lossless|image + .cue] <Brutal,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103055.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103055.jpgsave_picture_103055.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Lordi - Made Of Metal (Single) (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103056.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103056.jpgsave_picture_103056.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Wes Jeans - One Day at a Time (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103057.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103057.jpgsave_picture_103057.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Rauw Alejandro - Cosa Nuestra (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop, R
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103058.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103058.jpgsave_picture_103058.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ J. Boss Blues Band - White Cats Play The Blues (2024) [FLAC 24/48|Lossless|WEB-D
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103059.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103059.jpgsave_picture_103059.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ Joe Grushecky & The Houserockers - Can't Outrun A Memory (2024) [FLAC 24/48|Loss
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103060.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103060.jpgsave_picture_103060.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ magnet:?xt=urn:btih:14F74BB02B0F9B43A68BE9B309D8997566EAC732
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103061.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103061.jpgsave_picture_103061.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ Kreator - Live in Chile (April 2023) (2024) [FLAC|Lossless|WEB-DL|tracks] <Thras
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103062.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103062.jpgsave_picture_103062.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Mystyc Blade - The Master Is Inside (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy-
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103063.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103063.jpgsave_picture_103063.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Dreamscapes - Lost and Found (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103064.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103064.jpgsave_picture_103064.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Kreator - Live in Chile (April 2023) (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103065.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103065.jpgsave_picture_103065.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Ernesto J. Ponce - In-Between Times (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103066.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103066.jpgsave_picture_103066.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Stan Getz - The Complete 1952-1954 Small Group Sessions, Vol.2 (1953) Blue Moon 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103067.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103067.jpgsave_picture_103067.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Marian McPartland Trio - Live At Shanghai Jazz (2002) [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103068.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103068.jpgsave_picture_103068.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ magnet:?xt=urn:btih:1DE94B832CF9015BB09C7FDFD9F4025A4E75C62F
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103069.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103069.jpgsave_picture_103069.jpg" />
 </div>
 
 

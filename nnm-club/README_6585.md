@@ -6,7 +6,7 @@
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210997.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210997.jpgsave_picture_210997.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ VA - Rock Ladies (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210999.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210999.jpgsave_picture_210999.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:5209B9327DDDD2E98229D4917C7AA06C496BEE71
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211002.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211002.jpgsave_picture_211002.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Sketch 97.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211004.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211004.jpgsave_picture_211004.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Advanced SystemCare Pro 16.4.0.226 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211008.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211008.jpgsave_picture_211008.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ MyTones - Ultimate ACDC Tones (2023) [MP3|320 Kbps] <Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211009.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211009.jpgsave_picture_211009.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:B2F135A63809375E7CE61C9696D22CE012CA4FF9
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211012.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211012.jpgsave_picture_211012.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Ultraman Final | Ультрамен 3 [2023, ONA, 12 эп.] WebRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211015.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211015.jpgsave_picture_211015.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:4EA9AF404FA5EF89CEE5408621BAB3DC04F6184F
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211016.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211016.jpgsave_picture_211016.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ CPUID HWMonitor Pro 1.52.0 (x64) Portable by FC Portables [En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211018.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211018.jpgsave_picture_211018.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Microsoft Windows 11 [10.0.22000.2057], Version 21H2 (Updated June 2023) - Ор�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211020.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211020.jpgsave_picture_211020.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:F5F128458EEEFD3C7804201E0BBBC92AF1A54095
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211023.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211023.jpgsave_picture_211023.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:943854AF0071FD6586DABD39AB37D41D1B251A0A
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211025.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211025.jpgsave_picture_211025.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ VA - MyTones - Heavy Metal Ringtones (2023) [MP3|320 Kbps] <Rock, Hard Rock, Met
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211027.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211027.jpgsave_picture_211027.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Topaz Photo AI 1.3.9 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211030.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211030.jpgsave_picture_211030.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ NeverHome - Hall of Apathy (2023) [En] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211031.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211031.jpgsave_picture_211031.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ magnet:?xt=urn:btih:ADCAE19CB3C9748F7C52E3A569586F261A5C65AF
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211032.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211032.jpgsave_picture_211032.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Eguana - My Black World (2023) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Chillout,
 >>Psybient, Psychill, Psydub (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211035.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211035.jpgsave_picture_211035.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ magnet:?xt=urn:btih:20AAE4E18210AF5C3A7C77ECA99E2E835B79608C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211036.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211036.jpgsave_picture_211036.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ magnet:?xt=urn:btih:E8C5391A3C6223E7491446891AA591EC800B9DDB
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211037.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211037.jpgsave_picture_211037.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ magnet:?xt=urn:btih:3F4CE0F1839C189112FE4703CDF38B9C0782FE81
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211040.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211040.jpgsave_picture_211040.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ macOS 14 Sonoma Beta 1 (Installer) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211042.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211042.jpgsave_picture_211042.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ magnet:?xt=urn:btih:6AD552FDEBBB59C91814D745DBA83EB192C7D241
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211044.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211044.jpgsave_picture_211044.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Topaz Photo AI 1.3.9 (x64) RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211047.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211047.jpgsave_picture_211047.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ TreeSize Professional 9.0.0.1822 (x64) RePack (& Portable) by elchupacabra [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211048.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211048.jpgsave_picture_211048.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ magnet:?xt=urn:btih:FD268B61DF5D7C2BAC1650517D2930AA0CF616BF
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211050.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211050.jpgsave_picture_211050.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_228877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228877.jpgsave_picture_228877.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Steve Shanholtzer - Blues That You Choose (2021) [FLAC|Lossless|WEB-DL|tracks] <
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_228878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228878.jpgsave_picture_228878.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:7CA218BE643FABF9EF87E45B23763C140EA0CEA4
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_228879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228879.jpgsave_picture_228879.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ magnet:?xt=urn:btih:45BB353765A0E164524BFEB5CC8B9ACFFD5C8217
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_228880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228880.jpgsave_picture_228880.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ GiliSoft Audio Recorder Pro 8.5.0 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_228882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228882.jpgsave_picture_228882.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:999CD7F4195B2DB01C484BA06DD01B196F4B4CC2
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_228883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228883.jpgsave_picture_228883.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:667DC4B47868E758263E8B470D44AE479E2FEC5E
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_228884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228884.jpgsave_picture_228884.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:99E910A31BD262FDB86FFEBF7A6A52425AB93653
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228885.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228885.jpgsave_picture_228885.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:C7EC0BC340B6ADF5FDA50BCEE689713E7EDEECDE
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_228886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228886.jpgsave_picture_228886.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:4433C00594611D50E7F046EAA9FC521E8099501B
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_228887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228887.jpgsave_picture_228887.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:A955FF9F3A5F2A1C4E215563624F4AD2DEB27308
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_228888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228888.jpgsave_picture_228888.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:DF9299F774ACA7810E734D9592942464613B7336
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_228889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228889.jpgsave_picture_228889.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Active@ Disk Image Professional 9.1.4 [Multi/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_228891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228891.jpgsave_picture_228891.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Cyberduck 8.1.0 Build 36410 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_228892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228892.jpgsave_picture_228892.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Healer Girl | Девушка-целитель [2022, TV, 12 из 12] BDRip 1080p
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_228893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228893.jpgsave_picture_228893.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Bad Boys Blue - Around the World (2020) [FLAC|Lossless|WEB-DL|tracks] <Euro-Disc
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_228894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228894.jpgsave_picture_228894.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ magnet:?xt=urn:btih:D1F44FC888600538B01B13309D0C102156B41FD5
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228896.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228896.jpgsave_picture_228896.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ magnet:?xt=urn:btih:A90D21F17ECEBBD6DD4AE1F2427951C1D3E7D3D0
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_228897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228897.jpgsave_picture_228897.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ magnet:?xt=urn:btih:61FF36518AC82D57A951B6D82259F07B6118DE51
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_228898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228898.jpgsave_picture_228898.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ ZZ Top - Live At Montreux 2013 (2014) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_228900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228900.jpgsave_picture_228900.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ magnet:?xt=urn:btih:62DAF2787C5233D8A06BA67F95B28E81E705007E
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_228901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228901.jpgsave_picture_228901.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ magnet:?xt=urn:btih:0A1A5738E938D1E3325584A797293EFD6BE83C67
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_228902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228902.jpgsave_picture_228902.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Queensryche - Digital Noise Alliance (2022) [FLAC|Lossless|image + .cue] <Progre
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_228903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228903.jpgsave_picture_228903.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ magnet:?xt=urn:btih:06ED90A0B59A8A2AD5FB324E50A98A57603624F9
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_228905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228905.jpgsave_picture_228905.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ ApeakSoft iOS Toolkit 1.0.80 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_228906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228906.jpgsave_picture_228906.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Convert Monster | Идеальный Landing Page, Яндекс.Директ, Go
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_228907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228907.jpgsave_picture_228907.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Nocturnal Abbey - The great blackened swan (2023) [FLAC 24/44.1|Lossless|WEB-DL|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179032.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179032.jpgsave_picture_179032.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Steeler - Rulin' The Earth (1985) [FLAC|24/96|image + .cue|Vinyl-Rip] <Heavy Met
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179036.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179036.jpgsave_picture_179036.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Steeler - Undercover Animal (1988) [WavPack|24/192|image + .cue|Vinyl-Rip] <Heav
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179060.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179060.jpgsave_picture_179060.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Steeler - Strike Back (1986) [FLAC|24/192|image + .cue|Vinyl-Rip] <Heavy Metal>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179068.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179068.jpgsave_picture_179068.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ VA - Superior Audiophile (2022) Japanese Edition [DSD64 2.0|1bit/2822,4kHz |SACD
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179548.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179548.jpgsave_picture_179548.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Mago De Oz - Ira Dei (2019) [FLAC|24/192|image + .cue|Vinyl-Rip] <Celtic, Folk, 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179676.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179676.jpgsave_picture_179676.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ October Falls - The Plague of a Coming Age (2013) [FLAC|24/192|image + .cue|Viny
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179695.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179695.jpgsave_picture_179695.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Dua Lipa - Future Nostalgia (The Moonlight Edition) (2021) hand made [restored, 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180013.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180013.jpgsave_picture_180013.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Kylie Minogue - Tension (2023) hand made [restored, declipped] [FLAC|Lossless|tr
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180116.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180116.jpgsave_picture_180116.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Kylie Minogue - Tension (2023) Deluxe [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Dan
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180178.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180178.jpgsave_picture_180178.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Benassi Bros. feat. Dhany - Hit My Heart (2004) hand made [restored, declipped] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180228.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180228.jpgsave_picture_180228.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Wolf - Studio Albums (9 releases) (2000-2022) hand made [restored, declipped] [F
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_180248.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_180248.jpgsave_picture_180248.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Benassi Bros. feat. Dhany - Every single day (2005) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180259.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180259.jpgsave_picture_180259.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ YqpY - Near (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock, Electronic>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180285.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180285.jpgsave_picture_180285.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ SHeDaisy - Whole SHebang (2003) [DTS-ES Discrete 6.1 CD-DA|44.1/16|image+.cue|DV
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180353.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180353.jpgsave_picture_180353.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Angry at the World - Angry at the World (2023) [FLAC 24/44.1|Lossless|WEB-DL|tra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180360.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180360.jpgsave_picture_180360.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ October Falls - The Womb of Primordial Nature (2008) [FLAC|24/192|image + .cue|V
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_180368.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_180368.jpgsave_picture_180368.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Till The Dirt - Outside The Spiral (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <D
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180373.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180373.jpgsave_picture_180373.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Creed (Tremonti, Scott Stapp) - Studio Albums (4 releases) (1997-2009) hand made
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180375.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180375.jpgsave_picture_180375.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ magnet:?xt=urn:btih:033080AE11A8FAB841BABB0F6D12C6BB5E892E6D
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180623.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180623.jpgsave_picture_180623.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ Warwolf - The Apocalyptic Waltz (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <He
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180753.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180753.jpgsave_picture_180753.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Diablo (Diablo Brothers) - Studio Albums (8 releases) (2000-2022) hand made [res
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180860.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180860.jpgsave_picture_180860.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ October Falls - Marras (2005) [FLAC|24/192|image + .cue|Vinyl-Rip]<Atmospheric B
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180956.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180956.jpgsave_picture_180956.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ Smokie - Ансамбль «Смоуки» (1980) Reissue, Licensed From – EMI
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181262.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181262.jpgsave_picture_181262.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ Orbital - Optical Delusion (2023) Deluxe Edition [FLAC 24/44.1|Lossless|WEB-DL|t
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181438.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181438.jpgsave_picture_181438.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ Nina & Ricky Wilde - Scala Hearts (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181450.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181450.jpgsave_picture_181450.jpg" />
 </div>
 
 

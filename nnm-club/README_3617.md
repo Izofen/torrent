@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114417.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114417.jpgsave_picture_114417.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:0A5240033576EF55521FEF9A5766018B995C87E1
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114418.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114418.jpgsave_picture_114418.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:F77C7464094587E6B64B1E131C2078BC87467EC1
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114419.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114419.jpgsave_picture_114419.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ SysAdmin Software Portable v.0.6.5.0 by rezorustavi (Update 04.03.2024) [Ru] (а
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114420.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114420.jpgsave_picture_114420.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Paste 4 for Mac 4.2.1 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114421.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114421.jpgsave_picture_114421.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:150956839ADCD42AAE4098F981A446FF61026EF8
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114422.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114422.jpgsave_picture_114422.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:81604E8A6F82678C17314CCD9885AB6986177476
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114423.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114423.jpgsave_picture_114423.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:0D8D0D7C37AA9F88EEA12578374BF779C1BE2706
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114424.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114424.jpgsave_picture_114424.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:8D1946698289C4F5F80C2FE3B5110EC8E1B81D91
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114425.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114425.jpgsave_picture_114425.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Run Pizza Run (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114426.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114426.jpgsave_picture_114426.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ magnet:?xt=urn:btih:7799F70B75A87031543E1BF1B161802FE01F6FD7
 >>Пользователи NNM-Club рекомендуют!
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114427.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114427.jpgsave_picture_114427.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Tenorshare 4uKey - Password Manager 1.6.3 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114428.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114428.jpgsave_picture_114428.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ magnet:?xt=urn:btih:57E71B9FBF0B00AF0D512DD8F89DFDDA69BB57C3
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114429.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114429.jpgsave_picture_114429.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ magnet:?xt=urn:btih:5BCAA66A55A2C57C0A51857B671B9FCF16E9E088
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114430.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114430.jpgsave_picture_114430.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ magnet:?xt=urn:btih:24A1D17B762696B6D78454072A8263326735C8B0
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114431.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114431.jpgsave_picture_114431.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ magnet:?xt=urn:btih:E5B34278BD103C1261900B0AA64BFA7BF7B1C511
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114432.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114432.jpgsave_picture_114432.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ magnet:?xt=urn:btih:7EAA0C8093E3641219149C3A175D3003E30F552F
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114433.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114433.jpgsave_picture_114433.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ magnet:?xt=urn:btih:99556A29EE3F12251C3F1E53B9886BE943465036
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114434.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114434.jpgsave_picture_114434.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ magnet:?xt=urn:btih:F27978DA266B80A5F9EB98E0A1DDAFCC4A2DE250
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114435.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114435.jpgsave_picture_114435.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ magnet:?xt=urn:btih:F27978DA266B80A5F9EB98E0A1DDAFCC4A2DE250
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114436.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114436.jpgsave_picture_114436.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ magnet:?xt=urn:btih:3F7E95D690AF11D6E0EB4A6E05331AE07F434EFB
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114437.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114437.jpgsave_picture_114437.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ Adobe Photoshop for Mac 2024 v.25.5 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114438.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114438.jpgsave_picture_114438.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ magnet:?xt=urn:btih:E3B26AED78314DD82D904E9719A650E16FDED295
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114439.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114439.jpgsave_picture_114439.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ magnet:?xt=urn:btih:7AA76E8D91125AF5B81C376B4926B339029C08ED
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114440.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114440.jpgsave_picture_114440.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ WinRAR 7.00 RePack (& Portable) by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114441.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114441.jpgsave_picture_114441.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Tenorshare 4uKey - Password Manager 1.3.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114442.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114442.jpgsave_picture_114442.jpg" />
 </div>
 
 

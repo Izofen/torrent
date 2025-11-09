@@ -6,7 +6,7 @@ Colorsfade - Built From The Wreckage (2023) [FLAC|Lossless|WEB-DL|tracks] <Punk-
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244114.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244114.jpgsave_picture_244114.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Rizon - Prime Time (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Heavy Metal, Po
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244123.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244123.jpgsave_picture_244123.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:CEA36CE6836FA901DB6ED0B51684FD612DDBDDA6
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244124.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244124.jpgsave_picture_244124.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:06D2DF7C299A7955B2CE84D4B2D7D84C0223BD48
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244126.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244126.jpgsave_picture_244126.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ John Illsley - 9 albums, 4 singles, 15CD (1984-2022) [FLAC|Lossless|image + .cue
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244129.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244129.jpgsave_picture_244129.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Elyose - 5 Albums (2015-2023) [MP3|320 Kbps] <Modern Industrial, Gothic, Nu-Meta
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244132.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244132.jpgsave_picture_244132.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Russkaja - No One is Illegal (2019) [FLAC|Lossless|WEB-DL|tracks] <Gypsy Punk, S
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244144.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244144.jpgsave_picture_244144.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ High Five - Salad Balloon (2023) [MP3|320 Kbps] <Psychedelic, Space Rock, Krautr
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244147.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244147.jpgsave_picture_244147.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Ship Thieves - Irruption (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Punk Rock
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244153.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244153.jpgsave_picture_244153.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Heart Healer - The Metal Opera (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244161.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244161.jpgsave_picture_244161.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Void - Horrors of Reality (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244170.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244170.jpgsave_picture_244170.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Trippelganger - Trip to Hell (2023) [MP3|320 Kbps] <Heavy Rock, Psych, Stoner, D
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244174.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244174.jpgsave_picture_244174.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Therion - Leviathan II (2022) [FLAC|Lossless|image + .cue] <Symphonic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244198.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244198.jpgsave_picture_244198.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ magnet:?xt=urn:btih:92F9AB1E7792392DFE0F2F7503ABD6D4EF4FBB09
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244201.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244201.jpgsave_picture_244201.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Dave Kerzner - The Traveler (2022) 2CD, Special Edition [MP3|320 Kbps] <Progress
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244203.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244203.jpgsave_picture_244203.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ magnet:?xt=urn:btih:68DA8898AA3ACE5C684AEA7443598A6B2E024600
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244209.jpgsave_picture_244209.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Caspar McCloud - Game Changers (2020) [FLAC|Lossless|WEB-DL|tracks] <Classic Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244220.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244220.jpgsave_picture_244220.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Little Bob Story – Livin' In The Fast Lane & 6 Inedits (1977) Reissue, 1991, F
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244222.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244222.jpgsave_picture_244222.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Second Story - Thin Twisting Line (2020) 2CDSet [MP3|320 Kbps] <Progressive Rock
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244228.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244228.jpgsave_picture_244228.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Morghash - Cosmogony (2019) EP [MP3|320 Kbps] <Symphonic Black Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244232.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244232.jpgsave_picture_244232.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Ampacity - IV (2023) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244240.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244240.jpgsave_picture_244240.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Silhouette - Les retranchements (2022) [MP3|320 Kbps] <Atmospheric Black Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244250.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244250.jpgsave_picture_244250.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Amartia - Daylight Beauty (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244255.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244255.jpgsave_picture_244255.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Heryos - The Magician (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive, Doom Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244257.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244257.jpgsave_picture_244257.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Phil Campbell and the Bastard Sons - Live In The North (Live) (2023) [FLAC 2.0|9
 >>Hard Rock (Hi Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244259.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244259.jpgsave_picture_244259.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ magnet:?xt=urn:btih:D25642EC7EF7186BDA602FAD5E823760F028C543
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244265.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244265.jpgsave_picture_244265.jpg" />
 </div>
 
 

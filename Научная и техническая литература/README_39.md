@@ -6,7 +6,7 @@ Bruce Stirling | TOEFL Strategies. A Complete Guide to the iBT (2016) [PDF] [EN]
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53517.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53517.jpgsave_picture_53517.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Adrian Wallwork | Top 50 Vocabulary Mistakes (2018) [PDF] [EN]
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53522.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53522.jpgsave_picture_53522.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Carol Fehringer | German Grammar in Context. Third edition (2019) [PDF] [EN]
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53636.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53636.jpgsave_picture_53636.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Mohammad. Alhawary | Arabic Grammar in Context (2016) [EPUB, MP3] [EN/AR]
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53667.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53667.jpgsave_picture_53667.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ magnet:?xt=urn:btih:4A5A58CE53BAD8491EF632B9324CA5C501E79555
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53685.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53685.jpgsave_picture_53685.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ U.O. Alday | Colloquial Spanish: The Complete Course for Beginners (2010) [PDF] 
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53716.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53716.jpgsave_picture_53716.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ Bruce Stirling | Pre-TOEFL Guide. Academic English Practice (2017) [PDF] [EN]
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53740.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53740.jpgsave_picture_53740.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ Dorling Kindersley, Aja Raden, Smithsonian Institution (соавтор) | Gem. T
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53746.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53746.jpgsave_picture_53746.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ Oxford University | Oxford Writing Tutor (2010) [PDF] [EN]
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53846.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53846.jpgsave_picture_53846.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ Collins Dictionaries | English Visual Dictionary (2020) [PDF] [EN]
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53869.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53869.jpgsave_picture_53869.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ Tom Booth | English for Everyone. Teacher's Guide (2018) [PDF] [EN]
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53953.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53953.jpgsave_picture_53953.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ magnet:?xt=urn:btih:57A430A4BBA28A9CA39A4DA32DC17D0029ACFC6F
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53969.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53969.jpgsave_picture_53969.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ Julie Lachance | Practice Makes Perfect: Basic English. Premium Fourth Edition (
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53982.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53982.jpgsave_picture_53982.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ magnet:?xt=urn:btih:D3B55074EB223F0C25423348FD2295E98BC832B5
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53991.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53991.jpgsave_picture_53991.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ magnet:?xt=urn:btih:774351C925C8C934884BF881E3F083736E0E5CD4
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54011.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54011.jpgsave_picture_54011.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ Christine C.M. Goh, Anne Burns | Teaching Speaking (2012) [PDF] [EN]
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54040.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54040.jpgsave_picture_54040.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Roger Berry | From Words to Grammar (2015) [PDF] [EN]
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54062.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54062.jpgsave_picture_54062.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ magnet:?xt=urn:btih:0788BF05A4131492B25CDBC90BB178E80655E88A
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54073.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54073.jpgsave_picture_54073.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ magnet:?xt=urn:btih:0D6C2032AD46DC8B47848B4582E8030393716803
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54074.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54074.jpgsave_picture_54074.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ magnet:?xt=urn:btih:773947F95AE7ECEC56EDCC289E54298A1C94F0EF
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54084.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54084.jpgsave_picture_54084.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Rob Houston (editor) | History of the World Map by Map (2018) [PDF] [EN]
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54085.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54085.jpgsave_picture_54085.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Julie Lachance | Basic English. Second edition (2015) [PDF] [EN]
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54086.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54086.jpgsave_picture_54086.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ magnet:?xt=urn:btih:FD129A3EA0BF6DAB655C5DF78694327089A57F6D
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54105.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54105.jpgsave_picture_54105.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ magnet:?xt=urn:btih:D32B12EA7A74ACE3407204C2AF885B4ECDDFF55D
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54156.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54156.jpgsave_picture_54156.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Angeles Gavira, Christine Stroyan, Angela Wilkes (еditors) | Spanish English Bi
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54173.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54173.jpgsave_picture_54173.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ magnet:?xt=urn:btih:C7BA39DDAA5B38B6B83DAC3AB8DD9203F3D39DD3
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54192.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54192.jpgsave_picture_54192.jpg" />
 </div>
 
 

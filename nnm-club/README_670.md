@@ -6,7 +6,7 @@ Minecraft в кино / A Minecraft Movie (2025) WEBRip [H.264/1080p] [Director'
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17739.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17739.jpgsave_picture_17739.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Train Valley 2 (2019) [Ru/Multi] (1.8.8/dlc) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17740.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17740.jpgsave_picture_17740.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Microsoft Windows 10 [10.0.19045.5854], Version 22H2 (Updated May 2025) - Ори
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17741.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17741.jpgsave_picture_17741.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Dying Light 2: Stay Human (2022) [Ru/En] (1.22.4/dlc) Repack Other s [Digital Ex
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17742.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17742.jpgsave_picture_17742.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Minecraft в кино / A Minecraft Movie (2025) WEB-DL [H.265/2160p] [4K, SDR 8
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17743.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17743.jpgsave_picture_17743.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Minecraft в кино / A Minecraft Movie (2025) WEBRip [Director's Cut] [зву
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17745.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17745.jpgsave_picture_17745.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ ANOXIA Station (2025) [Ru/Multi] (1.0.1) Repack Let'sРlay
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17746.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17746.jpgsave_picture_17746.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:2F484F414E8794D8C6FD19F5D6EB6F8A328CDA16
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17747.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17747.jpgsave_picture_17747.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:48BC7A6715E63AC5D78D3197E8EC26250B7B21C2
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17749.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17749.jpgsave_picture_17749.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:D4FD10DE07491E5A8797A0E443A4D766DBCFC9E4
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17750.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17750.jpgsave_picture_17750.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:0504AD2407AE63E362A0957CF4BF90D20BD11DDC
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17751.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17751.jpgsave_picture_17751.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:DFD9B5555EE21C4937711F02281C2D8E512949CD
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17752.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17752.jpgsave_picture_17752.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:BEE2B792ED095BF1AFF7C976F0E541A7B20712DB
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17753.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17753.jpgsave_picture_17753.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ magnet:?xt=urn:btih:7D09F4D37ADB3335EFC9A97B7D1D362D31EDF844
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17754.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17754.jpgsave_picture_17754.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ magnet:?xt=urn:btih:7D09F4D37ADB3335EFC9A97B7D1D362D31EDF844
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17755.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17755.jpgsave_picture_17755.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ magnet:?xt=urn:btih:F555B408D1CCB9616E348428F8F513D06492791F
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17756.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17756.jpgsave_picture_17756.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ Mini Settlers (2024) [Ru/Multi] (1.3) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17757.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17757.jpgsave_picture_17757.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ magnet:?xt=urn:btih:CAA8F7B76FC7E875D5AB09D3776A8BB9A95134A2
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17758.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17758.jpgsave_picture_17758.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ magnet:?xt=urn:btih:564D922C5296156CEA3BFD3C480EDFACB79E67E7
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17759.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17759.jpgsave_picture_17759.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ magnet:?xt=urn:btih:B687292DD8EBEB519A113313B6195BA9CAAF0E93
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17760.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17760.jpgsave_picture_17760.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Ember Knights (2023) [Ru/Multi] (2.2.1.b4712/dlc) Repack Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17761.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17761.jpgsave_picture_17761.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:3672648CA2626332FC879BB16DCC4ACCFE379985
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17762.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17762.jpgsave_picture_17762.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ magnet:?xt=urn:btih:AE9C5CE795F33B4B962C95310E3C22A9CCB291BD
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17763.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17763.jpgsave_picture_17763.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ VA - Compilation Part 162 Electronic (2025) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17764.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17764.jpgsave_picture_17764.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Sara Bendrick | Выходные в саду (2021) WEBRip [EN, RU]
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17765.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17765.jpgsave_picture_17765.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ magnet:?xt=urn:btih:0F3EFDB693E87C6FC89483B72DC62AB2697E8E2D
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17766.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17766.jpgsave_picture_17766.jpg" />
 </div>
 
 

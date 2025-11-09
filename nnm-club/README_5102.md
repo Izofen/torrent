@@ -6,7 +6,7 @@ Katy Rose - Let's Become (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop Rock, Singer-
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159368.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159368.jpgsave_picture_159368.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Steve Augeri (ex-Journey) - Seven Ways 'Til Sunday (2022) [FLAC|Lossless|WEB-DL|
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159369.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159369.jpgsave_picture_159369.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:2C2A69F0E00A5EADDA0290ACEF9E051DAA077914
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159370.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159370.jpgsave_picture_159370.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Glass Hammer - Skallagrim (Into The Breach) (2021) 2022 [FLAC|Lossless|image + .
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159371.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159371.jpgsave_picture_159371.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Battery Indicator for Mac 2.14.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159372.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159372.jpgsave_picture_159372.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Michel Sardaby - In New York (1972) 1997, Sound Hills Records [FLAC|Lossless|ima
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159373.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159373.jpgsave_picture_159373.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Tipard Blu-ray Player for Mac 6.2.50 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159374.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159374.jpgsave_picture_159374.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ magnet:?xt=urn:btih:69E4E00FA9FE8D05E3F32E64FA25ADDCBDDAF2CB
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159375.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159375.jpgsave_picture_159375.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ magnet:?xt=urn:btih:9DFB05D8B9B5B0701C10198A55439E725F9B65CA
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159376.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159376.jpgsave_picture_159376.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ PreviewMarkdown 1.4.6 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159377.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159377.jpgsave_picture_159377.jpg" />
 </div>
 
 
@@ -262,7 +262,7 @@ magnet:?xt=urn:btih:A69B47BA589CAB82B73E0CF34C153901322F02B6
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159378.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159378.jpgsave_picture_159378.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ Benumb - Soul of the Martyr (1998) [FLAC|Lossless|image + .cue] <Grindcore, Hard
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159379.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159379.jpgsave_picture_159379.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ Von Boldt - Hallowed Be My Name (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159380.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159380.jpgsave_picture_159380.jpg" />
 </div>
 
 
@@ -340,7 +340,7 @@ Autophagia - Postmortem Human Offal (2003) [FLAC|Lossless|image + .cue] <Goregri
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159381.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159381.jpgsave_picture_159381.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ BetterTouchTool 3.986 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159382.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159382.jpgsave_picture_159382.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ Magenta Aura (Darryl Way) - The Rock Artist's Progress (2022) [FLAC|Lossless|WEB
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159383.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159383.jpgsave_picture_159383.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Benumb - Withering Strands of Hope (2000) [FLAC|Lossless|image + .cue] <Grindcor
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159384.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159384.jpgsave_picture_159384.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ magnet:?xt=urn:btih:C1C05D1D01EDA1F3028DC3A2C114BD0C81778E86
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159385.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159385.jpgsave_picture_159385.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ Donald Byrd & Pepper Adams - The Complete Blue Note Donald Byrd/Pepper Adams Stu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159386.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159386.jpgsave_picture_159386.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Viwizard Audio Converter for Mac 3.8.1 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159387.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159387.jpgsave_picture_159387.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ magnet:?xt=urn:btih:8895AF289C003F554F334ED1B3E246EB6612384E
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159388.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159388.jpgsave_picture_159388.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ magnet:?xt=urn:btih:80E5F6D9A0C8239197BF6E59E37F75BE0B575178
 >>Сериалы DC Comics
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159389.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159389.jpgsave_picture_159389.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ In And Out - In And Out (1992) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159390.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159390.jpgsave_picture_159390.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Microsoft Office 2013 Professional Plus / Standard + Visio + Project 15.0.5603.1
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159391.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159391.jpgsave_picture_159391.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Wyrmwoods - Spirit & Teeth (2019) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Ava
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159392.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159392.jpgsave_picture_159392.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ magnet:?xt=urn:btih:3FB976FDF34B6CDD957E3BF0738E5B5738DB65B9
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159393.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159393.jpgsave_picture_159393.jpg" />
 </div>
 
 

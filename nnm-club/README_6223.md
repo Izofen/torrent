@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_195292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195292.jpgsave_picture_195292.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Hetman Partition Recovery 4.8 Home / Office / Commercial / Unlimited Edition ReP
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195294.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195294.jpgsave_picture_195294.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Tomb Raider: Trilogy (2013-2018) [Ru/Multi] (1.1.838.0/1.0.1027/1.0.492.0/dlc) R
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195295.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195295.jpgsave_picture_195295.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:039563C953C82DDBB08B3878A804C658430839A3
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_195297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195297.jpgsave_picture_195297.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:275D53B11AA4F36DD98E15CAD86B9B680F2A8534
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195298.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195298.jpgsave_picture_195298.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:63D5AF675A76C419CB99FEBDC0CE0404C32B692B
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_195299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195299.jpgsave_picture_195299.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ Learnsquared, Tim Zarki | Industrial Design Foundations (2023) WEB-DL [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195300.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195300.jpgsave_picture_195300.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ Unholy (2023) [Ru/Multi] (11746044) Scene FireLight
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195301.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195301.jpgsave_picture_195301.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ magnet:?xt=urn:btih:1E804F2C4C1D98A78651DC991B314F51D2E060D2
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195302.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195302.jpgsave_picture_195302.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ magnet:?xt=urn:btih:19B4F73EFF2DAD56EFF5FCDA2FD0408FCD7B1632
 >>Ходячие мертвецы / The Walking Dead; Бойтесь ходячих мертвецов / Fear the Walking Dead
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195303.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195303.jpgsave_picture_195303.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ X-plore File Manager 4.32.00 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195304.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195304.jpgsave_picture_195304.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ magnet:?xt=urn:btih:2D26941ED6FBE8B7F8F56656CA6AF508F843400B
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195306.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195306.jpgsave_picture_195306.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ REMEDIUM: Sentinels (2023) [Ru/Multi] (11729250) Scene Skidrow
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195307.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195307.jpgsave_picture_195307.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ magnet:?xt=urn:btih:0AC9A508EF96B327FCA74A20FE8871EA76E139CE
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195309.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195309.jpgsave_picture_195309.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ magnet:?xt=urn:btih:E8EDD4DCA32546F7FCCC5B66331DBEB26114C3FF
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195310.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195310.jpgsave_picture_195310.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ KkartSchool, Карина Кино | Создание паттерна (2023) WE
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195312.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195312.jpgsave_picture_195312.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ magnet:?xt=urn:btih:3BBAA05E0853949A3076BAFB3BCB814CC779D9AE
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_195313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195313.jpgsave_picture_195313.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ VA - Лето на Love Radio (2023) [MP3|320 Kbps] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195314.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195314.jpgsave_picture_195314.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ magnet:?xt=urn:btih:C88E0F6144685F7B1BF16A011DF50759644E8D77
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_195315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195315.jpgsave_picture_195315.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Inu ni Nattara Suki na Hito ni Hirowareta. | My Life as Inukai-san's Dog | Ст�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195316.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195316.jpgsave_picture_195316.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ magnet:?xt=urn:btih:ECD78EFB75F73D9C0D3FE39D4244089D94F95B59
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_195317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195317.jpgsave_picture_195317.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Photo Mechanic 6 v.6.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195318.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195318.jpgsave_picture_195318.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ magnet:?xt=urn:btih:8920FE338E3538ADAAD4576FA49165F06EC9037D
 >>Космос
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_195319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195319.jpgsave_picture_195319.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ magnet:?xt=urn:btih:D2C3217ECB42E8A5C884C473667ED1BD70A49074
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_195320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195320.jpgsave_picture_195320.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ Kaplanschool, Алексей Жалибо | Линейный скетчинг 2.
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195321.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195321.jpgsave_picture_195321.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ NG: Расследования Авиакатастроф / Mayday / Air Crash I
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195322.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195322.jpgsave_picture_195322.jpg" />
 </div>
 
 

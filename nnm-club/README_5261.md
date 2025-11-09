@@ -6,7 +6,7 @@ Quake: Enhanced (2021) [Ru/Multi] (1.0/dlc) License GOG
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163572.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163572.jpgsave_picture_163572.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:729926E5646D581F53BC79A09953A8781316894C
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163573.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163573.jpgsave_picture_163573.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:0B52A0A37CC120D138FA76B6A627EF9D6805B0B4
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163574.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163574.jpgsave_picture_163574.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:BAEB906DA73A0FB6EC8AE6D59D3F99B78B45C025
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163575.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163575.jpgsave_picture_163575.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:69942F0F8AE5AE03AADEDB5B6ED1552DE5B09059
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163576.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163576.jpgsave_picture_163576.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ PreSonus - Studio One Professional 4.6.0.55605 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163577.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163577.jpgsave_picture_163577.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Dirty Honey - Can't Find The Brakes (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163578.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163578.jpgsave_picture_163578.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ All Ears English, Jessica Beck и др. | 3 Keys IELTS Online Course (2020) CamR
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163580.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163580.jpgsave_picture_163580.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ magnet:?xt=urn:btih:64C9A8F2B9CF2833A3CBFB262F419A340AA150AF
 >>Флот
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163581.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163581.jpgsave_picture_163581.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ magnet:?xt=urn:btih:D57A267EDA66586E794E3D0810E710FBF5F79D79
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163582.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163582.jpgsave_picture_163582.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ magnet:?xt=urn:btih:B5B80831B3BC41A846B6682442718F05BBC6DFBE
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163583.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163583.jpgsave_picture_163583.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ magnet:?xt=urn:btih:E95112F2880C16CD4E752595232B2DF5E180D680
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163584.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163584.jpgsave_picture_163584.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Microsoft Windows 10.0.18363.1256 Version 1909 (Updated December 2020) - Ори�
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163585.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163585.jpgsave_picture_163585.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Udemy, Nexttut, Arash Arefnia | Complete Guide to Unreal Engine 5 (2022) PCRec [
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163586.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163586.jpgsave_picture_163586.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Aeonian Sorrow - Katara (2023) [FLAC|Lossless|WEB-DL|tracks] <Gothic, Doom, Deat
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163587.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163587.jpgsave_picture_163587.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ magnet:?xt=urn:btih:7A860FE96536ADEA5B9168EB53E98695FBD72554
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163588.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163588.jpgsave_picture_163588.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ magnet:?xt=urn:btih:364F9623AB5D6D02C8432C5BE0791402814793EE
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163589.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163589.jpgsave_picture_163589.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ magnet:?xt=urn:btih:D69DE00CA818E4040EDDD194BF3EE9F65EF05B1C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163590.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163590.jpgsave_picture_163590.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ magnet:?xt=urn:btih:402E08190A9E900B9A05B1E073BCD977D07DA910
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163591.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163591.jpgsave_picture_163591.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Blocs 4.4.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163592.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163592.jpgsave_picture_163592.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ AIDA64 Extreme / Engineer / Business 6.85.6300 RePack (& Portable) by TryRooM [M
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163594.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163594.jpgsave_picture_163594.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ magnet:?xt=urn:btih:41C3077111A3E135A5D158B71BA57DA45AB55833
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163595.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163595.jpgsave_picture_163595.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ Riverside - Out of Myself (2003) Reissue 2021, Sony Music [FLAC|24/192|image + .
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163596.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163596.jpgsave_picture_163596.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ ARK: Survival Evolved v2.0.21 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163597.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163597.jpgsave_picture_163597.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Discovery. Насекомые "Чужие" (Молящийся Богомол) /
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163599.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163599.jpgsave_picture_163599.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ magnet:?xt=urn:btih:B2C89FFA8A924CEE052A5376CF235A2182154156
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163600.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163600.jpgsave_picture_163600.jpg" />
 </div>
 
 

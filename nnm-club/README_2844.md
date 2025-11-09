@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82713.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82713.jpgsave_picture_82713.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82715.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82715.jpgsave_picture_82715.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:5E2DEE1C696A4233ABF476608FF066272505F8EA
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82717.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82717.jpgsave_picture_82717.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:5E2DEE1C696A4233ABF476608FF066272505F8EA
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82718.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82718.jpgsave_picture_82718.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:CE9EE1F2B3ED5CE80C499816BF9071C25C61019A
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82719.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82719.jpgsave_picture_82719.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:CE9EE1F2B3ED5CE80C499816BF9071C25C61019A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82721.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82721.jpgsave_picture_82721.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ Cyber City Oedo 808 / Кибер-город Эдо 808 [1990, OVA, 3] Remastered
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82722.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82722.jpgsave_picture_82722.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Cyber City Oedo 808 / Кибер-город Эдо 808 [1990, OVA, 3] Remastered
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82724.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82724.jpgsave_picture_82724.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Cyber City Oedo 808 / Кибер-город Эдо 808 [1990, OVA, 3] Remastered
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82726.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82726.jpgsave_picture_82726.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ magnet:?xt=urn:btih:0C812BDD15EAF9FF4F19BC5889CBCABD1B1EAE7E
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82728.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82728.jpgsave_picture_82728.jpg" />
 </div>
 
 
@@ -262,7 +262,7 @@ magnet:?xt=urn:btih:88EBFCA2C3CE09FDC7483F6CA43E64BE7CE5545B
 >>Зарубежная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82729.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82729.jpgsave_picture_82729.jpg" />
 </div>
 
 
@@ -289,7 +289,7 @@ VA - СОЮЗ Детский (2012) [MP3|256 кб/с]<Детские песен�
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82730.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82730.jpgsave_picture_82730.jpg" />
 </div>
 
 
@@ -316,7 +316,7 @@ magnet:?xt=urn:btih:D912BDEB2A4968689D9F147787020F7485FA6D07
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82732.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82732.jpgsave_picture_82732.jpg" />
 </div>
 
 
@@ -340,7 +340,7 @@ Memento Mori / Memento Mori: Помни о смерти (RePack) [Ru] 2008 | a-l
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82734.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82734.jpgsave_picture_82734.jpg" />
 </div>
 
 
@@ -364,7 +364,7 @@ magnet:?xt=urn:btih:375C45176D1A705D79A91BFD47F112414A9F39BA
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82736.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82736.jpgsave_picture_82736.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ magnet:?xt=urn:btih:D649C03022D5E2ED3FE6D3F9E26F2389D883C09E
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82739.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82739.jpgsave_picture_82739.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ magnet:?xt=urn:btih:2B9D9B1C5B0E1096AD678C9A1BC9B923EC05A601
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82740.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82740.jpgsave_picture_82740.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ magnet:?xt=urn:btih:7DF5380CBCFBCDC09807FCE82438535AD84810EA
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82741.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82741.jpgsave_picture_82741.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ magnet:?xt=urn:btih:189CD593A923922E369A3DE9B92D327717C3F0CF
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82743.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82743.jpgsave_picture_82743.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ magnet:?xt=urn:btih:9BB2193499209A3DABE32DD7BBB4C95ADF38CC1A
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82744.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82744.jpgsave_picture_82744.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ magnet:?xt=urn:btih:5CA9E5D36C1D8C857A617D834825CCE7074C4CC6
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82745.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82745.jpgsave_picture_82745.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ magnet:?xt=urn:btih:5CA9E5D36C1D8C857A617D834825CCE7074C4CC6
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82746.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82746.jpgsave_picture_82746.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ magnet:?xt=urn:btih:5CA9E5D36C1D8C857A617D834825CCE7074C4CC6
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82747.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82747.jpgsave_picture_82747.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ magnet:?xt=urn:btih:FBD5032EDA043C78324EF318292EDF4479FD4350
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82748.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82748.jpgsave_picture_82748.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Roberto Cacciapaglia - 3 альбома (2007-2010) [FLAC|Lossless]<New Age, Rel
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82749.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82749.jpgsave_picture_82749.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Roberto Cacciapaglia - 3 альбома (2007-2010) [FLAC|Lossless]<New Age, Rel
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82750.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82750.jpgsave_picture_82750.jpg" />
 </div>
 
 

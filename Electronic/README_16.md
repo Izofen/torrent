@@ -6,7 +6,7 @@ Clarky - Forever In Love (2023) [FLAC|Lossless|WEB-DL|tracks] <Trance, Pop Tranc
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34585.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34585.jpgsave_picture_34585.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ VA - Elliptical Sun Recordings 2024 (2024) [MP3|320 Kbps] <Trance, Progressive>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34589.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34589.jpgsave_picture_34589.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ The Orb - Orboretum: The Orb Collection (2024) 2CD [FLAC|Lossless|tracks + .cue]
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34685.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34685.jpgsave_picture_34685.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Alphaville - I Die For You Today (2023) The Blank & Jones Mixes [FLAC|Lossless|W
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34694.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34694.jpgsave_picture_34694.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ VA - Lounge Philosophy Vol 1 (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34697.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34697.jpgsave_picture_34697.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ VA - Winter Chillout Lounge 2024 - Smooth Lounge Sounds for the Cold Season [FLA
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34800.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34800.jpgsave_picture_34800.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ DJ Bobo - There Is a Party (30th Anniversary Edition) (1994) Reissue, 2024, Yes 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34994.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34994.jpgsave_picture_34994.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ VA - The Annual 2025 - Ministry of Sound (2024) 2 CD [MP3|320 Kbps] <Dance, Club
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35099.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35099.jpgsave_picture_35099.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ GOODBOYS - GOODBOYS Pres. LINKED (001-006) (2023-2024) [MP3|320 Kbps] <Progressi
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35128.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35128.jpgsave_picture_35128.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ VA - Everybody Is In The Mix (The Best Dance Cover Versions), Vol. 2 (2024) [MP3
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35201.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35201.jpgsave_picture_35201.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ David Guetta - Live @ Château de Chambord, France (2024-06-29) [MP3|320 Kbps] <
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35204.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35204.jpgsave_picture_35204.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Leather Strip - 4 Albums (2024) [MP3|320 Kbps] <EBM, Techno, Electro-Industrial>
 >>Industrial, EBM, Dark Electro
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35205.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35205.jpgsave_picture_35205.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ VA - The Best Of Trance 2024 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35208.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35208.jpgsave_picture_35208.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ VA - Future Sound of Egypt Best of 2024 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35209.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35209.jpgsave_picture_35209.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ VA - Snowy Evenings: Chillout Your Mind (2024) [FLAC|Lossless|tracks] <Balearic,
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35306.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35306.jpgsave_picture_35306.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ VA - Everybody Is In The Mix (The Best Dance Cover Versions), Vol. 1 (2024) [MP3
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35310.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35310.jpgsave_picture_35310.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Droid Bishop - Cinema (2024) [MP3|320 Kbps] <Synthwave, Retrowave>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35312.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35312.jpgsave_picture_35312.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ VA - Amsterdam Music Festival, Johan Cruijff ArenA, Netherlands (2024-10-19) [MP
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35319.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35319.jpgsave_picture_35319.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ VA - Progressive Trance Awakening, Vol. 01 (2024) [MP3|320 Kbps] <Trance, Progre
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35402.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35402.jpgsave_picture_35402.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ VA - Gert Records 1000 - Celebration Dj Mix (Mixed By Vito Von Gert) (2024) [MP3
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35412.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35412.jpgsave_picture_35412.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ VA - Nocturnal Knights Best Of 2024 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35415.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35415.jpgsave_picture_35415.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Asterius - Выхода Нет (2016) [FLAC|Lossless|WEB-DL|tracks] <Melodic Met
 >>Downtempo, Trip-Hop, Lounge
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35440.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35440.jpgsave_picture_35440.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ VA - My Electronic Space (2022) [FLAC|Lossless|WEB-DL|tracks] <Chillout, Lounge>
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35615.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35615.jpgsave_picture_35615.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ VA - Late Night Relax: Chillout Your Mind (2024) [FLAC|Lossless|WEB-DL|tracks] <
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35620.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35620.jpgsave_picture_35620.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ VA - It's All About Deep-House, Vol. 4 (2024) [MP3|320 Kbps] <House, Deep House,
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35626.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35626.jpgsave_picture_35626.jpg" />
 </div>
 
 
@@ -675,7 +675,7 @@ VA - Deep Trance Showcase IV (2024) [MP3|320 Kbps] <Trance, Progressive, Electro
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35629.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35629.jpgsave_picture_35629.jpg" />
 </div>
 
 

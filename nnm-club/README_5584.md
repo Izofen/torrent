@@ -6,7 +6,7 @@ Microsoft запугивает пользователей, чтобы те не 
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172173.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172173.jpgsave_picture_172173.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Microsoft пугает пользователей «санкциями» за у
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172174.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172174.jpgsave_picture_172174.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:28F784676021A515CB679DF67613A11846EEC10F
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172175.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172175.jpgsave_picture_172175.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Gary Katz | Работа на торцовочной пиле Бош. Две с�
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172176.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172176.jpgsave_picture_172176.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:9F8A4D48051F243C0F46FE89651314E9796AD41C
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172177.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172177.jpgsave_picture_172177.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:C8A2648669254CC3AD8ADE9D2DD0B48C19D4FE96
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172178.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172178.jpgsave_picture_172178.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:311A46AD6398173E9789F07C39DC78E198347667
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172179.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172179.jpgsave_picture_172179.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:895D3E9BFF77F86D54018B37C956602620D6A4F9
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172180.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172180.jpgsave_picture_172180.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ Discovery: Ванильное мороженое в домашних услов�
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172181.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172181.jpgsave_picture_172181.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ magnet:?xt=urn:btih:9485693533034CF93C543ED93103CBBD8F1F36D3
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172182.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172182.jpgsave_picture_172182.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ magnet:?xt=urn:btih:8C70768B0FF09F9F2A23AA8E89A9315D847AA7BD
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172183.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172183.jpgsave_picture_172183.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Transformers: Earthspark - Expedition (2023) [Multi] (1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172184.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172184.jpgsave_picture_172184.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:A91911C59204E54B304CFF957B5DF076DD6254A2
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172185.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172185.jpgsave_picture_172185.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ magnet:?xt=urn:btih:F5DF63596A9B53335E145CCE88593DD66D138092
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172186.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172186.jpgsave_picture_172186.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Pascal Thormeier | Mastering CSS Grid (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172187.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172187.jpgsave_picture_172187.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ magnet:?xt=urn:btih:95E18E96A1AA2A801190BAED3300746822E0AFDD
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172188.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172188.jpgsave_picture_172188.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ Marc Loy, Patrick Niemeyer, Daniel Leuck | Learning Java, 6th Edition (2023) [PD
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172189.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172189.jpgsave_picture_172189.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ magnet:?xt=urn:btih:54E126227E2EFEEC3A28A27EE46CDB7B6D04F9AA
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172190.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172190.jpgsave_picture_172190.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ Growth (2023) [Ru/Multi] (1.0rc2) License GOG
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172191.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172191.jpgsave_picture_172191.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ magnet:?xt=urn:btih:C934E2CF4F2DD05E6DFA0D8DF573E710F06F0C9F
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172192.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172192.jpgsave_picture_172192.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ magnet:?xt=urn:btih:3C8D2A6796A67408DEA0D82E86A792A51C4B14BC
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172193.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172193.jpgsave_picture_172193.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ magnet:?xt=urn:btih:FF85A06F77B3E0EDF23E53A3638249020B7FDC0F
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172194.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172194.jpgsave_picture_172194.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ magnet:?xt=urn:btih:B4909A9EAFE6B0DFAEEE3993CD7506B134FD19C2
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172195.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172195.jpgsave_picture_172195.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Knight vs Giant: The Broken Excalibur (2023) [En] (1.0.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172196.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172196.jpgsave_picture_172196.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ magnet:?xt=urn:btih:1C47FFEB3D84F4096B6AF79C49617034F119DE92
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172197.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172197.jpgsave_picture_172197.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ magnet:?xt=urn:btih:6815D3D14EDC108E1C2F070A3504693CF8506B67
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172198.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172198.jpgsave_picture_172198.jpg" />
 </div>
 
 

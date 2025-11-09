@@ -6,7 +6,7 @@ Boz Digital Labs - ProVocative 1.0.6 VST, VST3, AAX (x86/x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161088.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161088.jpgsave_picture_161088.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Legacy: Witch Island 4 Last Bastion / Наследие: Остров Ведьм�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161089.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161089.jpgsave_picture_161089.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:783C8AF9C6369C8ABE19876281C95F67579B7568
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161090.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161090.jpgsave_picture_161090.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ VA - Swing & Bass Compilation Album, Vol. 1 (2019) [AAC|~291 Kbps] <Drum & Bass,
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161091.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161091.jpgsave_picture_161091.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ magnet:?xt=urn:btih:9F69B138F32B5056A1F137B36988756610BC2C71
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161092.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161092.jpgsave_picture_161092.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ VA - The Sound Of Christmas Gifts '21 (2021) [AAC|~309 Kbps] <Deep House, Deep T
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161093.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161093.jpgsave_picture_161093.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ Microsoft Windows 10.0.19045.2364, Version 22H2 (Updated December 2022) - Ори
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161094.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161094.jpgsave_picture_161094.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ magnet:?xt=urn:btih:4279B486531693E620C5694B75841F3D53EE5996
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161095.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161095.jpgsave_picture_161095.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Yuuki Yuuna wa Yuusha de Aru: Washio Sumi no Shou | Yuki Yuna Is a Hero: The Was
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161096.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161096.jpgsave_picture_161096.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ Grooz VPN - Fast & Secure WiFi 1.2.0 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161097.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161097.jpgsave_picture_161097.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ Buddha Lounge - The Best Of Lounge: Buddha Lounge Vol. 2 (2007) [FLAC|Lossless|W
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161098.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161098.jpgsave_picture_161098.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ VA - Car Music Dance Hits 2023 [MP3|320 Kbps] <Euro Dance, Pop Dance>
 >>Eurodance, Euro-House, Technopop
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161099.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161099.jpgsave_picture_161099.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ magnet:?xt=urn:btih:A4A89F15D063F5BD4B7E6F11D5AC9A1019A1BA7F
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161100.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161100.jpgsave_picture_161100.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ magnet:?xt=urn:btih:101155EFA3C5E560CBC73AD34C409D648A9BEA41
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161101.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161101.jpgsave_picture_161101.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ magnet:?xt=urn:btih:7E77EE400E3BADD8513E08D6B51BAEE05DDB278E
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161102.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161102.jpgsave_picture_161102.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ magnet:?xt=urn:btih:629AEF1B74DDDD095AB516A956885F21F08231AF
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161103.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161103.jpgsave_picture_161103.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Dallos | Даллас [1983, OVA, 4 из 4] BDRip 1080p HEVC 10-bit raw+rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161104.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161104.jpgsave_picture_161104.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ magnet:?xt=urn:btih:7B9EE49B64D8BD65AB4BBA6BABE247EEB7E4B354
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161105.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161105.jpgsave_picture_161105.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ magnet:?xt=urn:btih:CA80D6C8DC93C7F00388A8A4FB8BD68254BF02C9
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161106.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161106.jpgsave_picture_161106.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ VA - Caravan 4 (2021) [AAC|~319 Kbps] <Chill Out, Downtempo, Organic House, Ethn
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161107.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161107.jpgsave_picture_161107.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ magnet:?xt=urn:btih:362863867CC0EFF9D3CECFBDE5FA2192C24D3B68
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161108.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161108.jpgsave_picture_161108.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ magnet:?xt=urn:btih:4472AFD57D7A325FBC9576372C99A921828A00F7
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161109.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161109.jpgsave_picture_161109.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ magnet:?xt=urn:btih:05ED366D3F46C30E74FA78F6B8FC5B88B175DC33
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161110.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161110.jpgsave_picture_161110.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ magnet:?xt=urn:btih:C03C47A2AC5093BAD1AC80646CCC8C8DA9201E31
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161111.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161111.jpgsave_picture_161111.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Iria Zeiram The Animation | Iria: Zeiram The Animation | Ирия: Зейрам 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161112.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161112.jpgsave_picture_161112.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ magnet:?xt=urn:btih:8C24B03ECEF12E4E84CCB13A6C5100468B87425F
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161113.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161113.jpgsave_picture_161113.jpg" />
 </div>
 
 

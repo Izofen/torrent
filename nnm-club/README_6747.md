@@ -6,7 +6,7 @@ Riffobia - Riffobia (2023) [MP3|320 Kbps] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232054.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232054.jpgsave_picture_232054.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Razor - Open Hostility (1991) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232055.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232055.jpgsave_picture_232055.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ BBC. Чувствуешь ли ты это - Как танцевальная м�
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232056.jpgsave_picture_232056.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Shining of Kliffoth - Twilight of Sehemeah (2000) [FLAC|Lossless|image + .cue] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232058.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232058.jpgsave_picture_232058.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Senkaiden Houshin Engi | Soul Hunter | Охотник за душами [ТВ-1]
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232059.jpgsave_picture_232059.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ NCH Crescendo Masters Pro 9.59 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232060.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232060.jpgsave_picture_232060.jpg" />
 </div>
 
 
@@ -161,7 +161,7 @@ All Consumed - Hallowed Violence (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232061.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232061.jpgsave_picture_232061.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ magnet:?xt=urn:btih:8F442C6E37DC54B08CE84CEB4D241B5B9179DFD3
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232063.jpgsave_picture_232063.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ Texifier 1.9.21 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232066.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232066.jpgsave_picture_232066.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ magnet:?xt=urn:btih:48C8C670395184ED220CF68CF4316F8FEE16823B
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232067.jpgsave_picture_232067.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ Coffin Mulch - Spectral Intercession (2023) [FLAC|Lossless|WEB-DL|tracks] <Death
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232068.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232068.jpgsave_picture_232068.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ magnet:?xt=urn:btih:6B2E9D80A8C902CB39FBDBB412002CA2C1EF2297
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232070.jpgsave_picture_232070.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ Spy Kyoushitsu | Spy Classroom | Шпионский класс [ТВ-1] [2023, T
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232073.jpgsave_picture_232073.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ magnet:?xt=urn:btih:8FF48C8CBBE063838474B6DF9374D55AB350A255
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232074.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232074.jpgsave_picture_232074.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ magnet:?xt=urn:btih:A20037837EDE57A4CACCF62E55189CB1155BDB42
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232075.jpgsave_picture_232075.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Viper - Timeless (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Power, Speed Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232077.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232077.jpgsave_picture_232077.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ magnet:?xt=urn:btih:CB3B2EC9BEFF2CC27E41841F7195C609F7DE1129
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232080.jpgsave_picture_232080.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ magnet:?xt=urn:btih:5DB243F46EC8D977B81FF5DF483EB0520F08D24A
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232081.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232081.jpgsave_picture_232081.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ Piriform Utilities Pro (Defraggler 2.22.995, Recuva 1.53.2095, Speccy 1.32.803) 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232082.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232082.jpgsave_picture_232082.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ Heathen Hoof - Rock Crusader (2011) [WavPack|Lossless|image + .cue] <Heavy Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232085.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232085.jpgsave_picture_232085.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ magnet:?xt=urn:btih:1D8FFC8E217E8EC1B8144CFB703D57BFE96A921D
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232087.jpgsave_picture_232087.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Macrorit Disk Scanner 6.5.0 Pro / Unlimited / Technician Edition RePack (& Porta
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232089.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232089.jpgsave_picture_232089.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Tropical Fuck Storm - Goody Goody Gumdrops (2023) [FLAC|Lossless|WEB-DL|tracks] 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232090.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232090.jpgsave_picture_232090.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ CrystalDiskInfo 9.0.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232092.jpgsave_picture_232092.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ magnet:?xt=urn:btih:7782AC3AC739FB15179188A1D67FF6F344A5568F
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232094.jpgsave_picture_232094.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ magnet:?xt=urn:btih:8D65931FB8E991604735A25DE469CD317B45C6F3
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232097.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232097.jpgsave_picture_232097.jpg" />
 </div>
 
 

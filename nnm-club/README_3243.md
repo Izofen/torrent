@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104679.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104679.jpgsave_picture_104679.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:4447AA9FEE24D87187221F7D405CA56BB0DC1298
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104680.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104680.jpgsave_picture_104680.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:6C571F5C609787E166F9F0DD27463FF12373BECC
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104681.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104681.jpgsave_picture_104681.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:6C571F5C609787E166F9F0DD27463FF12373BECC
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104682.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104682.jpgsave_picture_104682.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Jetbrains RustRover 2024.2 Repack by Sitego [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104683.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104683.jpgsave_picture_104683.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:59460A031F176FCBC7D22DEA12543038B58D24D7
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104684.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104684.jpgsave_picture_104684.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:FD3120551D334F0C1A226C7311FF380AD104F77D
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104685.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104685.jpgsave_picture_104685.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:59C969393658E903E2C5477AD459832925019C6B
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104686.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104686.jpgsave_picture_104686.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:3C6C3571F6E2C725E4A1325686B5C83901967AEF
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104687.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104687.jpgsave_picture_104687.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Nero - Into the Unknown (2024) [FLAC|Lossless|WEB-DL|tracks] <Dubstep, Drum'n'Ba
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104688.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104688.jpgsave_picture_104688.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ ApowerREC 1.7.2.11 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104689.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104689.jpgsave_picture_104689.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:D0B80D7528F14A2D7D1D38CE10B282B2DED64A38
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104690.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104690.jpgsave_picture_104690.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:5855CBE0ECC3BD77315569CA4D3F2285FC7D3FE0
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104691.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104691.jpgsave_picture_104691.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ blink-182 - One More Time... (2023) (Deluxe Edition) [FLAC 24/48|Lossless|WEB-DL
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104692.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104692.jpgsave_picture_104692.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ magnet:?xt=urn:btih:7B1F0AF9F63A7537F306BE470FBCFF001E7D9CC0
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104693.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104693.jpgsave_picture_104693.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ magnet:?xt=urn:btih:A68E55F356E4EC3E034BB34D077A03937788F3D5
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104694.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104694.jpgsave_picture_104694.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ VA - Music News For Forum vol.020 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104695.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104695.jpgsave_picture_104695.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Advanced Renamer 4.02 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104696.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104696.jpgsave_picture_104696.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ magnet:?xt=urn:btih:F614C73DE26ABFA4DFB2857505684C2E2757E99C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104697.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104697.jpgsave_picture_104697.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ These Are They (Novembers Doom members) - Studio Albums (3 releases) (2009-2014)
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104698.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104698.jpgsave_picture_104698.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Wolfhorde - Bloodmoon Symphonies (2024) [FLAC|Lossless|WEB-DL|tracks] <black met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104699.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104699.jpgsave_picture_104699.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Rex Orange County - Who Cares? (2022) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alter
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104700.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104700.jpgsave_picture_104700.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Frank Wess - Wess Point (1954) 2007, Fresh Sound [FLAC|Lossless|image + .cue] <B
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104701.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104701.jpgsave_picture_104701.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Mr. Big - The BIG Finish Live (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104702.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104702.jpgsave_picture_104702.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ The Cardigans - The Rest Of The Best (2024) Vol. 2 [FLAC|Lossless|WEB-DL|tracks]
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104703.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104703.jpgsave_picture_104703.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Viber 23.5.0.0 (x64) RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104704.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104704.jpgsave_picture_104704.jpg" />
 </div>
 
 

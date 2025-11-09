@@ -6,7 +6,7 @@
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141133.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141133.jpgsave_picture_141133.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:8CDC946CAFC47F592A84CCA6CCE9651DCF8CD80E
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141134.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141134.jpgsave_picture_141134.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ VA - Female Vocal Trance Remixes (2019) [FLAC|Lossless|WEB-DL|tracks] <Trance>
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141136.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141136.jpgsave_picture_141136.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ SPTD 2.08 (x86/x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141137.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141137.jpgsave_picture_141137.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:979D3A6CE9F0472C21DF4EEF2687A3A28F6E45B4
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141138.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141138.jpgsave_picture_141138.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:949E270626A160F83A1FA76E5261104E909C506B
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141139.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141139.jpgsave_picture_141139.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Windows 10 PRO 21H2 x64 Rus by OneSmiLe [19044.1415]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141140.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141140.jpgsave_picture_141140.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:041275CE0065C02836F4731FE49B3B3BED773D22
 >>Релакс / Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141141.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141141.jpgsave_picture_141141.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Kingsman: Золотое кольцо / Kingsman: The Golden Circle (2017) BDRip
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141143.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141143.jpgsave_picture_141143.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ GoodSync Enterprise 10.9.21.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141144.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141144.jpgsave_picture_141144.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:5B7B23498BB5311D1C9E9753907A703CFBCDE576
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141145.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141145.jpgsave_picture_141145.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:31C988F1D05E6BF02ADC30DB68D8234901396515
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141146.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141146.jpgsave_picture_141146.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Ubuntu 20.04.3 LTS, KDE Plasma, [amd64] 1xDVD (август 2021) [Авторс�
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141147.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141147.jpgsave_picture_141147.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Symantec Endpoint Protection 4.3.1 RU1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141148.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141148.jpgsave_picture_141148.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ FoneLab HEIC Converter 1.0.10 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141149.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141149.jpgsave_picture_141149.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ VA - Русский Рок. Лучшее 2017 (2017) [MP3|320 Kbps] <Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141150.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141150.jpgsave_picture_141150.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ magnet:?xt=urn:btih:5254B0B0080BAA630451A5C318F8D9B12E4BCB2C
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141151.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141151.jpgsave_picture_141151.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ VA - Amaranthine: Hard Rock & Metal Collection (2018) [MP3|320 Kbps] <Hard Rock,
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141153.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141153.jpgsave_picture_141153.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ magnet:?xt=urn:btih:FBAD7E1CBC4DE130C533D644B0AB3AD40E0488DC
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141154.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141154.jpgsave_picture_141154.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ magnet:?xt=urn:btih:AAFB52122306B84612232697335DC477EFCD11E4
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141155.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141155.jpgsave_picture_141155.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ magnet:?xt=urn:btih:D04618E0F75BF67216F71F47F5D8AB55BC64C675
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141156.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141156.jpgsave_picture_141156.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ R-Studio Network  9.3 Build 191259 (x64) RePack (& Portable) by TryRooM [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141157.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141157.jpgsave_picture_141157.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Die Toten kehren wieder mit dem Wind - Ein Wanderer (2013) [FLAC|Lossless|image 
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141160.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141160.jpgsave_picture_141160.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ magnet:?xt=urn:btih:17B3DFFE38784F691FAE80EB6E90857A55F6D1AF
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141161.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141161.jpgsave_picture_141161.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ The Liverbirds - More Of The Liverbirds (1966) Reissue, 1994,  Repertoire Record
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141162.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141162.jpgsave_picture_141162.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ magnet:?xt=urn:btih:1873FE264272C15A4D46E66336801C69F84E4280
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141163.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141163.jpgsave_picture_141163.jpg" />
 </div>
 
 

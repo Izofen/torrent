@@ -6,7 +6,7 @@ Discovery: В поисках Святого Грааля / In Search of the Holy
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192385.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192385.jpgsave_picture_192385.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ FastCopy 5.3.1 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192386.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192386.jpgsave_picture_192386.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:F2231F63B14FFE0ABDF1B22D2AD66208FFCC0976
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192387.jpgsave_picture_192387.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:08CDB018A01B087864CE5B93A745C6B7E0C222B2
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192388.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192388.jpgsave_picture_192388.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:D7F05E503645E3454A90F408605DE98F3469A045
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192389.jpgsave_picture_192389.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:073BB5A4A41AF7A2487FA5C7843F081A048D2E11
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192390.jpgsave_picture_192390.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ CopyQ 7.1.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192391.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192391.jpgsave_picture_192391.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Firefox Browser 106.0.3 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192392.jpgsave_picture_192392.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:18CA7140BA2545DE7F841326C53656BC567052B4
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192393.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192393.jpgsave_picture_192393.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:C8CC52E9B62CE5175C219DF6CEFD0C5B772B96EF
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192394.jpgsave_picture_192394.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ magnet:?xt=urn:btih:0F1140F6C50B6E921EC4FB9EB73EE1FBBB1888A0
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192395.jpgsave_picture_192395.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Dark voice of Angelique - Adult Content (2022) [FLAC|Lossless|WEB-DL|tracks] <El
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192396.jpgsave_picture_192396.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:3DCD0EE4424E41006B3E239BDF39D2A9BF3C346D
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192397.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192397.jpgsave_picture_192397.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Rosemary Clooney - The CBS Radio Recordings (1955 - 1961) 5CD, 2014, Mosaic Reco
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192398.jpgsave_picture_192398.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Edenbridge - Shangri-La (2022) [FLAC|Lossless|image + .cue] <Symphonic Power Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192399.jpgsave_picture_192399.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ magnet:?xt=urn:btih:A49F39AB72F025E5C414B4B132B8943AAD8A76E4
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192400.jpgsave_picture_192400.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Riven Earth - 3 Albums (2018-2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192401.jpgsave_picture_192401.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ magnet:?xt=urn:btih:2D2C64369E1B2AED43B27EFDAAC5A10C7E48023C
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192402.jpgsave_picture_192402.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ magnet:?xt=urn:btih:61AE5A4A117C20DBB42FA5DDFC20C617AD7F89F8
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192403.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192403.jpgsave_picture_192403.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ magnet:?xt=urn:btih:DCEA4210CAFEFAA2A5DDFF0F4BA039F5BEB5C3FA
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192404.jpgsave_picture_192404.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Grimskull - Awake Asleep (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192405.jpgsave_picture_192405.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ magnet:?xt=urn:btih:8460C4CEFF7A73062A32018FB980BA07ED6596DA
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192406.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192406.jpgsave_picture_192406.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ magnet:?xt=urn:btih:93CDFF0AEF887A06726251FAFC54686D7A477649
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192407.jpgsave_picture_192407.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ magnet:?xt=urn:btih:02CC86273BE3447358416ED417C55074952B4DFA
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192408.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192408.jpgsave_picture_192408.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ magnet:?xt=urn:btih:3C5B8596A168A22CCB5733323B687BB8704ECC08
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192409.jpgsave_picture_192409.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ magnet:?xt=urn:btih:E1A3783E350E514B5B527C87584DA463B8ACE149
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192410.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192410.jpgsave_picture_192410.jpg" />
 </div>
 
 

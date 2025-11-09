@@ -6,7 +6,7 @@ TreeSize Professional 9.6.1.2156 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187900.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187900.jpgsave_picture_187900.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ GPXSee 13.8 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190038.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190038.jpgsave_picture_190038.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Movavi Gecata 6.1.2 (x64) RePack (& Portable) by TryRooM [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191060.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191060.jpgsave_picture_191060.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Start Menu X 7.33 SpaceX [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_191198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191198.jpgsave_picture_191198.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Stardock Groupy 2.1 RePack (& Portable) by xetrin [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192545.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192545.jpgsave_picture_192545.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ OpenedFilesView 1.91 Portable [Ru/En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192612.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192612.jpgsave_picture_192612.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ UltraSearch Professional 4.8.4.1184 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193321.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193321.jpgsave_picture_193321.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ DiskSorter 17.4.16 All Editions [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193380.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193380.jpgsave_picture_193380.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ Alfa eBooks Manager 9.4.5.1 Pro & Web [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193391.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193391.jpgsave_picture_193391.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ KMS Tools Lite Portable by Ratiborus 24.10.2025 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193398.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193398.jpgsave_picture_193398.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Textify 1.10.4 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193507.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193507.jpgsave_picture_193507.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Hetman Internet Spy 3.8 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193693.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193693.jpgsave_picture_193693.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Vovsoft Hide Files 8.2 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193889.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193889.jpgsave_picture_193889.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Streamlabs OBS 1.13.3 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193939.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193939.jpgsave_picture_193939.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Caramba Switcher 2023.08.15 [Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194071.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194071.jpgsave_picture_194071.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ DirLister v2 beta 4 Portable [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194324.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194324.jpgsave_picture_194324.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ Windows 11 Classic Context Menu v1.2 Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195173.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195173.jpgsave_picture_195173.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ KSA Power Supply Calculator WorkStation v.2.4.0 Portable [Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196805.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196805.jpgsave_picture_196805.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ iTop Screen Recorder Pro 4.0 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196819.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196819.jpgsave_picture_196819.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ AIO Boot NewGen 23.6.2.0 Portable [Multi]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197658.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197658.jpgsave_picture_197658.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Kleptomania 5.0 Commercial [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197737.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197737.jpgsave_picture_197737.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ BlueLife Hosts Editor v1.5 Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197758.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197758.jpgsave_picture_197758.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ NikFileTree 1.8 + Portable [Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_197833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197833.jpgsave_picture_197833.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ ShowKeyPlus 1.1.18.0 Portable [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_197982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197982.jpgsave_picture_197982.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ OnlyStopWatch 6.16 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198151.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198151.jpgsave_picture_198151.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ FileXile 3.00 + Portable [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198564.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198564.jpgsave_picture_198564.jpg" />
 </div>
 
 

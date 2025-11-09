@@ -6,7 +6,7 @@
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140776.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140776.jpgsave_picture_140776.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:4B71EA1F37ECB4B5FC85C2CE3A720BF7FDD250E3
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140777.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140777.jpgsave_picture_140777.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ VA - Space Holidays Vol. 6 (2014) 2CD [MP3|320 Kbps] <Synthpop, Spacesynth>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140778.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140778.jpgsave_picture_140778.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:3961CC606A6017E73C4558856CF0EEC1879FFCA3
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140780.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140780.jpgsave_picture_140780.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:76072B0983098A94F8812675050491012B8F85E0
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140781.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140781.jpgsave_picture_140781.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:80F019986341BCFA28C1D9C00EC7C9B2BDE2C0A0
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140782.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140782.jpgsave_picture_140782.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:D0D718DC3882FCBA90D9BFC7665CE82B6ADD5CB4
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140783.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140783.jpgsave_picture_140783.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:B7006775379B745703FE7CC871E20EE45255B8E7
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140784.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140784.jpgsave_picture_140784.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:764F37600518FCC70AA4971A156C5DAC2C88EB29
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140785.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140785.jpgsave_picture_140785.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ Ella Fitzgerald - Les Jazz RTL: La voix du swing (2012) 2CD [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140786.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140786.jpgsave_picture_140786.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ Adobe Premiere Pro 2024 24.0.3.2 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140787.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140787.jpgsave_picture_140787.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ VA - Space Holidays Vol. 9 (2017) 3CD [MP3|320 Kbps] <Synthpop, Spacesynth>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140788.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140788.jpgsave_picture_140788.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ magnet:?xt=urn:btih:82BD55F7102B4D7C936C09638A04073BE7628772
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140791.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140791.jpgsave_picture_140791.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:5DAF9B72AEA9026006EFE16B742054F1C6A24854
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140792.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140792.jpgsave_picture_140792.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ magnet:?xt=urn:btih:3EDA51375A79A44481A2956331C3130A328FB0D9
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140793.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140793.jpgsave_picture_140793.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Visage - Hearts And Knives (2013) [FLAC|Lossless|image + .cue] <Synthpop, New Wa
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140794.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140794.jpgsave_picture_140794.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ Lindi Ortega (Линди Ортега) - Faded Gloryville (2015) Last Gang Recor
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140796.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140796.jpgsave_picture_140796.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ magnet:?xt=urn:btih:4A93041051F57C71CAB7C52444D6217DDE71ED92
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140797.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140797.jpgsave_picture_140797.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ magnet:?xt=urn:btih:7E004536B904187367F7D78B46172D84FB129852
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140799.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140799.jpgsave_picture_140799.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ VA - Space Holidays Vol. 7 (2015) 3CD [MP3|320 Kbps] <Synthpop, Spacesynth>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140800.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140800.jpgsave_picture_140800.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ magnet:?xt=urn:btih:2C78BADCE518B7950A4A1857774C7AEE5DB275FC
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140801.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140801.jpgsave_picture_140801.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Udemy, Dmitry Soshnikov | Алгоритмы Синтаксического Ан
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140803.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140803.jpgsave_picture_140803.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ magnet:?xt=urn:btih:2D25BE8A82FC846E92CF7A32E28ABD305BFEBE82
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140804.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140804.jpgsave_picture_140804.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ magnet:?xt=urn:btih:6A88B076ED1FB86A2BF4464C3ACF8C8F8AA8370E
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140805.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140805.jpgsave_picture_140805.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ magnet:?xt=urn:btih:8846453E05D54EA3BB5C88EA24FD72F1D58F9C4C
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140806.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140806.jpgsave_picture_140806.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ magnet:?xt=urn:btih:3CEC2FC73DC7B70E91512C09AF3D15A6F8F01B13
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140809.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140809.jpgsave_picture_140809.jpg" />
 </div>
 
 

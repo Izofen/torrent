@@ -6,7 +6,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7286.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7286.jpgsave_picture_7286.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:59A944231B37C90348177E0266F979126990A613
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7287.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7287.jpgsave_picture_7287.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:D12129868388C86396FF386AB437F7A9EBF7B810
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7288.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7288.jpgsave_picture_7288.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Advanced Renamer 4.15 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7289.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7289.jpgsave_picture_7289.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ JetBrains RustRover 2025.2 Repack by Sitego [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7290.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7290.jpgsave_picture_7290.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:9B23BB60CF1B46877857E6FD44621FEF4DE5298D
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7291.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7291.jpgsave_picture_7291.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:60F9D5E7C3B669EDA5130C2F9EB6D42431C4ED91
 >>Звездные войны / Star Wars (сериалы по франшизе)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7292.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7292.jpgsave_picture_7292.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ VCap Downloader 0.1.35.6662 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7293.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7293.jpgsave_picture_7293.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:FD9B6AD54E0E4CD9891A55C2A7A0201911D97C7D
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7294.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7294.jpgsave_picture_7294.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:9FD41F683C849FC4669FF1E1BCBCBD1CCF250FF4
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7295.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7295.jpgsave_picture_7295.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Google Chrome 139.0.7258.128 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7296.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7296.jpgsave_picture_7296.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Warhammer 40,000: Dawn of War (2025) [Ru/Multi] (2.0.889.0) Repack FitGirl [Defi
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7297.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7297.jpgsave_picture_7297.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ magnet:?xt=urn:btih:F372C4A629979DADDBAF090C13E9CB047316B313
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7298.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7298.jpgsave_picture_7298.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:426DDD6437126540A78F10FCF16DD746BD0931F4
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7299.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7299.jpgsave_picture_7299.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ DLNow Video Downloader 1.54.2025.08.16 RePack (& Portable) by elchupacabra [Mult
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7300.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7300.jpgsave_picture_7300.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:FF0725B1169AFC7018429CF700349194636EA138
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7301.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7301.jpgsave_picture_7301.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ JetBrains GoLand 2025.2 Repack by Sitego [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7302.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7302.jpgsave_picture_7302.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ VA - Record Super Chart 16.08.2025 [MP3|320 Kbps] <Pop, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7303.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7303.jpgsave_picture_7303.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ magnet:?xt=urn:btih:63D4F4D53AB446937AA1A88A931ECB04FBE68459
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7304.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7304.jpgsave_picture_7304.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ R-Drive Image Technician 7.3 Build 7308 RePack (& Portable) by KpoJIuK [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7305.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7305.jpgsave_picture_7305.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ magnet:?xt=urn:btih:AEB361A6FDC6C3FA1142C55F183A432667DD31E8
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7306.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7306.jpgsave_picture_7306.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ magnet:?xt=urn:btih:24692DB29BC24302961E2056313B09FC090E82AA
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7307.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7307.jpgsave_picture_7307.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ magnet:?xt=urn:btih:6E118DC91972223C9F7E2C582EBA991DD3DD44D4
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7308.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7308.jpgsave_picture_7308.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ magnet:?xt=urn:btih:49B0E683C5CDEC2290874D003B486E4E31B38015
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7309.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7309.jpgsave_picture_7309.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ Polarr v6.11.6 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7310.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7310.jpgsave_picture_7310.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ Advanced Renamer 4.15 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7311.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7311.jpgsave_picture_7311.jpg" />
 </div>
 
 

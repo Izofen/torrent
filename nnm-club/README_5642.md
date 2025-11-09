@@ -6,7 +6,7 @@
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173700.jpgsave_picture_173700.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:D8003BE2FDCB681C019E13AD383A319045FFE5AF
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173701.jpgsave_picture_173701.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:450A81D44F6DC9866E69AC54D8336266745576A1
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173702.jpgsave_picture_173702.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:8B16F7CA5A983635FDA51108BB9C427B90DB6B21
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173704.jpgsave_picture_173704.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ VA - The Forest Chill Lounge, Vol. 2 (2012) [AAC|~313 Kbps] <Chillout, Lounge, D
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173705.jpgsave_picture_173705.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:0BB43432A15DC714448DB0C0E8325196140FBCED
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_173706.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_173706.jpgsave_picture_173706.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:DF960F5EBAD75A838EAD603244BDF37A5892A621
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173707.jpgsave_picture_173707.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ PC Building Simulator (2018) [Ru/Multi] (0.9.3) Repack Other s
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173708.jpgsave_picture_173708.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:8E106B12F5FABB85BEC674F15FDA90EF3116775E
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173709.jpgsave_picture_173709.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ FireAlpaca 2.4.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173710.jpgsave_picture_173710.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Wallpaper Engine 2.0.48 RePack by xetrin [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173711.jpgsave_picture_173711.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ magnet:?xt=urn:btih:1B987249A2AF1CBEF9C705E237CB20E57DBC109A
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173712.jpgsave_picture_173712.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ magnet:?xt=urn:btih:6443FB7E246B7EB8E4248D97C4C15C7120EED3DC
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173713.jpgsave_picture_173713.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ VirtualBox 5.1.12.112440 Final + Extension Pack [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173714.jpgsave_picture_173714.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ VA - The Forest Chill Lounge, Vol. 10 (2017) [AAC|~314 Kbps] <Chillout, Lounge, 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173715.jpgsave_picture_173715.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ YT Downloader 7.18.2 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_173716.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_173716.jpgsave_picture_173716.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ magnet:?xt=urn:btih:A67FC652C6D0E9133CD919A86F59133A177943A0
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173717.jpgsave_picture_173717.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Barb Jungr - Hard Rain (2014) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz, Singer-
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173718.jpgsave_picture_173718.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ magnet:?xt=urn:btih:DF61527077408AF3D93585275046DA7FC975CD78
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173719.jpgsave_picture_173719.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ VideoHive - Christmas Slideshow - 19171301 [AEP]
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173720.jpgsave_picture_173720.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ magnet:?xt=urn:btih:D871B20B30598CBD097D1D5475CAE944E4B53B32
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173721.jpgsave_picture_173721.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ magnet:?xt=urn:btih:B735C31B98246D02C86C3EE638F5B7CC35935ABA
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173722.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173722.jpgsave_picture_173722.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ DVDFab Video Downloader 2.0.0.0 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173723.jpgsave_picture_173723.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ magnet:?xt=urn:btih:708A9AD972BA347AE3A8D791A030F32F0766058A
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173724.jpgsave_picture_173724.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Anno 1701 (2007) [Ru] (1.0) License Новый Диск
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173725.jpgsave_picture_173725.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ OmniBus (2016) [Ru/Multi] (1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173726.jpgsave_picture_173726.jpg" />
 </div>
 
 

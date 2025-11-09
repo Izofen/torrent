@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121622.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121622.jpgsave_picture_121622.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Linux Mint 21.3 Virginia (Cinnamon Edition, Cinnamon (Edge) Edition, MATE Editio
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121623.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121623.jpgsave_picture_121623.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Skillbox, Виктория Вишнякова | Как правильно пит
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121625.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121625.jpgsave_picture_121625.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Nienix: Cosmic Warfare (2023) [Ru/Multi] (1.0501) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121626.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121626.jpgsave_picture_121626.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ PotPlayer 240112 (1.7.22077) (x64) Stable RePack (& portable) by 7sh3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121627.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121627.jpgsave_picture_121627.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Sovereign Syndicate (2024) [En] (1.0.25) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121628.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121628.jpgsave_picture_121628.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:299F4D8BF00F1F3683F47E8A05FF9DC6884011F4
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121629.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121629.jpgsave_picture_121629.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ PurpleSchool | Прохождение собеседования (2023) WEB-DL [
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121630.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121630.jpgsave_picture_121630.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:8DF2BC4E73C5CA41FA4F592D2A604777DE6834B5
 >>История
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121631.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121631.jpgsave_picture_121631.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:EA2A9A1DF5C6E9E20550102211B34D827A491943
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121633.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121633.jpgsave_picture_121633.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:E756A862BD8F8226F43090DFEE51CA0DD74A515E
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121634.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121634.jpgsave_picture_121634.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ magnet:?xt=urn:btih:AAA91FC5883653F6179210BE961D9EB392A4802A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121635.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121635.jpgsave_picture_121635.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Merchant of the Skies (2019) [Ru/Multi] (1.6.7) License GOG
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121636.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121636.jpgsave_picture_121636.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ magnet:?xt=urn:btih:E4A800DA60DE86F59E073C2F0F06156E8EAF75E9
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121637.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121637.jpgsave_picture_121637.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ magnet:?xt=urn:btih:534CC61E55506E5D84C5E340009221A6EB8D91C1
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121638.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121638.jpgsave_picture_121638.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Udemy, Nata Vacheishvili | React Native: Mobile App Development (CLI) [2024] (20
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121640.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121640.jpgsave_picture_121640.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ magnet:?xt=urn:btih:F2A54298BCBE8276390ADD42EB7D866EAEC26580
 >>17
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121641.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121641.jpgsave_picture_121641.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ Northgard (2018) [Ru/Multi] (3.3.16.36098/dlc) Repack Other s
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121642.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121642.jpgsave_picture_121642.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ magnet:?xt=urn:btih:1BA0818F016173B5F8EBE41A09FC84059B0E7156
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121643.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121643.jpgsave_picture_121643.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Cliff Empire (2019) [Ru/Multi] (1.34) Repack Other s
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121644.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121644.jpgsave_picture_121644.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Minecraft Legends (2023) [Ru/Multi] (1.18.14350) Scene Rune
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121645.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121645.jpgsave_picture_121645.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:751FE2404BDE8572EA223C66CBC6E3B26A04AF86
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121646.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121646.jpgsave_picture_121646.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ magnet:?xt=urn:btih:2D65906E71D1C3047E775390ECFE04D919FF9B33
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121647.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121647.jpgsave_picture_121647.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ magnet:?xt=urn:btih:83E5149AA640ABC297DBA327996A36A072CEE50E
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121649.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121649.jpgsave_picture_121649.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ magnet:?xt=urn:btih:D6A9BAFD614FC12E150CBFD41B671E503589A7C7
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121650.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121650.jpgsave_picture_121650.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Yooka-Replaylee (2025) [Ru/Multi] (1.0) Repack seleZen
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121651.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121651.jpgsave_picture_121651.jpg" />
 </div>
 
 

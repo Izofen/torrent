@@ -6,7 +6,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131612.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131612.jpgsave_picture_131612.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Scott Henderson, Steve Smith, Victor Wooten - Vital Tech Tones (1998) [WavPack|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131613.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131613.jpgsave_picture_131613.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Blender 4.0.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131614.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131614.jpgsave_picture_131614.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ magnet:?xt=urn:btih:A8B6F1C397F5B5512F0A0F92D6B675D170E6D02F
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131616.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131616.jpgsave_picture_131616.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Advanced SystemCare Pro 17.1.0.157 Portable by zeka.k [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131618.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131618.jpgsave_picture_131618.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ magnet:?xt=urn:btih:630440704088EB4165EC9A2F76304DF9F40C6870
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131619.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131619.jpgsave_picture_131619.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ magnet:?xt=urn:btih:8EE26398734D99803C2CFE33665146B06C8A63E5
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131622.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131622.jpgsave_picture_131622.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ Lonestar - This Christmas Time (2000) [FLAC|Lossless]<Pop, Christmas>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131623.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131623.jpgsave_picture_131623.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Lonestar - This Christmas Time (2000) [FLAC|Lossless]<Pop, Christmas>
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131624.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131624.jpgsave_picture_131624.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Udemy, English Academy | Living in U.S.: Speaking English for Everyday Situation
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131625.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131625.jpgsave_picture_131625.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Validor - Dawn Of The Avenger (2012) [MP3|320 кб/с]<Folk / Heavу/ Power Meta
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131626.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131626.jpgsave_picture_131626.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Gumroad, Val Orlov | How to create in 3D Character Concept Art (2023) WEB-DL [EN
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131627.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131627.jpgsave_picture_131627.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ magnet:?xt=urn:btih:05117FAB081042B5C56B5D09FC11C00BF58D191D
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131628.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131628.jpgsave_picture_131628.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ The Amenta - V01D (2011) [MP3|320 кб/с]<Industrial Experimental Death Metal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131629.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131629.jpgsave_picture_131629.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ magnet:?xt=urn:btih:684A6F12BA7514124BC4AE868CEA5358F49B154E
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131630.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131630.jpgsave_picture_131630.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Windows 11 Manager 1.3.4 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131631.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131631.jpgsave_picture_131631.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ magnet:?xt=urn:btih:57A9D19305307DB6C3F3B7AA01A576082226E00C
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131632.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131632.jpgsave_picture_131632.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ Deformed Slut - Stench Of Carnage (2011) [MP3|320 кб/с]<Brutal Death>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131633.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131633.jpgsave_picture_131633.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ magnet:?xt=urn:btih:D8A5132C351CB7FFA26706044833FD4E715E9B8B
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131634.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131634.jpgsave_picture_131634.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ magnet:?xt=urn:btih:6BAE42B8930081D4BD40E6FFB1CBC31FF2F4D335
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131636.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131636.jpgsave_picture_131636.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ magnet:?xt=urn:btih:5A39106A335882888008E6E73E7C8BAEBE14A492
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131637.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131637.jpgsave_picture_131637.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ magnet:?xt=urn:btih:854DD08DC4F962E07806165B4769614BC7B8AA91
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131640.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131640.jpgsave_picture_131640.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Snail - Terminus (2012) [MP3|320 кб/с]<Psychedelic Stoner Doom>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131641.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131641.jpgsave_picture_131641.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ magnet:?xt=urn:btih:7572CB12460D0BB32A2C92DCDB9EA53CFFEE2F45
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131642.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131642.jpgsave_picture_131642.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ magnet:?xt=urn:btih:F41C7084434A6F466ED16DE1335C6B6EB3151041
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131643.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131643.jpgsave_picture_131643.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Total Commander 11.02 (05.12.2023) Portable by MiG [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131644.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131644.jpgsave_picture_131644.jpg" />
 </div>
 
 

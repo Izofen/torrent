@@ -6,7 +6,7 @@
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55201.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55201.jpgsave_picture_55201.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:AB82817DAA5FE3B5A40EC2ECE7021ABF0532233F
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55202.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55202.jpgsave_picture_55202.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ VA - Митьковская бескозырка (1999) [FLAC|Lossless|tracks + 
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55203.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55203.jpgsave_picture_55203.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:1F5E3441946F267B453B5DB2E5ADA097A1307960
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55204.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55204.jpgsave_picture_55204.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:1F5E3441946F267B453B5DB2E5ADA097A1307960
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55205.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55205.jpgsave_picture_55205.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:205316B578397333D092F85388C5E91779E46B0F
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55206.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55206.jpgsave_picture_55206.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:2C503F680ED17818681F30D96326271ABF4EA263
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55207.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55207.jpgsave_picture_55207.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:75EAE8372FC3E3E772131CE2033420669E70A605
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55208.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55208.jpgsave_picture_55208.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:E81E14B9515803C729A6F0FA5DBFAE0201BEF3F5
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55209.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55209.jpgsave_picture_55209.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Imaginary Friend Asylum (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55210.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55210.jpgsave_picture_55210.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:BD692BCF2DA23882E080CD71459FDF4C3A73063A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55211.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55211.jpgsave_picture_55211.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Dorling Kindersley | Ultimate Visual Dictionary (2017) [PDF] [EN]
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55212.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55212.jpgsave_picture_55212.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ magnet:?xt=urn:btih:5919DAF4906ABAD2B49F2F5565FB303D929771C5
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55213.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55213.jpgsave_picture_55213.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Fort Firewall 3.12.12 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55214.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55214.jpgsave_picture_55214.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ magnet:?xt=urn:btih:1345DF3A217E0B747FFA3DE5D206B16EAC5487FC
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55215.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55215.jpgsave_picture_55215.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:D8B405C2FCF7B8A6E2E15EE63E4145A813AE5CA8
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55216.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55216.jpgsave_picture_55216.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ VA - Рок-сборник 3 (В одной обойме) (2024) [FLAC|Lossless|
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55217.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55217.jpgsave_picture_55217.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ magnet:?xt=urn:btih:050DA985AB846E39D4B79FAAC2F2E7B16B38567A
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55218.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55218.jpgsave_picture_55218.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Suki demo Kirai na Amanojaku | My Oni Girl | Моя подруга — демо�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55219.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55219.jpgsave_picture_55219.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ City Legends 4: The Witness in the Rye / Городские легенды 4: С
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55220.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55220.jpgsave_picture_55220.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Topaz Video AI 5.1.0 (x64) Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55221.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55221.jpgsave_picture_55221.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ magnet:?xt=urn:btih:B6C4241234924561B64E8AAF5AD98D97B101C256
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55222.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55222.jpgsave_picture_55222.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Harebrained Schemes | Артбук по игре The Lamplighters League / The L
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55223.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55223.jpgsave_picture_55223.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ magnet:?xt=urn:btih:5AFBDBB8B980DCF1D0B993B55A3F2A04F7F25F6F
 >>История
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55224.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55224.jpgsave_picture_55224.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ magnet:?xt=urn:btih:AC7C444A0BEDDC6A3BDF5FBA2CAD2D990581E1F5
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55225.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55225.jpgsave_picture_55225.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ qBittorrent 4.6.5 Portable by PortableApps + Themes (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55226.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55226.jpgsave_picture_55226.jpg" />
 </div>
 
 

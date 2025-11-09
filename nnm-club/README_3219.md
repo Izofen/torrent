@@ -6,7 +6,7 @@
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104046.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104046.jpgsave_picture_104046.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Richie Kotzen - Nomad (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104047.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104047.jpgsave_picture_104047.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ The Cold Stares - The Southern (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Sou
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104048.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104048.jpgsave_picture_104048.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Virgin Steele - Guardians Of The Flame (1983) Reissue, Remastered, 2024, Steamha
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104049.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104049.jpgsave_picture_104049.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Arma - Brazilian Genocide (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Power Me
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104050.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104050.jpgsave_picture_104050.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Shrinking Mode - Choices of Passion (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104051.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104051.jpgsave_picture_104051.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Sylvain Rifflet - We Want Stars (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Co
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104052.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104052.jpgsave_picture_104052.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Kate Pierson - Radios & Rainbows (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <R
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104053.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104053.jpgsave_picture_104053.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ Cannonball Adderley - Paris Jazz Concert: Salle Pleyel, Olympia (1960, 1961,1969
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104054.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104054.jpgsave_picture_104054.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Sugaray Rayford - Human Decency (2024) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <Bl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104055.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104055.jpgsave_picture_104055.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ The Black Dahlia Murder - Servitude (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104056.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104056.jpgsave_picture_104056.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Serious Black - Rise of Akhenaton (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104057.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104057.jpgsave_picture_104057.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Sonny Stitt - & The Top Brass (1962) 1998, Atlantic [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104058.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104058.jpgsave_picture_104058.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ magnet:?xt=urn:btih:ADD70DD985D5AC9C73B88459DC29E593FFB8ACDB
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104059.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104059.jpgsave_picture_104059.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ magnet:?xt=urn:btih:C6E9CCB33B969BF687ED2FFD579152D27DAB47D7
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104060.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104060.jpgsave_picture_104060.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ magnet:?xt=urn:btih:07575F2A16512331E9CAE6D5EBBEB35213C5BC54
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104061.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104061.jpgsave_picture_104061.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ magnet:?xt=urn:btih:C22C179908124FBE4275F05382D3167DD0AA0D81
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104062.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104062.jpgsave_picture_104062.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ Rockin' Dopsie, Jr. & The Zydeco Twisters - More Fun With Rockin' Dopsie Jr. & T
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104063.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104063.jpgsave_picture_104063.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ Nim - NOW (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Contemporary Jazz, Vocal J
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104064.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104064.jpgsave_picture_104064.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ Robert Jon & The Wreck - Red Moon Rising (2024) [FLAC 24/44.1|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104065.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104065.jpgsave_picture_104065.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Kris Rab - It's About Time (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104066.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104066.jpgsave_picture_104066.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Nikhil Korula Power Trio, John Primer, and Bob Corritore - Sight & Sound Episode
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104067.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104067.jpgsave_picture_104067.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Louis Fontaine - Antipasto (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz Fu
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104068.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104068.jpgsave_picture_104068.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ Ruben Bertrands - The Other Side Of The Coin (2024) [FLAC 24/44.1|Lossless|WEB-D
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104069.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104069.jpgsave_picture_104069.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ Forq - Big Party (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Contemporary Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104070.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104070.jpgsave_picture_104070.jpg" />
 </div>
 
 
@@ -676,7 +676,7 @@ Magnus Dauner - Portrait In Rhythm (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <C
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104071.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104071.jpgsave_picture_104071.jpg" />
 </div>
 
 

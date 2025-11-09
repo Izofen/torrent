@@ -6,7 +6,7 @@
 >>Сериалы DC Comics
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247223.jpgsave_picture_247223.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:5B842B261A5FD346E44FB95428502D19640AFC1A
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247224.jpgsave_picture_247224.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:59A83057913780D070EB06C395AB17192102C73C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247225.jpgsave_picture_247225.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:C613F9B7DD2E077F9CBC6D0236E8E65DAF29A068
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247226.jpgsave_picture_247226.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:D7E29E129D1A954D7F34982266D05246FB83CF9C
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247227.jpgsave_picture_247227.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:F9E9E26B8DCF8F419DCCD83461C6839716688904
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247228.jpgsave_picture_247228.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:5FBE4E19DA9F402E6FC0AEBA755B5D9844A0BB09
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247229.jpgsave_picture_247229.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:A0A984BCF7F785E6D360A8D46B2739616095C186
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247230.jpgsave_picture_247230.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:BA7414629E5E35345E5FC5FF5C83F8CB15FBEBEC
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247232.jpgsave_picture_247232.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ magnet:?xt=urn:btih:CFC051A9930082C23C6FA7124FEBBE4504365A88
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247233.jpgsave_picture_247233.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ System software for Windows v.3.5.7 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247234.jpgsave_picture_247234.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Moonscars (2022) [Multi] (1.6.009) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247235.jpgsave_picture_247235.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ magnet:?xt=urn:btih:87D0128D596233257103ADFF078A20661ED44361
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247236.jpgsave_picture_247236.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ magnet:?xt=urn:btih:B9FB4CFA14A808BE082912AAA5126622946C8077
 >>Сериалы DC Comics
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247237.jpgsave_picture_247237.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ magnet:?xt=urn:btih:294207A988EF34FB5F9535EAD50CD1C4C160A723
 >>Сериалы DC Comics
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247238.jpgsave_picture_247238.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ magnet:?xt=urn:btih:A8CA97C484B77625AC0B3AA9CAE29DF449002345
 >>Сериалы DC Comics
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247239.jpgsave_picture_247239.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ magnet:?xt=urn:btih:60A156CCEB185463E67894A25EFAD50B6C5CBCA8
 >>Сериалы DC Comics
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247240.jpgsave_picture_247240.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ magnet:?xt=urn:btih:18F033416218FFBAA8938720DD6C401E1E0292F2
 >>Сериалы DC Comics
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247241.jpgsave_picture_247241.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ A Plague Tale: Requiem (2022) [Ru/Multi] (20230706_1126/dlc) License GOG
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247242.jpgsave_picture_247242.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Microsoft® Windows® 11 x64 Ru 22H2 4in1 Upd 06.2023 by OVGorskiy
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247243.jpgsave_picture_247243.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ magnet:?xt=urn:btih:C9B01772FFDD009782A75CDF18C5DC3886821264
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247244.jpgsave_picture_247244.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ magnet:?xt=urn:btih:F1D5E9CB5BB3DD46E710C2FA2F189DA12CF726D9
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247245.jpgsave_picture_247245.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ magnet:?xt=urn:btih:AE861A78AE012E817460EEB48FFF0E814B6F71F7
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247246.jpgsave_picture_247246.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ magnet:?xt=urn:btih:FE04BA1A8164EEA704477BEBF0239D05A8E17F00
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247247.jpgsave_picture_247247.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ magnet:?xt=urn:btih:2124B8A45893FF5356F579AA5D57F8C503925E1F
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247248.jpgsave_picture_247248.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ magnet:?xt=urn:btih:A81B007F2AF0BBE730B000D8D5D8717A900EB165
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247249.jpgsave_picture_247249.jpg" />
 </div>
 
 

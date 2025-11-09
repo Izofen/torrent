@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246825.jpgsave_picture_246825.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:62760B7E52EB1BBC132B0B8507994CBD102D7EDB
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246827.jpgsave_picture_246827.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:0F2CBA9ED3D21CE9DFCF817A5340357A7844A5B4
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246829.jpgsave_picture_246829.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:F5A6A46E3A19EC408BDCF2345BF6885134A58E81
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246830.jpgsave_picture_246830.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:8AFB60AF17EF0F941D1B7D11AB9C64AD2493D121
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246832.jpgsave_picture_246832.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:BFA4C1E8E2A6FADF4B6950C412F0B2D5D8A1E6D2
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246837.jpgsave_picture_246837.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:BC9EF693B08B82FEBBADCB150E45C69B257116E0
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246846.jpgsave_picture_246846.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:ECAFD2D2C0F9DEBE71F7D3C3973119493067453D
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246853.jpgsave_picture_246853.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:99F84F7B33DEB34769AFE1212896D083B1823F5D
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246855.jpgsave_picture_246855.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:39FC4C840486AC4133194BC2F6CEECEAAFE81076
 >>Теория Большого Взрыва / The Big Bang Theory; Детство Шелдона / Young Sheldon
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246861.jpgsave_picture_246861.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ magnet:?xt=urn:btih:63B4E9FC13D6277DB81BB194E725966A95E92B48
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246863.jpgsave_picture_246863.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ magnet:?xt=urn:btih:F6104B556716F21FA3E9CCCB682144B27CB3943B
 >>Теория Большого Взрыва / The Big Bang Theory; Детство Шелдона / Young Sheldon
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246865.jpgsave_picture_246865.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ magnet:?xt=urn:btih:C1B5D2CBBB6887157DF7D9C6D7215806C4AE6B7B
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246867.jpgsave_picture_246867.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ magnet:?xt=urn:btih:CF560C005B25DB8ADFD85A2115337CEC3665D9A5
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246869.jpgsave_picture_246869.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ magnet:?xt=urn:btih:BA5EACEF413F9DA951EB5BECFD1A738C5A81D958
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246873.jpgsave_picture_246873.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:BF613E86FDE869DFA904327EAE20506F984B42BD
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246874.jpgsave_picture_246874.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ magnet:?xt=urn:btih:525775385FB3C672775C2EF103059D3AA8E26B11
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246876.jpgsave_picture_246876.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ magnet:?xt=urn:btih:9C24C72256CCB440243ECAFC4C7DD6BCF14BF6D7
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246881.jpgsave_picture_246881.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ magnet:?xt=urn:btih:12190F638131F550BBBB71BCEE3B232BBDBE162F
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246882.jpgsave_picture_246882.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ magnet:?xt=urn:btih:960E6BBD3EFDE398BB5CCA290502AF18D8C54B21
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246887.jpgsave_picture_246887.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ magnet:?xt=urn:btih:EBCE9CDA60CF4CA823140F7C8251C3843CBFC73B
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246891.jpgsave_picture_246891.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:66155EB3E620F9E6D2147CC1DB827ABB64709DE5
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246893.jpgsave_picture_246893.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ magnet:?xt=urn:btih:DEF0580C1C857BC6B5CF2651CF14CE486730E844
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246894.jpgsave_picture_246894.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ magnet:?xt=urn:btih:F2E96BA946F3F7A367D32E9060393FB0E87D125C
 >>Теория Большого Взрыва / The Big Bang Theory; Детство Шелдона / Young Sheldon
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246905.jpgsave_picture_246905.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ magnet:?xt=urn:btih:D2AA6AC5B67B0FBA1B4866439E7BCCF7CAD7595F
 >>Теория Большого Взрыва / The Big Bang Theory; Детство Шелдона / Young Sheldon
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246907.jpgsave_picture_246907.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ magnet:?xt=urn:btih:0BF6FCAB2B6BC7B038728B0650C4C7B5453024BF
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246914.jpgsave_picture_246914.jpg" />
 </div>
 
 

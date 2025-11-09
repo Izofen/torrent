@@ -6,7 +6,7 @@
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20216.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20216.jpgsave_picture_20216.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:6708DB08005E6DDAB0AB66E2D1B8046D991E7C44
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20217.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20217.jpgsave_picture_20217.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:8E036C9C8BADB5D71BD553CA5B904A5959C65A1F
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20218.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20218.jpgsave_picture_20218.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:FDC5F994C768EBB7BB7EBE33930289EFD5B3F48A
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20219.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20219.jpgsave_picture_20219.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:CDDA741E564D3CEF45731DBB6887ACF2E5EDBC32
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20220.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20220.jpgsave_picture_20220.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:32B1846F76673B4A254997761119914FFAC69B01
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20221.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20221.jpgsave_picture_20221.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:BCF6D5D36A36D2ACDDAB04E8F494752C87A61DA2
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20222.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20222.jpgsave_picture_20222.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:6A3C42BFFB8599057249C5432E0F032EB7659DB5
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20223.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20223.jpgsave_picture_20223.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:E8D5D3D5BC79E6AF66975E5AC61EEC8C774F97CF
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20224.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20224.jpgsave_picture_20224.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ magnet:?xt=urn:btih:8966D68B9F91AC72389FAC82494577C5271B09CA
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20225.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20225.jpgsave_picture_20225.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Firmament (2023) [Ru/Multi] (2.0.8) Repack Let'sРlay [The Keepers' Bundle]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20226.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20226.jpgsave_picture_20226.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ magnet:?xt=urn:btih:9C900DDEA1036A1B8288B77AF59097645E59E093
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20227.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20227.jpgsave_picture_20227.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ magnet:?xt=urn:btih:496A00D0B2FE926382441DDDF1043B77472170DB
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20228.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20228.jpgsave_picture_20228.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ magnet:?xt=urn:btih:BE329903B2523925F633168CD87595670DDB666F
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20229.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20229.jpgsave_picture_20229.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Burial (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20230.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20230.jpgsave_picture_20230.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ magnet:?xt=urn:btih:19C88EE88387217E6B609352B5647C9A5573D85B
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20231.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20231.jpgsave_picture_20231.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ magnet:?xt=urn:btih:700E8220ACE5E21EFBCF57B3AA0E694128F9694D
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20232.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20232.jpgsave_picture_20232.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ Driver Store Explorer 0.12.88 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20233.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20233.jpgsave_picture_20233.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ CyberCorp (2024) [Ru/Multi] (1.00) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20234.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20234.jpgsave_picture_20234.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ magnet:?xt=urn:btih:58D71A526598421F740FC521A93A1ACD605CDB35
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20235.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20235.jpgsave_picture_20235.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ magnet:?xt=urn:btih:E12ED53A772F5E04818DB7DA60E99C68DDBD4B86
 >>А знаете ли вы..
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20236.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20236.jpgsave_picture_20236.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ magnet:?xt=urn:btih:E12ED53A772F5E04818DB7DA60E99C68DDBD4B86
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20238.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20238.jpgsave_picture_20238.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ magnet:?xt=urn:btih:23FC0D94BD08D995E26DD20C2E03E895845EC0AB
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20239.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20239.jpgsave_picture_20239.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ ON и Она (2025) WEBRip [H.264/1080p]
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20240.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20240.jpgsave_picture_20240.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Forza Horizon 5 (2021) [Ru/Multi] (1.683.258.0/dlc) Scene Rune [Premium Edition]
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20241.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20241.jpgsave_picture_20241.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ magnet:?xt=urn:btih:A3EFDA3005522EB067C26B610CD2122AC20EEE92
 >>Сериалы Marvel Comics
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20242.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20242.jpgsave_picture_20242.jpg" />
 </div>
 
 

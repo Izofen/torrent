@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169230.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169230.jpgsave_picture_169230.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Leviathan - Deepest Secrets Beneath & Leviathan (2010) EP [FLAC|Lossless|image +
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169231.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169231.jpgsave_picture_169231.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:D321C2101F3E2BCE6488E6AB3D673F06BF8FC2FC
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169232.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169232.jpgsave_picture_169232.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:18FEF63737F8B7158CD0D80F76DBF840F9D73677
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169233.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169233.jpgsave_picture_169233.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Business Calendar v2.44.0 + Lite Mod [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169234.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169234.jpgsave_picture_169234.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ Flash Forward - Endings = Beginnings (2022) [FLAC|Lossless|WEB-DL|tracks] <Alt.R
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169235.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169235.jpgsave_picture_169235.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ magnet:?xt=urn:btih:71C95EE026B17F69C4C8A3A5D89BFC0A4754EF3B
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169236.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169236.jpgsave_picture_169236.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ VA - Techno Club Vol. 70 (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169238.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169238.jpgsave_picture_169238.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ magnet:?xt=urn:btih:CC4ED2BA6D47C0716F9C6741B86DDD4A47951928
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169239.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169239.jpgsave_picture_169239.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ Adobe Photoshop 2020 21.0.2.57 RePack by KpoJIuK [Multi/Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169240.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169240.jpgsave_picture_169240.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ Zakon i Besporyadok (2020) WEBRip (сезон 1, серии 1-5 из 5)
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169241.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169241.jpgsave_picture_169241.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ Yotam Avni - Summer of Love (2023) [FLAC|Lossless|WEB-DL|tracks] <Techno>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169242.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169242.jpgsave_picture_169242.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ Volbeat - Servant Of The Mind (2021) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169243.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169243.jpgsave_picture_169243.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ WinRAR 5.80 Final RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169244.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169244.jpgsave_picture_169244.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ magnet:?xt=urn:btih:C7A8C317E2B851616198A3752987C8F5C9288B54
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169245.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169245.jpgsave_picture_169245.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ VueScan Pro 9.8.20 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169246.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169246.jpgsave_picture_169246.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ magnet:?xt=urn:btih:772E3C5C02D5939734EC0F52E78263D4382E5101
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169247.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169247.jpgsave_picture_169247.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ VA - Dark Electronic Symphony (2023) [MP3|320 Kbps] <Darkwave, Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169248.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169248.jpgsave_picture_169248.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ magnet:?xt=urn:btih:F0CF5E0061625223D45281E4992183B4AF4630D0
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169249.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169249.jpgsave_picture_169249.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ magnet:?xt=urn:btih:1BC71C4AF0824B88EF474F493B0898AD45C31DDA
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169250.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169250.jpgsave_picture_169250.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ magnet:?xt=urn:btih:DAE54DBB1F29011668856C3D79E42875B64FD684
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169251.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169251.jpgsave_picture_169251.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ ESET NOD32 Internet Security 13.0.24.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169252.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169252.jpgsave_picture_169252.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Robin Trower featuring Sari Schorr - Joyful Sky (2023) [FLAC|Lossless|WEB-DL|tra
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169253.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169253.jpgsave_picture_169253.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Windows 8.1 with Update [9600.19893] AIO 36in2 (x86-x64) by adguard (v20.12.09) 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169254.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169254.jpgsave_picture_169254.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Honeyview 5.45 Build 6005 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169255.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169255.jpgsave_picture_169255.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ magnet:?xt=urn:btih:1AB5F1FC951DFA78156FE5FE63EB25A4C831F88F
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169256.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169256.jpgsave_picture_169256.jpg" />
 </div>
 
 

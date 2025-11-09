@@ -6,7 +6,7 @@
 >>Релакс / Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237069.jpgsave_picture_237069.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Aiseesoft Mac Data Recovery  1.6.16 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237070.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237070.jpgsave_picture_237070.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ English Grammar & Phonetics v7.6.6 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237071.jpgsave_picture_237071.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ Toledo Steel - Heading For The Fire (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237075.jpgsave_picture_237075.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ Tony Tucker - Compilation (2023) [MP3|320 Kbps] <Rock, Ballads, Blues>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237076.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237076.jpgsave_picture_237076.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ magnet:?xt=urn:btih:EEE9AA697170F8F07E295B5AADB87730C08B4CCA
 >>Другие мультимедийные материалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237077.jpgsave_picture_237077.jpg" />
 </div>
 
 
@@ -161,7 +161,7 @@ magnet:?xt=urn:btih:239FE5954DD8ACA2802E8F618818D7062E513FC5
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237079.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237079.jpgsave_picture_237079.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ Downie 4 v4.1.20 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237081.jpgsave_picture_237081.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ Michael McCarthy, Felicity O'Dell | English Vocabulary in Use. Elementary (2017)
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237084.jpgsave_picture_237084.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ magnet:?xt=urn:btih:F2BDDCAF6FA1B1BC2BE57168721413EE9F366A46
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237085.jpgsave_picture_237085.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ PCalc 4.9.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237086.jpgsave_picture_237086.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ TG Pro (Temperature Gauge Pro) 2.82[En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237087.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237087.jpgsave_picture_237087.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ Michael Thompson Band - The Love Goes On (2023) [FLAC|Lossless|image + .cue] <Me
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237092.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237092.jpgsave_picture_237092.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ Topic - Tomorrowland Friendship Mix (2021-03-04) [MP3|320 Kbps] <House, Future H
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237093.jpgsave_picture_237093.jpg" />
 </div>
 
 
@@ -365,7 +365,7 @@ magnet:?xt=urn:btih:E812215AE346E0D9465CC7571ADDF18BE1FCCA15
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237094.jpgsave_picture_237094.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ magnet:?xt=urn:btih:ADFC922AC99F04CBB048428DB3866B70C41922D1
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237095.jpgsave_picture_237095.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ Skillshare, Aniket Rawat | Creating a Kitchen Environment in Unreal Engine 5 (20
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237097.jpgsave_picture_237097.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ magnet:?xt=urn:btih:048CDE4E59544DB02A92239B639C61CE71349508
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237099.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237099.jpgsave_picture_237099.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Numenor - Draconian Age (2021) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Black, P
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237101.jpgsave_picture_237101.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ VA - Autumn Breeze, Vol. 2: Chill Sounds for Relaxing Moments (2018) [AAC|~328 K
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237103.jpgsave_picture_237103.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ magnet:?xt=urn:btih:34180B9B43AECB644B9EB2867F82F580CDF8FEC4
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237104.jpgsave_picture_237104.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ magnet:?xt=urn:btih:083C0589A93E0D397CD55759A1E59AAA68B2ABC4
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237105.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237105.jpgsave_picture_237105.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ magnet:?xt=urn:btih:F3ECFA50773C97937E0D0055A868B0A8B26D99AC
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237106.jpgsave_picture_237106.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ BetterMouse 1.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237110.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237110.jpgsave_picture_237110.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ magnet:?xt=urn:btih:9347C392CBCFF3D800D541017CDA5FBE1C67D9C8
 >>Релакс / Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237111.jpgsave_picture_237111.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ magnet:?xt=urn:btih:EE79729838E306212EF33536213242F691B488D4
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237112.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237112.jpgsave_picture_237112.jpg" />
 </div>
 
 

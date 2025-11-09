@@ -6,7 +6,7 @@ Tribulation - Where The Gloom Becomes Sound (2021) Japanese Edition [FLAC|Lossle
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238005.jpgsave_picture_238005.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Draw.io 21.3.7 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238006.jpgsave_picture_238006.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:F954226A3488F51D8B4F04D124C4310EBEAC4BCD
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238007.jpgsave_picture_238007.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ KrazarK - Fireflake (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Stoner>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238008.jpgsave_picture_238008.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ A Better Finder Rename 11 v11.37 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238009.jpgsave_picture_238009.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ Amanda Lear - Sweet Revenge (1978) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Ele
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238010.jpgsave_picture_238010.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ Adam Sherman - Triangle Sky (2021) [MP3|320 Kbps] <Classic Rock, Pop Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238011.jpgsave_picture_238011.jpg" />
 </div>
 
 
@@ -187,7 +187,7 @@ magnet:?xt=urn:btih:43C769FD4409D6AADEC4617F9366744563BFD280
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238012.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238012.jpgsave_picture_238012.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ The Irresponsibles - The Lizard (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238013.jpgsave_picture_238013.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Omni Recover 3 v3.1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238014.jpgsave_picture_238014.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ magnet:?xt=urn:btih:C5FFA11310CB4A97233F2DE3856FFBF38DB58247
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238015.jpgsave_picture_238015.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ RogueKiller Anti-Malware 15.9.0 + Portable [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238016.jpgsave_picture_238016.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ McCoy Tyner - Beautiful Love: Live in Warsaw (1991) 1994, All At Once Happy Pric
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238017.jpgsave_picture_238017.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ magnet:?xt=urn:btih:4681DD2ABDA040386EB00A61CCC7BEC0BAA0048D
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238018.jpgsave_picture_238018.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ Noxus - Ashes Underneath (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238019.jpgsave_picture_238019.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Topaz Video AI 3.2.2 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238020.jpgsave_picture_238020.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ StartAllBack 3.6.6 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238021.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238021.jpgsave_picture_238021.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ magnet:?xt=urn:btih:7ED4B0B9C78D79048F6419B261519CCAC43727CF
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238022.jpgsave_picture_238022.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Garmin: City Navigator North America NT 2023.20 [En]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238023.jpgsave_picture_238023.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Kjellerbandet & Tore Johansen - Thad Jones Tribute (2008) Normann Records [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238024.jpgsave_picture_238024.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ Ceaseless Torment - Victory or Death (2022) [FLAC|Lossless|WEB-DL|tracks] <Thras
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238025.jpgsave_picture_238025.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ magnet:?xt=urn:btih:F1FCE7449AC1DB57FF4B22590EB7CE36AFFC1F7F
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238026.jpgsave_picture_238026.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ magnet:?xt=urn:btih:567D3A19EEDD6F3749A67AEEBEFAFC2B8430D5EB
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238027.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238027.jpgsave_picture_238027.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ magnet:?xt=urn:btih:2E71A0E5A85F14017AEF9AC96B3DBDDB780E8DB0
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238028.jpgsave_picture_238028.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ FastFlix 5.5.2 + portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238029.jpgsave_picture_238029.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ magnet:?xt=urn:btih:F4FE20F06888D0C0FAAB4458732BE4F951FEFEA4
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238030.jpgsave_picture_238030.jpg" />
 </div>
 
 

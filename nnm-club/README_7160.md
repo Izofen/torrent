@@ -6,7 +6,7 @@
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245110.jpgsave_picture_245110.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Odessa - L'Alba Della Civiltà (2023) [FLAC|Lossless|tracks + .cue] <Progressive
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245111.jpgsave_picture_245111.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ magnet:?xt=urn:btih:ABFF0428466B953689A7DADB9932BC93FD84847F
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245112.jpgsave_picture_245112.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ Coiotes S.A. - Daqui Pra Frente Eh Nois (2023) [FLAC|Lossless|WEB-DL|tracks] <He
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245113.jpgsave_picture_245113.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ Vas' - Быстрее послушать (2021) [MP3|320 Kbps] <Indie-Rock / Pop
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245114.jpgsave_picture_245114.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ VA - Nightflight Rio - 22 Premium Downbeat & Lounge Trax (2014) [AAC|~340 Kbps] 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245115.jpgsave_picture_245115.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ magnet:?xt=urn:btih:0886DC823E4921329C40B3E084199BF606649CA0
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245116.jpgsave_picture_245116.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ magnet:?xt=urn:btih:7035209DF918C66011996CD8EE7969F4D52E15FB
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245117.jpgsave_picture_245117.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Fall Out Boy - So Much (For) Stardust (2023) [FLAC|Lossless|WEB-DL|tracks] <Punk
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245118.jpgsave_picture_245118.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Billie Holiday - BD Jazz (1937 - 1952) 2CD, 2003, Nocturne [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245119.jpgsave_picture_245119.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ magnet:?xt=urn:btih:A486ED782D900ACBF97D8427F95A243A01B0F738
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245120.jpgsave_picture_245120.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Your Universal MultiBoot Installer exFAT (BIOS & UEFI USB Boot) 1.0.1.5 Portable
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245121.jpgsave_picture_245121.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ magnet:?xt=urn:btih:80F5CECED102410E0A6F5F600935F2CBABF68DD2
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245122.jpgsave_picture_245122.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ WonderPen 2.0.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245123.jpgsave_picture_245123.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ magnet:?xt=urn:btih:CABC0F41F26BB22013DD5797A6B807247FB16ECB
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245124.jpgsave_picture_245124.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ OBS Studio 27.2.4 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245125.jpgsave_picture_245125.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ WolloW - Tales of WolloW - Volume 1 (2023) [FLAC|Lossless|WEB-DL|tracks] <Psych 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245126.jpgsave_picture_245126.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ RogueKiller Anti-Malware 15.8.2 + Portable [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245127.jpgsave_picture_245127.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ magnet:?xt=urn:btih:7379D3B77CDAFDDFA3593D35787D86D488146726
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245128.jpgsave_picture_245128.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ magnet:?xt=urn:btih:B09A346DFA42216D317E43003818E51640B06D0A
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245129.jpgsave_picture_245129.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ Re-Animator - Re-Animator (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard'N'Heavy>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245130.jpgsave_picture_245130.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ VA - Trancemission Amsterdam (2016) [MP3|320 Kbps] <Trance, Progressive Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245131.jpgsave_picture_245131.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Hides 5.6.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245132.jpgsave_picture_245132.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Serif Affinity Photo 1.10.5.1342 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245133.jpgsave_picture_245133.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ magnet:?xt=urn:btih:298E36C61A45505377D76C7485A0F20A6CAE12BE
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245134.jpgsave_picture_245134.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ magnet:?xt=urn:btih:7EB6863565C62FDCEDA6EF7E52A2494A0E875229
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245135.jpgsave_picture_245135.jpg" />
 </div>
 
 

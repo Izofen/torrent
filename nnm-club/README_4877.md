@@ -6,7 +6,7 @@
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152616.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152616.jpgsave_picture_152616.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:A4BA18C0CC0085A7ADAAB497A3E0643517A6809C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152617.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152617.jpgsave_picture_152617.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:A4BA18C0CC0085A7ADAAB497A3E0643517A6809C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152618.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152618.jpgsave_picture_152618.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:0D218B4ACD59EF502F5E109B448B0964F4204C59
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152619.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152619.jpgsave_picture_152619.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:3CA4ABAB3E6E38BB430B4A5C0622C86EEDFE1878
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152621.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152621.jpgsave_picture_152621.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ MAGIX Movie Edit Pro 2022 Premium 21.0.1.111 (x64) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152622.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152622.jpgsave_picture_152622.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ VA - ADE 2018 (2018) 2CD [MP3|320 Kbps] <Dance, House, Funky, Indie Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152624.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152624.jpgsave_picture_152624.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ FoneDog Toolkit for iOS 2.1.76 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152625.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152625.jpgsave_picture_152625.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:ECD2244D2E7315F7DF797D44CABE943F750C838B
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152626.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152626.jpgsave_picture_152626.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Comedy Woman (2016.12.23) WEB-DL [H.264/720p-LQ]
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152627.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152627.jpgsave_picture_152627.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ VA - Дискотека Remix (2011-2017) [MP3|192-320 Kbps] <Pop, Club, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152629.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152629.jpgsave_picture_152629.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:31D05E143FF9AA86B6861C437AEB11B9928A9267
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152631.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152631.jpgsave_picture_152631.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:A642A72E8E251AA9822D6EA52091C514996793F3
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152632.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152632.jpgsave_picture_152632.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ ASCOMP Text-R Pro 2.002 RePack (& Portable) by elchupacabra [Ru/En]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152633.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152633.jpgsave_picture_152633.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ magnet:?xt=urn:btih:B30A6548EE8F5B3A9FB58253D0421546B1411373
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152635.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152635.jpgsave_picture_152635.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ magnet:?xt=urn:btih:3445EA33BCFE7E7BD8F95EE44C60625A102505C4
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152636.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152636.jpgsave_picture_152636.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ magnet:?xt=urn:btih:502FF1C161DE197E3C205A320DE3CC41F5B6A64C
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152637.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152637.jpgsave_picture_152637.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ magnet:?xt=urn:btih:26C38FB6B205F8B7E3418A44F08C28050C62AA5B
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152638.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152638.jpgsave_picture_152638.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ magnet:?xt=urn:btih:4A3EA81F031A3ADFCEF03F38B1C5BCA0455A589B
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152639.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152639.jpgsave_picture_152639.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ magnet:?xt=urn:btih:7CACB2DBC71D3801DDA2172F88ADE90A4E1C0C0B
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152641.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152641.jpgsave_picture_152641.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ Animal Planet: Беловежская пуща: первозданный лес 
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152642.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152642.jpgsave_picture_152642.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ magnet:?xt=urn:btih:38BECA198928E522C51D82A281A0AC920772BD32
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152643.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152643.jpgsave_picture_152643.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ magnet:?xt=urn:btih:935D15352821A4B7ED7043FB0DA37F604F7FFF42
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152644.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152644.jpgsave_picture_152644.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ PDFsam Basic 4.2.10 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152647.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152647.jpgsave_picture_152647.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ magnet:?xt=urn:btih:EB692CC759B7676599B0DBCBF513879C39F71A92
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152648.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152648.jpgsave_picture_152648.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Gary Eisenbraun - Stepping Stones (2022) [MP3|320 Kbps] <Classic Rock, Blues Roc
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152650.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152650.jpgsave_picture_152650.jpg" />
 </div>
 
 

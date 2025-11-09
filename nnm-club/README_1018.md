@@ -6,7 +6,7 @@ Warden's Will (2025) [Ru/Multi] (1.0.1) Repack Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26818.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26818.jpgsave_picture_26818.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Dino Crisis (2000) [Multi] (1.0hf2) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26819.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26819.jpgsave_picture_26819.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:DBA80C2870927A63E70F0DCB680C7DB7705682F8
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26820.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26820.jpgsave_picture_26820.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Fight School Simulator (2024) [Ru/Multi] (build 17408091) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26821.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26821.jpgsave_picture_26821.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:F10044D773351EB5DF6C23920C909E5B626C0C45
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26822.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26822.jpgsave_picture_26822.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:A91FD2586961AA2A5783043D2841C1FD9BC2313D
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26823.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26823.jpgsave_picture_26823.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:964F502E4BB50285142F6C31EB23648751839CFF
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26824.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26824.jpgsave_picture_26824.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ CamScanner v6.82.0.2502180000 Mod by derrin [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26825.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26825.jpgsave_picture_26825.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ While Waiting (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26826.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26826.jpgsave_picture_26826.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:CFD9D7D5856C1D31070FD3FC055960F8971C570B
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26827.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26827.jpgsave_picture_26827.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Instruments of Destruction (2024) [Ru/Multi] (1.11c) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26828.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26828.jpgsave_picture_26828.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:F8AD194B15BAEFFEA3B210EFCEB436E1C8985BF0
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26829.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26829.jpgsave_picture_26829.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Ventoy 1.1.04 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26830.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26830.jpgsave_picture_26830.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:9833DEC7D0306FC0C12315E7129B81098166684C
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26831.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26831.jpgsave_picture_26831.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Turbo Overkill (2023) [Ru/Multi] (1.512) Repack Wanterlude
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26832.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26832.jpgsave_picture_26832.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Krokus - 24 albums, 31 CD (1976-2024) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26833.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26833.jpgsave_picture_26833.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ magnet:?xt=urn:btih:36191156D31ECFBE2EB0B798960BC13D2419022B
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26834.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26834.jpgsave_picture_26834.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ qBittorrent 5.0.4 Portable by PortableApps + Themes (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26835.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26835.jpgsave_picture_26835.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ magnet:?xt=urn:btih:293F258764B61B655D0CE5252FCD968AB75C608C
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26836.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26836.jpgsave_picture_26836.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ magnet:?xt=urn:btih:293F258764B61B655D0CE5252FCD968AB75C608C
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26837.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26837.jpgsave_picture_26837.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ Discolored 2 (2025) [Ru/Multi] (1.3.1) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26838.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26838.jpgsave_picture_26838.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ magnet:?xt=urn:btih:D92F766EC76074C62B3AA5512C2C6E854479AFAB
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26839.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26839.jpgsave_picture_26839.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ magnet:?xt=urn:btih:AA11D0E825BFF197C275A59F1516D00E40BC8C2C
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26840.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26840.jpgsave_picture_26840.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ magnet:?xt=urn:btih:567C1A2F8173F4A9270BA544A338F67B5118471B
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26841.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26841.jpgsave_picture_26841.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ Dino Crisis 2 (2002) [Multi] (1.0hf2) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26842.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26842.jpgsave_picture_26842.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ magnet:?xt=urn:btih:E9851D25636A140856A8D33151C0E1C9D485CEE5
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26843.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26843.jpgsave_picture_26843.jpg" />
 </div>
 
 

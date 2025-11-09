@@ -6,7 +6,7 @@ VA - Record Super Chart 25.11.2023 [MP3|320 Kbps] <Pop, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135159.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135159.jpgsave_picture_135159.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Skrillex - Best of all time (2012) [MP3|256 кб/с]<Dubstep>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135179.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135179.jpgsave_picture_135179.jpg" />
 </div>
 
 
@@ -66,7 +66,7 @@ VA - Музыка для машины Vol.44 (2023) [MP3|320 Kbps] <Pop, Dance, 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135186.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135186.jpgsave_picture_135186.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - Western Mood (2023) 2CD  [MP3|320 Kbps] <Country>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135194.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135194.jpgsave_picture_135194.jpg" />
 </div>
 
 
@@ -120,7 +120,7 @@ VA - DubStep Pro V.8 (2012) [MP3|320 кб/с]<DubStep>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135288.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135288.jpgsave_picture_135288.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ VA - DubStep Pro V.9 (2012) [MP3|320 кб/с]<DubStep>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135372.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135372.jpgsave_picture_135372.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ VA - Creative Music Box 6 (2012) [MP3|320 кб/с]<Dub Step/Glitch Hop/Drum'n'Ba
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135410.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135410.jpgsave_picture_135410.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ VA - Dance Vibration Vol 2 (2012) [MP3|320 кб/с]<Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135451.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135451.jpgsave_picture_135451.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ VA - Keri Gen - True Trance Nation (2012) [MP3|320 кб/с]<Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135721.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135721.jpgsave_picture_135721.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ VA - Trancern 2012.5 - Official Compilation (Best of 2012) (2012) [MP3|320 кб/
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135722.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135722.jpgsave_picture_135722.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ VA - Poker Lounge (4CD) (2008) [MP3|320 кб/с]<Lounge, Jazzy>
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135905.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135905.jpgsave_picture_135905.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ VA - Танцуй и не останавливайся (2012) [MP3|256 кб/с]<
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135971.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135971.jpgsave_picture_135971.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ VA - 70's Club Hits Reloaded, Vol. 4 (Best of Disco, House & Electro Remix Class
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136027.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136027.jpgsave_picture_136027.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ VA-New Age Style - Lounge Cafe (2012) [MP3|320 кб/с]<Chillout, Lounge, Downte
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136197.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136197.jpgsave_picture_136197.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ VA - Music Box of Memories (2012) [MP3|320 кб/с]<Dub Step/Drum'n'Bass>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136199.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136199.jpgsave_picture_136199.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ VA - Радио Шторм - Русский Шторм - 83 (2012) [MP3|128-320 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136243.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136243.jpgsave_picture_136243.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ VA - Exotic Wafture 2012 (New Year's Eve Special) (2012) [MP3|320 кб/с]<Tranc
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136264.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136264.jpgsave_picture_136264.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ VA - The Club music (2012) [MP3|256 кб/с]<Сlub>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136281.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136281.jpgsave_picture_136281.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ VA - Cavalier's Club Volume One (2012) [MP3|320 кб/с]<Chillout, House, Downte
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136287.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136287.jpgsave_picture_136287.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ VA - Music News vol.60 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136669.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136669.jpgsave_picture_136669.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Mr Salama - Favorites Collection (2025) [MP3|320 Kbps] <Electronic, Vocal>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136904.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136904.jpgsave_picture_136904.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ VA - Gym Hits 2 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136971.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136971.jpgsave_picture_136971.jpg" />
 </div>
 
 
@@ -696,7 +696,7 @@ VA - Свежий Русский Хит от ALEXnROCK часть 5 (2019) [MP3|
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137473.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137473.jpgsave_picture_137473.jpg" />
 </div>
 
 
@@ -723,7 +723,7 @@ Blues Cousins - Compilation (2020) [MP3|320 Kbps] <Rock, Blues>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137601.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137601.jpgsave_picture_137601.jpg" />
 </div>
 
 
@@ -750,7 +750,7 @@ VA - Новогоднее Настроение: Русский Популярн�
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137621.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137621.jpgsave_picture_137621.jpg" />
 </div>
 
 
@@ -777,7 +777,7 @@ VA - Black and White (Compiled by Lazyra) (2015) [MP3|320 кб/с] <Trance , Upl
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137651.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137651.jpgsave_picture_137651.jpg" />
 </div>
 
 

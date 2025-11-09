@@ -6,7 +6,7 @@ The Sinking City (2019) [Ru/Multi] (Build 18222381/dlc) Repack Let'sРlay [Remas
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18359.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18359.jpgsave_picture_18359.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Duck Detective: The Secret Salami (2024) [En] (1.2.5) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18363.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18363.jpgsave_picture_18363.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Silent Hill 2 Remake (2024) [Ru/Multi] (1.1.258 834) Repack seleZen [Deluxe Edit
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18545.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18545.jpgsave_picture_18545.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Gemini Rue / Gemini Rue: Заговор на Барракусе (2011) [Multi] (
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18691.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18691.jpgsave_picture_18691.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Unavowed (2018) [En] (2.5) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18693.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18693.jpgsave_picture_18693.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Spirit of the North 2 (2025) [Ru/Multi] (12765) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18748.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18748.jpgsave_picture_18748.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Spirit of the North 2 (2025) [Ru/Multi] (12765) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18753.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18753.jpgsave_picture_18753.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Mark of the Deep (2025) [Ru/Multi] (1.0.0.0.4) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18775.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18775.jpgsave_picture_18775.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Silent Hill 2 Remake (2024) [Ru/Multi] (1.1.258 834/dlc) License GOG [Deluxe Edi
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18776.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18776.jpgsave_picture_18776.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ The Midnight Walk (2025) [Ru/Multi] (Build 18383361) Repack seleZen [VR]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18787.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18787.jpgsave_picture_18787.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Ary and the Secret of Seasons (2020) [Ru/Multi] (1.0) Repack Yaroslav98
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18808.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18808.jpgsave_picture_18808.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Mark of the Deep (2025) [Ru/Multi] (1.0.0.0.4) Repack Let'sРlay [Deluxe Edition
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18885.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18885.jpgsave_picture_18885.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Cybernetic Fault (2020) [Ru/Multi] (1.1) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18991.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18991.jpgsave_picture_18991.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Grand Theft Auto V Enhanced (2025) [Ru/Multi] (1.0.814.9) Repack Decepticon
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19004.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19004.jpgsave_picture_19004.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Womanizer (2024) [Ru/Multi] (1.32/dlc) Repack Other s [18+]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19107.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19107.jpgsave_picture_19107.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ The Last of Us Part II (2) (2025) [Ru/En] (1.3.10430.406/dlc) Repack Decepticon 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19112.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19112.jpgsave_picture_19112.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Cybernetic Fault (2020) [Ru/Multi] (1.1) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19191.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19191.jpgsave_picture_19191.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Journey to the Savage Planet (2021) [Ru/Multi] (1.0.10/dlc) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19204.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19204.jpgsave_picture_19204.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Card Summoner (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19252.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19252.jpgsave_picture_19252.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Mother Hub (2025) [En] (16) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19301.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19301.jpgsave_picture_19301.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Lost Records Bloom & Rage (2025) [Ru/Multi] (2.00.128634) Repack FitGirl [Soundt
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19305.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19305.jpgsave_picture_19305.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Back: Fade (2025) [Ru/Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19330.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19330.jpgsave_picture_19330.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Inspector Schmidt - The Ebbing (2025) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19380.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19380.jpgsave_picture_19380.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ BrokenLore: DON'T WATCH (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19405.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19405.jpgsave_picture_19405.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Skogdal (2025) [Ru/Multi] (0.9.12) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19485.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19485.jpgsave_picture_19485.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Lost Records Bloom & Rage (2025) [Ru/Multi] (2.00.128634) Repack Other s [Soundt
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19487.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19487.jpgsave_picture_19487.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ VA - In Search Of Sunrise 19 (Mixed by Markus Schulz, Ilan Bluestone & Daniel Wa
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132085.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132085.jpgsave_picture_132085.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Top 7 November 2023 Emotional and Uplifting Trance (2023) [MP3|320 Kbps] <T
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132093.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132093.jpgsave_picture_132093.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - The Best Of Suanda Dark 2023 [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132105.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132105.jpgsave_picture_132105.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - Nothing But... Trancetopia Vol. 10 (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132109.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132109.jpgsave_picture_132109.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Fonarev - Эфиры радиошоу/подкаста «Znaki / Digital Emotion
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132447.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132447.jpgsave_picture_132447.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Toronto Is Broken - TorontoIsBroken (2023) [FLAC|Lossless|WEB-DL|tracks] <drum &
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132651.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132651.jpgsave_picture_132651.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Soft Cell - Non-Stop Erotic Cabaret (1981) Remaster, Deluxe Edition, 2023, UMC [
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132683.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132683.jpgsave_picture_132683.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ VA - Best Of FSOE 2023 [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132711.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132711.jpgsave_picture_132711.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ VA - Housepital's Secret Club Weapons Vol.2 (2012) [MP3|320 кб/с]<Progressive
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132837.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132837.jpgsave_picture_132837.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ VA - Bass Boosted Car Music (2023) [MP3|320 Kbps] <Dance, Club, House, Electroni
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133002.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133002.jpgsave_picture_133002.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ Chicane - The Greatest Misses (2023) [FLAC|Lossless|WEB-DL|tracks] <Trance, Hous
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133012.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133012.jpgsave_picture_133012.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ VA - Armada Music - 20 Years (Remixed) (2023) [MP3|320 Kbps] <Trance, Progressiv
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133018.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133018.jpgsave_picture_133018.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ Korolova - Tomorrowland Friendship Mix (2023-11-30) [MP3|320 Kbps] <Progressive 
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133028.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133028.jpgsave_picture_133028.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ Blank & Jones - Chilltronica EP 6 (2023) [FLAC|Lossless|WEB-DL|tracks] <Electron
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133060.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133060.jpgsave_picture_133060.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Chicane - The Greatest Misses (2023) Extended Mixes [MP3|320 Kbps] <Trance, Prog
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133080.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133080.jpgsave_picture_133080.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ GDS Project - Chess (2023) [FLAC|Lossless|WEB-DL|tracks] <Dark-Electro, EBM, Ind
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133089.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133089.jpgsave_picture_133089.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ Rein - God Is A Woman (2023) [FLAC|Lossless|WEB-DL|tracks] <EBM, Electro-Industr
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133093.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133093.jpgsave_picture_133093.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ VA - The Best Of House 2023 Part 3 (2023) [MP3|320 Kbps] <Dance, Club, House, El
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133099.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133099.jpgsave_picture_133099.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ VA - Blissful Journey: Chillout Your Mind (2023) [FLAC|Lossless|WEB-DL|tracks] <
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133101.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133101.jpgsave_picture_133101.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ VA - The Best Of House 2023 Part 4 (2023) [MP3|320 Kbps] <Dance, Club, House, El
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133109.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133109.jpgsave_picture_133109.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ VA - The Best Of Suanda Music 2023 [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133119.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133119.jpgsave_picture_133119.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ VA - The Best Of Suanda Future (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133125.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133125.jpgsave_picture_133125.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ VA - Armin van Buuren - A State Of Trance 1149 (2023) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133127.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133127.jpgsave_picture_133127.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Markus Schulz & Ilan Bluestone & Daniel Wanrooy - Global DJ Broadcast In Search 
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133139.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133139.jpgsave_picture_133139.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ VA - Jazzy Market (2010) [MP3|320 kbps] <Tech House, Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133228.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133228.jpgsave_picture_133228.jpg" />
 </div>
 
 
@@ -687,7 +687,7 @@ VA - Pop Ambient 2024 (2023) [MP3|320 Kbps] <Electronic, Ambient, Pop>
 >>Ambient, Experimental, Modern Classical
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133415.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133415.jpgsave_picture_133415.jpg" />
 </div>
 
 

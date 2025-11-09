@@ -6,7 +6,7 @@ Warrant - The Speed Of Metal (2025) [FLAC|Lossless|WEB-DL|tracks] <Power, Speed 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212231.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212231.jpgsave_picture_212231.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Adobe Photoshop 2025 26.11.1.5 Light Portable by 7997 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212233.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212233.jpgsave_picture_212233.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Google Chrome 142.0.7444.60 Stable + Enterprise [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212235.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212235.jpgsave_picture_212235.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:E56E035F5B9E3A3DFB838C9ECE8F41C2DD164CD2
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212236.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212236.jpgsave_picture_212236.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:D1E6FA7901486DD93A4119D1853C0ACD716E6263
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212244.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212244.jpgsave_picture_212244.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ Flyoobe 1.41 Portable [En]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212246.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212246.jpgsave_picture_212246.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ magnet:?xt=urn:btih:4F2D565165BE9C23DC42DC17BE5AF22696BCCB41
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212248.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212248.jpgsave_picture_212248.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:03313F786DCB4D8D4CD257490C3EF48CD479A61D
 >>Книжная иллюстрация
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212250.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212250.jpgsave_picture_212250.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ magnet:?xt=urn:btih:AAC3E5DD9466E32B57CFB7BB2E63490ECFB6145B
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212252.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212252.jpgsave_picture_212252.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ magnet:?xt=urn:btih:55C6AB1CC681FD7779B82BFD8F5D0B197DD007C9
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212254.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212254.jpgsave_picture_212254.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ VA - Ibiza Summer 2025 (Chill out Cookies from the Heart) (2025) [FLAC|Lossless|
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212256.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212256.jpgsave_picture_212256.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ magnet:?xt=urn:btih:9C263F94AE03D3D411156FCB9325F5FCB8B33DC5
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212258.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212258.jpgsave_picture_212258.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ magnet:?xt=urn:btih:CFBC1EAB2809617F38137B3B94FE70D68D6F44B0
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212260.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212260.jpgsave_picture_212260.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ magnet:?xt=urn:btih:96C79DCD368E8CD51FEFE180CDD56BFA845605F0
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212262.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212262.jpgsave_picture_212262.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ magnet:?xt=urn:btih:378AACE0F1115560AD130E86FAE5A07757669A36
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212264.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212264.jpgsave_picture_212264.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ magnet:?xt=urn:btih:C0178397B7C5BE5BF27D17F6BC2C41CA4F560CB8
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212266.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212266.jpgsave_picture_212266.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ iTubeGo YouTube Downloader 10.9.2 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212268.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212268.jpgsave_picture_212268.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Glary Utilities Pro 6.33.0.37 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212271.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212271.jpgsave_picture_212271.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ W10Privacy 5.3.0.0 + Portable [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212273.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212273.jpgsave_picture_212273.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ Adobe Photoshop 2025 26.11.1.5 Full Portable by 7997 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212280.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212280.jpgsave_picture_212280.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ MechWarrior 2 (1995) [En] (2.3.0.6) Repack Necros [Titanium Edition]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212283.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212283.jpgsave_picture_212283.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ MechWarrior 3 (1999) [Ru/En] (1.2.22.0/1.0/dlc) Repack Necros
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212290.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212290.jpgsave_picture_212290.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ magnet:?xt=urn:btih:7DC0686F944465D390264696536BBA57218F2654
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212293.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212293.jpgsave_picture_212293.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Middleburn - 121 (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212376.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212376.jpgsave_picture_212376.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ LikKnight - Beautiful and Bad (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212378.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212378.jpgsave_picture_212378.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ Opera One 123.0.5669.23 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212380.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212380.jpgsave_picture_212380.jpg" />
 </div>
 
 

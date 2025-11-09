@@ -6,7 +6,7 @@
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25596.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25596.jpgsave_picture_25596.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Broken Roads (2024) [Ru/Multi] (1.3.14955) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25597.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25597.jpgsave_picture_25597.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Builders Of Egypt (2025) [Ru/Multi] (1.0408) Repack Let'sРlay
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25598.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25598.jpgsave_picture_25598.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:4EB34A5B60D892CED63A1D292AE7033CD896B013
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25599.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25599.jpgsave_picture_25599.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ magnet:?xt=urn:btih:FA6A9A13E5DD71850F079A0D40A12132CDC26CFF
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25600.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25600.jpgsave_picture_25600.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ magnet:?xt=urn:btih:7A0A9B4BDAA3309E515C06CB7E3C66BBE40A4C6B
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25601.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25601.jpgsave_picture_25601.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ Talisman - 10 альбомов, 21 CD (1990 - 2013) [FLAC|image+.cue|tracks+.cue
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25602.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25602.jpgsave_picture_25602.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ Age of Mythology: Retold (2024) [Ru/Multi] (100.18.9036.0/dlc) Repack FitGirl [P
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25603.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25603.jpgsave_picture_25603.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ magnet:?xt=urn:btih:B2E99590431DF6A1F3B83855F8F66F89822016D4
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25604.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25604.jpgsave_picture_25604.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ magnet:?xt=urn:btih:B2E99590431DF6A1F3B83855F8F66F89822016D4
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25605.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25605.jpgsave_picture_25605.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ Alien: Isolation v1.4.1RC1 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25606.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25606.jpgsave_picture_25606.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ VA - Compilation part 146 Electronic (2025) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25607.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25607.jpgsave_picture_25607.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ Age of Mythology: Retold (2024) [Ru/Multi] (100.18.9036.0/dlc) Repack seleZen [P
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25608.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25608.jpgsave_picture_25608.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ Jigsawscapes® - Пазлы v3.7.10 Mod by vadj [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25609.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25609.jpgsave_picture_25609.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Laundromat Simulator (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25610.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25610.jpgsave_picture_25610.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ magnet:?xt=urn:btih:0A749A788CA6D1D0EB2B7E350B62A61DED7A5B04
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25611.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25611.jpgsave_picture_25611.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ magnet:?xt=urn:btih:C2C6DDBA7533762CDA0BAF5C464FDF0134115D2E
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25612.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25612.jpgsave_picture_25612.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ PowerWash Simulator (2022) [Ru/Multi] (1.10.0/dlc) Repack seleZen
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25613.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25613.jpgsave_picture_25613.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Higeki no Genkyou to Naru Saikyou Gedou Last Boss Joou wa Tami no Tame ni Tsukus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25614.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25614.jpgsave_picture_25614.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ magnet:?xt=urn:btih:79593B0723058AB5F32CBAB27A696B53A13E3897
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25615.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25615.jpgsave_picture_25615.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ magnet:?xt=urn:btih:956AC8BB448F1F43F48149A82F3F0F0F59B2ECB1
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25616.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25616.jpgsave_picture_25616.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ magnet:?xt=urn:btih:E6A696A62AA5274C8C3C8B3503591A97BE4F1012
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25617.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25617.jpgsave_picture_25617.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ Angeline - Rhythm of One (2025) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25618.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25618.jpgsave_picture_25618.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ VA - Pop International Hits Vol. 3 (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz, L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25619.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25619.jpgsave_picture_25619.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ magnet:?xt=urn:btih:962A66BF9C9B8E113A615D7AF0AED97F7D1EB43C
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25620.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25620.jpgsave_picture_25620.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ magnet:?xt=urn:btih:D62099D5123390BB4DDCA71AC9D274815F8DADF8
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25621.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25621.jpgsave_picture_25621.jpg" />
 </div>
 
 

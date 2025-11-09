@@ -6,7 +6,7 @@ Network Kit 9.0.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148475.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148475.jpgsave_picture_148475.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ The Order 1886 (2015) [PS4] [EUR] 5.05 [License] [Ru/Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148476.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148476.jpgsave_picture_148476.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ GiliSoft Audio Toolbox Suite 2018 7.1.0 [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148477.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148477.jpgsave_picture_148477.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:4EE686F5FDB8B4919DF8BAA5EDF46662CB5F1BFC
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148478.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148478.jpgsave_picture_148478.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:AA6D0F75062D2206906840FA1DB835BFB3AB2B3F
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148479.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148479.jpgsave_picture_148479.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ VA - Times Disco Fever Actions (2016) [MP3|317-320 Kbps] <Synth-pop, New Wave, I
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148480.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148480.jpgsave_picture_148480.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ magnet:?xt=urn:btih:50556DC802481B30115BAA1CFC16CFE414D32857
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148481.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148481.jpgsave_picture_148481.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:6F15A255DA69B7E7F1D28DDE02EA695512A3CF70
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148482.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148482.jpgsave_picture_148482.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ VueScan Pro 9.7.71 (DC 23.12.2021) RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148483.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148483.jpgsave_picture_148483.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ Chet Baker - 3 Essential Albums (1958 - 1988) 3CD, 2017, Universal [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148485.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148485.jpgsave_picture_148485.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ League of Light 7: Growing Threat / Лига Света 7: Растущая уг
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148486.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148486.jpgsave_picture_148486.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ magnet:?xt=urn:btih:D12BEAABFDC386672AEF3032F073E17B6945AD0E
 >>Растровый клипарт (иллюстрации)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148487.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148487.jpgsave_picture_148487.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ magnet:?xt=urn:btih:9E9A1386B35A9738972911307678A77BDFD758EF
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148488.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148488.jpgsave_picture_148488.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ magnet:?xt=urn:btih:63EE713DE37754A1D99E3BB6EBD0E9F2034A8B54
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148489.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148489.jpgsave_picture_148489.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ magnet:?xt=urn:btih:AD8EB9833F19B5B9414B9BCEED19D02183326A17
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148490.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148490.jpgsave_picture_148490.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ magnet:?xt=urn:btih:BE191D071D2B035AE56B9CEBA9301F82B732723B
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148491.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148491.jpgsave_picture_148491.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ VA - The Vanilla Jazz: Instrumental Collection (2021) [MP3|320 Kbps] <Jazz, Inst
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148492.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148492.jpgsave_picture_148492.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Wise Hotkey 1.2.3.43 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148493.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148493.jpgsave_picture_148493.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ magnet:?xt=urn:btih:2643924924B5257CA95790151DD68A26BB45AECF
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148494.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148494.jpgsave_picture_148494.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ magnet:?xt=urn:btih:B80C1A88EEE519943FC25C7796AC6DA5CFAC100E
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148495.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148495.jpgsave_picture_148495.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ VA - Aesthetic Blues: Modern & Old Style (2021) [MP3|320 Kbps] <Blues, Folk Blue
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148496.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148496.jpgsave_picture_148496.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ magnet:?xt=urn:btih:EE45EC19B33F37D6A139DE7737BD31C550EAD24D
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148497.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148497.jpgsave_picture_148497.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ magnet:?xt=urn:btih:D679EF7356229D98B7B285EC2FC829C70992E57E
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148499.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148499.jpgsave_picture_148499.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ magnet:?xt=urn:btih:0E528C9920C0AD7D407260703FB688E6B710BD03
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148500.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148500.jpgsave_picture_148500.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ magnet:?xt=urn:btih:B10C78A41064603DEFC8A381E740D7C81097F356
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148501.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148501.jpgsave_picture_148501.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ magnet:?xt=urn:btih:CAAA245E66FE5AB8EFCC7AD92DB38D888C540298
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148502.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148502.jpgsave_picture_148502.jpg" />
 </div>
 
 

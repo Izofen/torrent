@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12811.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12811.jpgsave_picture_12811.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:05AED137EF537FDA4FA7EAC5A8465695C0F0B83D
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12812.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12812.jpgsave_picture_12812.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ MediaHuman YouTube Downloader 3.9.14 (0107) RePack (& Portable) by elchupacabra 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12813.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12813.jpgsave_picture_12813.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Tian Guan Ci Fu | Heaven Official's Blessing | Благословение неб
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12814.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12814.jpgsave_picture_12814.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:19AE79BA5B74801DA2D7458AEFE8BBA3F49B0CB7
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12815.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12815.jpgsave_picture_12815.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Caribbean Legend (2024) [Ru/Multi] (1.5.0/dlc) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12816.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12816.jpgsave_picture_12816.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:2A83FCA6FBA3014280AFD276B0C028B359AB9EAA
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12817.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12817.jpgsave_picture_12817.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Coridden (2025) [Ru/Multi] (1.3.1/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12818.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12818.jpgsave_picture_12818.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Lazarus | Лазарь [2025, TV, 13 эп.] WEBRip 1080 raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12819.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12819.jpgsave_picture_12819.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:13A912096130EB8D42BB170D308523C2067133CE
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12820.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12820.jpgsave_picture_12820.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Spacechem (2011) [Ru/Multi] (1016hf) License GOG
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12822.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12822.jpgsave_picture_12822.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ STAR WARS: Episode I: Jedi Power Battles (2025) [Ru/Multi] (1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12823.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12823.jpgsave_picture_12823.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Sandwalkers (2024) [Ru/Multi] (2.1.2) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12827.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12827.jpgsave_picture_12827.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ magnet:?xt=urn:btih:9762B02336B3D91B04D63135CD0804DFB7C6BAA8
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12828.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12828.jpgsave_picture_12828.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ magnet:?xt=urn:btih:07626EBC1752881142597F2D14F44D706D8C1D48
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12830.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12830.jpgsave_picture_12830.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ magnet:?xt=urn:btih:07626EBC1752881142597F2D14F44D706D8C1D48
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12831.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12831.jpgsave_picture_12831.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ magnet:?xt=urn:btih:94378B40A742FAEA362670A5AD1113B22713637A
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12832.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12832.jpgsave_picture_12832.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Skillfactory, Илья Ибрагимов, Валентин Матвейчик, 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12833.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12833.jpgsave_picture_12833.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ magnet:?xt=urn:btih:68198F44C5718F1414405FCE2221AABB2DD5AB6A
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12834.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12834.jpgsave_picture_12834.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Google Chrome 138.0.7204.97 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12835.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12835.jpgsave_picture_12835.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ The Operator (2024) [Ru/Multi] (5145_1842) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12836.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12836.jpgsave_picture_12836.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ magnet:?xt=urn:btih:687E239F622DBA1FFC8A8D14B69A098149C7BAF7
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12837.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12837.jpgsave_picture_12837.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ O&O DiskImage Professional 21.1.177 RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12838.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12838.jpgsave_picture_12838.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ OsmAnd+  Карты & GPS Офлайн v5.1.3 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12839.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12839.jpgsave_picture_12839.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ magnet:?xt=urn:btih:5CF4DA46E4492A6F90AB0829867060B9B94D58C5
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12840.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12840.jpgsave_picture_12840.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Wise Care 365 Pro 7.2.6.705 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12841.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12841.jpgsave_picture_12841.jpg" />
 </div>
 
 

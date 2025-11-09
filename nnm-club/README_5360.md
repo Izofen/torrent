@@ -6,7 +6,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166217.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166217.jpgsave_picture_166217.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:9CB924B92D21005640FC1494E52406AD6990D22C
 >>Игровое видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166218.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166218.jpgsave_picture_166218.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ magnet:?xt=urn:btih:0FBAF0C3AC1BE085F78AACD980095FEBA2A41968
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166219.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166219.jpgsave_picture_166219.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:2298ADD55229BF9358EAD2232BA6470C01A4E734
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166220.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166220.jpgsave_picture_166220.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ kobezzza.channel, Андрей Кобец | Интенсив по архитек
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166221.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166221.jpgsave_picture_166221.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ magnet:?xt=urn:btih:824ED719BEF99DE75E9BC2CD82A5611A6DAB8431
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166222.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166222.jpgsave_picture_166222.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ RJ TextEd 16.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166223.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166223.jpgsave_picture_166223.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:364615A7D9E2394C6148249AECF8BD90EAFE96CE
 >>Единоборства, Бои без правил
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166224.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166224.jpgsave_picture_166224.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:2CA41252C0967671365F88BC9A2EFCE470F9ADA9
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166225.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166225.jpgsave_picture_166225.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:17FFC66FAB363132D081FDB2127726C724CA09B9
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166226.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166226.jpgsave_picture_166226.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Choo-Choo Charles (2022) [Ru/Multi] (1.0.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166227.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166227.jpgsave_picture_166227.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ VA - Beatport Electronic: Sound Pack #210 (2020) [MP3|320 Kbps] <Electronic, Syn
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166228.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166228.jpgsave_picture_166228.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Hanzel Und Gretyl + Side Projects (Cycle Sluts From Hell, KyzrWolf) - 13 Release
 >>Industrial, EBM, Dark Electro
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166229.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166229.jpgsave_picture_166229.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Icecream Video Editor Pro 3.10 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166230.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166230.jpgsave_picture_166230.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ magnet:?xt=urn:btih:476AE4CB839369167E5DF2BF590F6CC37F4D6A11
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166231.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166231.jpgsave_picture_166231.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Blacklite District - You're Welcome (2020) [FLAC|Lossless|WEB-DL|tracks] <Altern
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166232.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166232.jpgsave_picture_166232.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Lee Konitz & The Brazilian Band - Brazilian Serenade (1996) Venus Records [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166233.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166233.jpgsave_picture_166233.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Maxon Cinema 4D Studio R21.026 (RB290015) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166234.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166234.jpgsave_picture_166234.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Audio Ease Snapper 3.0.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166235.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166235.jpgsave_picture_166235.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ magnet:?xt=urn:btih:01A0AE2D17DDCA4E68A1227BC9BEC5A5BCF5A86D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166236.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166236.jpgsave_picture_166236.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ magnet:?xt=urn:btih:4C7CA5CC6B459F64A8E2DD6EE3CA96CEEA967A92
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166237.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166237.jpgsave_picture_166237.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ VA - Зайцев.нет Лучшие новинки Декабря (2019) [MP3|
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166238.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166238.jpgsave_picture_166238.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ magnet:?xt=urn:btih:A0AC179CCEF6B47F580AE6225CF4B9F3D9A0A006
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166239.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166239.jpgsave_picture_166239.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Hatebreed - Weight Of The False Self (2020) [FLAC|Lossless|image + .cue] <Metalc
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166240.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166240.jpgsave_picture_166240.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ magnet:?xt=urn:btih:20CA5781B5D490895B54EF6AC1E18C9CD061A673
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166241.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166241.jpgsave_picture_166241.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ magnet:?xt=urn:btih:A342A78B9A36793C15DA5609E9A2CD53B5893E79
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166242.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166242.jpgsave_picture_166242.jpg" />
 </div>
 
 

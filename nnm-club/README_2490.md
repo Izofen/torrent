@@ -6,7 +6,7 @@ The Speaker Wars - The Speaker Wars (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65490.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65490.jpgsave_picture_65490.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Nicklas Sonne - Electric Dreams (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65491.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65491.jpgsave_picture_65491.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Amorphia - Lethal Dose (2022) [MP3|320 Kbps] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65492.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65492.jpgsave_picture_65492.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Black Furies - Get Down Get With It (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65493.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65493.jpgsave_picture_65493.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ The Atomic Bats - Bat Attack !!! (2025) [MP3|320 Kbps] <Psychobilly, punk, rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65494.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65494.jpgsave_picture_65494.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Kommission Z80 - Hegemony (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <EBM, Dance
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65495.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65495.jpgsave_picture_65495.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ magnet:?xt=urn:btih:EFDE2E5B3F02C7910CB9E8B901A356D38E9D6C39
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65496.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65496.jpgsave_picture_65496.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Wavves - Spun (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative, indie r
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65497.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65497.jpgsave_picture_65497.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Signs of Algorithm - Sunchaser (2025) [MP3|320 Kbps] <Metalcore>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65498.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65498.jpgsave_picture_65498.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ King Witch - III (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Heavy Metal, Doom M
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65499.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65499.jpgsave_picture_65499.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Greet Death - Die In Love (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Indie, Sho
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65500.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65500.jpgsave_picture_65500.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Amorphia - Lethal Dose (2022) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65501.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65501.jpgsave_picture_65501.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ magnet:?xt=urn:btih:E2F495DE29E62BD2E991A6655899A849A059EED8
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65502.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65502.jpgsave_picture_65502.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ magnet:?xt=urn:btih:1372C26CF3D424DCF00B907423F2CD53EC8910B7
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65503.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65503.jpgsave_picture_65503.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ magnet:?xt=urn:btih:1C1981B49AF0D670DEFF790F14A467867C0B265B
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65504.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65504.jpgsave_picture_65504.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ magnet:?xt=urn:btih:0FE46F6E006503706E84453F7A9696372AE304D2
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65505.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65505.jpgsave_picture_65505.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ magnet:?xt=urn:btih:92D709D2998F0E2503216C6A9F7C27D065316C02
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65506.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65506.jpgsave_picture_65506.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ magnet:?xt=urn:btih:FA9B5DFADB1FB05F77B33E937134C5CF55164A04
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65507.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65507.jpgsave_picture_65507.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Supernatural Blondes - Art Of Heartbreak (2025) [FLAC 24/44.1|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65508.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65508.jpgsave_picture_65508.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ Taumel - Две сестры (2025) [MP3|320 Kbps] <Dark Metal>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65509.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65509.jpgsave_picture_65509.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Joe Stump's Tower Of Babel - Days Of Thunder (2025) [FLAC|Lossless|WEB-DL|tracks
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65510.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65510.jpgsave_picture_65510.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Hoffman Cruise - When The Moon Rises (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65511.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65511.jpgsave_picture_65511.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Witchrot - Soul Cellar (2025) [MP3|320 Kbps] <Stoner, Sludge, Doom-Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65512.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65512.jpgsave_picture_65512.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ WarKings - Armageddon (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Power Metal>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65513.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65513.jpgsave_picture_65513.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ magnet:?xt=urn:btih:FA03A53D46FB9FD68DBEFAC731B05D37CD20094F
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65514.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65514.jpgsave_picture_65514.jpg" />
 </div>
 
 
@@ -675,7 +675,7 @@ Tim Morse - Transformation (20th Anniversary Edition) (2025) [MP3|320 Kbps] <Pro
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65515.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65515.jpgsave_picture_65515.jpg" />
 </div>
 
 

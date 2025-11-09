@@ -6,7 +6,7 @@ Background Video Recorder Pro v9.3.93 Mod by AppModz [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160402.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160402.jpgsave_picture_160402.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Tarja - Dark Christmas (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal, Ro
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160403.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160403.jpgsave_picture_160403.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ magnet:?xt=urn:btih:5E55A9C4DAE753DE206C94C9BCD018E50872E5D5
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160404.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160404.jpgsave_picture_160404.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:31A526E9FD52C03289601F45A9452BA3F5591B68
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160405.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160405.jpgsave_picture_160405.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:1D29B80303C42CA5C6DAC8D8DF6F23142F0F449D
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160406.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160406.jpgsave_picture_160406.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ magnet:?xt=urn:btih:57E58F9B8573C1D0E8B7DDE62FB26DEF9362CD3B
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160407.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160407.jpgsave_picture_160407.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ HDCleaner 2.061 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160408.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160408.jpgsave_picture_160408.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:0A66C548F96D3FC957CC81227B3F3140240ACB1C
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160409.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160409.jpgsave_picture_160409.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ Google Chrome 119.0.6045.124 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160410.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160410.jpgsave_picture_160410.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ magnet:?xt=urn:btih:1794789DDCF55A7814FFE57555F18130C9DB9621
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160411.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160411.jpgsave_picture_160411.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ Doro - Conqueress: Forever Strong And Proud (2023) 2 x CD [FLAC|Lossless|image +
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160412.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160412.jpgsave_picture_160412.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ Firefox Browser 119.0.1 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160413.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160413.jpgsave_picture_160413.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ RegCool 1.347 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160414.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160414.jpgsave_picture_160414.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ magnet:?xt=urn:btih:445601537B6B850475C3B859EA81501EB0123010
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160415.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160415.jpgsave_picture_160415.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ magnet:?xt=urn:btih:D05A0660B5A2C3F91E7B706F1C20A3AFF244582D
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160416.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160416.jpgsave_picture_160416.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Path Finder 2163 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160417.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160417.jpgsave_picture_160417.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ magnet:?xt=urn:btih:0782C4CF72FA91A5EA97A22F959422C1C40B8321
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160418.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160418.jpgsave_picture_160418.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ magnet:?xt=urn:btih:F638C7A6CD372E0BE43FFC7BCA8CD58496D68F64
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160419.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160419.jpgsave_picture_160419.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Mozilla Thunderbird 115.4.2 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160420.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160420.jpgsave_picture_160420.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ David Coverdale - Whitesnake (1977) [FLAC|24/192|image |Vinyl-Rip] <Hard Rock, B
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160421.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160421.jpgsave_picture_160421.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ DxO PureRAW 3 for Mac v.3.7.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160422.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160422.jpgsave_picture_160422.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Sketch 99 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160423.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160423.jpgsave_picture_160423.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Light Image Resizer 6.1.9 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160424.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160424.jpgsave_picture_160424.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ Radiant Photo 1.1.2.334 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160425.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160425.jpgsave_picture_160425.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ magnet:?xt=urn:btih:23BC67225E515571F34AFC9A8F52E0DF519E0F88
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160426.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160426.jpgsave_picture_160426.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ ImageToolbox 2.4.2 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160427.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160427.jpgsave_picture_160427.jpg" />
 </div>
 
 

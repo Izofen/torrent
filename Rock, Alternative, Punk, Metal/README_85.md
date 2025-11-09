@@ -6,7 +6,7 @@ The Cranberries - Roses (2012) [WavPack |Lossless|image + .cue]<Alternative>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87014.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87014.jpgsave_picture_87014.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Vienna Symphonic Orchestra Project - Symphonic Rock (1987) [MP3|320 кб/с]<Sym
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87108.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87108.jpgsave_picture_87108.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ VA - The Golden Age Of American Rock 'n' Roll (1991-2009) [MP3|320 кб/с]<Rock
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87213.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87213.jpgsave_picture_87213.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Dragonforce - The Power Within (2012) [MP3|320 кб/с]<Extreme Power Metal/Spee
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87567.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87567.jpgsave_picture_87567.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ magnet:?xt=urn:btih:39F6F0F14BA25678E2A4ABC0B9826476CC17B9E5
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88121.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88121.jpgsave_picture_88121.jpg" />
 </div>
 
 
@@ -144,7 +144,7 @@ VA - A Time To Remember Collection  30CD 1960 - 1990 (1996 - 2001) [MP3|320 кб
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88260.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88260.jpgsave_picture_88260.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Alabama Shakes - Boys & Girls (2012) [FLAC|Lossless]<Southern Rock, Blues Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88353.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88353.jpgsave_picture_88353.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Ylande - Северный Ветер (2012) [MP3|320 кб/с]<romantic folk>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88534.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88534.jpgsave_picture_88534.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ Dave Mason - Alone Together (1970) 24Bit Remastered /2006, Universal Japan / [FL
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88569.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88569.jpgsave_picture_88569.jpg" />
 </div>
 
 
@@ -265,7 +265,7 @@ Digimortal - 3 альбома, 1 сингл (2007-2011) [MP3|320 кб/с]<Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88613.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88613.jpgsave_picture_88613.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Lostprophets - 5 альбомов - Дискография (2000-2012) [MP3|320 
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88639.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88639.jpgsave_picture_88639.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Dave Gahan (солист Depeche Mode) - Дискография (2003-2008) [MP3
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88882.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88882.jpgsave_picture_88882.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ magnet:?xt=urn:btih:C36AC8D9FD6F1D123C5181DF197EC2CFEC13C878
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88963.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88963.jpgsave_picture_88963.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Uriah Heep - The Best of Uriah Heep. Wizards (2CD) (2011) [MP3|320 кб/с]<Rock
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89042.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89042.jpgsave_picture_89042.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Trans-Siberian Orchestra - Beethoven's Last Night (2012) [MP3|320 кб/с]<Symph
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89205.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89205.jpgsave_picture_89205.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ VA - The British Invasion - History Of British Rock (1991) Box Set 9 CD [FLAC|Lo
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89288.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89288.jpgsave_picture_89288.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Empires Of Eden - Channelling The Infinite (2012) [MP3|192 кб/с]<Melodic Powe
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89593.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89593.jpgsave_picture_89593.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Deuce - Nine Lives (2012) [MP3|320 кб/с]<Rap-Rock, Rapcore>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89686.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89686.jpgsave_picture_89686.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Dark Tranquillity - Zero Distance [EP] (2012) [MP3|320 кб/с]<Melodic Death>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89761.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89761.jpgsave_picture_89761.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Crazy Lixx - Riot Avenue (2012) [MP3|320 кб/с]<Melodic Hard Rock, Glam Metal>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89800.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89800.jpgsave_picture_89800.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ Pink Floyd - Wish You Were Here (1975) Remastered /1993, Columbia, Legacy, Maste
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89903.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89903.jpgsave_picture_89903.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ VA - Greatest Ever! Prog Rock (2012) [MP3|320 кб/с]<Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90399.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90399.jpgsave_picture_90399.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ Fleet Foxes - Fleet Foxes (Special Edition) 2 CD (2008) [MP3|320 кб/с]<Indi-R
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90422.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90422.jpgsave_picture_90422.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ VA - 100 Hits: Rock Anthems (2011) [MP3|320 кб/с]<Rock, Classic Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90448.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90448.jpgsave_picture_90448.jpg" />
 </div>
 
 
@@ -714,7 +714,7 @@ Europe - Bag Of Bones [Japanese Edition] (2012) [MP3|192 кб/с]<Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90584.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90584.jpgsave_picture_90584.jpg" />
 </div>
 
 
@@ -747,7 +747,7 @@ Marilyn Manson - Born Villain (2012) [MP3|320 кб/с]<Industrial Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90727.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90727.jpgsave_picture_90727.jpg" />
 </div>
 
 

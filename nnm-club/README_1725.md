@@ -6,7 +6,7 @@ Patron (2021) [Ru/Multi] (1.906.0/dlc) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45207.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45207.jpgsave_picture_45207.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:EBDF7524388D84DAE0D1FFADA304C2563C61A935
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45208.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45208.jpgsave_picture_45208.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:1F97CC67028F5A9E0B7EAF9317CBD0555D67891A
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45209.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45209.jpgsave_picture_45209.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:6E120F94186EF2BBB0CC959D4DDFC791C55CA2D9
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45210.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45210.jpgsave_picture_45210.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Townsmen A Kingdom Rebuilt (2019) [Ru/Multi] (2.2.8.0/dlc) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45211.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45211.jpgsave_picture_45211.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:5106FCEB5A49A22C2AF97D42A55565ED99F60BBA
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45212.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45212.jpgsave_picture_45212.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:99D8FFE776DA2A6AFEBFE4253D01B0D5A5B2F7E5
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45213.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45213.jpgsave_picture_45213.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:904712F29822097C3A813A3E566889CA16E77642
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45214.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45214.jpgsave_picture_45214.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:256A68F1ED3580FD2885D4BE8A985401A4569BBB
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45215.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45215.jpgsave_picture_45215.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ magnet:?xt=urn:btih:256A68F1ED3580FD2885D4BE8A985401A4569BBB
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45216.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45216.jpgsave_picture_45216.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ inZOI: Character Studio (2024) [Ru/Multi] (15485995) Repack Meadwey [Early Acces
 >>Patch/Tweak/Trainer/Other для Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45217.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45217.jpgsave_picture_45217.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ magnet:?xt=urn:btih:8DB6711EF5E655F7638045B6431CB5557749E4B3
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45218.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45218.jpgsave_picture_45218.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ magnet:?xt=urn:btih:585518A0281C7C8A22BA477E0F62D0DCF8D7EEE7
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45219.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45219.jpgsave_picture_45219.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ magnet:?xt=urn:btih:E69CD34AF7DA2DD2C5F6B77626654A6E63B03DF5
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45220.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45220.jpgsave_picture_45220.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ magnet:?xt=urn:btih:E69CD34AF7DA2DD2C5F6B77626654A6E63B03DF5
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45221.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45221.jpgsave_picture_45221.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ magnet:?xt=urn:btih:C3A19FE726ECD2EA1520DD50869D7E236471BE4E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45222.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45222.jpgsave_picture_45222.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ magnet:?xt=urn:btih:CEC3987C211BA867E087FABE6244AE0554B17BD4
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45223.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45223.jpgsave_picture_45223.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ magnet:?xt=urn:btih:692BDDA7A88D7FD10367F9CA78720D270DAEF456
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45224.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45224.jpgsave_picture_45224.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ magnet:?xt=urn:btih:ACD5C7D02C93529AD7FB94327A00D5EC2FEB5296
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45225.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45225.jpgsave_picture_45225.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Jon Anderson and The Band Geeks - True (2024) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45226.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45226.jpgsave_picture_45226.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ MuseScore 4.4.0 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45227.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45227.jpgsave_picture_45227.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ R-Wipe & Clean 20.0.2470 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45228.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45228.jpgsave_picture_45228.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Wintersun - Time II (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45229.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45229.jpgsave_picture_45229.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Linda Gail Lewis - Rockabilly Queen (2024) [FLAC|Lossless|WEB-DL|tracks] <Rockab
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45230.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45230.jpgsave_picture_45230.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ magnet:?xt=urn:btih:E542349CE473C075DFC772F043707DC267F34EDC
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45231.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45231.jpgsave_picture_45231.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ MusicBrainz Picard 2.12.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45232.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45232.jpgsave_picture_45232.jpg" />
 </div>
 
 

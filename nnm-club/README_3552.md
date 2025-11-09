@@ -6,7 +6,7 @@ Privatus 7.0.3 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112727.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112727.jpgsave_picture_112727.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:72F2E8F85A144F6CD458BAE299C52930A81ABBD9
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112728.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112728.jpgsave_picture_112728.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Abya - Prayer Of Chaos (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112729.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112729.jpgsave_picture_112729.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ Ghost Buster Pro 3.1.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112730.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112730.jpgsave_picture_112730.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ MouseBoost pro for Mac 3.3.7 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112731.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112731.jpgsave_picture_112731.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ GoodTask 7.7.0 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112732.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112732.jpgsave_picture_112732.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ magnet:?xt=urn:btih:208D04BE0CEE9C6C31C22B7D38886C42ADD45D9E
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112733.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112733.jpgsave_picture_112733.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ myTracks 4.3.5 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112734.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112734.jpgsave_picture_112734.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ magnet:?xt=urn:btih:15B7B09B8895EA0EB8169947FD8519B6D6380C91
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112735.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112735.jpgsave_picture_112735.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ Multitrack Editor: Beat Mixer 1.0.7 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112736.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112736.jpgsave_picture_112736.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ USBclean 3.9 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112737.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112737.jpgsave_picture_112737.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ EarthView 7.9.2 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112738.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112738.jpgsave_picture_112738.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ magnet:?xt=urn:btih:452B06345BE6ABD71590ACF98ED1A82A15004EE8
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112739.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112739.jpgsave_picture_112739.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Judas Priest - Invincible Shield (2024) [WavPack|32/176,4|image + .cue|Vinyl-Rip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112740.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112740.jpgsave_picture_112740.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Syncovery for Mac 10.13.1 ARM/iNTEL [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112741.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112741.jpgsave_picture_112741.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ VA - Chillout & Lounge Music for Dreaming (2024) [FLAC|Lossless|WEB-DL|tracks] <
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112742.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112742.jpgsave_picture_112742.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ Opera GX 108.0.5067.43 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112743.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112743.jpgsave_picture_112743.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ magnet:?xt=urn:btih:C2BE58514DADF2506DD47CB7EE6C123E09A902A3
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112744.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112744.jpgsave_picture_112744.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ Abya - Prayer Of Chaos (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112745.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112745.jpgsave_picture_112745.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ Q-Dir 11.49 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112746.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112746.jpgsave_picture_112746.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Ocenaudio 3.13.7 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112747.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112747.jpgsave_picture_112747.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ magnet:?xt=urn:btih:BD2AE2A1CC45DF282A9377E6F3D8B1D15F4C205A
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112748.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112748.jpgsave_picture_112748.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ SponsorBlock for YouTube 5.5.9 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112749.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112749.jpgsave_picture_112749.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Aiseesoft Mac Screen Recorder 2.2.26 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112750.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112750.jpgsave_picture_112750.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Hides 5.9.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112751.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112751.jpgsave_picture_112751.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ DataGraph for Mac 5.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112752.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112752.jpgsave_picture_112752.jpg" />
 </div>
 
 

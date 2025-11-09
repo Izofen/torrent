@@ -6,7 +6,7 @@
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107669.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107669.jpgsave_picture_107669.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Speedtest от Ookla 5.4.3 Mod by PieMods [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107670.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107670.jpgsave_picture_107670.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:401A67297FA4F6FD492D2421560B6A25F88AEDE5
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107671.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107671.jpgsave_picture_107671.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:18566050B4A0FB37B437D7C18EA4129F79A4F02E
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107672.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107672.jpgsave_picture_107672.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:3293604AE691A10ECD96BB1765E3662C27797CD6
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107673.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107673.jpgsave_picture_107673.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ VA - Sunset Party (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107674.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107674.jpgsave_picture_107674.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ Markus Schulz - Global DJ Broadcast World Tour: Buenos Aires, Sao Paulo and Mont
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107675.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107675.jpgsave_picture_107675.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ Tokyo Storm - Alien Radio Station (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107676.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107676.jpgsave_picture_107676.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ VA - Armin van Buuren - A State Of Trance 1178 (2024) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107677.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107677.jpgsave_picture_107677.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ Chillymouse - Don't Give Me Your Life (Jay Frog remix) (2021) [FLAC|Lossless|tra
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107678.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107678.jpgsave_picture_107678.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ The Force presents Beata - Maria Magdalena (2015) [FLAC|Lossless|tracks] <House,
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107679.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107679.jpgsave_picture_107679.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ Lowell Hopper - Precious Moments (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Ja
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107680.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107680.jpgsave_picture_107680.jpg" />
 </div>
 
 
@@ -314,7 +314,7 @@ Uran Bator - Uluu Tengri (2024) [FLAC|Lossless|WEB-DL|tracks] <industrial, EBM>
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107681.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107681.jpgsave_picture_107681.jpg" />
 </div>
 
 
@@ -341,7 +341,7 @@ magnet:?xt=urn:btih:8763D6C10527B776B6C04CFB6AA42A71069DA925
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107682.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107682.jpgsave_picture_107682.jpg" />
 </div>
 
 
@@ -365,7 +365,7 @@ Aretha Franklin - Bob Marley Performance Centre Jamaica 1982 Live (1982) Remaste
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107683.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107683.jpgsave_picture_107683.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ British Murder Boys - Active Agents and House Boys (2024) [FLAC|Lossless|WEB-DL|
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107684.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107684.jpgsave_picture_107684.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ magnet:?xt=urn:btih:04F117CE89A87DB86C10F576F2EB0DC6344F608C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107685.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107685.jpgsave_picture_107685.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ magnet:?xt=urn:btih:04F117CE89A87DB86C10F576F2EB0DC6344F608C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107686.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107686.jpgsave_picture_107686.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ magnet:?xt=urn:btih:04F117CE89A87DB86C10F576F2EB0DC6344F608C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107687.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107687.jpgsave_picture_107687.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ VA - The Essential Downtempo Vol.6 Chillout Your Mind (2024) [FLAC|Lossless|WEB-
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107688.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107688.jpgsave_picture_107688.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ VA - Олег Чубыкин. Трибьют (2024) [MP3|320 Kbps] <Rock, Pop>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107689.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107689.jpgsave_picture_107689.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ PrivaZer Pro 4.0.87 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107690.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107690.jpgsave_picture_107690.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Snowy White - Unfinished Business (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107691.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107691.jpgsave_picture_107691.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ magnet:?xt=urn:btih:AF3CAC3243DF889A87D9ECE8E961E47A5F9C5B94
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107692.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107692.jpgsave_picture_107692.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ VA - The Essential Downtempo, Vol.5 Chillout Your Mind (2023) [FLAC|Lossless|WEB
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107693.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107693.jpgsave_picture_107693.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ magnet:?xt=urn:btih:1CB27D62F33E59B21BDDBE3E788A802BA889A0A4
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107694.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107694.jpgsave_picture_107694.jpg" />
 </div>
 
 

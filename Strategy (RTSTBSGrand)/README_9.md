@@ -6,7 +6,7 @@ Total War: Three Kingdoms (2019) [Ru/Multi] (1.7.1/dlc) Repack FitGirl [Collecti
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_200583.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_200583.jpgsave_picture_200583.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Warhammer 40,000: Dawn of War Dark Crusade (2006) [Ru] (1.2) Repack Necros
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_201859.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_201859.jpgsave_picture_201859.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Stronghold Crusader (2025) [Ru/Multi] (2.01/dlc) Scene Rune [Definitive Edition]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202454.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202454.jpgsave_picture_202454.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Total War: Three Kingdoms (2019) [Ru/En] (1.7.1/dlc) Repack dixen18 [Collection]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202459.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202459.jpgsave_picture_202459.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Victoria II (2010) [Multi] (2.31-2/dlc) License GOG [Civil War Edition]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202484.jpgsave_picture_202484.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Solstice (2021) [En] (1.0.1) Repack dark_elf2
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203221.jpgsave_picture_203221.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Planetary Annihilation: TITANS (2015) [Ru/Multi] (124627/dlc) Repack Let'sРlay
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205678.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205678.jpgsave_picture_205678.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Heroes Chronicles: All Chapters (2000) [En] (1.0 v2) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205681.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205681.jpgsave_picture_205681.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Gord (2023) [Ru/Multi] (1.2.0.38299/dlc) Repack DjDI [Deluxe Edition]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213497.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213497.jpgsave_picture_213497.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Darkest Hour: A Hearts of Iron Game (2011) [Ru/Multi] (1.05.1) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_234043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_234043.jpgsave_picture_234043.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Legion Arena: Cult of Mithras / Легионы Рима: Культ Митры (
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237632.jpgsave_picture_237632.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Castle Strike (2004) [Ru] (1.2) Repack Necros
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246169.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246169.jpgsave_picture_246169.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ A Total War Saga: Thrones of Britannia (2018) [Ru/En] (1.2.3/dlc) Repack dixen18
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247092.jpgsave_picture_247092.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Galactic Civilizations III / Galactic Civilizations 3 (2015) [Ru/Multi] (4.52.36
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247544.jpgsave_picture_247544.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Total Control (RePack) [Ru] 1995 | Pilotus
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248616.jpgsave_picture_248616.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Rival Realms (P) [Ru] 1998
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248904.jpgsave_picture_248904.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Defender of the Crown (1986) [En] (1.0) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249057.jpgsave_picture_249057.jpg" />
 </div>
 
 

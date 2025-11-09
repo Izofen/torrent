@@ -6,7 +6,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90524.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90524.jpgsave_picture_90524.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Aimersoft Video Converter Ultimate 4.2.4.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90529.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90529.jpgsave_picture_90529.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ Aimersoft Video Converter Ultimate — представляет собой по�
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90530.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90530.jpgsave_picture_90530.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ Prince Of Qin [Ru/En] (P) 2004
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90531.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90531.jpgsave_picture_90531.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Driver Genius Professional 11.0.0.1128 DC 21/04/2012 RePack/Portable by -=SV=- [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90535.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90535.jpgsave_picture_90535.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Linux UsefulPack 12.04 (L) [Русский] (2012)[x86 + amd64]
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90537.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90537.jpgsave_picture_90537.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ A Valley Without Wind [En] (L/1.0) 2012 | TiNYiSO
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90541.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90541.jpgsave_picture_90541.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ magnet:?xt=urn:btih:C5E6E382E92F82654138F57B9BA1B3C9717434EE
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90543.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90543.jpgsave_picture_90543.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ magnet:?xt=urn:btih:DB6250D83112E49C6329E9200F153B98060DC40B
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90545.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90545.jpgsave_picture_90545.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ LearnWords 6.0 [Multi/Rus] + Portable by BALISTA
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90551.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90551.jpgsave_picture_90551.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ LearnWords - обучающая программа для изучения ин�
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90553.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90553.jpgsave_picture_90553.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ LearnWords - обучающая программа для изучения ин�
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90556.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90556.jpgsave_picture_90556.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ magnet:?xt=urn:btih:7E230DC62973BA8C4D85FCEA35FC94F19D5DE070
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90559.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90559.jpgsave_picture_90559.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ CorelDRAW Graphics Suite X6 16.0.0.707 [Английский + Русифика�
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90560.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90560.jpgsave_picture_90560.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ CorelDRAW Graphics Suite X6 16.0.0.707 [Английский + Русифика�
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90561.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90561.jpgsave_picture_90561.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Autodesk Inventor Pro 2013 x86-x64 RUS-ENG (AIO)
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90562.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90562.jpgsave_picture_90562.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Autodesk Inventor Pro 2013 x86-x64 RUS-ENG (AIO)
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90563.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90563.jpgsave_picture_90563.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ magnet:?xt=urn:btih:04ED39755E53200A502714DD85E4B7AFB55E71B5
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90564.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90564.jpgsave_picture_90564.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ MultiCarbon Boot by Core.Windows 7 Ultimate SP1 x86-x64 RU Carbon Boot by Core-2
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90565.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90565.jpgsave_picture_90565.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ Carbon Boot by Core-2 v.7.4.12 (Русский и английский) - Мод
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90567.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90567.jpgsave_picture_90567.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ http://www.nnm-club.me/forum/viewtopic.php?p=85564#85564
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90569.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90569.jpgsave_picture_90569.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ http://www.nnm-club.me/forum/viewtopic.php?p=85564#85564
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90573.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90573.jpgsave_picture_90573.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ HARD'n'SOFT — популярный российский ежемесячный
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90574.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90574.jpgsave_picture_90574.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Mac OS X Lion 10.7.3 для MSI P35 Neo Combo (MS-7365) [Eng/Rus]
 >>macOS (osx86project/hackintosh)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90577.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90577.jpgsave_picture_90577.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ DMG-образ установленной системы, предназначе
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90578.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90578.jpgsave_picture_90578.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ DMG-образ установленной системы, предназначе
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90579.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90579.jpgsave_picture_90579.jpg" />
 </div>
 
 

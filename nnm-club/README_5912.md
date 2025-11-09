@@ -6,7 +6,7 @@
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186250.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186250.jpgsave_picture_186250.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:D724DC872044075FCE8983DECCA21D0FF8153CB3
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186251.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186251.jpgsave_picture_186251.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:4266BC2E8F0D4CB42273A2223A80DE6369A28A2E
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186252.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186252.jpgsave_picture_186252.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:D2BA034EDA9C447956D61DADED29BB6F24C7ED12
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186253.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186253.jpgsave_picture_186253.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:68E006F2AE282490F4DE64214838CD673B7DAF61
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186254.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186254.jpgsave_picture_186254.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:4C2105E740453F6F3CC0835A9C06631D2CFACA55
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_186255.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_186255.jpgsave_picture_186255.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:BBCC998FC6EED87E093EDA60E160F88132A2948D
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186256.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186256.jpgsave_picture_186256.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:7151202E0F9ADC173C280838CA7F17BDCFAB744C
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_186257.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_186257.jpgsave_picture_186257.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:75D3EE658FFD4582EB83EAC41A71EAEF6E7C6A66
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_186258.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_186258.jpgsave_picture_186258.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ John West - Days Of Destiny (2023) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186259.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186259.jpgsave_picture_186259.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ TattooIN - По траектории (2023) [MP3|320 Kbps] <Alternative Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186260.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186260.jpgsave_picture_186260.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ Never Obey Again - The End Of An Era (2023) [FLAC|Lossless|WEB-DL|tracks] <Alt.M
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186261.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186261.jpgsave_picture_186261.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ magnet:?xt=urn:btih:93F7AD260A930639C55633341104D4BCFA0F8CA5
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186262.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186262.jpgsave_picture_186262.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:3AF8C2E7D690CC7BE71113B8B380B518531A1BE6
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_186263.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_186263.jpgsave_picture_186263.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Hurricane - Reconnected (2023) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186264.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186264.jpgsave_picture_186264.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ magnet:?xt=urn:btih:E31DBBB8011179F9477F5538B6D5BBE8B02FEE74
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186265.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186265.jpgsave_picture_186265.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ magnet:?xt=urn:btih:15433E081C9FABB098B72EDABA78004E19F78278
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186266.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186266.jpgsave_picture_186266.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ Vintage Culture - Live @ elrow, Ushuaia Ibiza, Spain (2023-09-06) [MP3|320 Kbps]
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186267.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186267.jpgsave_picture_186267.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ magnet:?xt=urn:btih:60D43711FF032AC9C5EF1062D4317EE04B89CB07
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186268.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186268.jpgsave_picture_186268.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ magnet:?xt=urn:btih:C90C19039E0EBD4D8754F7A11C5431CA7A748AAE
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186269.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186269.jpgsave_picture_186269.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ magnet:?xt=urn:btih:A43AB7FA37A5F87E642788D1118B19C6A118852B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186270.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186270.jpgsave_picture_186270.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Day Aches - One Last Dream Before Dying (2023) [FLAC|Lossless|WEB-DL|tracks] <al
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186271.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186271.jpgsave_picture_186271.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ magnet:?xt=urn:btih:630CD7A5ED523C37FD8F9D869D074B1069AD4444
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186272.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186272.jpgsave_picture_186272.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ MotoGP. Этап 13. Гран-при Индии. Гонка (24.09.2023) WEBRip 
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186273.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186273.jpgsave_picture_186273.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ magnet:?xt=urn:btih:DEE624735A83F763EC21F7F22CE5F7DE143F59E8
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186274.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186274.jpgsave_picture_186274.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ magnet:?xt=urn:btih:02BEF4556F968E77CEB98D81DF47B8DF7CB82BF0
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186275.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186275.jpgsave_picture_186275.jpg" />
 </div>
 
 

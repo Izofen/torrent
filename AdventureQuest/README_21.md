@@ -6,7 +6,7 @@ Limoria (2025) [Ru/Multi] (build 16883517) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32124.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32124.jpgsave_picture_32124.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Snufkin: Melody of Moominvalley / Снусмумрик: Мелодия Муми-
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32141.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32141.jpgsave_picture_32141.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Song of Farca (2021) [Ru/Multi] (1.0.2.25) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32157.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32157.jpgsave_picture_32157.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Stars In The Trash (2024) [Ru/Multi] (Build 20241208) Repack FitGirl [Deluxe Edi
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32362.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32362.jpgsave_picture_32362.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Follow the meaning (2024) [Ru/Multi] (1.0.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32390.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32390.jpgsave_picture_32390.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ The Strange City (2024) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32414.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32414.jpgsave_picture_32414.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Locked In Mind (2023) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32443.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32443.jpgsave_picture_32443.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Free Durov (2024) [Ru/Multi] (1.0) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32460.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32460.jpgsave_picture_32460.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Pyramids and Aliens: Escape Room (2024) [Multi] (1.0.6) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32462.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32462.jpgsave_picture_32462.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Dustborn (2024) [Ru/Multi] (1.10) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32463.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32463.jpgsave_picture_32463.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Machinika Museum (2021) [Ru/Multi] (1.24050201) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32515.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32515.jpgsave_picture_32515.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Machinika: Atlas (2024) [Ru/Multi] (1.1.28.2) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32535.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32535.jpgsave_picture_32535.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Wild West Dynasty (2023) [Ru/Multi] (1.0.9129) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32585.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32585.jpgsave_picture_32585.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ The Dark Eye: Chains of Satinav (2012) [Ru/Multi] (3.0.351.5498) Repack Let'sРl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32599.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32599.jpgsave_picture_32599.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Pools (2024) [Ru/Multi] (12.12.24) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32604.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32604.jpgsave_picture_32604.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Randal's Monday (2014) [Ru/Multi] (1.0.3) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32607.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32607.jpgsave_picture_32607.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Dude, Where Is My Beer? (2020) [Ru/Multi] (11) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32611.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32611.jpgsave_picture_32611.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ The Many Pieces of Mr. Coo (2023) [Ru/Multi] (1.00.09) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32613.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32613.jpgsave_picture_32613.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Jusant (2023) [Ru/Multi] (1.07.1498596) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32632.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32632.jpgsave_picture_32632.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Doll Impostor (2024) [Ru/Multi] (Update 10 HotFix 3) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32636.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32636.jpgsave_picture_32636.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Bendy and the Dark Revival (2022) [Ru/Multi] (1.0.4.0331) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32730.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32730.jpgsave_picture_32730.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Nine Sols (2024) [Ru/Multi] (202412161711.b1327bd4.0) Repack Wanterlude
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32869.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32869.jpgsave_picture_32869.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Moon Mystery (2024) [Ru/Multi] (1.2 Build 16746093) Repack Decepticon
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32907.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32907.jpgsave_picture_32907.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Mouthwashing (2024) [Ru/Multi] (Build 15980018) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32975.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32975.jpgsave_picture_32975.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Hollowbody (2024) [En] (g2.2 patch 10 hotfix) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33012.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33012.jpgsave_picture_33012.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ magnet:?xt=urn:btih:F34963A582E0A7B3A31A52E60B6AC67485B5A00D
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33106.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33106.jpgsave_picture_33106.jpg" />
 </div>
 
 

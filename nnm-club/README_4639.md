@@ -6,7 +6,7 @@
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145208.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145208.jpgsave_picture_145208.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ VA - Новинки С Разных Популярных мп3 Сайтов ver.
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145209.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145209.jpgsave_picture_145209.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:707108E05BD760B7ABDD264A0472B61DE694F3C6
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145210.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145210.jpgsave_picture_145210.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Miss Crazy - Make America Crazy Again (2019) [MP3|320 Kbps] <Glam, Hard Rock,>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145211.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145211.jpgsave_picture_145211.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:523B59970F617E3BDFA6BF331315C69E438128C6
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145212.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145212.jpgsave_picture_145212.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ magnet:?xt=urn:btih:9D6E780DD19E0C0090CA31C0C0B25A0E4F67B65A
 >>Картинки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145213.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145213.jpgsave_picture_145213.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:4B958D28E4A16B44EA7B2EAFDF487B2CB095496A
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145215.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145215.jpgsave_picture_145215.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ Videomizer 2.0.12.1112 [MULTi + Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145216.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145216.jpgsave_picture_145216.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Videomizer - программное обеспечение, предназнач
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145217.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145217.jpgsave_picture_145217.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ magnet:?xt=urn:btih:44393A25D83C750D1ACC2F1CBF36418BD2981A7F
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145218.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145218.jpgsave_picture_145218.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ magnet:?xt=urn:btih:76A7DA7619F2ED8C517C2D55693DEBFEEE8B088B
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145220.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145220.jpgsave_picture_145220.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ magnet:?xt=urn:btih:806F412695531E3ADA9252D8CAAF450891C6C62A
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145221.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145221.jpgsave_picture_145221.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ Seirei Gensouki | Seirei Gensouki: Spirit Chronicles | Духовные хрон
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145222.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145222.jpgsave_picture_145222.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Bad Marriage - Bad Marriage (2019) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145223.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145223.jpgsave_picture_145223.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ magnet:?xt=urn:btih:CFB71331BDBBB6AF05AC056397A43A47FD72635C
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145224.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145224.jpgsave_picture_145224.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ magnet:?xt=urn:btih:5B703DAD272EBFF5C5923C1A5A164F4308319B7D
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145225.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145225.jpgsave_picture_145225.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Al Caral no Isan | Наследие Ал Карал [1993, OVA] LDRip 480p raw
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145227.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145227.jpgsave_picture_145227.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ magnet:?xt=urn:btih:8396CB2CA1AB2781E61A5F0757F6E3004D8B0FC1
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145228.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145228.jpgsave_picture_145228.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ VA - Авто. Музыка. Дорога - 2 (Sound Clinic - Energy Edition) (2
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145229.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145229.jpgsave_picture_145229.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Falco - Meisterstucke (1995) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145231.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145231.jpgsave_picture_145231.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Internet Download Manager 6.38 Build 16 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145232.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145232.jpgsave_picture_145232.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Three Lions - Three Lions (2014) [FLAC|Lossless|image + .cue] <Melodic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145235.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145235.jpgsave_picture_145235.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ magnet:?xt=urn:btih:1B202049ADBD24811126429E792A6F14679B39F6
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145236.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145236.jpgsave_picture_145236.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ magnet:?xt=urn:btih:1B202049ADBD24811126429E792A6F14679B39F6
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145237.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145237.jpgsave_picture_145237.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ VA - Сотка модных хитов. Сборник № 10 (2016) [MP3|256 K
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145238.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145238.jpgsave_picture_145238.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ iNet Network Scanner 2.6.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145241.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145241.jpgsave_picture_145241.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Разное (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251267.jpgsave_picture_251267.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:E77AF5EEA0881AD9182700DC7B992AF86F43BD7C
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251268.jpgsave_picture_251268.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:758F1E1106D80870F2F76C77B75A4B329CF6B095
 >>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251269.jpgsave_picture_251269.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Syberia - Remastered (2025) [Ru/Multi] (Build 20668622) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251271.jpgsave_picture_251271.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ PCStitch Pro 9.01.008 [Eng]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251272.jpgsave_picture_251272.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:BC736AAC538D2006E47EEE88CABB0BBD9F7166CD
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251273.jpgsave_picture_251273.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:C2ACE652320E411FC3055692C26CE56A8185A465
 >>Мультимедийные материалы для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251274.jpgsave_picture_251274.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:A47C2870CECACB743F3B375865613E16FEF3E680
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251275.jpgsave_picture_251275.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:203A8BDE3965F689A77BBA0E8B8D4EF1DF9069C0
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251276.jpgsave_picture_251276.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ Need for Speed: Heat (2019) [Ru/Multi] (1.0.60.7040/dlc) Repack Other s [Deluxe 
 >>Racing
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251278.jpgsave_picture_251278.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:0404DE8BBFDECCAC979230CE1AA95A03EB71C237
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251281.jpgsave_picture_251281.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ Paul Mccartney, Wings - Wings (Deluxe) (2025) [FLAC 24/96|Lossless|WEB-DL|tracks
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251282.jpgsave_picture_251282.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ magnet:?xt=urn:btih:B4964A7BFE28EE1F7249C450CC373EE68DB7FF3E
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251284.jpgsave_picture_251284.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ Steinberg - Cubase Pro 15 15.0.5 (x64) [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251286.jpgsave_picture_251286.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ magnet:?xt=urn:btih:56F83D91D51ACF07B023859A686C97C42ED7393D
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251287.jpgsave_picture_251287.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ Dalida - 40 Succes En Or (1956 - 1997) 2CD [FLAC|Lossless]<Chanson>
 >>Зарубежный Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251290.jpgsave_picture_251290.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Dalida - 40 Succes En Or (1956 - 1997) 2CD [FLAC|Lossless]<Chanson>
 >>Авиация
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251292.jpgsave_picture_251292.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ magnet:?xt=urn:btih:F8BDA99B43F7C6F6472ADC63C702A740BB4C952A
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251293.jpgsave_picture_251293.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ magnet:?xt=urn:btih:F8BDA99B43F7C6F6472ADC63C702A740BB4C952A
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251294.jpgsave_picture_251294.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Snark Busters: High Society / Охотники за Снарком 3. Высше
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251295.jpgsave_picture_251295.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ magnet:?xt=urn:btih:414365290C5FF231EC94557269C8EC827D8CAD8D
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251296.jpgsave_picture_251296.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Live Novels. Jane Austen's: Pride And Prejudice / Джейн Остин. Гор�
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251297.jpgsave_picture_251297.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ magnet:?xt=urn:btih:79E298C2D7CA6C063B2C4F0861BFE66C93884DDF
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251299.jpgsave_picture_251299.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ magnet:?xt=urn:btih:79E298C2D7CA6C063B2C4F0861BFE66C93884DDF
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251300.jpgsave_picture_251300.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ NG: Секретные материалы древности. Туринская
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251301.jpgsave_picture_251301.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ King Crimson - The 21st Century Guide To King Crimson: Volume One (1969-1974) & 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251303.jpgsave_picture_251303.jpg" />
 </div>
 
 

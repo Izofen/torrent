@@ -6,7 +6,7 @@ VA - Cамые Качающие Треки для Авто - Tоп 55 / 9 (2012)
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83873.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83873.jpgsave_picture_83873.jpg" />
 </div>
 
 
@@ -39,7 +39,7 @@ magnet:?xt=urn:btih:A3767EE3D22DDD4EC0690B15C1DADE5A72690F8D
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83874.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83874.jpgsave_picture_83874.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ Hwaja / Хвая (2011) [35 глав+2 extra+эпилог+послесловие
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83877.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83877.jpgsave_picture_83877.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:59AE473FDF06C3927A5E3F12A1CCEEE3231CDDCB
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83878.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83878.jpgsave_picture_83878.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ magnet:?xt=urn:btih:262718CF8327CE51CD64D414BA357B2D807B52F7
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83879.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83879.jpgsave_picture_83879.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ magnet:?xt=urn:btih:3D74157AAA89B7F485128C41C780EF6077DA966E
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83880.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83880.jpgsave_picture_83880.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:3D74157AAA89B7F485128C41C780EF6077DA966E
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83881.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83881.jpgsave_picture_83881.jpg" />
 </div>
 
 
@@ -187,7 +187,7 @@ magnet:?xt=urn:btih:840886D562A499B140DCE4B2D067DF35DDFF166D
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83882.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83882.jpgsave_picture_83882.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ magnet:?xt=urn:btih:840886D562A499B140DCE4B2D067DF35DDFF166D
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83884.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83884.jpgsave_picture_83884.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ magnet:?xt=urn:btih:840886D562A499B140DCE4B2D067DF35DDFF166D
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83888.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83888.jpgsave_picture_83888.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ magnet:?xt=urn:btih:840886D562A499B140DCE4B2D067DF35DDFF166D
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83889.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83889.jpgsave_picture_83889.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ magnet:?xt=urn:btih:840886D562A499B140DCE4B2D067DF35DDFF166D
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83890.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83890.jpgsave_picture_83890.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ magnet:?xt=urn:btih:840886D562A499B140DCE4B2D067DF35DDFF166D
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83895.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83895.jpgsave_picture_83895.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ QipShot 1.40 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83896.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83896.jpgsave_picture_83896.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ QipShot - бесплатная и легкая в использовании у�
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83898.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83898.jpgsave_picture_83898.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ magnet:?xt=urn:btih:09D2EC9FDBB6729E4E7584D26692C37C1C5531C2
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83900.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83900.jpgsave_picture_83900.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ VectorLinux 7.0 "Light" [i486] (1xCD)
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83903.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83903.jpgsave_picture_83903.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ VA - Родные хиты семидесятых (2012) [MP3|320 кб/с]<Pop>
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83905.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83905.jpgsave_picture_83905.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ magnet:?xt=urn:btih:D2599B2A93A636D8943F1CE8F1053B94B3B88A08
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83906.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83906.jpgsave_picture_83906.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ magnet:?xt=urn:btih:286F04541DC24E10352C57328255BDC0AA6B1D6C
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83907.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83907.jpgsave_picture_83907.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:269B11D1DA9BCCE9E40981048DADD4E4FFCD21F5
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83908.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83908.jpgsave_picture_83908.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ magnet:?xt=urn:btih:281FC1C6841BE383A9E4100FA5DFA1E641FD665A
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83911.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83911.jpgsave_picture_83911.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Charlie Parker, Dizzy Gillespie - 17 альбомов (1945-1994) [MP3|192 кб/
 >>Jazz
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83913.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83913.jpgsave_picture_83913.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Iron Maiden - En Vivo! (Live) (2012) Scene [FLAC|Lossless]<Heavy Metal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83914.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83914.jpgsave_picture_83914.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ CD 1:
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83917.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83917.jpgsave_picture_83917.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ Meshuggah - Koloss (2012) [FLAC|Lossless]<Progressive Post-Thrash / Math Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83918.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83918.jpgsave_picture_83918.jpg" />
 </div>
 
 

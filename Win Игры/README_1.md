@@ -6,7 +6,7 @@ Worshippers of Cthulhu (2024) [Ru/Multi] (1.0.0.3) Repack Let'sРlay
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_454.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_454.jpgsave_picture_454.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Kingdom Rush 5: Alliance TD (2024) [Ru/Multi] (6.00.114/dlc) Repack Let'sРlay
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_455.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_455.jpgsave_picture_455.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Stellaris (2016) [Ru/Multi] (4.1.0/dlc) Repack Other s [Ultimate Bundle]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_523.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_523.jpgsave_picture_523.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Arctic Awakening (2025) [Ru/Multi] (1.0.5) License GOG
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_562.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_562.jpgsave_picture_562.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Sins of a Solar Empire II (2) (2024) [Ru/Multi] (1.45.9/dlc) Repack seleZen [Rei
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_587.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_587.jpgsave_picture_587.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Arctic Awakening (2025) [Ru/Multi] (Build 20032483) Repack Other s
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_599.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_599.jpgsave_picture_599.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Arctic Awakening (2025) [Ru/Multi] (Build 20032483) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_612.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_612.jpgsave_picture_612.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Metal Gear Solid Delta: Snake Eater (2025) [Ru/Multi] (1.1.4/dlc) Repack Decepti
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_622.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_622.jpgsave_picture_622.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ The Mystery Of Woolley Mountain (2019) [Multi] (14.3/dlc) License GOG [Complete 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_625.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_625.jpgsave_picture_625.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Mai: Child of Ages (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_626.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_626.jpgsave_picture_626.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Platypus Reclayed (2025) [Ru/Multi] (1.0.20) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_631.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_631.jpgsave_picture_631.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Meganoid (2017) [En] (2.2.3) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_648.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_648.jpgsave_picture_648.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Rise of the Tomb Raider (2016) [Ru/Multi] (1.0.1.0/dlc) License GOG [20 Year Cel
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_649.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_649.jpgsave_picture_649.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Wartales (2021) [Ru/Multi] (1.0.43355/dlc) Repack seleZen [The Mercenaries Editi
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_657.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_657.jpgsave_picture_657.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Shadow of the Tomb Raider (2018) [Ru/Multi] (1.0.1.0/dlc) License GOG [Definitiv
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_658.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_658.jpgsave_picture_658.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Knock on the Coffin Lid (2020) [Ru/Multi] (1.3.5.3/dlc) License GOG [Complete Ed
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_668.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_668.jpgsave_picture_668.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Achilles: Legends Untold (2023) [Ru/Multi] (1.8.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_672.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_672.jpgsave_picture_672.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Police Simulator: Patrol Officers (2022) [Ru/Multi] (19.1.1/dlc) Repack Pioneer
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_673.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_673.jpgsave_picture_673.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Car Dealer Simulator (2025) [Ru/Multi] (Hotfix #80) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_676.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_676.jpgsave_picture_676.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Hellcard (2024) [Ru/Multi] (1.1.250807/dlc) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_680.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_680.jpgsave_picture_680.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Ranch Simulator - Build, Farm, Hunt (2023) [Ru/Multi] (1.173s) Repack Pioneer
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_682.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_682.jpgsave_picture_682.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Reus 2 (2024) [Ru/Multi] (1.9.0/dlc) License GOG [Complete Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_683.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_683.jpgsave_picture_683.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ TurretGirls (2025) [Multi] (1.0.2) License GOG
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_696.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_696.jpgsave_picture_696.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Victoria 3 (2022) [Ru/Multi] (1.10.2/dlc) Repack Let'sРlay [Grand Edition]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_700.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_700.jpgsave_picture_700.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Undead West (2024) [Ru/Multi] (1.0.4.4) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_706.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_706.jpgsave_picture_706.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Realpolitiks 3: Earth and Beyond (2024) [Ru/Multi] (1.250900) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_714.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_714.jpgsave_picture_714.jpg" />
 </div>
 
 

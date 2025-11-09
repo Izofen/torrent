@@ -6,7 +6,7 @@ Turok 3: Shadow of Oblivion Remastered (2023) [Multi] (1.0) Scene Tenoke
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132823.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132823.jpgsave_picture_132823.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Another Day (2023) [Ru/En] (1.0.3) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132824.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132824.jpgsave_picture_132824.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:010A65937D0F138C60269BEE1A7B26E37B588027
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132825.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132825.jpgsave_picture_132825.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:02FCFAEE4753132F4ABFA93C5F89AEA52670B197
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132826.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132826.jpgsave_picture_132826.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Nature Wallpapers (27.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132828.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132828.jpgsave_picture_132828.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Sexy Girls Wallpapers (27.12.12) [Wallpapers 16+]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132829.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132829.jpgsave_picture_132829.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Nature Wallpapers (26.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132830.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132830.jpgsave_picture_132830.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Sexy Girls Pack Wallpapers (27.12.12) [Wallpapers 16+]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132831.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132831.jpgsave_picture_132831.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ The Flower Kings (Roine Stolt) - 21 albums, 2 Box-sets, 44CD (1994-2023) [FLAC|L
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132832.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132832.jpgsave_picture_132832.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:4C174C7E4777DBA317F97C775AE6E728EFB470BB
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132834.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132834.jpgsave_picture_132834.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Sexy Girls Pack Wallpapers (26.12.12) [Wallpapers 16+]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132835.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132835.jpgsave_picture_132835.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:3E5AF434CF385C27E56029480E0AB0B7107844EC
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132836.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132836.jpgsave_picture_132836.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ VA - Housepital's Secret Club Weapons Vol.2 (2012) [MP3|320 кб/с]<Progressive
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132837.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132837.jpgsave_picture_132837.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:191B3D62355720F64EE417276CDB04CC73982F9D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132838.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132838.jpgsave_picture_132838.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ magnet:?xt=urn:btih:ADF60C259547975AA5F4E3EE32B2708AEE9D376D
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132839.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132839.jpgsave_picture_132839.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ magnet:?xt=urn:btih:7AE24AA5B367B32624392D9665EA5563566EB917
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132840.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132840.jpgsave_picture_132840.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ magnet:?xt=urn:btih:1842088EE906B774FE792F10E588B8BBBC3FDF2F
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132842.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132842.jpgsave_picture_132842.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Sexy Girls Wallpapers (26.12.12) [Wallpapers 16+]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132843.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132843.jpgsave_picture_132843.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ magnet:?xt=urn:btih:03FEFD82BDC88B9DB3538F8BB9D7B6D85A66F105
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132844.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132844.jpgsave_picture_132844.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Gumroad, Polygonpen | Advanced Bottle Modeling and Rendering in Cinema 4D and Re
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132846.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132846.jpgsave_picture_132846.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ magnet:?xt=urn:btih:A449E5BE4C05C18920D783F9DA215D324031A420
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132848.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132848.jpgsave_picture_132848.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ magnet:?xt=urn:btih:A449E5BE4C05C18920D783F9DA215D324031A420
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132850.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132850.jpgsave_picture_132850.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ magnet:?xt=urn:btih:E06BC5627C02C3265320ADBEEEBA126990743473
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132852.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132852.jpgsave_picture_132852.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ magnet:?xt=urn:btih:BA9A58D729F6BE1C7F8ADA25672820F3519A50DC
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132854.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132854.jpgsave_picture_132854.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ magnet:?xt=urn:btih:0DF033E2D597869DABB5210302E75DA44EBA8083
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132856.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132856.jpgsave_picture_132856.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ Zipp's Café (2023) [Ru/Multi] (1.0) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132858.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132858.jpgsave_picture_132858.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Radiant Photo 1.1.1.267 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240448.jpgsave_picture_240448.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ VirtualBox 6.1.34 Build 150636 + Extension Pack [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240449.jpgsave_picture_240449.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ VA - Artist Showcase 2020/21 (2020) Point Source Electronic Arts [FLAC|Lossless|
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240450.jpgsave_picture_240450.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Cell 9 - Second Coming (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240451.jpgsave_picture_240451.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ PCDJ DEX PRO 3 v.3.20.3.0 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240452.jpgsave_picture_240452.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:88A97CF4295B9621D60EA1F5B8FBB2569C3C3D16
 >>Отечественные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240453.jpgsave_picture_240453.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:8CF4F7A4786041784C5F36D93C39FC492CDC50A9
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240454.jpgsave_picture_240454.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ Hot Stove - The Corpse Turns Sour (2023) Compilation, Doomed to Obscurity Record
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240455.jpgsave_picture_240455.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ magnet:?xt=urn:btih:89A536397EA640CF022ECA397D8A4E501411C700
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240456.jpgsave_picture_240456.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ magnet:?xt=urn:btih:58E92798D128831CFE3ABF003F264FEB772FB35E
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240457.jpgsave_picture_240457.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ Chords Of Chaos - Collection (2010-2017) 25 CD  [MP3|320 Kbps] <Rock, Hard Rock,
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240458.jpgsave_picture_240458.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ Wise Folder Hider Pro 4.4.3.202 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240459.jpgsave_picture_240459.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ Fozzy - Boombox (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Hard Rock, Al
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240460.jpgsave_picture_240460.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ magnet:?xt=urn:btih:5899A3419AB50296B0382BDAA0BC37DDD133CFCB
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240461.jpgsave_picture_240461.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ Last Chance Riders - Fool's Gold (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240462.jpgsave_picture_240462.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Perc3ption - Art in Extreme Situations (2023) [FLAC|Lossless|WEB-DL|tracks] <Pro
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240463.jpgsave_picture_240463.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ Discovery: Разрушители автолегенд / Motor MythBusters (2021
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240464.jpgsave_picture_240464.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ magnet:?xt=urn:btih:AEE4C10D0D978460718139F424A34D88634F5CBA
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240465.jpgsave_picture_240465.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ magnet:?xt=urn:btih:998C14C87515F2D051676E7B6F6BF4D29A6C6908
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240466.jpgsave_picture_240466.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ The Damnnation - Way of Perdition (2022) [FLAC|Lossless|WEB-DL|tracks] <Brazilia
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240467.jpgsave_picture_240467.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Gyaos:Diabolical - In Accordance with the Prophecy (2023) [FLAC|Lossless|WEB-DL|
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240468.jpgsave_picture_240468.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Avenged Sevenfold - Life Is But A Dream (2023) [MP3|320 Kbps] <Alternative Heavy
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240469.jpgsave_picture_240469.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Rage - Perfect Man (1988) [FLAC|Lossless|image + .cue] <Power Metal, Speed Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240470.jpgsave_picture_240470.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ KLS Backup 2021 Professional 11.0.0.9 x64 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240471.jpgsave_picture_240471.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ magnet:?xt=urn:btih:5F3047525D19AAC662C260814738CBC393EDAF95
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240472.jpgsave_picture_240472.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ Phoebus the Knight - The Last Guardian (2022) EP [FLAC|Lossless|WEB-DL|tracks] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240473.jpgsave_picture_240473.jpg" />
 </div>
 
 

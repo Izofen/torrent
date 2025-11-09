@@ -6,7 +6,7 @@
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4341.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4341.jpgsave_picture_4341.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Cronos: The New Dawn (2025) [Ru/Multi] (20250831/dlc) Repack FitGirl [Deluxe Edi
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4342.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4342.jpgsave_picture_4342.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:3960265E392AF5B998204C74DB2873E75138F340
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4343.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4343.jpgsave_picture_4343.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:C5673360D3ED3C0EF7D890BBCA0C85BD03772693
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4344.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4344.jpgsave_picture_4344.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Windows 10 (v22h2) x64 HSL/PRO by KulHunter v27 (esd) [Ru]
 >>Сборки Windows 10
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4345.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4345.jpgsave_picture_4345.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:2C4F1E793D120B787C9E5545ECF3FB19F2D49EF5
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4346.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4346.jpgsave_picture_4346.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Indiana Jones and the Great Circle (2024) [Ru/Multi] (1.0.9.0/dlc) Repack seleZe
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4347.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4347.jpgsave_picture_4347.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:1BFEAF8213C5D5413DB33670688972B2C9931B05
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4348.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4348.jpgsave_picture_4348.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:98DAE694D36F2905E957579251A28EAE1907D0AF
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4349.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4349.jpgsave_picture_4349.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:BF9DA15D2324767213B92FF6269BD93681A794DE
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4350.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4350.jpgsave_picture_4350.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:BF9DA15D2324767213B92FF6269BD93681A794DE
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4351.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4351.jpgsave_picture_4351.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ KELDER (2025) [Ru/Multi] (1.0) Scene DOGE
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4352.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4352.jpgsave_picture_4352.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:4E5B57F087BAA0644070B4AD123B7DDFE4D4D2A3
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4353.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4353.jpgsave_picture_4353.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Lively Wallpaper 2.2.0.0 [Multi/Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4354.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4354.jpgsave_picture_4354.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ magnet:?xt=urn:btih:4188B025D1D24D36B2049580983D1226317CF16C
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4355.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4355.jpgsave_picture_4355.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ magnet:?xt=urn:btih:11E6434E24CA1770745CCC342A52626F1827CCEE
 >>История
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4356.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4356.jpgsave_picture_4356.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ Hollow Knight: Silksong (2025) [Ru/Multi] (1.0.28324) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4357.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4357.jpgsave_picture_4357.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ Rust (2018) [Ru/Multi] (2597) Repack R.G. Alkad
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4358.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4358.jpgsave_picture_4358.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ Windows 11 Pro 24H2 26100.4652 x64 by SanLex [Lightweight] [Ru-En] (2025.08.06)
 >>21
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4359.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4359.jpgsave_picture_4359.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ magnet:?xt=urn:btih:B38EBD2963F54907957CF3A08C8901414B8913F3
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4360.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4360.jpgsave_picture_4360.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ magnet:?xt=urn:btih:A7F7968E76EEB4A20756CB51A22E671EA8148E6F
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4361.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4361.jpgsave_picture_4361.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ PowerSlave Exhumed (2022) [Multi] (1.0.1659) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4362.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4362.jpgsave_picture_4362.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ magnet:?xt=urn:btih:D1AA997962EFFD022CD6FD30DBE898FE9A572A65
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4363.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4363.jpgsave_picture_4363.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ magnet:?xt=urn:btih:8C1D377F23121CB7AE3622E6CD7FAB1786C63960
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4364.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4364.jpgsave_picture_4364.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Titan Quest II (2025) [Ru/En] (0.1.2-PUBLIC.99841) Repack Wanterlude [Early Acce
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4365.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4365.jpgsave_picture_4365.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ SnowRunner (2020) [Ru/Multi] (38.0/dlc) Repack seleZen [Premium Edition]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4366.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4366.jpgsave_picture_4366.jpg" />
 </div>
 
 

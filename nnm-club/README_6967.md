@@ -6,7 +6,7 @@ Fishbone - Fishbone (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Reggae>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239216.jpgsave_picture_239216.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Bloodsugar - Join The Lines (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239217.jpgsave_picture_239217.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:4B9382519C19335E4EADDEBDEB5BA7849948A4DE
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239218.jpgsave_picture_239218.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Sunken State - Solace in Solitude (2021) [FLAC|Lossless|WEB-DL|tracks] <Groove M
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239219.jpgsave_picture_239219.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Lil Durk - Almost Healed (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hip-Hop, 
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239222.jpgsave_picture_239222.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ RTG. Путешествие к горе Фишт (2013) HDTV [H.264/1080i]
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239223.jpgsave_picture_239223.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Excelsis - Bluetmond (2020) [MP3|320 Kbps] <Folk Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239224.jpgsave_picture_239224.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ magnet:?xt=urn:btih:C445EDEECC3BAE8B51C7039BCF01333A2A8E4609
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239225.jpgsave_picture_239225.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ Art Pepper - Seven Classic Albums (1952 - 1960) 4CD, 2013, Real Gone Jazz [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239226.jpgsave_picture_239226.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Elvenking - Reader of the Runes - Rapture (2023) [FLAC|Lossless|image + .cue] <M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239228.jpgsave_picture_239228.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ magnet:?xt=urn:btih:EB509AEDC65D6895376CCC28FF29FE988283DB91
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239229.jpgsave_picture_239229.jpg" />
 </div>
 
 
@@ -291,7 +291,7 @@ Son of Sam - And The Monster Awoke... (2021) [MP3|320 Kbps] <Heavy Metal, Melodi
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239230.jpgsave_picture_239230.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ magnet:?xt=urn:btih:55F5903E800C4E2D7A6F843277990F3233FD10D3
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239232.jpgsave_picture_239232.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Photo Size Changer Premium 1.1.1 [En/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239233.jpgsave_picture_239233.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ magnet:?xt=urn:btih:58A06D720391B7E37372D2D60C8E350D5FEA0195
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239235.jpgsave_picture_239235.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Sketch 97 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239236.jpgsave_picture_239236.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ magnet:?xt=urn:btih:52FE31BD9F0AD328EE4C6A44EDA14C0D8465B71E
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239237.jpgsave_picture_239237.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Oscar Peterson - Oscar Peterson (1951) 1995, Just A Memory Records [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239239.jpgsave_picture_239239.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ VLC for Android 3.5.0 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239240.jpgsave_picture_239240.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ magnet:?xt=urn:btih:16217319CFF10256C47C428D5B2725ACFA7DC8B6
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239241.jpgsave_picture_239241.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ Rival Sons - DARKFIGHTER (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239242.jpgsave_picture_239242.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ BusyContacts 1.5.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239244.jpgsave_picture_239244.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ magnet:?xt=urn:btih:0D526705D8ACD012BE51699A4B2A8BEF17324D23
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239246.jpgsave_picture_239246.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ The Blacktop Kings - Royalty (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239247.jpgsave_picture_239247.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Uninstall Tool 3.6.0 Build 5684 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239248.jpgsave_picture_239248.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ magnet:?xt=urn:btih:4E9EFD0B4FC8AA6CAFA028D820F3741393DE96F5
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239249.jpgsave_picture_239249.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Godflesh - Purge (2023) [FLAC|Lossless|WEB-DL|tracks] <Industrial Metal, Experim
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238665.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238665.jpgsave_picture_238665.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:F2D4519F1EC7C8C5F033D3C0501025551595CEC4
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238666.jpgsave_picture_238666.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Bravo Delta - Chrysalis (2022) [FLAC|Lossless|WEB-DL|tracks] <Modern Rock, Hard 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238667.jpgsave_picture_238667.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Display Maid 3.2.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238668.jpgsave_picture_238668.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:B791ABABD68852CF31980D46DF991145ACED157B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238669.jpgsave_picture_238669.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:BBC8D59001D35842CA865BFB346D5B73CD59313B
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238673.jpgsave_picture_238673.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ Aggression - Fragmented Spirit Devils (2016) [FLAC|Lossless|image + .cue] <Thras
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238674.jpgsave_picture_238674.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ BurnAware Professional 16.7 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238675.jpgsave_picture_238675.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ The Murlocs - Calm Ya Farm (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock, Alternati
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238676.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238676.jpgsave_picture_238676.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ magnet:?xt=urn:btih:A8564F091C8916846F24FAF7DCFBD439951F80AA
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238677.jpgsave_picture_238677.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ Author 6.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238678.jpgsave_picture_238678.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ Dark At Dawn - Of Decay And Desire (2003) [FLAC|Lossless|image + .cue] <Power Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238680.jpgsave_picture_238680.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ magnet:?xt=urn:btih:99E93822CD47F22BE424336B70AF6E358F2CA4B5
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238681.jpgsave_picture_238681.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ Glary Utilities Pro 5.206.0.235 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238682.jpgsave_picture_238682.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ Forge the Sun - Heart of the Sunrise (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238684.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238684.jpgsave_picture_238684.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ magnet:?xt=urn:btih:E7C4DB929A114225CE3D419771F35DC0FBDCD10F
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238685.jpgsave_picture_238685.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ The Eagles - Hotel California (1976) 2011 [DTS 5.1 CD-DA|44.1/16|image+.cue|SACD
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238688.jpgsave_picture_238688.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Def Leppard - High 'N' Dry (1981) [OGG Vorbis|484 Kbps] <Rock, Hard Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238690.jpgsave_picture_238690.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ VA - Не спи за баранкой 6 (Музыка в машину) (2022) [
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238691.jpgsave_picture_238691.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Skreen 6 - Rockin' Head (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238692.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238692.jpgsave_picture_238692.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Lewis Capaldi - Broken By Desire To Be Heavenly Sent (2023) [FLAC 24/48|Lossless
 >>Alternative, Punk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238693.jpgsave_picture_238693.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ magnet:?xt=urn:btih:07372714DC3006C9147FE71B27BD04E584836682
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238696.jpgsave_picture_238696.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Rammstein - Zeit (2022) [MP3|320 Kbps] <NDH, Industrial Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238697.jpgsave_picture_238697.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Ohtar - Euthanasia of Existence (2016) [FLAC|Lossless|image + .cue] <Black Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238698.jpgsave_picture_238698.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ magnet:?xt=urn:btih:9072978C52E8F1E3EFC6A8A8D93A701A349156BE
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238699.jpgsave_picture_238699.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ magnet:?xt=urn:btih:8AA24349C1749248D1D8B4C39D11C1C4551D74EC
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238702.jpgsave_picture_238702.jpg" />
 </div>
 
 

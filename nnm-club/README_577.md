@@ -6,7 +6,7 @@
 >>10
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15313.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15313.jpgsave_picture_15313.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:C6972F04FB25DECB1362FB0ED8BF57F8DF795DC8
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15314.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15314.jpgsave_picture_15314.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ King Arthur: Knight's Tale (2022) [Ru/Multi] (2.0.1/dlc) Repack West4it
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15315.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15315.jpgsave_picture_15315.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:E05E24246DB16F2EBC473275919E1E7ACA2CE29E
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15316.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15316.jpgsave_picture_15316.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Hellslave (2022) [Multi] (1.46) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15317.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15317.jpgsave_picture_15317.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:C4AA3975327B37B4714B7F2A5EC907617C70D90C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15318.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15318.jpgsave_picture_15318.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Mirthwood (2024) [Ru/Multi] (1.0.66) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15319.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15319.jpgsave_picture_15319.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:96B50DFC9BB5F99F19807372777CC52F3711E291
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15320.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15320.jpgsave_picture_15320.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:4DEB05C709D8FAA735CBB53A28C6C97D4F7994A0
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15321.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15321.jpgsave_picture_15321.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ magnet:?xt=urn:btih:FC5D6CD17B0AF713533AA9BCAC469F21DF3C673F
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15322.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15322.jpgsave_picture_15322.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Empires of the Undergrowth (2017) [Ru/Multi] (1.1010742/dlc) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15323.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15323.jpgsave_picture_15323.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Lies of P (2023) [Ru/Multi] (1.8.0.0/dlc) Repack Other s [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15324.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15324.jpgsave_picture_15324.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ magnet:?xt=urn:btih:777CAD81DF0964C44E747C76FCE5EB5CE7E4F5FD
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15325.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15325.jpgsave_picture_15325.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Starcom: Unknown Space (2022) [Multi] (21540-a) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15326.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15326.jpgsave_picture_15326.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ magnet:?xt=urn:btih:2E3D22C2885BF84057B494A5E420BDC83A9E782F
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15327.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15327.jpgsave_picture_15327.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ magnet:?xt=urn:btih:970AD489D64292EE759EC09135AC6C5D39F6B9D5
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15328.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15328.jpgsave_picture_15328.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ InfraSpace (2021) [Ru/Multi] (1.52.450) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15329.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15329.jpgsave_picture_15329.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ Microsoft Activation Scripts (MAS) 3.4 portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15330.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15330.jpgsave_picture_15330.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ magnet:?xt=urn:btih:35DAC28A0B7F8F460EAA0224BFA76E6C4176E903
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15331.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15331.jpgsave_picture_15331.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ magnet:?xt=urn:btih:0FF162229D461A351698B83AF3A772FD9B79A019
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15332.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15332.jpgsave_picture_15332.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ magnet:?xt=urn:btih:E34A989BD604DD58721E4B5B62A5085C4773A0D0
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15333.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15333.jpgsave_picture_15333.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ magnet:?xt=urn:btih:4EAEBBC7A482922F3AD64E182A20675088F151DA
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15334.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15334.jpgsave_picture_15334.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ magnet:?xt=urn:btih:31D6BF9E2D99556B6735571DA7F1F1EB0C1ACB76
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15335.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15335.jpgsave_picture_15335.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ magnet:?xt=urn:btih:A464423F8DCAE1933AF6DCD204380609ED8D1169
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15336.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15336.jpgsave_picture_15336.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ magnet:?xt=urn:btih:5014956C86A17591B44C2B003FF7776207FC48ED
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15337.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15337.jpgsave_picture_15337.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ magnet:?xt=urn:btih:1CBB2DADB82E26B72D2ADEABCFAD656ABAE3F6DF
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15338.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15338.jpgsave_picture_15338.jpg" />
 </div>
 
 

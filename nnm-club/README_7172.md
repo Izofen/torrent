@@ -6,7 +6,7 @@ Killus - Grotesk (2023) [FLAC|Lossless|WEB-DL|tracks] <Industrial Metal, Alterna
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245425.jpgsave_picture_245425.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ The Cadillac Cats - Billtown Boogie (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245426.jpgsave_picture_245426.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:17A0E590FDFEFC8178D428CE4433F07D89BC4BD2
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245427.jpgsave_picture_245427.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ TextBar 3 v3.5.6 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245428.jpgsave_picture_245428.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:FDAB28CB0DB9122BB873834593A76A8791ACC76C
 >>На досуге
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245429.jpgsave_picture_245429.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ VA - Beatport Trance Pack  (07.10.) (2016) [MP3|320 Kbps] <Trance, Melodic, Emot
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245430.jpgsave_picture_245430.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:F7771EEAE317EE734FFD8FA758745871E854EB88
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245431.jpgsave_picture_245431.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ Fleddy Melculy - Antichlist (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Me
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245432.jpgsave_picture_245432.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ magnet:?xt=urn:btih:7425D592ABACF21C70519F27320BD1C5C70D9E06
 >>Отечественное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245433.jpgsave_picture_245433.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ magnet:?xt=urn:btih:2CF924EC41F9CBCA3511DAA49C3E1E5C27CBA318
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245434.jpgsave_picture_245434.jpg" />
 </div>
 
 
@@ -262,7 +262,7 @@ Roxxcalibur - Gems Of The NWOBHM (2015) [FLAC|Lossless|image + .cue] <NWoBHM>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245435.jpgsave_picture_245435.jpg" />
 </div>
 
 
@@ -289,7 +289,7 @@ magnet:?xt=urn:btih:15B0E0306B83DBAD199972D323C3C2C2D25A58F6
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245436.jpgsave_picture_245436.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ Dick Oatts - Standard Issue (1998) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245437.jpgsave_picture_245437.jpg" />
 </div>
 
 
@@ -340,7 +340,7 @@ Alfred 4 Powerpack 4.6.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245438.jpgsave_picture_245438.jpg" />
 </div>
 
 
@@ -365,7 +365,7 @@ magnet:?xt=urn:btih:4392914E0C5B853B4B3584D302F88F5CC56CD62B
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245439.jpgsave_picture_245439.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ magnet:?xt=urn:btih:C5F356C4AD0B033CBAD706C75C6CD25622DD640C
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245440.jpgsave_picture_245440.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ magnet:?xt=urn:btih:A7FC44C58898946F8D69FBAF9B031AA594F38A98
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245441.jpgsave_picture_245441.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ The Fallen Prophets - No End In Sight (2021) Japanese Edition [FLAC|Lossless|ima
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245442.jpgsave_picture_245442.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ magnet:?xt=urn:btih:0C2D8DBA194D87EC1DF6E10195446D47BC2FCD2E
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245443.jpgsave_picture_245443.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Ilya Hype - Только крылья берегите (2023) [MP3|320 Kbps] <In
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245444.jpgsave_picture_245444.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Kayser - IV: Веуоnd Тhе Rееf Оf Sаnitу (2016) [FLAC|Lossless|image + 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245445.jpgsave_picture_245445.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ NIUBI Partition Editor 7.9.0 Technician Edition RePack (& Portable) by elchupaca
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245446.jpgsave_picture_245446.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Grant Haua - Awa Blues (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245447.jpgsave_picture_245447.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ magnet:?xt=urn:btih:87F85D6FD339EDCBDD732B5A842BFBB7EECE680A
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245448.jpgsave_picture_245448.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ magnet:?xt=urn:btih:4BAA81352C4B664864EF576B0E86836FDC42DE44
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245449.jpgsave_picture_245449.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ magnet:?xt=urn:btih:CBEDFB304F76725BAFE18243A2DB11C9F30F6DD0
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245450.jpgsave_picture_245450.jpg" />
 </div>
 
 

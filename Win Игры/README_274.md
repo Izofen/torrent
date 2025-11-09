@@ -6,7 +6,7 @@ Blasphemous (2019) [Ru/Multi] (4.0.67/dlc) Repack Necros [Digital Deluxe Edition
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_199744.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_199744.jpgsave_picture_199744.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ The Outer Worlds 2 (2025) [Ru/Multi] (1.0.3.0/dlc) Repack Wanterlude [Premium Ed
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_199746.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_199746.jpgsave_picture_199746.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ The Outer Worlds 2 (2025) [Ru/Multi] (1.0.3.0/dlc) Repack Let'sРlay [Premium Ed
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_199853.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_199853.jpgsave_picture_199853.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Dead Island 2 (2024) [Ru/Multi] (7.0.0.1243375/dlc) Repack Wanterlude [Ultimate 
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_199940.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_199940.jpgsave_picture_199940.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Plants vs. Zombies: Replanted (2025) [Multi] (1.2) Repack Other s
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_199991.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_199991.jpgsave_picture_199991.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Tormented Souls 2 (2025) [Ru/Multi] (1.2.0/dlc) Scene Rune [Digital Deluxe Editi
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_200002.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_200002.jpgsave_picture_200002.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Rise of the Tomb Raider (2016) [Ru/Multi] (1.0.1.2/dlc) Repack FitGirl [20 Year 
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_200575.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_200575.jpgsave_picture_200575.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Trials Rising (2019) [Ru/Multi] (Build 10831717/dlc) Repack FitGirl [Gold Editio
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_200578.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_200578.jpgsave_picture_200578.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Arcane Path (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_200581.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_200581.jpgsave_picture_200581.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Total War: Three Kingdoms (2019) [Ru/Multi] (1.7.1/dlc) Repack FitGirl [Collecti
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_200583.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_200583.jpgsave_picture_200583.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Lone Soul (2025) [Ru/Multi] (1.0.1A/dlc) Repack Let'sРlay [Supporter Edition]
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_201764.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_201764.jpgsave_picture_201764.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Subnautica (2018) [Ru/Multi] (83031) Repack Necros
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_201765.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_201765.jpgsave_picture_201765.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Daymare: 1994 Sandcastle (2023) [Ru/Multi] (1.0) Scene Rune
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_201807.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_201807.jpgsave_picture_201807.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Trine 5: A Clockwork Conspiracy (2023) [Ru/Multi] (1.0) Scene FairLight
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_201810.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_201810.jpgsave_picture_201810.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Flying Shark (2023) [En] (7) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_201884.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_201884.jpgsave_picture_201884.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Smurfs Kart (2023) [Ru/Multi] (1.0) Scene Tenoke
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_201895.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_201895.jpgsave_picture_201895.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Phasmophobia (2020) [Ru/Multi] (0.9.0.8) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_201940.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_201940.jpgsave_picture_201940.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Bridge Constructor (2013) [Ru/Multi] (1.3-fix/dlc) License GOG
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_201975.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_201975.jpgsave_picture_201975.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Gunfire Reborn (2021) [Ru/Multi] (Build 20537927/dlc) Repack Let'sРlay [Bundles
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202009.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202009.jpgsave_picture_202009.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Paint the Town Red (2021) [Ru/Multi] (1.3.4 r5682) Repack Necros
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202025.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202025.jpgsave_picture_202025.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Tormented Souls 2 (2025) [Ru/Multi] (1.2.0/dlc) Repack Other s [Digital Deluxe E
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202034.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202034.jpgsave_picture_202034.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Animal Shelter (2022) [Ru/Multi] (1.2.11-33.192/dlc) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202059.jpgsave_picture_202059.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ RC Cars (2002) [Ru/Multi] (1.0.138) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202068.jpgsave_picture_202068.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Punch Club (2016) [Ru/Multi] (1.31) License GOG [Deluxe Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202071.jpgsave_picture_202071.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Farthest Frontier (2025) [Ru/Multi] (1.0.0) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202096.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202096.jpgsave_picture_202096.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ The Lord of the Rings: Gollum (2023) [Ru/Multi] (1.2.52488/dlc) License GOG [Pre
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202112.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202112.jpgsave_picture_202112.jpg" />
 </div>
 
 

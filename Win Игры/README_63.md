@@ -6,7 +6,7 @@ TROUBLESHOOTER: Abandoned Children (2020) [Ru/Multi] (Build 18318222/dlc) Repack
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18860.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18860.jpgsave_picture_18860.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Age of Empires II: Definitive Edition (2019) [Ru/Multi] (101.103.12349.0/dlc) Re
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18877.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18877.jpgsave_picture_18877.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Super Woden GP II (2) (2023) [Ru/Multi] (1.31b) License GOG
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18883.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18883.jpgsave_picture_18883.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Mark of the Deep (2025) [Ru/Multi] (1.0.0.0.4) Repack Let'sРlay [Deluxe Edition
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18885.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18885.jpgsave_picture_18885.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Baldur's Gate II: Enhanced Edition (2013) [Ru/Multi] (2.6.6.0-p/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18894.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18894.jpgsave_picture_18894.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Death Road to Canada (2016) [Multi] (Omentum Update) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18898.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18898.jpgsave_picture_18898.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Teardown (2022) [Ru/Multi] (1.6.3/dlc) Repack Other s [Ultimate Edition]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18955.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18955.jpgsave_picture_18955.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Builders of Greece (2024) [Ru/Multi] (1.0.0 build 18361871) Repack seleZen
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18956.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18956.jpgsave_picture_18956.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Drop Duchy (2025) [Ru/Multi] (0.40.6) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18959.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18959.jpgsave_picture_18959.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Cybernetic Fault (2020) [Ru/Multi] (1.1) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18991.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18991.jpgsave_picture_18991.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Rise of the Ronin (2024) [Ru/Multi] (1.09.0.4/dlc) Repack Wanterlude
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19007.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19007.jpgsave_picture_19007.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Forza Horizon 5 (2021) [Ru/Multi] (1.683.258.0/dlc) Repack Wanterlude [Premium E
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19011.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19011.jpgsave_picture_19011.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Viscerafest (2021) [Ru/Multi] (1.2) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19045.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19045.jpgsave_picture_19045.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ ShoppingMall: Manager Simulator (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19047.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19047.jpgsave_picture_19047.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Food Park Manager (2025) [Multi] (1.0.0c) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19050.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19050.jpgsave_picture_19050.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Slavania (2024) [Ru/Multi] (1.1.0-887/dlc) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19054.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19054.jpgsave_picture_19054.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Drop Duchy (2025) [Ru/Multi] (0.40.6) Repack Other s
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19070.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19070.jpgsave_picture_19070.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Colony Ship: A Post-Earth Role Playing Game (2021) [Ru/En] (1.0.171) Repack Let'
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19074.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19074.jpgsave_picture_19074.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Captain Blood / Приключения Капитана Блада (2025) [Ru/Mu
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19089.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19089.jpgsave_picture_19089.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Aquarist (2024) [Ru/Multi] (Build 18222695/dlc) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19090.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19090.jpgsave_picture_19090.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Another Crab's Treasure (2024) [Ru/Multi] (2.0.000.3) Repack FitGirl [Deluxe Edi
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19095.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19095.jpgsave_picture_19095.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Reignbreaker (2025) [Ru/Multi] (1.3.1) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19098.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19098.jpgsave_picture_19098.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Pacific Drive (2024) [Ru/Multi] (1.9.3-CL30287/dlc) Repack Decepticon [Deluxe Ed
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19103.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19103.jpgsave_picture_19103.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Age of Empires II: Definitive Edition (2019) [Ru/Multi] (143421/dlc) Scene Rune
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19106.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19106.jpgsave_picture_19106.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Womanizer (2024) [Ru/Multi] (1.32/dlc) Repack Other s [18+]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19107.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19107.jpgsave_picture_19107.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ The Last of Us Part II (2) (2025) [Ru/En] (1.3.10430.406/dlc) Repack Decepticon 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19112.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19112.jpgsave_picture_19112.jpg" />
 </div>
 
 

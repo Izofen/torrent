@@ -6,7 +6,7 @@ VA - Just Jazz! & The Complete Triple Play Stereo Sessions (1962) 2009, Jazz Bea
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112857.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112857.jpgsave_picture_112857.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Aktarum - Trollvengers (2022) 2024 Reissue, Troll Studios  [FLAC|Lossless|WEB-DL
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112858.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112858.jpgsave_picture_112858.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Aktarum - Ragnatroll (2018) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Black Metal, 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112859.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112859.jpgsave_picture_112859.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Dordeduh - Dar de duh (2012) [FLAC|24/192|image + .cue|Vinyl-Rip] <Atmospheric F
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112860.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112860.jpgsave_picture_112860.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Sidney Bechet - Hold Tight (1938 - 1946) 1989, Jazz & Jazz [FLAC|Lossless|image 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112861.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112861.jpgsave_picture_112861.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Aktarum - Game of Trolls (2014) EP [FLAC|Lossless|WEB-DL|tracks] <Black Metal, F
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112862.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112862.jpgsave_picture_112862.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Dordeduh - Har (2021) [FLAC|24/192|image + .cue|Vinyl-Rip] <Atmospheric Folk, Bl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112863.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112863.jpgsave_picture_112863.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Menhir - Buchonia (1998) EP Reissue, 2004, Perverted Taste [FLAC|Lossless|image 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112864.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112864.jpgsave_picture_112864.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Menhir - Die ewigen Steine (1997) Reissue, 2003, Perverted Taste [FLAC|Lossless|
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112865.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112865.jpgsave_picture_112865.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Menhir - Ziuwari (2001) [FLAC|Lossless|image + .cue] <Pagan Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112866.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112866.jpgsave_picture_112866.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Menhir - Thuringia (1999) Reissue, 2003, Perverted Taste [FLAC|Lossless|image + 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112867.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112867.jpgsave_picture_112867.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:DE1A686D15A5E2B41E430FF06FB089DA9133D644
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112868.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112868.jpgsave_picture_112868.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ magnet:?xt=urn:btih:51093ED1BA78517C38D2B63ADA10C4036B53579C
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112869.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112869.jpgsave_picture_112869.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ magnet:?xt=urn:btih:12C792486A34E23CA008628F7E7CC55FC0521956
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112870.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112870.jpgsave_picture_112870.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ VA - Trance Fusion Vol. 01 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112871.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112871.jpgsave_picture_112871.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ KineMaster - Video Editor & Maker v7.4.4.32358.GP Mod by youarefinished [Ru/Mult
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112872.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112872.jpgsave_picture_112872.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ magnet:?xt=urn:btih:596C957BB4E8B4D7DC7D393024926E2D2CF1B7BA
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112873.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112873.jpgsave_picture_112873.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ magnet:?xt=urn:btih:B7462D3649E060AE80A92746330BB9E9DBDEC4A4
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112874.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112874.jpgsave_picture_112874.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ KineMaster - Video Editor & Maker v7.4.4.32358.GP Mod by AppKaMods [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112875.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112875.jpgsave_picture_112875.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ magnet:?xt=urn:btih:C251C3D42CD9C412604E5A4267707463DBCB2CCB
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112876.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112876.jpgsave_picture_112876.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ PNAU - Hyperbolic (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop, Electropop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112877.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112877.jpgsave_picture_112877.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ magnet:?xt=urn:btih:6A62316F9BC75DC072D64C6451B0FB81FEC50958
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112878.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112878.jpgsave_picture_112878.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ magnet:?xt=urn:btih:25AAC470DF972110C4BBEDAE46401AACF9B36548
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112879.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112879.jpgsave_picture_112879.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ magnet:?xt=urn:btih:E1615890EFDFBF2256762EB6D15E4DCC17B86DF9
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112880.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112880.jpgsave_picture_112880.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ magnet:?xt=urn:btih:2B05A68FF777D3C537D022B0295A2BCB68557D75
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112881.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112881.jpgsave_picture_112881.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ magnet:?xt=urn:btih:BD2D62895DB9CF3BF20001B827C689E99B22610B
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112882.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112882.jpgsave_picture_112882.jpg" />
 </div>
 
 

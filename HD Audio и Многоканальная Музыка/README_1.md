@@ -6,7 +6,7 @@ The Crown (ex-Crown of Thorns) - Studio Albums (12 releases) (1995-2024) hand ma
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1410.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1410.jpgsave_picture_1410.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Malevolence - Studio Albums (4 releases) (2013-2025) hand made [restored, declip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1412.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1412.jpgsave_picture_1412.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Velial Squad - Бельмо (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hip-Ho
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1413.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1413.jpgsave_picture_1413.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Spinal Tap - The End Continues (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1427.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1427.jpgsave_picture_1427.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Castle Rat - The Bestiary (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Doom Metal
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1430.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1430.jpgsave_picture_1430.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Surrender The Crown - Travails (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Roc
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1432.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1432.jpgsave_picture_1432.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Imminence - Studio Albums (8 releases) (2013-2025) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1469.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1469.jpgsave_picture_1469.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Doug MacLeod - Between Somewhere and Goodbye (2025) [FLAC 24/192|Lossless|WEB-DL
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1556.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1556.jpgsave_picture_1556.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Alice Armstrong - Fury & Euphoria (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Bl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1558.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1558.jpgsave_picture_1558.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Ded - Resent (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Nu-Metal, Alternative
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1560.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1560.jpgsave_picture_1560.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Rusty Ends & Hillbilly Hoodoo - Roadhouses, Juke Joints and Honky-Tonks (2025) [
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1561.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1561.jpgsave_picture_1561.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Juri Amicabile - Geared Up (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1562.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1562.jpgsave_picture_1562.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Alan Arena - Deceived (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1565.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1565.jpgsave_picture_1565.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ magnet:?xt=urn:btih:AA261768ACFD821354D57F728B0266903DF23050
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1566.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1566.jpgsave_picture_1566.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Bad Wolves - Die About It (Deluxe) (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1571.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1571.jpgsave_picture_1571.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Brandon Isaak - Walkin' With The Blues (2025) [FLAC 24/44.1|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1572.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1572.jpgsave_picture_1572.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Sakura - Матрос на стройке (2025) [FLAC 24/44.1|Lossless|WEB-DL|t
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1573.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1573.jpgsave_picture_1573.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Band Of Friends - Ballroom Of Dreams - Band Of Friends - Ballroom Of Dreams (202
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1574.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1574.jpgsave_picture_1574.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Daisychain - All In A Name (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock, Blu
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1576.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1576.jpgsave_picture_1576.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Sleepwell Citizen - This Is Only A Test (2025) [FLAC 24/44.1|Lossless|WEB-DL|tra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1578.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1578.jpgsave_picture_1578.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Few Miles On - Mother Lode (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1581.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1581.jpgsave_picture_1581.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Mike Tramp - Songs Of White Lion, Vol. III (2025) [FLAC 24/96|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1583.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1583.jpgsave_picture_1583.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Damiano David - FUNNY little FEARS (DREAMS) (2025) [FLAC 24/44.1|Lossless|WEB-DL
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1584.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1584.jpgsave_picture_1584.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Robin Ross - Robin Ross & The Bluesberry Jam (2025) [FLAC 24/48|Lossless|WEB-DL|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1585.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1585.jpgsave_picture_1585.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Lolita (Edith "Ditta" Einzinger) - Sailor, Sailor And Lolita's Greatest Hits (19
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1586.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1586.jpgsave_picture_1586.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ magnet:?xt=urn:btih:4BDC18F99BB11232D658BE3BA9C7636040F7E81B
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1598.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1598.jpgsave_picture_1598.jpg" />
 </div>
 
 

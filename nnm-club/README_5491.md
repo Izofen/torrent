@@ -6,7 +6,7 @@ Submerge 3 v3.8 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169712.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169712.jpgsave_picture_169712.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:1251590EC13D2F0F3A6BDB5F15E87F992CB5F13B
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169713.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169713.jpgsave_picture_169713.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:66E0539AFD61E57D1477FD97AC2781E5FBC82BDE
 >>История
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169714.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169714.jpgsave_picture_169714.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Vivaldi 3.5.2115.81 + Portable (Standalone) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169716.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169716.jpgsave_picture_169716.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ VA - Finesse Jazz, Vol.2 (Smooth Jazzy Lounge Sounds) (2021) [AAC|~324 Kbps] <Lo
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169717.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169717.jpgsave_picture_169717.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:C06969703090D20368C8B42F636C01C8B1AFDBF7
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169718.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169718.jpgsave_picture_169718.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:F9C67A0BE8C26A88978375C17B44632181889153
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169720.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169720.jpgsave_picture_169720.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ Skype 8.55.0.135 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169721.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169721.jpgsave_picture_169721.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ LosslessCut 3.29.1 Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169722.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169722.jpgsave_picture_169722.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ magnet:?xt=urn:btih:CFD632060A8B390350632009FD2A488107961DA5
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169723.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169723.jpgsave_picture_169723.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ Scarlxrd - Агрессивный, грязный и металлический 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169724.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169724.jpgsave_picture_169724.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ VA - A Very Cool Christmas (2019) Box Set, 2CD [FLAC|Lossless|tracks + .cue] <Po
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169725.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169725.jpgsave_picture_169725.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ Auslogics BoostSpeed 13.0.0.6 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169726.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169726.jpgsave_picture_169726.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ Macrorit Data Wiper 6.5.0 Unlimited Edition RePack (& Portable) by elchupacabra 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169727.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169727.jpgsave_picture_169727.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Tor Browser Bundle 13.0.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169728.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169728.jpgsave_picture_169728.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Opera GX 64.0.3417.150 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169729.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169729.jpgsave_picture_169729.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Skype 8.55.0.135 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169731.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169731.jpgsave_picture_169731.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ magnet:?xt=urn:btih:70C3CDB54C860739906BDCF2524FE48FBC1E9F14
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169732.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169732.jpgsave_picture_169732.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Rodrigo Y Gabriela - 11:11 (2010) [MP3|320 Kbps] <Latin, Folk>
 >>Folk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169734.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169734.jpgsave_picture_169734.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Angry Birds: Летнее безумие / Angry Birds: Summer Madness (2022) WE
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169735.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169735.jpgsave_picture_169735.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ SpamSieve 2.9.47 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169736.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169736.jpgsave_picture_169736.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ magnet:?xt=urn:btih:525C6A89769D6B6414FE45056ED17AF4DC14C694
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169737.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169737.jpgsave_picture_169737.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ magnet:?xt=urn:btih:1313F9FA9429D9CCFEDFDC42C4A03530284E3E5B
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169738.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169738.jpgsave_picture_169738.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ magnet:?xt=urn:btih:4A1EF17214EB2AC92BEFEAB70364A1A172A06B38
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169739.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169739.jpgsave_picture_169739.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ VA - A Tribe Called Kotori 4 (2020) [AAC|~324 Kbps] <Progressive House, Deep Hou
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169740.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169740.jpgsave_picture_169740.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ HiBit Uninstaller 3.0.20 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169741.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169741.jpgsave_picture_169741.jpg" />
 </div>
 
 

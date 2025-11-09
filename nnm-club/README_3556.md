@@ -6,7 +6,7 @@ Lorenzo Sanchez Band - Blue Avenida (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112831.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112831.jpgsave_picture_112831.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ MotoGP. Этап 02 из 22. Гран-при Португалии. Квалиф�
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112832.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112832.jpgsave_picture_112832.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Innocence Lost - Oblivion (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive, Sym
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112833.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112833.jpgsave_picture_112833.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:A0F2240EF6809F58E1BFD662F9A077102CEFE1A3
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112834.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112834.jpgsave_picture_112834.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Sol - Mall Gig (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112835.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112835.jpgsave_picture_112835.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Stevie & the Blue Flames - Destination Blues (2024) [FLAC 24/48|Lossless|WEB-DL|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112836.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112836.jpgsave_picture_112836.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ RJ TextEd 16.15 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112837.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112837.jpgsave_picture_112837.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ magnet:?xt=urn:btih:01A43B119C1DFDD3BF8632F9FF8F07D5A1EE8C47
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112838.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112838.jpgsave_picture_112838.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ VA - Workout 2024 - Rock (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112839.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112839.jpgsave_picture_112839.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ magnet:?xt=urn:btih:0613AF88BA5A1015113EE5A4C2BC14116908FBEA
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112840.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112840.jpgsave_picture_112840.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ magnet:?xt=urn:btih:5118022B431B7B52207882C85782B9906C88A579
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112841.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112841.jpgsave_picture_112841.jpg" />
 </div>
 
 
@@ -289,7 +289,7 @@ MotoGP. Этап 02 из 22. Гран-при Португалии. Спринт 
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112842.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112842.jpgsave_picture_112842.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ StaxRip 2.37.3 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112843.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112843.jpgsave_picture_112843.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ magnet:?xt=urn:btih:68CC2A41A5619E7BA7DC779EF8FA417FE008E658
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112844.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112844.jpgsave_picture_112844.jpg" />
 </div>
 
 
@@ -365,7 +365,7 @@ magnet:?xt=urn:btih:6BB40223988F5C736D123901D1B04784473E857D
 >>Камерная (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112845.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112845.jpgsave_picture_112845.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ magnet:?xt=urn:btih:6F23E95821560DB5785D9BA8907E758BC72E34F2
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112846.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112846.jpgsave_picture_112846.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ magnet:?xt=urn:btih:86C28DBA9773AF4EFEDF09FA5E21DA4A555DC55B
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112847.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112847.jpgsave_picture_112847.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Steve Howell & The Mighty Men - 99 1/2 Won't Do (2024) [FLAC 24/96|Lossless|WEB-
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112848.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112848.jpgsave_picture_112848.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Waveshaper - A Void Hope (2024) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrow
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112849.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112849.jpgsave_picture_112849.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Privacy Eraser Free 6.5 Build 4875 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112850.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112850.jpgsave_picture_112850.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Therion - Leviathan III (Producers Edition) (2023) [FLAC|Lossless|image + .cue] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112851.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112851.jpgsave_picture_112851.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Almanac (Victor Smolski) - Studio Albums (6 releases) (2000-2023) hand made [res
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112852.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112852.jpgsave_picture_112852.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ magnet:?xt=urn:btih:9549FC32DFE49AE358E1C6E05C1C2D68031BB00C
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112853.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112853.jpgsave_picture_112853.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ magnet:?xt=urn:btih:94821FA8F2541846668078D3CE7EF4C1339EE180
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112854.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112854.jpgsave_picture_112854.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ Bruce Dickinson - Tyranny of Souls (2005) Reissue, 2017, BMG [FLAC|24/192|tracks
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112855.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112855.jpgsave_picture_112855.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ Sonny Clark - The Complete Blue Note Sessions (1957 - 1962) 6СD, 2023, Mosaic R
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112856.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112856.jpgsave_picture_112856.jpg" />
 </div>
 
 

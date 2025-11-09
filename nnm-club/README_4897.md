@@ -6,7 +6,7 @@
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153270.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153270.jpgsave_picture_153270.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:8AF6BB6A9F378052D41D208FEA3B8A86C754B627
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153271.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153271.jpgsave_picture_153271.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:A70605883CA911A18937D2D51EE04491562CA700
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153272.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153272.jpgsave_picture_153272.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:4DBECED3B5D96F62694FBF561F7ED5DCCD021D86
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153273.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153273.jpgsave_picture_153273.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:437623676880F50A509CA73EA3B9BD1B26D44035
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153275.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153275.jpgsave_picture_153275.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:1FAFE4FC1127FE94B74149E2CC4A2676851B02A6
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153276.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153276.jpgsave_picture_153276.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:3DA1B9FB410735AB968293C77306F9C65DCE9545
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153278.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153278.jpgsave_picture_153278.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:34C5D7C92698028A444943089F6E6E3C10D229AB
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153279.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153279.jpgsave_picture_153279.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:F1D4E8B3A1930BCE75980C3D07227F2BC1B90853
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153280.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153280.jpgsave_picture_153280.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ magnet:?xt=urn:btih:1A6750272FE9D931FDF4DC13964848998E12ED76
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153283.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153283.jpgsave_picture_153283.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ VA - Empire Records - Chill Out 5 (2016) [MP3|320 Kbps] <Chillout, Lounge, Downt
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153284.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153284.jpgsave_picture_153284.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Justin Marshall | Topology Tools in TopoGun 2.0 (2016) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153286.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153286.jpgsave_picture_153286.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:B62698667614548C7C87793E930FB76959D8A5AD
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153288.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153288.jpgsave_picture_153288.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:585C81A46D7242BC2C963413C160D708FACF0A1E
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153290.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153290.jpgsave_picture_153290.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Jason McGuire - Distancias (2005) [MP3|320 кб/с]<Instrumental, Flamenco, Acou
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153291.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153291.jpgsave_picture_153291.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ magnet:?xt=urn:btih:C7285E7FC7B50515BE851E69A738B8F2D5F2B100
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153292.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153292.jpgsave_picture_153292.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ Adele - 100% Adele (2018) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153293.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153293.jpgsave_picture_153293.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ ForstWölfin - Quantum Mechanics (2015) [FLAC|Lossless|WEB-DL|tracks] <Ambient, 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153294.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153294.jpgsave_picture_153294.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ magnet:?xt=urn:btih:4ADE209ABBD78002C3975C0EBC4EFAE19BBD96FD
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153295.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153295.jpgsave_picture_153295.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ magnet:?xt=urn:btih:05214550CFD93CF3B54FF0F42FA565DD2EEAD1B1
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153296.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153296.jpgsave_picture_153296.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ magnet:?xt=urn:btih:4315D56C8E2D64BFD9EA612C2E821B8BCF63CDB3
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153297.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153297.jpgsave_picture_153297.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ magnet:?xt=urn:btih:751CCCDF6D5F4FFBD51664D87018AF1410132B0F
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153298.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153298.jpgsave_picture_153298.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ magnet:?xt=urn:btih:7F021BEF36E1DABAE118703440A81A1C36577722
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153300.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153300.jpgsave_picture_153300.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ magnet:?xt=urn:btih:C7D916F98AE293FF9445C9873E3E38AB5E80C3EF
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153302.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153302.jpgsave_picture_153302.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Fiona Boyes - Professin' The Blues (2016) [MP3|320 Kbps] <Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153303.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153303.jpgsave_picture_153303.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ magnet:?xt=urn:btih:82ACBDD11E1173BDD6B26C8845635777D833DD63
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153304.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153304.jpgsave_picture_153304.jpg" />
 </div>
 
 

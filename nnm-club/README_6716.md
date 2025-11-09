@@ -6,7 +6,7 @@ Mike Oldfield - Tubular Bells III (1998) [FLAC|Lossless|tracks + .cue] <New Age,
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_230963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230963.jpgsave_picture_230963.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Warfield Within - Beast Inside (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230964.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230964.jpgsave_picture_230964.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:86C9759A6E5B13F7339E3C9E8668A5E67362CA69
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_230966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230966.jpgsave_picture_230966.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Edu Falaschi - Vera Cruz (2021) Japan Edition [FLAC|Lossless|image + .cue] <Powe
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230967.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230967.jpgsave_picture_230967.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ PhotoRoom 4.6.0 Mod by Mixroot, Maximoff [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230969.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230969.jpgsave_picture_230969.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ magnet:?xt=urn:btih:EFAB26C364829A3C69ECA7F2260A2F17494EDD80
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230970.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230970.jpgsave_picture_230970.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ Black Sabbath - Live Evil (1982) 2023, 4CD, 40th Anniversary Super Deluxe, Sanct
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_230972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230972.jpgsave_picture_230972.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ PullTube 1.8.5.15 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230973.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230973.jpgsave_picture_230973.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ magnet:?xt=urn:btih:1DE96B5C641127292219ACADFE3FAFE47BDC74AC
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230974.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230974.jpgsave_picture_230974.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ magnet:?xt=urn:btih:35C4A0E9A5CB13E7E4A444ED5629CDEB56F9FA4B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230975.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230975.jpgsave_picture_230975.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ Librarian Pro 7 v.7.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230978.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230978.jpgsave_picture_230978.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ magnet:?xt=urn:btih:104FCF7E03EDC750D058F035ECCB2256FBC6C5E4
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230979.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230979.jpgsave_picture_230979.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ magnet:?xt=urn:btih:B655378434D551DA83786EBB842E339F04E6F197
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_230980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230980.jpgsave_picture_230980.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ Everyone Dies In Utah - Supra / Infra (2021) Deluxe Edition, 2023, Everyone Dies
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230981.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230981.jpgsave_picture_230981.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ PopClip 2023.7 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230985.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230985.jpgsave_picture_230985.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Desolator - Spawn of Misanthropy (2016) EP [MP3|320 Kbps] <Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230986.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230986.jpgsave_picture_230986.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Greta Van Fleet - Starcatcher (2023) [FLAC|Lossless|WEB-DL|tracks] <Classic Hard
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230987.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230987.jpgsave_picture_230987.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ magnet:?xt=urn:btih:C792E055C52FB09E835889550A415A426A4C67E8
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_230989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230989.jpgsave_picture_230989.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Focus Professional 1.15 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230991.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230991.jpgsave_picture_230991.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ magnet:?xt=urn:btih:7C8BFD913A9B56F19BE7F678A837E2C551BE92DB
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230993.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230993.jpgsave_picture_230993.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Dream Death - Dissemination (2016) [FLAC|Lossless|WEB-DL|tracks] <Thrash, Doom M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230994.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230994.jpgsave_picture_230994.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Internet Download Manager 6.41 Build 12 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_230995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230995.jpgsave_picture_230995.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Queen - Легенды Зарубежного Рока (1999) Compilation, Unoff
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_230996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230996.jpgsave_picture_230996.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Dynamic Island - dynamicSpot 1.70 Mod by youarefinished [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230998.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230998.jpgsave_picture_230998.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Colibri 2.1.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230999.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230999.jpgsave_picture_230999.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ Desolator - Unearthly Monument (2013) [MP3|320 Kbps] <Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231001.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231001.jpgsave_picture_231001.jpg" />
 </div>
 
 

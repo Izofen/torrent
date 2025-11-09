@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22621.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22621.jpgsave_picture_22621.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Haste: Broken Worlds (2025) [Ru/Multi] (1.0.b) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22622.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22622.jpgsave_picture_22622.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:002FFE2E442A6C93379E03E4B469BEB6708B7BE2
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22623.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22623.jpgsave_picture_22623.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:0B07D7A076E806A23613AADC16C638F4E4D18D50
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22624.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22624.jpgsave_picture_22624.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ Eric's Movie DataBase (EMDB) 5.36 [Multi/Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22625.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22625.jpgsave_picture_22625.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:2515B61B3ECB62CE2560DEFB6A4AE9D959DFCCA1
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22626.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22626.jpgsave_picture_22626.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ Rufus 4.7 (Build 2230) Beta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22627.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22627.jpgsave_picture_22627.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:BE879DF1819ED294F94E2E00C3C7E3EDD2A032AA
 >>Дискуссионный клуб
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22628.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22628.jpgsave_picture_22628.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:BE879DF1819ED294F94E2E00C3C7E3EDD2A032AA
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22629.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22629.jpgsave_picture_22629.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:916365D36CB07923754765C070F1DF354F8BD6A9
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22630.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22630.jpgsave_picture_22630.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:616E900F35515E65F89D4B116E0550C19A2EB8CB
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22631.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22631.jpgsave_picture_22631.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ REYNATIS (2024) [Multi] (1.0.9/dlc) Scene Rune [Ultimate Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22632.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22632.jpgsave_picture_22632.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ KARMA: The Dark World (2025) [Ru/Multi] (Build 17844576) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22633.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22633.jpgsave_picture_22633.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ magnet:?xt=urn:btih:9C06DC8C0EC5B56B7D5EFD29D7C3B32DC492436F
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22634.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22634.jpgsave_picture_22634.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ magnet:?xt=urn:btih:86CFA66AF39BCFF6C8D0F11D2ED83E136AFAB016
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22635.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22635.jpgsave_picture_22635.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Minecraft в кино / A Minecraft Movie (2025) TS [H.264] [звук с TS] [AD
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22636.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22636.jpgsave_picture_22636.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ Minecraft в кино / A Minecraft Movie (2025) TS [H.264] [звук с TS] [AD
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22637.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22637.jpgsave_picture_22637.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ magnet:?xt=urn:btih:4A9FED088704FD0568DE8A720A1C36F4753EC17A
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22638.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22638.jpgsave_picture_22638.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ magnet:?xt=urn:btih:A52DC82DC8B7E0A6962E51678BCAD1F996FB5D33
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22639.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22639.jpgsave_picture_22639.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Galacticare (2024) [Ru/Multi] (1.2.0+4f6f505ec2/dlc) Repack FitGirl [Full Covera
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22640.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22640.jpgsave_picture_22640.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ magnet:?xt=urn:btih:9A5C5528C572EA4FB270B3077ACF6E3C7303BA58
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22641.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22641.jpgsave_picture_22641.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ AnyDesk 9.5.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22642.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22642.jpgsave_picture_22642.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ magnet:?xt=urn:btih:767CFA901A4D6515A4924E51B6A2609FD2E072E5
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22643.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22643.jpgsave_picture_22643.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ ShareX 17.0.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22644.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22644.jpgsave_picture_22644.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ magnet:?xt=urn:btih:C70F02BBDC18B6E8CE5086B5A67A56C62D3639D5
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22645.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22645.jpgsave_picture_22645.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Notepad++ 8.7.9 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22646.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22646.jpgsave_picture_22646.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Activator - Хранитель жизни (2013) [MP3|252-276 Kbps VBR (V0)] <He
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102903.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102903.jpgsave_picture_102903.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Zero One Zero - Traces Of Yesterday (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard R
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102906.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102906.jpgsave_picture_102906.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Nomos - The Great Unknown (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102909.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102909.jpgsave_picture_102909.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Sky Wolves - Forgotten Tales (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102910.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102910.jpgsave_picture_102910.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Furor Gallico - Future To Come (2024) [FLAC|Lossless|image + .cue] <Folk Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102911.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102911.jpgsave_picture_102911.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Rising Sunset - Vade Draconem Maledicte (2024) [FLAC|Lossless|WEB-DL|tracks] <Sy
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102913.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102913.jpgsave_picture_102913.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Bathsheba - Servus (2017) SVART066CD [FLAC|Lossless|image + .cue] <Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102915.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102915.jpgsave_picture_102915.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Counting Hours - The Wishing Tomb (2024) [FLAC|Lossless|image + .cue] <Melodic D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102916.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102916.jpgsave_picture_102916.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ The Minus 5 - Down With Wilco: A Tragedy In Three Halfs (2003) [FLAC|Lossless|tr
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102917.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102917.jpgsave_picture_102917.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Mellowtoy - Lies (2015) [FLAC|Lossless|image + .cue] <Metalcore>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102920.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102920.jpgsave_picture_102920.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Thargos - Killfukk (2003) [FLAC|Lossless|image + .cue] <Thrash Metal, Black Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102922.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102922.jpgsave_picture_102922.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ R.O.D. - Death For All (2012) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102923.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102923.jpgsave_picture_102923.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Sacramental Sachem - Recrucifiction (1995) [FLAC|Lossless|image + .cue] <Death M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102924.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102924.jpgsave_picture_102924.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Ocean Chief & Runemagick - The Northern Lights (2007) Split [FLAC|Lossless|image
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102925.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102925.jpgsave_picture_102925.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Pero Defformero - Undergrand (2009) [FLAC|Lossless|image + .cue] <Heavy Metal, H
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102926.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102926.jpgsave_picture_102926.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ Trinakrius - Massacro (2010) [FLAC|Lossless|image + .cue] <Power Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102927.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102927.jpgsave_picture_102927.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ Malediction - Reductio ad Absurdum (2008) [FLAC|Lossless|image + .cue] <Death Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102928.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102928.jpgsave_picture_102928.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ Veins - Innocence (2017) [FLAC|Lossless|image + .cue] <Death Metal, Thrash Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102929.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102929.jpgsave_picture_102929.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ Famishgod - Roots Of Darkness (2016) [FLAC|Lossless|image + .cue] <Doom Death Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102931.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102931.jpgsave_picture_102931.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Castle - Castle (1994) [FLAC|Lossless|image + .cue] <Doom Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102932.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102932.jpgsave_picture_102932.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Supergrass - Life on Other Planets 2003 (2003) [FLAC|Lossless|tracks + .cue] <Po
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102933.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102933.jpgsave_picture_102933.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Zombie Death Stench - Here I Die... Zombified (2007) [FLAC|Lossless|image + .cue
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102937.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102937.jpgsave_picture_102937.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Venduzor - Covered By The Blood (2010) [FLAC|Lossless|image + .cue] <Brutal Deat
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102938.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102938.jpgsave_picture_102938.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ Shardless - Fairytales... Out Of The Dark (2008) [FLAC|Lossless|image + .cue] <G
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102939.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102939.jpgsave_picture_102939.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ Master's Hammer - (Slagry) Šlágry (1995) [FLAC|Lossless|image + .cue] <Black M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102940.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102940.jpgsave_picture_102940.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ Fleshbomb - Reincarnated In Abomination (2014) [FLAC|Lossless|image + .cue] <Bru
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102941.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102941.jpgsave_picture_102941.jpg" />
 </div>
 
 

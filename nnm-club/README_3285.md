@@ -6,7 +6,7 @@
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105771.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105771.jpgsave_picture_105771.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Frank Sinatra - I Get A Kick Out Of You (1990) Entertainers [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105772.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105772.jpgsave_picture_105772.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:B41A6571DAE65ECBF2AE95F8017F9A5A09FF800E
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105773.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105773.jpgsave_picture_105773.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ MotoGP. Этап 10 из 20. Гран-при Великобритании. Сп�
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105774.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105774.jpgsave_picture_105774.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ magnet:?xt=urn:btih:9CD5EBA943AB81376C99729B21416379AB431756
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105775.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105775.jpgsave_picture_105775.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ magnet:?xt=urn:btih:86AF745C9E7170D4137ABC62E4F64D2985B141AE
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105776.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105776.jpgsave_picture_105776.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ MotoGP. Этап 10 из 20. Гран-при Великобритании. Кв�
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105777.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105777.jpgsave_picture_105777.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ Hidrommel - We Are The Seas (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105778.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105778.jpgsave_picture_105778.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ magnet:?xt=urn:btih:E51F6141290B09101C96043EE6A89E069F263731
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105779.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105779.jpgsave_picture_105779.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ magnet:?xt=urn:btih:690BCCAB7756E39E6584A6C1BDE597A4FD1F1D1F
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105780.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105780.jpgsave_picture_105780.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ magnet:?xt=urn:btih:96E37B9930FF59F84381328700195A0C76D4C995
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105781.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105781.jpgsave_picture_105781.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ VA - compilation  part 110 Electronic (2024) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105782.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105782.jpgsave_picture_105782.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ magnet:?xt=urn:btih:F6A14A61016195BC0263092529C4350190A8BD6D
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105783.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105783.jpgsave_picture_105783.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ magnet:?xt=urn:btih:C8E8F9EB3FEE408F950A35A64C3DF6326E64797F
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105784.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105784.jpgsave_picture_105784.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ VA - Electronica Confessions, Vol. 16 (2014) [MP3|320 Kbps] <Electro, House>
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105785.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105785.jpgsave_picture_105785.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ VA - 40 Dance Summer Hits 2024 (2024) [MP3|320 Kbps] <Dance, Club, House, Electr
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105786.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105786.jpgsave_picture_105786.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Marilyn Manson - As Sick As The Secrets Within (2024) Single [FLAC 24/96|Lossles
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105787.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105787.jpgsave_picture_105787.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Fred Guillemet Band - Hard N’Roll Stories (2024) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105788.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105788.jpgsave_picture_105788.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ magnet:?xt=urn:btih:4A76C0BD2E244536990040E671558583513D4986
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105789.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105789.jpgsave_picture_105789.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ VA - Electronica Confessions, Vol. 15 (2014) [MP3|320 Kbps] <Electro, House>
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105790.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105790.jpgsave_picture_105790.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Metonic - Ghostly Ship (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105791.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105791.jpgsave_picture_105791.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ VA - Open Seas (Ibiza Island Mood), Vol. 1 (2024) [FLAC|Lossless|WEB-DL|tracks] 
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105792.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105792.jpgsave_picture_105792.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ The Smashing Pumpkins - Aghori Mhori Mei (2024) [MP3|320 Kbps] <Alternative Rock
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105793.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105793.jpgsave_picture_105793.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ VA - Electronica Confessions, Vol. 12 (2014) [MP3|320 Kbps] <Electro, House>
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105794.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105794.jpgsave_picture_105794.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ VA - Electronica Confessions, Vol. 11 (2014) [MP3|320 Kbps] <Electro, House>
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105795.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105795.jpgsave_picture_105795.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ VA - Electronica Confessions, Vol. 14 (2014) [MP3|320 Kbps] <Electro, House>
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105796.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105796.jpgsave_picture_105796.jpg" />
 </div>
 
 

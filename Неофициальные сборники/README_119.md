@@ -6,7 +6,7 @@ VA - Country Dark Rock (2023) [MP3|320 Kbps] <Country, Blues, Rock>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243603.jpgsave_picture_243603.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Новинки С Разных Популярных мп3 Сайтов ver.
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243607.jpgsave_picture_243607.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - Сотка модных хитов. Выпуск 6 (2016) [MP3|256 Kbps] <P
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243609.jpgsave_picture_243609.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - Звездная вечеринка. Зарядись хитами 50/50 (2
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243617.jpgsave_picture_243617.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ VA - Digital Confession (2021) [MP3|320 Kbps] <Techno, Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243677.jpgsave_picture_243677.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ VA - Осенняя дискотека по-русски. Выпуск 5 (2016) 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243727.jpgsave_picture_243727.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ VA - Горячий хитовый драйв. Выпуск 8 (2016) [MP3|256 Kb
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243766.jpgsave_picture_243766.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ VA - Compilation  part 16 Electronic (2023) [MP3|224-320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243796.jpgsave_picture_243796.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Z-Deep - Compilation (2023) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243842.jpgsave_picture_243842.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ VA - Весна на Love Radio (2022) [MP3|320 Kbps] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243850.jpgsave_picture_243850.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ VA - Summer Light Deep (2022) [MP3|320 Kbps] <Deep House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243851.jpgsave_picture_243851.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Davvi - Compilation (2023) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243857.jpgsave_picture_243857.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ VA - Советская Психоделика 1970-80х (1988) [MP3|320 Kbps] <
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243867.jpgsave_picture_243867.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ VA - German Top 50 Official Dance Charts 18.11 (2016) [MP3|256-320 Kbps] <Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243936.jpgsave_picture_243936.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Kingdom Come - Collection (2022) [MP3|320 Kbps] <Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243938.jpgsave_picture_243938.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ VA - 60 minutes. Old School Dance Music vol.17 (2023) mixed by Dj V [MP3|320 Kbp
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243950.jpgsave_picture_243950.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ VA - Осенняя дискотека по-русски - 4 (2016) [MP3|256 Kbp
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243958.jpgsave_picture_243958.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ VA - Morning Chill & Relax 3 (2023) [MP3|320 Kbps] <Pop, Chillout, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243964.jpgsave_picture_243964.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ VA - Горячий хитовый драйв 7 (2016) [MP3|256 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243977.jpgsave_picture_243977.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ VA - 100% Explode Dance Anthems (2016) [MP3|190-320 Kbps] <Electro-R&B, House, R
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243994.jpgsave_picture_243994.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ VA - External Source (2023) [MP3|320 Kbps] <Psy, Goa-Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244007.jpgsave_picture_244007.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ VA - Осенний динамит. Русский выпуск (2016) [MP3|256 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244097.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244097.jpgsave_picture_244097.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ VA - Горячий хитовый драйв. Выпуск 6 (2016) [MP3|256 Kb
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244117.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244117.jpgsave_picture_244117.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ VA - Dance Project Club Hits (2016) [MP3|169~320 Kbps] <Eurodance, Nu Disco, Com
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244127.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244127.jpgsave_picture_244127.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ VA - Source Of Inspiration Festival Trance (2016) [MP3|320 Kbps] <Trance, Melodi
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244133.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244133.jpgsave_picture_244133.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ VA - Top Baile Make It Work (2016) [MP3|270-320 Kbps] <R&B, Trap, Hip Hop>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244146.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244146.jpgsave_picture_244146.jpg" />
 </div>
 
 

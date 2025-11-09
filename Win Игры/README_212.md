@@ -6,7 +6,7 @@ Victorian Mysteries 2: The Yellow Room (P) [En] 2012
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88539.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88539.jpgsave_picture_88539.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Hidden Mysteries: Return to Titanic (P) [En] 2012
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88631.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88631.jpgsave_picture_88631.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Jewel Legends: Tree of Life (P) [En] 2012
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88693.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88693.jpgsave_picture_88693.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ NBA 2K11 Fans Edition {1.0.1} (RePack) [Ru] 2010 | Naitro
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88883.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88883.jpgsave_picture_88883.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Airport Tower Simulator 2012 [En/Ge] (L) 2012
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88916.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88916.jpgsave_picture_88916.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Stone Quarry Simulator 2012 {1.2} (L) [En] 2012
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88918.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88918.jpgsave_picture_88918.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ MahJong Suite 2012 {v9.0} [En] (P) 2012 | THETA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89084.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89084.jpgsave_picture_89084.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ There & Back (L) [En] 2012
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89104.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89104.jpgsave_picture_89104.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ Death Track: Resurrection / Death Track: Возрождение [Ru] (RePack/1.2
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89142.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89142.jpgsave_picture_89142.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ PuppetShow 4: Return to Joyville Collector's Edition (P) [En] 2012
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89367.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89367.jpgsave_picture_89367.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Cases of Stolen Beauty / Дело об украденной красоте (P) [
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89432.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89432.jpgsave_picture_89432.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Hidden Expedition: Titanic / Секретная экспедиция: Титан
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89471.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89471.jpgsave_picture_89471.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Victorian Mysteries 2: The Yellow Room / Викторианские тайны. 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89473.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89473.jpgsave_picture_89473.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ magnet:?xt=urn:btih:6170290230D3B515B8F5B8D28EE2B357EF5C8EBC
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89485.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89485.jpgsave_picture_89485.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ Pole Position 2012 [Multi5-] (L) 2012 | FairLight
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89747.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89747.jpgsave_picture_89747.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Small Town Terrors: Livingston / Террор в городке Ливингст
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89880.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89880.jpgsave_picture_89880.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ Shiver: Poltergeist. Collector's Edition / Дрожь. Полтергейст. �
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89942.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89942.jpgsave_picture_89942.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Runaway With The Circus (P) [En] 2012
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89975.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89975.jpgsave_picture_89975.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Azkend (P) [En] 2011
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90810.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90810.jpgsave_picture_90810.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Lord Ambermaze (2025) [Ru/Multi] (1.01) License GOG
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91149.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91149.jpgsave_picture_91149.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Heartbeat in Thailand / Сердцебиение в Таиланде (2025) [Ru/
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91167.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91167.jpgsave_picture_91167.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ Puzzle Quest: Immortal Edition (2025) [Ru/Multi] (1.0.0.3388) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91184.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91184.jpgsave_picture_91184.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Wobbly Life (2020) [Ru/Multi] (1.0.0.2-17415dd4e2) Repack FitGirl [Game & Soundt
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91185.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91185.jpgsave_picture_91185.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Strange Antiquities (2025) [Ru/Multi] (1.0.29) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91186.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91186.jpgsave_picture_91186.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Alien: Rogue Incursion Evolved Edition (2025) [Ru/Multi] (1.0.2/dlc) Repack Othe
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91201.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91201.jpgsave_picture_91201.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Alien: Rogue Incursion Evolved Edition (2025) [Ru/Multi] (1.0.2/dlc) Repack Dece
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91202.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91202.jpgsave_picture_91202.jpg" />
 </div>
 
 

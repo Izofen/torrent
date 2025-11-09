@@ -6,7 +6,7 @@ Knellhound - Knellhound (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240725.jpgsave_picture_240725.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Desolatae - For Thy Decease (2016) [FLAC|Lossless|image + .cue] <Black, Death, D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240729.jpgsave_picture_240729.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Taake - Over Bjoergvin Graater Himmerik (2002) [FLAC|Lossless|image + .cue] <Bla
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240731.jpgsave_picture_240731.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Reflections - The Fantasy Effect (2022) Redux [FLAC|Lossless|WEB-DL|tracks] <Alt
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240732.jpgsave_picture_240732.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Midjungards - From Scandza (2023) [FLAC|Lossless|WEB-DL|tracks] <Folk-Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240733.jpgsave_picture_240733.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Godsmack - Lighting Up The Sky (2023) [FLAC|Lossless|tracks + .cue] <Hard Rock, 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240737.jpgsave_picture_240737.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ And Hell Followed With - Quietus (2022) [FLAC|Lossless|WEB-DL|tracks] <Deathcore
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240739.jpgsave_picture_240739.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Pain - Nothing Remains The Same (2002) [FLAC|Lossless|image + .cue] <Industrial 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240740.jpgsave_picture_240740.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Holy Moses - Invisible Queen (2023) [MP3|320 kbps] <Speed, Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240742.jpgsave_picture_240742.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Helms Alee - Keep This Be the Way (2022) [FLAC|Lossless|WEB-DL|tracks] <Sludge M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240747.jpgsave_picture_240747.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ i-Ten - Taking a Cold Look (1983) [MP3|320 Kbps] <AOR, Melodic Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240751.jpgsave_picture_240751.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ MNRVA - Hollow (2022) [MP3|320 kbps] <Doom, Stoner, Sludge Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240758.jpgsave_picture_240758.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Nektar - ...Sounds Like This (1973) 2CD, Remastered, 2022, Esoteric Recordings [
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240762.jpgsave_picture_240762.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Infestum - Ta Natas (2007) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240764.jpgsave_picture_240764.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Rockets - Another Future (1992) Reissue 2008, Recording Arts AG [FLAC|Lossless|W
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240766.jpgsave_picture_240766.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Beyond The Mist - Symbiosis (2022) [FLAC|Lossless|tracks] <Melodic Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240770.jpgsave_picture_240770.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Oryad - Sacred & Profane (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240771.jpgsave_picture_240771.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ magnet:?xt=urn:btih:5934F86BA0D1F3223AF18F9B6129018C82AF98AB
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240778.jpgsave_picture_240778.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Holy Moses - Invisible Queen (2023) 2xCD [FLAC|Lossless|WEB-DL|tracks] <Thrash M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240782.jpgsave_picture_240782.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Fall Out Boy - So Much (For) Stardust (2023) [FLAC|Lossless|tracks + .cue] <Pop 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240788.jpgsave_picture_240788.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ VA - Rock Hits 2023 [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240791.jpgsave_picture_240791.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ bar italia - Tracey Denim (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Alternativ
 >>Alternative, Punk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240795.jpgsave_picture_240795.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Blanc Faces - Blanc Faces (2005) [FLAC|Lossless|image + .cue] <AOR, Melodic Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240799.jpgsave_picture_240799.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Mick White - Something's Got To Give (2022) [FLAC|Lossless|WEB-DL|tracks] <Melod
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240801.jpgsave_picture_240801.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Antagonist - Spawn Of Evil (2022) [MP3|320 Kbps] <Death Metal>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240809.jpgsave_picture_240809.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ magnet:?xt=urn:btih:575D5686BFE14A3D95DC7DFD2402C1F982A4D166
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240817.jpgsave_picture_240817.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Michael Rother - Solo II (2020) 7 × CD, Box Set, Compilation [FLAC|Lossless|tra
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179255.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179255.jpgsave_picture_179255.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ ACDSee Photo Studio Ultimate 2024 17.0.1.3578 Full / Lite RePack by KpoJIuK [Ru/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179257.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179257.jpgsave_picture_179257.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:D7E710259726E30BB045CF39C4E76EFA7A633ADC
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179261.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179261.jpgsave_picture_179261.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:0140A8A1E79FB9A71CFED6BEA1FFC5EE6A83DEE2
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179265.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179265.jpgsave_picture_179265.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:C6FBF1F892818D3BC69D560F6BB188C99886478C
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179268.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179268.jpgsave_picture_179268.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:8F769E032F99EDE9C68A1DD34D77EF39CADB08B0
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179270.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179270.jpgsave_picture_179270.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:AC7399CE6AF1E3259176B745342DB6A95C7D8562
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_179274.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_179274.jpgsave_picture_179274.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:412C900ABE806AA2A5EF31C8864D4726EF1D683D
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179276.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179276.jpgsave_picture_179276.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Dav Dralleon - 2 Albums (2021-2022) [MP3|320 Kbps] <Darksynth, Industrial Metal,
 >>Industrial, EBM, Dark Electro
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179279.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179279.jpgsave_picture_179279.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:4B5DF4D052E1314DD33E008734E663C95F0B6F7F
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179281.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179281.jpgsave_picture_179281.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ magnet:?xt=urn:btih:E6EAF82067C116948764FB3F5FDAB4DE79BFE621
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179283.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179283.jpgsave_picture_179283.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ HDCleaner 2.039 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179284.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179284.jpgsave_picture_179284.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Catch 23 - Blues Hotel (2022) [mp3|320 kbps|tracks] <Blues, Classic Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179286.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179286.jpgsave_picture_179286.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:3295B4527D28ED7C459F4FCD4C5AAE58E3A46844
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179290.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179290.jpgsave_picture_179290.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ magnet:?xt=urn:btih:DEF1E334DCE0BD848DEF0E445F46595DFE39BF63
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179291.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179291.jpgsave_picture_179291.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ magnet:?xt=urn:btih:B01BA542A29A90D4D9D5D710A91F0AE7EA8E5978
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179294.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179294.jpgsave_picture_179294.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ magnet:?xt=urn:btih:D86C4E04262799ADB3D9A273D344DED3821B463F
 >>Футбол. Чемпионаты мира
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179295.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179295.jpgsave_picture_179295.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ magnet:?xt=urn:btih:B3E51B739D117A551D92092E20504C732480C2C2
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179298.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179298.jpgsave_picture_179298.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ magnet:?xt=urn:btih:67C4EB4E3342F41A9172563A593BF869F3640CFC
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179299.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179299.jpgsave_picture_179299.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ magnet:?xt=urn:btih:C51CEDF5B4E011D74C6D371B1EC59ED51410376B
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179300.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179300.jpgsave_picture_179300.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ magnet:?xt=urn:btih:0A95E0D2DB36ECC50FA399972BB2ADE06DE4F57E
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179303.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179303.jpgsave_picture_179303.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ StartAllBack 3.6.13 StartIsBack++ 2.9.19 (2.9.1 for 1607) StartIsBack+ 1.7.6 Sta
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179305.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179305.jpgsave_picture_179305.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ magnet:?xt=urn:btih:2A6BCFFA15CA76DB0F06785A688CB45890850199
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179306.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179306.jpgsave_picture_179306.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ The Bat! Professional 10.5.0.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_179309.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_179309.jpgsave_picture_179309.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ VA - House Radio 2022 - The Ultimate Collection #7 (2022) CD, Compilation [MP3|3
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179311.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179311.jpgsave_picture_179311.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ magnet:?xt=urn:btih:6CC6785D119FA1A7081F81B2CD8811C4BE690FFD
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179312.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179312.jpgsave_picture_179312.jpg" />
 </div>
 
 

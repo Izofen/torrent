@@ -6,7 +6,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7234.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7234.jpgsave_picture_7234.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:E837D19586F5BA5DD8458608773475B910C7FED8
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7235.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7235.jpgsave_picture_7235.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:4F721F3E76E8B08918BB85A9DF7E058561942CBC
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7236.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7236.jpgsave_picture_7236.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:8B3989E8418A2027CD5628705F8F1730071A63FF
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7237.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7237.jpgsave_picture_7237.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ magnet:?xt=urn:btih:7CDAAD9568B29CA639332062B2E639747AEAD67F
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7238.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7238.jpgsave_picture_7238.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ Blues Cousins - Call Me (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues, Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7239.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7239.jpgsave_picture_7239.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ magnet:?xt=urn:btih:083CF49AD4256464531C9E887BBCCB4A1ED8A672
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7240.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7240.jpgsave_picture_7240.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ VA - Summer Collection, Vol. 2 (2025) [MP3|320 Kbps] <Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7241.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7241.jpgsave_picture_7241.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ magnet:?xt=urn:btih:2A8BD076A19B3C032C36645C4936A4A4FCDFDD4D
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7242.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7242.jpgsave_picture_7242.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ magnet:?xt=urn:btih:1C1A2694DA1C716D7C7866A4F5FC6690F0242474
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7243.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7243.jpgsave_picture_7243.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ magnet:?xt=urn:btih:6B3C730C4C56912D17260FC4F894B6400CC714CF
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7244.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7244.jpgsave_picture_7244.jpg" />
 </div>
 
 
@@ -289,7 +289,7 @@ magnet:?xt=urn:btih:10114758FD02B384EA6AD94AD1E540A9EC6A6964
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7245.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7245.jpgsave_picture_7245.jpg" />
 </div>
 
 
@@ -316,7 +316,7 @@ magnet:?xt=urn:btih:17717C530445BEFCB744A20ED6AA452FF33E4B14
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7246.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7246.jpgsave_picture_7246.jpg" />
 </div>
 
 
@@ -340,7 +340,7 @@ magnet:?xt=urn:btih:DA6516A836632A8D8C1B77D1A28785F51863BD08
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7247.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7247.jpgsave_picture_7247.jpg" />
 </div>
 
 
@@ -364,7 +364,7 @@ magnet:?xt=urn:btih:B8F8469D0F73A68FAD71028DA52B9AD85A0153EF
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7248.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7248.jpgsave_picture_7248.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ magnet:?xt=urn:btih:A167BB5E6209B768D586C2581D2B6D9411D91BEF
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7249.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7249.jpgsave_picture_7249.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ VA - Summer Collection, Vol. 1 (2025) [MP3|320 Kbps] <Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7250.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7250.jpgsave_picture_7250.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ magnet:?xt=urn:btih:6693B71C92A81C4D251AA958B4CDFC577F9980B3
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7251.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7251.jpgsave_picture_7251.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ VA - Compilation Part 184 Electronic, Vocal (2025) [MP3|320 Kbps] <Electronic, V
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7252.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7252.jpgsave_picture_7252.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ magnet:?xt=urn:btih:80A0FD1BAB1A90BE7BA4DCE6ACEC56217EFF60B3
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7253.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7253.jpgsave_picture_7253.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ VA - National Pop Dance Music Vol.117 (2025) [MP3|320 Kbps] <Pop, Folk, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7254.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7254.jpgsave_picture_7254.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ Strava: бег, велоезда, хайкинг v424.13 Mod by PieMods [Ru/Mult
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7255.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7255.jpgsave_picture_7255.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ magnet:?xt=urn:btih:23EB0F0A0C77C7A6F76920CBD2D08CEE670A095C
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7256.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7256.jpgsave_picture_7256.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ magnet:?xt=urn:btih:5BE6B72326B30842D9429AADBE56A659BE354DA0
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7257.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7257.jpgsave_picture_7257.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ magnet:?xt=urn:btih:A3FFCE4CF0838BDCFB981C743275FEEBB76257F6
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7258.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7258.jpgsave_picture_7258.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ magnet:?xt=urn:btih:BD3C77CB5E5055A9BAF855B1FFE8FD24CD361B52
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7259.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7259.jpgsave_picture_7259.jpg" />
 </div>
 
 

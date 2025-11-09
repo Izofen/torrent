@@ -6,7 +6,7 @@ AOR - The Colors of L.A (2012) [MP3|320 кб/с]<Melodic Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97115.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97115.jpgsave_picture_97115.jpg" />
 </div>
 
 
@@ -39,7 +39,7 @@ magnet:?xt=urn:btih:E250E32021F96BE088E257450B7D5C94CD6B4AF7
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97117.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97117.jpgsave_picture_97117.jpg" />
 </div>
 
 
@@ -67,7 +67,7 @@ magnet:?xt=urn:btih:F57A18B11841BF0B9365B94B5D9583F7E48E9713
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97120.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97120.jpgsave_picture_97120.jpg" />
 </div>
 
 
@@ -91,7 +91,7 @@ Simone Kopmajer - Nothing's Gonna Change (2011) [MP3|~225 кб/с (V1)]<Vocal Ja
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97121.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97121.jpgsave_picture_97121.jpg" />
 </div>
 
 
@@ -124,7 +124,7 @@ VA - Весенний хит-парад по-русски (2012) [MP3|256 кб/�
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97122.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97122.jpgsave_picture_97122.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ magnet:?xt=urn:btih:2300BF4AD758B5F8D714E20077855B9B7FCDB7E9
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97123.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97123.jpgsave_picture_97123.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ magnet:?xt=urn:btih:E1930909EF22AC5B3E250DAD38AE1B26A5DAFB91
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97125.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97125.jpgsave_picture_97125.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ magnet:?xt=urn:btih:6362ED63C34E65041CB4F777AC4DAE679279827D
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97131.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97131.jpgsave_picture_97131.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ VA - Rock Romantic (Russian) (2012) [MP3|192-320 кб/с]<Rock, Hard Rock, Blues
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97132.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97132.jpgsave_picture_97132.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ magnet:?xt=urn:btih:E63E2956CFC341225568D1D34495322DDBECCE1E
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97134.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97134.jpgsave_picture_97134.jpg" />
 </div>
 
 
@@ -291,7 +291,7 @@ magnet:?xt=urn:btih:F3C9DE42759B4A856DF56222F077157FC274BD13
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97135.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97135.jpgsave_picture_97135.jpg" />
 </div>
 
 
@@ -315,7 +315,7 @@ magnet:?xt=urn:btih:00C564A4A2566DC648E9A4B78435319285E15035
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97136.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97136.jpgsave_picture_97136.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ VA - TOP 30 Клубные РУССКИЕ Новинки (17.03.2012) [MP3|128-3
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97138.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97138.jpgsave_picture_97138.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ VA - Русская Супер 200-ка (2012) [MP3|128 kbps]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97139.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97139.jpgsave_picture_97139.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ magnet:?xt=urn:btih:9FBC9F53D30E37D2245A7EE6734CBCD767E37164
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97140.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97140.jpgsave_picture_97140.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ magnet:?xt=urn:btih:87EE6E05322C72E0B5CA21F313C9CACD9BF434FC
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97142.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97142.jpgsave_picture_97142.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ magnet:?xt=urn:btih:4C2A561368674A4F05E6E9477DB1E0BEEF8722D9
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97144.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97144.jpgsave_picture_97144.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ Ruthie Foster - Let It Burn (2012) [MP3|~245 кб/с (V0)]<Blues, Gospel, Soul>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97145.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97145.jpgsave_picture_97145.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ magnet:?xt=urn:btih:9BCFDBE51B42D3EDC608C159D43261AD78E1ADFB
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97147.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97147.jpgsave_picture_97147.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ magnet:?xt=urn:btih:9701E5A8CFCE8A6BBD404FB070BC90D5ECEC0594
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97148.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97148.jpgsave_picture_97148.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ VA - Vocal Trance Collection Vol.84 (2012) [MP3|320 кб/с]<Trance, Vocal Tranc
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97149.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97149.jpgsave_picture_97149.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ magnet:?xt=urn:btih:7A9AFFF8142DE9A7574FC3754A3694AA208CA93C
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97154.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97154.jpgsave_picture_97154.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ Janiva Magness - Stronger For It (2012) [MP3|320 кб/с]<Blues, Vocal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97155.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97155.jpgsave_picture_97155.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ magnet:?xt=urn:btih:9D70C801C88FA6BC1E78AA8C4FBCC77DAB4A763E
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97157.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97157.jpgsave_picture_97157.jpg" />
 </div>
 
 
@@ -682,7 +682,7 @@ magnet:?xt=urn:btih:CB6D63ABF8D2C1B87FF8FB0FE8C9ADCF22DF161D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97163.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97163.jpgsave_picture_97163.jpg" />
 </div>
 
 
@@ -706,7 +706,7 @@ magnet:?xt=urn:btih:2BCE16709AA9BED3702F371C34414DF5CE99FD5A
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97165.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97165.jpgsave_picture_97165.jpg" />
 </div>
 
 

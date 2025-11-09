@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245295.jpgsave_picture_245295.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:AC1E918BB461ECB235CD44BABB0F04F2D08BD9E4
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245296.jpgsave_picture_245296.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ ImageRanger Pro Edition 1.9.3.1858 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245297.jpgsave_picture_245297.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Strava: бег и велоспорт 264.11 Lite-Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245298.jpgsave_picture_245298.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:88395113C363B0F8FB7283EDD528DED3210DF439
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245299.jpgsave_picture_245299.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Telegram Desktop 4.7.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245300.jpgsave_picture_245300.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:F6C3C9CE4A1B3374F7C6A3B145EF2B0E82978497
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245301.jpgsave_picture_245301.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:42C0259FCA5C5E30FA515D235A6AD7ED221144E6
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245302.jpgsave_picture_245302.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:15AD17615436EA5247CA4309057DC28AA75AC393
 >>2D графика
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245303.jpgsave_picture_245303.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ The Bar Stool Preachers - Above the Static (2023) [FLAC|Lossless|WEB-DL|tracks] 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245304.jpgsave_picture_245304.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ MailTags 5.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245305.jpgsave_picture_245305.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ VA - Music News vol.253 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245306.jpgsave_picture_245306.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ magnet:?xt=urn:btih:25B0B0F41D1A52CCE5FC2283357007BFF685B12E
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245307.jpgsave_picture_245307.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Task Office 8.9 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245308.jpgsave_picture_245308.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ magnet:?xt=urn:btih:151FC931A82E6884D3DC62CCF53C41AF3FF2F10D
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245309.jpgsave_picture_245309.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ magnet:?xt=urn:btih:BB74D3F7CA2599F245804CD9600E43E3BB8A8021
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245310.jpgsave_picture_245310.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ magnet:?xt=urn:btih:CD24F35C0A93BC7FF4FFAD43FB5F3C975F2D263C
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245311.jpgsave_picture_245311.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ magnet:?xt=urn:btih:FC77EF12B73ACBEB43241C4A58F683315D992B99
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245312.jpgsave_picture_245312.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Google Earth Pro 7.3.4.8573 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245313.jpgsave_picture_245313.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ FoneLab Video Converter Ultimate 9.2.30 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245314.jpgsave_picture_245314.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ magnet:?xt=urn:btih:8F090DC5BCD0A333D6FA9CEA4144C56231EEDA2B
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245315.jpgsave_picture_245315.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ magnet:?xt=urn:btih:EF049D6CC7C97AD5CCC81F603A02C091E2E87FAE
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245316.jpgsave_picture_245316.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ magnet:?xt=urn:btih:7DAF77A6FB7B88587D7624F11F8130D9B1A7C4EA
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245317.jpgsave_picture_245317.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ magnet:?xt=urn:btih:BD8E829EE1FC5C7F58C12DBA4737D09B04790E20
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245318.jpgsave_picture_245318.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Perfectly Clear WorkBench 4.3.0.2408 Portable by 7997 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245319.jpgsave_picture_245319.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ VA - Chillout Adventures, Pt. 1 (2021) [AAC|~325 Kbps] <Ambient, Chill Out, Down
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245320.jpgsave_picture_245320.jpg" />
 </div>
 
 

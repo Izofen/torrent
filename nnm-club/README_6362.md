@@ -6,7 +6,7 @@
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202046.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202046.jpgsave_picture_202046.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ VN - Video Editor / VN - Видеоредактор v2.9.5 Mod by MustHave [Ru/M
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202049.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202049.jpgsave_picture_202049.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Miles Kane - Sunlight In The Shadows (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] 
 >>Alternative, Punk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202052.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202052.jpgsave_picture_202052.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:A66AD5062AB35F7BE50CCA9875F3F75FECEFF093
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202054.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202054.jpgsave_picture_202054.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ Elton John - Captain Fantastic And The Brown Dirt Cowboy (1975) 50th Anniversary
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202055.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202055.jpgsave_picture_202055.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ magnet:?xt=urn:btih:508CE64078D09A2B47603A02B104599575E691FF
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202058.jpgsave_picture_202058.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ Animal Shelter (2022) [Ru/Multi] (1.2.11-33.192/dlc) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202059.jpgsave_picture_202059.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:27026C198EE3DE25C063D4219CDBD6DBC37B62D2
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202060.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202060.jpgsave_picture_202060.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ Human Fortress - Stronghold (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Epic P
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202061.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202061.jpgsave_picture_202061.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ magnet:?xt=urn:btih:0BCEC27C801A837999FD910A01CDEFF1A0D94236
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202062.jpgsave_picture_202062.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ magnet:?xt=urn:btih:E5EE00E7A49AA93A4A5C1CEFF64DAFACA867F6D6
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202063.jpgsave_picture_202063.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ Ektomorf - Heretic (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Groove Metal, T
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202064.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202064.jpgsave_picture_202064.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ magnet:?xt=urn:btih:DF9DBC221E6E7453D17A0B3F8B3220212AF79C7D
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202065.jpgsave_picture_202065.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ magnet:?xt=urn:btih:CF993D4F2E54F92B3D5C8FB37E4C230298B82EF0
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202066.jpgsave_picture_202066.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ magnet:?xt=urn:btih:40F97096E4CFEE2E0FA1687348EA85752FBC23EC
 >>Сериалы DC Comics
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202067.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202067.jpgsave_picture_202067.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ RC Cars (2002) [Ru/Multi] (1.0.138) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202068.jpgsave_picture_202068.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ The KMPlayer 4.2.3.3 repack by cuta (build 1) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202069.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202069.jpgsave_picture_202069.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ magnet:?xt=urn:btih:A089FB348808FAFFA191FE856B39D3CE26234666
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202070.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202070.jpgsave_picture_202070.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Punch Club (2016) [Ru/Multi] (1.31) License GOG [Deluxe Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202071.jpgsave_picture_202071.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ magnet:?xt=urn:btih:0D6457675D65A0008879B77E40A78439DC2B14D2
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202072.jpgsave_picture_202072.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ magnet:?xt=urn:btih:903ADC1BC40575714B8AA088F2BAB2A4C83702CF
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202073.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202073.jpgsave_picture_202073.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ magnet:?xt=urn:btih:13378E3AECD983669BF359E5A8FBBD73E7ECD930
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202074.jpgsave_picture_202074.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ magnet:?xt=urn:btih:7CBABF4D07171F1FDB57E69D8C53C4005B02DD37
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202075.jpgsave_picture_202075.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Resistor 2.1.1.6 [Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202076.jpgsave_picture_202076.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ magnet:?xt=urn:btih:CF7DA71A88E00EAA8E028BE4813CD092A52ED666
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202077.jpgsave_picture_202077.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ Internet Download Manager 6.41 Build 7 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202078.jpgsave_picture_202078.jpg" />
 </div>
 
 

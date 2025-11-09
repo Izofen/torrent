@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63599.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63599.jpgsave_picture_63599.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:FA313F5190B5BDAA5D4D5EF0A9E954C3D922770E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63600.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63600.jpgsave_picture_63600.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ CyberLink PowerDirector 2024 Ultimate 22.2.2705.0 (x64) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63601.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63601.jpgsave_picture_63601.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:D72680C6000AEC83ADB64820D6084BB9F0547FB2
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63602.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63602.jpgsave_picture_63602.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:720E64592C98443C23778C63D7EE940755AFA823
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63603.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63603.jpgsave_picture_63603.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:68FE0FCAAF30F5F5D751EE913667011902459C0D
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63604.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63604.jpgsave_picture_63604.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:3DE97CCA621F712B0102C6D8BEC1440934C1AE26
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63605.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63605.jpgsave_picture_63605.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:E421FADF564D41E369DF759204CCE7ECFFB16EDE
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63606.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63606.jpgsave_picture_63606.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:8B514DCA24502858F59BAFF9FA8964C9AA1E046C
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63607.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63607.jpgsave_picture_63607.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Animal Planet. Собаковедение: Новые истории / DOGS 101 
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63608.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63608.jpgsave_picture_63608.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Capture One 23 Enterprise 16.3.7.10 [En/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63609.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63609.jpgsave_picture_63609.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ magnet:?xt=urn:btih:4637F73B8B1654502C9EAF58AD214A971FFB7FDE
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63610.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63610.jpgsave_picture_63610.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Lighting calculations / Расчеты освещения v6.0.0 Mod by Balatan 
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63611.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63611.jpgsave_picture_63611.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ magnet:?xt=urn:btih:BB5C2492321FDEF13F9E9B6FA689EF573D28A994
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63612.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63612.jpgsave_picture_63612.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ magnet:?xt=urn:btih:A538B94A5ACAA4F30E1A9D5839BACA6F0AA661E5
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63613.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63613.jpgsave_picture_63613.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Animal Planet: Дом для рептилий. Дино-террариум / Sca
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63614.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63614.jpgsave_picture_63614.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Foxit Reader 2024.1.0.23997 Portable by PortableApps [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63615.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63615.jpgsave_picture_63615.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ magnet:?xt=urn:btih:D256D40E12BE7244B9C78C204CDBEA2A01548E2F
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63616.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63616.jpgsave_picture_63616.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ magnet:?xt=urn:btih:009991205F565CAD9E5FF3466AA15751E4CEEADA
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63617.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63617.jpgsave_picture_63617.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Capture One 23 Pro 16.3.7.10 [En/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63618.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63618.jpgsave_picture_63618.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ magnet:?xt=urn:btih:4DBEE2DF1BE8F79DBA09DC0502F5D2BF4AAECBA2
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63619.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63619.jpgsave_picture_63619.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:146CC4717AB08D932CD8B1883B7182661580844A
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63620.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63620.jpgsave_picture_63620.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Animal Planet. Природа Ближнего Востока / Wildest Middle E
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63621.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63621.jpgsave_picture_63621.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ magnet:?xt=urn:btih:FD876F564DD4185464A3D736476E5FE5479D0708
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63622.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63622.jpgsave_picture_63622.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Animal Planet: Дом для рептилий. Агамы Дикого Запа�
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63623.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63623.jpgsave_picture_63623.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ magnet:?xt=urn:btih:DA182805136EF494AF1435A853934855843E27DF
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63624.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63624.jpgsave_picture_63624.jpg" />
 </div>
 
 

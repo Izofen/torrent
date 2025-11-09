@@ -6,7 +6,7 @@ VA - 100 Greatest Workout Songs (2019) [MP3|320 Kbps] <Pop, Rock, EDM>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144863.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144863.jpgsave_picture_144863.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:C2C9D43C6F73D8499340A4CD93A60F08CD61A568
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144864.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144864.jpgsave_picture_144864.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ magnet:?xt=urn:btih:43930EF3AFEDFAFA775CB2B8D5CD7B8E6734FE35
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144865.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144865.jpgsave_picture_144865.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ Microsoft Windows 11 [10.0.22621.2715], Version 22H2 (Updated November 2023) - �
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144866.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144866.jpgsave_picture_144866.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ magnet:?xt=urn:btih:8124102FC23B958CD4AE0D874201904D354107DF
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144867.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144867.jpgsave_picture_144867.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ magnet:?xt=urn:btih:8EA86BF3DA1C5F10F549565906CF1FFC8DD30205
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144868.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144868.jpgsave_picture_144868.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:81E23DDC236D791B6C468D97642E8AB1ED362BD4
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144869.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144869.jpgsave_picture_144869.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ Speedyfox 2.0.14 Build 95 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144870.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144870.jpgsave_picture_144870.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ Bob-a-Rela - Bob-a-Rela (1979) LP [MP3|320 Kbps] <Electronic, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144871.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144871.jpgsave_picture_144871.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ PDF-XChange PRO 10.1.3.383 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144872.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144872.jpgsave_picture_144872.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ magnet:?xt=urn:btih:DAA95DB99DC815EA9881709B838216EBFFFD0126
 >>Мобильное Видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144873.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144873.jpgsave_picture_144873.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ Vikings - Wolves of Midgard (2017) [Ru/Multi] (2.04) License GOG
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144875.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144875.jpgsave_picture_144875.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ Geekbrains | Frontend-разработчик. Часть 2 из 5 (2020) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144877.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144877.jpgsave_picture_144877.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:732D44AF06892F482340283B3901BE12295BA5B9
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144879.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144879.jpgsave_picture_144879.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ The Roots - Undun (2011) [FLAC|Lossless|tracks + .cue] <Hip Hop, Conscious>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144880.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144880.jpgsave_picture_144880.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ magnet:?xt=urn:btih:0D8682AE5C4E8067B30310E2DE8A848C254714D5
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144881.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144881.jpgsave_picture_144881.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Bulavina School, Дарья Булавина | Основы позировани
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144882.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144882.jpgsave_picture_144882.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ The Forest (2018) [Ru/Multi] (1.10b) SteamRip R.G. Origins
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144883.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144883.jpgsave_picture_144883.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ magnet:?xt=urn:btih:F153E54AFD0256FB26902223091C816374091C3F
 >>Интернет-творчество
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144884.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144884.jpgsave_picture_144884.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ VA - German Top 100 Single Charts 23.12. (2016) [MP3|320 Kbps] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144885.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144885.jpgsave_picture_144885.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ magnet:?xt=urn:btih:B0BADDA6C87E98F7D4D36481169DF91E3CAD6A30
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144886.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144886.jpgsave_picture_144886.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ magnet:?xt=urn:btih:502D07EF58F46BB014C6FF1680F2194E0DB27B6D
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144887.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144887.jpgsave_picture_144887.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ magnet:?xt=urn:btih:BD7DC8EB570AFD628781E4F44773E12740DF62D3
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144889.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144889.jpgsave_picture_144889.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Udemy, Kazi Ariyan и др. | Laravel 8. PHP Фреймворк от А до Я 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144890.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144890.jpgsave_picture_144890.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ VA - Золотые застольные хиты от радио Шансон �
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144891.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144891.jpgsave_picture_144891.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ magnet:?xt=urn:btih:8CA0164ACD02268E06EE62D6DF7F5DFAA008F9BD
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144892.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144892.jpgsave_picture_144892.jpg" />
 </div>
 
 

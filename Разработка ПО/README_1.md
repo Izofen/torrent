@@ -6,7 +6,7 @@ Java SE Runtime Environment 8.0.4010.10 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119389.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119389.jpgsave_picture_119389.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Java SE Development Kit 11.0.22 LTS [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122192.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122192.jpgsave_picture_122192.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:D7EA2351DE0E38C278820F8398CB7A8BDBB9F205
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127311.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127311.jpgsave_picture_127311.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ JetBrains PyCharm Professional 2023.3.1 Repack by Sitego [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127501.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127501.jpgsave_picture_127501.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ Embarcadero RAD Studio 12 Athens 29.0.50491.5718 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132207.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132207.jpgsave_picture_132207.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Microsoft  Visual C++ Runtimes AIO v0.102.0 x86-x64 Repack by abbodi1406 [Multi/
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136733.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136733.jpgsave_picture_136733.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Open Server Panel 6.4.5 [Multi/Ru]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136880.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136880.jpgsave_picture_136880.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ VB Decompiler Pro 9.2 Retail [MULTi / Русский]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143673.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143673.jpgsave_picture_143673.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ SDL Passolo 2015 15.1.418.0 Collaboration Edition Portable by Evgenii724 [Multi/
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148101.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148101.jpgsave_picture_148101.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ Microsoft Visual C++ 2026 Redistributable 14.50.35710.0 [Ru]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150677.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150677.jpgsave_picture_150677.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ HeavenTools Resource Tuner 2.04 [Multi/Ru]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157999.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157999.jpgsave_picture_157999.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ Open Server Panel 6.4.6 [Multi/Ru]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173411.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173411.jpgsave_picture_173411.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ Microsoft Visual Studio 2022 Enterprise 17.14.17 (Offline Cache) [Ru/En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185811.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185811.jpgsave_picture_185811.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Microsoft Visual Studio 2022 Enterprise 17.14.18 (Offline Cache) [Ru/En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188089.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188089.jpgsave_picture_188089.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Microsoft Visual Studio 2026 Enterprise Insiders 18.0.0 [11116.177] (Offline Cac
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188094.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188094.jpgsave_picture_188094.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Advanced Installer 21.0.1 RePack (& Portable) by xetrin [Ru/En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190359.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190359.jpgsave_picture_190359.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Java SE Development Kit 20.0.2 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208518.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208518.jpgsave_picture_208518.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ NeoAxis Engine 2023.1.2 [Multi/Ru]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209059.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209059.jpgsave_picture_209059.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ SynWrite 6.41.2780 + Portable [Multi/Ru]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209104.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209104.jpgsave_picture_209104.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ PSPad 5.0.7 Build 775 + Portable [Multi/Ru]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209180.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209180.jpgsave_picture_209180.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Microsoft Visual Studio 2022 Enterprise 17.14.19 (Offline Cache) [Ru/En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212129.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212129.jpgsave_picture_212129.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ JetBrains RustRover 2025.2.4 (x64-arm64) Repack by IDE`a [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212481.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212481.jpgsave_picture_212481.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ JetBrains CLion 2025.2.4 Repack by IDE`a [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212483.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212483.jpgsave_picture_212483.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ JetBrains DataSpell 2025.2.2 (x64-arm64) Repack by IDE`a [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212487.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212487.jpgsave_picture_212487.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ Jetbrains WebStorm 2025.2.4 (x64-arm64) Repack by IDE`a [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212489.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212489.jpgsave_picture_212489.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ JetBrains RubyMine 2025.2.4 (x64-arm64) Repack by IDE`a [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212499.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212499.jpgsave_picture_212499.jpg" />
 </div>
 
 

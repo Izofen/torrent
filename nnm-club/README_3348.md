@@ -6,7 +6,7 @@ PhotoRoom v5.0.7 b1461 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107409.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107409.jpgsave_picture_107409.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ VA - DJ Hits Vol. 111 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Euro
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107410.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107410.jpgsave_picture_107410.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Betty Booom - Booombastic (2024) [FLAC|Lossless|WEB-DL|tracks] <Electro Swing, J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107411.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107411.jpgsave_picture_107411.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:3ABDC5416A31B9CB861796F7EF9EF526C199E937
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107412.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107412.jpgsave_picture_107412.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ magnet:?xt=urn:btih:4E9BFB00B6A44BEE7F304480646A9540B5A2AAE1
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107413.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107413.jpgsave_picture_107413.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ Ian Highhill - Gallows (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107414.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107414.jpgsave_picture_107414.jpg" />
 </div>
 
 
@@ -161,7 +161,7 @@ Mondo Generator - Cocaine Rodeo (2000) 20th Anniversary Repress, 2020, Heavy Psy
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107415.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107415.jpgsave_picture_107415.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Rex Stewart - 1948 - 1949 (2001) Classics [FLAC|Lossless|tracks + .cue] <Swing>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107416.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107416.jpgsave_picture_107416.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ magnet:?xt=urn:btih:A311031BE93FC9BC8EE653881301271363112742
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107417.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107417.jpgsave_picture_107417.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ Lola Young - This Wasn't Meant For You Anyway (2024) [FLAC 24/44.1|Lossless|WEB-
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107418.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107418.jpgsave_picture_107418.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ magnet:?xt=urn:btih:499ED5B06A3A74563F28D75512C4222BAC086969
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107419.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107419.jpgsave_picture_107419.jpg" />
 </div>
 
 
@@ -291,7 +291,7 @@ magnet:?xt=urn:btih:19A65DBC06A47E71240860D8C0D8FC9D602F478D
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107420.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107420.jpgsave_picture_107420.jpg" />
 </div>
 
 
@@ -315,7 +315,7 @@ magnet:?xt=urn:btih:B8F64069C5553EF6DA740DEE1D70453EFBE77C13
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107421.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107421.jpgsave_picture_107421.jpg" />
 </div>
 
 
@@ -340,7 +340,7 @@ Shotgun Mistress - Kings Of The Revolution (2024) [FLAC|Lossless|WEB-DL|tracks] 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107422.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107422.jpgsave_picture_107422.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ Aggressive By Nature - Rebirth (2024) [MP3|320 Kbps] <Heavy Metal, Thrash Metal,
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107423.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107423.jpgsave_picture_107423.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ Linda Thompson - Proxy Music (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues R
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107424.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107424.jpgsave_picture_107424.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ Greenleaf - The Head & The Habit (2024) [FLAC|Lossless|WEB-DL|tracks] <Stoner, H
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107425.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107425.jpgsave_picture_107425.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Red Hot Org, Kronos Quartet - 2024 Red Hot Org (2024) [FLAC 24/96|Lossless|WEB-D
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107426.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107426.jpgsave_picture_107426.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Push - 4 the Love of the Game (2002) Remaster, 2024, Push [FLAC|Lossless|WEB-DL|
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107427.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107427.jpgsave_picture_107427.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Izz - Collapse the Wave (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107428.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107428.jpgsave_picture_107428.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Ozric Tentacles - Erpland (1990) Reissue, 2018,	Madfish [FLAC|Lossless|image + .
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107429.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107429.jpgsave_picture_107429.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Marcella Detroit - Jewel (1994) Remastered and Expanded, 2024, Because Ltd [FLAC
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107430.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107430.jpgsave_picture_107430.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Sultan - Check & Mate (1990) Deluxe Edition, 2024, Divebomb Records [FLAC|Lossle
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107431.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107431.jpgsave_picture_107431.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Louis Prima - 1937 - 1939 (2000) Classics [FLAC|Lossless|tracks + .cue] <Swing>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107432.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107432.jpgsave_picture_107432.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ magnet:?xt=urn:btih:6D11C50DAD5DE633201F56222E49E8120A80BF79
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107433.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107433.jpgsave_picture_107433.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ magnet:?xt=urn:btih:6CAC09B595E7486CF01CCE42C77FDE68761651D7
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107434.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107434.jpgsave_picture_107434.jpg" />
 </div>
 
 

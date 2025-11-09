@@ -6,7 +6,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11052.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11052.jpgsave_picture_11052.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:9BFA9222713E8143EB1BA75731666420712F7D84
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11053.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11053.jpgsave_picture_11053.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ GoodbyeDPI 0.2.3rc3 Launcher 10.0 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11054.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11054.jpgsave_picture_11054.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:3EE12E557E30FB37AD4562792122A37B6F7CDB67
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11055.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11055.jpgsave_picture_11055.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:C0C0545B2F29338AA32687D9359CB51175ED8338
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11056.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11056.jpgsave_picture_11056.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:C0C0545B2F29338AA32687D9359CB51175ED8338
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11057.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11057.jpgsave_picture_11057.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:84507D7649EB02010C2FE3E278B407E0841B1264
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11059.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11059.jpgsave_picture_11059.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:A6C0B9619E8ED61E89205075D5E871FCD8819961
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11060.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11060.jpgsave_picture_11060.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:504D46927E16D25B5D213591B0C4A1538A0DD363
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11061.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11061.jpgsave_picture_11061.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:933A8986182C93BDCF75552D62F81CCFF9F3F229
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11062.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11062.jpgsave_picture_11062.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:35351A06ABA71A422C8D15A68317D847CB49E086
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11063.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11063.jpgsave_picture_11063.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Dragon Ball Z: Kakarot (2020) [Ru/Multi] (1.30/dlc) Repack FitGirl [Legendary Ed
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11064.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11064.jpgsave_picture_11064.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Hazure Skill "Kinomi Master": Skill no Mi (Tabetara Shinu) o Mugen ni Taberareru
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11065.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11065.jpgsave_picture_11065.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ magnet:?xt=urn:btih:FB85FE4A4FAD69059C49E284CCD6CA6666C4E117
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11066.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11066.jpgsave_picture_11066.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ magnet:?xt=urn:btih:3E255090085D5A7DBD55D504922DD0332C0220E0
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11067.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11067.jpgsave_picture_11067.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ magnet:?xt=urn:btih:D2F5CDAB3D0CD395F3EFE2490BF60B0312DD908F
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11068.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11068.jpgsave_picture_11068.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ magnet:?xt=urn:btih:1E97ED282D06E5F90404EB4C27105BBD6E467681
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11069.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11069.jpgsave_picture_11069.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ magnet:?xt=urn:btih:56E1B9F7DEDBC4DA3DF9CB87B3A48A381CADB6AB
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11070.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11070.jpgsave_picture_11070.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ magnet:?xt=urn:btih:6568A3ED770494E99BAEC8197BC1D11A0CB5D179
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11071.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11071.jpgsave_picture_11071.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ magnet:?xt=urn:btih:B59E2E4B6DE49B01B35933B3B59ADDC7E09DCBA6
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11072.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11072.jpgsave_picture_11072.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Joe Bonamassa - Breakthrough (2025) [MP3|320 Kbps] <Blues-Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11073.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11073.jpgsave_picture_11073.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ magnet:?xt=urn:btih:7BC50BF71C77CB6B1C9BC11EF64BEE3C69A6DF94
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11074.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11074.jpgsave_picture_11074.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Jean Mare - A Sunset Chill Lounge Voyage (2025) [FLAC 24/44.1|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11075.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11075.jpgsave_picture_11075.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ magnet:?xt=urn:btih:6DA52168DD6427E2C86B1FC300C376E669221D56
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11076.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11076.jpgsave_picture_11076.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ magnet:?xt=urn:btih:2D2D831F7454E4192927543A41EFD42331AA8CEF
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11077.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11077.jpgsave_picture_11077.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ RAR Extractor - Unarchiver (vip) 6.5.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11078.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11078.jpgsave_picture_11078.jpg" />
 </div>
 
 

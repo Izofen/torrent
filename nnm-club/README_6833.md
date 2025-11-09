@@ -6,7 +6,7 @@
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234838.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234838.jpgsave_picture_234838.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Glary Tracks Eraser 5.0.1.261 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234839.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234839.jpgsave_picture_234839.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Animals As Leaders - Parrhesia (2022) [FLAC 2.0|48/24|WEB-DL|tracks] <Instrument
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234840.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234840.jpgsave_picture_234840.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Udemy, Anthony Alicea | JavaScript: Understanding the Weird Parts (2022) WEB-DL 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234842.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234842.jpgsave_picture_234842.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ magnet:?xt=urn:btih:0BFF610166AB4187E6F53278FF6DCFAB0C7A9347
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234844.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234844.jpgsave_picture_234844.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ magnet:?xt=urn:btih:C0434BE4F9E7F49FA6CAE3E6DB78842831B2369A
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234845.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234845.jpgsave_picture_234845.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ VA - Sketches of Lounge (2021) [AAC|~299 Kbps] <Lounge, Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234846.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234846.jpgsave_picture_234846.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ CloudMounter 4.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234847.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234847.jpgsave_picture_234847.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ magnet:?xt=urn:btih:FE232E4AE4FA33A97111CE5D45E736ECE134CB8B
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234848.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234848.jpgsave_picture_234848.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ magnet:?xt=urn:btih:BDBDB95A2E05CE2CCE9266CD90CA6CF034D48E84
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234849.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234849.jpgsave_picture_234849.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ King Abyss - Snake Oil (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Thrash, Dea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234850.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234850.jpgsave_picture_234850.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ VA - Best 80s Pop 2022 [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234851.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234851.jpgsave_picture_234851.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ magnet:?xt=urn:btih:8025C939DB61502C2E1B4379FA401F42B73144F8
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234852.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234852.jpgsave_picture_234852.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ magnet:?xt=urn:btih:B26500E879ED51983CAAF6102A74BAC144226FC8
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234853.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234853.jpgsave_picture_234853.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Champlin Williams Friestedt - Carrie (2023) EP, Japanese Edition [FLAC|Lossless|
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234854.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234854.jpgsave_picture_234854.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ VA - Fashionable Music Barcelona (Sophisticated Lounge Tunes from the Fashion Sh
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234855.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234855.jpgsave_picture_234855.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Hope Hole - Beautiful Doom (2023) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234857.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234857.jpgsave_picture_234857.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ magnet:?xt=urn:btih:620232A7DAACEA55EC769B422967F1B05B24BBA2
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234859.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234859.jpgsave_picture_234859.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ InnerSiege - Fury Of Ages (2021) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234860.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234860.jpgsave_picture_234860.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ VA - Vanilla Kiss (Beautiful Lounge Collection), Vol. 1 (2021) [AAC|~324 Kbps] <
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234861.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234861.jpgsave_picture_234861.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ magnet:?xt=urn:btih:EDF48468B7C23EA6E99DD777FEA05255238B2C54
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234863.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234863.jpgsave_picture_234863.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ magnet:?xt=urn:btih:13938150176A9B81CA79BFD7F30AB5CDA62DDFB5
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234864.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234864.jpgsave_picture_234864.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ magnet:?xt=urn:btih:B3B9D419F7B59C8A7FA24EBEE6BDDBB81AAEC8C2
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234865.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234865.jpgsave_picture_234865.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ magnet:?xt=urn:btih:3251C3F30D418B198E4F0101F6B6E57BF56E7287
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234867.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234867.jpgsave_picture_234867.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Luna Ad Noctum - Sempiternal Consecration (2004) [APE|Lossless|image + .cue] <Sy
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234868.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234868.jpgsave_picture_234868.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Stinking Lizaveta - Anthems And Phantoms (2023) [FLAC|Lossless|WEB-DL|tracks] <D
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234869.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234869.jpgsave_picture_234869.jpg" />
 </div>
 
 

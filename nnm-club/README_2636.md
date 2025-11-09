@@ -6,7 +6,7 @@
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69286.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69286.jpgsave_picture_69286.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:6C6AB6C7B55F417E75CA57578F2DBD8F988F9BC1
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69287.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69287.jpgsave_picture_69287.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:472307B1578D1E48883FF3E516E4296D8F8C103F
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69288.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69288.jpgsave_picture_69288.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ VA - Шансон о любви (2025) [FLAC|Lossless|WEB-DL|tracks] <Шансо
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69289.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69289.jpgsave_picture_69289.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ Daniel Simmons - Delta (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69290.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69290.jpgsave_picture_69290.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ Wayne Shorter - Night Dreamer (1964) 2024, Universal [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69291.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69291.jpgsave_picture_69291.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ Black Spiders - Cvrses (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69292.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69292.jpgsave_picture_69292.jpg" />
 </div>
 
 
@@ -187,7 +187,7 @@ Art Pepper - Neon Art: Volume Two (1981) 2015, Omnivore Recordings [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69293.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69293.jpgsave_picture_69293.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ Wombbath - Beyond the Abyss (2025) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69294.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69294.jpgsave_picture_69294.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Tiktaalika (Charlie Griffiths) - Gods of Pangaea (2025) [FLAC 24/48|Lossless|WEB
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69295.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69295.jpgsave_picture_69295.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Art Pepper - Neon Art: Volume One (1981) 2015, Omnivore Recordings [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69296.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69296.jpgsave_picture_69296.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ magnet:?xt=urn:btih:1CF448C5F4522AB6A6896926CEC8D7977700D46B
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69297.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69297.jpgsave_picture_69297.jpg" />
 </div>
 
 
@@ -316,7 +316,7 @@ The Wise - Wisdom Lost (Remastered) (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69298.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69298.jpgsave_picture_69298.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ Motorizer - Lemmyversary Markthalle Hamburg '23 (Live at Markthalle Hamburg '23)
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69299.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69299.jpgsave_picture_69299.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ MotoGP. Этап 02 из 22. Гран-при Аргентины. Квалифи�
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69300.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69300.jpgsave_picture_69300.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ magnet:?xt=urn:btih:6A86E770F47FD08164F9D254DF952C446862ACA5
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69301.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69301.jpgsave_picture_69301.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ magnet:?xt=urn:btih:A1F7D8413D8818328158C6AC4444828BFA96D1E8
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69302.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69302.jpgsave_picture_69302.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ Bluesadelix - Neptune Beach (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Ro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69303.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69303.jpgsave_picture_69303.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ magnet:?xt=urn:btih:A416D7520D95D70DAA849BA589AFF753710809B8
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69304.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69304.jpgsave_picture_69304.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Nomy - House of Diane (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69305.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69305.jpgsave_picture_69305.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ magnet:?xt=urn:btih:3FE14B69615BC8E19241277B1F224AA9BD9BF7A9
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69306.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69306.jpgsave_picture_69306.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ Temperance - From Hermitage To Europe (Live) (2025) [FLAC 24/48|Lossless|WEB-DL|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69307.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69307.jpgsave_picture_69307.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ Steve Postell - Walking Through These Blues (2025) [FLAC 24/44.1|Lossless|WEB-DL
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69308.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69308.jpgsave_picture_69308.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Shawn Pittman - My Journey (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69309.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69309.jpgsave_picture_69309.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ Goo Goo Dolls - A Boy Named Goo (1995) 30th Anniversary Deluxe Edition, 2025, Wa
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69310.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69310.jpgsave_picture_69310.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ magnet:?xt=urn:btih:2A7D6A19AD25C74E3B63BFDA9FCF1886872E0AA3
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69311.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69311.jpgsave_picture_69311.jpg" />
 </div>
 
 

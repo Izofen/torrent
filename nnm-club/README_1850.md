@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48457.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48457.jpgsave_picture_48457.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:418F6EC4426812C72A9CE22AB310B57FAF391DF6
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48458.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48458.jpgsave_picture_48458.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ CyberLink PowerDVD Ultra 23.0.1825.62 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48459.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48459.jpgsave_picture_48459.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:C8B130B4B5A7FC425D6F0E39957FA9760CF57268
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48460.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48460.jpgsave_picture_48460.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:C897A2A729421F0BF05039C6FD4E07D75E186216
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48461.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48461.jpgsave_picture_48461.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:0AFD91EF2E15765AD42698806C56F68486CFDF4C
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48462.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48462.jpgsave_picture_48462.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Aliens: Dark Descent (2023) [Ru/Multi] (98246/dlc) Scene Tenoke
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48463.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48463.jpgsave_picture_48463.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:FC984E3DF23064467D2748A21CC23035A34F4991
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48464.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48464.jpgsave_picture_48464.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:F30D8EBF0ADA6B741DAA87FB28E0DA682D6D9ADA
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48465.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48465.jpgsave_picture_48465.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ magnet:?xt=urn:btih:92357F1407057BCCD4C4039D7790AF524E2552A6
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48466.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48466.jpgsave_picture_48466.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ magnet:?xt=urn:btih:E7404BD6E0CA9571FF1BF569BC4D02FD773B71B7
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48467.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48467.jpgsave_picture_48467.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:541A0DB120DA02F6CF5D629880ADE725511CBED0
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48468.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48468.jpgsave_picture_48468.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Balabolka 2.15.0.876 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48469.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48469.jpgsave_picture_48469.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Glary Utilities Pro 6.13.0.17 Portable by FC Portables [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48470.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48470.jpgsave_picture_48470.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ magnet:?xt=urn:btih:0CB0F716D27976781EC774193118D526A63A0764
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48471.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48471.jpgsave_picture_48471.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ VA - Milk & Sugar Summer Sessions 2024 [MP3|320 Kbps] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48472.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48472.jpgsave_picture_48472.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ magnet:?xt=urn:btih:550EB847A0666ED274E450D38923D604A8225DB9
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48473.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48473.jpgsave_picture_48473.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Mflex Sounds - Shining Echoes (2024) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco,
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48474.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48474.jpgsave_picture_48474.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Mystical Riddles 5: Haunted Portraits (2024) [Multi] (1.0) Unofficial [Collector
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48475.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48475.jpgsave_picture_48475.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ magnet:?xt=urn:btih:69ECCE065AAB6F5BD3DC5C81B4C72649F5E45E1B
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48476.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48476.jpgsave_picture_48476.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ magnet:?xt=urn:btih:A7BAA7F322E4BE1402EC9E163D0D6F9F072CCED6
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48477.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48477.jpgsave_picture_48477.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ magnet:?xt=urn:btih:B0F821D8EDD77E89EA4A7A2656CA6A166644B1F3
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48478.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48478.jpgsave_picture_48478.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ Ward White - Here Come The Dowsers (2024) [FLAC|Lossless|WEB-DL|tracks] <Power P
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48479.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48479.jpgsave_picture_48479.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ magnet:?xt=urn:btih:46B42D9ECD5A7ACAD6FB2ABC7ABBDADCF52F30BE
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48480.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48480.jpgsave_picture_48480.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Ironflame - Kingdom Torn Asunder (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48481.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48481.jpgsave_picture_48481.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ magnet:?xt=urn:btih:FC2F7C01418D81890E6FABE3E146EDA5F8025117
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48482.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48482.jpgsave_picture_48482.jpg" />
 </div>
 
 

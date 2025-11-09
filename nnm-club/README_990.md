@@ -6,7 +6,7 @@ Blender 4.2.7 LTS + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26090.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26090.jpgsave_picture_26090.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:21E3321B5C0A61E2DD3CFCD81FE377ADF22B2A60
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26091.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26091.jpgsave_picture_26091.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:03CE6E00627B480DEC5D3CE6705A28F8696FFDD3
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26092.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26092.jpgsave_picture_26092.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ Snappy Driver Installer Origin R813 | Драйверпаки 25.01.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26093.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26093.jpgsave_picture_26093.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:8B90F9D6335727DE13C3BD7D1A27A3C6F703DD14
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26094.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26094.jpgsave_picture_26094.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:0B167965642C4F3AFD4F02B7DB7365A79B36D4D2
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26095.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26095.jpgsave_picture_26095.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:C0350A8508630C03E337ED5ABFDF8CC28BB95D1C
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26096.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26096.jpgsave_picture_26096.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:C430FEC1F36814F97E0319307D2FAAADB0A8369F
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26097.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26097.jpgsave_picture_26097.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ Udemy, Борис Шлыков | Уроки Гитары С Нуля Для На
 >>Музыка (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26098.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26098.jpgsave_picture_26098.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:7633D54D42C4CC039B1BC1C4D01D11B16F7EEF92
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26099.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26099.jpgsave_picture_26099.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Trinity Fusion (2023) [Multi] (2.5.1) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26100.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26100.jpgsave_picture_26100.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ magnet:?xt=urn:btih:9DCC5EE46411228067574CDAA99AFA1F0B70DC21
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26101.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26101.jpgsave_picture_26101.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ magnet:?xt=urn:btih:B50E4AC5811EFC3A3B70D5DAB7CE9B86B360F596
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26102.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26102.jpgsave_picture_26102.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ magnet:?xt=urn:btih:11E444E1AA557B4E5AEAB1FF97C35BBB227B30C6
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26103.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26103.jpgsave_picture_26103.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ magnet:?xt=urn:btih:53C6ACE9A14B4AA808236605332D85A68EAE405C
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26104.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26104.jpgsave_picture_26104.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ IObit Driver Booster Pro 12.3.0.549 RePack (& Portable) by elchupacabra [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26105.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26105.jpgsave_picture_26105.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Dragon Ball Daima | Драгонболл Дайма [2024, TV, 20 эп.] WebRip 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26106.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26106.jpgsave_picture_26106.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Adguard 7.20.1 (7.20.4966.0) RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26107.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26107.jpgsave_picture_26107.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ magnet:?xt=urn:btih:D6F18EFF05A189B4FB32F18BD12B14F0A44F96BE
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26108.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26108.jpgsave_picture_26108.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ magnet:?xt=urn:btih:0DAD9AA6B9B8E07FA61664F07AC2037A01225F4D
 >>Юмор
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26109.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26109.jpgsave_picture_26109.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ Udemy, Edward Harding | Learn Architectural Design & Animation With Blender (202
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26110.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26110.jpgsave_picture_26110.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ magnet:?xt=urn:btih:6D99AFC1CC246700072AEBDB8451930FF8AA10A1
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26111.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26111.jpgsave_picture_26111.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ Smuta / Смута (2024) [Ru] (2.1.0/dlc) Repack FitGirl
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26112.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26112.jpgsave_picture_26112.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ S.T.A.L.K.E.R. 2: Heart of Chornobyl (2024) [Ru] (08.12.2024) Unofficial SynthVo
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26113.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26113.jpgsave_picture_26113.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ magnet:?xt=urn:btih:FA707678DCDD91E577D205E83A916DBD4BA21EC1
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26114.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26114.jpgsave_picture_26114.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ magnet:?xt=urn:btih:24E1F70BFC4CDF7EFD8F35BA3EA6CE2ED9B55883
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26115.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26115.jpgsave_picture_26115.jpg" />
 </div>
 
 

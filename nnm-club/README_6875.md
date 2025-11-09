@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236044.jpgsave_picture_236044.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Udemy, Aleksey Zhadan, Лев Мотовских | AWS. Обучение раб�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236045.jpgsave_picture_236045.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Eddie Higgins Trio - Secret Love (2007) Venus Records [FLAC|Lossless|image + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236046.jpgsave_picture_236046.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ YT Downloader 7.25.7 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_236047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_236047.jpgsave_picture_236047.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ AutoCrypt 2.4.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236049.jpgsave_picture_236049.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ TextMate 2 v2.0.17 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236050.jpgsave_picture_236050.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ Gary Versace - All For Now (2020) SteepleChase [FLAC|Lossless|tracks + .cue] <Po
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_236051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_236051.jpgsave_picture_236051.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ Fifth Angel - When Angels Kill (2023) [MP3|320 Kbps] <Heavy, Power Metal, Hard R
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236052.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236052.jpgsave_picture_236052.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Color Wheel 6.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236053.jpgsave_picture_236053.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ ByClick Downloader Premium 2.3.39 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_236054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_236054.jpgsave_picture_236054.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ Ghost Buster Pro 2.0.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236056.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236056.jpgsave_picture_236056.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ GroupsPro 5.1.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236057.jpgsave_picture_236057.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ Monachopsis Art - An Empty Existence (2023) [FLAC|Lossless|WEB-DL|tracks] <Black
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_236058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_236058.jpgsave_picture_236058.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ magnet:?xt=urn:btih:92D6B6D9AB656C5730323F3EC653B342178EAE9E
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236059.jpgsave_picture_236059.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ magnet:?xt=urn:btih:B9E9D482C3B55CF03CCCAC255D1B44BC6ED641A3
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236060.jpgsave_picture_236060.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Force Of Progress - Redesign (2021) [FLAC|Lossless|image + .cue] <Instrumental P
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236061.jpgsave_picture_236061.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ magnet:?xt=urn:btih:5330B7BB5AAEC1E9DA8B3B2A7474A41AB3DD9B1B
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_236062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_236062.jpgsave_picture_236062.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ magnet:?xt=urn:btih:78B38C9049A577EC805009BA85F1AAD2EAB6C2BB
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236064.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236064.jpgsave_picture_236064.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ USB Device Tree Viewer 3.8.1.0 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236065.jpgsave_picture_236065.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Naitaka - Emergence (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death, Thrash 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_236066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_236066.jpgsave_picture_236066.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ magnet:?xt=urn:btih:9DC25F2088BC1B5954DCD585146EAEE30BE412A4
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236067.jpgsave_picture_236067.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Bootstrap Studio 5.8.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236068.jpgsave_picture_236068.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ magnet:?xt=urn:btih:C412DC11929A2453E3BF07DE3A0BC5C2CAB96357
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_236070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_236070.jpgsave_picture_236070.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ magnet:?xt=urn:btih:998FD0F1E4310427632BF31D87E63674169922B2
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236071.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236071.jpgsave_picture_236071.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Gary Hughes - Waterside (2021) [FLAC|Lossless|image + .cue] <Melodic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236072.jpgsave_picture_236072.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ magnet:?xt=urn:btih:4CE8B1B6918B1AD5F929F87A9BA887E7BACC656C
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236073.jpgsave_picture_236073.jpg" />
 </div>
 
 

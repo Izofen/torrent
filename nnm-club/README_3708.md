@@ -6,7 +6,7 @@
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116783.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116783.jpgsave_picture_116783.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:71A09937F4FEEF8A8B0CCAD057220581151017E4
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116784.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116784.jpgsave_picture_116784.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:A8370A109BAE5A63C99B2667F8835113FB5FE356
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116785.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116785.jpgsave_picture_116785.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Udemy, Elchin Jamalov | Windows Server 2016 (70-742) полный видеоку
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116786.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116786.jpgsave_picture_116786.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:5137DB7DE3EFC49DAE795976A25D2C3FBC37DCA0
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116787.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116787.jpgsave_picture_116787.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:24B9BADB293324B890E1D162C2D4A4C2764B66AE
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116788.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116788.jpgsave_picture_116788.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:11ACB5B56636052ED13422CB44187659B1B29EC1
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116789.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116789.jpgsave_picture_116789.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:6D8A8DD32C6E60AAD6D43693F1432F4A546E95A2
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116790.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116790.jpgsave_picture_116790.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:549AD7DD919B6EC2CA49BF654EFA77A9CE1FBE20
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116791.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116791.jpgsave_picture_116791.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:C4D866C71911F390ABF5DA6BE4DD92AA8ECC5497
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116792.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116792.jpgsave_picture_116792.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Skibidi Toilets: Invasion (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116793.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116793.jpgsave_picture_116793.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:3A84FD510B05A808828FA25FF29475042077DEFC
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116794.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116794.jpgsave_picture_116794.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:B8A4BCCF41418EDA646EACC2F0BC7254D52626C1
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116795.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116795.jpgsave_picture_116795.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ MSI Afterburner 4.6.6.16831 Beta 3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116796.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116796.jpgsave_picture_116796.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ magnet:?xt=urn:btih:B0230441DD0ACFE4D8DFFB7C93841B3ED0674AC3
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116797.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116797.jpgsave_picture_116797.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ elementary OS 7.1 Horus [x64] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116798.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116798.jpgsave_picture_116798.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Clash II (2022) [Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116799.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116799.jpgsave_picture_116799.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ Far Cry 6 (2021) [Ru/En] (1.5.0/dlc) Rip R.G. Механики
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116800.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116800.jpgsave_picture_116800.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:D3E88099EB4D620060C86A3A3308CAC9F41C6CC8
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116801.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116801.jpgsave_picture_116801.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ magnet:?xt=urn:btih:A2A71D965BE6CF43E0F6741AF726856CD2ABD163
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116802.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116802.jpgsave_picture_116802.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:47B01DACABE3AB1BA3C1EFEB073FDA400083F8BD
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116803.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116803.jpgsave_picture_116803.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ magnet:?xt=urn:btih:F04A818D521FE4B8F699A015A534A9F98526E5B5
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116804.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116804.jpgsave_picture_116804.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Windows 11 23H2 Professional [22631.3155] (14.02.2024) by bulygin-dima [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116805.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116805.jpgsave_picture_116805.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ magnet:?xt=urn:btih:A2FAE76562AC30227143371E4AAC081EFE27C958
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116806.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116806.jpgsave_picture_116806.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Discovery: Войны нашего столетия / The Century of Warfare (19
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116807.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116807.jpgsave_picture_116807.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Risen 3: Titan Lords (2015) [Ru] (3.0.30.0/dlc) Repack xatab [Enhanced Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116808.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116808.jpgsave_picture_116808.jpg" />
 </div>
 
 

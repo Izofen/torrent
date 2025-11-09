@@ -6,7 +6,7 @@
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96415.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96415.jpgsave_picture_96415.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ VA - House Vip (10.03.12) [MP3|320 кб/с]<Electro House>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96419.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96419.jpgsave_picture_96419.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ magnet:?xt=urn:btih:734BC679AC0865E1FF57A03C333154DE731C7EF9
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96420.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96420.jpgsave_picture_96420.jpg" />
 </div>
 
 
@@ -91,7 +91,7 @@ VA - Новинки Танцевальных Хитов. Зарубежный (2
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96422.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96422.jpgsave_picture_96422.jpg" />
 </div>
 
 
@@ -124,7 +124,7 @@ magnet:?xt=urn:btih:46F471664A695752F0E32E51E1A50B5E9615B61F
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96426.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96426.jpgsave_picture_96426.jpg" />
 </div>
 
 
@@ -148,7 +148,7 @@ magnet:?xt=urn:btih:DC3B25C084DB6BACB032F6EC4F466700C400CEB3
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96427.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96427.jpgsave_picture_96427.jpg" />
 </div>
 
 
@@ -172,7 +172,7 @@ Gianni Lee - Trill Wave Deux (2012) [MP3|320 кб/с]<Rap>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96432.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96432.jpgsave_picture_96432.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ VA - Новинки: Хит-парад 50/50 1 (2012) [MP3|256 кб/с]<Рор>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96441.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96441.jpgsave_picture_96441.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ magnet:?xt=urn:btih:AD656F6C2FDF38051FE57463A7641CAB4300F98E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96442.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96442.jpgsave_picture_96442.jpg" />
 </div>
 
 
@@ -262,7 +262,7 @@ Hands Like Houses - Ground Dweller (2012) [MP3|~245 кб/с (V0)]<Post-Hardcore,
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96445.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96445.jpgsave_picture_96445.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ KRS-One - The BDP Album (2012) [MP3|185-205 кб/с]<Hip-Hop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96446.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96446.jpgsave_picture_96446.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Dengue Fever - Cannibal Courtshop (2010) [MP3|320 кб/с]<Rock, Surf,  Rock Psy
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96450.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96450.jpgsave_picture_96450.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ DJ GraF aka Slava - Sabotage (2012) [MP3|320 кб/с]<Minimal-Techno>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96452.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96452.jpgsave_picture_96452.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ VA - Муз-прорыв Русского радио Весна (2012) [MP3|256 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96453.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96453.jpgsave_picture_96453.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ magnet:?xt=urn:btih:AA40794564F571C2E3A1A579E750B623F39757A7
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96456.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96456.jpgsave_picture_96456.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Glenn Hughes - Live In Wolverhampton (2CD) (2011) [MP3|320 кб/с]<Hard Rock>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96459.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96459.jpgsave_picture_96459.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ magnet:?xt=urn:btih:023FDB3263AA40AA171314FE87F744929CD71343
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96463.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96463.jpgsave_picture_96463.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Ministry Of Sound - The Sound Of Dubstep 4 2CD (2012) [MP3|~224 кб/с ]<Dubste
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96465.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96465.jpgsave_picture_96465.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Kyau & Albert - 15 Years (The Album) (12.03.2012) [MP3|320 кб/с]<Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96466.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96466.jpgsave_picture_96466.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ DJ Ger - Man / The Nonexistent World (tracks + mix) (2012) [MP3|320 кб/с]<Psy
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96479.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96479.jpgsave_picture_96479.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ magnet:?xt=urn:btih:B76CB536F750CD70B16F9850007666043ECF71AC
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96480.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96480.jpgsave_picture_96480.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ magnet:?xt=urn:btih:2A3046200C09F1A5E09747E800E549B760D4BA34
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96484.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96484.jpgsave_picture_96484.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ magnet:?xt=urn:btih:845077335C6C80895F88C1387F4BAF5188A717F0
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96487.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96487.jpgsave_picture_96487.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ I See Stars - Digital Renegade (2012) [MP3|320 кб/с]<Post-Hardcore, Electroni
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96488.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96488.jpgsave_picture_96488.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ magnet:?xt=urn:btih:7FBD323C96B1E9C8361A51A7CBA30CE28AB7EF58
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96491.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96491.jpgsave_picture_96491.jpg" />
 </div>
 
 
@@ -726,7 +726,7 @@ magnet:?xt=urn:btih:6B20DD6AF071DF65AD117AAC52605053EF850141
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96495.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96495.jpgsave_picture_96495.jpg" />
 </div>
 
 

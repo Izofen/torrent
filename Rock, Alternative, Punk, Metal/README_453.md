@@ -6,7 +6,7 @@ Riviere - Passage (2020) [MP3|320 Kbps] <Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240985.jpgsave_picture_240985.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Perfect Nme - Remains to Be Seen (2020) [MP3|320 Kbps] <Thrash Metal, Heavy Meta
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241009.jpgsave_picture_241009.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:BA45917E3D8995D5934D0209C4A336B89A589ACE
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241011.jpgsave_picture_241011.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Crashdiet - Automaton (2022) [MP3|320 Kbps] <Hard Rock, Glam Metal>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241016.jpgsave_picture_241016.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ VA - Rock Classics (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241025.jpgsave_picture_241025.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Savage Grace - Sign Of The Cross (2023) [FLAC|Lossless|WEB-DL|tracks] <Power, Sp
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241029.jpgsave_picture_241029.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ magnet:?xt=urn:btih:2573918E618F75BE1097D0AA28C4C1A9F298C004
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241035.jpgsave_picture_241035.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ VA - 70s Lost & Found (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock, Pop>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241036.jpgsave_picture_241036.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Necronomicon - Constant To Death (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241038.jpgsave_picture_241038.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Haunt - Golden Arm (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241051.jpgsave_picture_241051.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:A7BBD27CCF4F7DD19C94BAD530A29CB5EAA6B514
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241055.jpgsave_picture_241055.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Decipher - Arcane Paths to Resurrection (2023) [FLAC|Lossless|WEB-DL|tracks] <Bl
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241059.jpgsave_picture_241059.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Zadra - Guiding Star (2022) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241060.jpgsave_picture_241060.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Enforcer - Nostalgia (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Speed Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241063.jpgsave_picture_241063.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Thunder - Dopamine (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241065.jpgsave_picture_241065.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ SUPERтемп - От звонка до звонка (2023) [FLAC|Lossless|WEB-DL
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241068.jpgsave_picture_241068.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Decimate Our Kind - Hogs in Badges (2023) [FLAC|Lossless|WEB-DL|tracks] <Experim
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241072.jpgsave_picture_241072.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Treat - The Endgame (2022) Japanese Edition [FLAC|Lossless|image + .cue] <Melodi
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241074.jpgsave_picture_241074.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Dead Chasm - Sublimis Ignotum Omni (2023) [FLAC|Lossless|WEB-DL|tracks] <Death M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241079.jpgsave_picture_241079.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ VA - The Rock: The Ultimate Collection (2011) Box Set, 3CD [FLAC|Lossless|tracks
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241085.jpgsave_picture_241085.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Dawn Ray'd - To Know the Light (2023) [FLAC|Lossless|WEB-DL|tracks] <Black Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241086.jpgsave_picture_241086.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Decemberance - Implosions (2023) [FLAC|Lossless|WEB-DL|tracks] <Death, Doom Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241093.jpgsave_picture_241093.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ Dominoe - The Lost Radio Show (2018) [FLAC|Lossless|tracks] <Melodic Rock, AOR>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241095.jpgsave_picture_241095.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ The William Loveday Intention - Early Demos, Vol. 2 (The Devil and God Entwined)
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241104.jpgsave_picture_241104.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ Hulkoff - Pansarfolk (2020) 2xCD [FLAC|Lossless|image + .cue] <Folk Metal, Heavy
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241118.jpgsave_picture_241118.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ Darkthrone - Goatlord (Original) (2023) [FLAC|Lossless|WEB-DL|tracks] <Death met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241122.jpgsave_picture_241122.jpg" />
 </div>
 
 

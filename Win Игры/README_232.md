@@ -6,7 +6,7 @@ World of Horror (2020) [Multi] (1.01) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128344.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128344.jpgsave_picture_128344.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Trials Rising (2019) [Ru/Multi] (Build 10831717) Scene Rune
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128562.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128562.jpgsave_picture_128562.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Spindle (2025) [Multi] (Build 20355770) Scene Tenoke
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128808.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128808.jpgsave_picture_128808.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Croc: Legend of the Gobbos (2025) [Multi] (1.04) Repack Necros
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128811.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128811.jpgsave_picture_128811.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Bye Sweet Carole (2025) [Ru/Multi] (1.0.1) Repack Wanterlude
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128812.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128812.jpgsave_picture_128812.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Borderlands 2 (2012) [Ru/En] (Build 9218157/dlc) Repack Wanterlude [Game of the 
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128839.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128839.jpgsave_picture_128839.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Chimeras 14: The Lost Film / Химеры 14: Потерянный фильм (2
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128887.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128887.jpgsave_picture_128887.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Anna's Quest (2015) [Ru/Multi] (1.3.4792) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128891.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128891.jpgsave_picture_128891.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Space Engineers / Космические инженеры (2019) [Ru/En] (1.207.
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128992.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128992.jpgsave_picture_128992.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Kimagure Temptation (2021) [Multi] (1.0.5.0/dlc) License GOG [18+]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128997.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128997.jpgsave_picture_128997.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Prison Tycoon: Under New Management (2021) [Multi] (1.0.2.2/dlc) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129002.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129002.jpgsave_picture_129002.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Against the Storm (2022) [Ru/Multi] (1.0.1r) Scene Rune
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129617.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129617.jpgsave_picture_129617.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Detectives United 5: Deadly Debt (2022) [En] (1.0) Unofficial [Collector's Editi
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129658.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129658.jpgsave_picture_129658.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Destroyer: The U-Boat Hunter (2023) [Ru/Multi] (1.0/dlc) Scene Rune [Supporter B
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129699.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129699.jpgsave_picture_129699.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Blackwind (2022) [Multi] (1.0.1.0) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129893.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129893.jpgsave_picture_129893.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ magnet:?xt=urn:btih:42D9646900CCE7656C53F7663B213AE47C676606
 >>NoCD/NoDVD/Crack для Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130365.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130365.jpgsave_picture_130365.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Gardenscapes: Mansion Makeover. Collector's Edition / Дивный сад 2. А�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130381.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130381.jpgsave_picture_130381.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Urtuk: The Desolation (2021) [Ru/Multi] (1.0.091b) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130544.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130544.jpgsave_picture_130544.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Tetris Effect: Connected (2021) [Multi] (2.0.2) Repack dixen18 [VR]
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130621.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130621.jpgsave_picture_130621.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Three Minutes To Eight (2023) [Ru/Multi] (0.6.3) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130648.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130648.jpgsave_picture_130648.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ King Arthur: Knight's Tale (2022) [Ru/Multi] (2.0.0/dlc) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130654.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130654.jpgsave_picture_130654.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Blanc (2023) [Ru/Multi] (1.33) Repack dixen18
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130778.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130778.jpgsave_picture_130778.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ SGS Battle For: Madrid (2023) [Ru/Multi] (23.11.29) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130904.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130904.jpgsave_picture_130904.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Blasphemous II (2) (2023) [Ru/Multi] (1.1.0-cs44446) Repack dixen18
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130919.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130919.jpgsave_picture_130919.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ SGS We The People (2023) [Ru/Multi] (23.10.18) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130950.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130950.jpgsave_picture_130950.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Klonoa Phantasy Reverie Series (2022) [Multi] (1.0/dlc) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130988.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130988.jpgsave_picture_130988.jpg" />
 </div>
 
 

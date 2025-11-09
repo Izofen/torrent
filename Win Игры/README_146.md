@@ -6,7 +6,7 @@ Gimmick! 2 (2024) [Multi] (1.0) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42735.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42735.jpgsave_picture_42735.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:47E01A68D9C3FA632CDF85A93E8751F99CD2DF8C
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42747.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42747.jpgsave_picture_42747.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Planetbase (2015) [Multi] (1.4.0) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42756.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42756.jpgsave_picture_42756.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Starcom: Nexus (2018) [Ru/Multi] (1.0.13c) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42762.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42762.jpgsave_picture_42762.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Gym Nights (2024) [Ru/Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42763.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42763.jpgsave_picture_42763.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Garlant: My Story (2024) [Multi] (1.1.0.8) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42769.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42769.jpgsave_picture_42769.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Castle of Lord Velimir (2024) [En] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42770.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42770.jpgsave_picture_42770.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Warhammer 40,000: Space Marine (2011) [Ru/En] (1.0.165/dlc) Repack FitGirl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42781.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42781.jpgsave_picture_42781.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Elon and the Divine Proof (2024) [Multi] (1.5a) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42789.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42789.jpgsave_picture_42789.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Portal Reloaded (2021) [En] (1.0.1HF) Repack dixen18
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42795.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42795.jpgsave_picture_42795.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Life is Strange 2 (2018) [Ru/Multi] (build 4874667/dlc) Repack dixen18 [Complete
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42805.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42805.jpgsave_picture_42805.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Anger Foot (2024) [Ru/Multi] (1.46) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42806.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42806.jpgsave_picture_42806.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Assassin's Creed II (2010) [Ru/Multi] (1.01/dlc) Repack dixen18
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42807.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42807.jpgsave_picture_42807.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Garden Witch Life (2024) [Multi] (1.0) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42814.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42814.jpgsave_picture_42814.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ BAKERU (2024) [Multi] (1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42839.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42839.jpgsave_picture_42839.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ AMEDAMA (2024) [Multi] (2.0.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42842.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42842.jpgsave_picture_42842.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Myths Of Orion: Light From The North (2014) [Ru/Multi] (1.11.7.7) License GOG
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42843.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42843.jpgsave_picture_42843.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Roots of Yggdrasil (2024) [Multi] (1.0) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42858.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42858.jpgsave_picture_42858.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Crash Bandicoot - Original Trilogy 3D (2011) [Ru/En] (1.1) Repack Ma2012ks
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42860.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42860.jpgsave_picture_42860.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Guns And Draguns (2024) [Multi] (1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42870.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42870.jpgsave_picture_42870.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Pirates Journey (2024) [Ru/Multi] (0.1.0.6) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42883.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42883.jpgsave_picture_42883.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Smells Like a Mushroom (2024) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42885.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42885.jpgsave_picture_42885.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ The Gunk (2021) [Ru/Multi] (1014.1.6.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42893.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42893.jpgsave_picture_42893.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Scourge Of War - Remastered (2024) [Multi] (1.0) Scene Tenoke
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42894.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42894.jpgsave_picture_42894.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ StarCraft II: Legacy of the Void (2015) [Ru/En] (3.1.4.41219/dlc) Repack dixen18
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42905.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42905.jpgsave_picture_42905.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Toy Tactics (2023) [Ru/Multi] (1.0) Scene Rune
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42982.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42982.jpgsave_picture_42982.jpg" />
 </div>
 
 

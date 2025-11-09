@@ -6,7 +6,7 @@ Night Intruder - Sick Pretty Thing (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <H
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68246.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68246.jpgsave_picture_68246.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:EBFF13B3CDE8D248344975B3376FB03CA1E7290E
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68247.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68247.jpgsave_picture_68247.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ The Black Dog - Liber Dogma (2011) [FLAC|Lossless|WEB-DL|tracks] <IDM, Braindanc
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68248.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68248.jpgsave_picture_68248.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ The Nova Revolution - Tour de force (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68249.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68249.jpgsave_picture_68249.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ magnet:?xt=urn:btih:AE945F099B736CCAAD0D0DAD434A04F7087A3C43
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68250.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68250.jpgsave_picture_68250.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ magnet:?xt=urn:btih:47B902B761CF4942B6D26BA6D74B4069F4D2F84F
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68251.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68251.jpgsave_picture_68251.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Heavylution - The Cycle (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Meta
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68252.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68252.jpgsave_picture_68252.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Nightwish - Dark Passion Play (2007) [FLAC|24/192|image + .cue|Vinyl-Rip] <Symph
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68253.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68253.jpgsave_picture_68253.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ The Magical Mixture Mill (2024) [Multi] (1.1.4) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68254.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68254.jpgsave_picture_68254.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ magnet:?xt=urn:btih:AB5641F0F435A6EDA3E0F3C941C389048B26242B
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68255.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68255.jpgsave_picture_68255.jpg" />
 </div>
 
 
@@ -265,7 +265,7 @@ VA - Beautiful Classical Instrumental Music (2025) [FLAC|Lossless|WEB-DL|tracks]
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68256.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68256.jpgsave_picture_68256.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Alfa eBooks Manager 9.1.35 Pro & Web [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68257.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68257.jpgsave_picture_68257.jpg" />
 </div>
 
 
@@ -316,7 +316,7 @@ magnet:?xt=urn:btih:6C1987E992DC7A20DB5FD7CFE057AC0717099216
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68258.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68258.jpgsave_picture_68258.jpg" />
 </div>
 
 
@@ -340,7 +340,7 @@ Pencil Photo Sketch : Drawing v2.2.11 Mod by PieMods [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68259.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68259.jpgsave_picture_68259.jpg" />
 </div>
 
 
@@ -364,7 +364,7 @@ GeoGebra 6.0.881-2 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68260.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68260.jpgsave_picture_68260.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ Frantic Amber - Studio Albums (3 releases) (2015-2025) hand made [restored, decl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68261.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68261.jpgsave_picture_68261.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Notification Widget v1.5.170 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68262.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68262.jpgsave_picture_68262.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ magnet:?xt=urn:btih:82F5ECFDF3E7CF3BF8D2A2386087E438B97B62E6
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68263.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68263.jpgsave_picture_68263.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ magnet:?xt=urn:btih:6CE28C2449CF731C668B880F580BC2EEFD2917E5
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68264.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68264.jpgsave_picture_68264.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Phantom Alley Swing - Pineapple Parade (2025) [FLAC 24/48|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68265.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68265.jpgsave_picture_68265.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ Eric Clapton - From the Cradle (1994) CD, Album, Club Edition, BMG Direct Market
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68266.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68266.jpgsave_picture_68266.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ magnet:?xt=urn:btih:959152D637EA2399C880739AB70B5C6BF2DC5AB1
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68267.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68267.jpgsave_picture_68267.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ magnet:?xt=urn:btih:91103D267FFEF2C35C3716CE970D4C3A9865A041
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68268.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68268.jpgsave_picture_68268.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Etienne Daho - Pop Satori (серия "Другие восьмидесятые")
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68269.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68269.jpgsave_picture_68269.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ magnet:?xt=urn:btih:670FDD7F500A2C0FA7607F83D6BB1BCFB39AC094
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68270.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68270.jpgsave_picture_68270.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ magnet:?xt=urn:btih:6860C21B59C7945A1F12E0F1CC663E963CEBEFE8
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68271.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68271.jpgsave_picture_68271.jpg" />
 </div>
 
 

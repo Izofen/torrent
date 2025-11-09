@@ -6,7 +6,7 @@ Freddie Hubbard - Here To Stay (1962) 1988, Blue Note [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235792.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235792.jpgsave_picture_235792.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:C8A22B9629898369F380A8D10990781E4DCAE192
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235793.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235793.jpgsave_picture_235793.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:64C387AAC7B9B8CA5DAE155143F5871FE4AE4C38
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235794.jpgsave_picture_235794.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Bartender 4 v4.1.19 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235795.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235795.jpgsave_picture_235795.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ Sunborn - Imperishable (2021) [MP3|320 Kbps] <Melodic Death, Groove Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235796.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235796.jpgsave_picture_235796.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ magnet:?xt=urn:btih:614E20F61760FA4E7B7E6E14405A19380882F5CF
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235797.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235797.jpgsave_picture_235797.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ VA - Русский шансон часть 3 (1997) [MP3|320 Kbps] <Шансо�
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235798.jpgsave_picture_235798.jpg" />
 </div>
 
 
@@ -187,7 +187,7 @@ KAUAN - Lumikuuro Live (2022) [FLAC|Lossless|Web-DL|tracks] <Dark Folk, Atmosphe
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235799.jpgsave_picture_235799.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Immortal - War Against All (2023) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235800.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235800.jpgsave_picture_235800.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ magnet:?xt=urn:btih:4D2A92B346D9CAE1FE9AB97A84BD2E9EB346EF54
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235801.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235801.jpgsave_picture_235801.jpg" />
 </div>
 
 
@@ -265,7 +265,7 @@ magnet:?xt=urn:btih:2F7D4B3F0698BB5D0BDE557BAB66721AD5FDD474
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235802.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235802.jpgsave_picture_235802.jpg" />
 </div>
 
 
@@ -289,7 +289,7 @@ Eric Baule - Reflecting Circles (2021) [MP3|320 Kbps] <Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235803.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235803.jpgsave_picture_235803.jpg" />
 </div>
 
 
@@ -316,7 +316,7 @@ magnet:?xt=urn:btih:FE98A88FB5ECC66D8B118696EEABE44ED3DD7D82
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235804.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235804.jpgsave_picture_235804.jpg" />
 </div>
 
 
@@ -341,7 +341,7 @@ Tritop - Rise of Kassandra (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235805.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235805.jpgsave_picture_235805.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ magnet:?xt=urn:btih:773BEF390584E4E84836461506E9E7C583D73A73
 >>Детские (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235806.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235806.jpgsave_picture_235806.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ Lennie Tristano - The Duo Sessions (1967 - 1976) 2020, Dot Time Records [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235807.jpgsave_picture_235807.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ Hornil StylePix 3.0.7.0 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235808.jpgsave_picture_235808.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ WonderPen 2.0.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235809.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235809.jpgsave_picture_235809.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Code Orange - What is Really Underneath (2023) [FLAC|Lossless|WEB-DL|tracks] <Ha
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235810.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235810.jpgsave_picture_235810.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ Granvil Poynter - Cigarettes and Gin (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235811.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235811.jpgsave_picture_235811.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ magnet:?xt=urn:btih:73B19B8E3EC9B1986954FA26DF797DECE884A7B6
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235812.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235812.jpgsave_picture_235812.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ VA - The Official UK Top 100 Singles Chart 26.03.2021 [MP3|320 Kbps] <Pop, Dance
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235813.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235813.jpgsave_picture_235813.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ magnet:?xt=urn:btih:5A5022BCD3D697E13A4F8B5BCC5452B9C6AE9221
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235814.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235814.jpgsave_picture_235814.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ Draken - Draken (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235815.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235815.jpgsave_picture_235815.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ Psilocybe Larvae - Agony (2003) [FLAC|Lossless|image + .cue] <Dark Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235816.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235816.jpgsave_picture_235816.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Wise Video Converter 2.3.1.66 Pro RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235817.jpgsave_picture_235817.jpg" />
 </div>
 
 

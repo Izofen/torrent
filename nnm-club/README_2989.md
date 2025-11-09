@@ -6,7 +6,7 @@
 >>Драйверы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89537.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89537.jpgsave_picture_89537.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ ACDSee Pro 5.2 Build 157 Final RUS
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89542.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89542.jpgsave_picture_89542.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ ACDSee Pro - профессиональная программа для рабо
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89543.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89543.jpgsave_picture_89543.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:3BB9C7B3E91E1CA62E0492BFD7997E90B5236F35
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89545.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89545.jpgsave_picture_89545.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ StatSoft STATISTICA 8.0.725 [Eng]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89550.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89550.jpgsave_picture_89550.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ Autodesk AutoCAD Mechanical 2013 (x86, x64) (Русский)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89552.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89552.jpgsave_picture_89552.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ AutoCAD® Mechanical – это AutoCAD® для машиностроитель�
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89554.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89554.jpgsave_picture_89554.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ VA - Весенний заряд. Треки то,что надо! (2012) [MP3|2
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89556.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89556.jpgsave_picture_89556.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ magnet:?xt=urn:btih:6751F41C483360BEF566AF5F885C88BAB2ECCD05
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89558.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89558.jpgsave_picture_89558.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ VA - Включи меня снова (2012) [MP3|175-241 kbps]<Pop | Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89560.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89560.jpgsave_picture_89560.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ magnet:?xt=urn:btih:53ABEF5108915DA4F6C10BFB82577FD4F139BBB6
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89565.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89565.jpgsave_picture_89565.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:3AA42618E458DB735ED0E2A463BEBE5E3C3565F0
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89571.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89571.jpgsave_picture_89571.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Lovelock - Burning Sound (2012) [MP3|320 кб/с]<Tech House, Electronic, Nu Dis
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89574.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89574.jpgsave_picture_89574.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ VA - Клубные новинки Vol.67 from GvertO (2012) [MP3|320 кб/с]<C
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89575.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89575.jpgsave_picture_89575.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ magnet:?xt=urn:btih:3E2DEDA54781CAC9DCEA34D081CDBE65A6147EF3
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89580.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89580.jpgsave_picture_89580.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ VA - Танцевальный Русский Хит часть 2 (2012) [MP3|256
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89583.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89583.jpgsave_picture_89583.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:291727B35DC8C3E74BD031742AA14409CAF99601
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89586.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89586.jpgsave_picture_89586.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ Cookie Monsta - Riot (2012) [MP3|320 кб/с]<Dubstep, Drumstep>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89588.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89588.jpgsave_picture_89588.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ HyperSnap 7.14.01 + Portable [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89589.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89589.jpgsave_picture_89589.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ HyperSnap - инструмент для захвата изображения, �
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89592.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89592.jpgsave_picture_89592.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ Empires Of Eden - Channelling The Infinite (2012) [MP3|192 кб/с]<Melodic Powe
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89593.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89593.jpgsave_picture_89593.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ VA - Дискотека 777 Русская vol. 2 (2012) [MP3|256 kbps]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89598.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89598.jpgsave_picture_89598.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ magnet:?xt=urn:btih:EA09ADAA4D6D0D63D54A3257472CAB211D839CAC
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89602.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89602.jpgsave_picture_89602.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ Wrath of Earth [En] (RePack) 1995 | Pilotus
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89604.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89604.jpgsave_picture_89604.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ Wrath of Earth [En] (RePack) 1995 | Pilotus
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89605.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89605.jpgsave_picture_89605.jpg" />
 </div>
 
 
@@ -687,7 +687,7 @@ VA - Мы Вас помним, Вы заслужили (2010) [MP3|320 kbps]<В�
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89606.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89606.jpgsave_picture_89606.jpg" />
 </div>
 
 

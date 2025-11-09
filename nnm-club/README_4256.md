@@ -6,7 +6,7 @@ AIMP 5.30 Build 2531 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132013.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132013.jpgsave_picture_132013.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:CD6E68C0D4F7A5490E739E67D357E9553D8A0CF5
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132014.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132014.jpgsave_picture_132014.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:C8B7910740C66A7477A591C9CD240A6F518ED6A2
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132015.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132015.jpgsave_picture_132015.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:59A16300EED8BD5CFC9060596BB15494259857D9
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132017.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132017.jpgsave_picture_132017.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Revo Uninstaller Pro 5.2.2 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132019.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132019.jpgsave_picture_132019.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:A80BCB81317A9BA8B037502ABA418E46B20B2AD3
 >>Зарубежная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132020.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132020.jpgsave_picture_132020.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ AIDA64 Extreme | Engineer | Business Edition | Network Audit 7.00.6700 Portable 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132021.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132021.jpgsave_picture_132021.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ CyberLink AudioDirector Ultra 14.0.3523.11 (x64) Portable by 7997 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132023.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132023.jpgsave_picture_132023.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Udemy, Benoit GOMES | Level design Masterclass : Theorizing before crafting (202
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132025.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132025.jpgsave_picture_132025.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ VA - Music News vol.321 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132027.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132027.jpgsave_picture_132027.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ magnet:?xt=urn:btih:31EFD85453E28F9494507203A39EC1D65FDB98B6
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132029.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132029.jpgsave_picture_132029.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ Udemy, Marc Schneider | Mastering Theater Lighting (2023) WEB-DL [EN]
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132030.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132030.jpgsave_picture_132030.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:D2B149F0CAEC9FCB7050DE0FF1D298683FEDC4E1
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132031.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132031.jpgsave_picture_132031.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Zentimo xStorage Manager 1.7.1.1224 [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132032.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132032.jpgsave_picture_132032.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Revo Uninstaller Pro 5.2.2 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132033.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132033.jpgsave_picture_132033.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Cyberlink ColorDirector Ultra 12.0.3523.11 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132034.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132034.jpgsave_picture_132034.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Big Adventure: Trip to Europe 6 / Большое приключение: Пое�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132037.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132037.jpgsave_picture_132037.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ magnet:?xt=urn:btih:54FF7B67449CD769C48A76EB03A7C1E6A41D43A3
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132039.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132039.jpgsave_picture_132039.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Microsoft PowerToys 0.76.0 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132041.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132041.jpgsave_picture_132041.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ magnet:?xt=urn:btih:A287947013909F44827F422F9B540A811785DB3D
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132043.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132043.jpgsave_picture_132043.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ Kelly Clarkson - Greatest Hits Chapter One (Deluxe Edition) (2012) [MP3|320 кб
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132044.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132044.jpgsave_picture_132044.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Master PDF Editor 5.9.80 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132045.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132045.jpgsave_picture_132045.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ magnet:?xt=urn:btih:97A17CC17951D3E1650EACDC71EBFB5A2A9911AC
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132047.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132047.jpgsave_picture_132047.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ magnet:?xt=urn:btih:8D35F8269FD7A82D118B1428404A24F0C785C3C5
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132048.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132048.jpgsave_picture_132048.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ magnet:?xt=urn:btih:FBC593AF2F0359B22335384784CF930DD29C4989
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132049.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132049.jpgsave_picture_132049.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ Soul Browser 1.3.89 Mod by youarefinished [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132051.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132051.jpgsave_picture_132051.jpg" />
 </div>
 
 

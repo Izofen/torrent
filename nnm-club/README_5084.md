@@ -6,7 +6,7 @@
 >>Медитации (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158893.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158893.jpgsave_picture_158893.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Udemy, Laura Hitchcock | Work Smart With Nuke! Episode 1: Channels & Roto (2021)
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158894.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158894.jpgsave_picture_158894.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:19F5667BA4B1DE0A0E0FA10222989F1CA5F7B09A
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158895.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158895.jpgsave_picture_158895.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:31FBDF74EADB026FADAFEFE09A5031142A81F7BB
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158896.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158896.jpgsave_picture_158896.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ Extreme Picture Finder 3.65.11.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158897.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158897.jpgsave_picture_158897.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:09FEDD922029E1B2F6ECC8E456D5EBE2169E618B
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158898.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158898.jpgsave_picture_158898.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:97748CB2C2CCE4B15907916FE4B1D169A4639B69
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158899.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158899.jpgsave_picture_158899.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ Accept - Symphonic Terror: Live at Wacken 2017 (2018) BDRip [H.264/1080p] [hand 
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158900.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158900.jpgsave_picture_158900.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ IVE – «I Want» (2023) WEB-DL [H.264/2160p] [4K, SDR]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158901.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158901.jpgsave_picture_158901.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:473B383D80024C899E65FB6028A8F56A5C0C7BF0
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158902.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158902.jpgsave_picture_158902.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ Nabendu Biswas | TypeScript Basics (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158903.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158903.jpgsave_picture_158903.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:A83D67E32BCF0AFC8A13B081E9E4BBDE3D448C2F
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158904.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158904.jpgsave_picture_158904.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:04580D8DB06534908DCA3978396A1103B0B5F6CA
 >>Космос
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158905.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158905.jpgsave_picture_158905.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ magnet:?xt=urn:btih:F30F544C07DB1C5E99541A9133C68BF61D27105C
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158906.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158906.jpgsave_picture_158906.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Photo Map v9.04.05 Mod by Timozhai, misuri78 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158907.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158907.jpgsave_picture_158907.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ magnet:?xt=urn:btih:55A39ABFE565F76C2599B2553FC212F9BFF4DBE5
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158908.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158908.jpgsave_picture_158908.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ VA - Big Room Dance 3 (2023) [MP3|320 Kbps] <Big Room, Dance, Hands Up>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158909.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158909.jpgsave_picture_158909.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ magnet:?xt=urn:btih:A25AB32405CAF379006DE1281037DDF5C24848CC
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158910.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158910.jpgsave_picture_158910.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ magnet:?xt=urn:btih:0BF7D4D0702F2C052BFCD2C6337966DD066ECE06
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158911.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158911.jpgsave_picture_158911.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ magnet:?xt=urn:btih:F2BB6D954B39989BE6334D6C1E065A00F3D357B0
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158912.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158912.jpgsave_picture_158912.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ magnet:?xt=urn:btih:0CBC862484F5700D90B8B553007A40F91B3668CD
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158913.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158913.jpgsave_picture_158913.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ Jean-Michel Jarre - Welcome To The Other Side (Concert From Virtual Notre-Dame) 
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158914.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158914.jpgsave_picture_158914.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ Serj Tankian - Invocations (2023) Live [FLAC|Lossless|WEB-DL|tracks] <Classical,
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158915.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158915.jpgsave_picture_158915.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ VA - The Very Best of Rock (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158916.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158916.jpgsave_picture_158916.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ magnet:?xt=urn:btih:473CCAF2FDDFED633CA0DE98EFCD455B7969DD8F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158917.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158917.jpgsave_picture_158917.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Cherry Audio - GX-80 1.0.9.123 Standalone, VSTi, VSTi 3, AAX (x64) RePack by R2R
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158918.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158918.jpgsave_picture_158918.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155597.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155597.jpgsave_picture_155597.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Transport giant / Транспортный олигарх + Новый конт�
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155599.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155599.jpgsave_picture_155599.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ CudaText 1.151.2.1 Portable + addons [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155600.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155600.jpgsave_picture_155600.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Wondershare UniConverter Ultimate 15.0.5.18 (х64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155601.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155601.jpgsave_picture_155601.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ SOVVY - Hypertrophy (2017) IMMINENT [FLAC|Lossless|WEB-DL|tracks] <Ambient, Bass
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155602.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155602.jpgsave_picture_155602.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Audio Hijack 3.6.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155603.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155603.jpgsave_picture_155603.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:924C1F7C5C14EA8BD3215A0EE49C3CAB467C094E
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155604.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155604.jpgsave_picture_155604.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:73FE7DD625236A27E1E5614E6804DF44ACA2561B
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155605.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155605.jpgsave_picture_155605.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ Opera 82.0.4227.33 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155606.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155606.jpgsave_picture_155606.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ Pra(Killa'Gramm) - БЕЗОБРАЗИЕ (2022) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155607.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155607.jpgsave_picture_155607.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ magnet:?xt=urn:btih:58E42C25B044F746C418CCDC810F5B4F3CC791AA
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155609.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155609.jpgsave_picture_155609.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ magnet:?xt=urn:btih:6DA3CFFF49FC6240F19906B4665DED93C3DB0F91
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155611.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155611.jpgsave_picture_155611.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ magnet:?xt=urn:btih:3349E8C2B1B761B500D5B8B6B9E91F36E3583C06
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155612.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155612.jpgsave_picture_155612.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ magnet:?xt=urn:btih:B29088EB8656A547803CDEA6E1F82AD74CAAEC1F
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155613.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155613.jpgsave_picture_155613.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ magnet:?xt=urn:btih:B24CE1D2FFAAF5A9259F961DF20010FC64568581
 >>Трейлеры (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155614.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155614.jpgsave_picture_155614.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ The Dark Element - The Dark Element (2017) Japanese Edition [FLAC|Lossless|image
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155615.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155615.jpgsave_picture_155615.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ magnet:?xt=urn:btih:D5474F64A9837C32605D6DCD63337D59190E9632
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155616.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155616.jpgsave_picture_155616.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ magnet:?xt=urn:btih:DAB0C16B700C813D0B160128665FC9E5AFFBD5A4
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155617.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155617.jpgsave_picture_155617.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Rob Papen - Go2 1.0.1b VSTi, AAX (x86/x64) Repack by VR [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155618.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155618.jpgsave_picture_155618.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ magnet:?xt=urn:btih:3B5452A01E7168CC4C6E7BE158C7629FB381E8D0
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155619.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155619.jpgsave_picture_155619.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ magnet:?xt=urn:btih:1E4AC9FD6A67A556826B1B2E87AFDC13F142F9F0
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155620.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155620.jpgsave_picture_155620.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ PDF to Excel Converter 6.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155622.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155622.jpgsave_picture_155622.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ magnet:?xt=urn:btih:928D22323FDEC4E2334B0A28EB99261F8A2C04E4
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155623.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155623.jpgsave_picture_155623.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ magnet:?xt=urn:btih:C90F2E71BE9871951ED2C23DAB032640A2A39DAE
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155624.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155624.jpgsave_picture_155624.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ magnet:?xt=urn:btih:18A46BD1B3B79560B5D19FF8A89C23BAA69E3064
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155625.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155625.jpgsave_picture_155625.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ MediaHuman YouTube Downloader 3.9.9.87 (1111) RePack (& Portable) by TryRooM [Mu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155626.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155626.jpgsave_picture_155626.jpg" />
 </div>
 
 

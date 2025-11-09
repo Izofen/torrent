@@ -6,7 +6,7 @@
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39772.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39772.jpgsave_picture_39772.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:6C2054616FB83CE08E471CFB969038AA8665B1F7
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39773.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39773.jpgsave_picture_39773.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Kekkon Yubiwa Monogatari | Tales of Wedding Rings | Легенда свадеб�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39774.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39774.jpgsave_picture_39774.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:9CB42BD0057EADE8D323E530CAB813FDF0616273
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39775.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39775.jpgsave_picture_39775.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ VA - Best Of 93 (1993) 2 CD [OGG Vorbis|480 Kbps] <Electronic, Rock, Reggae, Pop
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39776.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39776.jpgsave_picture_39776.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:AFD1C5DBDE9841468B8881D31DC9A5097DDB40A4
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39777.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39777.jpgsave_picture_39777.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:5715C001D1641733C3BF5B6B0D32111C62E7FE64
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39778.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39778.jpgsave_picture_39778.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ VA - Arab Music by Dust & Grooves (2024) 19CD [FLAC|Lossless|WEB-DL|tracks] <Hou
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39779.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39779.jpgsave_picture_39779.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ magnet:?xt=urn:btih:2EC78A0FBB6AC9985A492A3C3363079EF5976462
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39780.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39780.jpgsave_picture_39780.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ magnet:?xt=urn:btih:1CAAF725455C67D8A12A2242125923D920EE52F8
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39781.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39781.jpgsave_picture_39781.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ OBS Studio 30.2.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39782.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39782.jpgsave_picture_39782.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ Townscaper (2021) [Ru/Multi] (1.2.1) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39783.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39783.jpgsave_picture_39783.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ GTA 3 — Definitive Edition 1.83.44255649 Mod by apkvision [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39784.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39784.jpgsave_picture_39784.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ Valiant Hearts: The Great War 1.0.4 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39785.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39785.jpgsave_picture_39785.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Rugrats: Adventures in Gameland (2024) [En] (1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39786.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39786.jpgsave_picture_39786.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ magnet:?xt=urn:btih:66BBC6D34344285E7BC6E82A22EB8F56AF21F1EC
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39787.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39787.jpgsave_picture_39787.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ magnet:?xt=urn:btih:31F262949442037909FBA0F14704BD2D190AA814
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39788.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39788.jpgsave_picture_39788.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Monument Valley 2 NETFLIX v3.7.120 Mod by apkvision [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39789.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39789.jpgsave_picture_39789.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Slimjet 44.0.5.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39790.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39790.jpgsave_picture_39790.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ magnet:?xt=urn:btih:68C447C666EFE377FC9212E1F81C79C232218DF7
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39791.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39791.jpgsave_picture_39791.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ VA - Deep House Female Vocal (2024) [MP3|320 Kbps] <House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39792.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39792.jpgsave_picture_39792.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ KiCad 8.0.6 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39793.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39793.jpgsave_picture_39793.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ magnet:?xt=urn:btih:7FEE8D9080B0D098F1B6B77404E931BC980A7CB6
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39794.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39794.jpgsave_picture_39794.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Eddie Henderson - Realization & Inside Out : Anthology, Volume 2, The Capricorn 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39795.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39795.jpgsave_picture_39795.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ magnet:?xt=urn:btih:87F6DFE24E49C2D892E6577A2A3BE0D0CFCE6742
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39796.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39796.jpgsave_picture_39796.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ magnet:?xt=urn:btih:3BA72A9B64F630A0B5F90607EEDF4212606D8099
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39797.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39797.jpgsave_picture_39797.jpg" />
 </div>
 
 

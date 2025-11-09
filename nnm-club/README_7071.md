@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242104.jpgsave_picture_242104.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ AllDup 4.5.40 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242106.jpgsave_picture_242106.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Biopsyhoz (Биопсихоз) - Перерождение (2021) [MP3|320 Kbps] 
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242107.jpgsave_picture_242107.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:5EB9127C73E5200E99E564EC59805FA575035E3B
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242108.jpgsave_picture_242108.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ StartAllBack 3.5.1 StartIsBack++ 2.9.17 (2.9.1 for 1607) StartIsBack+ 1.7.6 Star
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242109.jpgsave_picture_242109.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ PeroPero - Massive Tales of Doom (2023) [FLAC|Lossless|WEB-DL|tracks] <Avant-Gar
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242110.jpgsave_picture_242110.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ Corine - Un air de fete (2018) [MP3|320 Kbps] <Dance-Pop, Disco, Chanson>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242111.jpgsave_picture_242111.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ PhotoDiva Pro 3.25 Portable by Spirit Summer [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242112.jpgsave_picture_242112.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ Insomniac Games | Артбук по играм Рэтчет и Кланк / The 
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242114.jpgsave_picture_242114.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ MassTube Plus 16.5.4.659 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242115.jpgsave_picture_242115.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ MacCleaner 2 PRO 2.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242116.jpgsave_picture_242116.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ magnet:?xt=urn:btih:DFA4297ACFFD97EEE25AAE0AACCFD07750BED300
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242117.jpgsave_picture_242117.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ Feodoq - Смесь (Live) (2023) [MP3|320 Kbps] <techno-post-punk, jam>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242118.jpgsave_picture_242118.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ magnet:?xt=urn:btih:4976AEAE2AB6578008FD57212DD7B5B38FAD2D87
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242119.jpgsave_picture_242119.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ magnet:?xt=urn:btih:75C273A6FEFEF28173EBD57773F229B68FFB9F64
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242120.jpgsave_picture_242120.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Mandelbulber 2.29.0 + Standalone [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242121.jpgsave_picture_242121.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ magnet:?xt=urn:btih:38849D0312F3C5D1DB7963E66935BDF846D074E7
 >>Космос
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242122.jpgsave_picture_242122.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ File & Image Uploader 8.3.1 Portable + Skins [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242123.jpgsave_picture_242123.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ magnet:?xt=urn:btih:DA0B84552F254772BE017648BD0C05CB6BBFF44C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242124.jpgsave_picture_242124.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Blak29 - The Waiting (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242126.jpgsave_picture_242126.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Mark Baker - The Future Still Ain't What It Used To Be (2019) 2xCD, Reissue, Rem
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242127.jpgsave_picture_242127.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ AutoPrompt 1.0.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242128.jpgsave_picture_242128.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Revo Uninstaller Pro 4.5.5 (+ Portable) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242129.jpgsave_picture_242129.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Mariana Bo - Live @ Que Se Arme Fest, Mexico 2020-03-31 [MP3|320 Kbps] <House, E
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242130.jpgsave_picture_242130.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Bananarama - Masquerade (2022) 2CD, The Unmasked Edition, 2023, IN SYNK [FLAC|Lo
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242131.jpgsave_picture_242131.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ StartAllBack 3.5.1 StartIsBack++ 2.9.17 (2.9.1) StartIsBack + 1.7.6 RePack by Kp
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242132.jpgsave_picture_242132.jpg" />
 </div>
 
 

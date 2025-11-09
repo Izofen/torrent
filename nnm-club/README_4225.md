@@ -6,7 +6,7 @@ Progressive Rock - Rock Legends (2003) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130968.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130968.jpgsave_picture_130968.jpg" />
 </div>
 
 
@@ -39,7 +39,7 @@ magnet:?xt=urn:btih:7FBD2FBC4CD93B5C0201F22B34668703FD1FE51E
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130969.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130969.jpgsave_picture_130969.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ Mahou Kishi Rayearth | Magic Knight Rayearth | Рыцари магии [1994, TV
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130971.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130971.jpgsave_picture_130971.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:D9E57DC9AA8D9DA7BF8D548BEA44B1350794D2D2
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130972.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130972.jpgsave_picture_130972.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Zentimo xStorage Manager 3.0.5.1299 RePack by KpoJIuK [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130973.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130973.jpgsave_picture_130973.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ magnet:?xt=urn:btih:65840A167218B150DE2AEC9C53595A6B6B29FA8B
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130974.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130974.jpgsave_picture_130974.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ AmigosCode, Nelson Djalo | Mastering Kubernetes (2023) WEB-DL [AD] [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130975.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130975.jpgsave_picture_130975.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ magnet:?xt=urn:btih:9E04BC283D9F7F2F7297513D0EF58BB65F661AC1
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130976.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130976.jpgsave_picture_130976.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ New year wallpapers 2013 (30.12.12) [Wallpapers]
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130977.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130977.jpgsave_picture_130977.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ Covenant - Nexus Polaris (1998) [WavPack|Lossless]<Melodic Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130978.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130978.jpgsave_picture_130978.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ Covenant - Nexus Polaris (1998) [WavPack|Lossless]<Melodic Black Metal>
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130980.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130980.jpgsave_picture_130980.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ magnet:?xt=urn:btih:8F4DDAC8246530E52CBE21C530CDA45D5B404600
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130982.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130982.jpgsave_picture_130982.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ magnet:?xt=urn:btih:EB39878903832AF08FA915F638EC0B6F95896EAF
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130983.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130983.jpgsave_picture_130983.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ NG. Непокорный остров / Port Protection (Lawless Island) (2023) 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130984.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130984.jpgsave_picture_130984.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ magnet:?xt=urn:btih:1B63DD8C13F4EB5CAF1712F946A412C7B58DB856
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130985.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130985.jpgsave_picture_130985.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Mahou Kishi Rayearth 2 | Magic Knight Rayearth 2 | Рыцари магии 2 [19
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130986.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130986.jpgsave_picture_130986.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ magnet:?xt=urn:btih:1E4EF5AD9933C4E96A5EF0359D0B290BFF02A8C2
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130987.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130987.jpgsave_picture_130987.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Klonoa Phantasy Reverie Series (2022) [Multi] (1.0/dlc) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130988.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130988.jpgsave_picture_130988.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ magnet:?xt=urn:btih:CEC02D36DDB531EB3A204AC6983FC6377DA454FA
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130989.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130989.jpgsave_picture_130989.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ magnet:?xt=urn:btih:EA1142D68B624A400D53E186ED9BA82CB971ADA7
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130990.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130990.jpgsave_picture_130990.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ magnet:?xt=urn:btih:80FD51F71F5DF21D41F799F013981BE0EFDBDAD8
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130991.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130991.jpgsave_picture_130991.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Topaz Photo AI 2.1.4 (x64) RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130992.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130992.jpgsave_picture_130992.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ StartAllBack 3.7.1 StartIsBack++ 2.9.19 (2.9.1 for 1607) StartIsBack+ 1.7.6 Star
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130993.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130993.jpgsave_picture_130993.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ magnet:?xt=urn:btih:43ACE20AA41177F0A4A35FDA6FA96562A48A16C6
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130994.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130994.jpgsave_picture_130994.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ Udemy, Phil Ebiner, Viola Kanka Malaspina | AI Video Production: Create Videos 1
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130996.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130996.jpgsave_picture_130996.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ magnet:?xt=urn:btih:6532B55F55862B3A6AF83A8EB0930031AEF68D1D
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130997.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130997.jpgsave_picture_130997.jpg" />
 </div>
 
 

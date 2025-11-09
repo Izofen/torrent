@@ -6,7 +6,7 @@ AIDA64 Extreme | Engineer | Business Edition | Network Audit 8.00.8000 Final ReP
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2689.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2689.jpgsave_picture_2689.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:AF8ACF1B63AC06BBF2DC3B1D71E1624745C1AB4A
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2690.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2690.jpgsave_picture_2690.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:72B2D86FDDE37CC74B7C170AECD142A7DD4E8BE8
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2691.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2691.jpgsave_picture_2691.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:331B724532A17A634D36FB3A9EA5732E586E71B7
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2692.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2692.jpgsave_picture_2692.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:18125E65AC5506D251C0B82098D6DE58A4A11139
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2693.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2693.jpgsave_picture_2693.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:2400EA84000E8C0D02881546E37977A1E12B51DD
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2694.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2694.jpgsave_picture_2694.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Tainted Grail: The Fall of Avalon (2023) [Ru/Multi] (1.1.0a) Repack Wanterlude
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2695.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2695.jpgsave_picture_2695.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:85DD219F011B1F7D3BFD090D6D4F98364BA1F0B8
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2696.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2696.jpgsave_picture_2696.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:04A085F0F3AD811B2BCCFD53B4E8C4AF59E4844D
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2697.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2697.jpgsave_picture_2697.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:70AF327F6E0F0D5892434FDA3F67A46289834023
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2698.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2698.jpgsave_picture_2698.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ magnet:?xt=urn:btih:B92E2866D8789A87A766518E59DF7981A8375C4B
 >>История
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2699.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2699.jpgsave_picture_2699.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ magnet:?xt=urn:btih:8E7F531EC349D805D96CB3DAA815BD95E38C1841
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2700.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2700.jpgsave_picture_2700.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ magnet:?xt=urn:btih:2937147A2FB2CEB99061F8245BE4180699482060
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2701.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2701.jpgsave_picture_2701.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ magnet:?xt=urn:btih:28864CFB209DF07360A0955EDFD7126E89682EB0
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2702.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2702.jpgsave_picture_2702.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ FastStone Image Viewer 8.1 Corporate + Portable [Multi/Ru]
 >>Просмотрщики Графики (вьюверы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2703.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2703.jpgsave_picture_2703.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ Cronos: The New Dawn (2025) [Ru/Multi] (20250908/dlc) Repack Wanterlude
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2704.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2704.jpgsave_picture_2704.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ magnet:?xt=urn:btih:9352D58F4E490E315107A16F6494E7BE1717768E
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2705.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2705.jpgsave_picture_2705.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ magnet:?xt=urn:btih:2A32B01709EDCDD0348AD3476C083E2AD70F9A88
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2706.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2706.jpgsave_picture_2706.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ magnet:?xt=urn:btih:DF530829CB5EB0EBBF7DC79A4179B01CF9C42F2E
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2707.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2707.jpgsave_picture_2707.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Corsair выплатит пользователям компенсацию в $5
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2708.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2708.jpgsave_picture_2708.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Corsair выплатит пользователям компенсацию в $5
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2709.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2709.jpgsave_picture_2709.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:15999D582B933F363C4451D319BC8DAC7647993E
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2710.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2710.jpgsave_picture_2710.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Factorio (2020) [Ru/Multi] (2.0.66/dlc) License GOG (обновляемая)
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2711.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2711.jpgsave_picture_2711.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ magnet:?xt=urn:btih:667D03CC069D5E337213806152AC154CA057E192
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2712.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2712.jpgsave_picture_2712.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ magnet:?xt=urn:btih:83BD479D881F36B728AFEB8612407CED99B2A418
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2713.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2713.jpgsave_picture_2713.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ The Alters (2025) [Ru/Multi] (1.3.0.7/dlc) Repack Let'sРlay [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2714.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2714.jpgsave_picture_2714.jpg" />
 </div>
 
 

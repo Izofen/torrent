@@ -6,7 +6,7 @@ Danny Barrett - It's About Time (1993) DBD Productions [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113247.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113247.jpgsave_picture_113247.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Coventhrall - Legacy of Morfuidra (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113248.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113248.jpgsave_picture_113248.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Charles Lloyd - The Sky Will Still Be There Tomorrow (2024) [FLAC 24/96|Lossless
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113249.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113249.jpgsave_picture_113249.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Crystal Darkness - Ascend Saturnine Nebulae (1999) Remastered, 2022, Red Snow [F
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113250.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113250.jpgsave_picture_113250.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ magnet:?xt=urn:btih:BBB0623154273C78DB133B52608209F2EA2D3521
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113251.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113251.jpgsave_picture_113251.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Donald Byrd - Attitude (1987 - 1991) 2CD, 1999, Camden Deluxe [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113252.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113252.jpgsave_picture_113252.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Crystal Darkness - Ascend Saturnine Nebulae (1999) [FLAC|Lossless|image + .cue] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113253.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113253.jpgsave_picture_113253.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Crystal Darkness - Sombre (1995) Demo, Remastered, 2022, Red Snow [FLAC|Lossless
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113254.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113254.jpgsave_picture_113254.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ M.O.D - Surfin' M.O.D (1988) EP [FLAC|24/192|image + .cue|Vinyl-Rip] <Thrash Met
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113255.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113255.jpgsave_picture_113255.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ M.O.D - Devolution (1994) [WavPack|32/192|image + .cue|Vinyl-Rip] <Thrash Metal,
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113256.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113256.jpgsave_picture_113256.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Early Moods - Early Moods (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Doom Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113257.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113257.jpgsave_picture_113257.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ CudaText 1.211.0.0 Portable + addons [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113258.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113258.jpgsave_picture_113258.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Product Manager 2 v.2.6.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113259.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113259.jpgsave_picture_113259.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Jethro Tull - The Chateau D’Herouville Sessions 1972 (2024) 2CD, Rhino [FLAC|L
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113260.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113260.jpgsave_picture_113260.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ magnet:?xt=urn:btih:1FD8E7B969A28B9F89028763F586698832F794E4
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113261.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113261.jpgsave_picture_113261.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ VA - Exx Muzik Miami 2024 (2024) [MP3|320 Kbps] <Melodic House & Techno>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113262.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113262.jpgsave_picture_113262.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ magnet:?xt=urn:btih:8BE2ACD674B987FE575A02391A5BCF05D9207BB3
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113263.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113263.jpgsave_picture_113263.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ magnet:?xt=urn:btih:0185DEF18D7624E7C3E0D33927D9F12E7FF0E224
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113264.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113264.jpgsave_picture_113264.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ WatsGo for Mac 8.5.0 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113265.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113265.jpgsave_picture_113265.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ magnet:?xt=urn:btih:33174EEA415E85D21F545219859946F27B9A7804
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113266.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113266.jpgsave_picture_113266.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Big Fat Lizard - Big Fat Album (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113267.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113267.jpgsave_picture_113267.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ magnet:?xt=urn:btih:83879C7E6FC62FE9246488FC8FAD3FCC9F5C62A8
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113268.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113268.jpgsave_picture_113268.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ magnet:?xt=urn:btih:01DA40152C46D6F1514D41447C81DF49F4426451
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113269.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113269.jpgsave_picture_113269.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ magnet:?xt=urn:btih:898F435E40BD862655A14169457CDBC7767DFD9D
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113270.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113270.jpgsave_picture_113270.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ magnet:?xt=urn:btih:6E81501B7CBCD9D48FFCB1B70A0A554BD92AA63E
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113271.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113271.jpgsave_picture_113271.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ Gene Austin - Collection (1920s-1950s) (2011-2014) 2CD [FLAC|Lossless|WEB-DL|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113272.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113272.jpgsave_picture_113272.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197351.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197351.jpgsave_picture_197351.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:10224A9EA3EB3E83595C461AC26134B585B98383
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197352.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197352.jpgsave_picture_197352.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ IObit Driver Booster Pro 10.5.0.139 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197353.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197353.jpgsave_picture_197353.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:C134DCF465CA2AABC2F1185A2E67FB42A1704D8E
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197354.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197354.jpgsave_picture_197354.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:639A7C67D48295913868CDF454C3D12D93309EC2
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197355.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197355.jpgsave_picture_197355.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:8D14831EA8D539AEBFFB06A2958E29DC5D4DDB80
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197356.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197356.jpgsave_picture_197356.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ Amnesia: The Bunker (2023) [Ru/Multi] (1.2) Repack dixen18
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197357.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197357.jpgsave_picture_197357.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ SamDrivers 23.6 LAN [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197358.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197358.jpgsave_picture_197358.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:A1F571D354FEA57C55D4A8063D76F99712F929E8
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197359.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197359.jpgsave_picture_197359.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:69AE1F3AD51D9B72D9BF307E5AE5FE5C0A57EB80
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197360.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197360.jpgsave_picture_197360.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:8F1A3865A28368D691B0D186E5D2612EDAC38FC6
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197361.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197361.jpgsave_picture_197361.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Tennis Manager 2023 (2023) [Multi] (3.0.659) Scene Skidrow
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197362.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197362.jpgsave_picture_197362.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:0CDBD8DC649C35BA5BB0E2C68F041CB3C68282D5
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_197363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197363.jpgsave_picture_197363.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ magnet:?xt=urn:btih:4070B52647C20FACB9B9B85FFF56050A51601700
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197364.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197364.jpgsave_picture_197364.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ magnet:?xt=urn:btih:EFF81F76B6B622937B4DDE5F263818A49988F136
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197365.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197365.jpgsave_picture_197365.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Adguard 7.13.1 (7.13.4278.0) RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197366.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197366.jpgsave_picture_197366.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ magnet:?xt=urn:btih:D38BEF4547090EED8E0D3B2B8299DBDC5EE3C10F
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197368.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197368.jpgsave_picture_197368.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ magnet:?xt=urn:btih:7AE9EE88BE9A1D2B91EBAF8E0155BFFBD7F6AEB5
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197369.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197369.jpgsave_picture_197369.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ magnet:?xt=urn:btih:10C7951EB9D6586CDCA910FB71979D41CF534D10
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197370.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197370.jpgsave_picture_197370.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ magnet:?xt=urn:btih:92ABF276AB0BE6C1789CB834D29926D2BACFEB99
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197371.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197371.jpgsave_picture_197371.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Veil of Darkness (1993) [En] (1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197372.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197372.jpgsave_picture_197372.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ magnet:?xt=urn:btih:A36368CF453A5C4FADF10A436547AB14C9494F3D
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197373.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197373.jpgsave_picture_197373.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ magnet:?xt=urn:btih:7EC892C18E5872603DD75CFB05F2734023F214ED
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197374.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197374.jpgsave_picture_197374.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ magnet:?xt=urn:btih:8EEA8AB262E04528220DE3ECDAA3589764BC334A
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_197375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197375.jpgsave_picture_197375.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ magnet:?xt=urn:btih:AB4720E48C181E1167A08C03E3AA097E2E6C21C3
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197376.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197376.jpgsave_picture_197376.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Mozilla Thunderbird 102.12.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197378.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197378.jpgsave_picture_197378.jpg" />
 </div>
 
 

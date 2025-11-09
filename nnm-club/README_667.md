@@ -6,7 +6,7 @@ VA - Trance Spring 2025 (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17661.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17661.jpgsave_picture_17661.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:BABAE71E863B3CFE27CE8530EAAA1467561411BC
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17662.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17662.jpgsave_picture_17662.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Wardruna - Birna (2025) [FLAC|Lossless|tracks + .cue] <Nordic Folk, Ambient, Dar
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17663.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17663.jpgsave_picture_17663.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ FIA European Truck Racing Championship. Чемпионат Европы по к�
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17664.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17664.jpgsave_picture_17664.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ Mogwai - The Bombing of Pan Am 103 (2025) Soundtrack [FLAC|Lossless|WEB-DL|track
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17665.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17665.jpgsave_picture_17665.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Extize - DeLorean 666 (2025) [MP3|320 Kbps] <Darkwave, EBM, Electro-Industrial>
 >>Industrial, EBM, Dark Electro
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17666.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17666.jpgsave_picture_17666.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Devoid - Devoid (2025) [MP3|320Kbps] <EBM, Synthpop, Futurepop>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17667.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17667.jpgsave_picture_17667.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ magnet:?xt=urn:btih:B649A46D6FB62BB4C237846D1F0A0B19F76EC87D
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17668.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17668.jpgsave_picture_17668.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Rodmir - Родмир (1990) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop Rock, 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17669.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17669.jpgsave_picture_17669.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Cirith Ungol - Servants Of Chaos (2001) 2 x CD, Compilation, Reissue, 2011, Meta
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17670.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17670.jpgsave_picture_17670.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Aretha Franklin - Who’s Zoomin’ Who? (1985) [FLAC|Lossless|tracks + .cue] <E
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17671.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17671.jpgsave_picture_17671.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ VA - National Pop Dance Music Vol.116 (2025) [MP3|320 Kbps] <Pop, Folk, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17672.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17672.jpgsave_picture_17672.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ magnet:?xt=urn:btih:FF20576C9170A6D6F18B10528781A0DF6F1901D6
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17673.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17673.jpgsave_picture_17673.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ magnet:?xt=urn:btih:C2033A60E76384F5B8BD1205502EE0680092CB90
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17674.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17674.jpgsave_picture_17674.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ V.A. - Pop Summer Hits 2025 (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17675.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17675.jpgsave_picture_17675.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ magnet:?xt=urn:btih:3C44B75E4FCC8E3DB1191B83F4200BE724928FC5
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17676.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17676.jpgsave_picture_17676.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ Siege of Power - This Is Tomorrow (2023) [FLAC|Lossless|image + .cue] <Death, Th
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17677.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17677.jpgsave_picture_17677.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Microsoft Windows 11 [10.0.22631.5335], Version 23H2 (Updated May 2025) - Ори
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17678.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17678.jpgsave_picture_17678.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ VueScan Pro 9.8.45.18 RePack (& Portable) by elchupacabra (DC 17.05.2025) [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17679.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17679.jpgsave_picture_17679.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ magnet:?xt=urn:btih:2470425AE779B651F1A0AFF4694D0E4ABA115F23
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17680.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17680.jpgsave_picture_17680.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ magnet:?xt=urn:btih:4A9593D1930D8507EB077CF37F78B9F44FED4000
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17681.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17681.jpgsave_picture_17681.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ magnet:?xt=urn:btih:95DB5EE0AABD32D5476E0C05C81269C578C48765
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17682.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17682.jpgsave_picture_17682.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ magnet:?xt=urn:btih:F5F9AF5F69BCC24DC9D3C108B7580262A8AA08A7
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17683.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17683.jpgsave_picture_17683.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ magnet:?xt=urn:btih:94835FE30613D70DD781CB604C413609DBFAAC19
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17684.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17684.jpgsave_picture_17684.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Windows Server [10.0.25398.1611], version 23H2 (Updated May 2025) - Оригин
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17685.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17685.jpgsave_picture_17685.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Plexim Plecs 4.9.5 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17686.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17686.jpgsave_picture_17686.jpg" />
 </div>
 
 

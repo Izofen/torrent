@@ -6,7 +6,7 @@ Dennis Herrera - Four (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103781.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103781.jpgsave_picture_103781.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ The Heavy Hitters - The Heavy Hitters (2023) Cellar Music [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103782.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103782.jpgsave_picture_103782.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Ant Download Manager Pro 2.14.1 Build 88711 (x32) / Build 88710 (x64) Portable b
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103783.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103783.jpgsave_picture_103783.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ VA - The Best Ethnic Deep Tribal House Rhythms (2024) [FLAC|Lossless|WEB-DL|trac
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103784.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103784.jpgsave_picture_103784.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ magnet:?xt=urn:btih:F1026E9F97C65B523B018961ACF267A63E6CECA2
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103785.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103785.jpgsave_picture_103785.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ VA - Sexy Money on a Friday (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103786.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103786.jpgsave_picture_103786.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Telegram Desktop 5.6.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103787.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103787.jpgsave_picture_103787.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ magnet:?xt=urn:btih:ADFD9EB5E118F3FEF36444E3CD7DC341984AE371
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103788.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103788.jpgsave_picture_103788.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ PrivaZer Pro 4.0.94 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103789.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103789.jpgsave_picture_103789.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ VA - Blues In My Soul (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103790.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103790.jpgsave_picture_103790.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ PrivaZer Pro 4.0.94 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103791.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103791.jpgsave_picture_103791.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ magnet:?xt=urn:btih:CE0079FCC6BEFD443E00973E69A180EE61C3445C
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103792.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103792.jpgsave_picture_103792.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ VA - Deep House Essentials: Edition 2024 (2024) [MP3|320 Kbps] <House, Deep Hous
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103793.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103793.jpgsave_picture_103793.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ Motley Crue (Mötley Crüe) - Cancelled (2024) EP [FLAC 24/96|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103794.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103794.jpgsave_picture_103794.jpg" />
 </div>
 
 
@@ -364,7 +364,7 @@ VA - Car Bangers Rock (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103795.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103795.jpgsave_picture_103795.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ VA - Rock Nation October 2024 [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103796.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103796.jpgsave_picture_103796.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ VA - Just Blues (Soulful Groovy Tunes, Vol. 2) (2024) [FLAC|Lossless|WEB-DL|trac
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103797.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103797.jpgsave_picture_103797.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ Cannonball Adderley - Burnin' In Bordeaux: Live In France (1969) 2CD, 2024, Elem
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103798.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103798.jpgsave_picture_103798.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ CultistOne - Blues from the Abyss (A Lovecraftian Blues Journey) (2024) [FLAC|Lo
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103799.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103799.jpgsave_picture_103799.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Waldorf - Microwave 1 1.1.0 VSTi, VSTi 3, AAX (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103800.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103800.jpgsave_picture_103800.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ VA - Find Your Harmony 2024 Part 2 - NATURE (2024) [MP3|320 Kbps] <Trance, Progr
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103801.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103801.jpgsave_picture_103801.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ Catfish John Tisdell - I Hear the Blues Calling Me (2024) [FLAC|Lossless|WEB-DL|
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103802.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103802.jpgsave_picture_103802.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ VA - Suanda Amsterdam 2024 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103803.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103803.jpgsave_picture_103803.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ magnet:?xt=urn:btih:35F7F9892081FFBC99CE3FCD827ED54233681240
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103804.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103804.jpgsave_picture_103804.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ VA - Dancewood Records - Six Years (2024) [MP3|320 Kbps] <Trance, Progressive, E
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103805.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103805.jpgsave_picture_103805.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ magnet:?xt=urn:btih:5CF6DFE27FB79F4809BFB0133F897F0D4891578C
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103806.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103806.jpgsave_picture_103806.jpg" />
 </div>
 
 

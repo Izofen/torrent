@@ -6,7 +6,7 @@ Iratus Vir - Under a Midnight Sun (2023) [MP3|320 Kbps] <Melodic Death, Black Me
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234227.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234227.jpgsave_picture_234227.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Manifestic - Anonymous Souls (2019) [FLAC|Lossless|image + .cue] <Progressive Sp
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234228.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234228.jpgsave_picture_234228.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Wondershare Filmora X 11.6.3.639 RePack by PooShock [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234229.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234229.jpgsave_picture_234229.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ VA - Beautiful Metamorphosis, Vol. 4 (2021) [AAC|~300 Kbps] <Downtempo, Lounge, 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234230.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234230.jpgsave_picture_234230.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ ZEDGE 8.8.3 Mod by Mixroot, 0x7d [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234231.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234231.jpgsave_picture_234231.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ Ray Drummond - Continuum (1994) Arabesque Jazz [APE|Lossless|image + .cue] <Hard
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234232.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234232.jpgsave_picture_234232.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Bloomberg: Google сливает личные данные пользовате�
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_234233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_234233.jpgsave_picture_234233.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ Kenni Holmen - Saxophone Serenade (1995) NorthWord Press [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234234.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234234.jpgsave_picture_234234.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ Crypta - Echoes of the Soul (2021) [MP3|320 Kbps] <Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234235.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234235.jpgsave_picture_234235.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Arch Nemesis - Of Mind and Fantasy (2004) [WavPack|Lossless|image + .cue] <Dark 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234236.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234236.jpgsave_picture_234236.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ HateSphere - Hatred Reborn (2023) [FLAC|Lossless|WEB-DL|tracks] <Death, Thrash M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234237.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234237.jpgsave_picture_234237.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ VA - Lounge & Cookies, Vol. 1 (2021) [AAC|~292 Kbps] <Lounge, Chill Out, Downtem
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234238.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234238.jpgsave_picture_234238.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ magnet:?xt=urn:btih:6F82C09415FB5D239AB18E0B044D168D9CDA3AF8
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234239.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234239.jpgsave_picture_234239.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ magnet:?xt=urn:btih:93EB13503A2F630260A8F9627AC5D2C5FA7B6B15
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234240.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234240.jpgsave_picture_234240.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ Telegram for Android 9.0.1 (2800) [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234241.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234241.jpgsave_picture_234241.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ Wuthering Heights - Studio Albums (5 releases) (1999-2010) hand made [restored, 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234242.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234242.jpgsave_picture_234242.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ Alcotopia - It Hits the Spot (2019) [MP3|320 Kbps] <Speed, Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234243.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234243.jpgsave_picture_234243.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ Kosmos Logia - Universality (2023) [FLAC|Lossless|WEB-DL|tracks] <Epic Symphonic
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234244.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234244.jpgsave_picture_234244.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ VueScan Pro 9.8.10 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234245.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234245.jpgsave_picture_234245.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ Hellscream - Made Immortal (2013) [WavPack|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234246.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234246.jpgsave_picture_234246.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ magnet:?xt=urn:btih:BA6F4C1E90A9F65C19DC36F26ED3DABC051247B3
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234247.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234247.jpgsave_picture_234247.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ VA - Vanlife Chill, Vol. 1 (2020) [AAC|~329 Kbps] <Lounge, Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234248.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234248.jpgsave_picture_234248.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ magnet:?xt=urn:btih:E114CEA3329BA6E19D69C14E623E9A21800EF569
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234249.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234249.jpgsave_picture_234249.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Sandra - 18 Greatest Hits (1992) [FLAC|Lossless|tracks + .cue] <Pop, Synth-pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234250.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234250.jpgsave_picture_234250.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Autonoesis - Autonoesis (2020) [MP3|320 Kbps] <Melodic Thrash, Black, Death Meta
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234251.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234251.jpgsave_picture_234251.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ PCDJ DEX PRO 3.20.4.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234252.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234252.jpgsave_picture_234252.jpg" />
 </div>
 
 

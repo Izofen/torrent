@@ -6,7 +6,7 @@ Nancy Drew: Tomb of the Lost Queen [En] (RePack) 2012 | R.G ReCoding
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248347.jpgsave_picture_248347.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:BB5C26649509EC69EC728E4014F945302E34C78F
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248348.jpgsave_picture_248348.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:BB5C26649509EC69EC728E4014F945302E34C78F
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248350.jpgsave_picture_248350.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:BB5C26649509EC69EC728E4014F945302E34C78F
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248353.jpgsave_picture_248353.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ Windows 7 Ultimate v.05.2012 (Иваново) (2 образа: x64 и x86) [ру
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248354.jpgsave_picture_248354.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Windows 7 Ultimate v.05.2012 (Иваново) (2 образа: x64 и x86) [ру
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248357.jpgsave_picture_248357.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:A0FE8E6C5DC27C290C20D2D51F383589EAB05D30
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248359.jpgsave_picture_248359.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Windows XP Pro SP3 SanBuild 2012.4 [Русский]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248363.jpgsave_picture_248363.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Windows XP Pro SP3 SanBuild 2012.4 [Русский]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248365.jpgsave_picture_248365.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:FB46669B1B1D16E7850E58D3A4B329885A934CC8
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248371.jpgsave_picture_248371.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:FB46669B1B1D16E7850E58D3A4B329885A934CC8
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248373.jpgsave_picture_248373.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ magnet:?xt=urn:btih:06BD54549C58A6B5DCF5FE44F5958209C5F23821
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248377.jpgsave_picture_248377.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:1C2C43071D9A28B57EC2C788FFBE307B896A04AF
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248378.jpgsave_picture_248378.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ magnet:?xt=urn:btih:80924EF4580A1F5A9598959C9C857745A41B7126
 >>Отечественное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248379.jpgsave_picture_248379.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ magnet:?xt=urn:btih:80924EF4580A1F5A9598959C9C857745A41B7126
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248382.jpgsave_picture_248382.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Satarian - Безумие Первого Шага (2012) [MP3|320 кб/с]<Melod
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248389.jpgsave_picture_248389.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ VA - Клубный Танцпол Vol.1 (2012) [MP3|320 кб/с]<Dance, Club>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248391.jpgsave_picture_248391.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ magnet:?xt=urn:btih:8C1864BCEB07F891135C33B7310024BB01E6DD36
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248392.jpgsave_picture_248392.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ VA - 538 Hitzone 61 2CD (2012) [MP3|320 кб/с]<Dance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248397.jpgsave_picture_248397.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ magnet:?xt=urn:btih:8AA4F54CE33C149A37B319CC61F46387BFB6C7CC
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248399.jpgsave_picture_248399.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ magnet:?xt=urn:btih:9B2D35A675380F4D3A94F31AFD21A36556B67F11
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248400.jpgsave_picture_248400.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ magnet:?xt=urn:btih:EB6E3D5FD2686037E4528C2459FBA6562EBB3BA6
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248401.jpgsave_picture_248401.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ magnet:?xt=urn:btih:FA1E7F062DFE9452E8B57BC9EA58F4E0948BD69C
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248402.jpgsave_picture_248402.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ magnet:?xt=urn:btih:0B5A53588798E635F928D6AD8F96977604D39D89
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248403.jpgsave_picture_248403.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ DesktopOK 3.10 Portable [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248404.jpgsave_picture_248404.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ DesktopOK 3.10 Portable [Multi/Rus]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248406.jpgsave_picture_248406.jpg" />
 </div>
 
 

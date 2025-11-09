@@ -6,7 +6,7 @@ Wings Of Steel - Gates Of Twilight (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233684.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233684.jpgsave_picture_233684.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ FoneDog Toolkit for Android 2.1.8 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233685.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233685.jpgsave_picture_233685.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:CA4447B637893C7A6F7FDBE6D67926D746A64AC6
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233686.jpgsave_picture_233686.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Bartender 4 v4.1.18 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233687.jpgsave_picture_233687.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ J.J. Hurtak, Desiree Hurtak & Steven Halpern - Sacred Name Sacred Codes (2012) [
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233688.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233688.jpgsave_picture_233688.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ magnet:?xt=urn:btih:C7CD993984F2C923B019220D6A6B7D19A150C51B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233690.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233690.jpgsave_picture_233690.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ Necronomicon Beast - Hell Thrash War (2004) Release 2010, Iron Bonehead Prod. He
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233691.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233691.jpgsave_picture_233691.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ magnet:?xt=urn:btih:7AEE82D656ED2030E2243B879FA6067785A9A60D
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233692.jpgsave_picture_233692.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ magnet:?xt=urn:btih:7AEE82D656ED2030E2243B879FA6067785A9A60D
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233693.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233693.jpgsave_picture_233693.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ magnet:?xt=urn:btih:89A7594D01BD613C0AC71AEA3ABA95BFD6EF2C3C
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233694.jpgsave_picture_233694.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ The Horace Silver Quintet - Song For My Father (1963, 1964) 1995, Toshiba-EMI [F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233696.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233696.jpgsave_picture_233696.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ Opera 99.0.4788.13 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233697.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233697.jpgsave_picture_233697.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ EC-Council, Greg Hirsch | Certified Ethical Hacker CEH v11 (2021) PCRec [AD] [EN
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233698.jpgsave_picture_233698.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ Enterclass, Ольга Гусева | Весна (2023) WEB-DL [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233699.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233699.jpgsave_picture_233699.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ uTorrent (AdFree) 3.5.5 Build 46514 Stable Portable by A1eksandr1 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233700.jpgsave_picture_233700.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Guy Belanger - Voyages (& autres histoires) (2023) [FLAC|Lossless|WEB-DL|tracks]
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233702.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233702.jpgsave_picture_233702.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Vangelis - Blade Runner Trilogy, 25th Anniversary (2007) [FLAC|Lossless]<Store, 
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233704.jpgsave_picture_233704.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ SamDrivers 23.5 LAN [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233705.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233705.jpgsave_picture_233705.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ magnet:?xt=urn:btih:648DCC4A5EDB1AF22853F315E0ECBA449A09448B
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233706.jpgsave_picture_233706.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ Criminal Archives 2: Alphabetic Murders (2023) [En] (1.0) Unofficial [Collector'
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233708.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233708.jpgsave_picture_233708.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ QLab 5.2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233709.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233709.jpgsave_picture_233709.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ magnet:?xt=urn:btih:9914859E0CF4E2F8347B3A73CDCB8FBD228ACD95
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233710.jpgsave_picture_233710.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Def Leppard with the Royal Philharmonic Orchestra - Drastic Symphonies (2023) [M
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233711.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233711.jpgsave_picture_233711.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ magnet:?xt=urn:btih:B8E9F38877128ED7B1BE08D1B3EA1B9EF2D3699D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233713.jpgsave_picture_233713.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ OnlySwitch 2.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233714.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233714.jpgsave_picture_233714.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ magnet:?xt=urn:btih:9188F781676A4BE164ABD9F6427CFB2FE9DA89A6
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233715.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233715.jpgsave_picture_233715.jpg" />
 </div>
 
 

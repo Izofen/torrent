@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149181.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149181.jpgsave_picture_149181.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Space Marshals 3 + Mod Menu v1.3.8 [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149183.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149183.jpgsave_picture_149183.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:435825018CCF34D8C620F93A1BD036916DC0F5DB
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149184.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149184.jpgsave_picture_149184.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Hammerfall - Gates Of Dalhalla (2012) BDRemux [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149185.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149185.jpgsave_picture_149185.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:55F80ACDF9BD02D819A5274DACA14A9EBAB19B1C
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149186.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149186.jpgsave_picture_149186.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Malwarebytes AdwCleaner 7.2.6.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149187.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149187.jpgsave_picture_149187.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:7D71D6C4317C9C2DD26DC3C7A3D4F91679935A4E
 >>DailyTechInfo
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149188.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149188.jpgsave_picture_149188.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Iya na Kao Sarenagara Opantsu Misete Moraitai | Изобрази отвраще�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149189.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149189.jpgsave_picture_149189.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:4E41A51549DDCF34064DE613C3D2C8C783DB151E
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149190.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149190.jpgsave_picture_149190.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:9C6E2A852D1C6BD990BBC00A76352DEF88537DF1
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149191.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149191.jpgsave_picture_149191.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Pylot - Axiom (2023) [FLAC|Lossless|WEB-DL|tracks] <Dance, retrowave, synthpop, 
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149192.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149192.jpgsave_picture_149192.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ Windows Update MiniTool 25.12.2015 Portable [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149193.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149193.jpgsave_picture_149193.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ CentOS 7.6 (1810) [x86-64] 5xDVD, 1xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149194.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149194.jpgsave_picture_149194.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ magnet:?xt=urn:btih:2B773FF440F069EEA4BA55AFA932573EACF1DDDB
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149195.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149195.jpgsave_picture_149195.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Papik - Cocktail Italy Vol. 4 (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop Jazz, Nu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149196.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149196.jpgsave_picture_149196.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ magnet:?xt=urn:btih:7EB721521F36FB7B06C275834417528CD543F06D
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149197.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149197.jpgsave_picture_149197.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ magnet:?xt=urn:btih:47C1FB6860BCF89D8CB0854D51C334D8E4FBC889
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149198.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149198.jpgsave_picture_149198.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ magnet:?xt=urn:btih:788030F03D86EC08277976FA5EA814BCE38F8571
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149199.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149199.jpgsave_picture_149199.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ magnet:?xt=urn:btih:AAF07A98ECDD6D517ED61FFEE093B6FBB563E477
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149200.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149200.jpgsave_picture_149200.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ magnet:?xt=urn:btih:7526F32D6A0F0396AFFCCADCD1E91F84C5B6AB9E
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149201.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149201.jpgsave_picture_149201.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ magnet:?xt=urn:btih:EC713263701D84E5347435FF82BB576756620639
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149202.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149202.jpgsave_picture_149202.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ OEM Info Updater 9.6 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149203.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149203.jpgsave_picture_149203.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ ProduKey 1.93 + Portabe [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149204.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149204.jpgsave_picture_149204.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ Unheilig - Unter Dampf — Ohne Strom (MTV Unplugged) (2015) BDRemux [H.264/1080
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149205.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149205.jpgsave_picture_149205.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ magnet:?xt=urn:btih:6BCD9EE9825E10121791BBFD517B848BC8806334
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149206.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149206.jpgsave_picture_149206.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ VA - Rain Song Reggae (2015) [MP3|320 кб/с] <Reggae, Blues Soul, Pop Blues>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149207.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149207.jpgsave_picture_149207.jpg" />
 </div>
 
 

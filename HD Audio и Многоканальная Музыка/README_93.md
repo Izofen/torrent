@@ -6,7 +6,7 @@ Yoav Eshed - Guitar Hearts (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100736.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100736.jpgsave_picture_100736.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Vera Norea - Daughter of Eve (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100737.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100737.jpgsave_picture_100737.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ The Red Jumpsuit Apparatus - X’s For Eyes (2025) [FLAC 24/96|Lossless|WEB-DL|t
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100738.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100738.jpgsave_picture_100738.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Venna - Malik (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100739.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100739.jpgsave_picture_100739.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ The Scott Rednor Band - Where You Wanna Go (2025) [FLAC 24/48|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100741.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100741.jpgsave_picture_100741.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Stella Anning - Yellow Brick Veneer (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100743.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100743.jpgsave_picture_100743.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Soul City Collective - Soul City Collective (2025) [FLAC 24/44.1|Lossless|WEB-DL
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100745.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100745.jpgsave_picture_100745.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Sophia Oster Quartet - Praise (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100746.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100746.jpgsave_picture_100746.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Smokey Brights - Dashboard Heat (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Ro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100748.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100748.jpgsave_picture_100748.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Schlussakkord - Drehbuch (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100749.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100749.jpgsave_picture_100749.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Sam Siefert Ensemble Project - Realization (2025) [FLAC 24/48|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100750.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100750.jpgsave_picture_100750.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Riot Jazz Brass Band - Ginja (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100751.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100751.jpgsave_picture_100751.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Richard D. Johnson - Warm Embrace (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Vo
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100752.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100752.jpgsave_picture_100752.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Remigio Ducros and Luciano Simoncini - America amore amaro (2025) [FLAC 24/44.1|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100755.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100755.jpgsave_picture_100755.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Mystic Majesty - Ad Maiora Semper (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100757.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100757.jpgsave_picture_100757.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Epitaph - Don't Let The Gray Hair Fool You (2025) [FLAC 24/44.1|Lossless|WEB-DL|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100758.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100758.jpgsave_picture_100758.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Danger Cobra - Danger Cobra (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard R
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100773.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100773.jpgsave_picture_100773.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Canyon Lights - Breathe Easy (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100775.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100775.jpgsave_picture_100775.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Balder Gernot - Towards The End (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Ro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100778.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100778.jpgsave_picture_100778.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Amiya - Prosto do Gwiazd (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100779.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100779.jpgsave_picture_100779.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Aging Disgracefully - Shatter the Mirror (2025) [FLAC 24/44.1|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100780.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100780.jpgsave_picture_100780.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Sadist - Studio Albums (10 releases) (1993-2025) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100783.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100783.jpgsave_picture_100783.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Dirkschneider & The Old Gang - Babylon (2025) [FLAC 24/44.1|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100853.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100853.jpgsave_picture_100853.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ A Killer's Confession - Victim 1-2 (2024, 2025) [FLAC 24/44.1|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100918.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100918.jpgsave_picture_100918.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Sebastian Bach - Studio Albums (5 releases) (2001-2024) hand made [restored, dec
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100931.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100931.jpgsave_picture_100931.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ magnet:?xt=urn:btih:8627A3B9280F79AD96A2796BD2135A7749CBCC96
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100944.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100944.jpgsave_picture_100944.jpg" />
 </div>
 
 

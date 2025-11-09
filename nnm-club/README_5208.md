@@ -6,7 +6,7 @@ NCH Express Burn Plus 9.22 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162160.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162160.jpgsave_picture_162160.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:21018BE978A62D30B0C0D4BC67F0AF2179EB02C4
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162161.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162161.jpgsave_picture_162161.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:8FDB7362AB52120D0F42A7B247EBA762C0CCB91B
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162162.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162162.jpgsave_picture_162162.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:D044757E061113ABCF077DA9DF6057B3A341BB97
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162163.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162163.jpgsave_picture_162163.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:0460E398EEE96B3357D90514FA6B2E83C096E155
 >>Прочие зимние виды спорта
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162164.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162164.jpgsave_picture_162164.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ Luminar Neo 1.15.1.12389 Repack (& Portable) by elchupacabra [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162165.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162165.jpgsave_picture_162165.jpg" />
 </div>
 
 
@@ -161,7 +161,7 @@ magnet:?xt=urn:btih:86389505063D1229309437F9C3F8E98F6EF17B78
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162166.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162166.jpgsave_picture_162166.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ American Dream Machine - Deadhearts (2020) [FLAC|Lossless|tracks + .cue] <Modern
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162167.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162167.jpgsave_picture_162167.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ Moom 3.2.24 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162168.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162168.jpgsave_picture_162168.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ LibreOffice 7.2.4.1 Stable Portable by PortableApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162169.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162169.jpgsave_picture_162169.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ magnet:?xt=urn:btih:E5A9A5FCB13BBB1F5DD66967F996A2E7D2AF2E03
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162170.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162170.jpgsave_picture_162170.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ Hate Priest - Hate Priest / Lillins Currents (2019-2020) [MP3|320 Kbps] <Deathco
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162171.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162171.jpgsave_picture_162171.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ magnet:?xt=urn:btih:63E41B02E978EAC0166961B7CDDE992122AF51EB
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162172.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162172.jpgsave_picture_162172.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ Vanden Plas - The Ghost Xperiment - Illumination (2020) [FLAC|Lossless|image + .
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162173.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162173.jpgsave_picture_162173.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ Firefox Browser 95.0.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162174.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162174.jpgsave_picture_162174.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ NCH Crescendo Masters Pro 8.86 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162175.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162175.jpgsave_picture_162175.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ magnet:?xt=urn:btih:2AC6C73B1359CF5C2D88BFF27C78A632C43E2079
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162176.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162176.jpgsave_picture_162176.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Los Cochinos - Tequila Berserker (2020) [FLAC|Lossless|tracks + .cue] <Death'n'R
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162177.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162177.jpgsave_picture_162177.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Vellum 3.4.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162178.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162178.jpgsave_picture_162178.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ Any Video Downloader Pro 9.6.3 RePack (& Portable) by elchupacabra [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162179.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162179.jpgsave_picture_162179.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ ScreenFlow 9 v9.0.6 CR2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162180.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162180.jpgsave_picture_162180.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Django Reinhardt - 1947 (1998) Classics [FLAC|Lossless|tracks + .cue] <Swing, Gu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162181.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162181.jpgsave_picture_162181.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Sayonara no Asa ni Yakusoku no Hana o Kazarou | Maquia: When the Promised Flower
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162182.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162182.jpgsave_picture_162182.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ magnet:?xt=urn:btih:3AF2C7747681F98A152D642D81324563205474C4
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162183.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162183.jpgsave_picture_162183.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Screegle - Clean Screen Sharing 2.1.9 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162184.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162184.jpgsave_picture_162184.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ magnet:?xt=urn:btih:49C3282C4EC84D56C6381C2844A3CF0E99142D3E
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162185.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162185.jpgsave_picture_162185.jpg" />
 </div>
 
 

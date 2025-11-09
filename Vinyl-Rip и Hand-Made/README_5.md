@@ -6,7 +6,7 @@ Believer - Extraction from Mortality (1989) [FLAC|24/96|image + .cue|Vinyl-Rip] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19039.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19039.jpgsave_picture_19039.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Caliban - The Undying Darkness (2006) [FLAC|24/192|tracks|Vinyl-Rip] <Metalcore>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19040.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19040.jpgsave_picture_19040.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ W.A.S.P. - Studio Albums (16 releases) (1984-2018) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19219.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19219.jpgsave_picture_19219.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ VA - Heavy Artillery (1990) Unofficial Release [FLAC 2.0|44.1/24|image +.cue|MC-
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19564.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19564.jpgsave_picture_19564.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ Barren Earth - Studio Albums (4 releases) (2010-2018) hand made [restored, decli
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19565.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19565.jpgsave_picture_19565.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ Eternal Storm - Studio Albums (3 releases) (2013-2024) hand made [restored, decl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19754.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19754.jpgsave_picture_19754.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Smokie/Смоуки - Bright Lights & Back Alleys/Яркий Свет И Тем�
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19838.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19838.jpgsave_picture_19838.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Orbit Culture - Studio Albums (8 releases) (2013-2023) hand made [restored, decl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20048.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20048.jpgsave_picture_20048.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Sacred Steel - Studio Albums (10 releases) (1997-2025) hand made [restored, decl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20167.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20167.jpgsave_picture_20167.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ H.E.A.T - Studio Albums (8 releases) (2008-2025) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20179.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20179.jpgsave_picture_20179.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ Nachtblut - Studio Albums (7 releases) (2007-2025) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20398.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20398.jpgsave_picture_20398.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ Bleed From Within - Studio Albums (9 releases) (2008-2025) hand made [restored, 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20404.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20404.jpgsave_picture_20404.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ Machine Head - Studio Albums (15 releases) (1994-2025) hand made [restored, decl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20431.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20431.jpgsave_picture_20431.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ Cradle of Filth - Studio Albums (26 releases) (1994-2025) hand made [restored, d
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20464.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20464.jpgsave_picture_20464.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ Arch Enemy - Дискография (17 albums) (1996-2025) hand made [restored,
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20958.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20958.jpgsave_picture_20958.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Giovanni Pierluigi da Palestrina, Czech Philharmonic Chorus, Josef Veselka - The
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21109.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21109.jpgsave_picture_21109.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Epica (& Simone Simons) - Studio Albums (13 releases) (2003-2025) hand made [res
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21792.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21792.jpgsave_picture_21792.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Sunstorm - Studio Albums (8 releases) (2006-2024) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21968.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21968.jpgsave_picture_21968.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ Gary Moore - Ballads & Blues 1 & 2 (1995/1996) [FLAC 2.0|48/24|image+.cue|MC-Rip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22104.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22104.jpgsave_picture_22104.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ Allegaeon - Studio Albums (8 releases) (2008-2025) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22281.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22281.jpgsave_picture_22281.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ Gotthard - Studio Albums (14 releases) (1992-2025) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22308.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22308.jpgsave_picture_22308.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ magnet:?xt=urn:btih:63B50B54A45430716A89AED40DAB49AD0110795A
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22347.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22347.jpgsave_picture_22347.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ Benediction - Studio Albums (10 releases) (1990-2025) hand made [restored, decli
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22601.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22601.jpgsave_picture_22601.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ magnet:?xt=urn:btih:7875F548A12F81B7A6107745DD918008BCCF48F8
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22656.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22656.jpgsave_picture_22656.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ magnet:?xt=urn:btih:830F24EFAA3B14D926C301B941C965B6F5BBEBC4
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22733.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22733.jpgsave_picture_22733.jpg" />
 </div>
 
 
@@ -684,7 +684,7 @@ Magic Kingdom - Studio Albums (6 releases) (1999-2024) hand made [restored, decl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22898.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22898.jpgsave_picture_22898.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51976.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51976.jpgsave_picture_51976.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:A42BC4FF245DB03A959B8B05590CC868E1A6566B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51977.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51977.jpgsave_picture_51977.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Kaii to Otome to Kamikakushi / Mysterious Disappearances / Мистика, юн�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51978.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51978.jpgsave_picture_51978.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:3409A7257490FBD646E11E5EAF69A7799A7335B5
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51979.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51979.jpgsave_picture_51979.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Date a Live V / Рандеву с Жизнью 5 [2024, TV, 12] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51980.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51980.jpgsave_picture_51980.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ Windows 10 (v22h2) x64 PRO by KulHunter v19 (esd) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51981.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51981.jpgsave_picture_51981.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ magnet:?xt=urn:btih:E22277A0F7E2B28374BFEE7BCCE5F66296621A0A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51982.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51982.jpgsave_picture_51982.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:DDA3CA1190F842FC9A5AA83F3672FD183303112F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51983.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51983.jpgsave_picture_51983.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ magnet:?xt=urn:btih:08C4E05C1F2A7F90AFF98C8F1E79E6B27C8741E0
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51984.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51984.jpgsave_picture_51984.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ magnet:?xt=urn:btih:88DA2F8BBC986B6856A561C3DECA34529634FC1D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51985.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51985.jpgsave_picture_51985.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ magnet:?xt=urn:btih:E85882326C3F743A57AE0EB593CF72EA78575858
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51986.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51986.jpgsave_picture_51986.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ Louna - 9 Albums + 12 Singles + 3 Live + 4 Compilation (2009-2023) [MP3|320 kbps
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51987.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51987.jpgsave_picture_51987.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ Paul McCartney - 50 Albums, 14 Box-sets, 2 Singles, 166 CD (1970-2024) [FLAC|Los
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51988.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51988.jpgsave_picture_51988.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ Motorhead (Lemmy, Phil Campbell And The Bastard Sons) - 85 albums, 3 Box Set, 16
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51989.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51989.jpgsave_picture_51989.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ magnet:?xt=urn:btih:CC6C81F7AF1BDDF2D6755F6F7077B452ABBA56A7
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51990.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51990.jpgsave_picture_51990.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ Louna - 9 Albums + 11 Single + 3 Live's + 4 Compilation (2010-2023) [FLAC|Lossle
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51991.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51991.jpgsave_picture_51991.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ magnet:?xt=urn:btih:5AC71CDB9D4F9D64C4D864C38570AF88D82050C5
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51992.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51992.jpgsave_picture_51992.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ magnet:?xt=urn:btih:337FBD19F074F91C48CF5A62B08DFD726977B89E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51993.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51993.jpgsave_picture_51993.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ magnet:?xt=urn:btih:35091621219CD5E894D8CF43114E6C5B7C11351F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51994.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51994.jpgsave_picture_51994.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ magnet:?xt=urn:btih:77A0325AECD2D5A433E490983ECD3BAB6A70B4C3
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51995.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51995.jpgsave_picture_51995.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Adobe Photoshop Lightroom Classic 2024 13.4.0.1 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51996.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51996.jpgsave_picture_51996.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ magnet:?xt=urn:btih:A0E95EE14327ADF4668755524B3435F734530003
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51997.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51997.jpgsave_picture_51997.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ magnet:?xt=urn:btih:DAF3FBCB98743C4CD77E0F83F4DC6BA9E88E8D5D
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51998.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51998.jpgsave_picture_51998.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ magnet:?xt=urn:btih:7BA19BD4EDC3C730C43BA89716AAF4F8A59F115C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51999.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51999.jpgsave_picture_51999.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ magnet:?xt=urn:btih:C98CEA4DFF1D4ECFBBE9F69224F62A3D4112F3E2
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52000.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52000.jpgsave_picture_52000.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Rage (2011) [Ru/En] (1.0.35.4669/dlc) Repack dixen18 [Anarchy Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52001.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52001.jpgsave_picture_52001.jpg" />
 </div>
 
 

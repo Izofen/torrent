@@ -6,7 +6,7 @@ Places Around The Sun - Places Around the Sun (2020) [FLAC|Lossless|WEB-DL|track
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240161.jpgsave_picture_240161.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:7F24395128452F8702C93ABCE7BDC815CF963715
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240162.jpgsave_picture_240162.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:5ACB2CCC1EBB91021D7262D1F292F0EC891B62B0
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240163.jpgsave_picture_240163.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:9F0FCFDDEF5482353324E3D30C37135714209E2B
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240164.jpgsave_picture_240164.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Marcus Santoro - Axtone House Party 2020-10-05 [MP3|320 Kbps] <Future House>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240165.jpgsave_picture_240165.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ RazorSQL 9.4.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240166.jpgsave_picture_240166.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ Ubuntu*Pack 22.04 DDE (март 2023) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240167.jpgsave_picture_240167.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:FC70D122184CE6B6B2A36D77997581737B769BFA
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240168.jpgsave_picture_240168.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ Tinariwen - Amatssou (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <World>
 >>Folk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240169.jpgsave_picture_240169.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ VA - Пипл про | To Purple. Российско-Белорусское по
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240170.jpgsave_picture_240170.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ magnet:?xt=urn:btih:82BDB4C9221E2A896D9BC9FA18D451681F71E489
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240171.jpgsave_picture_240171.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ magnet:?xt=urn:btih:3BB1E22472F0C5CE367C36282F3E819020BE17E0
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240172.jpgsave_picture_240172.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ Giant - Born Again Dead Again (2020) [FLAC|Lossless|WEB-DL|tracks] <Stoner Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240173.jpgsave_picture_240173.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ Serpentine - Living аnd Dуing In Нigh Dеfinitiоn (2011) Japanese Edition [F
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240174.jpgsave_picture_240174.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ magnet:?xt=urn:btih:11F6366E4F875177D773D20E0F0D5CA4028269CC
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240175.jpgsave_picture_240175.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ magnet:?xt=urn:btih:57EEEF8484158C3A2D8AC3C57B08EA0EAEE26B75
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240176.jpgsave_picture_240176.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Baby Face Willette - Behind The 8 Ball (1964) 1998, Universal [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240177.jpgsave_picture_240177.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Distant Desktop 3.9 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240178.jpgsave_picture_240178.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ magnet:?xt=urn:btih:0F2EEA25A544134F761B3304DF7AE2436B9B153A
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240179.jpgsave_picture_240179.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ E&B Haircut - Blues Camp (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240180.jpgsave_picture_240180.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ magnet:?xt=urn:btih:E6D2B7A7D499340894582D5C23E7A811D1D33538
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240181.jpgsave_picture_240181.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ TinkerTool System 6 v6.98 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240182.jpgsave_picture_240182.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ YT Downloader 7.23.0 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240183.jpgsave_picture_240183.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Midnight Fury - Metamorph (2023) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retro
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240184.jpgsave_picture_240184.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ magnet:?xt=urn:btih:1308D6A24F215BE318894ABF196882245A06D01C
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240185.jpgsave_picture_240185.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ magnet:?xt=urn:btih:07CA9B838FE753411755B93A6A3D3EF24D7E1E84
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240186.jpgsave_picture_240186.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244771.jpgsave_picture_244771.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Crunkz - Never Stop Ep. 4 (2022-01-29) [MP3|320 Kbps] <Tech House, Future House,
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244772.jpgsave_picture_244772.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Kai Winding & Curtis Fuller - Bone Appetit (1980) 2004, Par Media Music [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244773.jpgsave_picture_244773.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:F54B7DFF8C974FA7DADF182DE9D5CC328015CA63
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244774.jpgsave_picture_244774.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ magnet:?xt=urn:btih:0AE99E61D88B811B166118FC3986F32A18846CDB
 >>История
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244775.jpgsave_picture_244775.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ Bert Kaempfert - Compilation (2023) [MP3|320 Kbps] <Easy Listening>
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244776.jpgsave_picture_244776.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ magnet:?xt=urn:btih:F9042AECBA9033E233DCE4973289B4E868B2E9DE
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244777.jpgsave_picture_244777.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ Chilhouette - Sights from Within (2016) [AAC|~317 Kbps] <Lounge, Chill Out, Down
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244778.jpgsave_picture_244778.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ magnet:?xt=urn:btih:B117F6056482312A6600470FD68468A8B7037A43
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244779.jpgsave_picture_244779.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ Total Commander Ultima Prime 8.4 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244780.jpgsave_picture_244780.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ Ashen Horde - Antimony (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Black M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244781.jpgsave_picture_244781.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ magnet:?xt=urn:btih:C657E934B5C3303FADD183525D2FBD4CEA09D2B4
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244782.jpgsave_picture_244782.jpg" />
 </div>
 
 
@@ -315,7 +315,7 @@ Notepad++ 8.5.1 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244783.jpgsave_picture_244783.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ magnet:?xt=urn:btih:37451A7764DD900A991C82F1A59AD764BB9589F2
 >>Релакс / Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244784.jpgsave_picture_244784.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ VA - Winter Lounge, Vol. 2 (2022) [AAC|~301 Kbps] <Lounge, Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244785.jpgsave_picture_244785.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ magnet:?xt=urn:btih:93F9A46BD4503B6F26A32B2BA32D2AFDD25413C0
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244786.jpgsave_picture_244786.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ magnet:?xt=urn:btih:317822D8F5802FE30141DDAF910DBBE8390E5350
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244787.jpgsave_picture_244787.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ magnet:?xt=urn:btih:D1908ACD1D287400330258DD058783172CEB75E1
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244788.jpgsave_picture_244788.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ magnet:?xt=urn:btih:61341BF178F49E3B2AE7E7AEB6AEAA97E6DDA2DC
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244789.jpgsave_picture_244789.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ magnet:?xt=urn:btih:DB635300F8FC49E2BBEC0E68322CA0C2670D1E15
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244790.jpgsave_picture_244790.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ magnet:?xt=urn:btih:6DDD0E58834AEB47531B6DF4B0E90535D58C01E8
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244791.jpgsave_picture_244791.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Ashen - Ritual of Ash (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244792.jpgsave_picture_244792.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ magnet:?xt=urn:btih:E7EFA92AB95E1A2241520E041CA97E1820053D7F
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244793.jpgsave_picture_244793.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ magnet:?xt=urn:btih:D89401777B7FE17F32CE6BBA6A663750D98503A8
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244794.jpgsave_picture_244794.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ VA - My Chillout Playlist (2022) [AAC|~306 Kbps] <Lounge, Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244795.jpgsave_picture_244795.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ ZZ Top - RAW (2022) 'That Little Ol' Band From Texas' Original Soundtrack [FLAC|
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244796.jpgsave_picture_244796.jpg" />
 </div>
 
 

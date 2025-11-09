@@ -6,7 +6,7 @@ Barony (2015) [Ru/En] (4.3.1) Repack Pioneer
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33869.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33869.jpgsave_picture_33869.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:D1D764FFC42844192BB19AEF3B8DD315192F7FC9
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33870.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33870.jpgsave_picture_33870.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ VA - 10's Nostalgia Best from the Tens (2024) [MP3|320 Kbps] <Pop, Rock>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33871.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33871.jpgsave_picture_33871.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:D657B4EF033C2C575704833A549E6D1E7848614B
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33872.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33872.jpgsave_picture_33872.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ VA - Rock Gym Workout (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33873.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33873.jpgsave_picture_33873.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ magnet:?xt=urn:btih:8BC9C5F257F6EF600FC0FAE3C24E68BD41C97B8E
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33874.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33874.jpgsave_picture_33874.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ Wondershare UniConverter Ultimate 16.0.5.99 RePack (& Portable) by elchupacabra 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33875.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33875.jpgsave_picture_33875.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ Windows Manager 2.0.9.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33876.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33876.jpgsave_picture_33876.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ magnet:?xt=urn:btih:71519AD827424CA410AA39A93733178FD4DCB6D6
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33877.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33877.jpgsave_picture_33877.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ Stone Age: Digital Edition 1.2.1 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33878.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33878.jpgsave_picture_33878.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ magnet:?xt=urn:btih:D29CCB129F7C415E7B8E35018DF219C471CDE8FA
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33879.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33879.jpgsave_picture_33879.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ magnet:?xt=urn:btih:F971DBCDE01B79D656D372EE6FA297A7943D2AA9
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33880.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33880.jpgsave_picture_33880.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ Beholder 2 1.7.16102 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33881.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33881.jpgsave_picture_33881.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ magnet:?xt=urn:btih:CB312F384FB193A1F3A335B9165B5E0F7130C2C2
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33882.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33882.jpgsave_picture_33882.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Gekijouban Inazuma Eleven Go: Kyuukyoku no Kizuna Gryphon | Inazuma Eleven GO th
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33883.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33883.jpgsave_picture_33883.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Gekijouban Inazuma Eleven Go vs Danbooru Senki W | Inazuma Eleven GO vs Danball 
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33884.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33884.jpgsave_picture_33884.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ TechSmith Camtasia 24.1.4 Build 5797 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33885.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33885.jpgsave_picture_33885.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ LUNA The Shadow Dust v1.0 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33886.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33886.jpgsave_picture_33886.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Concordia: Digital Edition 1.3.6 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33887.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33887.jpgsave_picture_33887.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ magnet:?xt=urn:btih:9C30011E75C0C455126E8E246ADBE17D74538230
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33888.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33888.jpgsave_picture_33888.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ magnet:?xt=urn:btih:28123A1D0920388EE7101AEC912FE90D123DC505
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33889.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33889.jpgsave_picture_33889.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ magnet:?xt=urn:btih:16FB8505CBF2B8E484A1354E1B15375868AF294F
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33890.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33890.jpgsave_picture_33890.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ magnet:?xt=urn:btih:42301A6605E4B0F57531E02C9526F3D4416CEC0A
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33891.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33891.jpgsave_picture_33891.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ magnet:?xt=urn:btih:C6EBAF810E09E2192495771A19AE5F9350FDF849
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33892.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33892.jpgsave_picture_33892.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ magnet:?xt=urn:btih:F0D5730520F1BBAEFB9FF4223A4141598A880110
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33893.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33893.jpgsave_picture_33893.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ magnet:?xt=urn:btih:9AB4A080211618B9664F1A0D1BFA94D0FA4FC293
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33894.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33894.jpgsave_picture_33894.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Hallmark Card Studio for Mac 22.0.07 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165464.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165464.jpgsave_picture_165464.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:0007BC7E00D02085C205841CE58A995EA48F4603
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165465.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165465.jpgsave_picture_165465.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Wattagio 1.12 [Multi/Rus]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165466.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165466.jpgsave_picture_165466.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Winamp 5.9.1 RC4 Build 10027 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165467.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165467.jpgsave_picture_165467.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:3A877F1B3FF577239565EA3F80F92A7D5253CEC5
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165468.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165468.jpgsave_picture_165468.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:8B8A05D86EADEDB5FE275AB0F7A3C2FC3BA1CF2F
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165469.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165469.jpgsave_picture_165469.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Smooze 1.10 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165470.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165470.jpgsave_picture_165470.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Brothers in Arms: Hell's Highway (2008) [PS3] [USA] 2.42 [Cobra ODE / E3 ODE PRO
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165471.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165471.jpgsave_picture_165471.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ ADB AppControl 1.7.9.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165472.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165472.jpgsave_picture_165472.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ MacCleanse 9.0.5 Pre-Release [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165473.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165473.jpgsave_picture_165473.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ magnet:?xt=urn:btih:955DAB1D533BDD12A7277A9AE9A8D77A77325AF5
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165474.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165474.jpgsave_picture_165474.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ VA - Nu Cool Covers 2: Pop Classics ReStyled (2018) [AAC|~323 Kbps] <Lounge, Nu 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165475.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165475.jpgsave_picture_165475.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ magnet:?xt=urn:btih:B8722280916950A5D18F791B88908D76C06323A8
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165476.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165476.jpgsave_picture_165476.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ magnet:?xt=urn:btih:FDB5B4799270385499287BE98C3B67DD7CB53A4E
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165477.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165477.jpgsave_picture_165477.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ magnet:?xt=urn:btih:705683E72417B6D3DA988BD75BCF6E4D72A41BE3
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165478.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165478.jpgsave_picture_165478.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ The Gnomon Workshop, Charleston Silverman | Unreal Engine 5 Lighting Fundamental
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165479.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165479.jpgsave_picture_165479.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Stephane Grappelli - Compact Jazz (1987) Verve Records [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165480.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165480.jpgsave_picture_165480.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Mylene Farmer 2019 – Le Film (2019) BDRip [H.264/1080p-LQ] [PR]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165481.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165481.jpgsave_picture_165481.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ MyGrain - MyGrain (2011) [FLAC|Lossless|image + .cue] <Melodic Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165482.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165482.jpgsave_picture_165482.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ magnet:?xt=urn:btih:142B9881989DC73688E9906E3439995209DA171E
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165483.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165483.jpgsave_picture_165483.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Saltpig - Saltpig (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Psych Stoner Doom/
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165484.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165484.jpgsave_picture_165484.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ magnet:?xt=urn:btih:4C249F250338993B7BF692C0AC3140C9CA75576E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165485.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165485.jpgsave_picture_165485.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ VA - A Touch of Sensual Chillout (2021) [AAC|~293 Kbps] <Lounge, Chill Out, Down
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165486.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165486.jpgsave_picture_165486.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ magnet:?xt=urn:btih:CF8AEDCA1F31D74BF82E388676453730204F39FE
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165487.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165487.jpgsave_picture_165487.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Fleshworks - Diabolus ex Machina (2023) [MP3|320 Kbps] <Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165488.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165488.jpgsave_picture_165488.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ Sweet & Lynch - Heart & Sacrifice (2023) [FLAC|Lossless|image + .cue] <Hard Rock
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165489.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165489.jpgsave_picture_165489.jpg" />
 </div>
 
 

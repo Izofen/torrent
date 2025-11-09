@@ -6,7 +6,7 @@
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30489.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30489.jpgsave_picture_30489.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:3CE9FB90090BC1907FC34646659DDE11950C25D1
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30490.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30490.jpgsave_picture_30490.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Microsoft® Windows® 11 Pro-Home Optim Lite x64 24H2 RU by OVGorskiy 01.2025
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30491.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30491.jpgsave_picture_30491.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:405B820A8D59AB5AE537237C569B5B90D49C6B6F
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30492.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30492.jpgsave_picture_30492.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:956601CC5F780B6A31D4EEBD4365A3ACC95AFB22
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30493.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30493.jpgsave_picture_30493.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:7E34E3AAA4D63DAB892CE765496295D482BE282C
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30494.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30494.jpgsave_picture_30494.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:0DC164F3AEEAE80AC5A9E1734E2F5E36578FCCD3
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30495.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30495.jpgsave_picture_30495.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ DRM-Play v1.56.2 Lite Mod by ajrys [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30496.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30496.jpgsave_picture_30496.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:8EF9F0B35F3CFD59D0A1DC67B9C68AE467BE2302
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30497.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30497.jpgsave_picture_30497.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Metro Awakening (2024) (1.0 build 16229071/dlc) Scene Rune [Deluxe Edition] [VR]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30498.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30498.jpgsave_picture_30498.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Car Mechanic Simulator 2021 (2021) [Ru/Multi] (1.0.37/dlc) Scene Rune
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30499.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30499.jpgsave_picture_30499.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ magnet:?xt=urn:btih:648494B8AED1FC596B4D3DB761A01CCD8E28F547
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30500.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30500.jpgsave_picture_30500.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ magnet:?xt=urn:btih:5E229339B27AC8A1B12BB30F3FDCFEBF18E644E8
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30501.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30501.jpgsave_picture_30501.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Skydance's BEHEMOTH (2024) [Multi] (1.0/dlc) Scene Rune [VR]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30502.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30502.jpgsave_picture_30502.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ magnet:?xt=urn:btih:84763FD3D3ECB90C8FA4F3BEF0974486492F4857
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30503.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30503.jpgsave_picture_30503.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ magnet:?xt=urn:btih:84763FD3D3ECB90C8FA4F3BEF0974486492F4857
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30504.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30504.jpgsave_picture_30504.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ magnet:?xt=urn:btih:ECADF8F3380AA13E97299FDEA0B76497484D3EA2
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30505.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30505.jpgsave_picture_30505.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Airhead (2024) [Ru/Multi] (0.569) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30506.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30506.jpgsave_picture_30506.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ magnet:?xt=urn:btih:937AB1F4D69E539798654FA8CDBAF39E404563DF
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30507.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30507.jpgsave_picture_30507.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ magnet:?xt=urn:btih:58016E7074AEAAF351A61B83D3EDD1397445B157
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30508.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30508.jpgsave_picture_30508.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ magnet:?xt=urn:btih:9FEC5C93753967E3AA15B18E119BEE6E44CED9EB
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30509.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30509.jpgsave_picture_30509.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Atlantis Word Processor 4.4.3.7 Repack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30510.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30510.jpgsave_picture_30510.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ magnet:?xt=urn:btih:9A04D4230B52750096BBFEBA40ED5F4B1ECEA257
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30511.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30511.jpgsave_picture_30511.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Moon+ Reader Pro v9.8 (b908000) Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30512.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30512.jpgsave_picture_30512.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ SplitCam 10.8.25 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30513.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30513.jpgsave_picture_30513.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ magnet:?xt=urn:btih:C825826DC018B9BCA646F103656F1FC2020A4819
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30514.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30514.jpgsave_picture_30514.jpg" />
 </div>
 
 

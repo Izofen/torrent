@@ -6,7 +6,7 @@ Hawaii Death - ...The Cult Still Lives (2023) [FLAC|Lossless|WEB-DL|tracks] <Alt
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222448.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222448.jpgsave_picture_222448.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:E0F670FE93754CD16FC787E3EB1E88010B2815D6
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222469.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222469.jpgsave_picture_222469.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Carthus - Images of Tyranny (2023) [MP3|320 Kbps] <Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222477.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222477.jpgsave_picture_222477.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Abyssos - Together We Summon the Dark (1997) [MP3|320 Kbps] <Melodic Black Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222493.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222493.jpgsave_picture_222493.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Gateway - Gateway (2015) [MP3|320 Kbps] <Death, Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222505.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222505.jpgsave_picture_222505.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Brutally Deceased - Satanic Corpse (2016) [MP3|320 Kbps] <Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222515.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222515.jpgsave_picture_222515.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Mracnij Znec - 8 Albums (2022-2023) [MP3|320 Kbps] <Epic Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222525.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222525.jpgsave_picture_222525.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Brutally Deceased - Black Infernal Vortex (2014) [MP3|320 Kbps] <Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222537.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222537.jpgsave_picture_222537.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Gateway - Aeternae (2014) Demo [MP3|320 Kbps] <Death, Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222551.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222551.jpgsave_picture_222551.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Gateway - Flesh Reborn (2021) [FLAC|Lossless|WEB-DL|tracks] <Death, Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222557.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222557.jpgsave_picture_222557.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Tombstalker - 2 Albums (2015-2023) [FLAC|Lossless|WEB-DL|tracks] <Death Metal, B
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222570.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222570.jpgsave_picture_222570.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Decompression - 2 Albums (2022-2023) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222578.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222578.jpgsave_picture_222578.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Abyssos - Fhinsthanian Nightbreed (1999) [MP3|320 Kbps] <Melodic Black Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222594.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222594.jpgsave_picture_222594.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Abyssos - Fhinsthanian Nightbreed (1999) [FLAC|Lossless|image + .cue] <Melodic B
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222604.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222604.jpgsave_picture_222604.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Cadaver - The Age of the Offended (2023) [FLAC|Lossless|WEB-DL|tracks] <Black, D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222644.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222644.jpgsave_picture_222644.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Nothingness - The Hollow Gaze of Death (2019) [FLAC|Lossless|WEB-DL|tracks] <Dea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222650.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222650.jpgsave_picture_222650.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ Abyssos - Together We Summon The Dark (1997) [FLAC|Lossless|image + .cue] <Melod
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222656.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222656.jpgsave_picture_222656.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Gateway - Gateway (2015) [FLAC|Lossless|tracks + .cue] <Death, Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222661.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222661.jpgsave_picture_222661.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Gateway - Galgendood (2023) [FLAC|Lossless|WEB-DL|tracks] <Death, Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222671.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222671.jpgsave_picture_222671.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Renaud Hantson s Furious Zoo - Fishnet - Furioso X (2023) [FLAC|Lossless|WEB-DL|
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_223017.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_223017.jpgsave_picture_223017.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ Skindred - Smile (2023) [FLAC|Lossless|WEB-DL|tracks] <Alt. Metal, Ragga-Metal>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_223025.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_223025.jpgsave_picture_223025.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Snow Patrol - Final Straw (2004) 2CD, 20th Anniversary Edition, 2023, UMC [FLAC|
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_223260.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_223260.jpgsave_picture_223260.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ Amon Amarth - Heidrun (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_223299.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_223299.jpgsave_picture_223299.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ Sleep Token - Take Me Back To Eden (2023) [FLAC|Lossless|tracks + .cue] <Alterna
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_223365.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_223365.jpgsave_picture_223365.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ Screammet - Десять Жизней (2023) [FLAC|Lossless|WEB-DL|tracks] <Heav
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_223375.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_223375.jpgsave_picture_223375.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ Teenage Wrist - Still Love (2023) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Gar
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_223383.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_223383.jpgsave_picture_223383.jpg" />
 </div>
 
 

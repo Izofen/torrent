@@ -6,7 +6,7 @@ Fort Firewall 3.12.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114339.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114339.jpgsave_picture_114339.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ EarthView 7.9.1 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114340.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114340.jpgsave_picture_114340.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Dropover Pro for Mac 4.13.2 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114341.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114341.jpgsave_picture_114341.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ FinePrint 11.42 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114342.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114342.jpgsave_picture_114342.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:BA8658D06A5097A7216BFA8E729D01DBC516979D
 >>Сериалы DC Comics
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114343.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114343.jpgsave_picture_114343.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:21C4E2271739FEFC0AD410F6EC10BE0AAD5B3A87
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114344.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114344.jpgsave_picture_114344.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Dire Straits - Communique (1979) 1992 [FLAC 24/192|Lossless|tracks] <Classic Roc
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114345.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114345.jpgsave_picture_114345.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:0C0184865B738942EBFE389D32E8EFE0C87AB21C
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114346.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114346.jpgsave_picture_114346.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ Creedence Clearwater Revival - Бродячий оркестр. Архив по�
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114347.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114347.jpgsave_picture_114347.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ magnet:?xt=urn:btih:0A0EDD3DB65BD7823C32CAF16928EDE16D79CBF8
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114348.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114348.jpgsave_picture_114348.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ Aiseesoft Audio Converter for Mac 9.2.22 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114349.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114349.jpgsave_picture_114349.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ Black Sabbath - Sabotage (1975) 1990 [FLAC 24/192|Lossless|tracks] <Heavy Metal>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114350.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114350.jpgsave_picture_114350.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ VA - Chillout Mood (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Down
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114351.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114351.jpgsave_picture_114351.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ VA - Rhapsodic Night Rythm (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill O
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114352.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114352.jpgsave_picture_114352.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ magnet:?xt=urn:btih:1258FABE3C4DB3696EEE37902B7097A3029A5A8A
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114353.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114353.jpgsave_picture_114353.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ VA - Greatest Smooth Lounge Chill Selection Relaxing Body and Mind (2024) [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114354.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114354.jpgsave_picture_114354.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ VA - Love & Lounge, Vol. 1 (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill O
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114355.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114355.jpgsave_picture_114355.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ magnet:?xt=urn:btih:AA9B46B61A62B6263CB3FC4E4FA9789B2247ABE3
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114356.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114356.jpgsave_picture_114356.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ magnet:?xt=urn:btih:66C94EB286ACA5AB714E122F22589ED94CF1A3F2
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114357.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114357.jpgsave_picture_114357.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ magnet:?xt=urn:btih:201F12C70AC374879240DB38BFC4E77CEADE9928
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114358.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114358.jpgsave_picture_114358.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ Viber 22.1.0.0 (x64) RePack (Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114359.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114359.jpgsave_picture_114359.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ magnet:?xt=urn:btih:B24E2E98CABD2270FE63777559249B073F1D3580
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114360.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114360.jpgsave_picture_114360.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Deep Purple - Дым над водой. Архив популярной музы
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114361.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114361.jpgsave_picture_114361.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ VA - Electronic compilation part 61 (2024) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114362.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114362.jpgsave_picture_114362.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ VA - Асса (1996) [FLAC|Lossless|image + .cue] <Rock, Soundtrack>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114363.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114363.jpgsave_picture_114363.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ magnet:?xt=urn:btih:84114092D7C1A1ACE5229B77E1A14DBEAB858E4B
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114364.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114364.jpgsave_picture_114364.jpg" />
 </div>
 
 
